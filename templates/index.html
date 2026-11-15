@@ -40,19 +40,9 @@
   <div class="section-header">
     <h2 class="section-heading"><span class="heading-sym">~/</span>novels</h2>
     <div class="section-line" aria-hidden="true"></div>
-    <span class="section-badge">12 books</span>
+    <span class="section-badge">1 book</span>
   </div>
-  {% set ri = get_section(path="reverend-insanity/_index.md") %}
-  {% set lotm = get_section(path="lord-of-the-mysteries/_index.md") %}
   {% set chapters = get_section(path="chapters/_index.md") %}
-  {% set md = get_section(path="moby-dick/_index.md") %}
-  {% set wn = get_section(path="white-nights/_index.md") %}
-  {% set idiot = get_section(path="the-idiot/_index.md") %}
-  {% set nfu = get_section(path="notes-from-underground/_index.md") %}
-  {% set bk = get_section(path="brothers-karamazov/_index.md") %}
-  {% set meta = get_section(path="metamorphosis/_index.md") %}
-  {% set trial = get_section(path="the-trial/_index.md") %}
-  {% set pride = get_section(path="pride-and-prejudice/_index.md") %}
   {% set lith = get_section(path="lith's-slice-of-life/_index.md") %}
   {% set shotk = get_section(path="son-of-the-hero-king/_index.md") %}
   {% set hearth = get_section(path="hearthomancy-vol-1/_index.md") %}
@@ -63,7 +53,7 @@
   {% set villain = get_section(path="the-lustful-villain-every-milfs-and-gilfs-are-mine/_index.md") %}
   {% set friendly = get_section(path="creating-a-friendly-family/_index.md") %}
   {% set primordial = get_section(path="primordial-chaos-dragon-tower-harem-system/_index.md") %}
-  {% set shelves = [ri, lotm, chapters, md, wn, idiot, nfu, bk, meta, trial, pride] %}
+  {% set shelves = [chapters] %}
   <div class="novels-grid">
     {% for shelf in shelves %}
     <a href="{{ shelf.path }}" class="novel-card">
@@ -202,17 +192,11 @@
     <span class="section-badge">live metrics</span>
   </div>
   <div class="stats-grid">
-    {% set ri = get_section(path="reverend-insanity/_index.md") %}
-    {% set lotm = get_section(path="lord-of-the-mysteries/_index.md") %}
     {% set chapters = get_section(path="chapters/_index.md") %}
-    {% set md = get_section(path="moby-dick/_index.md") %}
     {% set wn = get_section(path="white-nights/_index.md") %}
-    {% set idiot = get_section(path="the-idiot/_index.md") %}
     {% set nfu = get_section(path="notes-from-underground/_index.md") %}
-    {% set bk = get_section(path="brothers-karamazov/_index.md") %}
     {% set meta = get_section(path="metamorphosis/_index.md") %}
     {% set trial = get_section(path="the-trial/_index.md") %}
-    {% set pride = get_section(path="pride-and-prejudice/_index.md") %}
     {% set lith = get_section(path="lith's-slice-of-life/_index.md") %}
     {% set shotk = get_section(path="son-of-the-hero-king/_index.md") %}
     {% set hearth = get_section(path="hearthomancy-vol-1/_index.md") %}
@@ -230,41 +214,15 @@
     {% set necromancer = get_section(path="strongest-necromancer-system/_index.md") %}
     {% set demonic_pornstar = get_section(path="demonic-pornstar-system/_index.md") %}
     {% set primordial_villain_harem = get_section(path="primordial-villain-with-a-slave-harem/_index.md") %}
-    {% set_global ri_n = 0 %}
-    {% for sub in ri.subsections %}
-      {% set vol = get_section(path=sub) %}
-      {% set vol_n = vol.pages | length %}
-      {% set_global ri_n = ri_n + vol_n %}
-    {% endfor %}
-    {% set_global lotm_n = 0 %}
-    {% for sub in lotm.subsections %}
-      {% set vol = get_section(path=sub) %}
-      {% set vol_n = vol.pages | length %}
-      {% set_global lotm_n = lotm_n + vol_n %}
-    {% endfor %}
-    {% set md_n = md.pages | length %}
     {% set wn_n = wn.pages | length %}
-    {% set_global idiot_n = 0 %}
-    {% for sub in idiot.subsections %}
-      {% set vol = get_section(path=sub) %}
-      {% set vol_n = vol.pages | length %}
-      {% set_global idiot_n = idiot_n + vol_n %}
-    {% endfor %}
     {% set_global nfu_n = 0 %}
     {% for sub in nfu.subsections %}
       {% set vol = get_section(path=sub) %}
       {% set vol_n = vol.pages | length %}
       {% set_global nfu_n = nfu_n + vol_n %}
     {% endfor %}
-    {% set_global bk_n = 0 %}
-    {% for sub in bk.subsections %}
-      {% set vol = get_section(path=sub) %}
-      {% set vol_n = vol.pages | length %}
-      {% set_global bk_n = bk_n + vol_n %}
-    {% endfor %}
     {% set meta_n = meta.pages | length %}
     {% set trial_n = trial.pages | length %}
-    {% set pride_n = pride.pages | length %}
     {% set lith_n = lith.pages | length %}
     {% set shotk_n = (shotk.pages | length) - 1 %}
     {% set hearth_n = hearth.pages | length %}
@@ -283,10 +241,10 @@
     {% set demonic_pornstar_n = demonic_pornstar.pages | length %}
     {% set primordial_villain_harem_n = primordial_villain_harem.pages | length %}
     {% set ch_n = chapters.pages | length %}
-    {% set all_n = ch_n + ri_n + lotm_n + md_n + wn_n + idiot_n + nfu_n + bk_n + meta_n + trial_n + pride_n + lith_n + shotk_n + hearth_n + ima_n + tcdg_n + golden_n + asc_n + villain_n + friendly_n + primordial_n + villain_heroines_n + system_villain_n + reborn_n + dominator_n + necromancer_n + demonic_pornstar_n + primordial_villain_harem_n %}
+    {% set all_n = ch_n + wn_n + nfu_n + meta_n + trial_n + lith_n + shotk_n + hearth_n + ima_n + tcdg_n + golden_n + asc_n + villain_n + friendly_n + primordial_n + villain_heroines_n + system_villain_n + reborn_n + dominator_n + necromancer_n + demonic_pornstar_n + primordial_villain_harem_n %}
     <div class="stat-card">
       <div class="stat-top-bar"><span class="stat-indicator">●</span> ARCHIVE</div>
-      <div class="value">28+8</div>
+      <div class="value">22+8</div>
       <div class="label">Novels &amp; Tools</div>
     </div>
     <div class="stat-card">

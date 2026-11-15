@@ -13,7 +13,7 @@
   {% endif %}
 </nav>
 
-{% if "/chapters/" in section.path or "/moby-dick/" in section.path %}
+{% if "/chapters/" in section.path %}
   {% set pages = section.pages | sort(attribute="extra.chapter") %}
 {% else %}
   {% set pages = section.pages %}

@@ -15,7 +15,7 @@ Static HTML, no tracking, and every tool runs client-side.
 
 ## What's here
 
-**~19,700 pages** of reading and tools, served as pure static HTML.
+**~15,800 pages** of reading and tools, served as pure static HTML.
 
 ### Tools
 
@@ -58,12 +58,6 @@ Novels, chapter by chapter:
 
 | Novel | Pages |
 |---|---|
-| Reverend Insanity | 2,261 |
-| Lord of the Mysteries | 1,446 |
-| Brothers Karamazov | 110 |
-| Pride and Prejudice | 62 |
-| Moby Dick | 61 |
-| The Idiot | 55 |
 | Notes from Underground | 24 |
 | White Nights | 12 |
 | The Trial | 11 |
