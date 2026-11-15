@@ -32,38 +32,38 @@ chapter = 99
 <p>This purchase agreement is planned to be kept a secret to Lavay as she’ll be told “You didn’t get sold this time either”. Then, she will be told another lie where she’ll be getting purchased as a cum dumpster for the army.</p>
 <p>I will then show up gallantly to save her at a later date. That is what we planned as the final scene.</p>
 <p>I wonder if she’ll be so thankful to me that she’ll start sucking my penis on the spot.</p>
-<p>「Well then, please leave the rest of the work to me」</p>
-<p>「I’ll be counting on you then」</p>
+<p>"Well then, please leave the rest of the work to me"</p>
+<p>"I’ll be counting on you then"</p>
 <p>After I grinned smugly, Doran thanked me respectfully and left.</p>
 <p>Since I had nothing left to do, I decided to inspect the city.</p>
 <p>I felt it last night when I entered the city as well, but a lot of citizens were working in high spirits. An enthusiasm that’s hot enough to make people forget that winter is coming seems to have enveloped the entire City of Nambonan.</p>
-<p>「It sure is lively here」</p>
-<p>「Yes. It’s because the election is coming up」</p>
+<p>"It sure is lively here"</p>
+<p>"Yes. It’s because the election is coming up"</p>
 <p>The one who said that was Rumon. When I told him that I wanted to take a look around the city, he came along to explain things to me.</p>
 <p>A civil officer of the Qualdense army also came along, but since Rumon is the person who is the most informed about the city’s situation, the officer is only opening his mouth when there’s anything to add.</p>
 <p>I personally wanted to inspect the city with Kohali as my cute guide, but Rumon told me that would be impossible and I agreed with him. A sheltered rich girl like her probably wouldn’t be able to guide me around the city.</p>
-<p>「So the atmosphere’s like this because of the election?」</p>
-<p>「Yes. But this time is even more lively than usual. All of the citizens have been looking forward to it」</p>
+<p>"So the atmosphere’s like this because of the election?"</p>
+<p>"Yes. But this time is even more lively than usual. All of the citizens have been looking forward to it"</p>
 <p>The previous councilors were all driven out due to Nambonan’s defeat. The city’s council is practically in a collapsed state. From when we put Nambonan under control to this day, the Qualdense army has been temporarily ruling the administration.</p>
 <p>Although I declared that I want the citizens to regain self-governance in my speech, there is no guarantee that their independence will really return. The citizens seem to be uneasy the entire time because of that.</p>
-<p>「Since we made the date of the scheduled election public, the city has been like this the whole time」</p>
+<p>"Since we made the date of the scheduled election public, the city has been like this the whole time"</p>
 <p>The citizens looked extremely glad that they regained the opportunity to deliver their will to the city administration. Rumon is also giving off a kind of genuinely happy vibe.</p>
 <p>Quotes like “The practice of local self-government is the best school of democracy” existed on Earth in my past life, but what’s important in a democracy is probably this exact kind of mindset that the citizens of Nambonan have.</p>
-<p>「Mayor, the names of this district’s candidates are listed on the board there」</p>
-<p>「Ohh?」</p>
+<p>"Mayor, the names of this district’s candidates are listed on the board there"</p>
+<p>"Ohh?"</p>
 <p>To be chosen as a candidate for Nambonan’s election, you have to be a citizen who is respected and trusted by many people. Being adored by the citizens means that the election depends heavily on popularity votes.</p>
 <p>On the large wooden signboard that’s located at an eye-catching spot of the street, things like the candidates’ names and what kind of person they are were roughly written on there.</p>
 <p>When I stopped and took a glance at it, I found a name on there that I am familiar with.</p>
-<p>「Hm. Anna’s name is on here」</p>
+<p>"Hm. Anna’s name is on here"</p>
 <p>For some reason, Anna, the waitress who works at the tavern is among the names of candidates.</p>
 <p>A name like Anna is common enough to be found everywhere, but since it has the tavern’s name attached next to where it says she’s working as a waitress, there should be no mistake that it’s the Anna I know.</p>
-<p>「Why is she a candidate?」</p>
-<p>「Miss Anna?」</p>
+<p>"Why is she a candidate?"</p>
+<p>"Miss Anna?"</p>
 <p>According to Rumon, Anna seems to have gotten nominated.</p>
 <p>Not only is she a famous poster girl at the tavern from the start, the fake intel of her preaching to me to protect the independence of Nambonan is circulating on the streets as well.</p>
 <p>It seems that partly because of those reasons, she has gotten pushed to be the most worthy person to be on Nambonan’s council.</p>
 <p>I heard that they don’t traditionally have female council members ever, but she has so much support from the people that she could blow that tradition away.</p>
-<p>「Miss Anna is really a wonderful woman」</p>
+<p>"Miss Anna is really a wonderful woman"</p>
 <p>Rumon said that while he exhaled in admiration, then he started to talk about Anna passionately even though I didn’t ask.</p>
 <p>Anna, who works energetically at a place of relaxation for the citizens seems to be originally popular amongst the men of the city. The traditional clothing she wears that is similar to an Oktoberfest costume has probably become a nice side dish of fap material for the people. She’s an outstanding waitress who doesn’t only serve people snacks to go with the drinks, but even some snacks for their night as well.</p>
 <p>When I think about that, my desire to monopolize her starts to spill out. I want to jizz all over her and mark her as my woman.</p>

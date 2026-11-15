@@ -35,12 +35,12 @@ chapter = 220
 <p>"Oho, a book published in my Newnelly? What is the title of the book if I may?"</p>
 <p>If I knew the title right away just by hearing one or two words that were written in the book, others would think that I’m an unbelievable bookworm.</p>
 <p>"Oh, pardon me. It is a book titled</p>
-<p>『History of Another World』</p>
+<p>"History of Another World"</p>
 <p>. Apparently it is a series, and is still currently being published. Do you know about it?"</p>
 <p>You know, I don’t think it’s just my imagination. Kalmia should be asking with some degree of certainty.</p>
 <p>"Ah, that book. I do know about it."</p>
 <p>If I don’t, what kind of author would I be?</p>
-<p>The history of writing that book, 『History of Another World』, can be traced back to immediately after I was born.</p>
+<p>The history of writing that book, "History of Another World", can be traced back to immediately after I was born.</p>
 <p>When I first reincarnated on the Eruo continent, I couldn’t help but want to write notes. I was afraid of losing the memory of my previous life.</p>
 <p>It’s not like there was a concrete precursor to worrying about forgetting things. I just felt like I was going to forget something.</p>
 <p>"The memories of those tumultuous days have faded over time, and now I can’t recall them in detail. But, there are things that never get lost. That’s right, important feelings are certainly still in my heart…"</p>
@@ -62,15 +62,15 @@ chapter = 220
 <p>Apparently, the servants saw me as “a child who plays and writes historical stories about fictional worlds”. I wonder if it’s like a subspecies of a child who likes drawing. The thoughtful Tesh ordered a civil officer to compile the translations so far into a book.</p>
 <p>However, this is just a collection of sentences. Rather than reading it as a book, it can be said that it is a gift with a strong reward element that shows that you have studied so hard.</p>
 <p>Tesh said that if I wanted, I could publish it as a proper book, so I thought about having people read it, review the composition, rewrite the poorly written sentences of the past me, and make corrections.</p>
-<p>This is how the book 『History of Another World』 came into being.</p>
-<p>"There are several book authors in the castle town. The book 『History of Another World』was written by one of them."</p>
+<p>This is how the book "History of Another World" came into being.</p>
+<p>"There are several book authors in the castle town. The book "History of Another World"was written by one of them."</p>
 <p>…..what I said just now was the official setting.</p>
 <p>It is not uncommon for Nobles and Knights to patronize wise scholars, fine artists, and skilled craftsmen. It is no surprise that novelists are among them.</p>
 <p>I’m just a person who likes reading stories.</p>
 <p>"Oh, I see. But, is that all?"</p>
 <p>"Pardon me?"</p>
 <p>"From the pen name, I thought that the book was somehow related to Wilk-dono."</p>
-<p>"Oh, so that’s what you mean. I did help to decide the pen name for the author of『History of Another World』. I guess it’s pretty easy to tell, as it’s something from many years ago…"</p>
+<p>"Oh, so that’s what you mean. I did help to decide the pen name for the author of"History of Another World". I guess it’s pretty easy to tell, as it’s something from many years ago…"</p>
 <p>The pseudonym used for History of Another World is a very simple anagram of Wilk Quordenze.</p>
 <p>There were three reasons for this.</p>
 <p>In Eruo and ancient languages, it’s very rare to play with anagrams, so it was one thing that I thought nobody would notice.</p>

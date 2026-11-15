@@ -69,7 +69,7 @@ chapter = 267
 <p>And in the cities located between Balaika City and Othelloria City, multiple blue coins were placed. These were the cities that Gijotto visited but was unable to confirm the existence of the Quordenze’s army.</p>
 <p>"As expected, it’s probably a strong attack on Othelloria using the western part of the Voistra Plains."</p>
 <p>Red and blue coins indicate that the Quordenze’s army has not advanced south from Balaika City. In addition, the Zeldomitra’s knights predict that there will be no invasion to the southern part of the Voistra Plains, based on the movements of the armies of the Sylopea family and the Evenafis family.</p>
-<p>Based on these facts, within the Zeldomitra family, the theory of 「Assaulting Othelloria via the west」 was considered to be the most likely theory.</p>
+<p>Based on these facts, within the Zeldomitra family, the theory of "Assaulting Othelloria via the west" was considered to be the most likely theory.</p>
 <p>"If this peddler had visited Silknoon City, we would have been able to see a little more about the war situation…"</p>
 <p>"According to the rumors that came later, it seems that that place has also fallen."</p>
 <p>Garrel smiled bitterly at Sadin’s lighthearted comment.</p>

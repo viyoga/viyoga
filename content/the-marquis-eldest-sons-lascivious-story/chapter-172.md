@@ -147,11 +147,11 @@ chapter = 172
 <p>This wooden board is a relatively common memo pad on the Eruo continent, and in terms of its image, it resembles a grate-like tool used to make sushi rolls. However, one board is about the size of a paperback book folded in three, so it’s not very possible to make seaweed rolls.</p>
 <p>By preparing dozens of thinly cut boards and bundling them with fiber strings made from plant roots, it becomes an inexpensive writing pad. The wood used as the material is dried well before being processed, so it is not as heavy or bulky as it looks. It’s pretty easy to use.</p>
 <p>Ignoring Canis who whimpered out, I opened the wooden board that was folded like a harisen and looked over it.</p>
-<p>『Jacque, a shoemaker in the second avenue in the north. A hole in his stomach and missing left arm.』</p>
-<p>『Ray from the general store near the mayor’s residence. Three arrows stuck in his chest and stomach.』</p>
-<p>『Tart from the oil shop near the front square of the assembly hall. Whole body is charred.』</p>
-<p>『Evaloop working at the dock. His stomach was torn sideways and various things came out.』</p>
-<p>『Joel works at the dock with Evaloop. Cleft in two from the waist.』</p>
+<p>"Jacque, a shoemaker in the second avenue in the north. A hole in his stomach and missing left arm."</p>
+<p>"Ray from the general store near the mayor’s residence. Three arrows stuck in his chest and stomach."</p>
+<p>"Tart from the oil shop near the front square of the assembly hall. Whole body is charred."</p>
+<p>"Evaloop working at the dock. His stomach was torn sideways and various things came out."</p>
+<p>"Joel works at the dock with Evaloop. Cleft in two from the waist."</p>
 <p>The names of the dead and the degree of damage to the bodies were simply written there.</p>
 <p>I flipped through the wooden boards with a flickering sound, but there are nothing but heartless descriptions of death. It’s a record of the dead, so it’s natural, but I felt saddened nonetheless.</p>
 <p>I thought it would be easy to find out their names and occupations, but it seems that they were interviewed by surviving Nambonan militiamen who were in the same unit as the dead. It seems that there were many patterns of people living in the same district or co-workers joining the Quordenze army, so it was not so difficult to identify the dead.</p>

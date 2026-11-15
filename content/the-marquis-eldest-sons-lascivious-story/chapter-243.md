@@ -44,7 +44,7 @@ chapter = 243
 <p>Of course, I’ve read the report, so I already know the gist of it.</p>
 <p>"Yes. From the magic effects you asked about, it seems to be an imitation, something similar, or the same magic as the Unholy Works. It is also known as Unclean Feather among priests, and as far as I know, There are records of it being used several times."</p>
 <p>Cynthia opened the scripture and put her finger on one entry.</p>
-<p>"The first mention of the Unholy Works is found in the Pure Scriptures: 『The stubborn people of Okobo continued to resist. I inflicted seven nights of impurity on their land. When upon they have acknowledged their wrongdoing, thus I have granted forgiveness to their land.』"</p>
+<p>"The first mention of the Unholy Works is found in the Pure Scriptures: "The stubborn people of Okobo continued to resist. I inflicted seven nights of impurity on their land. When upon they have acknowledged their wrongdoing, thus I have granted forgiveness to their land.""</p>
 <p>It is said that when Zeth began his project to unify the Bermana region, one of the methods of attack that he unleashed on the opposing forces was the Unholy Works.</p>
 <p>"Founding Father Zeth inflicted corruption upon the land several times during the conquest of Bermana. Once to defeat the Okobo, and then again…"</p>
 <p>As if she had memorized the page location, Cynthia fluidly pointed to the next chapter. The content of the descriptions was almost similar.</p>

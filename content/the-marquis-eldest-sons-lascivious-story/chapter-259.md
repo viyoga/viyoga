@@ -115,7 +115,7 @@ chapter = 259
 <p>Kindlor accepted Knight Dosellan’s proposal. They decided that this was not the time to be generous with the soldiers’ sacrifices. More than anything, they wanted information right now.</p>
 <p>"That’s all for the discussion."</p>
 <p>And Kindlor stood up to report the current situation to Magnis, his son and the current head of the family.</p>
-<p>In this way, the policy regarding Wilk’s army became largely a 「wait and see」 approach.</p>
+<p>In this way, the policy regarding Wilk’s army became largely a "wait and see" approach.</p>
 <p>At that time, no one noticed that there was a large gaping horizontal hole that ran through Voistra Plains.</p>
 <p>===========</p>
 <p>The night sky looked a little brighter, probably because there were fires all over the city.</p>
@@ -155,8 +155,8 @@ chapter = 259
 <p>"We’ve already achieved great results with the piercing attack. There’s no need to continue Operation Jaw…"</p>
 <p>"Grandfather made up his mind, and I believed in his will and moved. If I waver now, I won’t be able to face him."</p>
 <p>Before I knew it, Operation Snake’s Jaw had come to be called Operation Jaw. Since the snake’s jaw appears next to the snake’s fang, it seems to have been simplified as the snake series.</p>
-<p>It’s true that it’s troublesome to say 「Operation Snake’s Fang」 or 「Operation Snake’s Jaw」 one by one. Although official documents are a different matter, there is also a desire to avoid redundant words when speaking in the field.</p>
-<p>However, while 「Operation Fang」 sounds cool, 「Operation Jaw」 makes me imagine something akin to an a*s-jaw. Wouldn’t it be better to say 「Operation Maw」? …Is it a little strange? Well, I don’t care about the name.</p>
+<p>It’s true that it’s troublesome to say "Operation Snake’s Fang" or "Operation Snake’s Jaw" one by one. Although official documents are a different matter, there is also a desire to avoid redundant words when speaking in the field.</p>
+<p>However, while "Operation Fang" sounds cool, "Operation Jaw" makes me imagine something akin to an a*s-jaw. Wouldn’t it be better to say "Operation Maw"? …Is it a little strange? Well, I don’t care about the name.</p>
 <p>"There’s no point in being attached to Reisleaf. I should have explained that."</p>
 <p>And in a sense, I trust the overprotectiveness of military officers. If things got really dangerous, they would retreat, even if it meant wrapping up my grandfather. Reisleaf Castle may fall, but my grandfather probably won’t die.</p>
 <p>At that time, something was caught in my detection magic.</p>

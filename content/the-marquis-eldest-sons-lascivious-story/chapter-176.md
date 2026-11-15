@@ -258,13 +258,13 @@ chapter = 176
 <p>The Quordenze family decided that it would be beneficial for the Levios Kingdom and, by extension, the Levios family to mess up the internal affairs of the Empire by developing diplomacy with Spierzeig.</p>
 <p>"To stop this policy all of a sudden would be against righteousness. Therefore, the Levios family had to change their position and behavior little by little. I heard that the construction of a new base has begun. Of course, the Levios family should also have that information. In that case, looking ahead to the fall in 10 years, it’s a good time to start laying the groundwork."</p>
 <p>Novalf insisted that it is not possible to suddenly stop the invasion, so it is necessary to change the attitude little by little.</p>
-<p>『We support the claims of the Quordenze family. This is a fight for just.』</p>
-<p>『You’re in good shape. With this rapid advance, the burden on the people will be less.』</p>
-<p>『If the battle drags on, the army will be exhausted. We might be worrying unnecessarily, but it might be better to pay attention to the appearance of demon beasts』</p>
-<p>『We wonder how many years have passed since the war started. The decision to continue the war is good, but we are a little worried that there will be unreasonableness in terms of governance.』</p>
-<p>『Shouldn’t it be time to do something about it? If peace talk is an option, then, we, the Levios family, will take responsibility and act as mediators.』</p>
-<p>『It’s fine to expand the territory, but can it really be governed? The emergence of mature demonic beasts will not end as a problem for the Quordenze family alone.』</p>
-<p>『As guardians, we have the responsibility to protect the land and protect the people. Is it acceptable to continue the war like this?』</p>
+<p>"We support the claims of the Quordenze family. This is a fight for just."</p>
+<p>"You’re in good shape. With this rapid advance, the burden on the people will be less."</p>
+<p>"If the battle drags on, the army will be exhausted. We might be worrying unnecessarily, but it might be better to pay attention to the appearance of demon beasts"</p>
+<p>"We wonder how many years have passed since the war started. The decision to continue the war is good, but we are a little worried that there will be unreasonableness in terms of governance."</p>
+<p>"Shouldn’t it be time to do something about it? If peace talk is an option, then, we, the Levios family, will take responsibility and act as mediators."</p>
+<p>"It’s fine to expand the territory, but can it really be governed? The emergence of mature demonic beasts will not end as a problem for the Quordenze family alone."</p>
+<p>"As guardians, we have the responsibility to protect the land and protect the people. Is it acceptable to continue the war like this?"</p>
 <p>Novalf gave a simple example of how the Levios family exerted pressure.</p>
 <p>From the impoverishment of the territory and army due to the protracted battle, the story is connected to the duty of the Nobles to protect the land, and finally it is brought to the form of criticizing the Quordenze family for continuing the aggressive war.</p>
 <p>This is just one example of Novalf’s idea, but it was a really effective claim in that it was difficult to argue against. In 10 years, it would be possible to change the attitude naturally.</p>

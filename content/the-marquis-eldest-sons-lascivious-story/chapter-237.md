@@ -145,7 +145,7 @@ chapter = 237
 <p>"I’m going in earnest, so I’m going first. Of course, I’d like the Young Master to be serious as well."</p>
 <p>"…..very well. Then, I’ll take the second."</p>
 <p>When the start of the match was announced, Vidardo said while reaching for the box.</p>
-<p>"When I look at this beautiful box, it reminds me of the fable of Pandora’s Box. Do you know about it Young Master? It’s a story written in a book published in the city of Newnelly called『Another World’s History』. But……"</p>
+<p>"When I look at this beautiful box, it reminds me of the fable of Pandora’s Box. Do you know about it Young Master? It’s a story written in a book published in the city of Newnelly called"Another World’s History". But……"</p>
 <p>I never thought that a commoner would talk about Another World’s History.</p>
 <p>Before I could reply, he took out a gold coin.</p>
 <p>"1, 2, 3 coins."</p>

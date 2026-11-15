@@ -27,9 +27,9 @@ chapter = 262
 <p>There were several factors.</p>
 <p>The deciding factor for the decision was Ramon’s report and the fall of Dornia City.</p>
 <p>Previously, I heard from Ramon about an area in Spierzeig territory where there are many disturbing elements. The hypothesis is that gold coin payments will increase in the hometowns of territorial militia members who were captured during Operation Serpent’s Fang. It seems that he returned to Nambonan City to conduct additional investigation and was busy doing various things, but Operation Snake’s Jaws began in the midst of this.</p>
-<p>Ramon seemed to think that 「it might be of some use for when invading Spierzeig territory」, and hurriedly compiled and sent the results of the investigation at that point. One of the Nambonan’s boatmen responsible for crossing the Amelia River delivered the report to me.</p>
-<p>The main content, if summarized in one sentence, is that 「There are many dissatisfied citizens in the western part of the Voistra Plains」. The poor evaluation of each city was also written. He is a serious man.</p>
-<p>Among them, Dornia City has been given a rather ambiguous evaluation as 「The city with relatively high levels of dissatisfaction」.</p>
+<p>Ramon seemed to think that "it might be of some use for when invading Spierzeig territory", and hurriedly compiled and sent the results of the investigation at that point. One of the Nambonan’s boatmen responsible for crossing the Amelia River delivered the report to me.</p>
+<p>The main content, if summarized in one sentence, is that "There are many dissatisfied citizens in the western part of the Voistra Plains". The poor evaluation of each city was also written. He is a serious man.</p>
+<p>Among them, Dornia City has been given a rather ambiguous evaluation as "The city with relatively high levels of dissatisfaction".</p>
 <p>I don’t know if that has something to do with it, but when we invaded Dornia City, we were able to subdue it fairly easily. They may have been surprised by the sudden invasion, but I remember that the morale of the territory’s militia was never high.</p>
 <p>Because of this incident, my confidence in the report increased a little.</p>
 <p>The city that was rated as the most dangerous in Ramon’s report was Silknoon. As if dissatisfaction is contagious, the number of people seeking silver coins around Silknoon is also increasing.</p>

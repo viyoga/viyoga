@@ -33,31 +33,31 @@ chapter = 69
 <p>…Or so I thought.</p>
 <p>I gave the prototype manalal arrows to an ordinary soldier with no magic power to fire, but they were no different from normal arrows. The magic power that was stored inside the manalal arrows remained stored.</p>
 <p>Then I gave the arrows to a guard who possesses magic power to fire a few times, and the arrows were brimming with magic power. It seems that if the user doesn't use a little bit of magic power to stimulate the arrow, the stored magic power won't be released.</p>
-<p>I ended up making a useless weapon that is 『Magic arrows for commoners ( That requires magic power)』.</p>
+<p>I ended up making a useless weapon that is "Magic arrows for commoners ( That requires magic power)".</p>
 <p>Since I have magic power myself, I had overlooked the basic fact that I had been naturally stimulating the crystal with magic power. I'm such an idiot.</p>
-<p>「Y-young master. I think it's an interesting weapon still. It could be convenient when our magic power runs low or something」</p>
+<p>"Y-young master. I think it's an interesting weapon still. It could be convenient when our magic power runs low or something"</p>
 <p>The words the guard used to comfort me made me feel more empty instead.</p>
 <p>One manalal crystal can make five manalal arrows. And the amount of magic power that one of these arrows can store is only the level of magic power my guards unleash when they cast a spell. That's way too little.</p>
 <p>Moreover, once you put magic power in the arrows, the magic power will start to gradually escape, and it'll be all gone after half a day. Their power to store magic power was also weak.</p>
 <p>If that's the case, it would be much better to just use manalal crystals in their non-powdered form. Not only can one crystal store as much magic power as the amount of magic power I unleash when I cast my spells, but the magic power also doesn't naturally leak out either. The larger the crystal, the more magic power it may also be able to store.</p>
 <p>Let's think carefully about how to use the remaining manalal crystals from here on.</p>
-<p>「*Haaa…*」</p>
+<p>"*Haaa…*"</p>
 <p>After I recorded a memo of the result of the experiment this time onto a wooden board, I took a sip of my tea.</p>
 <p>I had designated the task of making my tea especially to Mimon. There's nothing better than sexually harassing her when she serves me my tea after all.</p>
-<p>「President」</p>
-<p>「What is it?」</p>
-<p>「If-If you don't mind…Can I get off work earlier today?」</p>
+<p>"President"</p>
+<p>"What is it?"</p>
+<p>"If-If you don't mind…Can I get off work earlier today?"</p>
 <p>Mimon said in a frightened tone. Maybe it's because of the "sexual harassment sex" we had yesterday, I feel like she's kind of trying to avoid me.</p>
 <p>However, I have already decided that I'm going to impregnate her. If possible, I want us to get along a bit better.</p>
-<p>「What's the reason?」</p>
-<p>「My mother has a cold…and no one's looking after my child. I came to work since there was work I needed to do in the morning, but I want to go take care of them in the afternoon」</p>
+<p>"What's the reason?"</p>
+<p>"My mother has a cold…and no one's looking after my child. I came to work since there was work I needed to do in the morning, but I want to go take care of them in the afternoon"</p>
 <p>Mimon's family structure seems to be a family of 6 consisting of Mimon's mother, herself, and 4 of her children.</p>
 <p>Mimon's mother is the one who normally looks after Mimon's kids when Mimon is at work, but it seems that she collapsed last night.</p>
 <p>A cold is not something that can be taken lightly. Due to there being healing magic in this world, medicine is not properly developed. It's not uncommon for commoners to die of a cold.</p>
 <p>In this kind of situation, it can't be helped that Mimon would want to go home to take care of her.</p>
 <p>Since I didn't want to be the president of a "black" company, we have a much better standard compared to other companies in the city of Nyuneri when it comes to working overtime and taking days off. Beautiful female employees might get a bit of sexual harassment from the president and become pregnant after their vagina gets filled with white liquid, but just like that color, our company is definitely a "white" company.</p>
-<p>「If that's the case, there's no problem」</p>
-<p>「Thank you, sir」</p>
+<p>"If that's the case, there's no problem"</p>
+<p>"Thank you, sir"</p>
 <p>Mimon let out a sigh of relief and lowered her head.</p>
 <p>I decided on my plans for the afternoon inside my mind.</p>
 <p>And then, I came to Mimon's home.</p>
@@ -67,56 +67,56 @@ chapter = 69
 <p>I don't know if this is how it is for the whole Elluo continent, but at least in our territory, we don't seem to get any earthquakes. If there are as many earthquakes here as there were in Japan from my past life, the city of Nyuneri will fall in a matter of seconds.</p>
 <p>If anything, the only earthquakes that might occur would be like a volcanic earthquake at the tallest mountain that's located at the center of the continent, Mt Erekthion. Since our territory is close to that mountain, I'm more scared of a volcanic eruption than an earthquake.</p>
 <p>Mimon's house was the same as the other homes, a small house built of bricks.</p>
-<p>「…Um president, please come on in」</p>
-<p>「Right. Thanks for having me」</p>
+<p>"…Um president, please come on in"</p>
+<p>"Right. Thanks for having me"</p>
 <p>I made my escorts wait outside near the house and entered Mimon's home with her while I was dressed in a high-class commoner's attire.</p>
 <p>The inside of her house was cramped and dark. The air was a bit chilly and damp, and there was a faint smell of mold. Well, it wasn't just her home, most commoner's houses would be something like this.</p>
 <p>Anna's home felt a bit more ventilated, but that's in Nambonan city. It's natural that things would be different here.</p>
-<p>「Mama, welcome back! …Onii-chan, who are you?」</p>
-<p>「Ah, hey, don't be rude」</p>
+<p>"Mama, welcome back! …Onii-chan, who are you?"</p>
+<p>"Ah, hey, don't be rude"</p>
 <p>A young girl had rushed up and jumped at Mimon after we entered the house.</p>
 <p>Judging from her appearance, she's probably around 4 or 5 years old. I can see features on her face that resemble Mimon's so I'm sure that she's going to grow up to be a beauty in the future.</p>
 <p>Mimon explained to her daughter that I'm a big shot at the workplace, and then she went into the room in the back of the house.</p>
 <p>Her mother who is sick with the cold was probably resting there. The reason Mimon's daughter and I were waiting in this room might be to prevent us from catching it as well.</p>
 <p>Apparently, only this girl out of all Mimon's children was in the house. Mimon's other kids seemed to have gone to work or something.</p>
 <p>Her daughter who was left here by her mother got bored and approached me.</p>
-<p>「Onii-chan, why did you come here? Are you here to play?」</p>
+<p>"Onii-chan, why did you come here? Are you here to play?"</p>
 <p>I came here to make you some siblings…is not what I'm going to answer her with.</p>
-<p>「I came to cure your grandma's illness. Look」</p>
+<p>"I came to cure your grandma's illness. Look"</p>
 <p>I activated illumination magic and made a light sphere about the size of a baseball in the air.</p>
 <p>"Woww~" Mimon's daughter raised her voice as she stared in admiration.</p>
-<p>「It's magic! Amazing!」</p>
-<p>「Surprised? Onii-chan here can use magic」</p>
+<p>"It's magic! Amazing!"</p>
+<p>"Surprised? Onii-chan here can use magic"</p>
 <p>I rubbed the cheek of Mimon's excited daughter.</p>
 <p>A child's cheeks are very nice. They are delicate and mellow, and there is a youthful elasticity to them that makes me want to rub them forever.</p>
-<p>「Muuuuu, stopp it~」</p>
-<p>「Alright alright, shall I go make your grandma feel better then?」</p>
-<p>「Really?!」</p>
-<p>「Yeahh. What do you think? Onii-chan is amazing, isn't he?」</p>
-<p>「Yahh!」</p>
+<p>"Muuuuu, stopp it~"</p>
+<p>"Alright alright, shall I go make your grandma feel better then?"</p>
+<p>"Really?!"</p>
+<p>"Yeahh. What do you think? Onii-chan is amazing, isn't he?"</p>
+<p>"Yahh!"</p>
 <p>Honest children are so adorable.</p>
 <p>Let's give her the impression of a cool and wonderful onii-chan while I can. Several years down the line I want her to say "Onii-chan ♡ You're amazing ♡" in my bed. It's necessary to look at the long term when it comes to my sex life.</p>
 <p>While Mimon's daughter held onto my sleeve, we went into the room in the back of the house. After we entered the room, Mimon raised her hand up in surprise to try to stop us as Mimon's mother came into sight.</p>
 <p>A woman who looked like an older version of Mimon was lying there exhausted. After I lit up the room with illumination magic, I could see beads of sweat on her face. She looked like she was suffering quite a bit.</p>
-<p>「Um, president...?」</p>
-<p>「Here, just let me take a look at her」</p>
+<p>"Um, president...?"</p>
+<p>"Here, just let me take a look at her"</p>
 <p>Since I was worried about Mimon and her daughter getting infected as well, I used healing magic on everybody in the room. At the same time, I also casted a stamina recovery spell on Mimon's mother whose physical condition seems to be on the decline.</p>
 <p>After a rainbow-colored glow appeared for a moment inside the room, Mimon's mother opened her eyes and looked at her own arms and hands. A healthy complexion had returned to her skin.</p>
 <p>There aren't many sicknesses out there that can't be healed by the healing magic casted with noble-class magic power.</p>
-<p>「My goodness!」</p>
-<p>「Mother?! You have to rest still!」</p>
+<p>"My goodness!"</p>
+<p>"Mother?! You have to rest still!"</p>
 <p>Mimon's mother literally jumped up and kneeled on the bed with her hands in front of her after her dramatic revival.</p>
 <p>Mimon's daughter was impressed by the healing magic's glowing effect and was clapping with her small and cute hands.</p>
-<p>「I don't know who you are, but we don't have any money...」</p>
+<p>"I don't know who you are, but we don't have any money..."</p>
 <p>It takes a bit of money to receive healing magic. At the very least, it's not something cheap enough that commoners could just thoughtlessly accept.</p>
 <p>Since they aren't that well off as one can tell from their home, Mimon's mother was probably worried about money.</p>
-<p>「No worries. I decided to do this for Mimon on my own. I will not charge any money for this. So, are you cured now? Your stamina should have recovered too」</p>
-<p>「Y-yes. I feel like a strange power had gushed out from inside of me. My hips were healed and my body has become very light」</p>
+<p>"No worries. I decided to do this for Mimon on my own. I will not charge any money for this. So, are you cured now? Your stamina should have recovered too"</p>
+<p>"Y-yes. I feel like a strange power had gushed out from inside of me. My hips were healed and my body has become very light"</p>
 <p>Mimon's mother twisted her waist left and right. I think she's somewhere in her mid 40s. The humans of this world age pretty well even if they have no magic power. They don't look that different compared to people from my previous life on Earth.</p>
 <p>She's barely on the high-end of my strike zone, but since I want to sleep with Mimon today I'm going to ignore her for today.</p>
-<p>「President…Thank you for healing my mother」</p>
+<p>"President…Thank you for healing my mother"</p>
 <p>Mimon was about to kneel down like her mother, but I grabbed her arm and stopped her.</p>
-<p>「There's no need to thank me. With this, we can continue doing what we did yesterday without any worries then, right?」</p>
+<p>"There's no need to thank me. With this, we can continue doing what we did yesterday without any worries then, right?"</p>
 <p>I slid my hand behind her rubbed her ass.</p>
 <p>As I smiled at her, Mimon looked at her mother and her daughter.</p>
 <p>Then, after she closed her eyes while frowning and let out a slow sigh, she opened her eyes again and looked towards me with a look of resignation.</p>

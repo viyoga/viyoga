@@ -214,7 +214,7 @@ chapter = 206
 <p>Perhaps as a prelude to future proposals, the King and Prince begin to talk about the charm of Blue Land Institute while helping each other. Are they really on bad terms?</p>
 <p>"It is very good to have the opportunity to have a relationship with the Nobles of other territories. The Quordenze family is in a position to be said to be a Great Noble in the Kingdom, so I think the connections gained will be a great strength."</p>
 <p>If you’re going to hammer a nail, it would be around here.</p>
-<p>"Indeed, as the successor to Quordenze, I don’t think I can underestimate that power… Come to think of it, the fiancée of the next head of the Adellahan family used to study at Blue Land Institute. There will also be connections that can be obtained in the Royal Capital, and it seems necessary to think carefully about its influence.」</p>
+<p>"Indeed, as the successor to Quordenze, I don’t think I can underestimate that power… Come to think of it, the fiancée of the next head of the Adellahan family used to study at Blue Land Institute. There will also be connections that can be obtained in the Royal Capital, and it seems necessary to think carefully about its influence."</p>
 <p>I dared to mention Adellahan’s name.</p>
 <p>A few years ago, the Adellahan territory was struck by a great famine, which apparently made them indebted to Levios family in many ways.</p>
 <p>And in order to repay the favor, the Adellahan family had no choice but to send reinforcements to the battle between the Levios family and Princess Orshian. It’s a very profitable request for repayment.</p>

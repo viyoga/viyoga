@@ -87,7 +87,7 @@ chapter = 302
 <p>Since he’d run away in anger due to the state of the Managris family, I expected him to say something lofty like, “I’m going to end the war!”, but it seemed he was just wandering around aimlessly, enjoying his position as a free-spirited Highlord. In retrospect, Well, I guess that’s what a boy in his early teens is like.</p>
 <p>Considering the historical context, he’d be wandering the Western continent in a hilarious, end-of-the-century frenzy, with conflicts breaking out everywhere, but I’m glad to see he seems healthy.</p>
 <p>"That was how I met Galfis... though not at the pass."</p>
-<p>One of Emperor Zinkaen’s heroic tales is called 『Little Demon Pass』. It is featured at the very beginning of the Wandering Arc.</p>
+<p>One of Emperor Zinkaen’s heroic tales is called "Little Demon Pass". It is featured at the very beginning of the Wandering Arc.</p>
 <p>After leaving his home, Emperor Zinkaen traveled from place to place to build his power, and while stopping in a city along the way, he heard a rumor. A demon had suddenly appeared in a certain mountain town and taken up residence.</p>
 <p>Possessing terrifying power, the demon defeated the noble’s army and took complete control of the town, doing whatever it wanted.</p>
 <p>After hearing this, Emperor Zinkaen resolved to slay the demon for the sake of the people, and set off into the mountains toward the rumored town. Hearing this, he traveled along a long mountain path, and as he approached a pass, a boy claiming to be the demon appeared before him.</p>

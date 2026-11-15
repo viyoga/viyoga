@@ -12,38 +12,38 @@ chapter = 91
 <p>I called for the servants who are in charge of helping me change while I made sure to not wake Eve up, and then I headed to the dining room after I got dressed.</p>
 <p>In the middle of my meal, Tesh came and reported to me that preparations for departure had finished.</p>
 <p>As he talked to me about today’s schedule, the door of the dining room was knocked on.</p>
-<p>「Good morning, young master」</p>
+<p>"Good morning, young master"</p>
 <p>A maid came in and bowed after she said that.</p>
 <p>The way she was walking briskly in the new style of maid outfits that I came up with gave off a feeling of a capable female that was quite nice.</p>
 <p>This time, the team that is going to go to Nambonan with me to serve me is going to consist of Tesh and this woman named Odie.</p>
 <p>Even though Odie doesn’t have the title, she’s practically the vice head maid. She has been on a business trip at a residence in the royal capital with mother until now.</p>
-<p>「It’s been a long time since I was under your care, Odie. I’ll be counting on you」</p>
-<p>「Yes sir. I will devote myself to meet your requests」</p>
+<p>"It’s been a long time since I was under your care, Odie. I’ll be counting on you"</p>
+<p>"Yes sir. I will devote myself to meet your requests"</p>
 <p>Odie should be around 25 years old right now. The vibe of a capable “career woman” is so nice that I can’t get enough of it.</p>
 <p>Back when I was a baby, my favorite servant was Odie.</p>
 <p>She was still around Eve’s age at the time. Due to her serious personality, she was a young girl that always looked tense.</p>
 <p>I remember she was so cute the way she nervously interacted with me, the long-awaited son of the Qualdense family.</p>
 <p>But now she has the dignified aura of a veteran maid, and I can feel her confidence in her eyes as she looked at me.</p>
-<p>「I want to depart right away after I finish my after-meal tea. There’s no problem, right?」</p>
+<p>"I want to depart right away after I finish my after-meal tea. There’s no problem, right?"</p>
 <p>Tesh and Odie then both answered me in affirmation at the same time.</p>
 <p>Last time, I went to Nambonan city as a soldier, but this time, I’m going there to look around as the ruler.</p>
 <p>Therefore, I am going there leisurely and elegantly in a horse carriage instead of rushing there on horseback.</p>
 <p>Warhorses here have the same image as the ones from Earth in my past life, but the horses that pull carriages are a bit different.</p>
 <p>They are chubby, big-boned horses and huge horses with thick, hairy manes. These types of horses certainly did not exist on Earth. I know this because these horses are bigger than elephants.</p>
 <p>They are creatures that make me question if it’s even okay to call them horses still.</p>
-<p>「Odie, you’re coming to Nambonan with us after you just came back from the capital, huh? It must be tough to travel everywhere like this」</p>
-<p>「Thank you for your concern. However, I’m okay because I’m already used to it」</p>
+<p>"Odie, you’re coming to Nambonan with us after you just came back from the capital, huh? It must be tough to travel everywhere like this"</p>
+<p>"Thank you for your concern. However, I’m okay because I’m already used to it"</p>
 <p>Tesh is the one who is driving the carriage while Odie and I were swaying around inside the carriage that’s about as roomy as the inside of a minivan.</p>
 <p>Since it’s a type of carriage that could fit 6 people, she had the option to sit next to me as well, but Odie was sitting at the spot that is the furthest away from me.</p>
 <p>That’s because she’s trying to be as reserved as possible as a servant. By no means am I being hated or anything like that.</p>
-<p>「Oh and I’m happy that I could finally see your face after so long」</p>
-<p>「Is that so? And what do you think after seeing this face? Have I become a charming man?」</p>
+<p>"Oh and I’m happy that I could finally see your face after so long"</p>
+<p>"Is that so? And what do you think after seeing this face? Have I become a charming man?"</p>
 <p>Odie’s work expression broke into a smile. It was a natural smile that showed her affection.</p>
 <p>My morning wood that has yet to completely subside reacted with a twitch.</p>
-<p>「Yes. Mother has said that as well. I think you have become quite handsome and manly」</p>
+<p>"Yes. Mother has said that as well. I think you have become quite handsome and manly"</p>
 <p>Odie’s mother is the head maid.</p>
 <p>Naturally, that means Odie should also know that I have graduated from being a virgin.</p>
-<p>「I-I see」</p>
+<p>"I-I see"</p>
 <p>I started to feel embarrassed after all this time about the fact that Odie knows that I lost my virginity.</p>
 <p>Since she had always looked after me as I grew up, she’s the person who has touched me the most out of all the maids.</p>
 <p>Our conversation cut off temporarily, and only the sound of the carriage’s movements echoed quietly.</p>
@@ -51,8 +51,8 @@ chapter = 91
 <p>What I’m curious about here is where Odie stands in this. On the surface, she’s not anybody’s personal maid, but from the work she does, I could say that she’s both my father and mother’s personal maid. She’s in a weird category where I don’t know if I can put my hands on her or not.</p>
 <p>If I can, I want to try hitting on her and take her to my bed, then shoot tons in her with my libido that exceeds a 12-year-old’s. I want to show her the manly side of her grown-up young master and shake off these feelings of embarrassment I have.</p>
 <p>I want to ask Tesh about this, but sadly, he’s driving the horse carriage right now.</p>
-<p>「Young master? May I help you with anything?」</p>
-<p>「No, it’s nothing」</p>
+<p>"Young master? May I help you with anything?"</p>
+<p>"No, it’s nothing"</p>
 <p>Since I was staring at Odie, it seems that she thought I needed something.</p>
 <p>I immediately denied it and looked at the scenery outside the window.</p>
 <p>We have already left the city of Nyuneri as a peaceful plain continues to expand in my sight.</p>
@@ -71,8 +71,8 @@ chapter = 91
 <p>Anyway, since there’s no way our family can manage all those lands, we are indirectly managing them through the knights who serve us.</p>
 <p>Knights are allowed to use their family name to represent themselves as the lords of those lands, and they are allowed to have their children succeed them. With that, no matter how many generations go by, those lands will be controlled by the family members of those knights, making them a “Knight family”.</p>
 <p>There are documents in the data library of Nyuneri city that say the house of Evermill has governed the city of Evermill for about 100 years. They are one of the ancient knight families that supported the house of Qualdense.</p>
-<p>「Master Wilk! Thanks for coming here! I bet you’re tired, right? We will prepare a meal and ready a bath for you immediately. Please come to the castle」</p>
-<p>「Yeah. It’ll be my pleasure」</p>
+<p>"Master Wilk! Thanks for coming here! I bet you’re tired, right? We will prepare a meal and ready a bath for you immediately. Please come to the castle"</p>
+<p>"Yeah. It’ll be my pleasure"</p>
 <p>The head of the Evermill family, knight Evermill, is a man who looks to be in his 30s.</p>
 <p>As I watched him energetically give orders to his servants and family members from the side, we entered the city and headed towards the castle with their guidance.</p>
 <p>Although it’s called a castle, it’s not like the castle in Nyuneri. Their castle was more like a one-story building that looked similar to a samurai mansion.</p>
@@ -87,12 +87,12 @@ chapter = 91
 <p>It’s perfectly fitting since the Qualdense family’s emblem has a snake drawn on there.</p>
 <p>After we entered the castle, I was immediately guided to the dining area.</p>
 <p>Since the city of Evermill is developing into one of the most developed cities in our territory, they have prepared food that can match what I normally eat.</p>
-<p>「I want to truly extend my congratulations to you on your magic beast subjugation. I’ve never heard of anyone accomplishing something like that overnight. Even the people of Evermill are overjoyed to hear your success as if it was our own」</p>
-<p>「What, that was nothing to me」</p>
+<p>"I want to truly extend my congratulations to you on your magic beast subjugation. I’ve never heard of anyone accomplishing something like that overnight. Even the people of Evermill are overjoyed to hear your success as if it was our own"</p>
+<p>"What, that was nothing to me"</p>
 <p>If this was my previous life, it would have probably been better to be a little humble here, but considering my position right now it would be better for me to be proud about it.</p>
 <p>I began to boast about this time’s subjugation with an attitude that’s not too overly arrogant.</p>
 <p>The eyes of Knight Evermill’s children and relatives were also sparkling as they listened to my magic beast subjugation story.</p>
-<p>「Woww! That’s wonderful!」</p>
+<p>"Woww! That’s wonderful!"</p>
 <p>Among them, there are some girls who seem pretty fuckable as well, but again, the question was if it would be okay for me to put my hands on them.</p>
 <p>However, I’m not shameless enough to ask Tesh “That girl, is it okay if I sleep with her?” on the spot while he’s serving me food.</p>
 <p>My father ordered me strictly to not put my hands on any daughters of nobles. However, since it was unlikely for me to venture out to other nobles’ territories, I wouldn’t have many chances to come in contact with daughters of nobles in the first place.</p>
@@ -101,13 +101,13 @@ chapter = 91
 <p>Putting my hands on Plume is even more out of the question than getting a taste of those captives. Even if I put my hands on the captives, I could at least handle the matter internally. But if I put my hands on Plume, it would be difficult to talk my way out of things and it will be a problem related to each other’s marriage. “Yes” to admiring Plume, but “No” to touching her.</p>
 <p>And then the daughters of knight families that I don’t know the answer to; I can’t say for sure whether or not they fit the criteria of “nobles” that my father refers to. Technically they aren’t, but in a broader sense they are. Knight families are in such a grey area.</p>
 <p>I don’t see any problems with me having sex with them right now, but I don’t know for sure.</p>
-<p>「The magic beasts from Nyuneri are pretty strong once matured…! To clean one up in just one night……」</p>
+<p>"The magic beasts from Nyuneri are pretty strong once matured…! To clean one up in just one night……"</p>
 <p>As I scanned for beauties around me, I continued to talk about the magic beast.</p>
 <p>I heard rumors before that say daughters of the knight families are used to having sex and good at doing fetish plays. Isn’t it normal human nature to want to find out if rumors are true?</p>
 <p>After the meal, I took a hot bath and waited for Tesh in the room that was prepared for me as my bedroom.</p>
-<p>「If it’s the knight families that serve us, master has told me ahead of time to tell you that you can do as you like」</p>
-<p>「I see」</p>
-<p>「If you let me know who you want, I will make the arrangements」</p>
+<p>"If it’s the knight families that serve us, master has told me ahead of time to tell you that you can do as you like"</p>
+<p>"I see"</p>
+<p>"If you let me know who you want, I will make the arrangements"</p>
 <p>While it’s okay to suddenly attack them from behind, it seems that I can also use my authority to call them to my bedroom.</p>
 <p>If they are daughters of the knight families, their parents will probably simply send them to me if I say that I want to sleep with them.</p>
 <p>Then, I thought about who I want to try sleeping with, but due to the long day of traveling tiring me out more than I expected, my desire to sleep was stronger.</p>
