@@ -48,7 +48,7 @@ chapter = 144
 <p>A man was standing in front of Nagumo Sian, who was sitting in the president's seat. He was short, but his presence was significant.</p>
 <p>The man had neatly combed-back hair, a nervous look in his eyes, and snake-like pupils hidden behind highly reflective rimless glasses. And he was wearing a high-end suit on his slightly frail, thin body.</p>
 <p>The man was Taira Danjo's eldest son and the man closest to the throne of the vast Taira empire.</p>
-<p>Taira Ichiro (平 一郎), a very simple name for the eldest son of Japan's leading Taira family, but Taira Ichiro liked his name. As the eldest son (一郎) of the Taira (平) family, there was no name that suited him better.</p>
+<p>Taira Ichiro, a very simple name for the eldest son of Japan's leading Taira family, but Taira Ichiro liked his name. As the eldest son of the Taira family, there was no name that suited him better.</p>
 <p>Nagumo Sian looked at Taira Ichiro for a moment and opened her mouth. Nagumo Sian had known Taira Ichiro since he was a child, but he wasn't a child she was fond of.</p>
 <p>It was partly because of his cold, cold-blooded eyes, and partly because his inhuman behavior as he grew up didn't match Nagumo Sian, who was respected as Daemo (Godmother) throughout Akita. Among Taira Danjo's children, Nagumo Sian cherished Taira Saburo the most, so he was even less fond of him because he was compared to Taira Saburo.</p>
 <p>"It's not that hard. We've only been pushed back for a moment."</p>

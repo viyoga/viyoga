@@ -6,7 +6,7 @@ chapter = 37
 +++
 
 <p>Our bodies became increasingly slippery, whether from the bubbles or Arisu's love juice. Before I knew it, my dick was hard enough to pierce the sky. Even though I'd had six rounds of sex battles with Sinoe Misano yesterday, betting on orgasms, my stamina seemed as strong as ever.</p>
-<p>I spread her legs, lowered my stance, and inserted my dick between Arisu's thighs, in the space between her thighs and crotch. It was Sumata (素股, Sumata: a sexual act of rubbing against the buttocks or thighs without penetration). Thanks to the bubbles and the love juice constantly produced from Arisu's pussy, I could enjoy the slippery sensation while also enjoying the pressure on my thighs. This is surprisingly good?</p>
+<p>I spread her legs, lowered my stance, and inserted my dick between Arisu's thighs, in the space between her thighs and crotch. It was Sumata (Sumata: a sexual act of rubbing against the buttocks or thighs without penetration). Thanks to the bubbles and the love juice constantly produced from Arisu's pussy, I could enjoy the slippery sensation while also enjoying the pressure on my thighs. This is surprisingly good?</p>
 <p>As the head and shaft of my dick passed by, rubbing against her Clitoris and the labia minora of her vulva, Arisu closed her eyes and savored the pleasure.</p>
 <p>,Haeum.... Ung.... Ahh.... Good, Ryuta."</p>
 <p>Tzuwap! Tzuwap!</p>
@@ -57,7 +57,7 @@ chapter = 37
 <p>Arisu smiled with her eyes and worked harder when I stroked her hair. I grabbed Arisu's waist, turned her around, and took the 69 position. Her freshly washed pussy was waiting for my tongue, gaping open. I opened my mouth, tasted the love juice that was dripping down, and started caressing her pussy, lightly touching her Clitoris with my tongue.</p>
 <p>She couldn't moan because she had my dick in her mouth, but she seemed to feel really good as she twitched. Arisu, not wanting to lose to me, swallowed my dick all the way to the end of her throat, stimulating my glans with her throat.</p>
 <p>We sucked each other's genitals as if we were competing. The loser was Arisu. She reached climax, spraying a grand fountain on my face. As a bonus, she spat out my dick and let out a huge moan, "Haaang!!!"</p>
-<p>I lifted Arisu's thighs, which were trembling from orgasm, and stuck them on my dick. It was a technique called deulbak ( 들박 ), or 'lifting fuck'. In Japanese, it's called Ekiben (駅弁). It was a difficult position, but I could do it easily because my strength and stamina stats were quite high.</p>
+<p>I lifted Arisu's thighs, which were trembling from orgasm, and stuck them on my dick. It was a technique called deulbak (들박), or 'lifting fuck'. In Japanese, it's called Ekiben. It was a difficult position, but I could do it easily because my strength and stamina stats were quite high.</p>
 <p>,Haaang! I came, Ryuta! Just a little! Wait just a little! Haang!"</p>
 <p>,I haven't come yet."</p>
 <p>,Heuang... No! Haang...!"</p>

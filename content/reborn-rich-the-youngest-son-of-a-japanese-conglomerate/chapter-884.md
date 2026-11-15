@@ -24,7 +24,7 @@ chapter = 884
 <p>Kamishirato Manzo suddenly began to search his Embrace, then took out a pocket. And he began to chant an incomprehensible incantation.</p>
 <p>Every little thing is connected, and the various regions are linked together. Every action, every event, affects the whole, and all people are part of this interconnected world.</p>
 <p>Naturally, Otagi Yuka wasn't one to just watch him chant the incantation. But every time Otagi Yuka tried to rush in, silver Arrows flew in as if to interfere, allowing Kamishirato Manzo to successfully complete the incantation.</p>
-<p>-Sasul (邪術: Evil Art) Hakumakozukoo (百魔骨甲: Hundred Demon Bone Armor).</p>
+<p>-Sasul (Evil Art) Hakumakozukoo (Hundred Demon Bone Armor).</p>
 <p>As soon as Kamishirato Manzo finished the incantation, the white Powder contained in his pocket floated up into the empty space and began to attach to Kamishirato Manzo's Body. And it grew like bone or like a Ppul, beginning to envelop Kamishirato Manzo's Body.</p>
 <p>"Khahahahaha! I'll see if you can pierce Armor made from the bones of a hundred monsters!"</p>
 <p>Kamishirato Manzo, after laughing like Crazy, Charged at Otagi Yuka with a furious Momentum, like a football player making a Tackle. While Otagi Yuka could have accepted a normal person's Torso charge even with a laugh, she couldn't help but dodge Kamishirato Manzo's Charge, which had all sorts of grotesque Ppul growing between the bone Armor.</p>
@@ -47,13 +47,13 @@ chapter = 884
 <p>Kamishirato Manzo grabbed Otagi Yuka's Ankle as she flew in the direction he kicked, and lifted her up to smash her to the Ground. And with immense Momentum, he smashed Otagi Yuka to the Ground.</p>
 <p>"!"</p>
 <p>The roar of her hitting the Ground that Kamishirato Manzo had expected was not heard. This was because Otagi Yuka instantly deployed her mist form and escaped from Kamishirato Manzo's Hand.</p>
-<p>-Akagamikiba Style (赤神牙式: Red God Fang Style) Ketsutoozangatsu (血刀斬月: Blood Sword Severing Moon)</p>
+<p>-Akagamikiba Style (Red God Fang Style) Ketsutoozangatsu (Blood Sword Severing Moon)</p>
 <p>Releasing her mist form, Otagi Yuka instantly appeared from the empty space and unleashed a downward slash as if splitting the moon in half.</p>
 <p>Kakakakaka!</p>
 <p>Sparks flew, and Kamishirato Manzo's resisting bone Armor could no longer hold, beginning to shatter and fall apart. Kamishirato Manzo threw off his bone Armor and sprang out as if fighter pilots escaping.</p>
 <p>"I knew it!"</p>
 <p>Otagi Yuka threw the Arrow stuck in her Shoulder at Kamishirato Manzo, who had thrown off his bone Armor. And after retracting her Sword, she kicked the bone Armor below, then swung her Sword at Kamishirato Manzo again.</p>
-<p>"Hone-yari (骨槍: Bone Spear)."</p>
+<p>"Hone-yari (Bone Spear)."</p>
 <p>Kamishirato Manzo was not to be underestimated. He chanted an incantation, disassembled the bone Armor, and made it into a bone Spear, shooting it towards Otagi Yuka. Otagi Yuka quickly twisted her Body and couldn't help but deflect the bone Spear.</p>
 <p>Because it was an incantation Kamishirato Manzo had quickly deployed before being attacked, its Power was not that strong, so Otagi Yuka was able to deflect the bone Spear without difficulty.</p>
 <p>But after deflecting the bone Spear, when she tried to continue her attack again, a Crossbow's Arrow flew once more.</p>

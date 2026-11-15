@@ -46,7 +46,7 @@ chapter = 1046
 <p>-Kyaaaak!</p>
 <p>Suddenly, Something that burst out, breaking through the Concrete floor, attacked Fujigasaki Rinka. Fujigasaki Rinka, without surprise, calmly swung her Hand.</p>
 <p>-Shinkai Yatsude (Deep Sea Eight Hands) Isshokuga Imanshi (One Touch Becomes Ten Thousand Branches)</p>
-<p>Like the name of the martial arts form, which means "One Tentacle becomes Ten Thousand Branches (一触化万支)," a dark surge of energy burst from Fujigasaki Rinka's fist, splitting like tree branches and piercing through the monsters that had broken through the floor and sprung out, all at once.</p>
+<p>Like the name of the martial arts form, which means "One Tentacle becomes Ten Thousand Branches," a dark surge of energy burst from Fujigasaki Rinka's fist, splitting like tree branches and piercing through the monsters that had broken through the floor and sprung out, all at once.</p>
 <p>"Ugh.... What is that?!"</p>
 <p>Fujigasaki Rinka frowned, looking at the fallen creatures. The Monsters killed by Fujigasaki Rinka's single strike were reptilian humans. They were Lizardmen living in the New York Underground, a demi-human race similar to werewolves.</p>
 <p>Possessing Body abilities similar to werewolves, they were Monsters difficult for ordinary humans to contend with, but once they encountered Fujigasaki Rinka, they were merely small fry to be dealt with in a single Martial Arts Form.</p>

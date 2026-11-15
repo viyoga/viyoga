@@ -40,7 +40,7 @@ chapter = 554
 <p>"Okay."</p>
 <p>I wanted to study a little more, but I had to skip club activities if I wanted to go on a date with Yukiko tomorrow, so I had to attend today. If I skipped three days in a row, the kids would be upset, so I had to participate today.</p>
 <p>The Date Experience Club members were currently writing a collection of date experiences to be released at the festival.</p>
-<p>St. Francisco Girls' Academy's festival was uniquely held around the same time as Christmas, so it was called the Holy Day Festival (聖日祭). It was an event that had existed since St. Francisco Girls' Academy was a Christian mission school and had been going on for over a hundred years, continuing the tradition.</p>
+<p>St. Francisco Girls' Academy's festival was uniquely held around the same time as Christmas, so it was called the Holy Day Festival. It was an event that had existed since St. Francisco Girls' Academy was a Christian mission school and had been going on for over a hundred years, continuing the tradition.</p>
 <p>As expected of a festival held by daughters of prestigious families, the quality was quite high with all the money poured into it. So I wondered if a collection of writings would sell compared to club activities like cafes, simple restaurants, or haunted houses, but seeing Minamoto Risa's confident expression, it seemed like she had a solution.</p>
 <p>What I did here was to look over the contents of the collection written by the students. Most of the date experiences of the Date Experience Club were with me, so it was a review process to check if anything was different from my memory.</p>
 <p>"Sensei-nim~! Please look at this~!"</p>

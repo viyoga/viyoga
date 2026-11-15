@@ -29,7 +29,7 @@ chapter = 34
 <p>After eating lunch, I brushed my teeth and took a shower, and then I got a text saying the delivery was complete. Hmm, that was fast.</p>
 <p>I opened the delivery box in front of my house and took out my package. But there was another package with Taira Yukiko written on it. Hmm, I guess I'll put it in front of Taira Yukiko's room? It was a long box about 30 centimeters long and 9 centimeters wide, and I wondered what it was, so I looked at the invoice and it said stationery. Is it a fountain pen or something? I put the package on the small side table with the flower pot in front of Taira Yukiko's room.</p>
 <p>Then I went to my room and opened my package. It was wrapped well in bubble wrap because it was in a glass bottle. I took off all the bubble wrap and focused on the bottle, and a translucent window appeared in front of my eyes.</p>
-<p>◆Permanent Perfume [Epic Elixir]</p>
+<p>◆Permanent Perfume "Epic Elixir"</p>
 <p>A unique perfume that emits a good scent in proportion to appearance. You need to have a certain level of appearance to get even the minimum effect.</p>
 <p>The scent is very good!</p>
 <p>Charm +1 at appearance 10, then charm +0.8 for every appearance 1 after that.</p>

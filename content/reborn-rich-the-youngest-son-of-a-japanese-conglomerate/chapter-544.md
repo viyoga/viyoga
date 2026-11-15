@@ -19,7 +19,7 @@ chapter = 544
 <p>Seeing Naruse Shiyo's bag and uniform hanging there, it was clear that it was Naruse Shiyo's room, but Naruse Shiyo wasn't in the room.</p>
 <p>,I thought she'd be lying in bed because she was sick, but where did she go?'</p>
 <p>Sakagami Rena took something out of her pocket again, which was a ferret with orange spots on a beige background. It was a special breed of ferret raised with the Sakagami family's secret techniques, smaller than ordinary ferrets, able to go to places where people couldn't, and able to track scents.</p>
-<p>, Hamutaro (ハム太郎). Find out whose scent is on that bed and uniform, okay?</p>
+<p>, Hamutaro. Find out whose scent is on that bed and uniform, okay?</p>
 <p>,Kkyu!</p>
 <p>As if understanding her words, Sakagami Rena's ferret, Hamutaro, smelled Naruse Shiyo's bed and uniform and went out the window as if telling her to follow. Sakagami Rena also went out the window following Hamutaro and carefully followed him.</p>
 <p>Hamutaro went to a fairly large building in the backyard of the mansion, but Hamutaro was just circling around it and couldn't enter the mansion.</p>
@@ -64,7 +64,7 @@ chapter = 544
 <p>,Hmm.... Onmyoji families make money not only from the fortune-telling and yokai extermination that you just mentioned, but....</p>
 <p>Urabe Konoka paused for a moment. She seemed to be having a hard time saying something, as she had a slightly troubled expression.</p>
 <p>,There's also a way to prosper the family by capturing specific yokai and using the yokai's bizarre power. But this work is accompanied by considerable danger. You have to offer treasures or.... The person themselves becomes a seal.... Things like that.</p>
-<p>Ah, I think I've heard that story somewhere. I believe I heard about yokai similar to the Japanese version of house elves, called Zashiki-warashi (座敷童子), guardian spirits that bring good luck if they are in the house, and it seemed like she was referring to that kind. However, the latter part was quite disturbing because it involved sacrificing or sealing people.</p>
+<p>Ah, I think I've heard that story somewhere. I believe I heard about yokai similar to the Japanese version of house elves, called Zashiki-warashi, guardian spirits that bring good luck if they are in the house, and it seemed like she was referring to that kind. However, the latter part was quite disturbing because it involved sacrificing or sealing people.</p>
 <p>,Are you talking about things like Zashiki-warashi?</p>
 <p>,Yes. Zashiki-warashi are relatively harmless. But.... There are many dangerous types. There are many cases where they forcibly seal them for the prosperity of the family or offer people to the yokai, so it's dangerous if the seal is broken or the offerings aren't made. Rumor has it that the Naruse family has sealed a Western yokai, but it's just a rumor, so I don't know the exact details.</p>
 <p>Hmm.... The information I had was added to Urabe Konoka's explanation, and the story was becoming more concrete. The second son who was adopted even though there was an eldest son, the onmyoji family that had been trading with the West since modern times, the rumor that they were sealing a Western yokai, and Naruse Shiyo, who was a young lady of a prestigious family but had a weak body.... All of this was converging into one story.</p>

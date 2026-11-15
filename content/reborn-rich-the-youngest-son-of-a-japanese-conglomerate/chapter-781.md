@@ -97,7 +97,7 @@ chapter = 781
 <p>A post appeared on Saintis, an unofficial Community of St. Francis's Girls' Academy. Saintis, as expected of a girls' high school attended by Female Students, often had school urban legends posted, but in a World where there were prestigious shrine families who could exorcise ghosts if they actually appeared, urban legends either ended as fleeting rumors or were quickly suppressed by shrine maidens from noble families sent at the academy's request.</p>
 <p>However, the rumors of the urban legend currently trending did not cease, and the content of the post was as follows. That evening, after classes and Club activities had ended, the lights in the Patissier Club Room remained on.</p>
 <p>A female student from the Patissier Club, who had returned to school to retrieve something she had left behind, saw the lit Club Room and entered to turn off the lights. And that female student discovered something that should not exist in this World.</p>
-<p>It was the White Woman (白い女). A woman with skin so pale it was white, and with white hair, was there. The startled female student fainted upon seeing the White Woman, and when she woke up, it was morning. Naturally, the female student's family was in a chaotic situation because she hadn't come home.</p>
+<p>It was the White Woman. A woman with skin so pale it was white, and with white hair, was there. The startled female student fainted upon seeing the White Woman, and when she woke up, it was morning. Naturally, the female student's family was in a chaotic situation because she hadn't come home.</p>
 <p>On the day she woke up, the female student skipped school, and the White Woman became famous, sparking both fear and curiosity among the female students of St. Francis. Eventually, the administration of St. Francis's Girls' Academy called upon Nakatomi Sadae, a shrine maiden, to exorcise the ghost.</p>
 <p>Nakatomi Sadae was a second-year student at St. Francis's Girls' Academy and the Daughter of the Nakatomi family, famous for exorcism.</p>
 <p>"Is this the building where the Patissier Club is...?"</p>
@@ -138,7 +138,7 @@ chapter = 781
 <p>The feeling of it moving in my mouth and the gushing of an unknown Meat juice (?) every Time I chewed turned my stomach, but I managed to endure it. Still, it tasted somewhat like chocolate, so it must have had chocolate in it. The problem was the other taste that came with the chocolate flavor.</p>
 <p>Kkul-kkeok, I swallowed the unknown food, and abdominal pain surged, but I endured it again.</p>
 <p>-You have consumed a powerful toxic substance, and as a side effect, your Stamina Stats will permanently decrease by 1. Your Poison resistance slightly increases!</p>
-<p>Great Achievement! You are the first to consume food created by the Outer God, the Chaotic Existence [Boundary of Opposing Chaos]! Your Stamina Stats increase by 1!</p>
+<p>Great Achievement! You are the first to consume food created by the Outer God, the Chaotic Existence "Boundary of Opposing Chaos"! Your Stamina Stats increase by 1!</p>
 <p>What, is this giving a disease and then medicine? Why did my Stamina Stats decrease by 1 and then go back up by 1? Of course, I did gain the benefit of slightly increased Poison resistance.</p>
 <p>"It's delicious, Liz."</p>
 <p>"Ufufu, if my Partner says it's delicious, there is no greater Joy than this♥"</p>

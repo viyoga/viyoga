@@ -84,7 +84,7 @@ chapter = 883
 <p>"Huu...!"</p>
 <p>Although she wanted to collapse right away, Saionji Diana looked towards her friend Otagi Yuka. Because if she was being pushed back, she would have to help.</p>
 <p>Let's revisit Barracuda's options at this point</p>
-<p>◆Barracuda (Barracuda)[Narrative Sword]</p>
+<p>◆Barracuda (Barracuda)"Narrative Sword"</p>
 <p>A thin, short straight Sword made by the excellent Master Ichimonji Harugoro. Suitable for concealment somewhere. Made of pure Mithril, it is durable.</p>
 <p>●Powerful Durability.</p>
 <p>●Damage amplification on critical hit.</p>

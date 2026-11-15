@@ -49,7 +49,7 @@ chapter = 851
 <p>Following the Drinking Party, I was able to end the day's schedule by simultaneously enjoying Otagi Yuka's and Sakagami Rena's naked bodies until Dawn for a second round.</p>
 <p>"Pretending to be drunk is tough."</p>
 <p>As Yamashiro Ryuta left the mansion with his Daughter, Sakagami Ginshiro, who had been pretending to be drunk, rose from his Seat. As Sakagami Ginshiro finished his Words, everyone from the Sakagami Family sat down as if they hadn't been drinking Alcohol at all. Since they were all excellent ninjas, getting drunk was an impossible feat.</p>
-<p>"Ichikage (一影), have you checked the Underground Testing Ground?"</p>
+<p>"Ichikage, have you checked the Underground Testing Ground?"</p>
 <p>"There were no abnormalities."</p>
 <p>At Sakagami Ginshiro's Words, a Man named Ichikage, whose Face was covered, rose from the Shadows and nodded his Head.</p>
 <p>"No abnormalities? Then that means he properly passed the Testing Ground...."</p>
@@ -59,7 +59,7 @@ chapter = 851
 <p>"He must be a Person with that much Ability."</p>
 <p>Since the Sakagami Family had excellent Information gathering Ability in the Miyashi area, they had some Guess about Yamashiro Ryuta's Combat power. But they hadn't expected him to pass the Underground Testing Ground, which tested Mental Power, so easily.</p>
 <p>"Aren't you going to get scolded by Rena for lying earlier, length-nim?"</p>
-<p>Seeing Yamashiro Ryuta's calm appearance, his younger sibling Sakagami Mansaku (坂上 満作) asked Sakagami Ginshiro, who had lied about moving the Testing Ground, with a smile. In reality, the contents of the Miyashi mansion's Underground Testing Ground were unknown to anyone except top-tier ninjas who had passed the Test, so Sakagami Rena, who had not yet become a top-tier ninja, naturally did not know the details of the Test. Sakagami Rena would certainly believe her father, Sakagami Ginshiro, when he said he had moved the Testing Ground. Later, when Sakagami Rena takes the top-tier ninja Test, she will uncover the truth from today and eventually speak to her father, Sakagami Ginshiro.</p>
+<p>Seeing Yamashiro Ryuta's calm appearance, his younger sibling Sakagami Mansaku asked Sakagami Ginshiro, who had lied about moving the Testing Ground, with a smile. In reality, the contents of the Miyashi mansion's Underground Testing Ground were unknown to anyone except top-tier ninjas who had passed the Test, so Sakagami Rena, who had not yet become a top-tier ninja, naturally did not know the details of the Test. Sakagami Rena would certainly believe her father, Sakagami Ginshiro, when he said he had moved the Testing Ground. Later, when Sakagami Rena takes the top-tier ninja Test, she will uncover the truth from today and eventually speak to her father, Sakagami Ginshiro.</p>
 <p>"I'll just say the Test content was a Secret, so it couldn't be helped. And who would have known Teacher Yamashiro would pass the Test so easily? If he had passed so easily and we called it our Family's real Test, he would have looked down on our Family."</p>
 <p>From the perspective of Sakagami Ginshiro, the length-nim of the Sakagami Family, he should have said that what I passed was not actually a Test, even for the sake of his Face. Because it truly seemed Yamashiro Ryuta hadn't felt anything at all in the Testing Ground.</p>
 <p>"That's true. With a well-trained Body and having excellently passed our Test, Rena has certainly chosen a good Liege/Master."</p>

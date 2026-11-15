@@ -25,7 +25,7 @@ chapter = 306
 <p>Han Yu-gyeong suddenly said she would get a tan too, so I praised her current appearance to stop her, and she really liked it and went along with it.</p>
 <p>Arisu: (˃ བ˂) Ryuta, don't go down a bad path (｡ᵕ ꘍ ᵕ｡)</p>
 <p>Taira Ryuta: It's the same hair color as Arisu?</p>
-<p>Arisu: (๑˃́ꇴ˂̀๑) Aha~! That's what it was~!! ⸜( ˙ ˘ ˙)⸝♡ I guess we're a couple after all hehe</p>
+<p>Arisu: (๑˃́ꇴ˂̀๑) Aha~! That's what it was~!! ⸜(˙ ˘ ˙)⸝♡ I guess we're a couple after all hehe</p>
 <p>Arisu seemed to dislike it at first, but when I said it was the same hair color as a couple, she quickly cheered up and giggled. Actually, it's a similar color to Nae Fitzgerald, who has brighter hair than Arisu. But if she's happy, that's all that matters.</p>
 <p>Mimata Chieri: Seeing that appearance, sunbae-nim looks like a villain from an NTR manga! Please leave some videos behind! Please!</p>
 <p>I didn't reply to Mimata Chieri separately. I have nothing to say to that kind of reaction. Yes, I'll definitely leave a video! I can't say that, and if I say I won't leave it, she'll keep bothering me.</p>

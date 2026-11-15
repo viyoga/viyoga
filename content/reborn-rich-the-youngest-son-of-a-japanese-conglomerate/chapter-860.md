@@ -53,23 +53,23 @@ chapter = 860
 <p>Power:3 Agility:11 Stamina:8 Resistance:7 Recovery:7 Sensitive Nerves:11 Appearance:17</p>
 <p>Intelligence:16 Knowledge:12 Concentration:15 Will:9 Creativity:14 Charm/Allure:15 Judgment:12</p>
 <p>Luck:9</p>
-<p>◆Medicine-Addiction Lv14 [Rare Skill]: Research Knowledge of medicine and addiction increases, and related Knowledge can be more easily applied to surgery or battle.</p>
-<p>◆Medical Art Lv13 [Special+ Skill]: Can diagnose and treat with medical Knowledge.</p>
-<p>◆Learning-Research Lv13 [Special Skill]: The frequency of Knowledge increase when learning and researching increases. Also helps in increasing skill proficiency levels.</p>
-<p>◆Poison Manufacturing Lv11 [Rare+ Skill]: Combines various substances to create toxic substances.</p>
-<p>◆Covert Action Lv9 [Special Skill]: Can move covertly. Not easily detected.</p>
-<p>◆Poison Usage Lv9 [Rare Skill]: The ability to use poison. The higher the level, the more naturally poison can be injected or sprayed.</p>
+<p>◆Medicine-Addiction Lv14 "Rare Skill": Research Knowledge of medicine and addiction increases, and related Knowledge can be more easily applied to surgery or battle.</p>
+<p>◆Medical Art Lv13 "Special+ Skill": Can diagnose and treat with medical Knowledge.</p>
+<p>◆Learning-Research Lv13 "Special Skill": The frequency of Knowledge increase when learning and researching increases. Also helps in increasing skill proficiency levels.</p>
+<p>◆Poison Manufacturing Lv11 "Rare+ Skill": Combines various substances to create toxic substances.</p>
+<p>◆Covert Action Lv9 "Special Skill": Can move covertly. Not easily detected.</p>
+<p>◆Poison Usage Lv9 "Rare Skill": The ability to use poison. The higher the level, the more naturally poison can be injected or sprayed.</p>
 <p>◆Linguistics (General Skill Lv9)</p>
-<p>◆Operation Planning Lv8 [Rare Skill]: Can plan operations for any task.</p>
-<p>◆Acting Lv7 [Special Skill]: The higher the level, the more natural the acting.</p>
-<p>◆Pistol Marksmanship Lv7 [General Skill]: Accuracy increases when firing a pistol.</p>
-<p>◆Excellent Intellect [Narrative Trait]: Initial intelligence increases by 2, and intelligence efficiency increases. The intelligence limit increases by 1.</p>
-<p>◆Toxicity Affinity [Narrative Trait]: Affinity for toxic substances increases. Can handle toxic substances more freely and resistance to addiction increases. Also, all abilities using addiction increase by 125 percent.</p>
-<p>◆Researcher [Rare+ Trait]: Probability of increased concentration when studying academics is granted. Probability of Knowledge Stats increasing when experiments are successfully completed is granted. Intelligence, concentration, and creativity Stats increase by 1.</p>
-<p>◆Assassin's Movement [Rare+ Trait]: Performs covert actions. Action speed increases by 15 percent when harboring Intent to Kill towards an opponent, and noise from movement decreases.</p>
-<p>◆Poison Doctor's Eye [Narrative Trait]: When concentrating, can assess an opponent with the Poison Doctor's Eye. Can identify which toxic substance is an opponent's weakness and determine the appropriate method of administration. Conversely, can identify which poison is beneficial to an opponent.</p>
-<p>◆Night Cat's Sensation [Narrative Trait]: Instinctively detects ambush (assassination) situations and danger. In ambush situations where the opponent is unaware, the probability of ambush greatly increases. In dangerous situations, an escape route can be instinctively found.</p>
-<p>◆Hand of Benevolence [Narrative+ Trait]: The coefficient of all recovery abilities (including Jusul, magic, superpowers, and general treatment acts) increases by 140 percent.</p>
+<p>◆Operation Planning Lv8 "Rare Skill": Can plan operations for any task.</p>
+<p>◆Acting Lv7 "Special Skill": The higher the level, the more natural the acting.</p>
+<p>◆Pistol Marksmanship Lv7 "General Skill": Accuracy increases when firing a pistol.</p>
+<p>◆Excellent Intellect "Narrative Trait": Initial intelligence increases by 2, and intelligence efficiency increases. The intelligence limit increases by 1.</p>
+<p>◆Toxicity Affinity "Narrative Trait": Affinity for toxic substances increases. Can handle toxic substances more freely and resistance to addiction increases. Also, all abilities using addiction increase by 125 percent.</p>
+<p>◆Researcher "Rare+ Trait": Probability of increased concentration when studying academics is granted. Probability of Knowledge Stats increasing when experiments are successfully completed is granted. Intelligence, concentration, and creativity Stats increase by 1.</p>
+<p>◆Assassin's Movement "Rare+ Trait": Performs covert actions. Action speed increases by 15 percent when harboring Intent to Kill towards an opponent, and noise from movement decreases.</p>
+<p>◆Poison Doctor's Eye "Narrative Trait": When concentrating, can assess an opponent with the Poison Doctor's Eye. Can identify which toxic substance is an opponent's weakness and determine the appropriate method of administration. Conversely, can identify which poison is beneficial to an opponent.</p>
+<p>◆Night Cat's Sensation "Narrative Trait": Instinctively detects ambush (assassination) situations and danger. In ambush situations where the opponent is unaware, the probability of ambush greatly increases. In dangerous situations, an escape route can be instinctively found.</p>
+<p>◆Hand of Benevolence "Narrative+ Trait": The coefficient of all recovery abilities (including Jusul, magic, superpowers, and general treatment acts) increases by 140 percent.</p>
 <p>Oh.... These were almost identical to the Traits I perceived in Kijimoto Jurie. A Mad Scientist, addict, assassin. Her physical abilities were not particularly noteworthy except for Agility and Sensitive Nerves, but her mental abilities were quite high.</p>
 <p>As an intelligence character, she had mastered various skills, all necessary for medical art, addiction, and assassination.</p>
 <p>Her Traits were also all representative of Kijimoto Jurie: two poison-related Traits, two assassination-related Traits, two scholar-related Traits, and one healing Trait.</p>

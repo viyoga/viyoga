@@ -56,7 +56,7 @@ chapter = 118
 <p>Her eyes are gone...? I nodded, fearing what Mimata Chieri would ask me to do.</p>
 <p>,Let's take care of the Seiryu Military Company first, Sunbae."</p>
 <p>,Ah...! Yes."</p>
-<p>I took the lead and entered the office with a sign that said 青竜軍事会社 (Seiryu Gunji Gaisha: Blue Dragon Military Company) in fancy Chinese characters. I put on the most friendly expression I could and spoke.</p>
+<p>I took the lead and entered the office with a sign that said (Seiryu Gunji Gaisha: Blue Dragon Military Company) in fancy Chinese characters. I put on the most friendly expression I could and spoke.</p>
 <p>,I came to visit because I want to acquire Seiryu Military Company."</p>
 <p>When I entered the office, a man with slicked-back hair and a mustache, who was standing awkwardly, glared at me. This guy must be Gomisawa Renya from Black Tech.</p>
 <p>,It's too late, Seiryu Military Company has decided to join us."</p>

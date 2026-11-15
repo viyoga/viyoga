@@ -57,7 +57,7 @@ chapter = 426
 <p>No matter how much she pulled, I didn't follow, so she called my name and looked at me as if she was strange, so I gave her the most vile smile I could.</p>
 <p>,I'm going to try blackmailing you now."</p>
 <p>,Yes?"</p>
-<p>I showed Kurayamada Kirie some of the data I received from Sakagami Rena yesterday. Kurayamada Kirie's expression stiffened as she read it. Then she pulled out a tanto (a dagger, a Japanese sword with a blade length of 1 shaku [30 cm] or less) from somewhere and swung it at me.</p>
+<p>I showed Kurayamada Kirie some of the data I received from Sakagami Rena yesterday. Kurayamada Kirie's expression stiffened as she read it. Then she pulled out a tanto (a dagger, a Japanese sword with a blade length of 1 shaku "30 cm" or less) from somewhere and swung it at me.</p>
 <p>It was a very quick strike, but not to the point where I couldn't avoid it. But I stood still with a confident smile without dodging.</p>
 <p>As I thought, Kurayamada Kirie-ssi couldn't attack me and only ended up aiming the blade right in front of my Adam's apple. There was no murderous intent from the beginning, and I was just standing still because I was confident in my regeneration ability even if she attacked, but as expected, my prediction was correct and it ended with just aiming the sword.</p>
 <p>,If you kill me, one of the people who investigated this data will spread all the data."</p>

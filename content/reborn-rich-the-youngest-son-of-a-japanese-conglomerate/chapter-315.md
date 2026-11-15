@@ -23,7 +23,7 @@ chapter = 315
 <p>,Let's start right away.'</p>
 <p>Yamashiro Ryuta asked, seeing her standing there blankly, looking around the room. To prevent Yamashiro Ryuta from becoming suspicious, Kasaoka Yuzuki sat him on the bed and took off his pants.</p>
 <p>When she took off his underwear, a huge, stiff, branch-like dick appeared before her eyes. She thought it was thick even when she only took off his pants, but when she saw the real thing after taking off his underwear, she couldn't help but be surprised.</p>
-<p>What is this, an Onaganatsu (大長なす: a type of eggplant about 30-40 centimeters long)? That's way too big.</p>
+<p>What is this, an Onaganatsu (a type of eggplant about 30-40 centimeters long)? That's way too big.</p>
 <p>Of course, it was smaller than an Onaganatsu variety that was the size of an arm, but it was incredibly intimidating when she saw it in front of her. So Kasaoka Yuzuki just said, "Uh...," and sat still again.</p>
 <p>Perhaps tired of waiting, Yamashiro Ryuta pushed his dick forward and opened his mouth.</p>
 <p>,Are you just going to look?'</p>

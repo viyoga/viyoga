@@ -24,7 +24,7 @@ chapter = 189
 <p>Speaking of the Shadow Panther, you could also block the poison by covering your whole body with the Abyss, but the duration was currently about 1 minute, so it was still too difficult to use. Not using it in normal times was also a problem with the duration, and the drain on mental power was quite severe.</p>
 <p>It seemed like that was because Shadow Domination was a legendary skill, so proficiency didn't increase quickly. As proficiency increased, mental power consumption would decrease and duration would increase, so eventually, it would be possible to use it in actual combat without difficulty.</p>
 <p>Of course, since it wasn't a method I could use right now, I had no choice but to rely on a new trait.</p>
-<p>The [Potential Enhancement] option of the item [Wish-Fulfilling Orb] can change the traits that can be selected by leveling up into random traits of a higher grade. Would you like to change it?</p>
+<p>The "Potential Enhancement" option of the item "Wish-Fulfilling Orb" can change the traits that can be selected by leveling up into random traits of a higher grade. Would you like to change it?</p>
 <p>Please choose a trait</p>
 <p>①Master of Fist Fighting ②Willpower Shield ③Body Wrapped in the Abyss</p>
 <p>,Ah!"</p>

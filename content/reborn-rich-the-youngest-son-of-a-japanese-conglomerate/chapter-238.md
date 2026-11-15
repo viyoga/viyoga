@@ -42,8 +42,8 @@ chapter = 238
 <p>I wasn't very interested in works of art or historical materials, so I went to the floor displaying accessories and weapons to see if there were any weapons with good options.</p>
 <p>After looking around at the beginning, there were some weapons with a few options, but since artistry was the main focus, there didn't seem to be anything I could take.</p>
 <p>Oh? There's a collection of Japanese swords. As expected, most of them were precious weapons that were used by famous people in ancient times, but there was only one that was useful as an equipment item. But that one was quite a jackpot.</p>
-<p>◆Blue Sky Thunderbolt / Aohamahekireki (靑天霹靂) [Legendary Sword]</p>
-<p>A weapon that came from another dimension. It is the favorite weapon of Yi Cheong-un (李淸雲), a legendary master of the Jin Dynasty, and when infused with lightning energy, its blade transforms into lightning.</p>
+<p>◆Blue Sky Thunderbolt / Aohamahekireki "Legendary Sword"</p>
+<p>A weapon that came from another dimension. It is the favorite weapon of Yi Cheong-un, a legendary master of the Jin Dynasty, and when infused with lightning energy, its blade transforms into lightning.</p>
 <p>The achievements and deeds accumulated countless times with the former owner give the user special power.</p>
 <p>●Lightning Affinity+</p>
 <p>●Additional damage to dark, blood, and chaos attributes</p>

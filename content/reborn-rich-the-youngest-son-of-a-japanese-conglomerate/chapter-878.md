@@ -37,7 +37,7 @@ chapter = 878
 <p>"There isn't much time left until departure, so Rishin, prepare quickly."</p>
 <p>"Understood, Sabu-nim! Thank you, Senior Sister, for taking my Side."</p>
 <p>At the Words to prepare, she bowed to Sabu Kinui Tachio once again, and after bowing to Kujo Kina, who had taken her Side, Nakasone Rishin ran to her Room to prepare for battle.</p>
-<p>Despite being only one year apart in age, and just one day apart in the order of initiation, Nakasone Rishin carefully taught Etiquette to Kujo Kina, addressing her as Senior Sister (師姐: a woman initiated before oneself). Kujo Kina, looking at Nakasone Rishin's back, opened her mouth.</p>
+<p>Despite being only one year apart in age, and just one day apart in the order of initiation, Nakasone Rishin carefully taught Etiquette to Kujo Kina, addressing her as Senior Sister (a woman initiated before oneself). Kujo Kina, looking at Nakasone Rishin's back, opened her mouth.</p>
 <p>"By the way, Sabu, are you all prepared?"</p>
 <p>"For me, I only need my Body, so there's nothing to prepare. Are you all prepared?"</p>
 <p>"I'm also a Fist Technique practitioner, so I only need my Body."</p>

@@ -13,7 +13,7 @@ chapter = 927
 <p>"I, I also worked hard for Ryuta-nim!"</p>
 <p>As I wore a deeply moved Expression, Konoe Akina also, as if not to be outdone, raised her hand and said. In fact, Konoe Akina had indeed worked hard. She wasn't just any Young Lady, but the length of a Family, and going to the Family Security/Guard to receive combat Training was not an easy task.</p>
 <p>"Konoe, Alik, Diana, and Yuka, thank you all."</p>
-<p>I conveyed my gratitude to those in the vehicle who worked hard for me. Saionji Diana said, 「It's something I naturally have to do,」 and seemed a little burdened, while Otagi Yuka said, 「Why say such things~!」 and wiped her nose with her Index Finger.</p>
+<p>I conveyed my gratitude to those in the vehicle who worked hard for me. Saionji Diana said, "It's something I naturally have to do," and seemed a little burdened, while Otagi Yuka said, "Why say such things~!" and wiped her nose with her Index Finger.</p>
 <p>As we exchanged pleasant greetings and thanked each other, before I knew it, we arrived at the Joseodang Safe House, which I had visited several times.</p>
 <p>Although it looked like an ordinary office, inside, Joseodang agents carrying Guns were walking around, and Strong People like Asada Ei, Sakagami Rena, and Naruse Shiyo were moving about, so it could be called a Den of iniquity.</p>
 <p>"How do you do?"</p>

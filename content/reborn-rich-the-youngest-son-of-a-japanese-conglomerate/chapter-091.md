@@ -17,7 +17,7 @@ chapter = 91
 <p>"Hyaak! No, no, too... too strong! No, gooood, ahhh!"</p>
 <p>As I targeted her G-spot with my index and middle fingers, Yukiko-san clung to my arm and squirted her juices like a water pistol. She said no, then she said good, it was hard to figure out, but I guess it all meant good. As she poured out the water pistol and her legs gave way, I grabbed Yukiko's shoulders to support her. And then I pushed her onto the bed.</p>
 <p>I lifted her apron and showed her pussy, then thrust my dick in. She had already gone once, but Yukiko-san moved her waist and pelvis on her own while lying down, fitting my glans into her pussy hole. Impressive, huh? To be able to put it in like this while lying down.</p>
-<p>"Now, just move your waist, Ryuta. Shake Ryuta's chinko (チンコ: a cute way of calling it a 'dick') in this mother's precious place as much as you want."</p>
+<p>"Now, just move your waist, Ryuta. Shake Ryuta's chinko (a cute way of calling it a 'dick') in this mother's precious place as much as you want."</p>
 <p>Yukiko-san looked at me with a loving face and a seductive gaze. Is she trying to do a mother-son incest play? Okay, I can't lose either. I pushed my waist forward and shoved my dick all the way in.</p>
 <p>"Haaht!"</p>
 <p>"Ugh, Mommy's inside feels so good...!"</p>

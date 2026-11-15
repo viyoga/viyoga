@@ -7,10 +7,10 @@ chapter = 609
 
 <p>and before chapter check contains erotic explicit illustrations please surroundings this your It was certainly strange. She was a person old enough for countless people in the Akita region to call her Grandmother-nim, yet her face was in her mid-to-late twenties, and she hadn't shown much Thrilling Fear even when fighting Kurotsuki-doo in the past. To think the Reason was that she had mastered magic, I hadn't thought in that direction at all.</p>
 <p>"Older Sister-nim, what kind of magic-user are you?" I asked because, naturally, there are many branches of magic-users. She could be a Magician-type like Han Yu-gyeong, or an Onmyoji Family like the Nagumo Family, or a Shrine Maiden who believes in gods like Urabe Konoka, so I asked out of curiosity.</p>
-<p>I am mastering a branch of Seonsul (仙術). Seonsul, huh... Is it like Taoist magic? If translated literally from the Chinese characters, it feels like the magic of an immortal, so I understood why Nagumo Sian didn't age much.</p>
+<p>I am mastering a branch of Seonsul. Seonsul, huh... Is it like Taoist magic? If translated literally from the Chinese characters, it feels like the magic of an immortal, so I understood why Nagumo Sian didn't age much.</p>
 <p>"Then, did Yukiko-ssi also learn Seonsul?"</p>
 <p>"No, Nagumo-ssi is versatile beyond Seonsul, so she learned Illusion Magic and other magic that suited my aptitude."</p>
-<p>I see. Indeed, 'Succubus' and 'Seonsul' were not words that go together. Come to think of it, the name of the Fist Technique manual I gave Mimata Chieri to learn before was Palgeukseonhyeonggwon (八極仙形拳), which contains the character 'Seon' (仙). I wonder if it's related to Seonsul?</p>
+<p>I see. Indeed, 'Succubus' and 'Seonsul' were not words that go together. Come to think of it, the name of the Fist Technique manual I gave Mimata Chieri to learn before was Palgeukseonhyeonggwon, which contains the character 'Seon' . I wonder if it's related to Seonsul?</p>
 <p>"Older Sister-nim, the name of a book I acquired before is Palgeukseonhyeonggwon..."</p>
 <p>"Tell that child Mimata to bring the book once. I will take a look at it." Nagumo Sian offered to help Mimata Chieri when I explained The Situation. However, Mimata Chieri had not yet returned from Korea. It seemed that Negotiations with Jeil Electronics were taking time.</p>
 <p>"She's in Korea for work, so I can't call her right now, but I'll tell her to visit when she returns to Japan."</p>
@@ -45,7 +45,7 @@ chapter = 609
 <p>"Heueut, Ryuta's magnificent cock fills me completely...! Haaht♥ It's too Heueut! I feel so good-aaah-haang♥"</p>
 <p>It was still a pleasant Pussy. No, it seemed even better than before...?</p>
 <p>"It feels even better than before, Older Sister-nim."</p>
-<p>Heueut! For you, Ryuta, Haa-euh-heung♥ I've started learning Bangjungseonsul (房中仙術)-aaah-haang!</p>
+<p>Heueut! For you, Ryuta, Haa-euh-heung♥ I've started learning Bangjungseonsul -aaah-haang!</p>
 <p>Bangjungseonsul, then Bedroom Arts? In a word, she's started to learn Sex Skills. Nagumo Sian, who was clearly a Virgin until she was with me, hadn't needed to learn Bedroom Arts until now, so she hadn't, but now it seemed she had begun to learn them to satisfy me.</p>
 <p>What a commendable Older Sister-nim. It didn't seem she had learned it separately from Yukiko, as I had thought earlier. To Reward Nagumo Sian, who was striving for my Satisfaction, I thrust my Hips powerfully.</p>
 <p>"Haa-haaht!"</p>

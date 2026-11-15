@@ -11,7 +11,7 @@ chapter = 442
 <p>"Since ancient times, the virgin blood of our kind has been a precious ingredient in alchemy. This is the price for saving me, Sensei-ssi."</p>
 <p>Aha, because the vampire Otagi Yuka had great control over blood, she was able to collect her virgin blood that was on her and my body during sex and put it in a vial. She was able to completely remove the blood from her blood-soaked uniform, so she must have been able to collect the virgin blood scattered during sex.</p>
 <p>I focused my mind and looked at the vial Otagi Yuka gave me. Soon, a translucent information window popped up.</p>
-<p>◆Superior Vampire's Virgin Blood [Unique Elixir/Material/Consumable]</p>
+<p>◆Superior Vampire's Virgin Blood "Unique Elixir/Material/Consumable"</p>
 <p>A collection of virgin blood from a virgin superior vampire. An elixir that increases regeneration and raises recovery stats by 3~5. If consumed without proper measures, the Vampire Transformation debuff is activated, turning the consumer into a vampire. Usually used as a material for making elixirs or magical items. Because it was a precious material, many female vampires were raped by vampire hunters during the witch hunt era.</p>
 <p>A unique-grade material... This is quite a gift. If I just eat it, my race will change to a vampire, so I can't eat it. I received the vial and smiled at Otagi Yuka.</p>
 <p>"Thank you. I'll use it well."</p>

@@ -77,7 +77,7 @@ chapter = 324
 <p>"I have to recruit club members...!"</p>
 <p>"Yeah, that's right. We can't lose to them!"</p>
 <p>Of course, Minamoto Risa didn't seriously think about the meditation club and create it, but as a member of the Minamoto family, she couldn't compete and surrender to the opponent. Minamoto Risa was going to do her best to recruit club members.</p>
-<p>-----This is a mid-term summary of the characters appearing in St. Francisco Girls' Academy requested by Arnold-jjang-nim~!  Hehe</p>
+<p>-----This is a mid-term summary of the characters appearing in St. Francisco Girls' Academy requested by Arnold-jjang-nim~! Hehe</p>
 <p>The Transfer Student Alik of Gentle Breeze!</p>
 <p>Target Minamoto Risa</p>
 <p>Seizawa Shii</p>

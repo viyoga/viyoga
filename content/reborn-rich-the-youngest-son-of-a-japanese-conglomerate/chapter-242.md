@@ -7,7 +7,7 @@ chapter = 242
 
 <p>"This is a sculpture that a deep-sea fishing vessel pulled up from the middle of the Pacific Ocean! We don't know what era it's from, but isn't it amazing that it came from the middle of the Pacific?"</p>
 <p>To someone who doesn't know better, they might think it's just marine debris that was thrown away from the US or Japan, but it looked completely different to me.</p>
-<p>◆■̶̡̙͔̾̇͝■̵̢̛͖̪̦̐̆͌̓̔̚■̶̡̙͔̾̇͝■̸̧̛̞͙̠̈̅͌̉'s Sculpture [Legendary Relic]</p>
+<p>◆■̶̡̙͔̾̇͝■̵̢̛͖̪̦̐̆͌̓̔̚■̶̡̙͔̾̇͝■̸̧̛̞͙̠̈̅͌̉'s Sculpture "Legendary Relic"</p>
 <p>A sculpture made by ●̵●̵●̧̱̩̪̯͕●̸̨̛●̷̡̛̬̭̮̥͕̀̌, the father of ■̶̡̙͔̾̇͝■̵̢̛͖̪̦̐̆͌̓̔̚■̶̡̙͔̾̇͝■̸̧̛̞͙̠̈̅͌̉, to commemorate the birth of ■̶̡̙͔̾̇͝■̵̢̛͖̪̦̐̆͌̓̔̚■̶̡̙͔̾̇͝■̸̧̛̞͙̠̈̅͌̉.</p>
 <p>Once every 100 years, liquid forms at the tips of both breasts. The liquid that forms on the right tip is said to grant knowledge, and the liquid on the left tip is said to grant wisdom.</p>
 <p>(99.9958/100)</p>
@@ -27,7 +27,7 @@ chapter = 242
 <p>"Well, you can use it as an interior decoration."</p>
 <p>Everyone nodded at Arisu's words. It's not an interior item, but I bought it for use as a sucking pacifier. After eating the elixir, I can give it back to the Abyss's Daughter as an offering. The next 100-year cooldown is too long.</p>
 <p>The next item came out, and after a few more items, I saw a bracelet. It looked like a bracelet made of rope woven with golden thread.</p>
-<p>◆Bracelet of Reverse Restraint [Epic Accessory]</p>
+<p>◆Bracelet of Reverse Restraint "Epic Accessory"</p>
 <p>When restrained by a rope-type item, it can be reflected back to an opponent within 3 meters once a year.</p>
 <p>The activation phrase is Attachez-vous.</p>
 <p>Hmm, does that mean if I get tied up, it bounces back and ties up the opponent within 3 meters instead? The cooldown is 1 year? I gave Arisu the smoky necklace, so should I give that to Nae Fitzgerald as a gift?</p>

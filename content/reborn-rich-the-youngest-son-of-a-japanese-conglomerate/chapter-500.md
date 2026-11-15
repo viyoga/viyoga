@@ -23,7 +23,7 @@ chapter = 500
 <p>After hearing her promise to keep it a secret, I approached the fallen monster, the corpse of the Jinildang leader. Kurayamada Kirie was standing next to the corpse.</p>
 <p>"Father..."</p>
 <p>Kurayamada Kirie was standing blankly, staring at the corpse. In the gaping hole in the corpse's chest was a fist-sized jewel with an ominous red light flashing, and when I saw it, a translucent information window automatically appeared before my eyes.</p>
-<p>◆Seed of Earthquake [Legendary+ Elixir/Material/Consumable/Seed]</p>
+<p>◆Seed of Earthquake "Legendary+ Elixir/Material/Consumable/Seed"</p>
 <p>A seed that can create an avatar of the sunken-root king who dwells in the underground. If refined well, it becomes a material for an elixir.</p>
 <p>Legendary Plus... That's amazing, isn't it? Of course, there was an ominous explanation that it would become an avatar of an unknown god called the sunken-root king, but since it said that if refined well, it would become a material for an elixir, I thought it would be good to take it first.</p>
 <p>The Seed of Earthquake that the Jinildang leader ate probably has the effect of becoming an avatar of the sunken-root king, and that's why the Jinildang leader became such a monstrous figure. An avatar means an incarnation, so the spirit of the original body's owner is suppressed by the spirit of the deity, and the body is used as a tool of the god, so it's never a good effect.</p>

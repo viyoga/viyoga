@@ -60,7 +60,7 @@ chapter = 528
 <p>,Should I?</p>
 <p>If it's Taira Kokoro, she probably packed something delicious, right? I smiled and nodded.</p>
 <p>###</p>
-<p>Seizawa Eiji (清澤 栄路) arrived at St. Francisco Girls' Academy shortly after the lacrosse match ended and before the horseback riding competition began. Seizawa Eiji is the father of Seizawa Shii and a current member of the National Diet. He is still young and does not belong to any particular faction or wield significant power, but the Seizawa family is a prominent political family, so with experience, he could become a future Prime Minister of Japan.</p>
+<p>Seizawa Eiji arrived at St. Francisco Girls' Academy shortly after the lacrosse match ended and before the horseback riding competition began. Seizawa Eiji is the father of Seizawa Shii and a current member of the National Diet. He is still young and does not belong to any particular faction or wield significant power, but the Seizawa family is a prominent political family, so with experience, he could become a future Prime Minister of Japan.</p>
 <p>,Tsk tsk tsk! Just like a politician, he doesn't want to see his daughter lose, huh?</p>
 <p>Minamoto Ushin clicked his tongue as he watched Seizawa Eiji sitting in the parents' section. Seizawa Eiji, like a politician, smoothly brushed off Minamoto Ushin's sharp words.</p>
 <p>,Haha! How could that be? I had some business to discuss with the Thai side, so I couldn't find the time in the morning.</p>

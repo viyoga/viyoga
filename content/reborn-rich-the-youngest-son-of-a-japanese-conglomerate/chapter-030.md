@@ -11,7 +11,7 @@ chapter = 30
 <p>"Let's meet at Enkyo."</p>
 <p>"Enkyo sounds good~!"</p>
 <p>One of the male employees made a fuss, saying that he liked Shinoe Misano's words. Enkyo seemed to be the name of a restaurant. When I asked Mimata Chieri, she said it was a Chinese restaurant and bar nearby.</p>
-<p>When they said Enkyo, Enkyo, I thought they meant *enko* (援交: *enjo*, short for *enjo kosai*, meaning compensated dating). When they said, "Enkyo sounds good~!" I was shocked. But I had misheard it.</p>
+<p>When they said Enkyo, Enkyo, I thought they meant *enko* (*enjo*, short for *enjo kosai*, meaning compensated dating). When they said, "Enkyo sounds good~!" I was shocked. But I had misheard it.</p>
 <p>While everyone was excited about the free dinner, something was caught by my master's senses. I saw the deputy team leader, Kurakake Kuma, taking something out of his bag and putting it inside his jacket. Huh? Isn't that...? I've seen it as a game item.</p>
 <p>It was definitely a spray-type sleeping pill. In games, it was used to sneak in and use sleeping pills to put the homeowner to sleep in order to steal data, but if the resistance stat among the physical stats and the will stat, which is a mental stat, are high, you can overcome sleep, so sometimes there are targets that are not affected by sleep.</p>
 <p>I think if the average value of resistance and will is 9.5 or higher, you can resist 100 percent, but since my average resistance will is 10, it was a big advantage that I could nullify it even if that baldy used it on me. But why is he carrying that around? For self-defense?</p>

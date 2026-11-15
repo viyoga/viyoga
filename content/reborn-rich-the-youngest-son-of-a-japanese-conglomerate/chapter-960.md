@@ -21,7 +21,7 @@ chapter = 960
 <p>"I'm Tsukiyo. Oppa."</p>
 <p>The beautiful girl with navy pigtails, Tsukiyo, introduced herself while looking at me. For reference, she didn't say "Oppa" in Japanese, but in Korean.</p>
 <p>"I'm Taira Ryuta. Nice to meet you."</p>
-<p>Since the other person had greeted me, I also introduced myself and greeted her. Since she called me Oppa, it seemed fine to speak to her casually. But no matter how much I thought about it while greeting her, I had never heard the name Tsukiyo before. Tsukiyo (月夜), meaning 'Moon Night'... It was a very pretty name, but not a common one.</p>
+<p>Since the other person had greeted me, I also introduced myself and greeted her. Since she called me Oppa, it seemed fine to speak to her casually. But no matter how much I thought about it while greeting her, I had never heard the name Tsukiyo before. Tsukiyo, meaning 'Moon Night'... It was a very pretty name, but not a common one.</p>
 <p>"Are you happy to see me?"</p>
 <p>Although it was just a greeting of "Nice to meet you," Tsukiyo's Eyes sparkled with joy upon hearing my "Nice to meet you." She suddenly sprang out and ran over, rubbing her cheek wildly against the Back of my Hand.</p>
 <p>"Hmm.... Could you give me an Explanation?"</p>
@@ -68,5 +68,5 @@ chapter = 960
 <p>Gojoy-nim requested Han Yu-gyeong's Casual Clothes and In Underwear Attire</p>
 <p>First, Casual Clothes~!</p>
 <p>She wears comfortable Clothes when relaxing at Home or taking her summoned beasts for a walk, hehe.</p>
-<p>But when she works, she wears a business Suit, hehe.]</p>
+<p>But when she works, she wears a business Suit, hehe."</p>
 <p>Underwear~!</p>

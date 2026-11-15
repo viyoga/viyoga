@@ -6,9 +6,9 @@ chapter = 553
 +++
 
 <p>Returning to reality, a translucent window floated before my eyes. It seemed there was some kind of achievement for my actions in the Inner World.</p>
-<p>Great achievement! A legendary being, the Black Dragon's Mind, has been destroyed, wiping out its existence! You have gained the Dragon Slayer trait (龍殺) and your Will stat has increased by 1!</p>
+<p>Great achievement! A legendary being, the Black Dragon's Mind, has been destroyed, wiping out its existence! You have gained the Dragon Slayer trait and your Will stat has increased by 1!</p>
 <p>Oh...! This counted as an achievement too? And an achievement that grants a Trait is quite valuable. Shall I check the Trait?</p>
-<p>◆Dragon Slayer (龍殺) [Legacy Trait]: A trait obtained by someone who has slain a dragon. When attacking, it deals critical damage to dragons and increases Strength, Will, and Concentration stats and their maximum values by 1.</p>
+<p>◆Dragon Slayer "Legacy Trait": A trait obtained by someone who has slain a dragon. When attacking, it deals critical damage to dragons and increases Strength, Will, and Concentration stats and their maximum values by 1.</p>
 <p>Reading it, it seemed that the Dragon Slayer Trait was automatically acquired upon killing a Dragon, and the Reward for slaying the Black Dragon was a 1-point increase in the Will Stat. The Dragon Slayer Trait's grade was quite high, Legacy-grade, but it was an Ability of little use in the modern era, where one rarely encounters Dragons. I had never encountered a Dragon in a game, and I met one for the first time here, but it seemed unlikely I would meet one again.</p>
 <p>Of course, it increased Strength, Will, and Concentration Stats by one each and raised their limits, making it valuable purely for the Stats, but the Ability itself was inferior to the coolness of its name.</p>
 <p>Another regrettable point was that my level didn't increase, perhaps because I only incapacitated Naruse Hirohide's summoned beast instead of killing it, and only dealt with the Black Dragon's Mind, not its complete form. If I had killed them all, I probably would have gained at least one level, which was quite regrettable.</p>
@@ -55,7 +55,7 @@ chapter = 553
 <p>He asked urgently, wondering if his Grandson, Naruse Koyou, was in Danger, but the elder shook his Head as if to say no.</p>
 <p>"While fighting the former Family Head and the Mercenaries that child Koyou brought, several Shikigami died, and their contracts disappeared. From the Family's perspective, it's quite regrettable."</p>
 <p>"That's fine. Filling the Shikigami is not easy, but it's something that can be done."</p>
-<p>Still, Torako (金虎子) and Takugio (狸王), which the previous Family Head owned, were quite symbolic.</p>
+<p>Still, Torako and Takugio, which the previous Family Head owned, were quite symbolic.</p>
 <p>The elder smacked his lips regretfully. The golden Tiger Torako and the Bake-danuki King Takugio were Shikigami frequently used by Naruse Hirohide and were quite famous, which was why the elder felt regret.</p>
 <p>"It seems they also tried to save the Yogoe, so the battle must have been quite fierce."</p>
 <p>"It couldn't be helped... Ah! Ootakemaru's contract disappeared too!! This is serious!"</p>

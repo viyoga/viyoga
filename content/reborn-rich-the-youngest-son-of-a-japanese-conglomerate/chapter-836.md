@@ -56,7 +56,7 @@ chapter = 836
 <p>Unable to land proper hits and only taking them, Hunter Herrera, whose Anger had exploded, charged forward. Genba Kiyohira, as if he had been waiting for this Moment, swung his Fist towards Hunter Herrera's iron Fist flying directly at him.</p>
 <p>Kwakwakwa!</p>
 <p>A sound unlike Fists clashing erupted, and Hunter Herrera's cybernetic implant Fist and Arm were disassembled and shattered.</p>
-<p>Genba Kiyohira was not satisfied with just taking off one of Hunter Herrera's Arms. He then crushed Hunter Herrera's Peach bone with a Calf Kick, and as Hunter Herrera fell, bringing his Head within range, he struck Hunter Herrera's Chin with a Palm Strike (掌打), knocking him Faint.</p>
+<p>Genba Kiyohira was not satisfied with just taking off one of Hunter Herrera's Arms. He then crushed Hunter Herrera's Peach bone with a Calf Kick, and as Hunter Herrera fell, bringing his Head within range, he struck Hunter Herrera's Chin with a Palm Strike, knocking him Faint.</p>
 <p>Naturally, a Faint Hunter Herrera would not be able to continue the Match, so the Referee declared the Match over.</p>
 <p>-Ahh! Kita! Amazing~! He swept in like a Storm, instantly KO'd the former UMC Unlimited Class Champion Hunter Herrera, and seized the throne!! What's even more surprising is that in the short Time of Round 2, he didn't allow a single direct hit!</p>
 <p>Along with the caster's High Praise, that Guy Genba Kiyohira was shown receiving the belt. After that, the Camera focused on the spectator stands, and Kujo Kina was seen jumping up and down in place, making all sorts of commotion, causing all the special class Students watching that Scene to burst into laughter.</p>

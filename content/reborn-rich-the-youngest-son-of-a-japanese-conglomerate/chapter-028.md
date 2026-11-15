@@ -50,7 +50,7 @@ chapter = 28
 <p>Why is he asking so many questions? It's not like Sanoe Misano-ssi is his wife. In the first place, it was strange for a subordinate to try to act like her husband when she's a married woman.</p>
 <p>,I'm sorry, but it's personal."</p>
 <p>,What?"</p>
-<p>Kurakake Kuma-ssi glared at me as if he was dumbfounded. What's he going to do if he glares at me? He seemed to have been reigning with authority with his big build and the title of deputy team leader, but the position of deputy team leader didn't give me any fear, and Kurakake Kuma-ssi's build was only big among ordinary Japanese people, so it didn't give me any intimidation as a muscular man in his late 180s. Kurakake Kuma-ssi also seemed to be able to control his anger after seeing my build, so he just glared at me, saying ,Iik!"</p>
+<p>Kurakake Kuma-ssi glared at me as if he was dumbfounded. What's he going to do if he glares at me? He seemed to have been reigning with authority with his big build and the title of deputy team leader, but the position of deputy team leader didn't give me any fear, and Kurakake Kuma-ssi's build was only big among ordinary Japanese people, so it didn't give me any intimidation as a muscular man in his late 180s. Kurakake Kuma-ssi also seemed to be able to control his anger after seeing my build, so he just glared at me, saying,Iik!"</p>
 <p>,The team leader told me to leave work, so I'll go first."</p>
 <p>I took the briefcase that had nothing in it that I had put in the drawer, casually bowed to Kurakake Kuma-ssi, and left the office. Kurakake Kuma-ssi, whose face was red and looked like he was about to explode, felt quite amusing. Even though he clearly knew that it was a new employee interview, he was putting pressure on me, so it seemed that he was quite obsessed with Sanoe Misano-ssi.</p>
 <p>I left the office, leaving the huffing and puffing Kurakake Kuma-ssi behind, and went to the gym in the Human Resources Development Institute, changed my clothes, and started exercising. It was also for the sake of stats, but even if I exercised throughout the game, raising my physical stats by 2 was a lot, so maintaining them was a bigger reason.</p>
@@ -60,7 +60,7 @@ chapter = 28
 <p>I ran into Taira Yukiko-ssi, who had left work sometime and was lightly dressed to take a bath. Taira Yukiko-ssi screamed when she saw my naked upper body.</p>
 <p>,E, even if you've washed, p, put on some clothes!"</p>
 <p>,Ah, I'm sorry. I forgot to bring my underwear."</p>
-<p>Taira Yukiko-ssi unconsciously looked at my crotch at the word ,underwear." Of course, there was a thick snake (?) under the towel, so her face turned red when she saw it. I was secretly proud. As expected, one towel can't hide the presence of my Johnson.</p>
+<p>Taira Yukiko-ssi unconsciously looked at my crotch at the word,underwear." Of course, there was a thick snake (?) under the towel, so her face turned red when she saw it. I was secretly proud. As expected, one towel can't hide the presence of my dick.</p>
 <p>,G, go into your room and put on some clothes right now!"</p>
 <p>,Yes, I'm sorry."</p>
 <p>I thought it would be counterproductive if I kept showing it, so I quickly went into my room and put on my clothes. Then I turned on the computer. I muttered while looking at the computer screen.</p>

@@ -49,7 +49,7 @@ chapter = 1105
 <p>"They say you became a Boss, and your Face seems to have brightened even more."</p>
 <p>Taira Kokoro, as usual, talked about scouting me for the Entertainment Industry, and Taira Katsuto offered an Ordinary greeting. I exchanged Gaze with Taira Kisa and Taira Akio, and others also greeted each other.</p>
 <p>"Soon the reception of mourners will end and the Tsuya will begin, so has everyone had enough Sleep?"</p>
-<p>Taira Kokoro looked at us and asked. Tsuya (通夜) is part of Japan's funeral customs, referring to the night spent keeping watch over the deceased's remains.</p>
+<p>Taira Kokoro looked at us and asked. Tsuya is part of Japan's funeral customs, referring to the night spent keeping watch over the deceased's remains.</p>
 <p>Staying up for one night is easy for me.... The phantom thief mother and daughter engage in thievery at night, so staying up all night would be nothing to them, and Taira Kanna, according to the testimony of my Subordinates, is also a Strong Person, so one night wouldn't be a Problem.</p>
 <p>"The Main family is so vast; if you get sleepy, you can just secretly slip into any Room and catch a little Sleep."</p>
 <p>Taira Kisa looked at her mom and spoke as if asking why she would even ask such a Question. Indeed.... She wasn't that close to the deceased Taira Kitsumasa, so there was no need to stay until the very end. Moreover, if she stayed too faithfully, it might lead to a Misunderstanding that I and Taira Jiro had some kind of Relationship.</p>

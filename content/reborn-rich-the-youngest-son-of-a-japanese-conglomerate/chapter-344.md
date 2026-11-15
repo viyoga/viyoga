@@ -65,7 +65,7 @@ chapter = 344
 <p>Minamoto Risa and Shido Tsubaki nodded and answered at my words. It was right to entrust it to the class president and vice president. I didn't have to adjust it, and the opinions were decided on their own, so it was less tiring and good.</p>
 <p>Returning to the education preparation room, I reported the appointment of the class president and vice president to the faculty room by phone and prepared to leave.</p>
 <p>Since I have to visit Oofuchi Erika's house at 10 o'clock, it seems like the timing will be perfect if I leave now.</p>
-<p>From the data I collected, the Oofuchi (大渕) family is a family that ranks at the bottom among prestigious families and is not a very prestigious samurai family. In terms of family status, they barely managed to get into St. Francisco Academy.</p>
+<p>From the data I collected, the Oofuchi family is a family that ranks at the bottom among prestigious families and is not a very prestigious samurai family. In terms of family status, they barely managed to get into St. Francisco Academy.</p>
 <p>Then the family wouldn't be able to use their power to give her favors. My curiosity will be resolved soon.</p>
 <p>The Oofuchi family's mansion was surprisingly not that far away. About a 5-minute walk from St. Francisco Academy? For a family at the bottom of the prestigious families, it's quite close to the school...? Even around here, the house prices must be quite expensive....</p>
 <p>I rang the bell of the house with the nameplate that said Oofuchi.</p>

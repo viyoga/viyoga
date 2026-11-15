@@ -36,7 +36,7 @@ chapter = 593
 <p>◆Dojang of the Daughter of the Abyss</p>
 <p>◆Telekinesis</p>
 <p>◆Cambion's Flesh</p>
-<p>◆Magic Circle [Offering to the Daughter of the Abyss]</p>
+<p>◆Magic Circle "Offering to the Daughter of the Abyss"</p>
 <p>◆Purity Worship</p>
 <p>◆Brand of the Daughter of the Abyss</p>
 <p>◆Body Entwined in the Abyss</p>
@@ -51,7 +51,7 @@ chapter = 593
 <p>Resistance was a trait that had various benefits such as defense and immunity. It also matched my Regeneration trait along with the Recovery stat, so I decided to choose Resistance. No matter how good my regeneration was, I would die if I collided with a giant robot and was shattered into pieces, so I decided to allocate to Resistance, which governs defense. I need to withstand at least one hit to recover my body with regeneration.</p>
 <p>The moment Resistance broke through the limit of 20, I definitely felt something change. That's because a translucent window immediately appeared in front of me, announcing that I had broken through the limit.</p>
 <p>-The Resistance stat has broken through the limit. The efficiency of the Resistance stat is greatly increased. Reduces 20 percent of the enemy's final damage and strongly resists diseases. Acquired the trait Spectral Skin!</p>
-<p>◆Spectral Skin [Limit Break Trait]: Physical defense is increased, and two-thirds of physical defense is applied to spell/magical attacks and elemental attacks.</p>
+<p>◆Spectral Skin "Limit Break Trait": Physical defense is increased, and two-thirds of physical defense is applied to spell/magical attacks and elemental attacks.</p>
 <p>Oh...! The Limit Break trait was a slightly random trait, and I got a pretty good one. It wasn't a trait that was given every time I raised a stat after 21, but a trait that was only given when I broke through the limit of 20, so if I was unlucky, a trait that didn't suit my current style might appear.</p>
 <p>Of course, it's not like there's no way to change the Limit Break trait if I don't like it, but I'm quite lucky this time. I got a good trait that I don't need to change. Spectral Skin is a pretty sweet trait that can block some elemental damage or magical damage with normal defense.</p>
 <p>Now that I've allocated all my stats, should I choose a trait this time?</p>
@@ -60,15 +60,15 @@ chapter = 593
 <p>①Modified Wire Tentacles ②Two Dragon Heads ③Gun Specialist</p>
 <p>As expected, I wasn't lucky, so the first traits weren't very good. Wire Tentacles was a pretty high-grade cyber implant trait that could move numerous wires to stick into mechanical opponents and exert dominance or directly hack into computers, but it was meaningless to me, who was using the Purity Worship trait.</p>
 <p>Two Dragon Heads meant a dragon with two heads, but it was a trait that made you have two dicks. It was treated as a mutation trait, and it wasn't like I could insert into two women at the same time just because I had two dicks, so it didn't suit me, who was using the Purity Worship trait, so I decided to just skip it.</p>
-<p>Gun Specialist  was a trait with many enthusiasts. There were so many people who went for gun traits, and among them, there were many people who liked shotguns, but it didn't suit my style, which was fistfights + superpowers.</p>
-<p>The [Potential Enhancement] option of the item [Wish-Fulfilling Pearl] can change the trait that can be selected by leveling up to a higher-grade random trait. Would you like to change it?</p>
+<p>Gun Specialist was a trait with many enthusiasts. There were so many people who went for gun traits, and among them, there were many people who liked shotguns, but it didn't suit my style, which was fistfights + superpowers.</p>
+<p>The "Potential Enhancement" option of the item "Wish-Fulfilling Pearl" can change the trait that can be selected by leveling up to a higher-grade random trait. Would you like to change it?</p>
 <p>As soon as I thought about changing the trait list, a translucent window appeared. Of course, my answer was yes.</p>
 <p>Please select a trait.</p>
 <p>①Blessing of the Stars ②Telekinetic Body ③Mental Strike</p>
 <p>Oh...! Pretty useful traits came out. If I were to talk about them in order of uselessness to me, Blessing of the Stars was a useful trait for the star magic that Han Yu-gyeong has, so it was useless to me, and then Mental Strike was a trait that allowed characters who do physical attacks to attack enemies who ignore physical damage, such as spirits or ghosts, but I had the Abyss, which could be said to be a higher version of it.</p>
 <p>The Telekinetic Body trait was a trait needed to fly with telekinesis, which I had been talking about before. As the name Telekinetic Body suggests, it was a trait that made my telekinesis receive my body better. Besides telekinetic flight, it was a pretty good trait because it allowed for various applications such as adding telekinesis to fistfights as propulsion to increase attack speed and damage.</p>
 <p>Of course, I wouldn't be able to fly as soon as I chose this trait, and practice would be needed, but it was still a trait with quite high potential, and the other traits were unnecessary for me, so I chose Telekinetic Body.</p>
-<p>◆Telekinetic Body [Unique Trait]: A trait that can only be acquired by users with telekinesis. It makes the user's body more responsive to their telekinetic abilities, enhancing the power of their telekinesis, allowing more precise control, and reducing the amount of willpower required.</p>
+<p>◆Telekinetic Body "Unique Trait": A trait that can only be acquired by users with telekinesis. It makes the user's body more responsive to their telekinetic abilities, enhancing the power of their telekinesis, allowing more precise control, and reducing the amount of willpower required.</p>
 <p>It was a trait that not only allowed for various applications but also strengthened telekinesis itself, so I would be able to apply telekinesis to combat even better.</p>
 <p>"Heung...! How long are you going to keep groping, Teacher-ssi?"</p>
 <p>Ah, that's right. I was just unconsciously groping Otagi Yuka's breasts. I must have groped them for a long time, because Otagi Yuka seemed to have woken up.</p>

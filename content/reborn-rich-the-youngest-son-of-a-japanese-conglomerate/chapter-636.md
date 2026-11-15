@@ -48,7 +48,7 @@ chapter = 636
 <p>"Fufu, that's good then. Now, let's check your changed abilities."</p>
 <p>Simyeonui ttal knows that I have the ability to see the status window, so she must be telling me to look directly and see how it has changed.</p>
 <p>I turned on the status window and carefully checked my stats. At first, it seemed like nothing had changed, but when I looked closely, one of my traits had changed slightly.</p>
-<p>◆Simyeonui ttal's Brand [Unique Legacy+ Trait]</p>
+<p>◆Simyeonui ttal's Brand "Unique Legacy+ Trait"</p>
 <p>A brand left by Simyeonui ttal on her partner. The maximum Simyeon stat increases by 3, you become immune to Simyeon's mental transformation, and the penalty for physical transformation is weakened. Simyeonui ttal is constantly watching you. As long as you have the brand, you cannot escape Simyeonui ttal.</p>
 <p>Simyeonui ttal's Brand was an existing trait, but it was upgraded from Unique Legacy grade to Unique Legacy Plus grade, and I gained immunity to mental transformation. Originally, the description was "weakened Simyeon penalty," but it seems that the description was changed to "weakened physical transformation penalty" as the mental side became immune.</p>
 <p>Hmm, good. It seemed like I could invest a little more in Simyeon now. Of course, I'll also raise my Will stat as much as I use telekinesis, but it was nice that I didn't have to match Will and Simyeon, so there was less to worry about.</p>
@@ -67,7 +67,7 @@ chapter = 636
 <p>"Fufu.... Didn't I say earlier that I could do this much easily? I can do this much for my partner anytime."</p>
 <p>"I'll keep wearing it without taking it off again."</p>
 <p>The bracelet's design had changed slightly, and there was a subtle engraving of cephalopod tentacles coiling around it. As I was looking at it closely, the options appeared in front of me, so I checked how it had changed.</p>
-<p>◆Simyeon Husband's Combat Equipment [Legendary Armor]</p>
+<p>◆Simyeon Husband's Combat Equipment "Legendary Armor"</p>
 <p>Equipment in the form of a bracelet made with love by Simyeonui ttal. When a certain amount of Simyeon is infused, it transforms into black armor that covers the entire body. It was made by reforging the armor worn by the Death Knight and the Simyeon armor with Simyeon pressure.</p>
 <p>It has powerful defense and additional performance for Simyeon.</p>
 <p>When wearing armor</p>

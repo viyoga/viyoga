@@ -45,7 +45,7 @@ chapter = 806
 <p>'Rina will become a police officer. And Neika will go to the PMC side.'</p>
 <p>It seemed that Taira Kanna was trying to seize police Power through Nakanoin Rina. I heard that Nakanoin Rina's Parents are high-ranking police officers, and with Taira Kanna behind her, her promotion will be very fast.</p>
 <p>But what I was curious about was Muko Neika. I wondered if Muko Neika was one of the four martial forces of St. Francis Girls' academy that I talked about with Daigo Terue before.</p>
-<p>For reference, the four martial forces of St. Francis Girls' Academy were Kuniaki Ichiro of the Daigo Family, Ogre, Shimokawabe Airen, and a mercenary called Juuki (銃鬼: Gun Oni), and I wondered if Muko Neika was Juuki.</p>
+<p>For reference, the four martial forces of St. Francis Girls' Academy were Kuniaki Ichiro of the Daigo Family, Ogre, Shimokawabe Airen, and a mercenary called Juuki (Gun Oni), and I wondered if Muko Neika was Juuki.</p>
 <p>'By any chance, Muko Neika, are you Juuki?'</p>
 <p>'Since there's not much Time left until graduation, let's be honest, I'm Juuki. I did some work that the academy ordered to earn some Allowance.'</p>
 <p>I had guessed, but it was quite a surprising fact. Juuki, who could be hired even in the game, had good Aptitude for all firearms, so he could change his Style according to the Situation at that Time, so he was a quite useful Character. In the game, he was the most named monster among the Students gathered here, including me.</p>

@@ -57,7 +57,7 @@ chapter = 217
 <p>"Two hundred thousand dollars."</p>
 <p>"Keueuk...!"</p>
 <p>As expected, the saying that you should think about whether you don't have enough money if you want to buy something you've heard about was correct. I bought the bear sculpture from the restaurant owner, who said he wouldn't sell it, for two hundred and fifty thousand dollars.</p>
-<p>◆Grizzly Totem [Epic Totem]</p>
+<p>◆Grizzly Totem "Epic Totem"</p>
 <p>An Indian shaman has bound the spirit of a bear to the bear sculpture. If you are recognized by the spirit of the bear, you can gain the bear's strength and stamina.</p>
 <p>This restaurant, Spearhead, didn't mean a spearhead, but an advance party. It was a restaurant founded by a member of the advance party during the American pioneering era, and he decorated various parts of the restaurant with sculptures and Indian hats he had looted from Indian tribes. Among them was this Grizzly Totem.</p>
 <p>Of course, the first restaurant owner didn't know the ability of this Grizzly Totem, and the totem had just been occupying one corner of the restaurant for hundreds of years.</p>

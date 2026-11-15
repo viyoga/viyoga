@@ -20,14 +20,14 @@ chapter = 812
 <p>Since I still had almost no power within the Taira Group, I had to wait for the right time and for the Successor Jeonjaeng to intensify. I needed to bare my teeth at the decisive Moment.</p>
 <p>Naturally, with today's video Incident and the previous Otagi Yuka attack Incident, Taira Jiro's name was already on my Death List. I had no intention of leaving him alone once the Situation became a little more relaxed.</p>
 <p>Aside from the Taira Jiro matter, at the end of the text message Jinmija Yeosa sent, she asked what the name of the new premium Sword brand should be, and that was simple.</p>
-<p>Ichimonji Harugoro, who would be the Master Blacksmith, is a famous Master Craftsman in Japan, so we could just borrow his name. Ichimonji... Harugoro... Hmm, the surname would be better than the given name. It seemed like naming it Ichimonji (一文字) would work. Ichimonji, huh...? It sounds quite plausible, doesn't it?</p>
+<p>Ichimonji Harugoro, who would be the Master Blacksmith, is a famous Master Craftsman in Japan, so we could just borrow his name. Ichimonji... Harugoro... Hmm, the surname would be better than the given name. It seemed like naming it Ichimonji would work. Ichimonji, huh...? It sounds quite plausible, doesn't it?</p>
 <p>I decided on Ichimonji as the name for the premium Sword manufacturing company, wrote down the name and the Reason, and sent it to Jinmija Yeosa.</p>
 <p>"Ah...! I need to go quickly. I almost ran late watching the video."</p>
 <p>I checked the time and got up from my Seat. I couldn't be late for exam proctoring. Although it was a more difficult exam proctoring job than usual, it would be over after tomorrow, so I had to push through.</p>
 <p>◆ WWW Who wants Prince-nim to be our Class Teacher next year? Upvote WWW</p>
 <p>Me first WWW</p>
 <p>Photo</p>
-<p>Luckily, Prince-nim came as our exam proctor WWW He's even more handsome in real life. ദ്ദി( ◠‿◠ )</p>
+<p>Luckily, Prince-nim came as our exam proctor WWW He's even more handsome in real life. ദ്ദി(◠‿◠)</p>
 <p>Comments(6)</p>
 <p>└You're Hidden Camera-filming again, tsk tsk tsk... Thank you so much~! I'll save it to my Photo album hehehe</p>
 <p>└WWW I thought you were scolding them for Hidden Camera-filming</p>

@@ -19,7 +19,7 @@ chapter = 150
 <p>As expected, it seemed that a high-ranking assassin from Kurotsukido had attempted the assassination. Judging by the fact that they sniped from a poorly visible angle, they probably had clairvoyance or a similar ability.</p>
 <p>"They even deployed a sniper...!"</p>
 <p>Nagumo Sian gritted her teeth and called a secretary.</p>
-<p>"Contact the Bai Long Hui (白龙会: White Dragon Society) and tell them we'll give them 200,000 per Kurotsuki executive's head. The deadline is one month."</p>
+<p>"Contact the Bai Long Hui (White Dragon Society) and tell them we'll give them 200,000 per Kurotsuki executive's head. The deadline is one month."</p>
 <p>The Bai Long Hui was the rival group of the Black Moon Society. Nagumo Sian was going for an eye for an eye, a tooth for a tooth, so she was targeting the executives of the Black Moon Society. 200,000, that must be in dollars, right? It wasn't that expensive for a bounty on someone with the title of Black Moon Society executive. As if she noticed my question, Nagumo Sian opened her mouth.</p>
 <p>"Since they're already desperate to kill each other, they'll probably think of 200,000 as a bonus and work even harder."</p>
 <p>Nagumo Sian muttered like that and sat back down. Ah, I see. The Bai Long Hui was originally an enemy force of the Black Moon Society, so there was no need to give them a lot of money.</p>

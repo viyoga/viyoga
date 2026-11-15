@@ -98,7 +98,7 @@ chapter = 691
 <p>A huge amount of white Semen flowed down with a patter, and I smiled as I watched it. As expected, I like seeing cream pies every time.</p>
 <p>"I have emergency contraception in my bag."</p>
 <p>"Ah, thank you...."</p>
-<p>I said that so she wouldn't worry in case she was worried about me cumming inside, and Minamoto Lisa nodded as if she understood and then fell into thought for a moment. Then, her eyes sparkled and she came in front of me and sat in a wariza (割座: a position where you kneel and spread your legs to the sides).</p>
+<p>I said that so she wouldn't worry in case she was worried about me cumming inside, and Minamoto Lisa nodded as if she understood and then fell into thought for a moment. Then, her eyes sparkled and she came in front of me and sat in a wariza (a position where you kneel and spread your legs to the sides).</p>
 <p>"So that means it's okay to cum as much as I want?"</p>
 <p>"I, I guess so?"</p>
 <p>"Then let's do it one more time, dangsin-nim♥ This time, do you want to try it with my mouth?"</p>

@@ -48,7 +48,7 @@ chapter = 624
 <p>The school cafeteria wasn't originally crowded? I didn't know that. I thought it was originally doing well because it was crowded every day. Then I can expect a certain amount of sales for the club collection. I was worried because it would be a bit much if my picture was a bonus and it didn't sell at all.</p>
 <p>"Yuzuki-ssi must be happy. You're enjoying me as much as you want, whom the students want so much."</p>
 <p>"Not as much as I want. It's still not enough."</p>
-<p>When I said "must be happy" in a slightly playful voice, Matsunaga Yuzuki said it wasn't enough yet and lowered her hand to grab my Johnson.</p>
+<p>When I said "must be happy" in a slightly playful voice, Matsunaga Yuzuki said it wasn't enough yet and lowered her hand to grab my dick.</p>
 <p>"I'll give you a free pass today, so enjoy it as much as you want, Yuzuki-ssi."</p>
 <p>"When we're doing it, please call me just Yuzuki instead of -ssi, Sensei♥"</p>
 <p>Seeing her eyes full of hearts, it seemed like she was going to completely suck up my yang energy today like a succubus. I have to do my best to serve her today so that she doesn't become sexually frustrated for a while.</p>

@@ -41,7 +41,7 @@ chapter = 268
 <p>,Yeah! It's fun when I study, hehe.</p>
 <p>As expected of someone who entered Korea University at the top of her class. It's fun when I study.... I had a huge headache just studying Korean language education. Han Yu-gyeong had high intelligence, so she probably leveled up quickly.</p>
 <p>,Shall we go back to the hotel now?</p>
-<p>The two thugs who had already collapsed were no longer in our thoughts. At my words, Han Yu-gyeong answered cutely with a ,Yeah! and clung to my arm.</p>
+<p>The two thugs who had already collapsed were no longer in our thoughts. At my words, Han Yu-gyeong answered cutely with a,Yeah! and clung to my arm.</p>
 <p>We went back the way we came and returned to the hotel. Perhaps because of the event that reminded us of our first meeting, Han Yu-gyeong seemed quite excited. You could tell by the way she kissed me as soon as we arrived at the hotel room.</p>
 <p>As I accepted Han Yu-gyeong's tongue, I stroked her slender waist and massaged her soft, bouncy butt.</p>
 <p>It was a wonderful butt with an addictive texture that sometimes seemed to suck in my hand and sometimes bounce it back.</p>
@@ -52,9 +52,9 @@ chapter = 268
 <p>Tuduck!</p>
 <p>I became impatient without realizing it and tore off one of Han Yu-gyeong's shirt buttons. It was because I was curious about her breasts, which she said had gotten bigger. Since one button was already torn, I spread Han Yu-gyeong's shirt open.</p>
 <p>Tutututuduck!</p>
-<p>Buttons flew in all directions, revealing Han Yu-gyeong's breasts in her bra. I was expecting her breasts to jiggle with a ,taeng~! sound, but because her bra was firmly supporting them, they didn't jiggle as I had hoped.</p>
+<p>Buttons flew in all directions, revealing Han Yu-gyeong's breasts in her bra. I was expecting her breasts to jiggle with a,taeng~! sound, but because her bra was firmly supporting them, they didn't jiggle as I had hoped.</p>
 <p>,Kyaak♥</p>
-<p>She said ,Kyaak with her mouth, but Han Yu-gyeong liked it when I was a little rough. The bra had a front hook, so I easily disarmed it as well. Only then did her breasts, having found freedom, jiggle and show a lively appearance.</p>
+<p>She said,Kyaak with her mouth, but Han Yu-gyeong liked it when I was a little rough. The bra had a front hook, so I easily disarmed it as well. Only then did her breasts, having found freedom, jiggle and show a lively appearance.</p>
 <p>Her white breasts and pink nipples were revealed, and they definitely seemed a little bigger than before.... Wouldn't I be able to tell properly if I massaged them a bit?</p>
 <p>I grabbed Han Yu-gyeong's breasts. Oh! They definitely seemed bigger. Before, they filled my hand a little, but now they seemed to have more volume (?).</p>
 <p>,Heueung~ They got bigger, didn't they...?</p>
@@ -72,7 +72,7 @@ chapter = 268
 <p>I always think this, but Han Yu-gyeong's pussy was pretty. Seeing her unpigmented, pink, adorable pussy made me feel my dick throbbing on its own.</p>
 <p>,Aish~! What is it?</p>
 <p>Han Yu-gyeong grumbled softly when my dick suddenly throbbed while she was licking it. And then she concentrated on sucking my dick again. To repay Han Yu-gyeong for working hard, I put my mouth on her pretty pussy and started licking it with my tongue.</p>
-<p>In an instant, the hotel room was filled with lewd sounds of sucking and licking something, like ,jjueup, jjueup and ,hururuk.</p>
+<p>In an instant, the hotel room was filled with lewd sounds of sucking and licking something, like,jjueup, jjueup and,hururuk.</p>
 <p>Han Yu-gyeong's pussy secreted clear, sticky vaginal fluid as I licked and touched it.</p>
 <p>Han Yu-gyeong's vaginal fluid had a fairly light taste compared to its sticky consistency, and according to the feeling of my tongue, which is a vaginal fluid connoisseur, it had a highly addictive S-class taste.</p>
 <p>Han Yu-gyeong also licked my dick diligently, giving me considerable pleasure. We licked and sucked each other with all sorts of techniques to bring each other to climax.</p>

@@ -12,7 +12,7 @@ chapter = 385
 <p>Of course, Lara Sinclair was also holding a submachine gun in both hands, preparing for battle, and Nero and White Bear were growling, guarding the surroundings.</p>
 <p>"I'll attack first!"</p>
 <p>They were using a clever tactic for stray dogs, constantly rustling in the bushes to lower our mental strength and concentration, but we weren't the type to get tired of that, so instead of waiting boringly, I decided to open the battle myself first.</p>
-<p>Shinkai Yatsude (深海八手) One Touch Turns Into Ten Thousand Branches (一触化万支: One tentacle becomes ten thousand branches.)</p>
+<p>Shinkai Yatsude One Touch Turns Into Ten Thousand Branches (One tentacle becomes ten thousand branches.)</p>
 <p>As I stretched out my hand filled with the abyss, the abyss sparkling with starlight split into over a thousand pieces and began to smash the trees and bushes in front of me. Of course, the bodies of the mutated stray dogs that were caught together were also ground up, turning the front into scorched earth. Thanks to Han Yu-gyeong's Starlight Tempering buff, the power became even greater than I thought.</p>
 <p>Before the aftermath of my attack subsided, Nero and White Bear rushed at the mutated stray dogs, and I and Lara Sinclair followed behind them. Han Yu-gyeong, who was in charge of supporting and attacking from the rear, ran from the very back.</p>
 <p>"Keong!"</p>

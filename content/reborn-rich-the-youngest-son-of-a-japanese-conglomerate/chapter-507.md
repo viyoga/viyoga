@@ -32,12 +32,12 @@ chapter = 507
 <p>After the achievement window, there was a level-up window. I had accumulated quite a bit of experience through sex, and the Avatar of the Outer God also gave me a huge amount of experience, so I was able to level up right away.</p>
 <p>LEVEL UP!</p>
 <p>Please select a trait.</p>
-<p>①Gun Specialist  ②Modification - Finger Drill ③Cyber Affinity</p>
+<p>①Gun Specialist ②Modification - Finger Drill ③Cyber Affinity</p>
 <p>It's been a while since I've had to choose a trait. But still, my low luck meant that no good traits appeared at all. Gun Specialist is always a good trait in games, but it doesn't apply to me, who's on the Magician-Martial Artist tree of martial arts + superpowers.</p>
-<p>Of course, the second modification trait wasn't very good for me either, since I have the Pure Praise trait. The finger drill itself wasn't a good trait in terms of modification, so it was completely useless. There's a minor technique in martial arts called Jigong (指功), and it only becomes a useful trait if you specialize in that skill tree.</p>
+<p>Of course, the second modification trait wasn't very good for me either, since I have the Pure Praise trait. The finger drill itself wasn't a good trait in terms of modification, so it was completely useless. There's a minor technique in martial arts called Jigong, and it only becomes a useful trait if you specialize in that skill tree.</p>
 <p>The third was Cyber Affinity, which is the best trait for VR divers, but it was useless to me. As Han Yu-gyeong said before, I can just hire a VR diver with money, so I couldn't waste valuable trait points.</p>
 <p>Jin Yong-tae, this bastard... If I hadn't possessed him, he would have been armed with terrible traits? No matter how low my luck is, how can only such bad traits come out?</p>
-<p>The [Potential Enhancement] option of the item [Wish-Fulfilling Orb] can change the traits that can be selected by leveling up to random traits of a higher grade. Would you like to change it?</p>
+<p>The "Potential Enhancement" option of the item "Wish-Fulfilling Orb" can change the traits that can be selected by leveling up to random traits of a higher grade. Would you like to change it?</p>
 <p>Well, I would have been a similar piece of trash if I didn't have the Wish-Fulfilling Orb, but getting the Wish-Fulfilling Orb in the beginning was the best choice. I activated the Wish-Fulfilling Orb's ability and re-rolled the trait choices.</p>
 <p>Please select a trait.</p>
 <p>① Transformed Carapace Iron Skin ② Psychokinetic Reaction Shield ③ Explosion Magic Circle</p>
@@ -47,7 +47,7 @@ chapter = 507
 <p>The second, Psychokinetic Reaction Shield, was a trait related to psychokinesis, and it was a skill that created a psychokinetic shield. If you choose it like psychokinesis, a skill is created, and proficiency is important, so it's a bit annoying, but if proficiency increases, it can be used as a wide-area protection skill that can protect even others within the range of my psychokinesis.</p>
 <p>The last Explosion Magic Circle is, as the name suggests, a skill that creates an exploding magic circle. It can be used like magic to make it explode immediately, or it can be used like a landmine that explodes when someone steps on it, or it can be written on paper and used for terrorism. It's quite a versatile skill.</p>
 <p>I lay down on the bed and pondered for a while. Wide-area protection, or a versatile attack skill.... I ended up choosing Psychokinetic Reaction Shield. I should take care of defense after all. I already had enough attack power.</p>
-<p>◆Psychokinetic Reaction Shield [Unique Trait]: A trait that can only be obtained if you have the Psychokinesis trait. Psychokinetic Reaction Shield, a sub-skill of Psychokinesis, is created. Creates a psychokinetic shield to gain protection against physical and mental attacks. The strength, casting speed, and range of the shield vary depending on proficiency.</p>
+<p>◆Psychokinetic Reaction Shield "Unique Trait": A trait that can only be obtained if you have the Psychokinesis trait. Psychokinetic Reaction Shield, a sub-skill of Psychokinesis, is created. Creates a psychokinetic shield to gain protection against physical and mental attacks. The strength, casting speed, and range of the shield vary depending on proficiency.</p>
 <p>As it was a skill that required Psychokinesis as a prerequisite, it was a higher-level trait than Psychokinesis. Since I chose it, I should train it. I brought water and poured it into the air while lying down. And I created a psychokinetic reaction shield to make it like a bowl and hold the water. If I can't maintain it, water will spill on my face.</p>
 <p>I lasted longer than I expected because my psychokinesis proficiency was already quite high and my willpower, the main stat of psychokinesis, was also very high, so I was able to last for almost over thirty minutes. Still, after thirty minutes, it became difficult to endure, and the shield thinned and water droplets dripped one by one, and then it poured out with a chaaaaa.</p>
 <p>I didn't want to dirty the sheets again since I hadn't been to the laundromat in a while, so I moved the shield and moved the water to the bathroom, causing the shield to break.</p>
@@ -76,7 +76,7 @@ chapter = 507
 <p>◆Simyeonui ttal's Seal</p>
 <p>◆Psychokinesis</p>
 <p>◆Cambion's Flesh</p>
-<p>◆Magic Circle [Tribute to Simyeonui ttal]</p>
+<p>◆Magic Circle "Tribute to Simyeonui ttal"</p>
 <p>◆Pure Praise</p>
 <p>◆Simyeonui ttal's Brand</p>
 <p>◆Flesh Entwined in the Abyss</p>

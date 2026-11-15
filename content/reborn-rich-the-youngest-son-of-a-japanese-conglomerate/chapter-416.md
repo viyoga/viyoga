@@ -28,11 +28,11 @@ chapter = 416
 <p>According to the investigation so far, Yamashiro Ryuta-sensei is a member of the Tairaga Family. Now the situation has become more complicated. Investigating the small, prestigious Yamashiro family in the countryside was not the same as investigating Japan's number one Tairaga Group.</p>
 <p>Finding the true identity of Yamashiro Ryuta among the numerous people in the Tairaga Group would be very difficult. Moreover, it didn't seem like the Tairaga Group would just stand by and watch the Sakagami family investigate them.</p>
 <p>"Haa... I thought I could do it easily, but it's getting more and more complicated. I wish the teacher's last name was Tairaga so I could easily find the data."</p>
-<p>Sakagami Rena muttered to herself and sighed. Without realizing it, she typed Taira Ryuta (平 竜太) into the Sakagami family's data search window instead of Yamashiro Ryuta.</p>
+<p>Sakagami Rena muttered to herself and sighed. Without realizing it, she typed Taira Ryuta into the Sakagami family's data search window instead of Yamashiro Ryuta.</p>
 <p>"Huh?"</p>
 <p>She just typed Taira Ryuta instead of Yamashiro Ryuta, but surprisingly, data about Taira Ryuta came up.</p>
 <p>When she clicked on Taira Ryuta, there was no photo and only one line of explanation was written. There were no photos and not much data, so it seemed like the Sakagami family didn't have much data on this person either.</p>
-<p>●Taira Ryuta (平 竜太): 20 years old, the illegitimate child of Taira Saburo, recently recognized by Taira Danjo. Currently working at the Human Resources Development Institute. Of Korean descent.</p>
+<p>●Taira Ryuta: 20 years old, the illegitimate child of Taira Saburo, recently recognized by Taira Danjo. Currently working at the Human Resources Development Institute. Of Korean descent.</p>
 <p>"Could it be...."</p>
 <p>They could just be people with the same name. Besides, he was said to have recently joined the family, so would they entrust such a person with this kind of infiltration mission? Moreover, even though he was an illegitimate child, he was a direct descendant of the Tairaga Family.</p>
 <p>Sakagami Rena rationally thought that Yamashiro Ryuta was not the same person as Taira Ryuta, but they had the same name, and if he was of Korean descent, then there would be no problem with the Korean language he was teaching now, so she was quite confused because a few things matched up.</p>

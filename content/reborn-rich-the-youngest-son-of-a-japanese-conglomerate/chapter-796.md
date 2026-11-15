@@ -47,10 +47,10 @@ chapter = 796
 <p>Ppu-deuk ppu-deuk....</p>
 <p>Each time Seizawa Shii thrust her hips, my tailbone no longer ached, but the not-so-sturdy four legs of the plastic chair directly absorbed that kinetic energy. The ominous 'ppu-deuk ppu-deuk' sounds continued from the plastic chair until it could no longer endure, and with a 'Pang~!' sound, the chair shattered.</p>
 <p>"Keueut...!"</p>
-<p>Even though the chair broke, I stayed suspended in empty air without falling, like performing the 'Horse Stance' (馬步: a stance resembling an invisible chair) from martial arts novels. I forced myself to stay put because if I fell with the chair, I could get cut by the plastic shards.</p>
+<p>Even though the chair broke, I stayed suspended in empty air without falling, like performing the 'Horse Stance' (a stance resembling an invisible chair) from martial arts novels. I forced myself to stay put because if I fell with the chair, I could get cut by the plastic shards.</p>
 <p>"Because the plastic broke, we'll have to do it standing."</p>
 <p>"This is my first time standing. Hehe♥"</p>
-<p>The standing sexual position (立位) was quite difficult, and it was more advantageous for the man to be smaller to move, so it wasn't a sexual position I, with my height and large size, often did. So, I decided to spread my legs and adjust to Seizawa Shii's height, performing a modified standing sexual position where she would thrust her hips while standing. Since Seizawa Shii herself preferred positions where she could move independently, I thought she would like it.</p>
+<p>The standing sexual position was quite difficult, and it was more advantageous for the man to be smaller to move, so it wasn't a sexual position I, with my height and large size, often did. So, I decided to spread my legs and adjust to Seizawa Shii's height, performing a modified standing sexual position where she would thrust her hips while standing. Since Seizawa Shii herself preferred positions where she could move independently, I thought she would like it.</p>
 <p>"Like this.... Like this, I just have to thrust my hips?"</p>
 <p>"Mm."</p>
 <p>Seizawa Shii, excited about trying a new posture, took the position and reinserted my cock. And then she began to thrust her hips.</p>

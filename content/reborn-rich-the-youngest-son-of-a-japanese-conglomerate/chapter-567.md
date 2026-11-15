@@ -46,7 +46,7 @@ chapter = 567
 <p>,I don't know any Korean, so I'm a little scared.</p>
 <p>,There are good translation apps these days, and I'll help you if you have any difficulties.</p>
 <p>Shimokawa Airen isn't going to be wandering around alone, and she'll be moving with the students, so she shouldn't have much difficulty. I'll be with her too, so there shouldn't be any Korean language problems.</p>
-<p>,Then I can enjoy ,this, trip.</p>
+<p>,Then I can enjoy,this, trip.</p>
 <p>This trip...? Couldn't she enjoy other trips? It was quite a questionable statement, but Shimokawa Airen changed the subject and started asking me other questions.</p>
 <p>,What's Rinka doing these days?</p>
 <p>,She says she's still chasing Anya-ji. The master is alone, and Anya-ji has become a large force in the Japanese martial arts world, so it's a bit difficult.</p>

@@ -5,7 +5,7 @@ weight = 203
 chapter = 203
 +++
 
-<p>Breaking News! Phantom Thief François Steals World Heritage Jikokuten Sword (持國天劍: Jikokutenken) from Kyoto's Tennōji Temple!</p>
+<p>Breaking News! Phantom Thief François Steals World Heritage Jikokuten Sword (Jikokutenken) from Kyoto's Tennōji Temple!</p>
 <p>Is it a coincidence...? Why does Phantom Thief François keep showing up where Arisu is? The suspicion I had at the hamburger shop earlier is swirling again. Even if Arisu is the phantom thief, can she steal something in France one day and then steal something in Kyoto the next day? Unless she has a private jet, there's no way she could steal things so quickly....</p>
 <p>Besides, Jikokutenken.... I looked it up because I was curious, and it turns out that the sword held by Jikokuten, one of the Four Heavenly Kings statues at Tennōji Temple, is a real sword, not a carving, which made it famous and eventually designated as a World Heritage Site. That sword is called the Jikokuten Sword, or Jikokutenken, and it became a famous relic of the Tennōji Temple.</p>
 <p>Since the Yeouiju and Cheonwanghwan I ate in Korea at the beginning were items related to Gwangmok Cheonwang among the Four Heavenly Kings, this Jikokuten Sword might also have a matching item. Like the Yeouiju, the Jikokuten Sword itself was likely a good item.</p>

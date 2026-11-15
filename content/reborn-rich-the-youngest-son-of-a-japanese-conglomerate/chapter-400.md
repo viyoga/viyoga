@@ -89,7 +89,7 @@ chapter = 400
 <p>The milk pudding disappeared and soon a note was attached and a transparent bottle of about 500 milliliters filled with white liquid was summoned in front of me.</p>
 <p>-I was very satisfied. Make milk pudding with this special milk, my beloved.</p>
 <p>Simyeonui ttal's special milk is something that stimulates the imagination a lot? When I focused my mind and looked at the milk bottle, an information window popped up.</p>
-<p>◆Simyeonui ttal's Special Milk [Legendary Food]: It's very delicious milk. No one has ever eaten the milk that Simyeonui ttal squeezed directly.</p>
+<p>◆Simyeonui ttal's Special Milk "Legendary Food": It's very delicious milk. No one has ever eaten the milk that Simyeonui ttal squeezed directly.</p>
 <p>Legendary food...! I've never seen this kind of grade attached to food. I should go home and make milk pudding later.</p>
 <p>Before that, I have to call Daigo Terue to my house. One of the two milk puddings I brought was Daigo Terue's.</p>
 <p>----</p>

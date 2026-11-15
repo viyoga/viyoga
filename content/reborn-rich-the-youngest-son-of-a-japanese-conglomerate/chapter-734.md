@@ -13,7 +13,7 @@ chapter = 734
 <p>"I knew you'd think that, so I took a picture beforehand~!"</p>
 <p>The picture Naruse Shiyo took with her phone looked like the entire wide field had been deeply scraped by an excavator.</p>
 <p>"The damage wasn't too bad since it's winter, but it completely ruined the whole field."</p>
-<p>With this much damage, it must be a boar monster. Probably a type of Hottachi (経立).</p>
+<p>With this much damage, it must be a boar monster. Probably a type of Hottachi.</p>
 <p>Urabe Konoka said after seeing Naruse Shiyo's picture. When the miko Urabe Konoka certified it, everyone was like, "Eh?! There really are monsters?" and started to focus on the story.</p>
 <p>"But what's a Hottachi?"</p>
 <p>"Hottachi refers to an animal that has lived for a long time and gained spiritual power, becoming a monster."</p>
@@ -34,9 +34,9 @@ chapter = 734
 <p>I wondered if I should touch it too, so I stroked the baby boar's back, and its fur was surprisingly soft. I thought it would be stiff because it was a boar. Is it because it's a baby? As I stroked the fur of the docile baby boar, a question arose.</p>
 <p>"By the way, you guys fought this cute baby boar 2-on-1?"</p>
 <p>Otagi Yuka asked Naruse Shiyo and Alik, probably thinking the same thing as me. At this level, even an average middle schooler could catch it.</p>
-<p>Of course, I adjusted the size when I summoned Hyoouri (豹瓜). If I had summoned it at its original size, this entire clubroom would have been destroyed~!</p>
+<p>Of course, I adjusted the size when I summoned Hyoouri. If I had summoned it at its original size, this entire clubroom would have been destroyed~!</p>
 <p>It seemed that Naruse Shiyo's Onmyodo skills had reached a certain level, allowing her to adjust the size when summoning shikigami.</p>
-<p>By the way, the name is Hyoouri... It seems to be a name made by taking 'Uuri (瓜)' from 'Uribo (瓜坊),' which means baby boar, and adding the 'Hyo (豹)' character for leopard, referring to the leopard pattern this monster has.</p>
+<p>By the way, the name is Hyoouri... It seems to be a name made by taking 'Uuri ' from 'Uribo,' which means baby boar, and adding the 'Hyo ' character for leopard, referring to the leopard pattern this monster has.</p>
 <p>"Originally, it was bigger than a light truck in this form."</p>
 <p>"That big?"</p>
 <p>"Yeah. It was scarier because it was cute..."</p>

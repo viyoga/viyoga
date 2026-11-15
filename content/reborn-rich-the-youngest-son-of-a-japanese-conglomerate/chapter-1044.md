@@ -5,7 +5,7 @@ weight = 1044
 chapter = 1044
 +++
 
-<p>-Changse Hon-don-ryu (創世混沌流: Creation Chaos Style) Changseong (創星: Creation Star).</p>
+<p>-Changse Hon-don-ryu (Creation Chaos Style) Changseong (Creation Star).</p>
 <p>I immediately used Changseong, the linked technique of Paseong. I immediately struck Behemoth's Solar Plexus, and I definitely felt a stronger rebound force than when I had just used Paseong. His defense had immediately risen due to the damage he received from Paseong.</p>
 <p>"Kuh-heo-eo! You can't defeat me with just this!!"</p>
 <p>Seeing Behemoth let out a painful Scream, it seemed I was inflicting damage. As if he wouldn't just keep taking hits, Behemoth approached me further, trying to grab me.</p>
@@ -15,7 +15,7 @@ chapter = 1044
 <p>Behemoth raised his Fist and brought it down on my Head. Now almost 3 meters in Size, Behemoth's opponent was so much smaller than him that most of his Hand attacks inevitably became downward strikes. Because the Size difference with his opponent was so vast, he couldn't use general Martial Arts.</p>
 <p>Even I, with a Height of over 190 cm, felt quite burdened as Behemoth grew so large. But I was waiting for Behemoth to strike down for one particular Technique.</p>
 <p>-Changse Hon-don-ryu (Creation Chaos Style) Jimaekbaldo (Earth Vein Draw).</p>
-<p>A leg technique (脚法) that used my own strength and even the power of the earth, raising my leg as if performing a draw-slash. It was meant to strike Behemoth's neck with Jimaekbaldo.</p>
+<p>A leg technique that used my own strength and even the power of the earth, raising my leg as if performing a draw-slash. It was meant to strike Behemoth's neck with Jimaekbaldo.</p>
 <p>Kwaaaang!</p>
 <p>With a tremendous roar, I used Jimaekbaldo's linked technique without looking at the Result.</p>
 <p>-Changse Hon-don-ryu (Creation Chaos Style) Gakdochamsu (Leg Blade Decapitation).</p>
@@ -63,7 +63,7 @@ chapter = 1044
 <p>This battle, too, was like the previous one with Sajo; it meant I could achieve Victory if I destroyed Behemoth's invisible Armor.</p>
 <p>As it happened, I had a Technique to shatter Armor, learned from the knack I felt while fighting Sabu.</p>
 <p>Watching Behemoth charge, I seized the Opportunity and extended my Hand.</p>
-<p>-Ryuta-aryu (竜太我流: Ryuta Self-Style) Gappa (甲破: Armor Break).</p>
+<p>-Ryuta-aryu (Ryuta Self-Style) Gappa (Armor Break).</p>
 <p>I used Gappa, a technique that only destroys the opponent's exterior, the exact opposite of the Inner Heavy Hand Method, which only destroys the opponent's interior.</p>
 <p>My extended Palm adhered to Behemoth's breast, and while the Aura that destroys Armor poured out, Behemoth remained unharmed.</p>
 <p>"Keu-heu-heu! Are you trying to give me Foreplay?!"</p>

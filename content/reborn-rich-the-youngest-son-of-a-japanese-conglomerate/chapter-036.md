@@ -42,7 +42,7 @@ chapter = 36
 <p>-Taira Ryuta: I got my driver's license, so when you come to Japan, shall we go on a trip to the beach or something? I'll take you anywhere Master wants to go.</p>
 <p>Fujigasaki Rinka liked to travel so much that she taught me a few stances and then went on a trip for a month to check if I had mastered the stances well.</p>
 <p>-Rinka-ttang☆: Hmm~! If it's that much, I'll send you a few autographs. I'll probably go to Japan this summer too.</p>
-<p>-Taira Ryuta: Ah, I changed my place of residence because of work, so send it here !</p>
+<p>-Taira Ryuta: Ah, I changed my place of residence because of work, so send it here!</p>
 <p>-Rinka-ttang☆: Okay~ See you later!</p>
 <p>"It really was Rinka-ttang...."</p>
 <p>Hanasaki Sayaka must have been peeking at me using Line, because her title changed from Rinka-nim to Rinka-ttang.</p>

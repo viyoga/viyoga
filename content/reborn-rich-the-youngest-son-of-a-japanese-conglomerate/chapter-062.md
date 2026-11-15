@@ -83,7 +83,7 @@ chapter = 62
 <p>,"Hoo....!"</p>
 <p>It was the first time I had dealt with ten people. My legs were wobbly and my back was aching, but I wasn't too worried. Regeneration would take care of the recovery. I turned on the ventilation fan that I hadn't been using. The steam that had filled the bathhouse quickly disappeared.</p>
 <p>I didn't expect to clear all the team members in the first week. I'm a crazy bastard. I looked at the bottle that was standing in the corner, with about one-tenth of its contents remaining.</p>
-<p>Dionysus's Bath Bomb [Rare Consumable]: When added to bathwater, it improves marital harmony.</p>
+<p>Dionysus's Bath Bomb "Rare Consumable": When added to bathwater, it improves marital harmony.</p>
 <p>In simple terms, it was an aphrodisiac to be added to bathwater. It didn't have a strong effect, but everyone had a crush on me, so it was a great success even without a strong effect. The excitement effect was present even in the steam, so I hadn't turned on the ventilation fan. I bought it on the black market, but I didn't expect to use it here.</p>
 <p>On the large waterbed that I had prepared an hour in advance, several women were sprawled out with ahegao expressions, and a few with good stamina were enjoying the warmth in the tub.</p>
 <p>,"Mentor-nim, come into the tub too~!"</p>

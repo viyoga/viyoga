@@ -35,7 +35,7 @@ chapter = 514
 <p>Of course, Kirie Kurayamada wouldn't make a fuss just because I revealed that I was Ryuta Taira. There was something else that would make Kirie Kurayamada make a fuss.</p>
 <p>"My mother is Korean. I'm half Korean."</p>
 <p>Eventually, Kirie Kurayamada would properly learn my identity. If Kirie Kurayamada already thought of the new PMC she was creating as my force, and then found out that I was a Zainichi Korean, I didn't know what she would do, so I was telling her in advance now. No matter how much she abandoned Jinildang's beliefs, I didn't know if she could forget what she had been thinking all along, but I was going to try to persuade her with my body this time.</p>
-<p>"Haeueeuht! T-that...! You were Zainichi (在日)? Take it out quickly...!"</p>
+<p>"Haeueeuht! T-that...! You were Zainichi? Take it out quickly...!"</p>
 <p>As expected, Kirie Kurayamada began to struggle. Because her physical stats had increased due to beastification, it really felt like I was doing rodeo, but I didn't give in and hugged Kirie Kurayamada's neck, pressing down with my body and starting to shake my waist.</p>
 <p>"What does nationality matter? Just think about the man who makes your pussy feel good."</p>
 <p>I began to indoctrinate Kirie Kurayamada by exerting the Black Miroku Art to the fullest. Of course, I didn't activate the Holy Pillar, and I began to completely soak Kirie Kurayamada in pleasure.</p>
@@ -65,7 +65,7 @@ chapter = 514
 <p>"I think he's doing well?"</p>
 <p>Even if she was a stepmother, Rena Sakagami couldn't tell Yukiko Taira that Ryuta Taira was currently living like a male lion with many lionesses, so she just glossed over it by saying he was doing well.</p>
 <p>"I'm glad he's doing well."</p>
-<p>Yukiko Taira smiled and took the scroll. It was a scroll whose hidden meaning could only be seen by those skilled in concealment techniques, but Yukiko Taira, a powerful dream demon (夢魔) who had collected many dreams, had the ability to penetrate the illusion placed on the Unique-grade item and understand its meaning. Yukiko Taira quickly realized what was making it hard for Rena Sakagami to learn the illusion. One of the two techniques recorded was concealment, but the illusion was from a different lineage than conveyance.</p>
+<p>Yukiko Taira smiled and took the scroll. It was a scroll whose hidden meaning could only be seen by those skilled in concealment techniques, but Yukiko Taira, a powerful dream demon who had collected many dreams, had the ability to penetrate the illusion placed on the Unique-grade item and understand its meaning. Yukiko Taira quickly realized what was making it hard for Rena Sakagami to learn the illusion. One of the two techniques recorded was concealment, but the illusion was from a different lineage than conveyance.</p>
 <p>"The illusion here isn't concealment. The problem was approaching it with concealment."</p>
 <p>"Ah...! It wasn't concealment?"</p>
 <p>Yukiko Taira, who quickly grasped the problem with the illusion, kindly explained it to Rena Sakagami. And she snapped her fingers as if to demonstrate.</p>

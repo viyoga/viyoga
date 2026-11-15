@@ -70,7 +70,7 @@ chapter = 819
 <p>Athena Mannerheim asked me at my words. Has she been attacking us without even knowing what was going on? Of course, Athena Mannerheim only attacked us once, but it was a bit absurd that she didn't even know the Reason.</p>
 <p>"You know that I'm a Disciple of Fujigasaki Rinka, right?"</p>
 <p>"I know that."</p>
-<p>Anya's martial art, Mumatsuanya (無末暗夜), is actually a martial art that was stolen from our school's Shinkai Yatsude. Furthermore, our school has a rule of Iija Jeonseung (一子傳承), so Takakusaki Gengo, who stole Shinkai Yatsude, was marked for assassination.</p>
+<p>Anya's martial art, Mumatsuanya, is actually a martial art that was stolen from our school's Shinkai Yatsude. Furthermore, our school has a rule of Iija Jeonseung, so Takakusaki Gengo, who stole Shinkai Yatsude, was marked for assassination.</p>
 <p>"Ah, really? I didn't know that."</p>
 <p>Athena Mannerheim's Eyes widened with an Expression that she had heard it for the first Time at my Explanation.</p>
 <p>In fact, if the martial art that is the foundation of the Sect was stolen from others, there would be no legitimacy, so it seemed that Tikakusaki Gengo had not explained at all to Anya's Disciples that he had stolen the martial arts of another school. That's why Athena Mannerheim said she heard it for the first Time.</p>

@@ -24,13 +24,13 @@ chapter = 698
 <p>"I checked my stats, so I'll check the skills too."</p>
 <p>If it were me, I would choose the trait that would give me more dopamine first, but Han Yu-gyeong was a little different. It seemed like she was the type to check and organize what she had first.</p>
 <p>Skills</p>
-<p>◆Learning Lv16 [General Skill]</p>
-<p>◆Management Lv13 [Special Skill]</p>
-<p>◆Throwing Lv12 [General Skill]</p>
-<p>◆Linguistics Lv13 [General Skill]</p>
-<p>◆Star Magic Lv11 [Unique Legacy+ Skill]</p>
-<p>◆Command Lv6 [Rare Skill]</p>
-<p>◆Knowledge of the Demonic Path (魔道知識) Lv3 [Epic Skill]: Understanding of those who have walked the Demonic Path (魔道). The more you learn, the greater the positive impact on your magic.</p>
+<p>◆Learning Lv16 "General Skill"</p>
+<p>◆Management Lv13 "Special Skill"</p>
+<p>◆Throwing Lv12 "General Skill"</p>
+<p>◆Linguistics Lv13 "General Skill"</p>
+<p>◆Star Magic Lv11 "Unique Legacy+ Skill"</p>
+<p>◆Command Lv6 "Rare Skill"</p>
+<p>◆Knowledge of the Demonic Path Lv3 "Epic Skill": Understanding of those who have walked the Demonic Path. The more you learn, the greater the positive impact on your magic.</p>
 <p>There were considerable changes in the skills as well. The levels of the original skills increased, and the Linguistics skill, which was divided into Linguistics - English and Linguistics - Japanese, was merged into one.</p>
 <p>Usually, when you learn three languages ​​excluding your native language, they are merged into Linguistics. It seemed like she was learning one more language from another country. I wonder which country's language she learned.</p>
 <p>And a skill called Knowledge of the Demonic Path appeared, but since Han Yu-gyeong is a magician class, it seemed like she naturally acquired the skill while using magic.</p>
@@ -59,7 +59,7 @@ chapter = 698
 <p>Except for the Star Spirit Seong Baek-gyeon White Bear, who can blink, Han Yu-gyeong had no or limited return function, so it was quite useful.</p>
 <p>The Shadow Panther Nero can quickly return to Han Yu-gyeong by moving through the shadows, but it took a lot of time compared to the Summon Minions trait, and the Grizzly Spirit Teddy had to go far and return on his own.</p>
 <p>"Then I'll choose Summon Minions."</p>
-<p>◆Summon Minions [Unique+ Trait]: Summons minions contracted with you. This summons ignores spatial constraints.</p>
+<p>◆Summon Minions "Unique+ Trait": Summons minions contracted with you. This summons ignores spatial constraints.</p>
 <p>The grade was quite high for a trait that summons minions, but this was because the condition that it ignores spatial constraints was attached.</p>
 <p>With this, Han Yu-gyeong could also work as an excellent assassin.</p>
 <p>After sending the minion, if the minion deals with the target, you can bring it back with Summon Minions, so you can prove your alibi, and if you are attacked by Nero or Teddy, anyone would think that the wound was caused by a wild animal.</p>
@@ -87,9 +87,9 @@ chapter = 698
 <p>"You can buy night vision goggles or binoculars for Owl's Eyes, so I'll choose Starlight Veil."</p>
 <p>"Okay. I thought Starlight Veil would be better than Owl's Eyes too."</p>
 <p>According to Han Yu-gyeong's choice, I chose Starlight Veil.</p>
-<p>◆Starlight Veil [Unique Trait]: A trait that can only be obtained by those with the Blessing of the Stars trait. Surrounds the caster with a starlight veil, increasing all mental stats by 2 and treating the surrounding environment as 'Starry Night'. ON/OFF trait.</p>
+<p>◆Starlight Veil "Unique Trait": A trait that can only be obtained by those with the Blessing of the Stars trait. Surrounds the caster with a starlight veil, increasing all mental stats by 2 and treating the surrounding environment as 'Starry Night'. ON/OFF trait.</p>
 <p>Starlight Veil was an on/off trait like my Holy Pillar, but it was a trait that was not understood with this trait alone. It can be said that it is treated as a starry night, but if you look at the Blessing of the Stars trait, which is a prerequisite for Starlight Veil, you can understand it immediately.</p>
-<p>◆Blessing of the Stars [Unique Trait]: A trait that can only be obtained by Star Magic users. Star Magic's power is increased by 50 percent and mental power consumption is reduced by 30 percent on starry nights. Concentration, Willpower, Judgment, and Luck stats are increased by 2.</p>
+<p>◆Blessing of the Stars "Unique Trait": A trait that can only be obtained by Star Magic users. Star Magic's power is increased by 50 percent and mental power consumption is reduced by 30 percent on starry nights. Concentration, Willpower, Judgment, and Luck stats are increased by 2.</p>
 <p>It was a trait that allowed you to always obtain the 50 percent increase in Star Magic power and 30 percent reduction in mental power consumption that you can only obtain on starry nights with the Blessing of the Stars, and pumped up your mental stats.</p>
 <p>"...That's the kind of trait it is."</p>
 <p>"Ah, it's a trait that's linked to something? Then shall we turn on this thing called Starlight Veil?"</p>

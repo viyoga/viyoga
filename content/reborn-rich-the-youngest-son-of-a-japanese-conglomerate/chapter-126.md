@@ -69,7 +69,7 @@ chapter = 126
 <p>209 Psychic Hunter: I haven't heard of a shrine in such a place?</p>
 <p>210 Anonymous: A shrine deep in Jukai... I only have bad feelings.</p>
 <p>211 Verdi Fan: It's better not to go. It's really dangerous.</p>
-<p>212 Anonymous: If that's the case, there's probably a cult shrine called Shirashira (白白). It's a famous cult on mystery channels.</p>
+<p>212 Anonymous: If that's the case, there's probably a cult shrine called Shirashira. It's a famous cult on mystery channels.</p>
 <p>,Shirashira? Hmm...! That's a strange name."</p>
 <p>,It seems like there really is a cult, just like Kiyohira-nim's note said."</p>
 <p>The distance of 4 kilometers would take about 1 hour if you walked slowly, but you could go in 15 minutes if you ran quickly.</p>

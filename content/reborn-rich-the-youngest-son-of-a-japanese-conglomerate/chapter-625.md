@@ -31,7 +31,7 @@ chapter = 625
 <p>I wasn't brazen enough to open and read the newspaper in front of the school gate with my picture plastered on the front page, so I took the newspaper and headed to the education preparation room.</p>
 <p>I entered the education preparation room and checked the fax first rather than the newspaper. Hmm, there wasn't anything in particular to report. Just a story about how there are many students staying at school until late because of festival preparations, but they should go home by at least 8 o'clock?</p>
 <p>After checking the fax, I sat down and opened the newspaper. I need to check what kind of content they're using to put out breaking news.</p>
-<p>-One of the most talked-about topics at the upcoming St. Francisco Girls' Academy festival, the Seongsan Festival (聖山祭:Seezansai), will be the new club, the Date Experience Club.</p>
+<p>-One of the most talked-about topics at the upcoming St. Francisco Girls' Academy festival, the Seongsan Festival (Seezansai), will be the new club, the Date Experience Club.</p>
 <p>There has been steady interest in what the Date Experience Club, with its provocative name, will showcase at this festival, and this reporter's coverage has revealed the truth.</p>
 <p>What the Date Experience Club will showcase at the festival is an anthology. According to a reliable source, it contains a wealth of information on the date courses that the Date Experience Club has experienced during the last semester, as well as recommended outfits and movie genres for dates.</p>
 <p>Although it was an anthology full of information and data, it could not be denied that it was a slightly disappointing and small result for a club that is currently the center of attention at St. Francisco Girls' Academy.</p>

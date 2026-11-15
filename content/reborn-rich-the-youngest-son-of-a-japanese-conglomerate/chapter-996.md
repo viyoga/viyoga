@@ -50,7 +50,7 @@ chapter = 996
 <p>In front of Taira Saburo's Tombstone, in the vase for Flowers, there were already Flowers. I thought it might have been the veiled Woman who had just passed by, but even though it was a bit late, it was a Date close to Taira Saburo's death anniversary, so I concluded that someone like us, who had missed the Timing, must have placed the Flowers.</p>
 <p>Normally, when visiting a grave in Japan, one cleans the soiled Tombstone and offers a joint Prayer, but perhaps because the grave caretakers managed it well, we formally poured clear Water over the Tombstone, concluding the Tombstone cleaning Procedure and offering a joint Prayer.</p>
 <p>In fact, I didn't have much to say to Taira Saburo. Looking at how he assigned Fujigasaki Rinka to me as a Sabu when I was young, or how he continuously sent me Money, it doesn't seem like he completely neglected me, but from the perspective of someone with a Blood connection, I knew that wasn't all, so I had nothing particular to say. Ultimately, only by directly giving Love and raising a Child does one truly feel like a Parent.</p>
-<p>「May you rest in peace. I will take Responsibility for Yukiko.」</p>
+<p>"May you rest in peace. I will take Responsibility for Yukiko."</p>
 <p>With slightly unfilial Thoughts, I finished the ancestor worship and unclasped my Hands. Yukiko and Nagumo Sian also seemed to have finished their ancestor worship, unclasped their Hands, and without a Word, looked at Taira Saburo's grave.</p>
 <p>"Let's go down now."</p>
 <p>"Let's do that."</p>

@@ -41,9 +41,9 @@ chapter = 601
 <p>"That's right, I also believe that Han Yu-gyeong-ssi will do well."</p>
 <p>As I am in Japan now, all I can do for Han Yu-gyeong is to cheer her on, but I thought she would do well.</p>
 <p>###</p>
-<p>Shin Kang House (新强屋)</p>
-<p>Originally, it was a small Korean-style house where Han Mun-shin and Han Mun-gang, the founders of the Shin Kang Group, lived and worked together. The pronunciation of Shin Kang House (申强屋) was the same, but it had a different name in Chinese characters.</p>
-<p>However, when his younger brother Han Mun-gang took over the company from Han Mun-shin and gained full control, he tore down the original small residence and built a large Western-style house in its place, even changing the character from Shin (申), representing his older brother Han Mun-shin, to Shin (新), erasing all connections to his older brother Han Mun-shin.</p>
+<p>Shin Kang House </p>
+<p>Originally, it was a small Korean-style house where Han Mun-shin and Han Mun-gang, the founders of the Shin Kang Group, lived and worked together. The pronunciation of Shin Kang House was the same, but it had a different name in Chinese characters.</p>
+<p>However, when his younger brother Han Mun-gang took over the company from Han Mun-shin and gained full control, he tore down the original small residence and built a large Western-style house in its place, even changing the character from Shin, representing his older brother Han Mun-shin, to Shin, erasing all connections to his older brother Han Mun-shin.</p>
 <p>"As expected of Yu-gyeong! Top of her class at Korea University! I thought she only had a head for studying, but she's got a head for business too!"</p>
 <p>The quiet meal time was broken by the words of Han Byeong-jae, the eldest son of Han Mun-gang. Han Byeong-jae was the president of Shin Kang Steel, which supplies steel materials to Shin Kang Defense, the parent company of the Shin Kang Group, as well as several small affiliates, and there were few who did not fear him because of his ruthless and sharp demeanor, which was different from his light words and actions.</p>
 <p>"Thank you, Great Uncle."</p>
@@ -62,7 +62,7 @@ chapter = 601
 <p>Han Yu-gyeong replied to Han Gyeong-jae's words with a sharp attitude. In fact, as Han Yu-gyeong said, there were not many young managers who had achieved as much as Han Yu-gyeong recently.</p>
 <p>She had created TG Tech, a company that was attracting attention from the world, with her bare hands without receiving any support from the group, so it could be said that she had achieved very outstanding results. So Han Gyeong-jae couldn't name anyone in response to Han Yu-gyeong's words.</p>
 <p>"You! What kind of attitude is that towards your uncle?"</p>
-<p>Han Mun-gang's fourth daughter, Han Seong-hee, who had been eating quietly, spoke sharply to Han Yu-gyeong. Han Seong-hee was responsible for the cosmetics business under the Shin Kang Group called Yusu (柳水), and she was content with the cosmetics business because of Han Mun-gang's belief that important work should not be entrusted to women. However, she felt jealous when Han Yu-gyeong's TG Tech gained a lot of attention.</p>
+<p>Han Mun-gang's fourth daughter, Han Seong-hee, who had been eating quietly, spoke sharply to Han Yu-gyeong. Han Seong-hee was responsible for the cosmetics business under the Shin Kang Group called Yusu, and she was content with the cosmetics business because of Han Mun-gang's belief that important work should not be entrusted to women. However, she felt jealous when Han Yu-gyeong's TG Tech gained a lot of attention.</p>
 <p>"Then, Aunt, would you be able to stand still if you were told to hand over the cosmetics business to someone else without any compensation?"</p>
 <p>"...."</p>
 <p>Han Seong-hee couldn't say anything in response to Han Yu-gyeong's words. Han Yu-gyeong looked around the room and continued to speak.</p>

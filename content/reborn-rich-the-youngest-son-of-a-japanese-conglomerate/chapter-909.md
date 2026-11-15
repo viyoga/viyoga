@@ -36,7 +36,7 @@ chapter = 909
 <p>His Mother who abandoned him in childhood, his Father who neglected him under the pretext of martial arts Training, losing his Father before his Eyes, and failing to become the successor of Shinkai Yatsude, all constituted Takakusaki Gengo's own Despair.</p>
 <p>After stealing Shinkai Yatsude and becoming an Adult, Takakusaki Gengo now became a being who spread Despair to others, not just himself.</p>
 <p>He killed countless people under the pretext of martial arts perfection, joined the Japanese Special Mission Unit and carried out Assassinations using the World War, and after the war, he created Anyaji and became a being who spread Despair to countless people through Kidnapping and Murder.</p>
-<p>Furthermore, the martial art he created himself was called Mumatsu Anya (無末暗夜). It meant 'Endless Dark Night,' but if 'Dark Night' were replaced with 'Despair,' it would resemble his current name, Endless Despair.</p>
+<p>Furthermore, the martial art he created himself was called Mumatsu Anya. It meant 'Endless Dark Night,' but if 'Dark Night' were replaced with 'Despair,' it would resemble his current name, Endless Despair.</p>
 <p>Takakusaki Gengo had truly become a being befitting the name Endless Despair, but I had to sever that Despair here. Otherwise, those who felt Despair would be me and the people I cherished.</p>
 <p>"Can you do it?"</p>
 <p>Fujigasaki Rinka asked softly. What did she mean?</p>
@@ -69,7 +69,7 @@ chapter = 909
 <p>"Then why don't you change your name to Endless Disappointment?"</p>
 <p>When it said our Attack was weak and disappointing, I shouted again and continued my Attack. There were several Methods to deal with an enemy possessing regeneration Ability: either inflicting such massive Damage that its regeneration couldn't keep up, or fighting until its regeneration Ability was exhausted, and finally, eliminating its regeneration Ability with debuffs or similar effects.</p>
 <p>The first seemed impossible, and while the second seemed possible, we might get exhausted first.</p>
-<p>There were several approaches for the final method, and the main debuff that stopped regeneration was Mithril. Shimokawabe Airen's sword, Kamiwa (神和), was a Sword Ichi-monji Harugoro crafted by embedding Mithril. The investment made in preparation for today didn’t seem to have been wasted.</p>
+<p>There were several approaches for the final method, and the main debuff that stopped regeneration was Mithril. Shimokawabe Airen's sword, Kamiwa, was a Sword Ichi-monji Harugoro crafted by embedding Mithril. The investment made in preparation for today didn’t seem to have been wasted.</p>
 <p>"Mithril has the Ability to prevent regeneration, so please aim for direct Attacks!"</p>
 <p>In this fight, a basic Attack seemed more effective than Shimokawabe Airen's unique space-cleaving Aura.</p>
 <p>-Do you think such trivial Attacks can reach me? Until now, I merely allowed them to hit me to gauge your Capabilities and to give you Despair.</p>

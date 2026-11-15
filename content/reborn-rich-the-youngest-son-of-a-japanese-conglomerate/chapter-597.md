@@ -18,7 +18,7 @@ chapter = 597
 <p>If I hadn't mitigated the explosion damage with my Spectral Skin Trait, it would have surely been a fatal blow. As I was confused whether it was good or not that my Will Stat was so high that I didn't faint even with extreme pain, I saw missiles being fired at Shimokawabe Airen.</p>
 <p>Shimokawabe Airen, without fear, aimed towards the missiles flying at her.</p>
 <p>And then, calmly and gently, she moved her Sword Tip.</p>
-<p>Kashima Kiichi Shinto-ryu (鹿島鬼一神道流) Sakurakaben-nagashi (桜花弁流し: Cherry Blossom Petal Stream) With her Sword Tip, Shimokawabe Airen diverted the missiles' trajectories, scattering them around her. With a Kwangkwangkwang! roar, nearby parked vehicles exploded, and the asphalt Road burst apart.</p>
+<p>Kashima Kiichi Shinto-ryu Sakurakaben-nagashi (Cherry Blossom Petal Stream) With her Sword Tip, Shimokawabe Airen diverted the missiles' trajectories, scattering them around her. With a Kwangkwangkwang! roar, nearby parked vehicles exploded, and the asphalt Road burst apart.</p>
 <p>Amazing, isn't it? To change the trajectory of missiles, not even bullets or arrows, with a Sword Tip-it was an art that could absolutely not be seen easily.</p>
 <p>In the meantime, my regeneration was complete, and I could move again. Despite the previous failure, I once again used Telekinesis and flew up.</p>
 <p>Until just now, I had only been able to jump up with my Body's power and hover in empty space, but now I could smoothly lift off the ground and fly into the empty space. It must be thanks to getting a little more accustomed to telekinetic Flight than before.</p>
@@ -26,10 +26,10 @@ chapter = 597
 <p>At Shimokawabe Airen's words, I applied the Telekinetic Reaction Shield to create a few footholds above her. Since it looked slightly refracted, she would be able to jump up using the shield as a foothold. She seemed to be about to jump into empty space and use some grand technique.</p>
 <p>Then, I should time my attack on its weakness with Shimokawabe Airen's strike. My target was precisely the area between the robot zombie's neck bone and breast. Since a cyber-zombified pilot would be inside, dealing with the pilot would stop this robot zombie.</p>
 <p>Using the telekinetic footholds, Shimokawabe Airen jumped into the empty space. With half-opened eyes, she gazed at the giant robot zombie's breast, then swung her sword widely.</p>
-<p>Kashima Kiichi Shinto-ryu (鹿島鬼一神道流) Secret Technique (秘技) Mitsuru Gekkoo Kuukankire (滿月光空間切: Full Moon Light Space Slash). Shimokawabe Airen unleashed a gigantic bluish Geomgi, like a full moon.</p>
+<p>Kashima Kiichi Shinto-ryu Secret Technique Mitsuru Gekkoo Kuukankire (Full Moon Light Space Slash). Shimokawabe Airen unleashed a gigantic bluish Geomgi, like a full moon.</p>
 <p>Shimokawabe Airen's Geomgi was, just in time, splitting the robot zombie's breast, which I was about to attack. Its power was immense, unlike anything before. Unlike previous sword strikes that had only scratched, the armor was now tearing away, and internal parts were being ground to pieces.</p>
 <p>I flew directly behind the Geomgi and extended my fist. Towards the cockpit where the cyber zombie pilot was, I struck with a fist full of Abyss.</p>
-<p>Shinkaiyatsude (深海八手) One Touch Becomes Ten Thousand Branches (一触化万支). The Abyss in my fist, upon touching the damaged breast of the robot, instantly began to split into thousands, then tens of thousands.</p>
+<p>Shinkaiyatsude One Touch Becomes Ten Thousand Branches. The Abyss in my fist, upon touching the damaged breast of the robot, instantly began to split into thousands, then tens of thousands.</p>
 <p>The Abyss, split into tens of thousands, followed the myriad wires and Neural Pathways inside the robot, destroying its interior and reaching the zombified pilot sitting in the cockpit.</p>
 <p>The zombie pilot's body, where the Abyss had penetrated, began to burst and collapse from its fingertips. With no Fading Reason left, only aggression remaining, the cyber zombie pilot trembled like Crazy, but in less than a second, all the Blood Vessels in its Body burst, and it died.</p>
 <p>Naturally, since control signals were no longer received by the robot, it had no choice but to stop its Rhythmic Motion on its own. While it was partly due to the significant damage to the robot's internal Neural Pathways by Isshoku-ga-ichimanshi, the biggest factor was still the pilot's Death.</p>
@@ -58,7 +58,7 @@ chapter = 597
 <p>Ah...! That's right. After being hit by missiles, my cyber Suit and even the Clothes I wore underneath had all burned away. I had completely forgotten I was a naked body, perhaps because it was too comfortable (?). By the way, every time a big battle happens, it's not like I'm a Female Character, yet a naked body Service scene appears... Next time, I should wear Clothes that don't get damaged easily.</p>
 <p>"I'm sorry. I forgot while fighting."</p>
 <p>"It's okay. Since you were caught in that explosion, it couldn't be helped."</p>
-<p>I apologized to Shimokawabe Airen, crossed my Legs, and forcibly covered my thick Johnson as I continued driving. Is there no big cyber zombie wearing Clothes that fit my Size somewhere...? The fact that the zombies that swarmed the Downtown Area were no longer visible was almost disappointing now.</p>
+<p>I apologized to Shimokawabe Airen, crossed my Legs, and forcibly covered my thick dick as I continued driving. Is there no big cyber zombie wearing Clothes that fit my Size somewhere...? The fact that the zombies that swarmed the Downtown Area were no longer visible was almost disappointing now.</p>
 <p>"...."</p>
 <p>"...."</p>
 <p>We had no choice but to drive quietly down the zombie-free Road in Silence.</p>

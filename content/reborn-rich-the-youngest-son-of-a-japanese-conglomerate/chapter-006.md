@@ -18,8 +18,8 @@ chapter = 6
 <p>However, it's a shame that my charm is low compared to my appearance. Usually, appearance and charm are proportional, but it seems my charm can't keep up with my looks.</p>
 <p>For reference, appearance in the physical category and knowledge in the mental category couldn't be raised with level-up points. Appearance had to be improved with elixirs or surgery, and knowledge could only be increased through learning. In the case of knowledge, if you had cyberware installed, you could easily increase it through downloads.</p>
 <p>And what's this Shinkai Yatsude in the skills section? When I focused on Shinkai Yatsude, a semi-transparent explanation window popped up about Shinkai Yatsude.</p>
-<p>◆Shinkai Yatsude (Deep Sea Eight Hands) [Mythic Martial Art]</p>
-<p>Sato Gen , a fisherman from Tateyama, boarded a deep-sea fishing vessel and, while intoxicated on drugs, had a dream in the middle of the Pacific Ocean.</p>
+<p>◆Shinkai Yatsude (Deep Sea Eight Hands) "Mythic Martial Art"</p>
+<p>Sato Gen, a fisherman from Tateyama, boarded a deep-sea fishing vessel and, while intoxicated on drugs, had a dream in the middle of the Pacific Ocean.</p>
 <p>He saw an octopus god sitting on a throne in a city made of stone in the deep sea, too deep for anyone to reach. Startled, Sato Gen asked, "Who is the Great One?" The octopus god simply said, "Amazing," and pierced Sato Gen's forehead with its tentacle. At that moment, Sato Gen realized several truths.</p>
 <p>Awakening from his dream, Sato Gen caused an uncontrollable ruckus, claiming he had learned martial arts from the deep-sea octopus god and declaring he was no longer a fisherman and would not work.</p>
 <p>Dozens of fellow fishermen could not tolerate Sato Gen's sudden declaration in the middle of the ocean that he would not work and attempted to lynch him.</p>
@@ -28,7 +28,7 @@ chapter = 6
 <p>.... Isn't this completely Lovecraftian? Come to think of it, Jin Yong-tae was bullied for being a Zainichi Korean, and he learned martial arts to overcome that. But what kind of scary martial art did he learn? But if he had just learned normal-grade karate, I would have cursed him.</p>
 <p>Still, at this level, I don't need to worry about close combat. If it's mythic-grade, the performance is guaranteed. Jin Yong-tae was a lucky pull. If you get this in a random mode in a megacorp's youngest son game, you're completely blessed.</p>
 <p>More importantly, I need to take the Cheonhwang Pill now. After shouting "Status," when I focused on the item I was holding, a semi-transparent window appeared.</p>
-<p>◆Cheonhwang Pill [Legendary Elixir]</p>
+<p>◆Cheonhwang Pill "Legendary Elixir"</p>
 <p>An elixir containing the power of Guardian King Dhritarashtra. Randomly increases physical stats by 1-7. Grants the Regeneration trait. Breaks the limits of physical stats. +1</p>
 <p>Definitely. I put the Cheonhwang Pill in my mouth. And I lost consciousness.</p>
 <p>###</p>
@@ -44,7 +44,7 @@ chapter = 6
 <p>Trait</p>
 <p>Regeneration</p>
 <p>Strength increased by 6, Agility by 3, Stamina by 7, Resistance by 4, Recovery by 5, Nerves by 7, and Appearance by 5. It increases from 1 to 7, so this is lucky. The smallest increase is 3, after all. I feel good. Plus, I even got the Regeneration I was originally hoping for.</p>
-<p>◆Regeneration [Growth Trait]</p>
+<p>◆Regeneration "Growth Trait"</p>
 <p>The ability to repair injuries. Given enough time, it can repair even missing body parts.</p>
 <p>It's a short description, but I still felt good. It also applies when training my body, so it's the perfect trait for physical stats.</p>
 <p>Let's go out and buy some clothes. I was already in the late 170s cm, which isn't short in Japan, but now I seem to be at least in the mid-to-late 180s cm. What should I tell my mom? Should I say the samgyetang was effective? Speaking of samgyetang, I want some again.</p>
@@ -66,7 +66,7 @@ chapter = 6
 <p>"It was self-defense."</p>
 <p>I just exercised my right to self-defense against a gun. I hypnotized myself. I tore the clothes I was wearing into shreds with my enhanced strength. And I scattered them little by little as I came down the mountain. The bullet gradually came out of the wound and fell onto the snowy field as the gunshot wound slowly healed due to the Regeneration trait.</p>
 <p>I immediately took a bus to Seoul and opened the wooden box. It was a green liquid in a small glass bottle.</p>
-<p>◆Mental Enhancer Prototype [Artificial Elixir]</p>
+<p>◆Mental Enhancer Prototype "Artificial Elixir"</p>
 <p>Increases Willpower by 2-4 and Focus by 1-3.</p>
 <p>The increase was insignificant compared to the Cheonhwang Pill, but elixirs that increase mental stats were rare, so it was a valuable item. I opened the lid and drank it straight away. It wasn't made with taste in mind because it was a prototype, so it didn't taste good. Will increasing my willpower help me overcome this guilt of killing someone?</p>
 <p>I felt the elixir's energy boiling in my stomach and forced myself to sleep, feeling the bus's regular vibrations at the same time.</p>

@@ -48,7 +48,7 @@ chapter = 773
 <p>Although nothing was likely to happen, it was reassuring that there was at least one skilled person in each room. And since the Rooms weren't far apart, we could quickly go to help if needed.</p>
 <p>Of course, the Probability of anything happening at a Resort like this was almost zero, but recently, a few unexpected Accidents had occurred in situations with almost no Probability, which had made me a little on edge.</p>
 <p>"Shall we go eat now?"</p>
-<p>We immediately went to the restaurant on the first floor. The restaurant, called Seolhwa (雪花, Snow Flower), was a fusion place offering a mix of Western and Japanese dishes.</p>
+<p>We immediately went to the restaurant on the first floor. The restaurant, called Seolhwa (Snow Flower), was a fusion place offering a mix of Western and Japanese dishes.</p>
 <p>"Welcome. We will guide you to your table."</p>
 <p>As we entered, a Clerk guided us to a large Table. It was a long Dining table, like one from a Lord's Castle in a movie, and it was more than enough to seat all 13 Members of the special class Party.</p>
 <p>"The main menu offers a choice of lobster, wagyu Steak, or Fish Steak...."</p>

@@ -38,8 +38,8 @@ chapter = 838
 <p>"Have you come?" The muscular, massive blacksmith old man, Ichimonji Harugoro, greeted us briefly as he looked at us.</p>
 <p>"Let's get straight to the point. First, the three who want spare swords, step forward." Just as I thought earlier, the idea of making spare swords from his Weapons seemed to have provoked Ichimonji Harugoro's Pride.</p>
 <p>"Alik, go first."</p>
-<p>"Understood, Ryuta." I sent Alik ahead first. A long bag was slung across Alik's back, and inside it was Alik's sword, Aohamahikireki (靑天霹靂). Alik approached Ichimonji Harugoro and took Aohamahikireki out of her Bag. Unconsciously, I was concentrating on the sword, and Aohamahikireki's Info Window appeared before my Eyes. ◆Aohamahikireki (Blue Sky Thunderclap) [Legendary Sword]</p>
-<p>A weapon that came from another dimension. It is the cherished weapon of Li Qingyun (李清雲), a legendary master of the Jin Empire, and when lightning energy (雷氣) is infused into it, its blade turns into lightning.</p>
+<p>"Understood, Ryuta." I sent Alik ahead first. A long bag was slung across Alik's back, and inside it was Alik's sword, Aohamahikireki. Alik approached Ichimonji Harugoro and took Aohamahikireki out of her Bag. Unconsciously, I was concentrating on the sword, and Aohamahikireki's Info Window appeared before my Eyes. ◆Aohamahikireki (Blue Sky Thunderclap) "Legendary Sword"</p>
+<p>A weapon that came from another dimension. It is the cherished weapon of Li Qingyun, a legendary master of the Jin Empire, and when lightning energy is infused into it, its blade turns into lightning.</p>
 <p>The countless merits and deeds accumulated with its former owner bestow special Power upon the User.</p>
 <p>●Lightning Affinity+</p>
 <p>●Deals extra damage to Dark, Blood, and Chaos attributes.</p>

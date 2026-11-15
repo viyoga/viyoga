@@ -62,7 +62,7 @@ chapter = 74
 <p>Arisu: Sorry! The filming is delayed (｡•́︿•̀｡) Are you just going to go today?</p>
 <p>After a desperate sex with Group 74 plus alpha, I rested in the hotel and ate room service that would help me recover as much as possible, and I was waiting for a short date with Arisu, but an hour before the appointment time, I received a line from Arisu.</p>
 <p>Taira Ryuta: Can I stop by the filming location for a while just to see your face?</p>
-<p>Arisu: Really? I wanted to see Ryuta too, so it would be nice if you came. I felt bad because I didn’t think we could go on a date. (っ´ω`)ﾉ(╥ω╥)</p>
+<p>Arisu: Really? I wanted to see Ryuta too, so it would be nice if you came. I felt bad because I didn’t think we could go on a date. (╥ω╥)</p>
 <p>I can't help it. The original plan was to enjoy a late-night date and do it with Arisu once or twice, but today I was too tired for sex, so I was actually happy that the filming was delayed. But I have now completely made Group 74 and the rest on my side, so I was able to get a rough idea of the information of other subsidiaries.</p>
 <p>Taira Ryuta: By the way, what kind of filming is it today?</p>
 <p>Arisu: It's a mobile game commercial shoot, and I'm playing the role of an elf~!!(◕ᴗ◕✿)</p>

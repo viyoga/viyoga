@@ -20,7 +20,7 @@ chapter = 885
 <p>"No further discussion!"</p>
 <p>Otagi Yuka no longer wanted to exchange Words with Kamishirato Manzo. Just as she had suffered, unexpected things could also be happening in other battlefields. She felt she needed to deal with Kamishirato Manzo as quickly as possible and go Help her Friends and comrades.</p>
 <p>"Just as you said, I'll show you the Race difference."</p>
-<p>-Otagi-ryu Blood Energy Sorcery (愛宕流 血気 呪術) Blood Thousand Darts (血千鏢).</p>
+<p>-Otagi-ryu Blood Energy Sorcery Blood Thousand Darts.</p>
 <p>As Otagi Yuka chanted a spell with hand seals, one headless Experiment's Corpse burst apart, and countless Blood Darts were shot at Kamishirato Manzo.</p>
 <p>"Keueut!" Kamishirato Manzo was wearing bone Armor, so he didn't take proper Damage, but the Blood, which had been as hard as Darts, had somehow turned into a Liquid and seeped into his bone Armor.</p>
 <p>"Is this all you've got? Even without mere Experiments, I have countless methods...!"</p>
@@ -49,7 +49,7 @@ chapter = 885
 <p>-Geuooooo...! Dodging the suddenly protruding tentacles, Otagi Yuka stabbed one pupil. The monster began to writhe madly as if salt had been sprinkled on a pile of earthworms. Indeed, just as Kurayamada Kirie had said, the pupils were its weakness.</p>
 <p>Kwaaang! But as the monster writhed, Otagi Yuka was pierced and flung away by a tentacle it struck out convulsively. But Kurayamada Kirie felt that now was, on the contrary, an Opportunity.</p>
 <p>The monster, like a newborn animal, couldn't properly control its tentacles. Because it only moved one tentacle at a time, now that it had attacked Otagi Yuka, she thought she had to inflict another critical hit. Kurayamada Kirie drew back her Sword and took a stance.</p>
-<p>Divine Heaven Sword Form Style (神天劍形流) - Kirie Style (桐愛式) Black Wolf Flash (黑狼閃).</p>
+<p>Divine Heaven Sword Form Style - Kirie Style Black Wolf Flash.</p>
 <p>Black Aura, a powerful horizontal slash, as if to cleave Heaven and Earth. No matter how much the monster was reducing physical force with slime, Kurayamada Kirie's Sword Kazuma was a Magic Sword made from the Claws of her Father, Kurayama Kazuma, who had become an Avatar of an Outer God. At Kurayamada Kirie's sincere strike, the tentacles split apart as if thickets were severed, and one of the pupils within also burst.</p>
 <p>"Haa, haa... Sorry, I'll step out for a moment...!" Kurayamada Kirie, who had consumed an enormous amount of Energy with this slash, temporarily withdrew from the Battle formation. Although it would be good to Help Saionji Diana, who was left alone, in her current state, it was obvious she would only be a hindrance. Her judgment was that it would be better to recover as quickly as possible and then Help.</p>
 <p>Saionji Diana continued to watch the last remaining pupil of the monster. She sheathed the Katana on her back. And in the opposite thigh cybernetic implant, where Barracuda was not, she opened the cybernetic implant on her opposite thigh and took out the remaining small throwing Bombs. Four in total. She wondered if she could kill this monster with these, but she had no Choice but to do it.</p>

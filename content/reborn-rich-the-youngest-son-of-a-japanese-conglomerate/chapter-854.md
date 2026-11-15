@@ -32,7 +32,7 @@ chapter = 854
 <p>At the end of the bow limb, made by layering synthetic glass fiber and various advanced new materials, there was a powerful auxiliary device with a motor to boost the bow's power, and the set included three bowstrings made from mithril fiber, including spares.</p>
 <p>Not only the Bow, but also about twenty Arrows were included, all expensive Items with special arrowheads.</p>
 <p>Urabe Konoka, as if possessed, strung the Bowstring onto the Bow limb without me even telling her to. As the Bow was properly assembled, a translucent Info Window appeared before my Eyes.</p>
-<p>◆B &amp;C_Battle Assault 54A0010D [Unique Bow]</p>
+<p>◆B &amp;C_Battle Assault 54A0010D "Unique Bow"</p>
 <p>The Battle Assault, a top-tier Actual combat model made by Bow &amp; Cross Co. It is the tenth model created in 2054. Despite having an auxiliary Device, it requires powerful strength for actual combat and is evaluated as having the strongest power and range among all Bows released to date.</p>
 <p>□Strength Limit: 10</p>
 <p>●Range Increase+</p>
@@ -54,14 +54,14 @@ chapter = 854
 <p>Since there was no Place in my Home to shoot a Bow, Urabe Konoka couldn't shoot it directly here. Also, all the Arrows were special Arrows, so if she shot them here, the Home wouldn't be intact.</p>
 <p>Next was the Gift for Konoe Akina. I handed the relatively much smaller Box to Konoe Akina.</p>
 <p>Konoe Akina opened the Box with an excited, expectant Expression, and inside the Box, there was a lot of bubble wrap Cushioning Material to prevent the Glasses from breaking. The Glasses weren't directly inside the Cushioning Material, but in a Glasses case, and when I opened the Glasses case, I found round-framed Glasses inside.</p>
-<p>◆Optical Amplifier [Legacy+ Glasses/ Accessory]</p>
+<p>◆Optical Amplifier "Legacy+ Glasses/ Accessory"</p>
 <p>Glasses used by an unknown Maan user in the Early Modern Age, who commissioned the most skilled alchemist of the time to create them. The Maan user, who left no name, was killed by an Assassin from a secret society due to abusing their Maan. These Glasses were buried with the Maan user in their coffin.</p>
 <p>These Glasses were legendary among Maan users, but if worn by someone without Maan, they are just ordinary Glasses.</p>
 <p>●Maan Ability Power increase, Maan Ability Energy consumption decrease, Maan Ability Range increase.</p>
 <p>●Eyesight increase. If you concentrate your Mind, you can consume Mental Power to see through Obstacles.</p>
 <p>●All Eye Traits, including Maan+</p>
 <p>...Indeed, I was hesitant because it looked so common, but I had bought the right one. As expected, it was an Item option that Maan-Trait gamers would consider a holy relic.</p>
-<p>Every single option was invaluable, and especially the second option, obstacles see through , was a fraudulent option that solved the weakness of Maan users who rely on their Field of Vision. Originally, no matter how terrifying the power of Maan, it would be useless if one hid behind a Wall, but the second option completely eliminated that weakness.</p>
+<p>Every single option was invaluable, and especially the second option, obstacles see through, was a fraudulent option that solved the weakness of Maan users who rely on their Field of Vision. Originally, no matter how terrifying the power of Maan, it would be useless if one hid behind a Wall, but the second option completely eliminated that weakness.</p>
 <p>"...These are Glasses with such options."</p>
 <p>"There were such Glasses?"</p>
 <p>When I explained the options, Konoe Akina asked back in surprise. She seemed surprised that such Abilities existed, as they looked like ordinary Glasses.</p>

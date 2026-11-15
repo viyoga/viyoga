@@ -9,7 +9,7 @@ chapter = 1109
 <p>Taira Ichiro continued speaking, as if the apology wasn't ending there.</p>
 <p>"It's hardly compensation for the Mistake, but you're well aware of the repercussions of Yuuichi becoming the Boss of Taira International Resource Development this time, aren't you?"</p>
 <p>I nodded my Head at Taira Ichiro's Words.</p>
-<p>Taira Ichiro's Words meant, 「I suffered Damage, but you also suffered secondary Damage, didn't you?」 After all, with Taira Yuuichi becoming the Boss of Taira International Resource Development, Taira Jiro had seized the Initiative over Mithril sales.</p>
+<p>Taira Ichiro's Words meant, "I suffered Damage, but you also suffered secondary Damage, didn't you?" After all, with Taira Yuuichi becoming the Boss of Taira International Resource Development, Taira Jiro had seized the Initiative over Mithril sales.</p>
 <p>"Our side will also enter into a Mithril deal with Hatake Mining. You were probably thinking of increasing your business partners because of this Incident anyway, so it should be a good thing."</p>
 <p>It was unexpected. I hadn't thought Taira Ichiro would request a Mithril deal from me.</p>
 <p>As expected of Taira Ichiro. Not even a day after Taira Yuuichi was announced as the Boss of Taira International Resource Development, he had extended a Hand to my side.</p>
@@ -38,12 +38,12 @@ chapter = 1109
 <p>I lightly Ipmatchum her forehead, which was gazing at me with a slightly hazy Expression, then took out a bamboo slip from the Bag I was holding.</p>
 <p>It was the Manryeongjuhae I had received from Arisu and Nae Fitzgerald in the USA.</p>
 <p>"What is this?"</p>
-<p>◆Manryeongjuhae (Spell of All Spirits Release) [Unique Seonsul Book / Magic Tool]</p>
+<p>◆Manryeongjuhae (Spell of All Spirits Release) "Unique Seonsul Book / Magic Tool"</p>
 <p>A bamboo slip recording ancient Seonsul that controls ten thousand souls. Cannot be read without Qualification.</p>
 <p>○Cannot be read by one who has not mastered Seonsul.</p>
 <p>●Upon first thorough reading, all Seonsul Levels increase by 1. Seonsul activation speed increases by 10%.</p>
 <p>●When possessed, Damage and Seonsul Effect against Yogoe, Spirits, and Ghost Spirits increase by 30%, and Damage and Seonsul Effect from Yogoe, Spirits, and Ghost Spirits decrease by 20%.</p>
-<p>●Acquirable Seonsul: monster byeonsin form , spirit eye gaesi , underworld pamyeol soul , dead sokbak spirit , soul mundap , spirit chujeok .</p>
+<p>●Acquirable Seonsul: monster byeonsin form, spirit eye gaesi, underworld pamyeol soul, dead sokbak spirit, soul mundap, spirit chujeok.</p>
 <p>"This is something I got in the USA called Manryeongjuhae...."</p>
 <p>I read out the options from the translucent window that appeared before my Eyes, informing Nagumo Sian about the Manryeongjuhae. Nagumo Sian, upon hearing about the Manryeongjuhae, hugged me gratefully.</p>
 <p>"Thank you for the Gift. But isn't it too much to just end it with a Kiss?"</p>

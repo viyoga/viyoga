@@ -16,7 +16,7 @@ chapter = 1022
 <p>With Eve's Explanation, the auction began. It wasn't a strange Item, as such prototypes or leaked technology under Development often came up for auction at AmSang.</p>
 <p>However, such Items were an all-or-nothing Gamble, and usually such leaks occurred when a Project was halted or canceled, as Eve just explained, or when research funding was cut.</p>
 <p>For that Reason, leaked technology usually lacked marketability, had severe Side Effects, or often, better technology was developed faster, so even if purchased, it often resulted in a loss. An Enterprise isn't stupid, that's why they halted the Project. But sometimes Jackpot technology might be dormant, so it was often purchased with a feeling of gambling.</p>
-<p>◆Mind Amplifier N003-01 [Rare+ Armor/Helmet]</p>
+<p>◆Mind Amplifier N003-01 "Rare+ Armor/Helmet"</p>
 <p>A prototype developed by the community tech company OmniCom. It embarked on the Development of a new System to connect human minds, replacing VR Dive, but after receiving failing evaluations for various Side Effects and marketability, the Mind amplifier Project was canceled, leaving only the prototype.</p>
 <p>●Mind Wave Amplification Technology: While worn, all Mind Stats increase by 1. However, it places a strong burden on the Brain.</p>
 <p>●Connects the minds of those wearing Mind Amplifier N003-01. As a Side Effect, it deals 6.75% Mind Damage every hour.</p>
@@ -50,7 +50,7 @@ chapter = 1022
 <p>-Everyone, have you been waiting long? According to rumor, most of today's Customers gathered to see this Item! It is none other than the legendary forbidden book and grimoire....</p>
 <p>With Eve's Words, the auction house instantly darkened. And as it brightened again, placed on red Velvet, sealed with Chains, the grimoire, the Fragment of Omniscience, revealed its Appearance.</p>
 <p>-It's the Fragment of Omniscience!!</p>
-<p>◆Fragment of Omniscience [Legendary+ Grimoire/Magic Tool]</p>
+<p>◆Fragment of Omniscience "Legendary+ Grimoire/Magic Tool"</p>
 <p>Sealed.</p>
 <p>I wondered what kind of options it had to cause such a commotion, so I checked the options, but other than the name and grade, no other Information could be known due to the Seal.</p>
 <p>Perhaps the Chains wrapping the Fragment of Omniscience seemed to be a Bongingu, and whether this Bongingu itself was an excellent Item, it was well sealing the Legendary+ grade grimoire.</p>

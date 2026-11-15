@@ -34,7 +34,7 @@ chapter = 685
 <p>"And Asada Ei-ssi and Asada Fukushi-ssi, please recommend a few people who are trustworthy Self-Defense Force officer graduates."</p>
 <p>"Can I know what kind of personnel you will use them for? If you tell me, I will recommend someone who is suitable."</p>
 <p>"You know I created a new PMC, right? I think I should start filling the ranks soon, so I'm going to start recruiting from the executives."</p>
-<p>This time, I had to gradually build up the PMC Kōtetsubutai (鋼鉄部隊: Steel Corps) under my name, so I asked Asada Ei and Asada Fukushi, who had connections with the Self-Defense Forces, to introduce me to people who could serve as reliable executives.</p>
+<p>This time, I had to gradually build up the PMC Kōtetsubutai (Steel Corps) under my name, so I asked Asada Ei and Asada Fukushi, who had connections with the Self-Defense Forces, to introduce me to people who could serve as reliable executives.</p>
 <p>I could recruit as many combatants as I wanted, but the executives had to be good. Of course, it was a PMC under the name of Yamashiro Ryuta, not Taira Ryuta, so I didn't intend to make it the best PMC, but it had to be above a certain standard to be useful, so I didn't intend to make it a ragtag group.</p>
 <p>So, I was thinking of recruiting Self-Defense Force graduates as executives who could guarantee a certain level of reliability. And if it was a recommendation from Asada Ei, who owed me a great debt, or Asada Ei's father, Asada Fukushi, I could trust them even more.</p>
 <p>"I will discuss it with my father and recommend someone who is trustworthy and has high combat power."</p>

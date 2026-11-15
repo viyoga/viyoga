@@ -49,8 +49,8 @@ chapter = 24
 <p>Intelligence: 3 Knowledge: 2 Concentration: 2 Willpower: 4 Creativity: 4 Charm: 15 Judgment: 4</p>
 <p>Other</p>
 <p>Luck: 15</p>
-<p>Singing Lv06 [General Skill]</p>
-<p>Acting Lv05 [General Skill]</p>
-<p>◆Gruagach's Eyes [Legendary Trait]</p>
+<p>Singing Lv06 "General Skill"</p>
+<p>Acting Lv05 "General Skill"</p>
+<p>◆Gruagach's Eyes "Legendary Trait"</p>
 <p>You can know 'value' by the intensity or feel of light. You have the ability to see through the truth.</p>
 <p>※ Due to unrevealed traits, the level and most stats are distorted, and some traits and skills are hidden.</p>

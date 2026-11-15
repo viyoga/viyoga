@@ -36,7 +36,7 @@ chapter = 251
 <p>"Explain about the Shadow Ability you used earlier." As I explained about Shadow Domination, Fujigasaki Rinka looked at me with a slightly Stifling Expression.</p>
 <p>"What, you only used this good Technology for Shackles? If you learn a new Technology, you have to apply it. A school that emphasizes basics but only teaches one Martial Arts Routine will only be Defeated and disappear." Then she told me about several applications she had thought of, for example, when kicking, striking once more from the Shadow for a double Impact, or using a one-two punch to draw aggro while attacking the cock area from the Shadow, teaching me such unconventional techniques.</p>
 <p>Then, as if her own Explanation was funny, she suddenly started laughing loudly.</p>
-<p>"It's what you call a Chinpo (チンポ: cock) Attack. Kyahahahaha! If a large black Shadow attacks from between their Legs, how surprised would the Opponent be?" Hmm, I don't know if she was giving serious advice or just Pranking.</p>
+<p>"It's what you call a Chinpo (cock) Attack. Kyahahahaha! If a large black Shadow attacks from between their Legs, how surprised would the Opponent be?" Hmm, I don't know if she was giving serious advice or just Pranking.</p>
 <p>"Kazuhiro!"</p>
 <p>"older brother, Genbaki!" When Kazuhiro drove the Car and arrived at Fujigasaki Rinka's mansion, it was late Evening.</p>
 <p>"Sorry, the team told me to go get counseling from a psychiatrist." Well, it was such a big Incident, so that's understandable. Kazuhiro and I came to the large restaurant, prepared for several people, and took our Seats.</p>

@@ -30,7 +30,7 @@ chapter = 464
 <p>Tak!</p>
 <p>When I pressed the button to turn on the light, I saw Yang Seol-hui sleeping, wrapped tightly in her blanket. She was wrapped in the blanket up to her waist, and she was sleeping in her underwear. Isn't it uncomfortable to sleep in underwear? It seems like it would be uncomfortable....</p>
 <p>,Um....</p>
-<p>I gently shook Yang Seol-hui's shoulder. Yang Seol-hui made a ,woong, sound and didn't wake up. But isn't she a sniper? It seems like she shouldn't be this careless....</p>
+<p>I gently shook Yang Seol-hui's shoulder. Yang Seol-hui made a,woong, sound and didn't wake up. But isn't she a sniper? It seems like she shouldn't be this careless....</p>
 <p>,It's time to eat breakfast, so wake up.</p>
 <p>I shook her shoulder a little harder. As I woke up Yang Seol-hui, who wasn't waking up easily, I could feel a little bit of the hearts of mothers waking up their children in the morning.</p>
 <p>,Woong....</p>

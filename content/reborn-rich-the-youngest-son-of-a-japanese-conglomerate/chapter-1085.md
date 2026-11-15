@@ -70,7 +70,7 @@ chapter = 1085
 <p>Bullet Lover, who had been looking at Koishihara Shoji, looked at me and pointed with her finger, saying. The way the people training Fist Technique earlier flinched slightly when they saw me, and the way Bullet Lover looked at me with conviction, it seemed Taira Saburo and I definitely had some resemblance.</p>
 <p>"This Person...?"</p>
 <p>Ah, this is Kanzaki Saya, the Team Leader of our Moth Tactical Assault Team 1. Tetsuhana Ayame, whom you met earlier, is also the Team Leader of Assault Team 1.</p>
-<p>Ah, I see. So Bullet Lover's name is Kanzaki Saya. Her name is Scabbard (鞘)... You could say it's a name that suits a Combat Class Character.</p>
+<p>Ah, I see. So Bullet Lover's name is Kanzaki Saya. Her name is Scabbard... You could say it's a name that suits a Combat Class Character.</p>
 <p>Kanzaki Saya~!</p>
 <p>When I made Tetsu Kagerou, she's a Character I made together with him hehe.</p>
 <p>Requested by TheDreaming-nim: Taira Camila in the Park: 1. Spreading Legs while covering her groin on a bench 2. Interview~!</p>

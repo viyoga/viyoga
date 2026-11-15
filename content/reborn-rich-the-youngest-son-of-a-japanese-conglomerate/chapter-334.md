@@ -27,7 +27,7 @@ chapter = 334
 <p>And it has almost all the power over clubs, so it has the right to establish and inspect clubs. Since almost all students in the school belong to a club, the right to clubs was a considerable level of power.</p>
 <p>Most of the students are rich, so they can't put pressure on club operating expenses, but they have the powerful authority to audit and shut down clubs that don't follow the rules.</p>
 <p>The student council building was attached to the building with the faculty office, and it was a considerable site even though it was only used by the student council and its subordinate Disciplinary Committee.</p>
-<p>As I was about to go through the entrance, two female students wearing black armbands that said 'Discipline (風紀)' stood on either side of the door and blocked my way.</p>
+<p>As I was about to go through the entrance, two female students wearing black armbands that said 'Discipline ' stood on either side of the door and blocked my way.</p>
 <p>,"What brings you here?"</p>
 <p>,"I'm Yamashiro Ryuta, the homeroom teacher of the 3rd grade special class. The student council Chairman called me."</p>
 <p>Taira Kanna is quite something. She's using the Saint Francisco Girls' Academy's heiresses almost like private soldiers. As expected of the Taira Family's heiress?</p>

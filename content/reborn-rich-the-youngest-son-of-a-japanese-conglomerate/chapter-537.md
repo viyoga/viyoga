@@ -10,7 +10,7 @@ chapter = 537
 <p>All three said they understood, but thankfully, they had all hung out at my place before, so other opinions were coming up.</p>
 <p>-Erika Private First Class: Are we just eating? Or are we hanging out and eating?</p>
 <p>-Kujo Kina: Of course, we should hang out! How about a water park?</p>
-<p>-ShiiPipi: Is it November already? The water park is too cold~ヽ(。_°)ノ Let's go to Dijuni Land instead!</p>
+<p>-ShiiPipi: Is it November already? The water park is too cold~(。_°) Let's go to Dijuni Land instead!</p>
 <p>-Minamoto Lisa: I hate it when there are too many people on Sundays. I heard a huge bookstore opened in Shizuoka, how about there?</p>
 <p>- Shido Tsubaki: I like bookstores too, but it doesn't seem like a good place for everyone to enjoy.</p>
 <p>-AlikAlik: Alik wants to go to an amusement park...!</p>

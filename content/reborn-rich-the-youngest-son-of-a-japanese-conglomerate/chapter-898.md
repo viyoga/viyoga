@@ -41,7 +41,7 @@ chapter = 898
 <p>-Creation Chaos Style Star Breaker.</p>
 <p>Of course, I couldn't just stand there and take it. With Star Breaker, a Martial Arts Form that unleashes Creation Chaos Gi into a fist, I tried to strike Musashi Takuro's Side.</p>
 <p>Musashi Takuro tried to swat away my Arm, but realizing it was difficult to block the immense Power contained in my Hand, he instead burrowed into my Embrace. Musashi Takuro, having naturally dodged my fist in this way, continued his Attack from within my Embrace.</p>
-<p>-Ever-Victorious Mountain Collapse Style (常勝崩山流) Mountain Collapse Lean (崩山靠).</p>
+<p>-Ever-Victorious Mountain Collapse Style Mountain Collapse Lean.</p>
 <p>Musashi Takuro, having burrowed into my Embrace, used a leaning technique that struck with his back and Shoulder. Because the distance was so close, I couldn't dodge. His Shoulder struck my Solar Plexus, instantly taking my Breath away. Even as I was sent flying by the shock, I swung my Feet and struck Musashi Takuro's Shoulder.</p>
 <p>"Kueuk!"</p>
 <p>"Keok!"</p>

@@ -6,7 +6,7 @@ chapter = 897
 +++
 
 <p>At a similar time, the Reserve Unit 2 Team Office.</p>
-<p>Reserve Unit 2 Team Leader Izawa Atsumu (伊沢 厚六) was not very interested in fame, unlike Reserve Unit 1 Team Leader Saimura Tatsushi.</p>
+<p>Reserve Unit 2 Team Leader Izawa Atsumu was not very interested in fame, unlike Reserve Unit 1 Team Leader Saimura Tatsushi.</p>
 <p>Of course, Izawa Atsumu also knew that the Attack team would never ask for Help, and being a martial artist who disliked troublesome things, he thought this mission suited him perfectly.</p>
 <p>Anyway, there was no need to go out for support, and it was just a matter of waiting, so it was perfect for Izawa Atsumu, who hated troublesome things.</p>
 <p>So, after telling his team members to wake him if they received Contact, Izawa Atsumu unfolded a cot and had been lying asleep in a corner of the office since Morning.</p>
@@ -41,20 +41,20 @@ chapter = 897
 <p>This terrible Cold energy was coming from Asada Ei, who was from an unheard-of organization called the Investigation Bureau.</p>
 <p>"Everyone, kill this Woman! This bitch is emitting Cold energy!"</p>
 <p>Izawa Atsumu shouted and thrust out his fist. But Izawa Atsumu's fist, famous for being quite powerful within Anyaji, became incredibly slow, perhaps due to the Cold energy. Asada Ei, as if on a walk, dodged Izawa Atsumu's fist, then stretched her Hand towards the door.</p>
-<p>-Ei-ryu (氷流) Ice Flow Art (氷結術) Snowflake Diagram (雪花表).</p>
+<p>-Ei-ryu Ice Flow Art Snowflake Diagram.</p>
 <p>From Asada Ei's Hand, a palm-sized snowflake crystal formed, then shot out like a shuriken. And it embedded itself in the Body of an administrative employee fleeing the Cold energy. The administrative employee let out a Kueuk moaning sound, then soon collapsed, bleeding.</p>
 <p>"No one can leave."</p>
 <p>Asada Ei, at the same time as finishing her Words that no one could leave, stretched out her Hand again towards the Anyaji martial monks attempting to Attack her.</p>
-<p>-Ei-ryu (氷流) Ice Flow Art (氷結術) Ice Freezing Technique (氷柱生) Ice Pillar Creation.</p>
+<p>-Ei-ryu Ice Flow Art Ice Freezing Technique Ice Pillar Creation.</p>
 <p>From the bodies of the soaked Anyaji martial monks, sharp icicles instantly formed, then pierced their comrades next to them.</p>
 <p>"Kuaaak!"</p>
 <p>The Anyaji martial monks, whose bodies were pierced by the sharp icicles, screamed in sharp, cold Pleasurable Ache, but Asada Ei didn't care. This was because she had to block other attacks aimed at her.</p>
-<p>-Ei-ryu (氷流) Ice Flow Art (氷結術) Ice Wall (氷壁).</p>
+<p>-Ei-ryu Ice Flow Art Ice Wall.</p>
 <p>Instantly, the Moisture in the Cold energy fog condensed, becoming a thin Ice Wall that blocked the attacks against Asada Ei. And as the Ice Wall burst, the Anyaji martial monks who had attacked turned completely white as if covered in frost.</p>
 <p>"This bitch!"</p>
 <p>"Isn't it getting harder to move now?"</p>
 <p>Watching his Subordinates fall one by one, Izawa Atsumu, extremely enraged, disregarded his freezing Body and lunged forward.</p>
-<p>-Ei-ryu (氷流) Ice Flow Technique (氷結術) Silver Plate Journey (銀盤行路).</p>
+<p>-Ei-ryu Ice Flow Technique Silver Plate Journey.</p>
 <p>Izawa Atsumu's Attack this time was a powerful Attack made with his best effort, so Asada Ei chose Evasion instead of Defense. Instantly freezing the Floor, she moved with immense speed, dodging as if sliding, Asada Ei created an Ice blade at her fingertips and, as she passed, severed the necks of the increasingly freezing Anyaji martial monks.</p>
 <p>"Th-This!"</p>
 <p>Izawa Atsumu, having lost his Fading Reason in anger, began to charge wildly. He threw office desks and fixtures that blocked his path as he charged, but his Feet were pierced by the Ice spikes Asada Ei had laid on the Floor.</p>

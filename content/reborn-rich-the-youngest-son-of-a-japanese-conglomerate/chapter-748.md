@@ -6,7 +6,7 @@ chapter = 748
 +++
 
 <p>"Ribbon-chan."</p>
-<p>Sakagami Rena, holding Hamtaro in her arms, this time summoned Ribbon-chan, a Tsuchiitachi (槌鼬) yokai given to her by the Naruse family. Ribbon-chan was a white weasel yokai capable of creating brief openings by summoning winds that pushed her opponents back.</p>
+<p>Sakagami Rena, holding Hamtaro in her arms, this time summoned Ribbon-chan, a Tsuchiitachi yokai given to her by the Naruse family. Ribbon-chan was a white weasel yokai capable of creating brief openings by summoning winds that pushed her opponents back.</p>
 <p>"Ribbon-chan, circle around the building and find an entry point for us."</p>
 <p>Sakagami Rena's shikigami, Ribbon-chan, was a yokai that was almost like a wind spirit, making her very useful for reconnaissance.</p>
 <p>"Jjii!"</p>

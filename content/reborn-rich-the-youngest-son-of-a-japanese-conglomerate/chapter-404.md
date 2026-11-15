@@ -79,7 +79,7 @@ chapter = 404
 <p>"That's it for today. Completing the first task will be tomorrow, I guess."</p>
 <p>"Yes. Tomorrow is just watching a movie, so it won't be difficult, sensei-nim."</p>
 <p>Konoe Akina-ssi replied to my words with a tone that suggested she had worked hard. In fact, contrary to what Konoe Akina-ssi said, the experience of watching Ratflix with a lover seemed like it would be quite difficult.</p>
-<p>While watching a movie, the female students would take turns sitting next to me for 10 minutes each, and I would have to endure my vigorous Johnson reacting to the scent and breath of the nearby female students, so it seemed like it would be a mentally and physically difficult time.</p>
+<p>While watching a movie, the female students would take turns sitting next to me for 10 minutes each, and I would have to endure my vigorous dick reacting to the scent and breath of the nearby female students, so it seemed like it would be a mentally and physically difficult time.</p>
 <p>Moreover, some people, including Seizawa Shii-ssi, would definitely be targeting me and playing pranks, and if I got an erection, they would definitely make a huge fuss to make fun of me. If we were alone, they wouldn't be able to say anything because of their virginity...</p>
 <p>Wait, that's right! There was no need to force myself to suppress an erection in a place with so many people. Now that I think about it, there was a good way.</p>
 <p>"Konoe, there's something I want to talk about regarding tomorrow's Ratflix viewing experience..."</p>

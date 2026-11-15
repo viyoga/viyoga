@@ -48,11 +48,11 @@ chapter = 417
 <p>I hope you will listen to my story in the future as well.</p>
 <p>From Kurayamata Kirie.</p>
 <p>Is this a threat? But how did she know that I was from the Taira Group...? Looking at the contents, it seems like she's saying, ,I know you're from Taira, so listen to me.</p>
-<p>I was unexpectedly hit. But seeing that it says ,To Yamashiro Ryuta-nim,, it seems like she doesn't know my true identity yet, even though she knows I'm affiliated with Taira. If she knew that I was Taira Ryuta, she wouldn't have threatened me with just a letter like this.</p>
+<p>I was unexpectedly hit. But seeing that it says,To Yamashiro Ryuta-nim,, it seems like she doesn't know my true identity yet, even though she knows I'm affiliated with Taira. If she knew that I was Taira Ryuta, she wouldn't have threatened me with just a letter like this.</p>
 <p>Ding-dong~♬</p>
 <p>The doorbell rings again. It can't be Kurayamata Kirie who left and came back... Who is it this time?</p>
 <p>When I checked the intercom, the masked girl Sakagami Rena was standing there. How does she know my address too?</p>
-<p>Surely, it's not like you can just search ,Yamashiro Ryuta's house, on Gugol and it comes right up, right?</p>
+<p>Surely, it's not like you can just search,Yamashiro Ryuta's house, on Gugol and it comes right up, right?</p>
 <p>I opened the door while having silly thoughts.</p>
 <p>,Sakagami, what brings you to teacher's house?</p>
 <p>,...Excuse me.</p>
@@ -63,7 +63,7 @@ chapter = 417
 <p>Sakagami Rena's purple eyes were looking at me with a gaze that seemed to pierce through me.</p>
 <p>,You may already know, but the Sakagami family is a family of ninjas.</p>
 <p>A sudden ninja coming out. By the way, when I looked at the information written by the Taira information team, I thought, ,Isn't it a ninja? because they've been a family skilled in espionage since ancient times, but it was really a ninja family.</p>
-<p>Usually, the ninjas of the Sakagami family live with the Sakagami family for their entire lives, but when they become Chunin (中忍: middle-level ninja), they are given the opportunity to choose another lord.</p>
+<p>Usually, the ninjas of the Sakagami family live with the Sakagami family for their entire lives, but when they become Chunin (middle-level ninja), they are given the opportunity to choose another lord.</p>
 <p>I never thought I would hear the word Chunin in a real conversation. When I urged her to continue with my eyes as if saying, ,So what?, Sakagami Rena opened her mouth again.</p>
 <p>,Sakagami Rena, the 31st of the Sakagami family, wants to use her right to choose a lord as a Chunin for Taira Ryuta-nim.</p>
 <p>I was drinking coffee, but I almost spit it out without realizing it. This is the second time my identity has been revealed today. Kurayamata Kirie didn't seem to know my exact name, but Sakagami Rena is a ninja, so she must have obtained information and found out my identity.</p>

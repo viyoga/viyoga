@@ -49,7 +49,7 @@ chapter = 278
 <p>,Yongtae-hyung~! Oh, you're huge....</p>
 <p>,Are you a black guy with that size?</p>
 <p>,Hmm, Ryuta-gong.... Impressive.</p>
-<p>Everyone said something after looking at my Johnson, so I smiled slightly and took a shower before entering the hot springs.</p>
+<p>Everyone said something after looking at my dick, so I smiled slightly and took a shower before entering the hot springs.</p>
 <p>,Where's Young-chan?</p>
 <p>,He said he's showering in his room when other people aren't using the hot springs because of his X-ray vision.</p>
 <p>Ah, that's right. It might be a bit awkward if Kim Young-chan, who has X-ray vision, was there when the women were also showering in the hot springs. He's avoiding getting cursed at by himself, what a wise and pitiful guy. If I had X-ray vision, I would never say that I had that ability.</p>

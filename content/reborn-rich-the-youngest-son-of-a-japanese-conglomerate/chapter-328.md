@@ -24,7 +24,7 @@ chapter = 328
 <p>Ah! The girl from that inn on Chōten Island! I remember her becoming a shrine maiden apprentice at the shrine where I first met Simyeonui ttal directly, so she's been adopted into a family of Shinto priests.</p>
 <p>She knows my identity, so I need to have an interview with her before she opens her mouth.</p>
 <p>They're all troublemakers. All that's left is one hikikomori who didn't say anything in advance and doesn't come to school.</p>
-<p>I'll look at the hikikomori information later. Right now, I need to contact Mask Delivery and call  to hang out. I have to go to the black market branch with Saionji Diana tomorrow, so I need to unwind in advance.</p>
+<p>I'll look at the hikikomori information later. Right now, I need to contact Mask Delivery and call to hang out. I have to go to the black market branch with Saionji Diana tomorrow, so I need to unwind in advance.</p>
 <p>###</p>
 <p>,This is Egawa Alexandra, a third-year high school student who has newly joined our club. Alik, introduce yourself."</p>
 <p>Shimokawabe Airen grabbed Alik's shoulder and introduced Alik to the Cheongsim Hall club members. Alik nodded slightly and opened his mouth.</p>

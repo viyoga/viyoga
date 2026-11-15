@@ -34,4 +34,4 @@ chapter = 362
 <p>"It's annoying, so could you just leave?" Urabe Konoka politely refused the Interview in her own way, and Minamoto Lisa snapped at the two self-proclaimed YouTubers with a prickly Attitude.</p>
 <p>"Hey, don't be like that. I'll buy you something sweet over there, okay? Huh?"</p>
 <p>"Yeah, don't act so high and mighty, hey!" He forcibly grabbed Minamoto Lisa's wrist and put his Arm around Naruse Shiyo's Shoulder. Those Crazy bastards.... What are the Security Guards doing? Of course, it hasn't even been a minute since the Incident happened, but still. Without choice, I'll have to step in. I left the parfait I was eating and walked towards the two self-proclaimed YouTubers. The Thumbnail, 'Bothering Female Students, Got a Real Lesson!' would be good.</p>
-<p>3rd Year Special Class Attendance Book! 1. Seizawa Shii (清澤 詩維): A delinquent white-haired gyaru with Minamoto Lisa.</p>
+<p>3rd Year Special Class Attendance Book! 1. Seizawa Shii: A delinquent white-haired gyaru with Minamoto Lisa.</p>

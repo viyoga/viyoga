@@ -47,7 +47,7 @@ chapter = 972
 <p>Jjil-kkeok Jjil-kkeok Jjil-kkeok!</p>
 <p>"Heueuung,! If you do that, heuhng♥ I, heuhng! I'll really cum, ahhht!"</p>
 <p>Swaaaah! Swaaht!</p>
-<p>Since she was already in a small Climax, when I touched her pussy, Yukiko began squirting (潮吹き), staining the outer wall of the house with her vaginal fluid. Since it was Yukiko's house anyway, marking her territory wasn't wrong, was it?</p>
+<p>Since she was already in a small Climax, when I touched her pussy, Yukiko began squirting, staining the outer wall of the house with her vaginal fluid. Since it was Yukiko's house anyway, marking her territory wasn't wrong, was it?</p>
 <p>"Shall we continue our walk then?"</p>
 <p>"Haa, haa, haa.... Heuhng, Ryutaah...! You tease♥"</p>
 <p>Even while calling me a tease, there was no hint of displeasure. I continued to hold Yukiko's tail and walked around the house. Since the house itself was quite large, going around it once took quite a while. When we eventually reached the opposite side of the entrance, the back of the house, Yukiko stopped moving.</p>

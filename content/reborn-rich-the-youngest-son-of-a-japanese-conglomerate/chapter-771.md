@@ -16,7 +16,7 @@ chapter = 771
 <p>"...."</p>
 <p>After the man stabbed with the sword died, the Killer began to search the Surroundings. The Killer, who took a Wallet from the man's jacket hanging in the room, took Cash from the Wallet and pulled out an Identification Card along with a Resort membership card.</p>
 <p>"...."</p>
-<p>The Killer put the man's Resort membership card into a pocket to take it. Before putting the Resort membership card into the pocket, the moonlight briefly shone on it, and it read, 「Shiga Kogen VIP Villa Ski Resort Membership Ticket」.</p>
+<p>The Killer put the man's Resort membership card into a pocket to take it. Before putting the Resort membership card into the pocket, the moonlight briefly shone on it, and it read, "Shiga Kogen VIP Villa Ski Resort Membership Ticket".</p>
 <p>The Killer, who had taken the Money and the membership ticket, as if having no Regret, left only the Corpse and went Outside the House.</p>
 <p>After the Killer left, only the dead Corpse in the room was swaying to the Lighting of the moonlight Dancing with the movement of the curtain.</p>
 <p>Carrying the Luggage, when I went to St. Francis Girls' Academy's helipad, two helicopters were waiting.</p>
@@ -59,7 +59,7 @@ chapter = 771
 <p>I heard that when I was kidnapped, she transformed into a Dragon-person and swept away the disciplinary committee members with wrestling techniques, so I wondered if she would use techniques from UMC next time.</p>
 <p>"If Shiyo evaluates him that way, then this fighter named Genba might win."</p>
 <p>I pretended to gloss over it and scrolled past the article about that Guy Kiyohira. The next article was about a serial Killer rampaging in Tokyo recently.</p>
-<p>-Another corpse, seemingly the work of Kotowazuki (斷頭鬼: Decapitation Demon), has been found! The incident is still a labyrinth...</p>
+<p>-Another corpse, seemingly the work of Kotowazuki (Decapitation Demon), has been found! The incident is still a labyrinth...</p>
 <p>It was a Killer called Kotowazuki, and it seemed they got that nickname because they always targeted the Victim's neck with a sword. With over a dozen Victims identified so far, this Kotowazuki was the Topic of all recent discussions in Japan.</p>
 <p>Because of this serial Killer, whose gender was unknown, the Japanese police were being heavily cursed for being incompetent, and rumors were circulating that a huge bounty had been placed on them in the solver Community.</p>
 <p>"I thought about chasing that Guy during vacation too, but there weren't many clues, so I just let it go. What a pity. If I had known it would rampage like this, I would have chased it to the end."</p>

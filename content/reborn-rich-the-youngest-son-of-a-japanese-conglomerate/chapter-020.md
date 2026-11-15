@@ -60,7 +60,7 @@ chapter = 20
 <p>Hmm... Judging from the fact that her boyfriend's voice also sounded a little drunk, it seemed that the woman named Mikuni was definitely trying to get with Gokado Hanako's boyfriend.</p>
 <p>"Okay. Don't drink too much~ I'm going to sleep at the dorm."</p>
 <p>-Okay....</p>
-<p>Gokado Hanako hung up without even hearing the answer. And she looked at me with dazed, drunken eyes, and her gaze was subtly seductive, causing Johnson to react without me even realizing it.</p>
+<p>Gokado Hanako hung up without even hearing the answer. And she looked at me with dazed, drunken eyes, and her gaze was subtly seductive, causing dick to react without me even realizing it.</p>
 <p>"Toki-chan betrayed me, so I'm going to do the same."</p>
 <p>It didn't seem like her boyfriend had betrayed her yet, but from the sound of his voice, he didn't seem to know the woman named Mikuni's ulterior motives, and it seemed that the woman named Mikuni was going to get Gokado Hanako's boyfriend, Toki-chan, drunk and then get with him, waking up naked in the morning.</p>
 <p>I don't know your face, but thank you, Mikuni-sang.</p>

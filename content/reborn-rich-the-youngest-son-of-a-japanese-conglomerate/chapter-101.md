@@ -18,7 +18,7 @@ chapter = 101
 <p>,I'll give you a recommendation."</p>
 <p>,Me too~!"</p>
 <p>I and the five kids from the 74th class wandered around Tokyo for a long time to buy a gift for Jinmija Yeosa.</p>
-<p>In the end, we bought a luxury bag. I was dragged around by the five of them, looking for a bag that didn't feel too young or too old, and I was as exhausted as if I had sex 10 times in a row. Still, I should thank the kids from the 74th class for helping me choose a gift. Of course, that thank you will be with my Johnson.</p>
+<p>In the end, we bought a luxury bag. I was dragged around by the five of them, looking for a bag that didn't feel too young or too old, and I was as exhausted as if I had sex 10 times in a row. Still, I should thank the kids from the 74th class for helping me choose a gift. Of course, that thank you will be with my dick.</p>
 <p>Since it's my mom's birthday tomorrow anyway, and I won't be able to have sex, I should do it a lot today.</p>
 <p>,Mentor-nim~! My legs hurt from walking around so much."</p>
 <p>,I wish we could rest somewhere."</p>

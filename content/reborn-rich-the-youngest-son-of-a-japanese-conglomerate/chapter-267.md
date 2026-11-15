@@ -43,7 +43,7 @@ chapter = 267
 <p>The restaurant I went to was a Kaiseki restaurant with 3 Michelin stars, and since Han Yu-gyeong always took me to delicious Korean restaurants whenever I visited Korea, I decided to introduce her to Japanese cuisine.</p>
 <p>It was a very famous place, so it was difficult to make a reservation, but I asked Yukiko to use the Tairaga family name and was able to make a reservation easily.</p>
 <p>When I gave my name at the entrance, I was guided to a room where only the two of us could be. As expected of a Kaiseki restaurant, it had a Japanese-style design with tatami mats.</p>
-<p>When the Sakizuke (先付け: appetizers) came out first, Han Yu-gyeong couldn't hold back any longer and asked me.</p>
+<p>When the Sakizuke (appetizers) came out first, Han Yu-gyeong couldn't hold back any longer and asked me.</p>
 <p>"Yong-tae-ya, what did you mean when you said I wouldn't be able to see this face for a while?"</p>
 <p>"Ah, that? I came back to Japan, and my grandfather suddenly called me..."</p>
 <p>I told Han Yu-gyeong about the mission to infiltrate St. Francisco Academy. Of course, I couldn't say that the purpose was to get Minamoto Risa, so I just said that there was important information and I had to go in disguised as a teacher for a semester.</p>

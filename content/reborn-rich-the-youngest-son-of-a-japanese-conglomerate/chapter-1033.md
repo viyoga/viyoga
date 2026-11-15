@@ -37,8 +37,8 @@ chapter = 1033
 <p>As the Barrier broke, a Voice came from the Sky above my Head, "It's been a while since someone withstood my Bullets three times~♪"</p>
 <p>It was a lively-sounding Woman's Voice. I raised my Head to look, and it was a familiar Face. Of course, it wasn't a Face I knew after Possession, but a Woman I had seen in the game.</p>
 <p>She was a Woman with a very flashy Hairstyle, blonde twin-tails dyed blue at the ends, and she was floating in the empty space above a ruined Building, holding a winged cyber Suit and a giant Gun, looking down at us.</p>
-<p>Tetsu Kagerou (鐵蜻蜓) - Why is she here...?</p>
-<p>Tetsu Kagerou was the leader of the Dragon Fly unit, one of Asakura's (朝倉) assassination units, a Japanese-American corporation that would later become one of the top 5 US megacorporations.</p>
+<p>Tetsu Kagerou - Why is she here...?</p>
+<p>Tetsu Kagerou was the leader of the Dragon Fly unit, one of Asakura's assassination units, a Japanese-American corporation that would later become one of the top 5 US megacorporations.</p>
 <p>Since the nickname Tetsu Kagerou itself meant 'Iron Dragonfly,' it seemed the unit was named after her.</p>
 <p>She was a very difficult opponent to deal with, flying around in a specially made winged cyber Suit and grinding opposing units with her specially made giant Gun.</p>
 <p>In TMC, she was evaluated as a mid-Boss almost as tricky as Alik, and she was a Character who could become a reliable Colleague if one chose an Alliance with Asakura.</p>

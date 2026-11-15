@@ -38,7 +38,7 @@ chapter = 970
 <p>Taira Yukiko, seeing the Gift Box I offered, accepted the box as if she had never been angry. In fact, as Taira Yukiko had just said, she was incredibly lenient about such matters, so she probably wasn't that angry. She was probably just being flirtatious, wanting me to pay more attention to her in the future.</p>
 <p>"It's so beautiful, Ryuta...!"</p>
 <p>Inside the box I gave her was an accessory about the Size of a Bracelet, adorned with various Gems, making it look quite splendid. Yet, it wasn't so overly flashy as to appear Vulgar; it was an accessory that conveyed a sense of appropriate splendor.</p>
-<p>◆Mongma's Horn Ornament [Narrative+ Horn Ornament/ Bracelet]</p>
+<p>◆Mongma's Horn Ornament "Narrative+ Horn Ornament/ Bracelet"</p>
 <p>A horn ornament used by a Mongma. It could also be used as a Bracelet. If a human wears it, they receive no option Effects.</p>
 <p>●Special Stat Illusion's maximum value increases by 1, and its efficiency greatly increases.</p>
 <p>●Special Ability can be used.</p>

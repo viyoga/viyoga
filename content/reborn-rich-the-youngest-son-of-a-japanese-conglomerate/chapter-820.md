@@ -49,7 +49,7 @@ chapter = 820
 <p>If we borrow some Yin-Yang Masters from the Naruse Family and my PMC, including East Weapon, step up, we might be able to win easily.</p>
 <p>The Problem was that if I operated a PMC in Miyashi and got caught, I could fall into Narak even if I was a Taira.</p>
 <p>In short, it meant that it was doable if I excluded the PMC, and it was easy if I included the PMC. I'll have to decide this in a full meeting later. I haven't even heard all of Athena Mannerheim's story yet, so I'll have to listen to everything and have a meeting.</p>
-<p>'And Takakusaki Gengo has the Four Heavenly Kings and their Anya disciples directly under him, and the Elders also teach their martial arts to their favorite Anya-affiliated martial artists and have a group of disciples. Besides that... there is the Gold Hall (金堂), which manages finances, and the Action Hall (行堂), which dispatches Anya martial artists...'</p>
+<p>'And Takakusaki Gengo has the Four Heavenly Kings and their Anya disciples directly under him, and the Elders also teach their martial arts to their favorite Anya-affiliated martial artists and have a group of disciples. Besides that... there is the Gold Hall, which manages finances, and the Action Hall, which dispatches Anya martial artists...'</p>
 <p>Sakagami Rena draws an organizational chart on the tablet she is holding according to Athena Mannerheim's explanation.</p>
 <p>By the way, Takakusaki Gengo's interest is all in martial arts, or he was too lazy to name them, so except for the military force led by the Four Heavenly Kings and the Guardian Court, all the departments ended with the word Hall.</p>
 <p>However, these seemed to be organizations that had to exist for any organization to exist, regardless of military force.</p>

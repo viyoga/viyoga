@@ -50,7 +50,7 @@ chapter = 295
 <p>"Yukiko-ssi, get a grip!"</p>
 <p>"It can't be helped."</p>
 <p>When I shouted to bring Yukiko back to her senses, I heard Nagumo Sian's voice from behind. It was still a calm voice.</p>
-<p>It seems like the energy of the Incubus (淫魔) is running wild right now, so if you, Ryuta, suppress it once, she will come to her senses.</p>
+<p>It seems like the energy of the Incubus is running wild right now, so if you, Ryuta, suppress it once, she will come to her senses.</p>
 <p>I don't know how Nagumo Sian knew and told me the solution, but after all, the only way to defeat a Succubus is through a sex battle. I can't hit Yukiko, after all.</p>
 <p>I decided to find out about Nagumo Sian later, and I activated the Black Maitreya Art to the fullest and kissed Yukiko. And I started stimulating the sensitive areas of her chest as much as possible by playing with my hands.</p>
 <p>"Chuuup, Heu-hyat! Tssu-op, A-hyat★ Chuu-beu-chup, chup, Haa-eu-ut! Feels so good!!"</p>

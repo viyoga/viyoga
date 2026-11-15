@@ -75,10 +75,10 @@ chapter = 23
 <p>LEVEL UP!</p>
 <p>Please select a trait.</p>
 <p>I expected to level up to some extent because I had a lot of sex during the training camp. First, I'll choose the trait later, and now what I'm curious about is the translucent window after the level-up window.</p>
-<p>Skill created due to repetitive behavior. ➙ Coitus Technique [Rare Skill]</p>
+<p>Skill created due to repetitive behavior. ➙ Coitus Technique "Rare Skill"</p>
 <p>I acquired a related skill because I had a lot of sex. But there was one more translucent window.</p>
 <p>Coitus Technique is affected by the Golden Pillar trait, increasing rarity and proficiency.</p>
-<p>Coitus Technique [Rare Skill] ➙ Golden Pillar Bedroom Arts [Epic Skill]</p>
+<p>Coitus Technique "Rare Skill" ➙ Golden Pillar Bedroom Arts "Epic Skill"</p>
 <p>Oh, I didn't know the Golden Pillar had this effect. As I said before, sex play was minor in MegaCorp's youngest son, so the synergy of the Golden Pillar trait was not well known. I didn't even know that Coitus Technique would become Golden Pillar Bedroom Arts like now.</p>
 <p>"I've packed all my things. Let's go, Ryuta-gun."</p>
 <p>"Okay."</p>

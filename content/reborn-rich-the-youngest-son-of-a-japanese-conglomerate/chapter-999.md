@@ -7,75 +7,75 @@ chapter = 999
 
 <p>ASSISTANT: # Chapter 86. New York in Chaos. + 1000th Chapter Anniversary Q&amp;A;!</p>
 <p>Federal Superpowers Administration. New York Branch.</p>
-<p>「Did you contact Black Knight?」</p>
+<p>"Did you contact Black Knight?"</p>
 <p>As Diana Leach, the Deputy Director of the Federal Superpowers Administration, asked, the East Asia Liaison Officer opened his mouth while looking at a tablet.</p>
-<p>「Considering the Taira side, instead of contacting him directly, we contacted Cyberware, where Black Knight is the Boss.」</p>
-<p>「And?」</p>
-<p>「They replied that he would come as soon as possible.」</p>
+<p>"Considering the Taira side, instead of contacting him directly, we contacted Cyberware, where Black Knight is the Boss."</p>
+<p>"And?"</p>
+<p>"They replied that he would come as soon as possible."</p>
 <p>At the East Asia Liaison Officer's Words, Diana Leach let out a small sigh of relief. It was fortunate that Black Knight said he would come as soon as possible. The Federal Superpowers Administration was currently busier than ever.</p>
 <p>With Superior at the forefront, numerous unofficial superpower terrorist groups were being established, and even superpower users from enemy countries were illegally immigrating to the USA to plan terror, so the Federal Superpowers Administration, an organization that deals with superpower users, was very busy.</p>
 <p>In that Situation, intelligence came in that Behemoth and Whisper, Executives of Superior, were moving to New York. After grasping their intentions from various angles, their goal was clear. It was the fake Black Knight who was active in New York. Famine and Black Knight had a Friction, and it was judged that they were coming to New York because the Famine side didn't know that the fake Black Knight in New York was a fake.</p>
 <p>From the Federal Superpowers Administration's point of view, they didn't care what happened to the fake Black Knight, but they wanted to prevent significant harm from occurring due to a clash between Superior's superpower terrorists and the fake Black Knight.</p>
 <p>In the end, because they were short on manpower (the superpower unit belonging to the US military also said they were busy with their own Operations), they had no choice but to ask the real Black Knight, Taira Ryuta, in Japan for help.</p>
 <p>They thought that not only Black Knight's individual martial prowess but also his own forces would be of considerable help in this Operation.</p>
-<p>「Was the Information properly provided to Black Knight?」</p>
-<p>「Because it's secret Information, they said they would tell us when he arrives in the USA.」</p>
+<p>"Was the Information properly provided to Black Knight?"</p>
+<p>"Because it's secret Information, they said they would tell us when he arrives in the USA."</p>
 <p>At the East Asia Liaison Officer's Words, Diana Leach frowned.</p>
-<p>「Black Knight is not under our Affiliation. It's a cooperative relationship. And this Incident requires not only Black Knight's power but also the help of the forces he has, so what are we supposed to do if we don't give him any Information at all? Are you trying to have a battle of wills with a cooperative partner?」</p>
-<p>「Th, that's....」</p>
+<p>"Black Knight is not under our Affiliation. It's a cooperative relationship. And this Incident requires not only Black Knight's power but also the help of the forces he has, so what are we supposed to do if we don't give him any Information at all? Are you trying to have a battle of wills with a cooperative partner?"</p>
+<p>"Th, that's...."</p>
 <p>The East Asia Liaison Officer flinched at Diana Leach's rebuke. In the case of public officials who perform general administrative tasks, some Mistakes can be understood and the Mistakes can be corrected, but in the work of the Federal Superpowers Administration, which can cause dozens of Sasangja in an instant, Mistakes were difficult to tolerate.</p>
 <p>In particular, if someone with the martial prowess of Black Knight was treated carelessly and joined an organization like Superior, it could lead to irreversible harm.</p>
-<p>「Give me the necessary Information right away.」</p>
-<p>「A, I understand!」</p>
+<p>"Give me the necessary Information right away."</p>
+<p>"A, I understand!"</p>
 <p>The East Asia Liaison Officer nodded his Head greatly at Diana Leach's rebuke and hurriedly ran off to contact the Black Knight side.</p>
-<p>「....」</p>
+<p>"...."</p>
 <p>Diana Leach looked at the back of the East Asia Liaison Officer with cold Eyes. She wanted to cut him off right away, but it was impossible because the Federal Superpowers Administration was a secretly operated organization. When cutting off a member of the Federal Superpowers Administration, there was a retirement Procedure suitable for that. If they were cut off without any Procedure, Secrets could leak out.</p>
 <p>'First, I need to proceed with memory erasure.'</p>
 <p>Diana Leach put the East Asia Liaison Officer on the retirement list and began to examine the current Situation.</p>
-<p>「Fujigasaki Rinka is also in New York, so since it's just Behemoth and Whisper, it might be easier to handle than I thought....」</p>
+<p>"Fujigasaki Rinka is also in New York, so since it's just Behemoth and Whisper, it might be easier to handle than I thought...."</p>
 <p>Diana Leach muttered softly while looking at the Situation board. However, Diana Leach made a Mistake in not thinking about why Fujigasaki Rinka was in New York and not thinking deeply about the fake Black Knight.</p>
 <p>As a Price for that Mistake, New York would have to face considerable Chaos in the future.</p>
-<p>「Thank you all for taking the Time to attend the Meeting despite being busy.」</p>
+<p>"Thank you all for taking the Time to attend the Meeting despite being busy."</p>
 <p>First, I greeted the Meeting participants. It was a thank you for most of them participating like this even though it wasn't a pre-planned Meeting and was urgently scheduled.</p>
-<p>「First of all, the Reason for convening this emergency Meeting is because I suddenly received Contact from the US Federal Superpowers Administration asking to meet.」</p>
+<p>"First of all, the Reason for convening this emergency Meeting is because I suddenly received Contact from the US Federal Superpowers Administration asking to meet."</p>
 <p>At my Words, those who knew that I was Black Knight and that I had a deal with the Federal Superpowers Administration seemed to think that the Federal Superpowers Administration would ask me for help, and Athena and Yoma Kaita of Kōtetsubutai seemed confused about what the Situation was.</p>
 <p>When I looked at the two of them and subtly winked at Linling, Linling nodded and said, I'll send the data~!</p>
-<p>「First of all, there are two agenda items for today's Meeting. The first is why the Federal Superpowers Administration called me, and the second is to select the personnel who will go with me when I go to the USA.」</p>
+<p>"First of all, there are two agenda items for today's Meeting. The first is why the Federal Superpowers Administration called me, and the second is to select the personnel who will go with me when I go to the USA."</p>
 <p>In fact, these two agenda items weren't important enough to warrant an emergency Meeting, but because I was told to come to the USA as soon as possible, it was necessary to gather everyone at once to share opinions and decide on the personnel who would go to the USA with me, so I convened the emergency Meeting.</p>
-<p>「After all, the FSA (Federal Superpowers Administration) called Ryuta Older Brother because they need Older Brother's martial prowess, right? I don't really believe there's another Reason.」</p>
+<p>"After all, the FSA (Federal Superpowers Administration) called Ryuta Older Brother because they need Older Brother's martial prowess, right? I don't really believe there's another Reason."</p>
 <p>Tsukiyo gave her opinion on the first agenda item. The Reason I obtained US citizenship was to show that I wouldn't antagonize the US government and to do the requests they gave me.... As Tsukiyo said, it seemed like something had happened that required my martial prowess.</p>
-<p>「It seems like what Tsukiyo said is right. Does anyone have any other opinions?」</p>
+<p>"It seems like what Tsukiyo said is right. Does anyone have any other opinions?"</p>
 <p>I agreed with Tsukiyo's Words, but I asked the People gathered in the conference room because there might be opinions that I hadn't thought of. However, everyone was silent as if they agreed with Tsukiyo's Words.</p>
-<p>「Linling, where did the Federal Superpowers Administration say to meet in the USA?」</p>
-<p>「It's New York.」</p>
+<p>"Linling, where did the Federal Superpowers Administration say to meet in the USA?"</p>
+<p>"It's New York."</p>
 <p>New York.... Could something have happened to Sabu Fujigasaki Rinka?</p>
-<p>「Then, I want the Jo Seodang People to find out if there's anything near New York that the Federal Superpowers Administration would entrust to me.」</p>
+<p>"Then, I want the Jo Seodang People to find out if there's anything near New York that the Federal Superpowers Administration would entrust to me."</p>
 <p>Of course, Jo Seodang, which was now extending its power in some areas of Japan, couldn't deeply grasp Information about New York across the sea, but they could grasp the Situation through various News and SNS, so I asked them to do that.</p>
 <p>Of course, if I went to the USA, the Federal Superpowers Administration would give me Information, but if I knew in advance, our side could also prepare, so I told Jo Seodang to grasp the Information.</p>
-<p>「Ah! I've received Contact from the Federal Superpowers Administration!」</p>
+<p>"Ah! I've received Contact from the Federal Superpowers Administration!"</p>
 <p>Not long after asking Jo Seodang to grasp the Information, Linling said with shining Eyes.</p>
-<p>「What Contact?」</p>
-<p>「They said they'll give me the Information in advance.」</p>
-<p>「Ah, then will you tell me that Information?」</p>
+<p>"What Contact?"</p>
+<p>"They said they'll give me the Information in advance."</p>
+<p>"Ah, then will you tell me that Information?"</p>
 <p>It was a good choice to give the Information in advance. I was already annoyed that they were just telling me to come and go without any Information, so I was thinking of saying something to the Federal Superpowers Administration when I went to the USA.</p>
 <p>I was going to sternly tell them that we were in a contracted relationship, not a superior-subordinate relationship, but they were giving me the Information now. Since they gave me the Information, I should change my behavior from a stern rebuke to a subtle appak.</p>
-<p>「The Reason the Federal Superpowers Administration requested Ryuta-nim's help is because of Superior's movements.」</p>
+<p>"The Reason the Federal Superpowers Administration requested Ryuta-nim's help is because of Superior's movements."</p>
 <p>Superior? If it's Superior, it's worth asking me for help. Because it was a terrorist group created by Famine.</p>
-<p>「Superior?」</p>
-<p>「What kind of terrorist organization is it?」</p>
+<p>"Superior?"</p>
+<p>"What kind of terrorist organization is it?"</p>
 <p>There were many People who were hearing about Superior for the first Time except for those belonging to Jo Seodang, so there were Stories about what Superior was.</p>
-<p>「Superior is the largest superpower terrorist organization in the USA, gathered under the slogan that superpower users are superior.」</p>
+<p>"Superior is the largest superpower terrorist organization in the USA, gathered under the slogan that superpower users are superior."</p>
 <p>Linling was giving an explanation that wasn't different from what I knew. Everyone nodded, saying, Ah, I see, at Linling's explanation.</p>
-<p>「Behemoth and Whisper, belonging to Superior, are heading to New York targeting the fake Black Knight, and they want you to stop the two of them.」</p>
+<p>"Behemoth and Whisper, belonging to Superior, are heading to New York targeting the fake Black Knight, and they want you to stop the two of them."</p>
 <p>I was slightly surprised at Linling's Words. Behemoth was a fairly famous named monster. He was a middle Boss who appeared in the TMC (The MegaCorporation) era, which was a future Story compared to now.</p>
 <p>True to his name, Behemoth was a monster with tremendous size, strength, speed, and stamina, and although he wasn't as good as Alik, I remember that he was quite difficult.</p>
 <p>Unlike Alik, who was difficult because of his electricity or swordsmanship, or bizarre patterns due to gaejo, he could be said to be difficult because his pure Specs were high.</p>
 <p>I was quite surprised that that Behemoth existed from now. Of course, he might have been a different being from the Behemoth I knew. The name Behemoth could be used while inheriting it for generations.</p>
 <p>Anyway, I knew Behemoth, but I was hearing about Whisper for the first Time? Was he a Person who existed in this era and died...?</p>
-<p>「Is that all the Information?」</p>
-<p>「Yes. It seems like the Federal Superpowers Administration is calling Ryuta-nim because they're short on combat personnel.」</p>
+<p>"Is that all the Information?"</p>
+<p>"Yes. It seems like the Federal Superpowers Administration is calling Ryuta-nim because they're short on combat personnel."</p>
 <p>There's only one Reason to call me as Black Knight. In the end, they're calling me to use me as a combatant.</p>
-<p>「Then, I have to deal with the Superior side, and while I'm there, I should also help my comrades who went to the USA first, so I should go to the USA with People who have some jeonturyeok.」</p>
+<p>"Then, I have to deal with the Superior side, and while I'm there, I should also help my comrades who went to the USA first, so I should go to the USA with People who have some jeonturyeok."</p>
 <p>In the end, it was the same conclusion as before hearing the Information. Still, there was a big difference between knowing the enemy and not knowing them, so I felt more comfortable than when I first started the Meeting.</p>
 <p>Tsukiyo, who was requested by MidNightSKY-nim, is surprised after destroying a rock while training in Fist Technique, and Ryuta is surprised when Tsukiyo destroys the rock~!</p>
 <p>Tsukiyo~!</p>

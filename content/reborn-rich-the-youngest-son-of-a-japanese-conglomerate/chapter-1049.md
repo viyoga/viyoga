@@ -7,7 +7,7 @@ chapter = 1049
 
 <p>Ttuk...!</p>
 <p>The moment she saw the first raindrop fall on the Building rooftop, Fujigasaki Rinka spewed out the Abyss.</p>
-<p>-Shinkaiyatsude (深海八手) Heukmu (黑霧: Black Mist).</p>
+<p>-Shinkaiyatsude Heukmu (Black Mist).</p>
 <p>It was a technique that seizes a wide area by spewing out the Abyss like fog, but because she was Fujigasaki Rinka, whose absolute amount of Abyss had significantly decreased after having her Abyss absorbed during the Takakusaki Gengo battle, she couldn't spew out the fog of Abyss as if seizing the surroundings, and instead used Heukmu as if thinly wrapping it around her skin.</p>
 <p>Although she was wearing a cyber Suit, she used a shield once more, thinking it would be better not to be hit by those black raindrops.</p>
 <p>The remaining Fragment of All-Knowledge scramblers also, perhaps feeling it, were each using protection skills or equipment. Except for the Werewolf Chief, who was consumed by savagery.</p>
@@ -44,9 +44,9 @@ chapter = 1049
 <p>Currently, most attacks were being neutralized by the Rain of Lamentation thoroughly drenching the monster werewolf.</p>
 <p>If so, she had to use a method of attacking the Interior rather than the exterior, and that was the attack method that Fujigasaki Rinka's Shinkaiyatsude was best at.</p>
 <p>Having already made her judgment, Fujigasaki Rinka, without delay, approached the werewolf. And immediately, as if stamping a Seal, she extended her Palm.</p>
-<p>-Shinkaiyatsude (深海八手) Shintōbanin (浸透盤印: Penetrating Disk Seal)-Man'nami (万波: Ten Thousand Waves).</p>
-<p>It was Fujigasaki Rinka who further enhanced Shintōbanin, a signature infiltration technique of Shinkaiyatsude that channels the Abyss into the body, under the name Shintōbanin (浸透盤印)-Man'nami (万波).</p>
-<p>As its name Man'nami (万波: Ten Thousand Waves) suggests, the Abyss Energy entered the body, causing it to continuously emit waves. It was a technique that inflicted continuous damage, and with a single strike, it could deal fatal, sustained damage.</p>
+<p>-Shinkaiyatsude Shintōbanin (Penetrating Disk Seal)-Man'nami (Ten Thousand Waves).</p>
+<p>It was Fujigasaki Rinka who further enhanced Shintōbanin, a signature infiltration technique of Shinkaiyatsude that channels the Abyss into the body, under the name Shintōbanin -Man'nami.</p>
+<p>As its name Man'nami (Ten Thousand Waves) suggests, the Abyss Energy entered the body, causing it to continuously emit waves. It was a technique that inflicted continuous damage, and with a single strike, it could deal fatal, sustained damage.</p>
 <p>"Kyaooo! Kaekkaeng...! Kkaeng...!"</p>
 <p>At first, it seemed merely a little uncomfortable, but as the Abyss waves destroying its body's inside continuously spewed out, the monster werewolf whined Like a Dog. As the monster werewolf continuously vomited black blood, Fujigasaki Rinka, confident of Victory, turned her Head towards the sky where the Black Sage was, and the Black Sage's Voice was heard.</p>
 <p>"It's getting boring.</p>

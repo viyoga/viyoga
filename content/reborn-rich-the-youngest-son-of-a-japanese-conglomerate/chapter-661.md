@@ -48,7 +48,7 @@ chapter = 661
 <p>As his arms turned into tentacles, his reach became incredibly long, and they moved freely as if they had no joints, making him very difficult to deal with.</p>
 <p>"What essence of martial arts? You're just a monster!"</p>
 <p>I shouted at Kaiju Kakan, who was wrapping his tentacles around my body to break all my bones, and swung my fist.</p>
-<p>Deep Sea Eight Hands (深海八手) Touching the Abyss, Piercing the Void (触深破空).</p>
+<p>Deep Sea Eight Hands Touching the Abyss, Piercing the Void.</p>
 <p>Thinking of dealing with tentacles with tentacles, I used a technique I saw in a dream I had after visiting the Naruse main family.</p>
 <p>A giant tentacle made of the Abyss emerged and began to pierce everything in its path.</p>
 <p>-There is no such technique in Shinkai Yatsude...!</p>

@@ -10,7 +10,7 @@ chapter = 405
 <p>The method I suggested was to watch a Ratflix movie alone with a female student in the small room used by the faculty advisor in the club room. The other female students would watch movies outside and then come into the faculty advisor's room when it was their turn to switch places with the female student inside.</p>
 <p>If it's just the two of us, I can somehow cover up an erection. If there are several people, they might shout, "Everyone~! Look at this Bastard's boner!" and gather everyone, but if it's just the two of us, it won't be possible to do that as a joke.</p>
 <p>Of course, it's best not to get an erection with a female student next to me, but the snake in my center is a guy who raises his head all the time. He wasn't someone I could kill or revive at my will.</p>
-<p>The movie we're watching today is Delicious Love (おいしい LOVE).</p>
+<p>The movie we're watching today is Delicious Love (LOVE).</p>
 <p>The club president, Konoe Akina, says, looking around at the students. Delicious Love was a Japanese romantic comedy movie that had recently been uploaded to Ratflix. It seemed like she chose it because it was said to be easy to watch. Many students pushed for other genres, but they couldn't help but choose the romantic comedy genre at the words, "But still, it's a home date...."</p>
 <p>"Alright.... First up is Alik."</p>
 <p>As expected, Alik said he would attend before going to the Cheongsim Hall after hearing that he would be watching Ratflix alone with me for ten minutes today. That's why Alik got to go first.</p>
@@ -36,7 +36,7 @@ chapter = 405
 <p>Next was Seizawa Shii. The ever-playful expression of the white gyaru sat on my lap like Alik.</p>
 <p>"Ah~☆ Did I mistake the seat?"</p>
 <p>"There's a seat next to me. Don't stimulate me and sit down, okay?"</p>
-<p>Seizawa Shii says she mistook the seat but doesn't move. My Johnson, who was already slightly erect due to Naruse Shiyo's clumsy caresses(?), fully regained his strength due to Seizawa Shii's playfully moving butt.</p>
+<p>Seizawa Shii says she mistook the seat but doesn't move. My dick, who was already slightly erect due to Naruse Shiyo's clumsy caresses(?), fully regained his strength due to Seizawa Shii's playfully moving butt.</p>
 <p>"Ah...!"</p>
 <p>"I told you not to stimulate me."</p>
 <p>I said to Seizawa Shii with the most nonchalant expression possible. Seizawa Shii looked at me with a strange smile.</p>
@@ -69,7 +69,7 @@ chapter = 405
 <p>She stands up again in her seat and sits on my lap while facing me. Alik and Seizawa Shii sat while looking at the screen, but Konoe Akina only looked at me and sat on my thighs with her butt.</p>
 <p>"I'm going to kiss you, Ryuta-nim♥"</p>
 <p>Konoe Akina overlaps her lips with mine. She tries to open my closed teeth with a slightly awkward tongue movement, so I accept Konoe Akina's tongue.</p>
-<p>As expected, due to the position, my Johnson, who was erect, touched the pussy part of Konoe Akina's panties on top of it. Konoe Akina, while kissing me, instinctively shook her waist, rubbing the pussy part of her panties against my erect Johnson.</p>
+<p>As expected, due to the position, my dick, who was erect, touched the pussy part of Konoe Akina's panties on top of it. Konoe Akina, while kissing me, instinctively shook her waist, rubbing the pussy part of her panties against my erect dick.</p>
 <p>Tsuup...! Chu♥ Chuheup, Tsubup...!</p>
 <p>Konoe Akina made excessively lewd sounds for a high school girl's first kiss, and I couldn't hold back any longer, so I touched Konoe Akina's butt and shook my waist to try to penetrate her pussy, which was blocked by her clothes.</p>
 <p>"Tsuup.... Heuuheung...! That's all for today."</p>

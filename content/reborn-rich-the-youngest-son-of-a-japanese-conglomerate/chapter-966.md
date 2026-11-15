@@ -31,9 +31,9 @@ chapter = 966
 <p>"What is it...!"</p>
 <p>Otagi Yuka, blushing as if a little embarrassed to receive a gift in front of her Friends, spoke, but she didn't seem to dislike it. Otagi Yuka's gift was a necklace, and because of Seizawa Shii's recent grumbling, this time I didn't hand it to her, but put it on her myself.</p>
 <p>It was an Item called the "Ruby Necklace," and in fact, it was a much higher grade Item than Seizawa Shii's. I had fortunately found it on the Dark Market App; it was a Vampire-exclusive Item, and if you look at its options....</p>
-<p>◆Ruby Necklace [Unique Necklace] (0/5)</p>
+<p>◆Ruby Necklace "Unique Necklace" (0/5)</p>
 <p>A beautiful but ominous-looking ruby necklace. Rumor has it that it craves Blood.</p>
-<p>Vampire-exclusive Item. If a human wears it, they will suffer from the status effect [Anemia].</p>
+<p>Vampire-exclusive Item. If a human wears it, they will suffer from the status effect "Anemia".</p>
 <p>●Each time the opponent's Blood is absorbed during battle, it can be stored in the Ruby Necklace. A total of 5 Blood can be stored.</p>
 <p>●Using the Blood stored in the ruby, the wearer's vitality can be recovered. 1 vitality can be recovered per 1 Blood.</p>
 <p>Although the number of options was few for a Unique Item, it was a necklace a Vampire would want to buy even if it cost a fortune. Storing the opponent's Blood, and the simple option of recovering the wearer's vitality with that stored Blood, was a more precious option than any other for Vampires, for whom vitality was crucial. For necklaces, it was an option good enough to be used as an almost endgame Item. If I had to pick one disadvantage, when fighting one-on-one against a powerful Opponent or one who doesn't bleed, it couldn't absorb Blood, so only the option to use already stored Blood could be used, but in other situations, it boasted immense power, so a small disadvantage like that could be overlooked.</p>

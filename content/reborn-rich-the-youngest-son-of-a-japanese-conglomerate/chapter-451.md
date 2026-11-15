@@ -50,7 +50,7 @@ chapter = 451
 <p>,It seems that the serial killer we talked about yesterday has appeared."</p>
 <p>,Ah, really?!"</p>
 <p>Arisu, surprised by my words as if she didn't expect him to actually move, asked back. While talking like that, I arrived at Arisu's room and looked for my bracelet. When I grabbed the black metal bracelet, which looked somewhat ominous, the bracelet's information appeared in front of me.</p>
-<p>◆Abyss Lord's Combat Equipment [Legendary Armor]</p>
+<p>◆Abyss Lord's Combat Equipment "Legendary Armor"</p>
 <p>Equipment in the form of a bracelet made with love by the Daughter of the Abyss. When a certain amount of abyss is injected, it transforms into black armor that covers the whole body. It was made by reforging the armor worn by the Death Knight with the pressure of the abyss.</p>
 <p>It has powerful defense and additional performance against the abyss.</p>
 <p>When wearing armor</p>

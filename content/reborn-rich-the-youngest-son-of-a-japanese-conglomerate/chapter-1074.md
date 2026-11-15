@@ -5,14 +5,14 @@ weight = 1074
 chapter = 1074
 +++
 
-<p>are illustrations of swimsuit there Opening the Legion shopping bag that the Phantom Thief mother and daughter had given me, I saw two items: a rolled-up bamboo slip (竹簡: a recording medium made of bamboo instead of paper) and a reddish crystal ball the size of a child's head.</p>
+<p>are illustrations of swimsuit there Opening the Legion shopping bag that the Phantom Thief mother and daughter had given me, I saw two items: a rolled-up bamboo slip (a recording medium made of bamboo instead of paper) and a reddish crystal ball the size of a child's head.</p>
 <p>Hmm.... Both seemed to be quite unusual Items. First, I took out both Items and checked the Bamboo Slip.</p>
-<p>◆Ten Thousand Spirits Curse Release (萬靈呪解) [Unique Immortal Art Book / Magical Tool]</p>
-<p>A bamboo slip documenting ancient Immortal Arts (仙術) that manipulate ten thousand souls. Cannot be read without proper qualification.</p>
+<p>◆Ten Thousand Spirits Curse Release "Unique Immortal Art Book / Magical Tool"</p>
+<p>A bamboo slip documenting ancient Immortal Arts that manipulate ten thousand souls. Cannot be read without proper qualification.</p>
 <p>○Cannot be read by those who have not mastered Immortal Arts.</p>
 <p>●Upon first complete reading, all Immortal Arts Levels increase by 1. Immortal Arts activation speed increases by 10%.</p>
 <p>●When possessed, Damage and Immortal Arts Effect against Monsters/Spirits, Spirits, and Ghost Spirits increase by 30%. Damage and Immortal Arts Effect from Monsters/Spirits, Spirits, and Ghost Spirits decrease by 20%.</p>
-<p>●Immortal Arts form transformation , eye opening , destruction soul , restraint spirit , , can be acquired.</p>
+<p>●Immortal Arts form transformation, eye opening, destruction soul, restraint spirit, , can be acquired.</p>
 <p>Oh...! The Bamboo Slip was a somewhat minor and Rare skill book Item, an Immortal Arts Book. It seemed someone using Immortal Arts had also participated in the Fragment of Omniscience struggle. Seeing that the Phantom Thief mother and daughter obtained the Bamboo Slip, they must not have survived.</p>
 <p>The options were a bit ambiguous; in this near-future era, just before cyberpunk arrived, Monsters/Spirits and Spirits were hard to find, so it was an Item that could only be used somewhat restrictively.</p>
 <p>Of course, in Japan, there were a few Onmyoji Families that dealt with Monsters/Spirits and Spirits, so it had the advantage of being usable almost as a Counter to Onmyoji Families.</p>
@@ -20,9 +20,9 @@ chapter = 1074
 <p>The former can obtain Information, and the latter, no matter what security system is created, it's difficult to stop ghosts.</p>
 <p>However, there was a Limit that those who had not mastered Immortal Arts could not read it, but fortunately, there was someone in my faction who had mastered Immortal Arts. I thought Nagumo Sian would like this as a Gift.</p>
 <p>Next was the Crystal Ball's Turn. It was a subtly reddish Crystal Ball, the size of a child's Head, and even amidst the chaos of New Rochelle, there wasn't a single crack. Usually, such Crystal Balls are Tools that assist Magic, like a Staff or Wand.</p>
-<p>◆Phoenix Egg-Replica[Legacy+ Crystal Ball / Magic tool]</p>
+<p>◆Phoenix Egg-Replica"Legacy+ Crystal Ball / Magic tool"</p>
 <p>A Crystal Ball made by an Alchemist to imitate a Phoenix Egg. Although not a real Phoenix Egg, it contains powerful Authority of Flame.</p>
-<p>●Flame Ability can be changed to .</p>
+<p>●Flame Ability can be changed to.</p>
 <p>●Grants to the possessor.</p>
 <p>●Increases the possessor's Flame Ability by 20%.</p>
 <p>Crazy.... It was an Item of even higher Grade than the Ten Thousand Spirits Curse Release I had just seen. Although the option descriptions seemed simple, all three options were extremely powerful Abilities. Of course, the Ten Thousand Spirits Curse Release, which allows one to learn various techniques, grants considerable utility, but this Phoenix Egg Replica was an incredible Item that a Flame Ability User would want to possess even by Murder.</p>

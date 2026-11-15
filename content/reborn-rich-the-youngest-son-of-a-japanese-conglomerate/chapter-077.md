@@ -20,13 +20,13 @@ chapter = 77
 <p>Then, I turned on the internet and went into the email. What a dumbass. He left automatic login on. I guess he didn't think someone like me would come all the way to his house. I checked the emails Nadachi Tojo had exchanged. Unfortunately, almost all of them were work emails. Surprisingly, the emails are clean?</p>
 <p>With a hopeful thought, I went into the recycle bin, which temporarily stores deleted emails, and found the data I wanted.</p>
 <p>Of course, it wasn't an email directly contacting Taira Jiro, but a conversation with someone below him, but the content was quite meaningful.</p>
-<p>Goodfriend ( [email protected] )</p>
+<p>Goodfriend ("email protected")</p>
 <p>I am sending you a list of people who share our views, so please make sure there’s a positive result in the upcoming personnel appointment. There will be a big reward for you too.</p>
 <p>Your good friend.</p>
 <p>Attachment ⇶ Promotion Target List.DOC ⇩</p>
 <p>I sent this email itself to myself. The guy who sent it is quite bold. Sending it with Taira Steel's email without using a temporary email, is he not even thinking about getting caught?</p>
 <p>Since I found concrete evidence, I didn't have any other expectations and just checked the emails stored in the recycle bin, and I found an unexpected email there.</p>
-<p>dngyrptEhrkwp ( [email protected] )</p>
+<p>dngyrptEhrkwp ("email protected")</p>
 <p>Thank you. Please continue to provide regular reports as you have been doing.</p>
 <p>The recent operation you are conducting is impressive.</p>
 <p>Contacting Number 3 is an impressive choice. Trying to create discord with 5-1 may not be a major blow to TR, but these small operations add up to great results.</p>

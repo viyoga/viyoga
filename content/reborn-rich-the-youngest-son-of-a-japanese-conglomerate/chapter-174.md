@@ -72,7 +72,7 @@ chapter = 174
 <p>Ha Ju-yoon-ssi's upper body, which had been standing upright in the cowgirl position, collapsed and overlapped her body on top of me, who was lying down. I felt very good with the languid feeling after ejaculation and the feeling of Ha Ju-yoon-ssi's big, soft breasts being pressed against me.</p>
 <p>"Come here."</p>
 <p>"Eung...! Heup, chub, chooo-oop...! Chup♥"</p>
-<p>I pulled Ha Ju-yoon-ssi's head and kissed her. It was just a kiss, but my Johnson immediately started to gain strength.</p>
+<p>I pulled Ha Ju-yoon-ssi's head and kissed her. It was just a kiss, but my dick immediately started to gain strength.</p>
 <p>"Haaht! Why is it getting hard again...♥"</p>
 <p>"Why are you smiling?"</p>
 <p>"Hmph.... I don't knowang♥"</p>

@@ -28,7 +28,7 @@ chapter = 738
 <p>There was nothing on the fax machine. There were no work emails either. Hmm, I guess I don't have to work overtime.</p>
 <p>-Taira Ryuta: I'm finishing up now. Where should I go?</p>
 <p>I immediately sent a text message to Diana Rich. Actually, I wasn't in a hurry, but I thought I should deal with annoying things quickly.</p>
-<p>-Diana Rich: I'll send you the address. Come here .</p>
+<p>-Diana Rich: I'll send you the address. Come here.</p>
 <p>I checked the address that Diana Rich linked, and it was a cafe in a corner of Miyashi's downtown area. After looking at the address, I nodded and packed my things.</p>
 <p>"Master, do you have an appointment today?"</p>
 <p>When I came out of the special class building, Sakagami Rena was waiting for me. Since I said I had an appointment, it seemed like she was waiting because she was curious about what it was, as one of my information team leaders.</p>

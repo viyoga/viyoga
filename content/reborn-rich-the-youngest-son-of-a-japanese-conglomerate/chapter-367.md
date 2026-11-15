@@ -40,7 +40,7 @@ chapter = 367
 <p>Konoe Akina was the head of the prestigious Konoe family, so she wasn't in a position to come under me or anything. Still, she seemed a little regretful since she had received kindness from me.</p>
 <p>,Well, we can help each other from the outside.</p>
 <p>,Uhu-hu, each other, you say?</p>
-<p>Konoe Akina laughed, saying ,Uhu-hu, as if she liked my words ,each other,. She must want to help me that much.</p>
+<p>Konoe Akina laughed, saying,Uhu-hu, as if she liked my words,each other,. She must want to help me that much.</p>
 <p>,I don't have anything to carry like Akina, so I want to join the place that seonsaeng-ssi is trying to create, you know?</p>
 <p>Since the Otagi family is a vampire family, Otagi Yuka's grandfather was still the head of the family. Since their lifespan is different from humans, he is said to be very much alive. Moreover, since Otagi Yuka was the second daughter, it was safe to say that she would almost never become the head of the family like Konoe Akina.</p>
 <p>,Really? I'd be happy to have someone as skilled as Otagi come.</p>
@@ -53,7 +53,7 @@ chapter = 367
 <p>Ah, I didn't tell Saionji Diana my age. The other three must know my age, and Saionji Diana is the only one who doesn't know my age in this setting.</p>
 <p>,Actually, I'm the same age as you.</p>
 <p>,...Huh?</p>
-<p>Saionji Diana said ,Huh?, and then fell silent for a moment. Anyone would be stunned if their homeroom teacher suddenly said, ,I'm actually the same age as you, lol,. I look a bit more mature because of my muscles and build. Come to think of it, how old did she think I was?</p>
+<p>Saionji Diana said,Huh?, and then fell silent for a moment. Anyone would be stunned if their homeroom teacher suddenly said, ,I'm actually the same age as you, lol,. I look a bit more mature because of my muscles and build. Come to think of it, how old did she think I was?</p>
 <p>I wanted to directly ask Saionji Diana how old she thought I was, but I didn't ask because I knew I would be hurt no matter what answer I received.</p>
 <p>,If we're the same age.... with my ㅁ.....</p>
 <p>Saionji Diana, who had been muttering to herself for a while, came to her senses and smiled. Well, I could only see her smiling with her mouth because her bangs were covering her eyes, but if her mouth is smiling, then she's smiling, right?</p>

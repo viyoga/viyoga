@@ -42,7 +42,7 @@ chapter = 754
 <p>I woke up from the strange feeling below and found myself in my room, not the room where I was being held by Taira Kanna. The bed below was swollen, so I lifted the blanket and saw that Otagi Yuka was biting my third leg, my thick sausage.</p>
 <p>"Are you charging from the morning?"</p>
 <p>Nod.</p>
-<p>At my question, Otagi Yuka nodded instead of spitting out my Johnson that she was biting. Whether it was because she had a trauma from the debuff being strongly applied because she couldn't absorb my semen while I was kidnapped, she said that she would come to suck Taira Ryuta's special milk in the morning until her thirst for blood was over.</p>
+<p>At my question, Otagi Yuka nodded instead of spitting out my dick that she was biting. Whether it was because she had a trauma from the debuff being strongly applied because she couldn't absorb my semen while I was kidnapped, she said that she would come to suck Taira Ryuta's special milk in the morning until her thirst for blood was over.</p>
 <p>"Haaah...♥"</p>
 <p>"Jugun-nim~♥"</p>
 <p>Saionji Diana and Sakagami Rena were lying on either side of me. My hands were placed on their chests, so when I moved a little, they made moaning sounds like sleep talking.</p>

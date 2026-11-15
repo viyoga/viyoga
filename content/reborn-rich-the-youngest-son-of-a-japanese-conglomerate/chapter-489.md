@@ -14,7 +14,7 @@ chapter = 489
 <p>"Here. It's the part that explains the location of the Root of the Earthquake."</p>
 <p>The scholar pointed to the part of the document where he had interpreted the location where the Root of the Earthquake was hidden.</p>
 <p>■■■ God cut off the Root of the Earthquake and hid it on the right side of Mount Fuji, so no one could find it. Whoever finds the Root of the Earthquake can control the earthquake at will....</p>
-<p>"Here, it says the right side of Mount Fuji. We may have been thinking too simply. The character for 'right' (右) doesn't just mean right, it also means west. We overlooked that."</p>
+<p>"Here, it says the right side of Mount Fuji. We may have been thinking too simply. The character for 'right' doesn't just mean right, it also means west. We overlooked that."</p>
 <p>"In that case...."</p>
 <p>"If my interpretation is correct, we've been looking on the completely wrong side."</p>
 <p>Usually, when you say right, it means east based on the map, but he didn't know that the character for right also had the meaning of west. If that's the case, it seemed like they had really been looking in the exact opposite location until now, just like the scholar said.</p>

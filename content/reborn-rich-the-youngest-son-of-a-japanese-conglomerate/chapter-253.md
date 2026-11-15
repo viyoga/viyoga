@@ -43,15 +43,15 @@ chapter = 253
 <p>"Hehe...♥ Do you want to see more?"</p>
 <p>"Huh? See what?"</p>
 <p>I pretended not to know, but Arisu had already figured out that my eyes were on her thighs, so she smiled seductively and started to lift the skirt of her dress again.</p>
-<p>As the skirt was lifted and Arisu's pure white thighs were revealed again, my Johnson also started to show itself over my pants in proportion. As expected, he's a very assertive guy, Johnson.</p>
+<p>As the skirt was lifted and Arisu's pure white thighs were revealed again, my dick also started to show itself over my pants in proportion. As expected, he's a very assertive guy, dick.</p>
 <p>"Should I lift it a little more?"</p>
 <p>Arisu, who had lifted her skirt almost to the point where her panties were visible, asked me with a seductive expression. I had already seen Arisu's panties hundreds of times, but seeing them like this made me want to see them even more.</p>
 <p>"...Yeah."</p>
 <p>I swallowed hard and answered quietly. At my honest answer, Arisu smiled seductively once again and lifted her skirt a little more. And then she spread her legs.</p>
 <p>There were no panties there, unlike what I had expected. There was only Arisu's cute, tightly closed pussy. Even better.</p>
 <p>"Ehehe.... Ryuta saw mine, so I'm going to see Ryuta's too."</p>
-<p>Arisu smiled and started to take off my pants. My Johnson was already swollen, so it was a bit difficult to take off my pants. Still, to help Arisu, who was struggling, I lifted my butt slightly to make it easier to take off my pants.</p>
-<p>My stiff Johnson, standing tall and looking at the sky, was soon revealed. Arisu looked at my Johnson as if possessed and tried to climb on top of me.</p>
+<p>Arisu smiled and started to take off my pants. My dick was already swollen, so it was a bit difficult to take off my pants. Still, to help Arisu, who was struggling, I lifted my butt slightly to make it easier to take off my pants.</p>
+<p>My stiff dick, standing tall and looking at the sky, was soon revealed. Arisu looked at my dick as if possessed and tried to climb on top of me.</p>
 <p>"But Sunbae-nim is driving in the front...."</p>
 <p>"It's okay♥ We already talked about it beforehand."</p>
 <p>When I tried to stop Arisu, Mimata Chieri, with her face bright red, looked at me through the rearview mirror and said that. Did they plan this in advance? No, more than that, even if they're okay with it, I'm worried about an accident....</p>
@@ -61,7 +61,7 @@ chapter = 253
 <p>"Heueum, is it, hngh♥ in now?"</p>
 <p>Jjeolkeueok...!</p>
 <p>"Haeueuehang!"</p>
-<p>Arisu asked if it was in and, without waiting for an answer, matched my Johnson, which was standing stiffly and didn't need separate aiming, to her pussy and sat down as is.</p>
+<p>Arisu asked if it was in and, without waiting for an answer, matched my dick, which was standing stiffly and didn't need separate aiming, to her pussy and sat down as is.</p>
 <p>Seeing Arisu, who was shaking and tilting her head back as if she had reached her climax just by inserting it, I opened my mouth.</p>
 <p>"Is it over?"</p>
 <p>"Nooo...! I'm not, hngh! a useless pussy, aahang♥!"</p>
@@ -72,7 +72,7 @@ chapter = 253
 <p>"Heueung, hngh! Re...ally? Haeueueut!"</p>
 <p>Arisu, feeling good that I said it felt better, came a little. I could feel the inside of Arisu's pussy getting warmer and wetter.</p>
 <p>"Hngh, eueuheung♥"</p>
-<p>Arisu danced on my Johnson, and as the sun rose, the sunlight became hotter. Mimata Chieri, who was also having a hard time listening, turned on the radio.</p>
+<p>Arisu danced on my dick, and as the sun rose, the sunlight became hotter. Mimata Chieri, who was also having a hard time listening, turned on the radio.</p>
 <p>-The existence of espers has been revealed due to the recent Dignity Health Sports Park disaster, and people are claiming to be espers on various social media platforms....</p>
 <p>"Hngh♥ Eueuheung...!"</p>
 <p>Arisu's moans grew louder, and Mimata Chieri, unable to bear it any longer, briefly parked the car on the coastal road.</p>

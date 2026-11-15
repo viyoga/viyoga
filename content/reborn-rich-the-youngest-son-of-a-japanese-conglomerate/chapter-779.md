@@ -96,7 +96,7 @@ chapter = 779
 <p>"Well, as you wish...."</p>
 <p>Anyway, if it was to make her listen to our Proposal, it was better to become a little more intimate, so I nodded my Head.</p>
 <p>Dark Night.</p>
-<p>The serial killer Kotowazuki (斷頭鬼) drew a dagger.</p>
+<p>The serial killer Kotowazuki drew a dagger.</p>
 <p>"Fufufu...."</p>
 <p>Kotowazuki chuckled softly, and plunged the Dagger into the Neck of the man who was sleeping and snoring. The sleeping man opened his Eyes, but with the Dagger already plunged into his Neck, he could do nothing. The man gurgled, then his Body went limp.</p>
 <p>Click.</p>

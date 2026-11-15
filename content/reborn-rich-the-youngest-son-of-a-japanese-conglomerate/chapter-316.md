@@ -29,7 +29,7 @@ chapter = 316
 <p>But this is unexpected. If she's doing this for money, the real thing would be quite profitable. She wouldn't have to share that money with the delivery health company.</p>
 <p>Maybe she's not doing it because of loyalty to her husband. If that's the case, it's a bit of a funny thought. She's already rubbed her naked body against me, there shouldn't be a big difference between inserting and not inserting.</p>
 <p>Well, it wouldn't be fun if she gave in right away. Still, I feel like some of the pent-up stuff has been released because a woman touched me, so I think I can wait a little longer.</p>
-<p>By the way, her pseudonym is Yuzu (柚子: Citron). She came up with it so casually that I almost laughed when she told me her name.</p>
+<p>By the way, her pseudonym is Yuzu (Citron). She came up with it so casually that I almost laughed when she told me her name.</p>
 <p>I sat at my desk and opened the materials I received when I entered St. Francisco Girls' Academy, a book of academy faculty information that investigated the teachers. I hadn't looked at it before because I wondered why they gave me this along with the class studies to teach the students, but it was quite useful.</p>
 <p>Kasaoka Yuzuki.... Found her. Skipping the place of origin and high school, the latest trends section said that she was working at a brothel because of debt from buying a house and debt from being scammed. Let's see.... Her debt is considerable. Of course, it's not a lot of money for me, but it was quite difficult for ordinary people.</p>
 <p>"The Taira Group's information is incredibly accurate.... Amazing."</p>

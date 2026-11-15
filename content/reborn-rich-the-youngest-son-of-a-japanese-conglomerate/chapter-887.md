@@ -16,10 +16,10 @@ chapter = 887
 <p>The more Genpaku got angry, his Size grew larger and larger, and his Power and speed became stronger. It couldn't even be called a mistake, because now, compared to when they first fought, his Height had grown almost a span taller. As the unknown Power grew stronger, Sakagami Rena felt a familiar yet different Feeling from Genpaku.</p>
 <p>"This is.... Divine...!"</p>
 <p>It was a similar Feeling to the Abyss that Taira Ryuta had used in the past. To be precise, it was a different Power from the Abyss, but she felt that the source of that Power was not human, but from a transcendent Existence.</p>
-<p>What Sakagami Rena felt was true. Dozens of years ago, Genpaku, an ordinary second-rate sumo wrestler, discovered an abandoned shrine in a corner of Mount Suzuka (鈴鹿山) where no one went while training.</p>
+<p>What Sakagami Rena felt was true. Dozens of years ago, Genpaku, an ordinary second-rate sumo wrestler, discovered an abandoned shrine in a corner of Mount Suzuka where no one went while training.</p>
 <p>At first, he tried to just pass by, but Genpaku, who was thirsty for Victory, entered the abandoned Shrine, paid his respects to an unnamed god, and prayed for Power for himself.</p>
 <p>After paying his respects at that Shrine dedicated to the unnamed god, Genpaku began to rise rapidly. His Power grew stronger and stronger, and the attacks of opposing sumo wrestlers no longer hurt him.</p>
-<p>The power he gained so easily was like an addiction. So Genpaku, before every match, went to the unnamed shrine, made offerings, and paid his respects. Each time, he grew stronger, and eventually, he was on the verge of becoming an Ozeki (大関: a sumo rank, effectively the highest rank just below Yokozuna (横綱)).</p>
+<p>The power he gained so easily was like an addiction. So Genpaku, before every match, went to the unnamed shrine, made offerings, and paid his respects. Each time, he grew stronger, and eventually, he was on the verge of becoming an Ozeki (a sumo rank, effectively the highest rank just below Yokozuna).</p>
 <p>But what the unnamed god bestowed was not just a Blessing. Without him knowing, gradually, a Change in his personality began to occur. Of course, perhaps because it was a gradual Change, Genpaku didn't even realize he was undergoing Corruption.</p>
 <p>He became increasingly violent, and in situations where he disagreed with an Opponent, his Hands would go up before Conversation; unable to control his Lust, he caused many problems concerning Women.</p>
 <p>Ultimately, he caused an unforgivable Problem: while walking down the Road, he Raped and Murdered a certain Woman. Because of that incident, he was expelled from the sumo world, but he wasn't imprisoned; just then, as World War III broke out, taking advantage of the Public Order vacuum, he hid his Body in that abandoned Shrine in Suzukasan where he had gained his Power.</p>
@@ -47,7 +47,7 @@ chapter = 887
 <p>She knew Urabe Konoka, along with Seizawa Shii, was in the same Group as her. The Operation was to provide cover from a distance using a Bow, a long-range weapon, but until that Operation was planned, Sakagami Rena had never seen Urabe Konoka fight, so she hadn't had high Expectations.</p>
 <p>But looking at the current Situation, the Arrows Urabe Konoka was shooting seemed to be her only hope.</p>
 <p>Swaeeeeeek!</p>
-<p>The sound of a sharp object slicing through the wind was heard, but unlike before, Sakagami Rena abandoned her hit-and-run tactics to prevent Genpaku from evading. Holding the Ninjato Murasakii-ichi (紫一) that Ichimonji Harugoro had crafted for her, she charged straight in.</p>
+<p>The sound of a sharp object slicing through the wind was heard, but unlike before, Sakagami Rena abandoned her hit-and-run tactics to prevent Genpaku from evading. Holding the Ninjato Murasakii-ichi that Ichimonji Harugoro had crafted for her, she charged straight in.</p>
 <p>"Khahaha! To commit suicide, are you coming to me? Try using that cute Flame again!"</p>
 <p>Already, with his Fading Reason half-gone, Genpaku seemed not to hear even the sound of the Arrow cutting sharply through the Wind. As Genpaku was about to clap his Hands together with Sakagami Rena's Body in the middle to crush her, Urabe Konoka's Arrow pierced Genpaku's gigantic body.</p>
 <p>"Keueuaaaaaaak!!"</p>

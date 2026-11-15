@@ -49,7 +49,7 @@ chapter = 244
 <p>"Do you know about Amsang?"</p>
 <p>"Amsang?"</p>
 <p>Looking at the guy's appearance as he asked me back, it seemed like Kiyohira didn't know about Amsang.</p>
-<p>What can I say, it's just like the name, Amsang (暗商), dark merchants. If you check this app, they sometimes sell martial arts books. I'll recommend it so you can sign up, and keep an eye on the app from time to time. Good martial arts books might appear.</p>
+<p>What can I say, it's just like the name, Amsang, dark merchants. If you check this app, they sometimes sell martial arts books. I'll recommend it so you can sign up, and keep an eye on the app from time to time. Good martial arts books might appear.</p>
 <p>I thought a lot about whether to give Kiyohira the Bagua Zhang I got in Korea, but in the end, I decided to give it to Mimata Chieri, who is my hands and feet, so I told Kiyohira about the Amsang app so he could choose the martial arts book he wanted himself.</p>
 <p>"There was such an app?"</p>
 <p>"Yeah, martial arts books don't come up often, but they do come up from time to time, so check it out. If it's a martial arts book that comes up on Amsang, it means it has a basic level of quality."</p>

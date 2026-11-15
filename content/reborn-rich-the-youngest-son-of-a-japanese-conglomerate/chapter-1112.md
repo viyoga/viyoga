@@ -56,7 +56,7 @@ chapter = 1112
 <p>At my question, Nasian trembled repeatedly at the Climax and demanded more of my semen. Swaying her Pelvis gently and stimulating my cock that was pressing against her buttocks seemed to be manifesting her innate sex appeal.</p>
 <p>I couldn't help it. Looking at her condition, even if we did it one more time, the aphrodisiac didn't seem like it would be detoxified.... At least two or three more vaginal ejaculations seemed necessary.</p>
 <p>"Then this time, like this...."</p>
-<p>This time, instead of from behind, I turned Nasian's body so we faced each other. The sexual position we would do this time was a standing position (立位). However, I planned to modify it slightly by having Nasian lift one leg and then insert.</p>
+<p>This time, instead of from behind, I turned Nasian's body so we faced each other. The sexual position we would do this time was a standing position. However, I planned to modify it slightly by having Nasian lift one leg and then insert.</p>
 <p>For an ordinary woman, it would have been a difficult Intimate Posture, but for Nasian, a Super Peak Realm Master who could freely control her Body, it was not a difficult Intimate Posture.</p>
 <p>"Lift your leg."</p>
 <p>"Uh.... Is this how it's usually done?"</p>

@@ -34,13 +34,13 @@ chapter = 124
 <p>"Actually.... It was full of trap properties. It was like a recommendation list to test my eye for choosing a company. Only about 4 out of the 25 companies on the Chairman's list had good conditions."</p>
 <p>As expected of Danjo old man, he couldn't give anything properly.</p>
 <p>"Then which place do you recommend the most, Sunbae-nim?"</p>
-<p>"It's here. East Weapon, also known as Tohei (東兵), is a PMC."</p>
+<p>"It's here. East Weapon, also known as Tohei, is a PMC."</p>
 <p>Ah, East Weapon...! It was one of the PMCs that could be hired in the game. It was the opposite of Seryu Military Company. If Seryu Military Company was a small elite psychic unit, East Weapon was a PMC that ran a large unit that wasn't so elite.</p>
 <p>East Weapon was a PMC that recruited a lot of regular soldiers at a cheap price during World War III to fill the numbers. Even now, 8 years after the war, it is said to be famous as a PMC where unemployed young people can easily find employment.</p>
 <p>It wasn't that elite, but its reputation in the industry wasn't bad. It had a good reputation with customers because it handled a lot of work that other PMCs didn't do because it wasn't profitable. It handled small things like being a personal bodyguard for a woman being stalked. Of course, it also did combat missions in conflict zones.</p>
 <p>"It's a company with a decent name, so how did it come on the market?"</p>
 <p>"It seems that the company president's son spent money he shouldn't have. He put it up for urgent sale because his life was in danger if he didn't pay back the money quickly. You can probably buy it for about 6 billion yen."</p>
-<p>The son of a PMC company president put the company up for sale because his life was in danger? And at that price? If that's the case, the group he owes money to must be a pretty big one. It's probably Amsang or Hionigumi (日鬼組), a giant Yakuza organization in Japan...</p>
+<p>The son of a PMC company president put the company up for sale because his life was in danger? And at that price? If that's the case, the group he owes money to must be a pretty big one. It's probably Amsang or Hionigumi, a giant Yakuza organization in Japan...</p>
 <p>"Where did he borrow money from that the PMC president is so scared that he's selling the company?"</p>
 <p>"Amsang."</p>
 <p>Ah, as expected. To be able to ignore Amsang's influence, you had to be at least in the top 5 in Japan. Amsang itself is a dark organization that plays around in the world.</p>

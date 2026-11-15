@@ -11,7 +11,7 @@ chapter = 752
 <p>"No way...?"</p>
 <p>Everyone except Alik seemed to have guessed something, looking at the bed, handcuffs, and shackles in the middle of the room. Even Naruse Shiyo, a virgin, was blushing as she stared at me.</p>
 <p>"You didn't have any clothes, Sensei-ssi...!"</p>
-<p>"Kanna-cchi is too much! No matter how much you like our Ryuta-cchi, how could you do this?! T-t-to do that , there's a proper order besides kidnapping! Like a confession... or a yobai (night crawl)!"</p>
+<p>"Kanna-cchi is too much! No matter how much you like our Ryuta-cchi, how could you do this?! T-t-to do that, there's a proper order besides kidnapping! Like a confession... or a yobai (night crawl)!"</p>
 <p>Otagi Yuka looked at me with a slightly pitiful gaze, her expression saying, 'you got fucked, didn't you?', while Seizawa Shii was seething with anger at Taira Kanna for assaulting me. By the way, Shii, are you really okay with yobai too?</p>
 <p>"These costumes...?"</p>
 <p>Sakagami Rena looked at me with empty eyes, staring at the pile of cosplay sets I had haphazardly thrown around while searching for clothes to wear. Her expression asked, 'What on earth happened here?'</p>

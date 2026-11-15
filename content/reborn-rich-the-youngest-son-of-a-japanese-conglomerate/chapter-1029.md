@@ -46,7 +46,7 @@ chapter = 1029
 <p>But Otagi Yuka was not the ordinary Vampire Herta Vogel imagined.</p>
 <p>"Blood Realm."</p>
 <p>Following Otagi Yuka's muttering, the Surroundings were dyed with red fog. Otagi Yuka permeated into the Blood Fog, concealing her Appearance.</p>
-<p>"Hmph! You dare challenge me, me , to a spell duel?! ɢŪŦ ŞŦŔΛהɢŪŁΛŦĩøה!"</p>
+<p>"Hmph! You dare challenge me, me, to a spell duel?! ɢŪŦ ŞŦŔΛהɢŪŁΛŦĩøה!"</p>
 <p>Herta Vogel, seeing Otagi Yuka seemingly challenge her, a witch, to a spell duel, grew angry and chanted the Internal Organs spell once more, beginning to advance the Corpses towards where Otagi Yuka had been.</p>
 <p>And this time, the grimoire she held in her right Hand floated up, and began to spew ominous purple Flames.</p>
 <p>"Ŧɦ£ ṖŪŔṖŁ£ ƒŁΛɱ£ øƒ Λ ¢ŪŔŞ£!"</p>

@@ -72,16 +72,16 @@ chapter = 221
 <p>,Yes, I'm looking forward to how delicious it will be.</p>
 <p>,Hehe, I'll show you the best steak in New York.</p>
 <p>If he's so confident, I wonder how delicious it will be. I parted ways with the butler, and Mimata Chieri also went to her room. I went into my room, took a shower, and decided to check the items I got today.</p>
-<p>◆Grizzly Totem [Epic Totem]</p>
+<p>◆Grizzly Totem "Epic Totem"</p>
 <p>An Indian shaman has bound the spirit of a bear to a bear statue. If you are recognized by the spirit of the bear, you can gain the strength and stamina of the bear.</p>
 <p>I took out the bear totem that I had checked earlier. This... I should give it to Han Yu-gyeong. Her ranged and mid-range combat was fine with her various magic and throwing skills, but Han Yu-gyeong's physical abilities themselves were terrible, so if she received the grizzly totem's options, she would have a great boost in strength and stamina, which would be very helpful in close combat.</p>
 <p>By the way, the way to be recognized by the spirit of the bear was simple. Just apply honey to the bear totem every day. If you do that for a few days, you will be recognized by the spirit of the bear and it will lend you its strength and stamina.</p>
 <p>I have enough strength and stamina, so I don't need it, so I should give it to Han Yu-gyeong. And next is...</p>
-<p>◆Allie's Music Box [Rare Possession]</p>
+<p>◆Allie's Music Box "Rare Possession"</p>
 <p>This music box alerts the owner with beautiful music when someone with malice approaches. It is said that a timid fairy resides in it.</p>
 <p>It's not very useful to me, who has the Sense of a Master, but I thought I should give it to Jinmija Yeosa. Since it's malice, it will be useful not only for her life but also for her business. Even scammers who come to ruin her business have malice, so the music box will definitely ring.</p>
 <p>The last liquor called the Elixir of Strength was something I had never seen before either. I'm a little curious whether it will be a dud or a hit.</p>
-<p>◆Elixir of Strength [Rare Elixir]</p>
+<p>◆Elixir of Strength "Rare Elixir"</p>
 <p>An elixir that randomly increases strength by 0~2 when a person with less than 12 strength drinks it all and sobers up. It's just a liquor with no ability if you don't get drunk.</p>
 <p>This was also a useless elixir for me. I can't even get addicted anymore because of my trait, so how can I get drunk? Besides, my strength is exactly 12. Even if I drink it and get drunk, my strength won't increase. Thinking about it, the trait Body Wrapped in the Abyss is quite bad. I don't get drunk even if I drink alcohol, so what's the point of drinking soju...? I don't usually drink alcohol often, but there are times when I crave it.</p>
 <p>As I was sighing while looking at the Elixir of Strength, I heard a knock, and Mimata Chieri peeked in.</p>

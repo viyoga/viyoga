@@ -19,11 +19,11 @@ chapter = 1040
 <p>Just as Shimokawabe Airen thought, 'Quite impressive...!' Isaac Flint closed the distance and swung his greatsword.</p>
 <p>Huuung!</p>
 <p>The greatsword, swung with a sound like a massive sheet of Iron cutting through the Wind. Shimokawabe Airen decided to use a Kashima Kiichi Shinto-ryu Martial Arts Form to deflect Isaac Flint's powerful attack.</p>
-<p>-Kashima Kiichi Shinto-ryu (鹿島鬼一神道流) Sakurakaben-nagashi (桜花弁流し: Cherry Blossom Petal Stream)</p>
+<p>-Kashima Kiichi Shinto-ryu Sakurakaben-nagashi (Cherry Blossom Petal Stream)</p>
 <p>Shimokawabe Airen moved her Sword as if guiding Isaac Flint's greatsword. Isaac Flint's greatsword, which looked more like a thick sheet of Iron than a Sword over 2 meters long, was deflected sideways as if guided by Shimokawabe Airen's thin katana.</p>
 <p>Kwaaaang!</p>
 <p>Isaac Flint's strike, due to Shimokawabe Airen's deflection, dug into the building Remains and kicked up a huge cloud of Dust.</p>
-<p>-Kashima Kiichi Shinto-ryu (鹿島鬼一神道流) Kiichi-ryo-cham (鬼一領斬: Demon One Territory Slash)</p>
+<p>-Kashima Kiichi Shinto-ryu Kiichi-ryo-cham (Demon One Territory Slash)</p>
 <p>Shimokawabe Airen used the vertical Slash attack Martial Arts Form, Kiichi-ryo-cham, towards Isaac Flint, who had an opening from bringing his Sword down. It was one of the basic Martial Arts Forms, but Kiichi-ryo-cham delivered a fatal strike that vertically cut through space.</p>
 <p>Isaac Flint, perhaps sensing something unusual, simultaneously pulled out the Sword stuck in the building Remains and leaped backward as if flying.</p>
 <p>All these actions happened while Shimokawabe Airen was delivering her strike. Because it was done with pure physical Ability, not by utilizing any special Technique, Shimokawabe Airen admired his tremendous physical prowess.</p>
@@ -48,7 +48,7 @@ chapter = 1040
 <p>Shimokawabe Airen also did not retreat, but charged forward and swung her Sword.</p>
 <p>Chaeng! Chaeng! Chaeng!</p>
 <p>With metallic sounds that seemed to tear one's Sensitive Ear, sparks of Fire that illuminated the night flew as Sword clashed with Sword. Even clashing with a greatsword over 2 meters long, Shimokawabe Airen's Sword remained unharmed.</p>
-<p>Perhaps because it was a sword, Kamiwa (神和: Divine Harmony), crafted with all his heart from mithril by the master craftsman Ichimonji Harugoro, Shimokawabe Airen's sword, Kamiwa, showed no signs of losing its sharp aura, far from breaking.</p>
+<p>Perhaps because it was a sword, Kamiwa (Divine Harmony), crafted with all his heart from mithril by the master craftsman Ichimonji Harugoro, Shimokawabe Airen's sword, Kamiwa, showed no signs of losing its sharp aura, far from breaking.</p>
 <p>The two stayed close and continued to swing their Swords. Their Swords were swung so rapidly that only the occasional Sword Light reflected by the surrounding Street Lights was briefly visible.</p>
 <p>Due to the battle of the two Swordsmen, the surrounding buildings and structures were destroyed, and the area had become almost flat ground.</p>
 <p>Shimokawabe Airen and Isaac Flint, who had been swinging their Swords at each other for a long Time, created distance. They realized that a Match could not possibly be decided through extreme close-quarters combat. Isaac Flint was busy blocking Shimokawabe Airen's complex Techniques, and Shimokawabe Airen found the maenggong stemming from Isaac Flint's powerful body burdensome.</p>
@@ -57,7 +57,7 @@ chapter = 1040
 <p>"You are the first to receive this Technique."</p>
 <p>Isaac Flint said, looking at Shimokawabe Airen with a Gaze mixed half with Madness and half with Fading Reason. Shimokawabe Airen, on the other hand, said nothing. After staring at each other for a moment, both swung their Swords almost simultaneously.</p>
 <p>-Flint-ryu (Flint Style) Secret Technique: The Pinnacle.</p>
-<p>-Kashima Kiichi Shinto-ryu (鹿島鬼一神道流) Kuukan-kire-kaika (空間切-開花: Space Slash - Blooming).</p>
+<p>-Kashima Kiichi Shinto-ryu Kuukan-kire-kaika (Space Slash - Blooming).</p>
 <p>Isaac Flint's greatsword thrust forward with incredible speed, breaking the sound barrier and creating a sonic boom, and its shockwave possessed immense power, enough to sweep away everything around it.</p>
 <p>On the other hand, what Shimokawabe Airen unleashed was a red, flower bud-shaped Geomgi the size of a Thumb joint.</p>
 <p>It was a delicate-looking Geomgi that seemed as if it would be swept away by the immense power pouring from Isaac Flint's Higi, but before long, the red, flower bud-shaped Geomgi was absorbing the power of Isaac Flint's strike and growing larger and larger.</p>

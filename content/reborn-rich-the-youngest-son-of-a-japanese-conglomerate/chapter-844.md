@@ -18,7 +18,7 @@ chapter = 844
 <p>"It's an information broker named K from Tokyo, and I heard he became the broker for Seizawa Shii, who is on our list."</p>
 <p>"K? Wasn't he Seizawa Shii's informant before?"</p>
 <p>Hojo Otoji said, tilting his Head. Since the code names of Seizawa Shii's current broker and former broker were the same, a little suspicion couldn't be helped. The original broker, K, had died by Seizawa Shii's Hand, so he was not the same Person as the K mentioned this Time.</p>
-<p>They are people with the same name. I heard that the original broker K for Seizawa Shii used K from the name Kenta (健太)... and my broker K comes from the nickname Kyoshiro (狂死郎). I heard that brokers usually prefer to use letters as code names, so overlaps are common.</p>
+<p>They are people with the same name. I heard that the original broker K for Seizawa Shii used K from the name Kenta... and my broker K comes from the nickname Kyoshiro. I heard that brokers usually prefer to use letters as code names, so overlaps are common.</p>
 <p>In fact, when Takakusaki Athena heard this Story, she was also a little surprised. Because Seizawa Shii's broker and her own broker had the same code name. Of course, since they were different People, it wasn't a Problem.</p>
 <p>"So, what Information can be obtained?"</p>
 <p>"It will just be about her Traces or schedule. Seizawa Shii was already Betrayed by a broker once, so if we try to dig out detailed Information, she will be suspected."</p>

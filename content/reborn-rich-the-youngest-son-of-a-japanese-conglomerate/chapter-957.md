@@ -23,7 +23,7 @@ chapter = 957
 <p>-Understood. Then I'll see you when you arrive tomorrow.</p>
 <p>Taira Ryuta, seemingly relieved by Urabe Konoka's Words, ended the Call with a bright Greeting. Urabe Konoka felt a slight sense of disappointment at Taira Ryuta's Attitude, as if he wasn't worried at all despite her telling him not to Worry.</p>
 <p>In fact, Taira Ryuta was least worried about Urabe Konoka and Hanakame. No matter what happened, Lizhael could intervene if necessary, so it was more a feeling of reassurance than Worry.</p>
-<p>After finishing the call, Urabe Konoka entered the room to pack her equipment. Even if she couldn't pack all of her luggage, she needed to pack her ritual tools (祭具) and essential equipment. When Urabe Konoka came out after packing various items, Hanakame had also returned and finished packing her equipment. As expected, being much more experienced than Urabe Konoka, her speed in preparing equipment was faster.</p>
+<p>After finishing the call, Urabe Konoka entered the room to pack her equipment. Even if she couldn't pack all of her luggage, she needed to pack her ritual tools and essential equipment. When Urabe Konoka came out after packing various items, Hanakame had also returned and finished packing her equipment. As expected, being much more experienced than Urabe Konoka, her speed in preparing equipment was faster.</p>
 <p>"Shall we depart now?"</p>
 <p>"Yes."</p>
 <p>Hanakame and Urabe Konoka, as they left the Shrine, turned back to look at the Scenery of the Shrine. This would probably be the Last Time they saw this Shrine. By tomorrow, all their Luggage would have been moved, and since they had to enshrine Lizhael, the goddess they served, in that Shrine, this Shrine building would simply be an Architecture in the shape of a Shrine, enshrining no God, so they would have no reason to see it again.</p>
@@ -48,7 +48,7 @@ chapter = 957
 <p>"...What should we call you?"</p>
 <p>At Tsukiyo's Words, Hanakame bravely opened her mouth and asked. In truth, she couldn't call Tsukiyo Simyeonui ttal as before. Although she had abandoned her previous name and been reborn as a new God, Simyeonui ttal was Lizhael.</p>
 <p>Tsukiyo, who was now before their Eyes, would also know this well. And though they couldn't know what she was thinking, if she believed Lizhael had abandoned her, calling her Simyeonui ttal could greatly Stimulate her. That's why Hanakame asked for her name.</p>
-<p>"I have decided to use the name of this Body, Tsukiyo (月夜), as it is."</p>
+<p>"I have decided to use the name of this Body, Tsukiyo, as it is."</p>
 <p>Tsukiyo.... Hanakame repeated the new God's name. Since this God had already decided on the name Tsukiyo, it was a very good thing that she hadn't called her Simyeonui ttal.</p>
 <p>"Tsukiyo-nim, what should we do?"</p>
 <p>"If you build my Shrine and make the owner of this Body my Shrine Maiden, I will be Satisfied and withdraw."</p>

@@ -40,7 +40,7 @@ chapter = 471
 <p>Otagi Yuka was 5th, right behind Konoe Akina. Otagi Yuka was planning to receive Taira Ryuta's healthy white liquid as a gift in the glass bottle she had received from her previous homeroom teacher and fill it to the brim.</p>
 <p>"Shido-cchi and Fuchi-cchi studied together, so they both made it into the top 6?"</p>
 <p>Seizawa Shii spoke to Oofuchi Erika and Shido Tsubaki, who were looking at the ranking chart with satisfaction. For reference, Fuchi-cchi was the nickname Seizawa Shii called Oofuchi Erika, and Shido-cchi was Shido Tsubaki.</p>
-<p>Oofuchi Erika didn't like the nickname because the 'cchi' in Fuchi-cchi sounded similar to 'chichi' (ちち), which means breasts, but she was too shy to say anything to Seizawa Shii, true to form for someone who used to be a hikikomori.</p>
+<p>Oofuchi Erika didn't like the nickname because the 'cchi' in Fuchi-cchi sounded similar to 'chichi' , which means breasts, but she was too shy to say anything to Seizawa Shii, true to form for someone who used to be a hikikomori.</p>
 <p>"Congrats on 1st place."</p>
 <p>"U-un, thank you."</p>
 <p>"Aren't you going to congratulate me on 3rd place?"</p>

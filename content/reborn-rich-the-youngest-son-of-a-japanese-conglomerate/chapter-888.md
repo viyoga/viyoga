@@ -54,7 +54,7 @@ chapter = 888
 <p>"Well.... I didn't expect Guardian Genpaku to fall to that ninja, but it's still too early to guarantee Victory."</p>
 <p>As Funayama Seigo raised his Hand, Anyaji monks in splendid robes appeared from somewhere. Among them, alongside the Anyaji monks Seizawa Shii knew, came individuals in somewhat different attire; unlike the Anyaji monks in simple robes resembling Martial Arts Uniforms, these wore quite ornate Kasaya (Buddhist robes).</p>
 <p>There were about twenty monks, and a considerable number, about fifteen, of monks in ornate Kasaya.</p>
-<p>Allow me to introduce them. You probably already know our Anyaji monks... These are the Anyaji Esoteric Monks (密法僧), under my direct supervision and that of my Sabu-nim.</p>
+<p>Allow me to introduce them. You probably already know our Anyaji monks... These are the Anyaji Esoteric Monks, under my direct supervision and that of my Sabu-nim.</p>
 <p>The Esoteric Monks were members of Anyaji who practiced esoteric magic, using wicked Sorcery, and were subordinate to Hojo Otoji and Funayama Seigo.</p>
 <p>Originally, their main Role was combat support for the Anyaji monks, but in Anyaji, which revered martial arts, Esoteric Monks who used Sorcery did not hold a particularly high Status. However, when Hojo Otoji, who was favorable to Sorcery, became Anyaji's second-in-command, they became something akin to Hojo Otoji's direct unit.</p>
 <p>After that, instead of combat support, they performed tasks such as casting Curses on dangerous Enemies, or Brainwashing the children of kidnapped Japanese high-ranking officials.</p>

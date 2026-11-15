@@ -31,7 +31,7 @@ chapter = 58
 <p>,Sunbae-nim. I'm a little late. I was late because I was guiding the group members to the cafeteria."</p>
 <p>,That can't be helped. Still, since the entire training team went as mentors, the staff cafeteria is actually more spacious."</p>
 <p>Ah, that's right. It was the first day, so the mentors from the training team would all be eating with their group members in the cafeteria. We quickly received our steaks. As expected, I received a jumbo-sized steak that exceeded the special size given by the cafeteria ladies, and Mimata Chieri also seemed determined to eat a lot today, ordering a medium size instead of a small size.</p>
-<p>We both shouted, "Itadakimasu (いただきます: Bon appétit)," and started eating our steaks. As expected from a large company, they used high-quality beef. Still, it was different from the top-quality meat prepared by the housekeeper at home, but it was delicious. Eating the well-grilled meat along with the grilled asparagus and cube-shaped fried potatoes that came as garnish was both satisfying and delicious.</p>
+<p>We both shouted, "Itadakimasu (Bon appétit)," and started eating our steaks. As expected from a large company, they used high-quality beef. Still, it was different from the top-quality meat prepared by the housekeeper at home, but it was delicious. Eating the well-grilled meat along with the grilled asparagus and cube-shaped fried potatoes that came as garnish was both satisfying and delicious.</p>
 <p>,Hee, it's delicious."</p>
 <p>,It is. It's quite good."</p>
 <p>We initially focused on the steak, but as we slowly got full, we started chatting.</p>

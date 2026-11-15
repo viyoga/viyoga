@@ -61,7 +61,7 @@ chapter = 395
 <p>Kijimoto Jurie looked at me with a dazed expression, as if she had fallen for me again. It's not just that I'm reliable, it's like she's just horny...?</p>
 <p>I was a bad guy. I turned Kijimoto Jurie, who was a demure maiden, into a woman who gets horny just by being alone with me in a closed space.</p>
 <p>"Yamashiro-sensei...."</p>
-<p>She called my name softly and walked over slowly, but the door to the nurse's office opened. A fairly large man with a buzz cut came out. It was Masato Ootawa (太田和 正登), the history teacher at St. Francis Girls' Academy. It seemed he had come because the first-period history class was coming up soon.</p>
+<p>She called my name softly and walked over slowly, but the door to the nurse's office opened. A fairly large man with a buzz cut came out. It was Masato Ootawa, the history teacher at St. Francis Girls' Academy. It seemed he had come because the first-period history class was coming up soon.</p>
 <p>"Kijimoto-sensei, good morning!"</p>
 <p>"Ah, hello. Ootawa-sensei."</p>
 <p>Ootawa Masato came in with a smile on his face, but frowned when he saw me sitting close to Kijimoto Jurie across from him. Kijimoto Jurie looked slightly embarrassed when she saw Ootawa Masato.</p>

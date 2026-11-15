@@ -12,7 +12,7 @@ chapter = 125
 <p>"Of course...! I'm really looking forward to it...! It's my first trip alone with a man since our honeymoon."</p>
 <p>He was a good father, but Saburo-ssi was too much. Not taking a single trip during their married life. Feeling a little sorry for Yukiko-ssi, I kissed her forehead and got into the car.</p>
 <p>Since I had to pass through Tokyo anyway to get to Shizuoka where Mount Fuji is, I picked up Kazuhiro-ssi on the way. Kazuhiro-ssi came out of his rented room near Tokyo FC and waved at me, saying, "Hyung-nim!"</p>
-<p>Training in Aokigahara (青木ヶ原)... Kiyohira, is he really that old-school?</p>
+<p>Training in Aokigahara... Kiyohira, is he really that old-school?</p>
 <p>Kazuhiro muttered as he got into the car. Jukai, or Aokigahara, northwest of Mount Fuji, was one of Japan's infamous places. It had long been rumored as a famous suicide spot, but in reality, there were fewer suicides and missing people than people believed because there were many CCTVs and the area was monitored by the police.</p>
 <p>However, during World War III, police forces were focused elsewhere, and it became completely demonized during that time. Most of the CCTVs were damaged, and the nearby police substation was in ruins and not managed. The Jukai Forest had now become Japan's representative demon realm, where countless suicide hopefuls, cult officials, and occult enthusiasts gathered.</p>
 <p>"These days, there's almost no one who goes there because it's scary."</p>

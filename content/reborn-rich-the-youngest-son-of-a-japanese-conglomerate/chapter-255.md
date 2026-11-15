@@ -14,7 +14,7 @@ chapter = 255
 <p>But the Famine was a criminal whose whereabouts were unknown, and I also hid my identity with armor, so there was nothing, and only Aitana's identity was known, and she was appointed as the leader of the psychic unit as a propaganda project of the US government and became the face of the unit, so she is currently the most famous and popular psychic.</p>
 <p>Regardless of Aitana's popularity, so many people were shocked that they were demanding the creation of a psychic control bill that would register information about psychics and impose heavier penalties if they committed crimes.</p>
 <p>,Is this how it starts?"</p>
-<p>In ,MegaCorp's Youngest Son', it was simply stated that a psychic terrorist incident occurred in the United States, and the National Assembly was trying to pass a psychic bill.</p>
+<p>In,MegaCorp's Youngest Son', it was simply stated that a psychic terrorist incident occurred in the United States, and the National Assembly was trying to pass a psychic bill.</p>
 <p>The player can decide the protagonist's position after hearing that information, and most players have acquired at least one trait that can be called a psychic by this time, so most players choose to prevent the passage of the bill and play the game.</p>
 <p>As this information spread, psychics who had been operating in the shadows assassinated congressmen who proposed the bill or issued statements that it would not be good for Korea if psychics were suppressed and forced to seek asylum in other countries, which was somewhat true, and similar incidents occurred not only in Korea but around the world, marking the beginning of a period of global chaos.</p>
 <p>Players who have already decided on their position have several options: they can passively support terrorist organizations in secret, or they can actively assassinate or terrorize politicians who suppress psychics themselves.</p>
@@ -40,7 +40,7 @@ chapter = 255
 <p>Anyway, a 2-night, 3-day camping training exercise, everyone must have suffered in this weather? There must have been a lot of mosquitoes too.</p>
 <p>,What's the training schedule for today?"</p>
 <p>,Everyone has worked hard for 2 nights and 3 days, so we plan to rest after maintenance today."</p>
-<p>It's not just rest, it's rest ,after maintenance'. Maintenance is also quite annoying, but it's not like I'm suffering....</p>
+<p>It's not just rest, it's rest,after maintenance'. Maintenance is also quite annoying, but it's not like I'm suffering....</p>
 <p>,Then shall we have a company dinner for the entire Seryu unit tonight? I'll pay."</p>
 <p>,If the president allows it...."</p>
 <p>Sawayanagi Tobe nodded at my dinner proposal, and the trainees cheered as if they had heard it. Then, someone ran out from among the trainees and stood in front of me. It was Alexandra Smirnova. She seems to have grown a bit since I last saw her? Her thin body had gained a little weight, and her chest seemed to be fuller than the last time I saw her.</p>

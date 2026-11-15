@@ -26,21 +26,21 @@ chapter = 1052
 <p>"Have you forgotten me?"</p>
 <p>Fujigasaki Rinka spoke from behind the Black Sage, who, with one Arm and one Leg gone, was wearing a tattered Robe that was almost completely burned away and could no longer cover his Body.</p>
 <p>As Fujigasaki Rinka had said, the Black Sage, in shock from losing the Fragment of All-Knowledge right before his Eyes, had momentarily forgotten the Existence of Fujigasaki Rinka, his Opponent. And that returned as a great opportunity for Fujigasaki Rinka.</p>
-<p>-Shinkaiyatsude (深海八手) Shinenkyuuban (深淵吸盤: Abyss Suction Cup)-Kuukyuu (空吸: Empty Suction) Fujigasaki Rinka used Kuukyuu, an area-of-effect technique of Shinkaiyatsude's Shinenkyuuban (Abyss Suction Cup) martial arts form that adheres to an Opponent, and pulled the Black Sage in, as if a Black Hole were sucking in everything in its Surroundings.</p>
+<p>-Shinkaiyatsude Shinenkyuuban (Abyss Suction Cup)-Kuukyuu (Empty Suction) Fujigasaki Rinka used Kuukyuu, an area-of-effect technique of Shinkaiyatsude's Shinenkyuuban (Abyss Suction Cup) martial arts form that adheres to an Opponent, and pulled the Black Sage in, as if a Black Hole were sucking in everything in its Surroundings.</p>
 <p>Because it was such a sudden Ambush, the Black Sage, unable to defend, was immediately sucked in, and Fujigasaki Rinka kicked her Feet towards the Black Sage's Solar Plexus.</p>
 <p>-Shinkaiyatsude (Deep Sea Octopus) Hureashitsuyoha (Tentacle Energy Wave)-Shingaku (Deep Horn)</p>
 <p>This Hureashitsuyoha was also an original technique improved by Fujigasaki Rinka. Unlike Hureashitsuyoha, which was a striking technique that inflicted damage by kicking the Opponent, Hureashitsuyoha-Shingaku was a more fatal Attack that pierced the Opponent with curled Toes.</p>
 <p>"Keuheoeoeok!!!"</p>
 <p>The Black Sage, whose Solar Plexus was pierced by Fujigasaki Rinka's curled Toes, let out a Scream of Pleasurable Ache. Fujigasaki Rinka did not stop and continued to move her Feet.</p>
-<p>-Shinkaiyatsude (深海八手) Shōten'isshoku (昇天一触: Ascension One Touch) Fujigasaki Rinka, using the Shōten'isshoku (Ascension One Touch) martial arts form, an upward kick with the Black Sage still impaled on her curled Toes, pulled back her fist, gathering the Abyss to finish off the rising Black Sage. But then an Anomaly occurred.</p>
+<p>-Shinkaiyatsude Shōten'isshoku (Ascension One Touch) Fujigasaki Rinka, using the Shōten'isshoku (Ascension One Touch) martial arts form, an upward kick with the Black Sage still impaled on her curled Toes, pulled back her fist, gathering the Abyss to finish off the rising Black Sage. But then an Anomaly occurred.</p>
 <p>"Keuheueut...!"</p>
 <p>Simultaneously as the Abyss gathered in her fist scattered, Fujigasaki Rinka began to cough up blood and stagger, her Body twisting. In the Situation where she had her Abyss stolen by Takakusaki Gengo, she had overexerted herself by continuously using the Abyss, and as the Abyss ran out, her Internal Injury recurred.</p>
 <p>"Keuhuhuhu...! Your power is exhausted. O Fist Saint of Japan."</p>
 <p>Dripping black liquid instead of blood from his entire Body, the Black Sage smiled. Although things hadn't gone well today, he thought that he would ultimately be the victor, and raised his staff.</p>
 <p>From the staff, a purple flame grew larger and larger, just before the magic to unleash malice towards Fujigasaki Rinka was completed.</p>
-<p>-Changsehonllyuryu (創世混沌流) Jimaekbaldo (地脈抜刀: Earth Vein Sword Draw).</p>
+<p>-Changsehonllyuryu Jimaekbaldo (Earth Vein Sword Draw).</p>
 <p>Taira Ryuta suddenly appeared and with Energy drawn from the Earth's Veins, cut off the Black Sage's remaining Arm that was holding the staff.</p>
-<p>-Changsehonllyuryu (創世混沌流) Kakdochamsu (脚刀斬首: Leg Blade Decapitation).</p>
+<p>-Changsehonllyuryu Kakdochamsu (Leg Blade Decapitation).</p>
 <p>And immediately, using Kakdochamsu (Leg Blade Decapitation), a linked martial arts form of Jimaekbaldo, he severed the Black Sage's Head with his Legs. It was exactly as the martial arts form name Kakdochamsu (Leg Blade Decapitation) implied.</p>
 <p>The Black Sage's Head floated in the empty space, then rolled on the floor of the ruined New Rochelle.</p>
 <p>"You're the best, my Disciple...."</p>

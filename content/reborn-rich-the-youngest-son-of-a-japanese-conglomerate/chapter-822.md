@@ -45,7 +45,7 @@ chapter = 822
 <p>"Got it." Having sent countless Desserts via Magic Circle and heard her reactions until now, I knew Lizhael's Preference well. Even though she had changed from Simyeonui ttal to Lizhael, her Preference hadn't changed, so I decided to buy what Lizhael liked and hastily prepared to leave.</p>
 <p>Finishing my Shower and getting dressed in five minutes, I drove my car to the Convenience Store, bought Lizhael's favorite milk pudding along with other sweet Desserts to her Preference, and then drove towards Lizhael Shrine.</p>
 <p>Parking my car in the shrine's Parking Lot, and walking the familiar Road, I saw a small shrine within the main shrine.</p>
-<p>It was a shrine that had changed from Shinkaihime to Gingahime (銀河姫: Galaxy Princess) Shrine, but nothing had changed except for the nameplate.</p>
+<p>It was a shrine that had changed from Shinkaihime to Gingahime (Galaxy Princess) Shrine, but nothing had changed except for the nameplate.</p>
 <p>Originally, the Urabe Family paid less attention to other gods besides Susanoo, whom they worshipped, and since Lizhael had been a minor god worshipped only on some Islands since her Shinkaihime days, she didn't receive much support.</p>
 <p>Giving Urabe Konoka the Urabe Castle and having her attend St. Francis Girls' Academy could be said to be the biggest support. Of course, for an individual, attending St. Francis Girls' Academy itself is an enormous support that allows one to form connections with the Upper class of society, though.</p>
 <p>"You came quickly." "Have you been well, Husband-nim?"</p>
@@ -60,7 +60,7 @@ chapter = 822
 <p>"Please open it, Teacher-nim." Urabe Konoka said, extending the wooden box to me. I nodded my Head, took the wooden box, and opened it.</p>
 <p>Inside, there was a black Metal-like Bracelet, almost identical in Design to the previous one. However, it wasn't completely identical, and the Feeling was different from before; instead of being entirely black, it had a bluish tint, sparkled in places, and gave off a sense of space.</p>
 <p>"It's pretty." I evaluated the Bracelet's Design and focused. Then, the Item Description Window soon appeared.</p>
-<p>◆Lizhael's Gift [Legendary Bracelet]</p>
+<p>◆Lizhael's Gift "Legendary Bracelet"</p>
 <p>A Bracelet made by the Boundary of Opposing Chaos, imbued with her Love for her Husband-nim. When a certain amount of Genesis Chaos is infused, it transforms into black Armor, enveloping the entire Body. It was reforged from the Abyss Lord's combat equipment, which was created by the pressure of the Abyss.</p>
 <p>●Greatly increases Genesis Chaos Stat efficiency. Increases coefficient of Genesis Chaos-type Skills.</p>
 <p>●Genesis Chaos+3 Power+3 Agility+3 Sensitive Nerves+3.</p>

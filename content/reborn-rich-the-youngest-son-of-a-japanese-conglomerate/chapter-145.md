@@ -32,7 +32,7 @@ chapter = 145
 <p>"Investor-nim!! It's been a long time! And thank you so, so much for the new building!! To use such a building after using a dilapidated office until now, it's so good!"</p>
 <p>Sawayanagi Azuma saw me and welcomed me immensely, like a dog seeing its Master after a month. Even though it had only been about a week since we last met.</p>
 <p>But just like with Mimata Chieri, seeing Arisu clinging to my Side, they started looking at each other and laughing again.</p>
-<p>However, Sawayanagi Azuma, who had been experimented on as a test subject in her childhood, hadn't attended school, passed high school by taking Japan's high school equivalency exam (高等学校卒業程度認定試験), and then mostly lived on the battlefield, so she didn't have much social or personal experience.</p>
+<p>However, Sawayanagi Azuma, who had been experimented on as a test subject in her childhood, hadn't attended school, passed high school by taking Japan's high school equivalency exam, and then mostly lived on the battlefield, so she didn't have much social or personal experience.</p>
 <p>So, unlike the situation with Mimata Chieri, although her mouth was smiling, she was stammering a lot and showing clear signs of embarrassment.</p>
 <p>"Th-th-there, wh-what k-kind of R-Relationship do you have with o-our In-investor-nim?"</p>
 <p>"Huhu, we're close."</p>
@@ -44,7 +44,7 @@ chapter = 145
 <p>Whether they came as soon as Sawayanagi Azuma called or not, four people entered the CEO's Office in less than a minute.</p>
 <p>"Please introduce yourselves and greet me in Turn."</p>
 <p>At Sawayanagi Azuma's Words, a simple-looking man in his 20s with short, sport-style Hair and Brown Skin stepped forward. Although he didn't appear to have large Muscles, looking at his exposed Forearms and such, one could tell he had trained to a considerable Level.</p>
-<p>"I am Katayama Junichi (方山 純壱). Investor-nim!"</p>
+<p>"I am Katayama Junichi. Investor-nim!"</p>
 <p>Katayama Junichi, although he had no superpowers, had excellent basic Combat ability and outstanding dagger swordsmanship, so I remembered him being quite useful in Melee Combat. I shook Hands with Katayama Junichi and greeted him. His Gaze was indeed very goodwill.</p>
 <p>The second person to step forward was a woman, slightly taller than Sawayanagi Seari, a cute woman with a small Physique for an Adult. Along with Sawayanagi Seari, she was like the mascot Existence of Seiryu Military Company.</p>
 <p>I am Sawayanagi Mikiyo! Please take care of me!</p>

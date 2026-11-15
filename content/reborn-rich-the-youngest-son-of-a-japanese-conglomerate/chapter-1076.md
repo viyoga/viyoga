@@ -52,7 +52,7 @@ chapter = 1076
 <p>"So, you're leaving New York...?"</p>
 <p>"Yes. I have Business Work. I think I'll see you next in Japan."</p>
 <p>"Doing Business even in the USA at such a Young Age.... How commendable."</p>
-<p>Soda Haruto looked at me with a warm gaze, as if he were looking at his grandson. Since I’m a Sasun (師孫), in terms of lineage, a grandson-like relationship is indeed accurate.</p>
+<p>Soda Haruto looked at me with a warm gaze, as if he were looking at his grandson. Since I’m a Sasun, in terms of lineage, a grandson-like relationship is indeed accurate.</p>
 <p>Since he raised and taught the young Fujigasaki Rinka, Sabu would be like a Daughter, and since I am Fujigasaki Rinka's Disciple, he seemed to truly see me with a Grandson-like Feeling.</p>
 <p>Of course, he looks at me with such a Gaze because he has no idea that his Grandson had Sex with his Sabu.... Naturally, I was not at fault. I merely sacrificed (?) my Body to save Sabu.</p>
 <p>"You said you're going to California, right? Then LA?"</p>

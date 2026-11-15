@@ -14,36 +14,36 @@ chapter = 729
 <p>Her level had also increased, and Otagi Yuka's Bloodline wasn't bad, so there was sufficient plausibility for her to evolve into a higher Vampire.</p>
 <p>"Just a moment, I'll check Yuka's Stats."</p>
 <p>Still, it could be a status effect caused by a curse or Jusul, so I should definitely check. I put on the glasses from the remaining Ruins and checked Otagi Yuka's Status Window.</p>
-<p>◆Name: Yuka Otagi (愛宕 夕香) Lv15</p>
+<p>◆Name: Yuka Otagi Lv15</p>
 <p>※Status effect: Blood Craving</p>
 <p>Power:16 Agility:16 Stamina:16 Resistance:16 Recovery:16 Sensitive Nerves:16 Appearance:16</p>
 <p>Intelligence:8 Knowledge:7 Concentration:10 Will:10 Creativity:3 Charm/Allure:15 Judgment:8</p>
 <p>Luck:6 Blood Energy:16 Satiety: 71/100</p>
-<p>◆Akagamikiba Style (赤神牙式: Red God Fang Style) (Unique Swordsmanship Lv13) ◆Otagi Style Blood Energy Sorcery (愛宕流 血氣 呪術) (Unique Sorcery Lv10) ◆Investigation (Normal Skill Lv8) ◆Dish (Normal Skill Lv8) ◆Linguistics (Normal Skill Lv12) ◆Special Driving (Special+ Skill Lv9) ◆Fog Flight (Epic Skill Lv10)</p>
-<p>◇Vampire's Physical Body - Otagi (愛宕) [Legendary Bloodline]: All Physical Body stats, except Appearance, are tied to the special stat, Blood Energy. However, even if the Blood Energy stat goes beyond its limit, if the Physical Body stat's limit hasn't been unlocked, it will only increase up to that limit.</p>
+<p>◆Akagamikiba Style (Red God Fang Style) (Unique Swordsmanship Lv13) ◆Otagi Style Blood Energy Sorcery (Unique Sorcery Lv10) ◆Investigation (Normal Skill Lv8) ◆Dish (Normal Skill Lv8) ◆Linguistics (Normal Skill Lv12) ◆Special Driving (Special+ Skill Lv9) ◆Fog Flight (Epic Skill Lv10)</p>
+<p>◇Vampire's Physical Body - Otagi "Legendary Bloodline": All Physical Body stats, except Appearance, are tied to the special stat, Blood Energy. However, even if the Blood Energy stat goes beyond its limit, if the Physical Body stat's limit hasn't been unlocked, it will only increase up to that limit.</p>
 <p>As a Vampire's Physical Body, the Limit of all Stats increases by 2, and the more frequently Blood Sucking is performed, the higher the Blood Energy Stat rises. The higher the Blood Energy Stat, the higher the regeneration power, and Proficiency in Blood Energy skills additionally increases.</p>
 <p>At night without the Sun, Blood Energy increases by 120%, and if the Blood Sucked target does not completely die, they can be used as a Vassal.</p>
 <p>If Blood Sucking is not performed and Satiety decreases to 40 or below, the Blood Energy ability is only applied by the Satiety's multiplier, and the Stats given upon Level Up are halved and not invested in the Blood Energy Stat.</p>
 <p>Becomes very vulnerable to Silver and also takes more damage from Light and Fire attributes.</p>
-<p>As a trait of the Otagi (愛宕) family vampire, they have an exceptional talent for swordsmanship.</p>
-<p>◆Fog Transformation [Epic Race Trait]: Vampire Race Trait. Can transform into a blood-red fog. When in fog form, reduces Physical Damage by 70%, and can deal continuous Damage to enemies within the fog.</p>
-<p>◆Blood Energy Affinity [Unique Trait]: Freely manipulates Blood Energy. The power of all skills and Traits that use Blood Energy increases by 145%, the maximum value of the Blood Energy Stat increases by 2, and the efficiency of the Blood Energy Stat increases.</p>
-<p>◆Blood Energy Regeneration (血氣 再生) [Epic Race Trait]: Significantly boosts regeneration power based on the Blood Energy stat. Increases the maximum Blood Energy and Recovery stats by 1, and raises the Blood Energy stat by 2. Can also further enhance regeneration by using Satiety.</p>
-<p>◆Noble of the Night [Epic Race Trait]: Charm/Allure Stat increases by 2, and its maximum value also increases by 1. The probability of successfully Seducing the opposite sex increases. Even for the same sex, Seduction can be performed in proportion to Charm/Allure. If Seduction is successful, the opponent is afflicted with the status effect .</p>
-<p>◆Veil of Darkness [Epic Race Trait]: Damage from Light and Flame Attributes is reduced, and the Blood Energy multiplier that increases at night increases to 130.</p>
-<p>◆Mutation - Semen Absorption [Rare+ Race Trait]: Vampire Race Trait. When semen, containing strong life energy, is ingested through the uterus or mouth, it acts like bloodsucking. The efficiency of Blood Energy is increased.</p>
-<p>◆Blood Physical Body [Legacy Race Trait]: Vampire Race Trait. The maximum value of Physical Body Stats is linked to the maximum value of the Blood Energy Stat. The maximum value of the Blood Energy Stat increases by 1.</p>
-<p>◆??? Blood Clan Lord [??? Grade Race Trait]: ___</p>
-<p>◆Blood Sucking Regeneration [Epic Race Trait]: ___</p>
+<p>As a trait of the Otagi family vampire, they have an exceptional talent for swordsmanship.</p>
+<p>◆Fog Transformation "Epic Race Trait": Vampire Race Trait. Can transform into a blood-red fog. When in fog form, reduces Physical Damage by 70%, and can deal continuous Damage to enemies within the fog.</p>
+<p>◆Blood Energy Affinity "Unique Trait": Freely manipulates Blood Energy. The power of all skills and Traits that use Blood Energy increases by 145%, the maximum value of the Blood Energy Stat increases by 2, and the efficiency of the Blood Energy Stat increases.</p>
+<p>◆Blood Energy Regeneration "Epic Race Trait": Significantly boosts regeneration power based on the Blood Energy stat. Increases the maximum Blood Energy and Recovery stats by 1, and raises the Blood Energy stat by 2. Can also further enhance regeneration by using Satiety.</p>
+<p>◆Noble of the Night "Epic Race Trait": Charm/Allure Stat increases by 2, and its maximum value also increases by 1. The probability of successfully Seducing the opposite sex increases. Even for the same sex, Seduction can be performed in proportion to Charm/Allure. If Seduction is successful, the opponent is afflicted with the status effect.</p>
+<p>◆Veil of Darkness "Epic Race Trait": Damage from Light and Flame Attributes is reduced, and the Blood Energy multiplier that increases at night increases to 130.</p>
+<p>◆Mutation - Semen Absorption "Rare+ Race Trait": Vampire Race Trait. When semen, containing strong life energy, is ingested through the uterus or mouth, it acts like bloodsucking. The efficiency of Blood Energy is increased.</p>
+<p>◆Blood Physical Body "Legacy Race Trait": Vampire Race Trait. The maximum value of Physical Body Stats is linked to the maximum value of the Blood Energy Stat. The maximum value of the Blood Energy Stat increases by 1.</p>
+<p>◆??? Blood Clan Lord "??? Grade Race Trait": ___</p>
+<p>◆Blood Sucking Regeneration "Epic Race Trait": ___</p>
 <p>Looking at her Stats, her Level had gone up by one, and her Will Stat had also increased by one due to the Level Up. Although her skills also seemed to have gone up by one or two Levels, what really stood out was the status effect.</p>
 <p>The Blood Craving status effect was clearly attached. To see definite information, I focused my mind on Blood Craving, and information about it appeared.</p>
-<p>◆Blood Craving [Status effect]: A Vampire's Blood Energy Satiety is consumed quickly, and the lower the Satiety, the faster its consumption rate increases.</p>
+<p>◆Blood Craving "Status effect": A Vampire's Blood Energy Satiety is consumed quickly, and the lower the Satiety, the faster its consumption rate increases.</p>
 <p>If the value is 50 or below, the Field of Vision turns red, and if the value is 35 or below, all Physical Body Stats decrease by 2. If the value is 20 or below, one falls into the Frenzy status effect and attacks nearby living creatures.</p>
 <p>As expected, it's no different from what I knew. Wondering why she got it, I checked the Status Window, and two Traits I hadn't seen before had appeared.</p>
-<p>◆??? Blood Clan Lord [??? Grade Race Trait]: Becomes the head of a faction and evolves into a higher Vampire, gaining abilities befitting that status. Until this Trait is fully acquired, the status effect is applied. [Evolution Rate: 7%]</p>
-<p>◆Blood Sucking Regeneration [Epic Race Trait]: Promotes a Vampire's basic regeneration power by consuming Blood Energy Satiety. If used simultaneously with Blood Sucking, even faster regeneration becomes possible.</p>
+<p>◆??? Blood Clan Lord "??? Grade Race Trait": Becomes the head of a faction and evolves into a higher Vampire, gaining abilities befitting that status. Until this Trait is fully acquired, the status effect is applied. "Evolution Rate: 7%"</p>
+<p>◆Blood Sucking Regeneration "Epic Race Trait": Promotes a Vampire's basic regeneration power by consuming Blood Energy Satiety. If used simultaneously with Blood Sucking, even faster regeneration becomes possible.</p>
 <p>The Blood Sucking Regeneration Trait is a representative Trait that greatly increases a Vampire's tanking ability, making them almost Invincible on a Battlefield where blood can be obtained. Of course, in battles where blood cannot be obtained, such as 1-on-1 combat or anti-Cyborg battles, it was a Trait that actually decreased Combat power by consuming Satiety, but it wasn't a bad Trait nonetheless.</p>
-<p>Blood Sucking Regeneration seemed to be a Trait gained from Level Up, and it seemed the Blood Craving status effect was attached due to the ??? Blood Clan Lord Trait, which also had ??? attached. The Trait description also clearly stated that the Blood Craving status effect is applied.</p>
+<p>Blood Sucking Regeneration seemed to be a Trait gained from Level Up, and it seemed the Blood Craving status effect was attached due to the??? Blood Clan Lord Trait, which also had??? attached. The Trait description also clearly stated that the Blood Craving status effect is applied.</p>
 <p>I read the new Traits to Otagi Yuka.</p>
 <p>"...You have these Traits, what do you think?"</p>
 <p>"Ah.... I see."</p>
@@ -52,9 +52,9 @@ chapter = 729
 <p>In fact, that was a bit of a question/doubt. When the Vampire Hunter organization SPF targeted Otagi Yuka, the Otagi Family severed ties by disowning Otagi Yuka, and it was a bit strange that they hadn't canceled the disownment even after the battle with the SPF ended.</p>
 <p>Since it was a Matter between Otagi Yuka and her Family, I hadn't asked in detail, but it seemed she was about to tell me the Story now.</p>
 <p>"Vampires are connected to each other by the name Blood relative or Blood Clan. Disownment in a Vampire Family is much heavier than disownment in a human Family. It's about completely severing ties with the Family, magically and spiritually, so it's similar to truly becoming a stranger."</p>
-<p>Now I understand a little. Otagi Yuka being quickly disowned from the Family during the SPF's attack really meant cutting off all ties with the Family, according to the Hanja characters for '절연' (絶緣 - severance). It must have been to reduce the Family's damage by removing one person.</p>
+<p>Now I understand a little. Otagi Yuka being quickly disowned from the Family during the SPF's attack really meant cutting off all ties with the Family, according to the Hanja characters for '절연' (severance). It must have been to reduce the Family's damage by removing one person.</p>
 <p>"Ultimately, since I was cut off from the Blood Clan called Otagi, I've become able to create my own clan. This is quite strange. Usually, disowned Vampires fall to the rank of lower Vampires. There's almost no probability of becoming a higher being capable of forming their own clan."</p>
-<p>It's probably because your level is high. The level seen through the glasses from the Ruins isn't just a game-like level; it also reflects the height and depth of one's 'status' (格). It means your status has risen enough for you to create a clan.</p>
+<p>It's probably because your level is high. The level seen through the glasses from the Ruins isn't just a game-like level; it also reflects the height and depth of one's 'status' . It means your status has risen enough for you to create a clan.</p>
 <p>Even I, who thought I had quite a lot of Vampire Knowledge, didn't know precisely about disownment, but I knew that Vampires evolve if their status (Level) is high. It seemed that Vampires without a Blood Clan had a mechanism where if they possessed a certain level of status, they would become a Blood Lord themselves.</p>
 <p>Besides the Otagi Family or the giant Vampire Clans of Europe, smaller Blood Clans must be formed in this way.</p>
 <p>Otagi Yuka also fought Kurotsugi Doo for a year in New York, and after I was appointed as the Class Teacher of St. Francisco Girls' Academy, she became entangled in numerous Matters, so she must have been able to acquire sufficient status.</p>

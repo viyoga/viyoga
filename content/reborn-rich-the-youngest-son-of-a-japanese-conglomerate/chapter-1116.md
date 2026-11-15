@@ -73,12 +73,12 @@ chapter = 1116
 <p>Shinonome Mio nodded her Head, and I now had the right to six sessions of Advice. At the same time, Clerks carrying Desserts entered.</p>
 <p>"Please enjoy your Meal."</p>
 <p>Watching the Clerks place our ordered Desserts and leave, I took out the Grimoire of Purple Flame from my Bag. Immediately, a translucent Screen appeared before my Eyes, displaying the Grimoire of Purple Flame's Information.</p>
-<p>◆Grimoire of Purple Flame (Shien no Isho) [Legacy Magic Tool/Grimoire]</p>
+<p>◆Grimoire of Purple Flame (Shien no Isho) "Legacy Magic Tool/Grimoire"</p>
 <p>A Grimoire that emerged from the Flames of an execution one day. According to legend, it was found at a witch's cremation site.</p>
 <p>●When equipped, the proficiency Level of curse Magic increases by 3, and the power of curses increases by 15 percent.</p>
 <p>●Upon thorough reading, Flame resistance increases by 20 percent.</p>
 <p>●If a cursed Life form owned by the possessor dies, 5 percent of the maximum spell Energy is recovered, and the power of spells increases by 10 percent for 5 minutes. This Effect can be stacked.</p>
-<p>●Magic curse flame of , , , death explosive of , .... Can be acquired.</p>
+<p>●Magic curse flame of, , , death explosive of, .... Can be acquired.</p>
 <p>While the Flame resistance option gained from thorough reading was a bit of a waste, thorough reading required understanding over 80 percent of the book's content, making it an Ability that Characters without relevant Knowledge, like martial arts-oriented Characters such as myself, found difficult to acquire.</p>
 <p>Since Shinonome Mio was presumably a curse-user, she would probably acquire the thorough reading option's Ability quickly. As I held out the Grimoire of Purple Flame, Shinonome Mio, instead of her usual dead fish-like Expression, took it with a slightly excited look.</p>
 <p>Of course, Shinonome Mio's change in Expression was on par with Alik's, so others would find it difficult to notice. Only I, who had learned to read Expressions by observing Alik for a long time, could sensitively discern Shinonome Mio's Expression.</p>

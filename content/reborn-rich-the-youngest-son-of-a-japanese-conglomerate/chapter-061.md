@@ -66,7 +66,7 @@ chapter = 61
 <p>Forcibly swallowing the rest of the words, I tapped on the keyboard. It was confirmed that I was the Chairman's grandson by the Chairman's public announcement, but seeing her picking a fight with me, it seemed that she was indeed on Jiro's line as rumored.</p>
 <p>I honestly snitched to Shinoe Misano that such and such work had come from the Deputy Team Leader. I can't say anything to the Team Leader, so I'll probably get scolded instead. Will she scold me and then say something to me?</p>
 <p>Shinoe Misano: Oh my, I thought our office was quiet, but it seems that the work has all been passed on to Ryuta-ssi. Don't worry, just do the work I sent you by email.</p>
-<p>How dare she try to pass all the work to the Team Leader's Johnson friend. I was thinking about how to screw over Suzuki Chisami while doing the work that had been reduced to one-fifth. If that doesn't work, I'll have to talk to Taira Yukiko. Still, Taira Yukiko, the director of the talent development center, would have the strongest influence there.</p>
+<p>How dare she try to pass all the work to the Team Leader's dick friend. I was thinking about how to screw over Suzuki Chisami while doing the work that had been reduced to one-fifth. If that doesn't work, I'll have to talk to Taira Yukiko. Still, Taira Yukiko, the director of the talent development center, would have the strongest influence there.</p>
 <p>There was a knock and the door opened. A tall, boyish beauty, unusual for a woman, came in hesitantly.</p>
 <p>"Team Leader-nim, I want to have a consultation..."</p>
 <p>A new group member, different from yesterday, came with a flushed face. Her name was... Koikawa Sachiko. She said she was in the volleyball club in high school, so she looked like she was in the mid-170s. I smiled and turned up the music that was playing softly.</p>
@@ -88,7 +88,7 @@ chapter = 61
 <p>While Koikawa Sachiko was surprised that I suddenly called her by her first name instead of her last name, I unhesitatingly touched Koikawa Sachiko's breasts, especially her nipples.</p>
 <p>"Aah~!"</p>
 <p>"As long as you have these breasts, it's a lie to say that you don't look like a woman. Look at this."</p>
-<p>I put Koikawa Sachiko's hand on my Johnson, who was writhing. Koikawa Sachiko seemed startled for a moment, but then she held my Johnson tightly like a precious object.</p>
+<p>I put Koikawa Sachiko's hand on my dick, who was writhing. Koikawa Sachiko seemed startled for a moment, but then she held my dick tightly like a precious object.</p>
 <p>"If you weren't feminine, would I have become like this?"</p>
 <p>"Please... sh-show me to the end. Mentor-nim...!"</p>
 <p>She showed signs of victory and kept pushing, as expected of an athlete.</p>

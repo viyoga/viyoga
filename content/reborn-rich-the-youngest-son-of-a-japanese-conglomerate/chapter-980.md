@@ -52,7 +52,7 @@ chapter = 980
 <p>"Ryuta.... It's been a long time."</p>
 <p>Because she hadn't seen me for a long Period due to missions, Nagumo Sian welcomed me greatly. Of course, she had met me occasionally during missions, so if you count that, it hadn't been that long, but she still seemed happy to see me.</p>
 <p>"Sabu-nim~! Hello!"</p>
-<p>Mimata Chieri also saw Nagumo Sian, greeted her, and called her Sabu. Since Nagumo Sian was a hidden Master who had practiced the immortal arts (仙術) passed down through generations, she said that she had helped Mimata Chieri learn the Eight Extremities Immortal Form Fist, a Fist Technique infused with the immortal arts that she had received from me.</p>
+<p>Mimata Chieri also saw Nagumo Sian, greeted her, and called her Sabu. Since Nagumo Sian was a hidden Master who had practiced the immortal arts passed down through generations, she said that she had helped Mimata Chieri learn the Eight Extremities Immortal Form Fist, a Fist Technique infused with the immortal arts that she had received from me.</p>
 <p>"Have you been well all this time?"</p>
 <p>"How could I have been well? Ryuta hasn't visited me...."</p>
 <p>At my Question, Nagumo Sian spoke with a slight whine. With an awkward Expression, I said, 'Aww~ you know I was on a mission,' and let her know it wasn't my Mistake. Everything, that Taira Danjo, who gave me the mission, was the bad one, I should push that narrative.</p>

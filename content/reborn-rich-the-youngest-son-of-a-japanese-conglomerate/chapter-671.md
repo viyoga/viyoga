@@ -22,7 +22,7 @@ chapter = 671
 <p>"It was something like an orphanage, and they said the orphanage kids were being kidnapped, so they asked me to take care of the kidnapper."</p>
 <p>Ah, I see. I heard about the kidnapping, but this is the first time I've heard that Anya-ji runs an orphanage.</p>
 <p>"Wait a minute... It's here. Check it out with this if you need to."</p>
-<p>Seizawa Shii, who was rummaging through her wallet, handed me a business card. I took it and looked at it: it said Funayama Seigo, Director of Senya Children's Welfare Facility (聖夜-児童養護施設). Senya? Holy Night? It's a little strange to use Anya's dark name for a children's welfare facility. Still, the fact that they use the 'night' character in their name seems to indicate they were showing off a bit subtly.</p>
+<p>Seizawa Shii, who was rummaging through her wallet, handed me a business card. I took it and looked at it: it said Funayama Seigo, Director of Senya Children's Welfare Facility. Senya? Holy Night? It's a little strange to use Anya's dark name for a children's welfare facility. Still, the fact that they use the 'night' character in their name seems to indicate they were showing off a bit subtly.</p>
 <p>I should tell Fujigasaki Rinka to track this down. Of course, since things went wrong with Seizawa Shii, they probably emptied out that Senya Children's Welfare Facility, but there might still be some traces left.</p>
 <p>"Anyway, I received a request to punish the kidnapper..."</p>
 <p>Seizawa Shii, after giving me the business card, started explaining what happened to Minamoto Lisa again.</p>

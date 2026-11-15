@@ -84,12 +84,12 @@ chapter = 562
 <p>I knew it. If it's Eve who studies even my sex life, she wouldn't be able to miss this delicious bait called Yuki-onna.</p>
 <p>-------</p>
 <p>Asada Ei's current status window and illustration</p>
-<p>◆Name: Asada Ei (浅田 永) Lv8</p>
+<p>◆Name: Asada Ei Lv8</p>
 <p>Stats</p>
 <p>Physical</p>
 <p>Strength: 6 Agility: 10 Stamina: 9 Resistance: 8 Recovery: 5 Nerves: 10 Appearance: 14</p>
 <p>Mental</p>
-<p>Intelligence: 8 Knowledge: 10 Concentration: 8 (-2) Willpower: 8 (-2) Creativity: 7 Charm: 12 Judgment: 8</p>
+<p>Intelligence: 8 Knowledge: 10 Concentration: 8 (2) Willpower: 8 (2) Creativity: 7 Charm: 12 Judgment: 8</p>
 <p>Other</p>
 <p>Luck: 7 Cold: 25</p>
 <p>Skills</p>
@@ -100,11 +100,11 @@ chapter = 562
 <p>◆Trap Installation and Disarming (Rare Skill Lv8): Installs and disarms traps, snares, and landmines. The higher the proficiency, the faster the installation and disarming speed without being caught by the opponent.</p>
 <p>◆Trap Detection (Rare Skill Lv5): Detects the presence of traps in the surrounding area.</p>
 <p>Traits</p>
-<p>◆Owl's Eye [Rare+ Trait]: Can see through the darkness and can see far away by concentrating.</p>
-<p>◆Stealthy Movement [Rare Trait]: Moves without being noticed by people around you. Footstep sounds are reduced, and movement speed is increased. The darker it is, the more it blends into the environment, and the lower the chance of being caught.</p>
-<p>◆Inquisitor's Sense [Epic+ Trait]: Can instinctively detect the opponent's lies. If you detect the opponent's lies, all physical stats increase by 1 when fighting that opponent. The maximum value of judgment and concentration stats increases by 1.</p>
+<p>◆Owl's Eye "Rare+ Trait": Can see through the darkness and can see far away by concentrating.</p>
+<p>◆Stealthy Movement "Rare Trait": Moves without being noticed by people around you. Footstep sounds are reduced, and movement speed is increased. The darker it is, the more it blends into the environment, and the lower the chance of being caught.</p>
+<p>◆Inquisitor's Sense "Epic+ Trait": Can instinctively detect the opponent's lies. If you detect the opponent's lies, all physical stats increase by 1 when fighting that opponent. The maximum value of judgment and concentration stats increases by 1.</p>
 <p>◆Master of Trap Installation: Becomes a master at installing traps.</p>
-<p>◇Yuki-onna Bloodline [Legacy Bloodline]: Gains the special stat 'Cold'. Can increase the cold stat by absorbing the surrounding cold, and the higher the maximum cold value, the better you can withstand the heat. The maximum value of the cold stat increases by 5, and in cold places, 50% to 80% of the cold stat is added to all physical stats depending on the temperature.</p>
-<p>However, in hot places, stamina, resistance, willpower, and concentration stats are reduced by 2 to 6 depending on the temperature. These debuffs are marked as [High Temperature].</p>
+<p>◇Yuki-onna Bloodline "Legacy Bloodline": Gains the special stat 'Cold'. Can increase the cold stat by absorbing the surrounding cold, and the higher the maximum cold value, the better you can withstand the heat. The maximum value of the cold stat increases by 5, and in cold places, 50% to 80% of the cold stat is added to all physical stats depending on the temperature.</p>
+<p>However, in hot places, stamina, resistance, willpower, and concentration stats are reduced by 2 to 6 depending on the temperature. These debuffs are marked as "High Temperature".</p>
 <p>Right now, I'm using cold as a stamina-like thing that allows me to move in hot places, but if I grow up, I'll become a combatant who uses cold in various places ㅎㅎ</p>
 <p>Eve was created yesterday, and Asada Ei's art style was created without changing the model. This is also pretty.</p>

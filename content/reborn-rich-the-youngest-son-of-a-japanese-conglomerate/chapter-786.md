@@ -107,4 +107,4 @@ chapter = 786
 <p>Master, who wears rather daring underwear....</p>
 <p>Belly Dancer</p>
 <p>"Disciple-ya, is this how it's done?"</p>
-<p>Ryuta: No, Master. It's not 'Warrior Princess' (武姬) but 'Dancing Princess' (舞姬)!</p>
+<p>Ryuta: No, Master. It's not 'Warrior Princess' but 'Dancing Princess' !</p>

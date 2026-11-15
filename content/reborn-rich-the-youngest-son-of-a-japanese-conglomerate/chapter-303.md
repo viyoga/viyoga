@@ -64,8 +64,8 @@ chapter = 303
 <p>"Huh?"</p>
 <p>"Huh!"</p>
 <p>We both exclaimed at the same time. What we reacted to was a leaf-shaped seed the size of a thumb. Sawayanagi Seari must have felt something, and I exclaimed because of the information that appeared on the translucent screen in front of me.</p>
-<p>◆Seed of the Spirit Tree (Spirit Tree) [Unique Legacy / Consumable / Miscellaneous]</p>
-<p>Seed of the Spirit Tree. When planted, it grows into a Spirit Tree and can produce Spirit Fruit (精靈果). Rumor has it that if a young fairy eats it, they will become an adult.</p>
+<p>◆Seed of the Spirit Tree (Spirit Tree) "Unique Legacy / Consumable / Miscellaneous"</p>
+<p>Seed of the Spirit Tree. When planted, it grows into a Spirit Tree and can produce Spirit Fruit. Rumor has it that if a young fairy eats it, they will become an adult.</p>
 <p>This was it. If a young fairy eats it, it becomes an adult. It seemed that Sawayanagi Seari became an adult in the game because of this option. I don't know how Sawayanagi Seari got it, though.</p>
 <p>I was expecting a name like World Tree, but it seemed that the World Tree was a larger-scale tree than I thought.</p>
 <p>"This is it!"</p>

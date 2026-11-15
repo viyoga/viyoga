@@ -86,7 +86,7 @@ chapter = 774
 <p>"Still, wouldn't they not see his cock? They're Students and a Teacher...?"</p>
 <p>"I don't know...."</p>
 <p>This time, Suzuki Soki had to sweat profusely to console Itsu Tomohiko, who had lost too much Confidence.</p>
-<p>Aitana, requested by Gojoy-nim (She is a Latina Woman who fought alongside [Ryuta] during the famine in the USA. She is currently active as a Hero-like figure affiliated with the US Army haha)</p>
+<p>Aitana, requested by Gojoy-nim (She is a Latina Woman who fought alongside "Ryuta" during the famine in the USA. She is currently active as a Hero-like figure affiliated with the US Army haha)</p>
 <p>Aitana Concept Attire!</p>
 <p>Because she's affiliated with the Army, she wears a Cyber Suit with camouflage patterns haha.</p>
 <p>Casual Clothes</p>

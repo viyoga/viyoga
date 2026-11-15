@@ -32,7 +32,7 @@ chapter = 977
 <p>Did she come early because of me? That's a bit touching...? It seemed she came early to Help, fearing I might be alienated among Family members whose Faces I didn't even know. I knew all my Uncles and Aunts' Faces, and I had seen more than half of my Cousins at my Father Taira Saburo's funeral, so it wouldn't be that awkward, I thought.</p>
 <p>"Yo~! Ryuta. It's been a while since the funeral, hasn't it? And hello, Aunt-nim?"</p>
 <p>As soon as I thought about my Cousins, a Mixed Blood man of Latin descent acted like he knew me.</p>
-<p>This man, who looked like a generic 'Golden Sun' with his dull blonde hair, the reddish-brown skin typical of Latin people, and an arrogant expression, was Taira Gensuke (平 賢介), Ichiro's second son. It wasn't our first meeting; we had introduced ourselves at Taira Saburo's funeral, so we already knew each other.</p>
+<p>This man, who looked like a generic 'Golden Sun' with his dull blonde hair, the reddish-brown skin typical of Latin people, and an arrogant expression, was Taira Gensuke, Ichiro's second son. It wasn't our first meeting; we had introduced ourselves at Taira Saburo's funeral, so we already knew each other.</p>
 <p>Especially since he clearly had a Mixed Blood vibe, I thought, 'There's someone similar to me, a third-generation Zainichi Korean?' and observed him a bit more closely than my other Cousins. Of course, I lost Interest after that when I started talking to the beautiful Arisu.</p>
 <p>Looking at him again now, he had a good physique and a sturdy feeling, even in a Suit, making it seem like he had trained in some Sport or martial art.</p>
 <p>"Gensuke-hyungnim. I heard you handled things well in South America this time, congratulations."</p>
@@ -40,7 +40,7 @@ chapter = 977
 <p>"Hahaha! The Rumor spread that far? It's nothing much. First, I need to take my Seat, so let's talk more deeply later."</p>
 <p>Taira Gensuke patted my Shoulder, then sat in the Seat assigned to himself. Although he was of the same generation, I felt a slight sense of being ignored, but I didn't mind much. No matter how large Taira Bussan was within the Taira Group, and how big its South American Branch was, he was merely a Branch Manager. I was convinced that if I was given a little more Time, I could surpass him.</p>
 <p>"Oh my, isn't this Ryuta? It's been a while, kid!"</p>
-<p>The one who acted like she knew me this time was Taira Kisa (平 樹沙), the first daughter of Taira Kokoro. She had a style similar to mine, was not currently holding any position within the Taira Group, but ran her own clothing brand company. She was said to be at the forefront of trends and doing well. Taira Kisa was well-known as a Taira family celebrity, a young female CEO, and a fashionista.</p>
+<p>The one who acted like she knew me this time was Taira Kisa, the first daughter of Taira Kokoro. She had a style similar to mine, was not currently holding any position within the Taira Group, but ran her own clothing brand company. She was said to be at the forefront of trends and doing well. Taira Kisa was well-known as a Taira family celebrity, a young female CEO, and a fashionista.</p>
 <p>I also felt it was similar because I had no position in the Taira Group and owned my own companies. Of course, I owned several companies with much higher Value, but still.</p>
 <p>She seemed a bit boisterous, but resembling Taira Kokoro, her Beauty was quite outstanding.</p>
 <p>"Kisa-nunim, hello."</p>

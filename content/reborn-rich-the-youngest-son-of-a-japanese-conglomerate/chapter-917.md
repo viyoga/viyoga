@@ -50,7 +50,7 @@ chapter = 917
 <p>Although it was a somewhat cold Answer, the Remains of Simyeonui ttal cut her off beforehand, in case the Woman in the School Uniform would ask to be saved. Instead, it conveyed its Will to grant her Request if it was possible, as the Price for Using her Body.</p>
 <p>-I have two Requests. First, kill the People who made me commit suicide.</p>
 <p>From a human perspective, it was quite a chilling Request, but for the Remains of Simyeonui ttal, it was not a difficult Request at all. The Remains of Simyeonui ttal, having already scanned the Woman in the School Uniform's Memories, knew who to kill. As the Remains of Simyeonui ttal conveyed its Will to comply, the Woman in the School Uniform made another Request.</p>
-<p>-My name is Tsukiyo (月夜). Please keep my name as it is, so that it can be remembered that I existed in this world.</p>
+<p>-My name is Tsukiyo. Please keep my name as it is, so that it can be remembered that I existed in this world.</p>
 <p>Tsukiyo.... The Remains of Simyeonui ttal, having already read the Woman in the School Uniform's Memories, knew that this name was given because she was abandoned at the orphanage on a night full of moonlight.</p>
 <p>The Remains of Simyeonui ttal liked this name. Because it, too, had decided to search for Taira Ryuta on a night when the full moon reflected and swayed on the sea surface, it decided to Use the Woman in the School Uniform's name, Tsukiyo.</p>
 <p>-You can do as you wish with the surname. Anyway....</p>

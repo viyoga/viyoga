@@ -35,7 +35,7 @@ chapter = 437
 <p>"Dieee!"</p>
 <p>"You're the one who's going to die!"</p>
 <p>Continuing to clash swords as if showing off their strength was Malik Lieberman's trap. When Otagi Yuka swung her sword, Malik Lieberman jumped back at an incredible speed. And he took out two Micro Uzis from his pocket and began to shower Otagi Yuka with silver bullets. But Otagi Yuka swung her golden sword as if she had expected it.</p>
-<p>Akagamikiba Style (赤神牙式: Red God Fang Style) Chiyahankyō (千矢反鏡: Thousand Arrow Reflecting Mirror)</p>
+<p>Akagamikiba Style (Red God Fang Style) Chiyahankyō (Thousand Arrow Reflecting Mirror)</p>
 <p>Otagi Yuka swung the golden sword so fast that it looked like a disc. As the name Chiyahankyō, a mirror that reflects a thousand arrows, suggests, the golden mirror-like swordsmanship deflected the silver bullets back at Malik Lieberman.</p>
 <p>Seeing Otagi Yuka deflect the silver bullets, Malik Lieberman hid behind the claymore, which had a wide blade surface. The sound of ting ting ting was heard as the silver bullets bounced off the claymore, and silver bullets were embedded in the parts that he couldn't hide behind the sword. Malik Lieberman groaned and endured the reflected silver bullets.</p>
 <p>"Haaap!"</p>

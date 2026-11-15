@@ -19,7 +19,7 @@ chapter = 99
 <p>"It's okay."</p>
 <p>I answered as I received the 007 briefcase that Yukiko handed me. It was an investment I could make because I already knew it would plummet to the $300 range. Otherwise, I wouldn't have the balls to short Health Miracle's stock, which is currently all the rage.</p>
 <p>I searched for an article on my smartphone. I immediately saw a CMM article.</p>
-<p>[Forest of High-Flying Health Miracle, Revealed to Have Tremendous Side Effects...!]</p>
+<p>"Forest of High-Flying Health Miracle, Revealed to Have Tremendous Side Effects...!"</p>
 <p>"Eventually, what's going to happen will happen."</p>
 <p>I showed the article to Yukiko and smiled.</p>
 <p>###</p>

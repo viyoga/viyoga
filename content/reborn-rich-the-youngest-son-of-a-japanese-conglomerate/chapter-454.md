@@ -20,7 +20,7 @@ chapter = 454
 <p>,Ah...!"</p>
 <p>Kurayamada Kirie nods as if she realized something at my answer. Her expression doesn't change much, but she seems strangely satisfied. It hasn't even been a month since she lost her virginity, and she's reacting like this.... She was a born sex maniac after all.</p>
 <p>,Your name is also written here."</p>
-<p>I even told her that Kirie (桐愛) was written on the small cat-shaped metal name tag. There were many shapes of name tags, but I chose this one because Kurayamada Kirie always glares at me like a cat. Kurayamada Kirie stroked the name tag a few times and then opened her mouth.</p>
+<p>I even told her that Kirie was written on the small cat-shaped metal name tag. There were many shapes of name tags, but I chose this one because Kurayamada Kirie always glares at me like a cat. Kurayamada Kirie stroked the name tag a few times and then opened her mouth.</p>
 <p>,I'll use it well."</p>
 <p>,Yeah, but I'll be the one using it, actually."</p>
 <p>,...I guess so. Then use it well."</p>

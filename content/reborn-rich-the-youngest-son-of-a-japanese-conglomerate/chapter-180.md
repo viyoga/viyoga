@@ -26,7 +26,7 @@ chapter = 180
 <p>There was also the Centipede Spine, a basic cyber implant that was implanted along the spine in the shape of a centipede, and there were many cybernetic eyes and prosthetic hands.</p>
 <p>Ah, right. Pyongyang was a paradise for people who went with the modification trait, wasn't it? Since most of the items were cyber implants, there wasn't much I could use without getting modified.</p>
 <p>Still... I should buy something since I came to Pyongyang. I found some pretty useful things in the catalog.</p>
-<p>Give me a Centipede Spine SA-A091SGF, an artificial eye R-Z001, a pair of cybernetic hands 40F-5044, and a pair of cybernetic legs 甲-092乙77 too.</p>
+<p>Give me a Centipede Spine SA-A091SGF, an artificial eye R-Z001, a pair of cybernetic hands 40F-5044, and a pair of cybernetic legs -09277 too.</p>
 <p>Even if I don't use them, there will be a time when I can use them someday. In particular, the Centipede Spine SA-A091SGF, artificial eye R-Z001, and cybernetic hand 40F-5044 were not the top-of-the-line trims, but for some reason, they were cyber implants that were compatible with superpowers, so they were incredibly popular in the game.</p>
 <p>Originally, if you got modified to gain tremendous physical abilities or special abilities, there were limitations on the superpower side. If you got modified, you either couldn't use superpowers at all, or something would go wrong.</p>
 <p>Of course, you could use superpowers if you got very expensive, top-of-the-line custom modifications, but at that time, it was already the late game, and the trait tree was already set, so the usage was limited. And no one raised the modification and superpower traits at the same time, looking towards the very end, so it was a method that wasn't used.</p>

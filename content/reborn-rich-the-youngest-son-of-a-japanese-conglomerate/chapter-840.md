@@ -10,7 +10,7 @@ chapter = 840
 <p>"Oh...! These are my early creations...! And this one was given as a Gift to someone...! And this one was made as a limited edition...! How did you get your Hands on these?"</p>
 <p>Ichimonji Harugoro's Swords would command no small Price, yet she possessed so many... It wasn't for nothing that Shimokawabe Airen lived in the Cheongsim Hall building on the school grounds. It seemed she saved on rent to collect Swords.</p>
 <p>"I inherited some from my Master-nim. The early creations you mentioned, and the ones given as Gifts, my Master-nim passed down to me."</p>
-<p>Shimokawabe Airen's master, I heard from Kujo Kina's master, was probably named Haruka (温和). I didn't know her last name back then, but it might be revealed today.</p>
+<p>Shimokawabe Airen's master, I heard from Kujo Kina's master, was probably named Haruka. I didn't know her last name back then, but it might be revealed today.</p>
 <p>"Could your Master-nim possibly be Kagiya Haruka?"</p>
 <p>"Yes."</p>
 <p>It seemed there was some kind of relationship between Shimokawabe Airen's Master-nim, Kagiya Haruka, and Ichimonji Harugoro. Since he had given her Swords he made in his early days and another as a Gift, they must have been quite close.</p>
@@ -73,13 +73,13 @@ chapter = 840
 <p>"Would you like to go to lunch with us?"</p>
 <p>"No, it's fine. Young people should eat together. I brought my Lunchbox."</p>
 <p>At my Proposal, Shizuma Ichihara waved his Hand and returned to his office. If he didn't want to eat, there was nothing I could do. I turned my Head to look at the Students and spoke.</p>
-<p>Torimotsuni (鳥もつ煮: braised chicken giblets in soy sauce) is famous in Kofu, so shall we have that for lunch?</p>
+<p>Torimotsuni (braised chicken giblets in soy sauce) is famous in Kofu, so shall we have that for lunch?</p>
 <p>"Sounds good, Orabeoni~!"</p>
 <p>"I don't know what it is, but if Ryuta eats it, Alik will like it too...!"</p>
 <p>"Might as well give it a try."</p>
 <p>Everyone agreed and nodded their Heads at my Proposal, so I punched the restaurant I had looked up into the GPS and started the car.</p>
 <p>Empty-eyed Yandere Alik, requested by Iseibu-nim~!</p>
 <p>Felt a little weak? So I added eye shadow, hehe.</p>
-<p>「Ryuta tied to a Chair... Good. Alik and Ryuta, we'll be together for a Lifetime.」</p>
+<p>"Ryuta tied to a Chair... Good. Alik and Ryuta, we'll be together for a Lifetime."</p>
 <p>Home Ec Teacher B-cut~!</p>
 <p>Knee socks felt too childish, so I took them off, hehe.</p>

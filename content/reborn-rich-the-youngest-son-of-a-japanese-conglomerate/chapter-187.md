@@ -44,7 +44,7 @@ chapter = 187
 <p>"Sunbae-nim, they said the Seryu-tai people have arrived."</p>
 <p>"They came quickly?"</p>
 <p>I was studying the terrain while looking at the tablet PC when Mimata Chieri, who had regained her senses, received a call from a soldier at the base entrance and told me.</p>
-<p>Only fifteen minutes have passed; how fast did they drive? As I put the tablet down and stood up, the tent door opened and Sawayanagi Azuma entered. Sawayanagi Azuma saw me, ran over, and hugged me. It's been a while since I hugged a woman, so Johnson is trying to react a bit.</p>
+<p>Only fifteen minutes have passed; how fast did they drive? As I put the tablet down and stood up, the tent door opened and Sawayanagi Azuma entered. Sawayanagi Azuma saw me, ran over, and hugged me. It's been a while since I hugged a woman, so dick is trying to react a bit.</p>
 <p>"Investor-nim! I missed you~!"</p>
 <p>"Azuma-ssi, have you been well?"</p>
 <p>Was it a bit much to ask if she's been well? She must have only been fighting for the past six days while I was gone. Whether my worries were unfounded, Sawayanagi Azuma nodded with a bright expression.</p>

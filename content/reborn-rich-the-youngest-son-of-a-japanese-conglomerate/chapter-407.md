@@ -17,10 +17,10 @@ chapter = 407
 <p>Since it was almost dinner time, I wondered if I should buy something to eat, so I stopped by a beef bowl restaurant for the first time in a while and packed about three servings before heading to the love hotel district.</p>
 <p>As I walked with the beef bowl bag, I saw the love hotel district with the signs lit up. I could already see a few couples, horny men and women, entering the love hotels arm in arm. After confirming that there was no one else besides the love hotel customers in the vicinity, I entered the love hotel where the Dark Trade branch was located.</p>
 <p>"Welcome~! Ryuta-nim!!"</p>
-<p>Eve, wearing a thin bikini that revealed her nipples, an outfit unsuitable for the underground Dark Trade branch, was waving her arms and welcoming me. She's still wearing provocative clothes. I was already super pent up because of the students' provocations today, and seeing Eve's appearance made my Johnson twitch without me even realizing it.</p>
+<p>Eve, wearing a thin bikini that revealed her nipples, an outfit unsuitable for the underground Dark Trade branch, was waving her arms and welcoming me. She's still wearing provocative clothes. I was already super pent up because of the students' provocations today, and seeing Eve's appearance made my dick twitch without me even realizing it.</p>
 <p>No! Get a grip! She's an AI android!</p>
-<p>I shouted in my mind to Johnson, the third personality between my legs, but Johnson was like, "Isn't this great?" and made the snake even bigger.</p>
-<p>It was embarrassing, but I couldn't just stand there, so I covered my Johnson area with the beef bowl bag and approached Eve. It's not like Eve wouldn't notice my condition.</p>
+<p>I shouted in my mind to dick, the third personality between my legs, but dick was like, "Isn't this great?" and made the snake even bigger.</p>
+<p>It was embarrassing, but I couldn't just stand there, so I covered my dick area with the beef bowl bag and approached Eve. It's not like Eve wouldn't notice my condition.</p>
 <p>"Is something the matter?"</p>
 <p>"No, I'm just horny."</p>
 <p>"Heeh.... Are you horny because of me?"</p>

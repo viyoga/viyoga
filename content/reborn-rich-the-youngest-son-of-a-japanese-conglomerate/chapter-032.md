@@ -12,12 +12,12 @@ chapter = 32
 <p>,Yes, it's delicious, Taira-gun. It's a taste I haven't felt in so long!</p>
 <p>It must be super delicious. This time, she held my glans in her mouth and stimulated it with her tongue, while shaking the shaft with her hand, giving me a handjob. It felt so good that my back arched involuntarily. Wow! This married woman is amazing. Judging by how she said it had been so long, it seemed like she hadn't had sex since her husband went on a long-term overseas business trip.</p>
 <p>,Hmm...!! Hmm...!</p>
-<p>As she stimulated my glans intensely with her tongue while shaking my shaft, a sense of impending ejaculation gradually washed over me. Sinoe Misano urged me on, as if telling me to hurry up and cum, with a ,Hmm...!</p>
+<p>As she stimulated my glans intensely with her tongue while shaking my shaft, a sense of impending ejaculation gradually washed over me. Sinoe Misano urged me on, as if telling me to hurry up and cum, with a,Hmm...!</p>
 <p>Tak tak tak tak!</p>
 <p>,Kuh...! I think I'm gonna cum!</p>
 <p>At my words that I was about to cum, she stopped the handjob and Sinoe Misano reciprocated my dick all the way into her throat, then, just before the moment of eruption, she held only the glans in her mouth and sucked out the semen as if sucking on a straw. As a result, more semen came out than usual, and the pleasure seemed to last longer.</p>
 <p>Is this ajumma a sex genius or what?</p>
-<p>She spat out my slightly limp dick and showed me the semen in her mouth with a ,Bleh-. And then she swallowed it whole. But her expression wasn't one of forcing herself, but of immense happiness.</p>
+<p>She spat out my slightly limp dick and showed me the semen in her mouth with a,Bleh-. And then she swallowed it whole. But her expression wasn't one of forcing herself, but of immense happiness.</p>
 <p>,Was it good?</p>
 <p>,Yes, it was very good.</p>
 <p>When we started having sex, she spoke informally to emphasize her masculinity, but now that the heat had subsided a bit, she used honorifics again.</p>
@@ -84,7 +84,7 @@ chapter = 32
 <p>,Seriously, men.... Is it impossible not to ask for a boobjob when they see this?</p>
 <p>,Of course, anyone who sees Misano's soft breasts would want to squeeze them at least once, right?</p>
 <p>Of course. It would be foolish not to ask for a boobjob when seeing those huge tits. Sinoe Misano glared at me slightly as if she couldn't help it, then came down between my legs and wrapped my dick with her soft breasts.</p>
-<p>Oh! It wasn't that pleasurable, but the incredible softness felt like I was violating a pussy made of clouds. And the warm maternal feeling made me realize that I was putting my dick between her breasts. If it were an average man, his dick would be completely hidden by Sinoe Misano's huge tits, but my dick had its glans sticking out like the Terminator's thumb saying ,I'll be back'.</p>
+<p>Oh! It wasn't that pleasurable, but the incredible softness felt like I was violating a pussy made of clouds. And the warm maternal feeling made me realize that I was putting my dick between her breasts. If it were an average man, his dick would be completely hidden by Sinoe Misano's huge tits, but my dick had its glans sticking out like the Terminator's thumb saying,I'll be back'.</p>
 <p>As Sinoe Misano began to suck my glans with her mouth and rub my shaft with her breasts in earnest, I felt the ultimate pleasure. Softness and wetness, a sharp pleasure felt on my glans. I guess this is why people say boobjob, boobjob.</p>
 <p>Just a boobjob was average, but the synergy was amazing when it was a boobjob plus glans sucking. I couldn't hold back for long and ended up ejaculating again. Sinoe Misano swallowed my semen again and asked if I was satisfied now. With my virility greatly increased by the golden pillar, I still had some stamina left to use since I hadn't had sex for almost two weeks.</p>
 <p>Ah! Come to think of it, I have a date with Arisu today, but I wanted to stick it in Sinoe Misano's pussy just one more time. I'll probably recover if I do it one more time and sleep.</p>

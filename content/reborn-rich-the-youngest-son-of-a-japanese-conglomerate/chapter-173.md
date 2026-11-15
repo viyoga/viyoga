@@ -5,7 +5,7 @@ weight = 173
 chapter = 173
 +++
 
-<p>-An incident occurred where the Cheonan factory of BS Precision was completely destroyed by fire. The police are investigating the incident as arson. The fire resulted in the deaths of Factory Manager Jeon -ssi and other factory executives at the Cheonan factory ....</p>
+<p>-An incident occurred where the Cheonan factory of BS Precision was completely destroyed by fire. The police are investigating the incident as arson. The fire resulted in the deaths of Factory Manager Jeon -ssi and other factory executives at the Cheonan factory....</p>
 <p>"Turn off the radio."</p>
 <p>Park Mun-seok, the president of Base Technology, said to his driver with a displeased expression. The driver quietly turned off the radio. Base Technology appeared to be an independent company, but in reality, it was a secret affiliate of the BS Group.</p>
 <p>Therefore, he felt uncomfortable when bad news about the BS Group came on the radio. Moreover, the situation became difficult because the body of Park Sang-beom, the son of Park Il-soo who was vying for succession of the group, was found near the main gate of Base Technology last night.</p>

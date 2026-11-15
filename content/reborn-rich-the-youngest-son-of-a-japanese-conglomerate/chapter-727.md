@@ -97,7 +97,7 @@ chapter = 727
 <p>So I went to Eve's love hotel with Saionji Diana, Otagi Yuka, and Sakagami Rena, who happened to be with me, and had 3-on-1 sex. Everyone seemed quite excited to be doing it in a new place after doing it all at my house, and that made me excited, so everyone quickly climaxed and was sprawled out on the bed.</p>
 <p>Vibration.</p>
 <p>Because the sex had been quite intense until just now, I was wondering if I should eat something, so I sat on the bed and looked at my phone, and it vibrated. It was a text from Eve.</p>
-<p>EVE: Ryuta-nim, please go to the next room. (っ・ᴗ・)✧</p>
+<p>EVE: Ryuta-nim, please go to the next room. ✧</p>
 <p>Huh? Next room? Why is she telling me to go to the next room? Did she set up something to eat in the next room? I got up from the bed, put on a gown roughly, and left the room. I didn't forget to tell the three people lying down that I was going out, although I don't know if they were in the right state of mind to listen to me.</p>
 <p>Clang!</p>
 <p>The door to the next room was not locked. I could feel it as soon as I opened the door. A strong smell of female. There was a woman in the room.</p>

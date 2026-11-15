@@ -41,7 +41,7 @@ chapter = 281
 <p>At Sawayanagi Azuma's words, Kiyona Mari laid firewood and charcoal on the barbecue grill and lit the fire. When we added another grill, things started to go well without the meat disappearing all at once.</p>
 <p>,Ah, Investor-nim! Did you hear that story?</p>
 <p>,What story?</p>
-<p>Sawayanagi Azuma spoke to me. If she says ,that story,, no one knows what story she's talking about, so I became curious and asked.</p>
+<p>Sawayanagi Azuma spoke to me. If she says,that story,, no one knows what story she's talking about, so I became curious and asked.</p>
 <p>,Black Tech was acquired by some company.</p>
 <p>Black Tech was the company that kidnapped Sawayanagi Azuma when we acquired Seryu-tai. I heard rumors that we destroyed the research lab and suffered a huge loss, but they were acquired by another company.... I was curious about which company acquired them.</p>
 <p>If it's Black Tech's research on biological weapons and espers, I thought a large company might be aiming for it.</p>
@@ -72,11 +72,11 @@ chapter = 281
 <p>They made me excited with sensual gestures as if they were competing with each other. Then they climbed onto the bed and took off the clothes I was wearing.</p>
 <p>All I had on was a short-sleeved shirt, shorts, and underwear, but there were exactly three of them, so Sawayanagi Azuma took the short-sleeved shirt, Lianna Holden took the shorts, and Mimata Chieri took the underwear, making me naked.</p>
 <p>,Who's going first?</p>
-<p>All three of them answered ,Me! to my question. The night was long, but it seemed that all three of them were trying to compete to quell the flames of lust right now.</p>
+<p>All three of them answered,Me! to my question. The night was long, but it seemed that all three of them were trying to compete to quell the flames of lust right now.</p>
 <p>###</p>
 <p>The women of room 203 gathered again in Taira Ryuta's next room.</p>
 <p>Unlike before dinner, they weren't very careful. Everyone was drunk, and the women of room 203 were also drunk.</p>
-<p>They started fighting with each other at Taira Ryuta's question of ,Who's going first,, and in the end, Sawayanagi Azuma must have won, because Sawayanagi Azuma's moans began to be heard.</p>
+<p>They started fighting with each other at Taira Ryuta's question of,Who's going first,, and in the end, Sawayanagi Azuma must have won, because Sawayanagi Azuma's moans began to be heard.</p>
 <p>Sawayanagi Azuma's moans were sweet and sticky, and sounded very pleasant to anyone who heard them. The second was Lianna Holden, and again, she couldn't control her telepathy, and her moans echoed in my head.</p>
 <p>,I, is it really that good?</p>
 <p>Everyone was silent at Sawayanagi Seari's question. In fact, everyone had masturbated to some extent, but they didn't know because they hadn't experienced it yet.</p>

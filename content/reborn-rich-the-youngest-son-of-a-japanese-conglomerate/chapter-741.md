@@ -57,7 +57,7 @@ chapter = 741
 <p>"Don't bring up other women... no. Stray cats in front of me. Because I might not be able to stand it anymore."</p>
 <p>Taira Kanna-ssi spoke in a chilling voice, and instantly, an enormous murderous aura filled the room. Considering the skills she showed in the fencing competition at the sports day before, the enormous strength she showed today, and the murderous aura now, Taira Kanna-ssi also seemed to be a considerable expert.</p>
 <p>"I can't help it. In this case, I have no choice but to poison Onii-sama with my body."</p>
-<p>I was also thinking of persuading her to release me with my body. We're thinking about similar things. The 69 just now was just a prelude. The real fight will be a battle of seduction (色鬪) that starts right now.</p>
+<p>I was also thinking of persuading her to release me with my body. We're thinking about similar things. The 69 just now was just a prelude. The real fight will be a battle of seduction that starts right now.</p>
 <p>Taira Kanna-ssi stood on top of my dick. And, as if telling me to watch carefully, she smiled lewdly and slowly started to sit down.</p>
 <p>Because my dick was already standing straight up, looking at the sky, all she had to do was aim (?) well and it would go right in, so there was no need to grab it and put it in the hole. But Taira Kanna-ssi didn't insert it right away.</p>
 <p>"Hehe, Onii-sama, did you think I would put it in right away?"</p>

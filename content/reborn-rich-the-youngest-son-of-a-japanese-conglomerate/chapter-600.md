@@ -54,7 +54,7 @@ chapter = 600
 <p>-Kurayamata Kirie: Is that so? I'm quite busy because there are many things to do in the early stages of establishment.</p>
 <p>She seems busy. But I have to resolve my curiosity.</p>
 <p>-Taira Ryuta: What did you name yours? You didn't name it Jinildang as is, did you?</p>
-<p>-Kurayamata Kirie: Are you stupid? How could I possibly use the name of a terrorist organization as it is? I named it Chūōōkamitai (忠狼隊).</p>
+<p>-Kurayamata Kirie: Are you stupid? How could I possibly use the name of a terrorist organization as it is? I named it Chūōōkamitai.</p>
 <p>Chūōōkamitai.... It was a name with the character for loyalty attached to the front of the wolf, which is the symbol of the Kurayamata family. If you break it down, it's a name like Loyal Wolf Corps. If the loyalty in loyalty refers to loyalty to me, it was a pretty pleasing name.</p>
 <p>-Taira Ryuta: That's a good name. I'll have to bring a leash when I see you next time.</p>
 <p>Kurayamata Kirie-ssi didn't respond for a while to my words. I went back to the car and sat down, and then Kurayamata Kirie-ssi's reply came.</p>

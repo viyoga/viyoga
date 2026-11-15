@@ -15,7 +15,7 @@ chapter = 106
 <p>The speeding car had already disappeared elsewhere, and the driver of the car that was following behind got out of the car and asked Mimata Chieri if she was okay.</p>
 <p>,Yes, I'm fine because I wasn't hurt.</p>
 <p>The driver, momentarily speechless at Mimata Chieri's nonchalant appearance, stared at Mimata Chieri for a moment before giving her his business card. After telling her to contact him if she needed anything, she looked at the business card after seeing the luxury car disappear.</p>
-<p>The business card read Fumimoto Takayuki (文本 考行), Head of the Planning Secretary Office at Taira Bio, with his contact information written below.</p>
+<p>The business card read Fumimoto Takayuki, Head of the Planning Secretary Office at Taira Bio, with his contact information written below.</p>
 <p>,Taira....</p>
 <p>Mimata Chieri knew the name Taira well. That's because the jam she had been eating since she was a child was made by Taira Foods. In addition, they produced various other items, ran a telecommunications company, and the name Taira was everywhere around her. Mimata Chieri unknowingly kept the business card given to her by a man she only knew by face and name.</p>
 <p>Originally, she only intended to keep it and had no intention of contacting him. But everything changed because of Mimata Chieri's parents.</p>

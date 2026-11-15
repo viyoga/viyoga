@@ -58,7 +58,7 @@ chapter = 371
 <p>"Okay!"</p>
 <p>Kijimoto Jurie quickly relaxed her flustered expression at my words that I was joking and answered with a smile. Well, things that seem like jokes sometimes happen in reality.</p>
 <p>###</p>
-<p>-Everyone, please get up and come out onto the deck. You can see Kojima (小島), the island owned by Risa-ojousama. Please enjoy the view before disembarking from the cruise.</p>
+<p>-Everyone, please get up and come out onto the deck. You can see Kojima, the island owned by Risa-ojousama. Please enjoy the view before disembarking from the cruise.</p>
 <p>Ah, is it already morning? I woke up to the broadcast and checked the time, and it was 7:30 AM.</p>
 <p>Kijimoto Jurie had gone back to her room after having sex and eating late-night snacks together yesterday, so I was alone in the cabin. If we came out of the same room in the morning, uncontrollable rumors would spread, so I had to be careful.</p>
 <p>I got out of bed, stretched, washed my face roughly, and went up to the deck. There was a breakfast buffet set up on the deck, and an island was visible in the distance.</p>

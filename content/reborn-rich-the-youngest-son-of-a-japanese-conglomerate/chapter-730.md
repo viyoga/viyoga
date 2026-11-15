@@ -7,7 +7,7 @@ chapter = 730
 
 <p>I spent the next day until dawn satisfying the students' desires and sent them all home. Urabe Konoka went to the shrine to prepare for the Deep Sea Daughter's transformation work that would take place today, and I opened the secret vault to find the Essence of Earth that the Deep Sea Daughter said she needed.</p>
 <p>I opened the secret vault, which was secured with triple security including fingerprint, iris, and voice recognition, and took out the Essence of Earth, which was stored in one corner. It looked like a pink, fist-sized jewel, and it was emitting a subtle light, so anyone could see that it was a precious jewel.</p>
-<p>◆Essence of Earth [Legendary+ Elixir/Material/Consumable]</p>
+<p>◆Essence of Earth "Legendary+ Elixir/Material/Consumable"</p>
 <p>The essence of the earth's energy, coveted by everyone from the ground. You can consume it directly, but using alchemy to make an elixir will make it even more effective.</p>
 <p>When consumed, your physical stats permanently increase by +1, and your strength, stamina, resistance, and recovery stats increase by 2. The limit of your physical stats also increases by 1.</p>
 <p>Looking at the options, it's a bit of a waste, but if the Deep Sea Daughter transforms into a new being, she'll give me a suitable reward. I took good care of the Essence of Earth and went outside to go to the shrine.</p>
@@ -42,7 +42,7 @@ chapter = 730
 <p>◆Deep Sea Daughter's Seal (Unavailable)</p>
 <p>◆Psychokinesis</p>
 <p>◆Cambion's Flesh</p>
-<p>◆Magic Circle [Offering to the Deep Sea Daughter]</p>
+<p>◆Magic Circle "Offering to the Deep Sea Daughter"</p>
 <p>◆Praise of Purity</p>
 <p>◆Deep Sea Daughter's Brand (Unavailable)</p>
 <p>◆Flesh Wrapped in the Abyss (Unavailable)</p>
@@ -84,7 +84,7 @@ chapter = 730
 <p>I suddenly became curious and checked my status window, and the names of the Deep Sea Daughter's Seal and the Deep Sea Daughter's Brand, which were traits with the name Deep Sea Daughter, had been changed.</p>
 <p>◆???'s Seal</p>
 <p>◆???'s Brand</p>
-<p>It seemed that she had already abandoned the name Deep Sea Daughter. Then what should I call her now? Should I call her ???? She said it wouldn't take long, so I should ask her when she comes back.</p>
+<p>It seemed that she had already abandoned the name Deep Sea Daughter. Then what should I call her now? Should I call her???? She said it wouldn't take long, so I should ask her when she comes back.</p>
 <p>###</p>
 <p>After the Deep Sea Daughter left for her transformation, I practiced psychokinesis and shadow domination. The only Kwonbeop I had learned was Shinkai Yatsude, so when I fought in the future, I decided to use practical-style close combat using basic skills that suited the situation without forms.</p>
 <p>As the opening of the semester approached, I had quite a lot to do. In February, I was busy studying for the 7 PMC certification under the name Taira Ryuta and writing the remaining Korean test questions.</p>

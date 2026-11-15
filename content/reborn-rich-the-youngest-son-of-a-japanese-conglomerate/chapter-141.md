@@ -26,7 +26,7 @@ chapter = 141
 <p>Hangari Muneo, who was laughing quietly at my words, took something out of her pocket and gave it to me. It was a small wooden box.</p>
 <p>"ShinKaihime-nim gave it to you."</p>
 <p>The Daughter of the Abyss gave it to me? She didn't mention a gift to me, is it like a surprise gift? When I opened the box and checked, there was something like a bead inside.</p>
-<p>◆Mermaid's Tears [Legendary Elixir]: Can increase the grade of one evolvable trait. It is unknown whether it is really tears shed by a mermaid.</p>
+<p>◆Mermaid's Tears "Legendary Elixir": Can increase the grade of one evolvable trait. It is unknown whether it is really tears shed by a mermaid.</p>
 <p>Oh! To give me Mermaid's Tears here...! It was one of the few ways to go from Adult of ㅇㅇ to Superman, so getting it like this was a total jackpot. Or I could upgrade other special traits.</p>
 <p>There was a small note under the Mermaid's Tears, so I took it out and read it.</p>
 <p>-Come to think of it, I didn't pay the price for the god and the unique soul. I hope you understand as a partner even if this is not enough.</p>

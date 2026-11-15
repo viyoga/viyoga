@@ -55,12 +55,12 @@ chapter = 85
 <p>,Haeum♥'</p>
 <p>I cummed inside Han Yu-gyeong as it was, and collapsed on Han Yu-gyeong in the missionary position.</p>
 <p>,It felt good, Yong-tae-ya♥'</p>
-<p>Han Yu-gyeong stroked my back, saying ,You did well~' with an expression that showed her favorability had increased as much as possible. It was clear that Han Yu-gyeong would be heavy if I kept being on top of her, so I rolled over and lay down next to Han Yu-gyeong. Accordingly, my dick naturally came out of Han Yu-gyeong's pussy. Because I had done it five times in a row, my dick was small after cumming.</p>
+<p>Han Yu-gyeong stroked my back, saying,You did well~' with an expression that showed her favorability had increased as much as possible. It was clear that Han Yu-gyeong would be heavy if I kept being on top of her, so I rolled over and lay down next to Han Yu-gyeong. Accordingly, my dick naturally came out of Han Yu-gyeong's pussy. Because I had done it five times in a row, my dick was small after cumming.</p>
 <p>,Heehee, it came out♡ Now give me a pillow arm~.'</p>
 <p>Han Yu-gyeong laughed as if it was fun when my dick popped out. When I lay down silently and stretched out my arm, Han Yu-gyeong hugged me and leaned her head on my arm. I naturally caressed Han Yu-gyeong's breasts with my other arm. Hmm... soft things give a sense of stability after all.</p>
 <p>,Ah, you said you had something to do when you saw me back then. What is it?'</p>
 <p>Ah, right. I need to solve one of the purposes of coming here. I said, ,Just a moment,' and got up and took out something I had brought from my luggage.</p>
-<p>◆ Glasses of the Ruins [Rare Item 4/5]: You can check the target's abilities when you wear the glasses.</p>
+<p>◆ Glasses of the Ruins "Rare Item 4/5": You can check the target's abilities when you wear the glasses.</p>
 <p>It was the glasses I bought at the black market before. I put on the glasses and looked at Han Yu-gyeong. Han Yu-gyeong laughed when I looked at her wearing antique glasses.</p>
 <p>,You said you had something to do to show me wearing glasses? That's kind of cute.'</p>
 <p>I couldn't hear Han Yu-gyeong's story well because of the translucent window floating in front of my eyes. Because it was hard to believe.</p>
@@ -70,8 +70,8 @@ chapter = 85
 <p>Intelligence:15 Knowledge:8 Concentration:11 Will:14 Creativity:11 Charm:17 Judgment:14</p>
 <p>Etc</p>
 <p>Luck:18</p>
-<p>◆Learning Lv11 [General Skill]: The frequency of knowledge increasing increases when learning.</p>
-<p>◆Intelligence of the Stars [Unique Trait]: Initial intelligence increases by 5 and the effect of intelligence increases. The limit of intelligence increases by 2.</p>
+<p>◆Learning Lv11 "General Skill": The frequency of knowledge increasing increases when learning.</p>
+<p>◆Intelligence of the Stars "Unique Trait": Initial intelligence increases by 5 and the effect of intelligence increases. The limit of intelligence increases by 2.</p>
 <p>You can choose 5 traits.</p>
 <p>I wasn't surprised that her level was 6. The reason why she goes to college in the early game is to level up a little easier. If you take lectures at university, you can gain experience up to a certain level, so you had to study hard in university classes in the beginning. The reason why Han Yu-gyeong was level 6 was because she took classes very tightly to graduate early. What surprised me wasn't level 6, but Han Yu-gyeong's stats.</p>
 <p>Her physical abilities were low for level 6, but her mental abilities were unbelievably high instead. No matter how well the initial random stat distribution goes, it wouldn't be this much. It was a stat that you could only get by raising it to 20 without almost any elixirs or events. Is it because she's the main character? It wasn't this much when I raised her....</p>
@@ -94,7 +94,7 @@ chapter = 85
 <p>,What are you talking about?'</p>
 <p>,Just what it says.'</p>
 <p>I thought it would be better to make her feel it once than to give hundreds of explanations, so I chose one trait for her. I chose the most useful mental shield out of the three traits.</p>
-<p>◆Mental Shield [Epic Trait]: When you concentrate, you create a shield with a defense power of 120 percent of the average of your mental stats (15.4). The duration is the average of your mental stats in minutes (12 minutes).</p>
+<p>◆Mental Shield "Epic Trait": When you concentrate, you create a shield with a defense power of 120 percent of the average of your mental stats (15.4). The duration is the average of your mental stats in minutes (12 minutes).</p>
 <p>,....! Suddenly some knowledge came to mind. Like it's being engraved in my head....'</p>
 <p>,That's how it is.'</p>
 <p>Han Yu-gyeong concentrated for a moment and unfolded a mental shield. The mental shield was transparent, so it wasn't easy to see, but if you looked closely, you could feel that the shield was unfolded because there was a slight distortion where the mental shield was unfolded.</p>

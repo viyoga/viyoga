@@ -22,17 +22,17 @@ chapter = 236
 <p>At my question, the Fitzgerald mother and daughter looked at each other and blushed. As expected, Arisu opened her mouth again.</p>
 <p>"Ryuta, aren't you hungry? We prepared something to eat."</p>
 <p>What, I asked why they were taking off their clothes, but suddenly it's about food.... Isn't that strange?</p>
-<p>As I stood there without answering, Arisu and Nae Fitzgerald approached. The two of them came and took off my clothes one by one. They said it was about food, but now they're taking off my clothes, what's that about.... Even in this strange situation, my Johnson, which was getting hard, was the strangest thing of all.</p>
+<p>As I stood there without answering, Arisu and Nae Fitzgerald approached. The two of them came and took off my clothes one by one. They said it was about food, but now they're taking off my clothes, what's that about.... Even in this strange situation, my dick, which was getting hard, was the strangest thing of all.</p>
 <p>Before I knew it, the two of them, who had taken off all my clothes, hugged me at the same time, put their mouths to my ears, and began to whisper. Arisu had a very embarrassed expression, and Nae Fitzgerald had a seductive expression.</p>
 <p>How about the Oyakodon we made?</p>
-<p>Oyakodon (親子丼)? Mother-and-child rice bowl? Of course, there was no way I could say no. I grabbed Arisu and Nae Fitzgerald's chests with both hands and opened my mouth.</p>
+<p>Oyakodon? Mother-and-child rice bowl? Of course, there was no way I could say no. I grabbed Arisu and Nae Fitzgerald's chests with both hands and opened my mouth.</p>
 <p>"Did you call and say you couldn't go home? I'm going to torment you all night."</p>
 <p>"When Ryuta went out earlier, I left a message for the butler saying we were going to see a late-night movie together...."</p>
 <p>Arisu answered, still blushing as if she was embarrassed. They were already well prepared. On the other hand, Nae Fitzgerald was closing her eyes and properly enjoying me touching her breasts.</p>
 <p>"Huu... Huut...!"</p>
 <p>Along with the moaning sound brushing against my ear, I took the two of them back to the bed.</p>
 <p>"There's still something we haven't finished talking about, right? About interfering with my mission as Phantom Thief Francois."</p>
-<p>I looked at the ceiling and lay down on the bed with my Johnson fully erect. They were both slightly embarrassed by my words, but since bringing this up in the current situation meant that I would let them get away with it by making them do something lewd, their expressions weren't that serious.</p>
+<p>I looked at the ceiling and lay down on the bed with my dick fully erect. They were both slightly embarrassed by my words, but since bringing this up in the current situation meant that I would let them get away with it by making them do something lewd, their expressions weren't that serious.</p>
 <p>"Suck my dick deliciously together."</p>
 <p>I interlocked my hands, put them behind my head, and said comfortably. The two of them hesitated for a moment, but when Nae Fitzgerald grabbed my pillar and started licking it first, Arisu also stuck out her tongue and licked my dick as if she couldn't lose.</p>
 <p>Ooh! It felt so good that my back arched involuntarily as the two of them simultaneously played with my dick with their tongues.</p>

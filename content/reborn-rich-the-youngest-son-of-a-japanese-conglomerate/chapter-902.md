@@ -33,7 +33,7 @@ chapter = 902
 <p>"Junichi, Hori, Mari, Jinha and I will take the first floor. The rest of you, under Sinya's Command, please take the second floor."</p>
 <p>Because it was a two-story Building, Sawayanagi Azuma divided the Group into two. The presumed locations of the Guardians were also conveniently divided into the first and second floors.</p>
 <p>Sawayanagi Azuma, Kiyona Hori, the Mari Sisters, Kitayama Junichi, and Choi Jin-ha decided to search the first floor, while the second floor was to be handled by Sawayanagi Sinya, the Vice President of Seryu Military Company, along with Sawayanagi Tobe, Sawayanagi Seari, Sawayanagi Shigeru, and Lee Du-yeong.</p>
-<p>Sawayanagi Azuma's group, who went to the first floor, soon encountered one of the Guardians. This Guardian wielded a rare weapon in Anyaji, where Fist Techniques were the focus, and he was holding a short, modified naginata (薙刀: Japanese single-edged spear). It seemed he had modified it because he often fought indoors.</p>
+<p>Sawayanagi Azuma's group, who went to the first floor, soon encountered one of the Guardians. This Guardian wielded a rare weapon in Anyaji, where Fist Techniques were the focus, and he was holding a short, modified naginata (Japanese single-edged spear). It seemed he had modified it because he often fought indoors.</p>
 <p>"Are you bastards the ones who fired the Guns?"</p>
 <p>"If I had to say, the ones who used Guns are outside, but they're part of the same Party/Group."</p>
 <p>The Guardian, who had been shot, furiously pointed with his naginata and spoke, but Sawayanagi Azuma answered calmly, as if she didn't care about such Anger.</p>
@@ -87,7 +87,7 @@ chapter = 902
 <p>"What are you looking at?"</p>
 <p>"Look... at this."</p>
 <p>When Kiyona Mari asked, looking at Sawayanagi Seari, Sawayanagi Seari pointed to the wall she had been looking at.</p>
-<p>On the wall, '神様が来る！(God is coming!)' was written in blood. The letters seemed three-dimensional, as if they had been repeatedly painted over with blood.</p>
+<p>On the wall, '！(God is coming!)' was written in blood. The letters seemed three-dimensional, as if they had been repeatedly painted over with blood.</p>
 <p>"This is...."</p>
 <p>"So that Person called the Guardian Hall Master isn't here."</p>
 <p>Everyone felt an ominous Feeling from the Story written in Blood, but Taira Kanna, perhaps feeling nothing particular, spoke about the Guardian Hall Master. Since they hadn't seen him even in the Secret Space, the conclusion that he didn't exist within this Building was valid.</p>

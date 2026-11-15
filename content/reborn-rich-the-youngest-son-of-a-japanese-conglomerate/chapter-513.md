@@ -16,28 +16,28 @@ chapter = 513
 <p>Strength: 8 Agility: 14 Stamina: 10 Resistance: 4 Recovery: 8 Nerves: 14 Appearance: 15</p>
 <p>Intelligence: 10 Knowledge: 9 Concentration: 9 Willpower: 8 Creativity: 4 Charm: 14 Judgment: 10</p>
 <p>Luck: 9</p>
-<p>◆Learning Lv8 [Common Skill]: Increases the frequency of knowledge gain when learning. It also has a positive effect on increasing proficiency in other skills and acquiring new skills.</p>
-<p>◆Shinten Sword Style-Kirie Style Lv12 [Epic Skill]: Swordsmanship using a great katana. It has a wide attack range and strong power. Kirie Kurayamada changed it to her own style.</p>
-<p>◆Command Lv9 [Rare Skill]: Can command during battle. The movements of subordinates become faster.</p>
-<p>◆Espionage Lv8 [Rare+ Skill]: Can change oneself into a different identity and collect information.</p>
-<p>◆Management Lv7 [Special Skill]: Has a positive effect when leading a group of a certain size or more.</p>
-<p>◆Language-English Lv9 [Common Skill]: Converses in English.</p>
-<p>◆Disruption LV8 [Rare+ Skill]: Increases the chance of confusing the opponent during battle.</p>
-<p>◆Kurayamada Style Cooking LV5 [Rare Skill]: A cooking method passed down through the Kurayamada family. Their hearty meat dishes are exquisite.</p>
-<p>◆Education Lv3 [Common Skill]: Increases the learning ability of the subject when teaching knowledge.</p>
-<p>◆Wild Senses [Epic Trait]: Nerve and Luck stats increase by 2, and there is a chance to sense approaching danger. Additionally, evasion and hit rate increase, and one becomes skilled at using terrain during battle.</p>
-<p>◆Exceptional Intellect [Rare Trait]: Increases the efficiency of skill learning and speeds up the accumulation of knowledge.</p>
-<p>◆Master Swordsman [Epic Trait]: Becomes a master of swordsmanship combat.</p>
-<p>◆Subspace Linkage [Unique Trait]: Connects to a subspace that can store items. The size of the subspace is 5 cubic meters.</p>
-<p>◆Wild Physique [Epic Trait]: Strength and Agility stats increase by 1, and their limit also increases by 1. The efficiency of Strength and Agility increases, and minor wound regeneration is acquired.</p>
-<p>◆Animalistic Senses [Rare+ Trait]: Judgment increases by 1 in combat situations, and evasion and critical hit rates increase by 12 percent.</p>
-<p>◇Incomplete Werewolf Body-Kurayamada [Unique Bloodline]: Because of inheriting an incomplete bloodline, complete werewolf transformation does not occur, and [Full Moon Ferocity] is not granted upon transformation. Using body modification increases physical stats by 4, and the limit of physical stats increases by 2. Moderate regeneration ability is granted and becomes weak to silver.</p>
+<p>◆Learning Lv8 "Common Skill": Increases the frequency of knowledge gain when learning. It also has a positive effect on increasing proficiency in other skills and acquiring new skills.</p>
+<p>◆Shinten Sword Style-Kirie Style Lv12 "Epic Skill": Swordsmanship using a great katana. It has a wide attack range and strong power. Kirie Kurayamada changed it to her own style.</p>
+<p>◆Command Lv9 "Rare Skill": Can command during battle. The movements of subordinates become faster.</p>
+<p>◆Espionage Lv8 "Rare+ Skill": Can change oneself into a different identity and collect information.</p>
+<p>◆Management Lv7 "Special Skill": Has a positive effect when leading a group of a certain size or more.</p>
+<p>◆Language-English Lv9 "Common Skill": Converses in English.</p>
+<p>◆Disruption LV8 "Rare+ Skill": Increases the chance of confusing the opponent during battle.</p>
+<p>◆Kurayamada Style Cooking LV5 "Rare Skill": A cooking method passed down through the Kurayamada family. Their hearty meat dishes are exquisite.</p>
+<p>◆Education Lv3 "Common Skill": Increases the learning ability of the subject when teaching knowledge.</p>
+<p>◆Wild Senses "Epic Trait": Nerve and Luck stats increase by 2, and there is a chance to sense approaching danger. Additionally, evasion and hit rate increase, and one becomes skilled at using terrain during battle.</p>
+<p>◆Exceptional Intellect "Rare Trait": Increases the efficiency of skill learning and speeds up the accumulation of knowledge.</p>
+<p>◆Master Swordsman "Epic Trait": Becomes a master of swordsmanship combat.</p>
+<p>◆Subspace Linkage "Unique Trait": Connects to a subspace that can store items. The size of the subspace is 5 cubic meters.</p>
+<p>◆Wild Physique "Epic Trait": Strength and Agility stats increase by 1, and their limit also increases by 1. The efficiency of Strength and Agility increases, and minor wound regeneration is acquired.</p>
+<p>◆Animalistic Senses "Rare+ Trait": Judgment increases by 1 in combat situations, and evasion and critical hit rates increase by 12 percent.</p>
+<p>◇Incomplete Werewolf Body-Kurayamada "Unique Bloodline": Because of inheriting an incomplete bloodline, complete werewolf transformation does not occur, and "Full Moon Ferocity" is not granted upon transformation. Using body modification increases physical stats by 4, and the limit of physical stats increases by 2. Moderate regeneration ability is granted and becomes weak to silver.</p>
 <p>Looking at the status window, the first things that stood out were the large number of skills. As expected, she was an all-rounder character with a high intelligence and the Learning skill, so she had a ton of skills. As expected of a leader of a terrorist organization, she had Command and Management skills, and her level of Espionage skill was also considerable, probably because she infiltrated and collected a lot of information, like when she came to St. Francis Girls' Academy as an assistant teacher. She also had swordsmanship skills that could be used in combat, such as Shinten Sword Style and Disruption. And she gained the Education skill like me, but her level of Education was the same as mine, even though she came later than me.</p>
 <p>The next thing that stood out was the Subspace Linkage trait, which was one of the best traits among MegaCorp's youngest son and TMC. Everyone was using an item storage system that wasn't a bag, trunk, or warehouse, so the subspace trait was a trait that could provide tremendous convenience.</p>
 <p>I was wondering where she put that big great katana, but she puts it in the subspace.... I see now. This subspace trait is good for anyone, but it's especially useful for spies and terrorists. I'm a little jealous....</p>
 <p>And Kurayamada, who inherited the werewolf bloodline, had traits like Wild Senses, Wild Physique, and Animalistic Senses, proving that my prediction was correct, and more than anything, the Incomplete Werewolf Body-Kurayamada bloodline trait completely supported my thoughts.</p>
 <p>Still, it seemed that the kind of thing Kirie-yang was worried about, becoming a werewolf who loses reason on the night of the full moon like a curse, wouldn't happen.</p>
-<p>Reading the trait description, it said that because it was an ,incomplete, bloodline, complete transformation wouldn't occur and it wouldn't grant the ability called Full Moon Ferocity, which I don't know if it's a buff or a debuff, but it seemed that this Full Moon Ferocity had the effect of losing reason. Instead of losing reason, it would probably have a lot of stat increases attached to it.</p>
+<p>Reading the trait description, it said that because it was an,incomplete, bloodline, complete transformation wouldn't occur and it wouldn't grant the ability called Full Moon Ferocity, which I don't know if it's a buff or a debuff, but it seemed that this Full Moon Ferocity had the effect of losing reason. Instead of losing reason, it would probably have a lot of stat increases attached to it.</p>
 <p>Rather, it seemed that Kirie-yang was better off being incomplete. If she doesn't completely turn into a wolf and only gets ears, it's not visually repulsive (in fact, there would probably be a lot of people who like it), and she doesn't lose reason, and since she's a swordsman, she doesn't relatively need the Strength stat that increases the most when she transforms into a werewolf, so it felt like she was taking only the most necessary things from werewolf transformation.</p>
 <p>,It's okay. You won't completely turn into a wolf,.</p>
 <p>,How do you know that?,.</p>

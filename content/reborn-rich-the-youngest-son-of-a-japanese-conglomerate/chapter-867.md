@@ -57,7 +57,7 @@ chapter = 867
 <p>Ah, that's interesting. Solidifying Japanese sake and putting it into Glass/Cup-shaped chocolates, it seems like it must have some meaning...?</p>
 <p>"It's incredibly novel, but you wouldn't have made it like this without any Reason.... Could you explain a little more?"</p>
 <p>At my Question, Minamoto Lisa suddenly blushed. Did I ask something embarrassing? As I tilted my Head and looked at her, Minamoto Lisa, with an Embarrassed Face, opened her mouth.</p>
-<p>You know, there's a ceremony called Sansankudo (三三九度) in traditional Japanese weddings...</p>
+<p>You know, there's a ceremony called Sansankudo in traditional Japanese weddings...</p>
 <p>Aha, so you made it with a wedding as the motif, like Taira Kanna. Taira Kanna made hers with a Western wedding, giving it a Wedding Cake feel, while Minamoto Lisa represented Sansankudo, a part of the traditional wedding ceremony, with chocolate.</p>
 <p>"Since it's Sansankudo... shall we share it?"</p>
 <p>Since Sansankudo was a ceremony where the Bride and groom shared three cups of Alcohol, I playfully asked Minamoto Lisa.</p>

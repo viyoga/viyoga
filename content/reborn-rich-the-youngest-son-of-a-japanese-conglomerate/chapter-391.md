@@ -49,7 +49,7 @@ chapter = 391
 <p>Scout Fly wasn't a bad trait. Flies are not easily noticeable, so it's good for scouting, but it wasn't a trait I could use. If flies flew around me, the favorability of women would drop, so it was an even worse choice.</p>
 <p>Master of Smelting was a skill that blacksmiths could use, but in this modern mass production society, a blacksmith trait wasn't really necessary. If I mainly used cold weapons like swords, it was a trait worth getting to make custom weapons, but since I'm a fist fighting build, it was a trait I didn't need.</p>
 <p>Nimble Fingers wasn't bad, but it wasn't a particularly good ambiguous trait either. It does give a bonus to agility and nerves, but it wasn't a trait worth choosing over rerolling the Philosopher's Stone trait.</p>
-<p>The [Potential Enhancement] option of the item [Philosopher's Stone] can change the trait that can be selected by leveling up to a random trait of a higher grade. Would you like to change it?</p>
+<p>The "Potential Enhancement" option of the item "Philosopher's Stone" can change the trait that can be selected by leveling up to a random trait of a higher grade. Would you like to change it?</p>
 <p>I rerolled the trait selection with the ability of the Philosopher's Stone. Then, the original trait list disappeared and a new trait appeared.</p>
 <p>Please select a trait.</p>
 <p>①Lightning Affinity ②Firearms-Shotgun Expert ③Sacred Pillar</p>
@@ -57,7 +57,7 @@ chapter = 391
 <p>Firearms-Shotgun Expert is a trait like Firearms Master, but it narrowly increases proficiency only with shotguns among firearms. It can be stacked with Master-Expert-Saint series traits, so it's a good trait if you get both, but I don't use guns often, so I passed it, and in the end, only the last one was left.</p>
 <p>Sacred Pillar... It's a trait I've never seen before, but it seemed to be related to the Golden Pillar. I chose a fist fighting trait last level up, so it was time to get a sex trait.</p>
 <p>I chose Sacred Pillar without much hesitation. I felt like my dick became a bit heavier. I immediately opened the status window and checked the trait.</p>
-<p>◆Sacred Pillar [Unique Trait]: A sacred aura of recovery dwells in the genitals. It invigorates, heals, and restores status abnormalities to the partner during intercourse.</p>
+<p>◆Sacred Pillar "Unique Trait": A sacred aura of recovery dwells in the genitals. It invigorates, heals, and restores status abnormalities to the partner during intercourse.</p>
 <p>If healing is successful or recovery from a status abnormality is achieved, the partner's favorability increases.</p>
 <p>My dick has now become a healer dick. Does that mean that if there is someone who is seriously injured, I can just fuck them...? I can only use it on someone I'm somewhat close to. Also, I need to check how much the recovery ability is. It's a unique trait, so the recovery ability will probably be quite high.</p>
 <p>"Eueueung...!"</p>

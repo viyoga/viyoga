@@ -18,8 +18,8 @@ chapter = 1042
 <p>In fact, the Genesis Chaos Style was a very aggressive Martial Art, so it had few defensive techniques. Because Liz had created the Martial Art with the feeling of countering an opponent's attack with an attack, the resulting Genesis Chaos Style became a very aggressive Martial Art.</p>
 <p>Fighting with it, it was good for defeating opponents, but in a Situation like the present, where I had to subdue an opponent without inflicting significant harm, the usable techniques were limited. Perhaps because it was a Martial Art created from the perspective of an Outer God, it seemed to lack the perspective of capturing weak humans.</p>
 <p>Still, it wasn't as if there were no Martial Arts Forms at all to use. I lightly clenched my fist as if holding a fragile egg, extended it, then opened my fist.</p>
-<p>**-Genesis Chaos Style (創世混沌流) Honwa (混渦).**</p>
-<p>Honwa was a technique that created a vortex (渦流) made of Genesis Chaos Gi, redirecting the opponent's attacks outward while landing your own.</p>
+<p>**-Genesis Chaos Style Honwa.**</p>
+<p>Honwa was a technique that created a vortex made of Genesis Chaos Gi, redirecting the opponent's attacks outward while landing your own.</p>
 <p>Isshitenkan, deflected by the vortex I created, split the empty space, and my Honwa hit Sajo's chest. As my half-palm struck, the armor cracked with a Kwadeuk sound.</p>
 <p>If I applied more power here, I could completely burst the Armor and crush his breast, but I had come to rescue Sajo, not to invert his breastbone.</p>
 <p>So, I withdrew my attack, and when Isshitenkan failed, I chose to parry Sajo's attack, which was using a different Technique.</p>
@@ -27,7 +27,7 @@ chapter = 1042
 <p>Even if it was a Martial Arts Form used without any combination, it was still a Shinkaiyatsude form. Even though I parried it without resisting the flow, its power was so tremendous that my hand tingled with a pleasurable ache. If not for the Armor, my hand would have been completely shattered.</p>
 <p>But I couldn't exaggerate my pain during combat. Before Sajo could use his next Martial Arts Form, I adjusted the output of my Genesis Chaos Gi and threw a fist.</p>
 <p>Having just struck his breast, I felt I had a rough idea of the precise intensity needed, so I was confident in this attack.</p>
-<p>**-Genesis Chaos Style (創世混沌流) Paseong (Breaking Star).**</p>
+<p>**-Genesis Chaos Style Paseong (Breaking Star).**</p>
 <p>Using Paseong, the basic and fundamental Martial Arts Form of the Genesis Chaos Style, which unleashes energy by throwing a fist, I struck his shoulder this time.</p>
 <p>Kwaang!</p>
 <p>The shoulder Armor burst open by Paseong, revealing Sajo's gaunt, bare shoulder. Of course, it was unlikely that the Black Sage had treated the kidnapped Sajo well, but seeing the evidence with my own eyes-his emaciated shoulder-made me feel even more bitter.</p>

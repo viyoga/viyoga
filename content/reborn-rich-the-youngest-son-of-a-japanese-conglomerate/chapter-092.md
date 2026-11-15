@@ -11,16 +11,16 @@ chapter = 92
 <p>Strength: 5 Agility: 8 Stamina: 9 Resistance: 5 Recovery: 7 Nerves: 14 Appearance: 18</p>
 <p>Intelligence: 10 Knowledge: 12 Concentration: 16 Willpower: 10 Creativity: 8 Charm: 17 Judgment: 16</p>
 <p>Luck: 6</p>
-<p>◆Management Lv9 [Special Skill]: Gains a bonus when commanding a group of a certain size or more.</p>
-<p>◆Gun Shooting Lv12 [General Skill]: Gains a bonus to shooting skills using firearms.</p>
-<p>◆Cooking Lv1 [General Skill]: Gains a bonus to making food.</p>
-<p>◆Femme Fatale [Epic Trait]: Appearance and Charm stats and their limits increase by 2, and efficiency also increases. Increases the probability of seducing the opposite sex and also increases sexual attractiveness.</p>
-<p>◆Dark Vision [Rare+ Trait]: Can see well in dark places. Can see with 80 percent of the feeling of a bright place.</p>
-<p>◆Succubus Body [Legendary+ Trait]: A trait that can only be obtained if you have both sexual skills or traits and dark traits or skills. All physical stats and limits increase by 2, Charm stat increases by 4, and the player's level limit also increases by 2. Absorbs essence when having sex with humans. Does not absorb essence when having sex with Cambions or Incubuses, and experience increases for both.</p>
+<p>◆Management Lv9 "Special Skill": Gains a bonus when commanding a group of a certain size or more.</p>
+<p>◆Gun Shooting Lv12 "General Skill": Gains a bonus to shooting skills using firearms.</p>
+<p>◆Cooking Lv1 "General Skill": Gains a bonus to making food.</p>
+<p>◆Femme Fatale "Epic Trait": Appearance and Charm stats and their limits increase by 2, and efficiency also increases. Increases the probability of seducing the opposite sex and also increases sexual attractiveness.</p>
+<p>◆Dark Vision "Rare+ Trait": Can see well in dark places. Can see with 80 percent of the feeling of a bright place.</p>
+<p>◆Succubus Body "Legendary+ Trait": A trait that can only be obtained if you have both sexual skills or traits and dark traits or skills. All physical stats and limits increase by 2, Charm stat increases by 4, and the player's level limit also increases by 2. Absorbs essence when having sex with humans. Does not absorb essence when having sex with Cambions or Incubuses, and experience increases for both.</p>
 <p>Pregnancy becomes impossible with human seed. Can only become pregnant with the seed of a higher-level Incubus.</p>
-<p>◆Marksman [Epic Trait]: Handles firearms like a master. Receives a large bonus to shooting actions.</p>
-<p>◆Sensitive Senses [Rare Trait]: The efficiency of the Nerve and Concentration stats increases. Senses become more sensitive.</p>
-<p>◆Hawk Eye [Rare Trait]: Eyesight improves. Can see distant objects clearly by concentrating.</p>
+<p>◆Marksman "Epic Trait": Handles firearms like a master. Receives a large bonus to shooting actions.</p>
+<p>◆Sensitive Senses "Rare Trait": The efficiency of the Nerve and Concentration stats increases. Senses become more sensitive.</p>
+<p>◆Hawk Eye "Rare Trait": Eyesight improves. Can see distant objects clearly by concentrating.</p>
 <p>Unexpectedly, after checking her stats and traits, Yukiko was a combat-type character. Moreover, except for the two traits, Femme Fatale and Succubus Body, she was a specialized character focused on shooting traits. Even if a player created a character with a sexy sniper concept, they wouldn't be able to create one as good as Yukiko.</p>
 <p>I remembered Yukiko telling me at Disneyland that her hobby was clay shooting. So, I understood why her shooting skill level was high, but with so many traits attached, shooting was bound to be fun... It seemed like a virtuous cycle where she enjoyed it, so she worked harder, and her shooting skill level increased.</p>
 <p>And what was surprising was that she had the Legendary+ trait, Succubus Body. Since the Cambion Body, a lower version of Incubus and Succubus, was a Legendary trait, it seemed natural that the higher version, Succubus Body, would be Legendary+. It was a shame it wasn't Mythic, but it was higher than Legendary, so it seemed to be Legendary+. Due to the trait, her level limit could also be raised by 2, so Yukiko's potential was enormous.</p>

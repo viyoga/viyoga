@@ -31,7 +31,7 @@ chapter = 1065
 <p>"What is this?"</p>
 <p>Otagi Yuka asked, curious about what I had taken out.</p>
 <p>"Ah, this is an Item called a Mental Amplifier...."</p>
-<p>◆Mental Amplifier N003-01[Rare+ Armor/Helmet]</p>
+<p>◆Mental Amplifier N003-01"Rare+ Armor/Helmet"</p>
 <p>A prototype developed by the Community Tech company OmniCom. They embarked on developing a new System that connects the human Mind and Spirit to replace VR Dive, but the Mental Amplifier project was canceled, leaving only the prototype, after receiving failing grades in various Side Effects and marketability evaluations.</p>
 <p>●Mental Wavelength Amplification Technology: Increases all Mental Stats by 1 while worn. However, it puts a heavy load on the Brain.</p>
 <p>●Connects the Minds of People using the Mental Amplifier N003-01. As a Side Effect, it deals 6.75% Mental Damage every hour.</p>

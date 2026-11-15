@@ -39,7 +39,7 @@ chapter = 615
 <p>"Yes, I found and eliminated the Rampage early on."</p>
 <p>"Indeed...!"</p>
 <p>Kujo Kina was standing there with a nervous expression, watching to see if Kinu-i Tachio would accept her as a disciple or not.</p>
-<p>I am Kinu-i Tachio. I once traveled all over Japan to master the fist, and now, using that experience, I have created a martial art called Hakei-ryu (破形流, Destruction Style), and I have started taking on disciples to pass down this martial art.</p>
+<p>I am Kinu-i Tachio. I once traveled all over Japan to master the fist, and now, using that experience, I have created a martial art called Hakei-ryu (Destruction Style), and I have started taking on disciples to pass down this martial art.</p>
 <p>Hakei-ryu... A martial art that destroys forms, huh? Just from the name, it sounded like a pretty overbearing martial art.</p>
 <p>"I believe that the master has the right to choose a disciple, but the child who will become a disciple also has the right to choose a master. The relationship between master and disciple is not a light one, so first, I will show you my martial art."</p>
 <p>The disciple also has the right to choose a master... That's actually true. Unless it's kidnapping like Anya-ji, you need the disciple's consent to pass on martial arts.</p>

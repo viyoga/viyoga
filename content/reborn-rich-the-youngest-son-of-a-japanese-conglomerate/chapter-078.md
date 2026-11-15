@@ -7,7 +7,7 @@ chapter = 78
 
 <p>,"Ikehara-ssi, is your mother there?"</p>
 <p>,"Yes, she's waiting."</p>
-<p>Ikehara Koyuki (生原 倖由) was Yukiko's secretary. I didn't see her often since I mostly met Yukiko at home, but I would occasionally see her at the office. Ikehara Koyuki was a tall woman, uncommon in Japan, a beauty standing about 175 centimeters tall with a short haircut.</p>
+<p>Ikehara Koyuki was Yukiko's secretary. I didn't see her often since I mostly met Yukiko at home, but I would occasionally see her at the office. Ikehara Koyuki was a tall woman, uncommon in Japan, a beauty standing about 175 centimeters tall with a short haircut.</p>
 <p>I heard she was a martial arts master and had even modified her body to be a bodyguard, but I couldn't confirm it. Another rumor was that she came from a famous PMC.</p>
 <p>,"Then..."</p>
 <p>I gave Ikehara Koyuki a slight bow and entered the Chairman's office. In the Chairman's office, Yukiko was wearing a white shirt and a tight-fitting beige H-line skirt. Ooh.... It was a fashion that made me hard automatically. For a normal person, it would just be ordinary clothes, but Yukiko's figure made the clothes shine. Is this what they mean when clothes look good because of the body?</p>

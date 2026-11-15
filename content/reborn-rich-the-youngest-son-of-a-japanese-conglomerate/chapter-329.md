@@ -6,7 +6,7 @@ chapter = 329
 +++
 
 <p>"Here is a list of students at St. Francisco Girls' Academy who are not currently in any clubs."</p>
-<p>On Monday night, before Minamoto Risa went to bed, Miyashi's secretary, Mekaru Tatsuko, who was taking care of Minamoto Risa, gave her a report titled [St. Francisco Girls' Academy Unaffiliated Members Investigation].</p>
+<p>On Monday night, before Minamoto Risa went to bed, Miyashi's secretary, Mekaru Tatsuko, who was taking care of Minamoto Risa, gave her a report titled "St. Francisco Girls' Academy Unaffiliated Members Investigation".</p>
 <p>Minamoto Risa went to school a little early the next morning to look over the documents with Seizawa Shii and discuss them. At Seizawa Shii's cute request to walk to school together for the first time in a while, they met near her house and were walking to school, enjoying the morning air together.</p>
 <p>"Haa~am! Mornings are always tough."</p>
 <p>Seizawa Shii, who had low blood pressure, was weak in the mornings. She kept yawning, but as she walked, she gradually woke up and became her usual energetic self.</p>

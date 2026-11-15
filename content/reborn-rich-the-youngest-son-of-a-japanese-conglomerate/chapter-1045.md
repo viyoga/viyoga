@@ -29,7 +29,7 @@ chapter = 1045
 <p>Even after taking Behemoth's blow head-on, Kurayamada Kirie seemed fine. The thought, 'Why is she fine?' and the thought, 'It's Fortunate she's fine,' occurred simultaneously.</p>
 <p>"Thanks to the Bracelet you gifted me, I'm fine."</p>
 <p>To my question of whether she was alright, Kurayamada Kirie answered with a Smile. The Bracelet I gifted her? Ah... it seemed she was referring to the space-shaped Bracelet I bought at this auction. The options were definitely....</p>
-<p>**◆Space-Shaped Bracelet [Narrative+ Accessory/Bracelet]** A necklace made in an ancient desert Kingdom. The Authority of space is imbued within it. However, if a Person without related Abilities wears it, there is no Effect. ●If one has space Ability, the Effect of that Ability is enhanced by 0.5 Stage. ●Once a week, only for Ambush or unstoppable attacks, it activates .</p>
+<p>**◆Space-Shaped Bracelet "Narrative+ Accessory/Bracelet"** A necklace made in an ancient desert Kingdom. The Authority of space is imbued within it. However, if a Person without related Abilities wears it, there is no Effect. ●If one has space Ability, the Effect of that Ability is enhanced by 0.5 Stage. ●Once a week, only for Ambush or unstoppable attacks, it activates.</p>
 <p>It seemed that thanks to Space Refraction, the second option of the Space-Shaped Bracelet, Behemoth's decisive blow was blocked. No matter how much Behemoth was enhanced to his maximum, he couldn't overcome the Authority over space, so the Attack must have simply missed. Thanks to me gifting this Bracelet to Kurayamada Kirie, a fatal harm was prevented.</p>
 <p>**By the way, it was quite touching. Even knowing the Bracelet's options, it wouldn't be easy to embrace me and block an attack. If this battle ends in Victory, I'll have to give her some special Affection later.**</p>
 <p>"For now, since you can't block any more, stay far away."</p>
@@ -51,7 +51,7 @@ chapter = 1045
 <p>**-Stop\!**</p>
 <p>With someone's cry to stop, Behemoth began to slow down. Until just now, it had felt like my Surroundings were slowing down due to the accelerated mind as a side Effect of Enlightenment, but now it truly felt like Behemoth himself was slowing down.</p>
 <p>It's done...! With the Help of someone unknown, I was able to fully Handle the Enlightenment. Having handled the Enlightenment, I instinctively punched Behemoth's exposed Solar Plexus.</p>
-<p>**-Creation Chaos Style (創世混沌流) Vajra Crush (金剛碎).**</p>
+<p>**-Creation Chaos Style Vajra Crush.**</p>
 <p>The moment my fist made Contact with Behemoth's Body, the Energy within Behemoth's Body that originated from me began to Respond.</p>
 <p>"Kuheoeok\! This is...!"</p>
 <p>Behemoth also seemed to have sensed Something was wrong the moment he took my blow. He withdrew the fist he had been aiming at me and clutched his Solar Plexus.</p>

@@ -9,7 +9,7 @@ chapter = 718
 <p>Uuung! Uuung!</p>
 <p>As 12 o'clock approached, my phone was buzzing non-stop. Most of them were messages from acquaintances on KakaoTalk, LINE, Dark Web apps, and texts, wishing me a Happy New Year.</p>
 <p>-Han Yu-gyeong: Yong-tae, thank you for this year, and please take care of me next year too. I love you❤️</p>
-<p>-Arisu: Is it almost New Year's in Korea? Ryuta, I want to see you soon~ I'll be going to Japan soon too ( •͈ᴗ-)ᓂ-ෆ</p>
+<p>-Arisu: Is it almost New Year's in Korea? Ryuta, I want to see you soon~ I'll be going to Japan soon too (•͈ᴗ)ᓂ-ෆ</p>
 <p>-Cherry-chan❤️: Hoobae-nim~! I'm watching Hoobae-nim's videos and the New Year is almost here, so I'm contacting you! Please make new videos in '54 too♥</p>
 <p>Han Yu-gyeong and Arisu contacted me first, followed by a text from Mimata Chieri. Mimata Chieri's text was a bit strange, but I replied with a smile.</p>
 <p>-Yukiko: I'll make sure to pass on the story about the Taira New Year's meeting tomorrow. I hope Ryuta's mission ends soon and we can be together. If I miss you too much, I might visit you in your dreams?</p>

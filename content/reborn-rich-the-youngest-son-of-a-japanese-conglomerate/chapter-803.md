@@ -25,7 +25,7 @@ chapter = 803
 <p>,No, she said she saw my Face and thought, ,Where have I seen him before...?, and then Taira Saburo's Face came to Mind.,</p>
 <p>,Hmm.... I don't know if you look alike because I've never actually seen Taira Saburo-ssi before?,</p>
 <p>,I've never actually seen him either.,</p>
-<p>At my Words, Minamoto Lisa suddenly became somber. Perhaps thinking she had made a slip of the Tongue, she was looking at me, saying ,Sorry...,.</p>
+<p>At my Words, Minamoto Lisa suddenly became somber. Perhaps thinking she had made a slip of the Tongue, she was looking at me, saying,Sorry...,.</p>
 <p>,Don't make that Face. The only thing I heard about Taira Saburo was that he was my Father at the funeral, so I don't have any Affection for Taira Saburo, nor am I sad about his Death.,</p>
 <p>,I guess so. If you found out that fact at the funeral, he's practically no different from a stranger. You must have had a hard Time.,</p>
 <p>Minamoto Lisa was suddenly looking at me with great pity, hugging me and comforting me. She must have been comparing it to her own Situation.</p>

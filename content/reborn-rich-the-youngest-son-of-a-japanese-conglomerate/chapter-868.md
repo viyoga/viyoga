@@ -41,7 +41,7 @@ chapter = 868
 <p>Why cast Illusion Magic on a Valentine's chocolate.... So, this throbbing and beating Heart right before my Eyes is due to Illusion Magic, right?</p>
 <p>Glancing at the other Students, seeing them looking at Sakagami Rena with Expressions of disbelief, it seemed the beating Heart was visible to the Students' Eyes as well.</p>
 <p>"Quickly, please eat my loyalty, Liege/Master!"</p>
-<p>"Hurry~!" Sakagami Rena pushed the throbbing Heart right in front of my Nose. Still, it was a gift, and I didn't want to show too much reluctance, so I took the Heart in my Hand and bit into it with a kwadeuk .</p>
+<p>"Hurry~!" Sakagami Rena pushed the throbbing Heart right in front of my Nose. Still, it was a gift, and I didn't want to show too much reluctance, so I took the Heart in my Hand and bit into it with a kwadeuk.</p>
 <p>Fortunately, it didn't seem to be Illusion Magic that deceived my Tongue's Touch or Taste, and it tasted like ordinary delicious chocolate. However, even now, when I looked with my Eyes, it appeared as if I had taken a bite out of a Heart. It was still throbbing and beating, so to the surrounding special class Students, it would look like a Scene of me chewing and eating a real Heart.</p>
 <p>"Haa.... My Liege/Master... my loyalty... You ate it...!"</p>
 <p>Sakagami Rena had a 'pyong-gan' (captivated) Expression as she watched me with the Heart-shaped chocolate. I don't know why she was like this, but if she was happy, that's what mattered.</p>
@@ -66,7 +66,7 @@ chapter = 868
 <p>Aha...! Now I understood. What Alik had prepared wasn't just Omelet Rice. Since it was Maid Cafe Omelet Rice, it needed a 'make it delicious' Order...!</p>
 <p>"Then, will you do the 'make it delicious' Order?"</p>
 <p>"Yes...!"</p>
-<p>Alik, motivated by my request, made a heart with both hands, and while saying 'Oishikunare (おいしくなれ)' to the omelet rice, she emitted electricity.</p>
+<p>Alik, motivated by my request, made a heart with both hands, and while saying 'Oishikunare ' to the omelet rice, she emitted electricity.</p>
 <p>"Ryuta, it's delicious now...!"</p>
 <p>No, why the electricity...? I hid my bewildered Expression as much as possible and stroked Alik's Head.</p>
 <p>"Thank you. I'll eat well, Alik."</p>

@@ -36,7 +36,7 @@ chapter = 481
 <p>The two who received amulet gifts from me talked for a while and then gave me an amulet that was said to be good for romance. I'm getting plenty of romance, though... Still, it's a gift, so I decided to keep it.</p>
 <p>Both of them seemed to like the amulet gifts, and they didn't ask me for any other gifts. We left the amulet shop, ate dinner at a delicious restaurant, and even went to a karaoke room to sing our hearts out, ending our fulfilling date.</p>
 <p>###</p>
-<p>Is this 'using someone else's knife to kill someone' (借刀殺人)?</p>
+<p>Is this 'using someone else's knife to kill someone' ?</p>
 <p>Taira Kanna muttered after hanging up the phone with Minamoto Lisa. She was thinking about Minamoto Lisa telling her about the Minamoto family's dealings with the Toyotaka faction.</p>
 <p>The Minamoto family was also a place where succession disputes were fierce, like the Taira family. Rather, the intensity of the succession war was even worse in the Minamoto family than in the Taira family. As such, the brothers didn't get along well, and naturally, Minamoto Lisa also hated Minamoto Shigemune and wanted to interfere.</p>
 <p>However, she couldn't openly interfere, so she was planning to use Taira Kanna, the student council Chairman who had the Taira surname and was quite close to Daigo Terue, to interfere.</p>
@@ -52,16 +52,16 @@ chapter = 481
 <p>"Huh?"</p>
 <p>Taira Kanna's eyes widened as she entered the two sites. She didn't know what was going on yet, but both sites were a huge mess.</p>
 <p>Taira Kanna browsed the site for a while and clicked on a post from the Yamashiro Ryuta-nim Appreciation Society. It seemed that the photo that caused the commotion started with this post.</p>
-<p>●Post Number 100789. ●Author: Ryuko(竜子)-tan</p>
+<p>●Post Number 100789. ●Author: Ryuko-tan</p>
 <p>●Title: Attention, attention!!! Ryuta-nim appeared at the game center!</p>
 <p>He seemed to be with his classmates, and when I asked him to take a picture, he kindly took a selfie!!</p>
 <p>He smells so good and his body is so firm (////)</p>
 <p>I'm going to print it out and preserve it as a family treasure~!</p>
 <p>The way he smiles while playing games is so boyish♥</p>
 <p>●Goddess of the Moon Diana: Is he still at the game center?</p>
-<p>└●Ryuko(竜子)-tan: He just left. I didn't follow him because I thought it would be weird, but he's probably in the city!</p>
+<p>└●Ryuko-tan: He just left. I didn't follow him because I thought it would be weird, but he's probably in the city!</p>
 <p>●Hoyoriri: Did he only take pictures with you? I'm so jealousㅠㅠ</p>
-<p>└●Ryuko(竜子)-tan: I think he took pictures with all the academy students at the game center? I'm in the best mood~!!</p>
+<p>└●Ryuko-tan: I think he took pictures with all the academy students at the game center? I'm in the best mood~!!</p>
 <p>●Cherry-chan: Seeing him take pictures with other people is so exciting.</p>
 <p>What is going on? Onii-sama (older brother) took selfies with other girls...? Taira Kanna paused for a moment. Then, she started reading the posts on the Prince of Prison, a slightly more extreme site.</p>
 <p>◆ WWWWWWW</p>

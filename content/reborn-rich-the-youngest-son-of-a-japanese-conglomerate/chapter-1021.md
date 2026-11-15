@@ -9,7 +9,7 @@ chapter = 1021
 <p>The first was to immediately make decisions and resolve the Situation if anything were to happen at the auction house, and the second was precisely because of the auction itself.</p>
 <p>Everyone would probably be saving their Money for the fragment of omniscience, so I thought I could buy the remaining auction items a little cheaper than usual. No matter that the fragment of omniscience was the main item, I was convinced that rare items would appear because it was an AmSang auction, which wasn't held often.</p>
 <p>When Fujigasaki Rinka Sabu's party went to the USA, I gave Gifts to those Members, but I hadn't given Gifts to the remaining Members who were in Japan at that time, so I had to prepare Gifts for them. And since good items might appear, I intended to participate in the auction, killing two birds with one stone.</p>
-<p>Previously, the large bounty I earned after capturing Gaoshang (高翔), the Head of the Red Revolution Front, had all been withdrawn and diversified into various investments, significantly reducing my AmSang Points. However, profits from the Robot Pet were steadily coming in as AmSang Points, and I had deposited a certain amount of money to participate in this auction, so I had enough funds to take part.</p>
+<p>Previously, the large bounty I earned after capturing Gaoshang, the Head of the Red Revolution Front, had all been withdrawn and diversified into various investments, significantly reducing my AmSang Points. However, profits from the Robot Pet were steadily coming in as AmSang Points, and I had deposited a certain amount of money to participate in this auction, so I had enough funds to take part.</p>
 <p>-The item to adorn the beginning of the auction is precisely...!</p>
 <p>As soon as Eve's Words ended, a spotlight shone in the middle of the auction house, revealing the item. It was a thick, ancient book.</p>
 <p>Surely not.... The fragment of omniscience wouldn't appear from the very beginning, would it?</p>
@@ -19,11 +19,11 @@ chapter = 1021
 <p>It wasn't the fragment of omniscience. Just needlessly making people's hearts tense.</p>
 <p>A Grimoire wasn't originally an item worthy of adorning the first slot in an auction. However, almost all those participating in this auction were collectors of magic-related items or similar goods, so it seemed they had brought out many magic-related items.</p>
 <p>I focused through the window on the Grimoire, Aetherbound Chronicle, that had appeared in the auction house. Then, a translucent Info Window appeared before my Eyes.</p>
-<p>◆Grimoire - Aetherbound Chronicle [Unique Grimoire / Magic tool]</p>
+<p>◆Grimoire - Aetherbound Chronicle "Unique Grimoire / Magic tool"</p>
 <p>A Grimoire written by an unknown sage, containing the history and flow of magic, and several spells personally created by the unknown sage lie dormant within.</p>
 <p>●Upon thorough reading: Knowledge+1, 10% decrease in all magic consumption, 10% increase in magic power.</p>
 <p>●When possessed: 10% decrease in all magic activation speed, 10% decrease in all magic consumption.</p>
-<p>●Spells , first of the tongue , , can be acquired.</p>
+<p>●Spells, first of the tongue, , can be acquired.</p>
 <p>Oh...! I wondered if it was only a Grimoire in name, but it was a genuine Magic Tome. Especially in magic, Aether is an Attribute symbolizing non-Attribute, so its versatility was excellent.</p>
 <p>Perhaps because it had the name Aether, it came with quite good options that affected all magic, and if both the thorough reading and possession options were combined, a sorcerer could achieve significantly high efficiency.</p>
 <p>However, because it was a kind of history book containing the history and flow of magic, the number of spells included in the book was not many compared to its Thickness, to be called a Grimoire.</p>
@@ -46,7 +46,7 @@ chapter = 1021
 <p>"I like that item, Investor-nim!"</p>
 <p>The item Sawayanagi Azuma chose was a necklace with a miniature hourglass attached, and the sand inside the hourglass was finely crafted Gold powder.</p>
 <p>Even without that, I was already thinking of recommending it to Sawayanagi Azuma after seeing the options, but Sawayanagi Azuma also seemed to have felt something special about it.</p>
-<p>◆Necklace Containing Time [Narrative+ Accessory / Necklace]</p>
+<p>◆Necklace Containing Time "Narrative+ Accessory / Necklace"</p>
 <p>A necklace made in an ancient desert Kingdom. The Authority of time is imbued within. However, if worn by a Person without related Abilities, there is no Effect.</p>
 <p>Time (0/3600)</p>
 <p>●Stores 10 seconds of time daily. By consuming the stored time, the wearer's time-based Ability can be Forcibly activated.</p>
@@ -66,7 +66,7 @@ chapter = 1021
 <p>In this auction, it was sold for a whopping 300,000 Dollars, and it seemed to have gained quite a few Points in the Aspect that the orderer could make custom Orders as they wished.</p>
 <p>"I wish you'd buy this for me."</p>
 <p>This time, Kurayamada Kirie spoke. This auction item was just a Bracelet made by stringing together radiant black Orbs in a Rectangle shape, and as expected, like the necklace Sawayanagi Azuma chose just now, it was a perfectly fitting item for Kurayamada Kirie.</p>
-<p>◆Bracelet Embodying Space [Narrative+ Accessory / Bracelet]</p>
+<p>◆Bracelet Embodying Space "Narrative+ Accessory / Bracelet"</p>
 <p>A bracelet made in an ancient desert Kingdom. The Authority of space is imbued within. However, if worn by a Person without related Abilities, there is no Effect.</p>
 <p>●If one possesses a Space Ability, the Effect of that Ability is enhanced by 0.5 Stage.</p>
 <p>●Once a week, is activated, limited to Ambush or unblockable attacks.</p>

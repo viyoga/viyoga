@@ -18,9 +18,9 @@ chapter = 634
 <p>,How would you like your meals...?"</p>
 <p>,We had lunch, so please just prepare dinner."</p>
 <p>,Understood. Then, I'll see you at dinner."</p>
-<p>After the employee left, we looked around the room. Interestingly, it was a room that seemed to blend Japanese (和式) and Western styles, and seeing the bed, it felt like a room designed to give a modern Japanese vibe. And, of course, as a room with an open-air bath, there was a private open-air bath when you opened the large sliding door at the front of the room.</p>
+<p>After the employee left, we looked around the room. Interestingly, it was a room that seemed to blend Japanese and Western styles, and seeing the bed, it felt like a room designed to give a modern Japanese vibe. And, of course, as a room with an open-air bath, there was a private open-air bath when you opened the large sliding door at the front of the room.</p>
 <p>,The room feels a bit different."</p>
-<p>It seems like the interior was designed to evoke the feel of the Taisho (大正) or early Showa (昭和) era.</p>
+<p>It seems like the interior was designed to evoke the feel of the Taisho or early Showa era.</p>
 <p>Urabe Konoka, like the daughter of an inn, looked around the room here and there. She seems to have some talent in this area, nodding as she looked at the interior of the room, or tilting her head as if she didn't like some things.</p>
 <p>Watching Urabe Konoka looking around the room for a while, I started to wonder if I should entrust the lodging business to her if she's interested in this kind of thing. Well, that's something for later.... First, I sat down on the bed. And I opened my mouth to Urabe Konoka, who was looking around the room.</p>
 <p>,Urabe, can I get a bath from you for the first time in a while?"</p>

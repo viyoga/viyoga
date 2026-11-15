@@ -94,7 +94,7 @@ chapter = 626
 <p>"No. Suddenly arising thoughts can also be the beginning that leads to a new realm of martial arts."</p>
 <p>Sabu smiled kindly and said it was okay even though I said I was thinking about something else. I have a master-disciple relationship with Sabu, but Sabu doesn't speak down to me. Is it because there isn't much age difference?</p>
 <p>Sabu said that the age difference wasn't even ten years, but she spoke informally to Alexandra, so it seemed that Sabu wasn't comfortable with me yet. Is it because of the age difference? Or is it because I'm a man?</p>
-<p>My worries didn't last long. Sabu's drawn eyebrows (蛾眉, meaning a beauty's thin, curved, long eyebrows) furrowed as he stared ahead. When I followed his gaze, I felt some kind of dark energy approaching.</p>
+<p>My worries didn't last long. Sabu's drawn eyebrows (meaning a beauty's thin, curved, long eyebrows) furrowed as he stared ahead. When I followed his gaze, I felt some kind of dark energy approaching.</p>
 <p>"Kyahaha...!"</p>
 <p>A familiar, no. An unfamiliar laugh. As the owner of the laughter approached us, the laughter grew closer and closer.</p>
 <p>The person who appeared was a woman with purple hair and red eyes. She was a woman with a dangerous aura, and her momentum looked quite scary.</p>
@@ -126,7 +126,7 @@ chapter = 626
 <p>I had a feeling that if those two energies collided in a cross, one of the two would be seriously injured.</p>
 <p>"Uaaaaaa!"</p>
 <p>Thinking that it shouldn't happen, I jumped out without realizing it. And at the same time, I swung my fist.</p>
-<p>Deep Sea Eight Hands (深海八手) Touch Deep, Break the Sky (触深破空).</p>
+<p>Deep Sea Eight Hands Touch Deep, Break the Sky.</p>
 <p>A black aura surged from my fist, and a giant tentacle-like aura popped out. The tentacle-like black aura pierced the space where Sabu and the Fist Demon's auras collided.</p>
 <p>At the moment, a tremendous suction force arose from the pierced space, and fragments of the surrounding thatched house and destroyed trees were sucked in. Sabu also couldn't overcome the suction force and dropped her sword. Sabu's sword, which had been sucked into the black hole, disappeared, and soon the space closed again.</p>
 <p>Before I knew it, the battle had stopped. The Fist Demon, who had been glaring at Sabu, laughed, kyahaha, and came to me and patted me on the back.</p>

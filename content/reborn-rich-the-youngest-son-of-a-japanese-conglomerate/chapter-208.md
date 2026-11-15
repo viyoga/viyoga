@@ -44,7 +44,7 @@ chapter = 208
 <p>###</p>
 <p>"Ryuta! Wake up, it's morning!"</p>
 <p>I opened my eyes to Yukiko's voice. Yukiko opened the window with a view of the sea where the sun was rising and was looking at me in a swimsuit. It was a gold and black bikini that matched Yukiko's explosive figure.</p>
-<p>Oh, what a reward from the morning? My Johnson, which was naturally stiff with morning wood, became even stiffer after seeing Yukiko in her swimsuit. I opened my eyes and slightly lifted my waist, showing my erect dick, and opened my mouth.</p>
+<p>Oh, what a reward from the morning? My dick, which was naturally stiff with morning wood, became even stiffer after seeing Yukiko in her swimsuit. I opened my eyes and slightly lifted my waist, showing my erect dick, and opened my mouth.</p>
 <p>"Mother, take responsibility. It's all because of you."</p>
 <p>"Oh, you!"</p>
 <p>"How can you show me something so sexy from the morning?"</p>

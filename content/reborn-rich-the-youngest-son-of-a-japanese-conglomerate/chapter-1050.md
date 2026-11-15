@@ -29,7 +29,7 @@ chapter = 1050
 <p>The Black Sage also was not only concerned with the Fragment of All-Knowledge but seemed to be paying attention to Fujigasaki Rinka, who was glaring at him. Fujigasaki Rinka's outstretched straight punch was blocked by the Black Sage's purple Barrier.</p>
 <p>"This isn't the end...!"</p>
 <p>Fujigasaki Rinka smiled and opened her clenched fist. Because Fujigasaki Rinka had also anticipated that the Black Sage would block this Attack.</p>
-<p>-Shinkaiyatsude (深海八手) Juushi Mitsuru Kaika (十指満開花: Ten Fingers Full Bloom Flower) - Manhwapung (万花風: Ten Thousand Flower Wind).</p>
+<p>-Shinkaiyatsude Juushi Mitsuru Kaika (Ten Fingers Full Bloom Flower) - Manhwapung (Ten Thousand Flower Wind).</p>
 <p>As Fujigasaki Rinka's ten fingers spread open, a black Flower made of Abyss bloomed, and simultaneously, its Petals began to pour down on the Black Sage.</p>
 <p>No matter that he was the Black Sage, the Abyss Energy unfolding at close range he could not block entirely.</p>
 <p>"Kuaaaah!!"</p>
@@ -56,8 +56,8 @@ chapter = 1050
 <p>The powerful attacks unleashed by the Fragment of All-Knowledge contenders continuously struck the Lamentation Seal shield, but only rippled and did not reach the Black Sage.</p>
 <p>"Using Water droplets as a Barrier is your fatal move!!!"</p>
 <p>Fujigasaki Rinka shouted as she fell from the empty space. And she immediately struck the upper center of the Water droplet with her fist.</p>
-<p>-Shinkaiyatsude (深海八手) Kaku-umidashoo (隔海打礁: Striking the Sea, Hitting the Reef).</p>
-<p>In Shinkaiyatsude's Martial Arts Principles (武理), many teachings are related to the Sea. Shinkaiyatsude itself, being a martial art developed from the movements of an octopus god submerged deep in the Pacific Ocean, had a profound understanding of water and the sea.</p>
+<p>-Shinkaiyatsude Kaku-umidashoo (Striking the Sea, Hitting the Reef).</p>
+<p>In Shinkaiyatsude's Martial Arts Principles, many teachings are related to the Sea. Shinkaiyatsude itself, being a martial art developed from the movements of an octopus god submerged deep in the Pacific Ocean, had a profound understanding of water and the sea.</p>
 <p>Therefore, Fujigasaki Rinka, who had deeply undergone Training in Shinkaiyatsude, knew how to pierce through the large Water droplet shield protecting the Black Sage.</p>
 <p>Shinkaiyatsude's Kaku-umidashoo was a typical Tongbeiquan, or Gyeoksantau Technique, but like its Martial Arts Form name, 'Striking the Sea,' it also had the Effect of shattering the opponent's Water Attribute Barrier.</p>
 <p>Paaaang!!</p>

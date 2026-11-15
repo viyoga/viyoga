@@ -64,7 +64,7 @@ chapter = 157
 <p>,We're here."</p>
 <p>,Thank you for your hard work, Dickson. You can go home now."</p>
 <p>,Yes, have a good time."</p>
-<p>Dickson seemed very happy to be going home right after lunch. Dickson took my suitcase out of the trunk before leaving. Han Yu-gyeong and I took the somewhat familiar apartment and elevator up. Soon, we arrived at the house, and when she opened the door, Han Yu-gyeong made an ,Eh?" sound. What's wrong? Why is she so surprised and fidgety?</p>
+<p>Dickson seemed very happy to be going home right after lunch. Dickson took my suitcase out of the trunk before leaving. Han Yu-gyeong and I took the somewhat familiar apartment and elevator up. Soon, we arrived at the house, and when she opened the door, Han Yu-gyeong made an,Eh?" sound. What's wrong? Why is she so surprised and fidgety?</p>
 <p>,What's wrong?"</p>
 <p>,The shoes..."</p>
 <p>There were a few pairs of shoes in the hallway, and judging from Han Yu-gyeong's expression, one of them didn't seem to be hers. Oh, there's a guest. This is a little awkward...</p>

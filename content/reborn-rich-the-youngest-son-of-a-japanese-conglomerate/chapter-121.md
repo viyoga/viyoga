@@ -62,14 +62,14 @@ chapter = 121
 <p>Looking at the amount of bombs, it seemed that Sawayanagi Sinya could have drawn attention alone if he hadn't been injured. I threw stones that were rolling around to break the windows on the second and third floors. And I immediately threw the bombs that Sawayanagi Sinya left one by one through the broken windows.</p>
 <p>Kuaang~! Kwang!</p>
 <p>The building shook even with two explosions. Meanwhile, I put on a pair of black gloves on both hands.</p>
-<p>◆Gloves Woven with Abyss Thread [Epic Equipment]: Gloves woven with the hair of the Daughter of the Abyss. Gives a 150 percent bonus when using Abyss-type techniques and increases the probability of special effects occurring.</p>
+<p>◆Gloves Woven with Abyss Thread "Epic Equipment": Gloves woven with the hair of the Daughter of the Abyss. Gives a 150 percent bonus when using Abyss-type techniques and increases the probability of special effects occurring.</p>
 <p>It was a glove I got from giving offerings to the Daughter of the Abyss before. Come to think of it, it's been a while since I gave offerings. Could it be that the Daughter of the Abyss is sulking??</p>
 <p>I looked around. It happened to be the place where the bomb had exploded just now, so there were corpses lying around. I gathered a few corpses and recited a spell. It was an offering to the Daughter of the Abyss, a magic circle spell.</p>
 <p>When I gathered about ten corpses that looked relatively intact and recited the spell, a black mouth rose from the ground and began to swallow the corpses.</p>
 <p>With a chilling sound of kwadeuk kwadeuk, the corpse disappeared. And this time, it seemed that she didn't like the offering, leaving only a small black bead along with a note.</p>
 <p>The note had 2 stars and a message saying, 'Next time, I want something sweet.' Seriously, does she think this is Baemin review? Of course, I was planning to serve her sweet Japanese convenience store desserts next time. Because she's scary.</p>
 <p>I thought the black bead wasn't a big deal, but after checking the information, it felt like a combat potion that was applied for a short time.</p>
-<p>◆Shadow Gathered Bead [Rare Combat Potion]: Increases Abyss stats by 5 and Shadow Domination level by 5 for 30 minutes.</p>
+<p>◆Shadow Gathered Bead "Rare Combat Potion": Increases Abyss stats by 5 and Shadow Domination level by 5 for 30 minutes.</p>
 <p>When I ate the Shadow Gathered Bead, my Will and Abyss stats became 16, which were exactly the same. That's a relief, because if Abyss was even a little higher, I would have suffered side effects for 30 minutes.</p>
 <p>I ate the Shadow Gathered Bead. The moment I ate the bead, I heard something whispering in my ear. It felt like someone was calling me from afar. I felt a slight dizziness, but I quickly adjusted.</p>
 <p>"Y, you monster!!"</p>

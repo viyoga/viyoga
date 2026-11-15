@@ -25,7 +25,7 @@ chapter = 667
 <p>,Ah, is that it? It's slippery and feels weird~☆"</p>
 <p>Seizawa Shii was delighted when I explained it to her. She had a proud expression, as if she had succeeded in something, as a direct phenomenon showing my arousal occurred. She seemed happy that she had given me pleasure herself.</p>
 <p>,Now, suck it with your mouth instead of your hand."</p>
-<p>,W-with my mouth? Isn't it too big? Ryuta-jji's dick is bigger than uncut futomaki (太巻き: Japanese-style kimbap)?"</p>
+<p>,W-with my mouth? Isn't it too big? Ryuta-jji's dick is bigger than uncut futomaki (Japanese-style kimbap)?"</p>
 <p>It's the first time I've heard someone call a dick futomaki. Actually, my dick is quite big to put in the mouth for the first time having sex. Should I receive fellatio next time...?</p>
 <p>,Then let's do the mouth thing next time."</p>
 <p>,No, it's not that I don't want to do it.... Ahem....!"</p>

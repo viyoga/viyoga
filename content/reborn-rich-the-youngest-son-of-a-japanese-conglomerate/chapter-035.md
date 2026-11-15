@@ -15,7 +15,7 @@ chapter = 35
 <p>Well, since it's the 2050s, technology must be advanced, right? The underground trade wouldn't care about safety like hospital anesthesia.... Could it be that big companies are selling things on the black market to use as clinical trials?</p>
 <p>If not, it could be a magical item. Even if TMC or the youngest son of Megacorp aren't in a fantasy game, the world has psychics or suspicious occult groups, so it could be something like that. Hmm... I should only buy items from the underground trade that I remember. Thinking about it this conspiratorially is a bit scary.</p>
 <p>,How did you get to know Hanasaki-ssi?</p>
-<p>Hanasaki Sayaka (花咲 沙也果), Arisu's friend whom I'm meeting today, is a talented young and beautiful actress in Japan. She's so mysterious that not much is known about her personal life. I was curious about how she became friends with a foreign model like Arisu, so I asked.</p>
+<p>Hanasaki Sayaka, Arisu's friend whom I'm meeting today, is a talented young and beautiful actress in Japan. She's so mysterious that not much is known about her personal life. I was curious about how she became friends with a foreign model like Arisu, so I asked.</p>
 <p>,We're in the same agency. I met her at the Taira Entertainment office.</p>
 <p>Ah, I see. When I searched, Hanasaki Sayaka was also under Taira Entertainment.</p>
 <p>,Are we going to Hanasaki-ssi's parents' store again today?</p>

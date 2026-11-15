@@ -23,16 +23,16 @@ chapter = 222
 <p>◆Espionage (Special Skill Lv9)</p>
 <p>◆Linguistics (Common Skill Lv9)</p>
 <p>◆Chieri-ryu Fighting Style (Rare Skill Lv2)</p>
-<p>◇Bio-Modification: Muscle Fiber Enhancement [Advanced Modification]: A modification that increases strength and recovery stats, with the side effect of reduced energy efficiency, increasing food intake.</p>
-<p>◇Bio-Modification: Vision Enhancement [Advanced Modification]: Enhances vision, but has the side effect of changing the color of the pupils.</p>
-<p>◇Bio-Modification: Nerve Acceleration [Advanced Modification]: Increases nerve stats, but has the side effect of changing hair color.</p>
-<p>◆Cloud Riding [Epic Trait]: Moves lightly as if riding on clouds. Lightens movements, provides a bonus to jumping actions, and increases the limits of agility and nerve by 1.</p>
-<p>◆Master of Marksmanship [Epic Trait]: Becomes a master of marksmanship. Additional bonuses are granted to skills or traits related to marksmanship, and the acquisition speed of marksmanship skills is accelerated.</p>
-<p>◆Copycat [Epic Trait]: The acquisition speed of techniques using the body is accelerated up to the initial 5 levels, and there is a certain probability of acquiring techniques from the opponent's movements.</p>
-<p>◆Willow Branch Dance [Epic Trait]: An enlightenment on the movements of willow branches swaying in the wind, providing bonuses to evasion, accuracy, and critical hit chance. The efficiency of agility and nerve stats is significantly increased.</p>
-<p>◆Owl's Eyes [Rare+ Trait]: Can see through the darkness and can see far away by concentrating.</p>
-<p>◆Crowd Assimilation [Rare Trait]: Presence becomes faint when entering a crowd. It becomes difficult to notice without special skills or traits.</p>
-<p>◆Martial Arts Master [Epic Trait]: Becomes a master of martial arts. Bonuses are added to all physical techniques, and the acquisition speed of martial arts is accelerated.</p>
+<p>◇Bio-Modification: Muscle Fiber Enhancement "Advanced Modification": A modification that increases strength and recovery stats, with the side effect of reduced energy efficiency, increasing food intake.</p>
+<p>◇Bio-Modification: Vision Enhancement "Advanced Modification": Enhances vision, but has the side effect of changing the color of the pupils.</p>
+<p>◇Bio-Modification: Nerve Acceleration "Advanced Modification": Increases nerve stats, but has the side effect of changing hair color.</p>
+<p>◆Cloud Riding "Epic Trait": Moves lightly as if riding on clouds. Lightens movements, provides a bonus to jumping actions, and increases the limits of agility and nerve by 1.</p>
+<p>◆Master of Marksmanship "Epic Trait": Becomes a master of marksmanship. Additional bonuses are granted to skills or traits related to marksmanship, and the acquisition speed of marksmanship skills is accelerated.</p>
+<p>◆Copycat "Epic Trait": The acquisition speed of techniques using the body is accelerated up to the initial 5 levels, and there is a certain probability of acquiring techniques from the opponent's movements.</p>
+<p>◆Willow Branch Dance "Epic Trait": An enlightenment on the movements of willow branches swaying in the wind, providing bonuses to evasion, accuracy, and critical hit chance. The efficiency of agility and nerve stats is significantly increased.</p>
+<p>◆Owl's Eyes "Rare+ Trait": Can see through the darkness and can see far away by concentrating.</p>
+<p>◆Crowd Assimilation "Rare Trait": Presence becomes faint when entering a crowd. It becomes difficult to notice without special skills or traits.</p>
+<p>◆Martial Arts Master "Epic Trait": Becomes a master of martial arts. Bonuses are added to all physical techniques, and the acquisition speed of martial arts is accelerated.</p>
 <p>She was 2 levels higher than me, so she had many traits and a quite flashy status window. Looking at it, she had received three bio-modifications. The numbers in parentheses next to the stats, for example, Agility: 14(+5), means that +5 is added to 14, so it's not just 14, but 14 + 5. So, the actual stat is 19.</p>
 <p>The reason it's displayed like that is because if you exceed the stat limit of 20, a 'tier' is created, which has various tremendous effects, but even if you just cut off your arm and attach a mechanical arm, a 'tier' is not created.</p>
 <p>So, stats can rise to 21 when you train for a long time, transcend with an amazing trait, or are born as a different race with a high tier, but physical modifications do not raise the tier. It would be displayed as 10(+11) like this. You can only say you've transcended when the number in front exceeds 20.</p>

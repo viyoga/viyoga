@@ -62,7 +62,7 @@ chapter = 968
 <p>At my Question, the little Linling raised her Hand.</p>
 <p>"This body will use the name Linling."</p>
 <p>Indeed, it's more familiar to call this child form Linling.... So what should we call this one? I thought, looking at the adult Linling, and Linling also seemed to be in Worry, then opened her Mouth.</p>
-<p>"Since Linling (琳鈴) means the sound of a bell, I'll make this one 'scent' instead of sound. Linxiang (琳香) would be good."</p>
+<p>"Since Linling means the sound of a bell, I'll make this one 'scent' instead of sound. Linxiang would be good."</p>
 <p>Linxiang, huh.... It wasn't a bad name. I smiled and extended my Hand to the adult Linling, no, Linxiang.</p>
 <p>"Nice to meet you, Linxiang."</p>
 <p>"Nice to meet you too, Jin Yongtae-nim."</p>

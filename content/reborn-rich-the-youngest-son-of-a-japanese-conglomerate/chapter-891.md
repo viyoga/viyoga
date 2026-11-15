@@ -51,7 +51,7 @@ chapter = 891
 <p>Hojo Otoji looked at the Place from which the Jusul seemed to have been fired. It was a young Woman who looked like a fresh University Student. From her spectacled Eyes, scattering red Light, she was looking at him.</p>
 <p>"Maan...?"</p>
 <p>Hojo Otoji's muttering did not reach the Woman scattering the Maan's Gaze. It merely scattered into the air. What Answered Hojo Otoji's Words was the Fist Technique of Kinui Tachio, famous for his 'Killing Fist'.</p>
-<p>-Pahyeong-ryu (破形流: Form-Shattering Style) Paseongchu (破城椎: Castle-Shattering Drill).</p>
+<p>-Pahyeong-ryu (Form-Shattering Style) Paseongchu (Castle-Shattering Drill).</p>
 <p>By the Maan of the suddenly appearing Woman, Hojo Otoji's petrified Abdomen was destroyed, and Kinui Tachio's fist plunged in. And Kinui Tachio's penetrating Gi exploded inside Hojo Otoji.</p>
 <p>Kwakwakwakwang!</p>
 <p>Hojo Otoji's Torso burst open, signaling the end of this fight. Kinui Tachio, with a cold Gaze, approached Hojo Otoji's tattered Corpse.</p>

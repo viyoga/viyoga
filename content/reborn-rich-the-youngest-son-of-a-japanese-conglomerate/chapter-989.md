@@ -21,10 +21,10 @@ chapter = 989
 <p>Minamoto Risa also enjoyed classic Comics and, unlike other Young Ladies of prestigious families, occasionally had Intimate Experience playing games, so it wasn't an entirely unfamiliar Field. And with the outstanding individuals she had recruited by traveling around Japan, even being Held Back a Year and absenting herself from St. Francis Girls' Academy, gathered in Minamoto Risa's team, she was somewhat confident in their Success.</p>
 <p>And because Minamoto Risa had a List of upcoming hit games provided by Taira Ryuta, she wasn't even considering Failure.</p>
 <p>Minamoto Risa even had the thought of personally acquiring some of the companies that would create hit games, rather than Minamoto Media-Computer Technology doing so.</p>
-<p>「First, we need to find good games and sign contracts, right? Please give me a List of games that are about to be released but haven't found a publisher yet.」</p>
+<p>"First, we need to find good games and sign contracts, right? Please give me a List of games that are about to be released but haven't found a publisher yet."</p>
 <p>Minamoto Risa said, looking at the employees who were watching her. At her Words, the employees displayed various data on the Screen. As they were talented individuals, a List of game developers not only in Japan but also worldwide appeared on the Screen.</p>
 <p>Seeing the game Taira Ryuta had told her about on that Screen, Minamoto Risa smiled.</p>
-<p>「Damn it...!」</p>
+<p>"Damn it...!"</p>
 <p>Kwang!</p>
 <p>The Black Sage spat out a Curse and slammed his desk. He was expressing his frustrated Mood because the plan he had recently made was slowly distorting.</p>
 <p>There were several Reasons why he came to New York and cleaned up New York's Crime Syndicates as a fake Black Knight.</p>
@@ -42,29 +42,29 @@ chapter = 989
 <p>Thus, the activities of the fake Black Knight began, and at first, it was good. However, the favorable public opinion for vigilante activities that he had intentionally cultivated ran wild, and strange Humans who engaged in vigilante activities like the Black Knight began to increase.</p>
 <p>At first, he ignored the vigilantes who merely dealt with thugs on the Street, but as the vigilante groups grew and even some Superhumans began vigilante activities, following the Black Knight, they started eliminating the Organizations that the Black Knight was supposed to handle, thereby obstructing the Black Sage's Purpose.</p>
 <p>When the fake Black Knight dealt with an illegal Organization, the Black Cape, the Black Sage's Organization, immediately moved in to search for the Omniscient Shard and simultaneously stole the property left by that Organization. However, when vigilante groups dealt with an Organization, the police arrived before the unprepared Black Cape, making it impossible to search for the Omniscient Shard.</p>
-<p>「Damn it...! What should I do?」</p>
+<p>"Damn it...! What should I do?"</p>
 <p>The Black Sage, muttering Curses, soon slammed his desk once more. It meant something had occurred to him.</p>
-<p>「Right, if vigilantes are the Problem.... I'll just create a Villain group that attacks Heroes. Kilkilkil...! They'll have to pay the Price for bothering me.」</p>
+<p>"Right, if vigilantes are the Problem.... I'll just create a Villain group that attacks Heroes. Kilkilkil...! They'll have to pay the Price for bothering me."</p>
 <p>The Black Sage laughed unpleasantly and began to devise an evil plan. This Time, too, he intended to use part of his collection.</p>
-<p>「Arisu.」</p>
+<p>"Arisu."</p>
 <p>As Arisu was busy packing her Luggage to return to Japan, the door opened. The person who entered Arisu's room was her Mother, Nae Fitzgerald.</p>
-<p>「Huh? What's wrong, Mom?」</p>
-<p>「It seems we'll have to postpone going to Japan a bit.」</p>
+<p>"Huh? What's wrong, Mom?"</p>
+<p>"It seems we'll have to postpone going to Japan a bit."</p>
 <p>At Nae Fitzgerald's sudden Words, Arisu frowned. Tomorrow, the day after tomorrow, was their Airplane Reservation, yet she was telling her to postpone the trip to Japan? Did she say this knowing how much Arisu was looking forward to this trip to Japan?</p>
-<p>「No, it's an Airplane for the day after tomorrow.... What on earth is going on?」</p>
-<p>「There's a rumor that a valuable item has arrived in New York.」</p>
+<p>"No, it's an Airplane for the day after tomorrow.... What on earth is going on?"</p>
+<p>"There's a rumor that a valuable item has arrived in New York."</p>
 <p>It's related to Phantom Thief François.... Arisu muttered to herself, then signaled Nae Fitzgerald to continue speaking.</p>
-<p>「It's a Book called the Omniscient Shard, and they say it's a very precious Book.」</p>
-<p>「A Book? Is it historically precious? Or is it inherently precious because it's made of Gold or something?」</p>
+<p>"It's a Book called the Omniscient Shard, and they say it's a very precious Book."</p>
+<p>"A Book? Is it historically precious? Or is it inherently precious because it's made of Gold or something?"</p>
 <p>At the Words 'precious Book,' Arisu wore an Expression of Intrigue and asked for more details. Though they couldn't share it with anyone else, the Fitzgerald Phantom Thief Mother and daughter shared a certain Desire between just the two of them. It was the Obsession and Desire to steal precious things.</p>
 <p>It could be kleptomania, stealing items guarded by someone, or a Possessive Urge to own precious things, but the two Mother and daughter believed they were born with the innate nature of phantom thieves, slightly different from these two Emotions.</p>
-<p>「You could say both. It has historical Value... and since it's a grimoire, it has Value in itself.」</p>
+<p>"You could say both. It has historical Value... and since it's a grimoire, it has Value in itself."</p>
 <p>At Nae Fitzgerald's Words, Arisu felt even more drawn in. Nae Fitzgerald, sensing her Daughter was still Worrying, decided to deliver the decisive blow.</p>
-<p>「This Work seems quite Dangerous. The Omniscient Shard has flowed into a Crime Syndicate, you see. I don't think I can do it alone, Mom.... But if my Daughter helps, we might be able to solve it.」</p>
+<p>"This Work seems quite Dangerous. The Omniscient Shard has flowed into a Crime Syndicate, you see. I don't think I can do it alone, Mom.... But if my Daughter helps, we might be able to solve it."</p>
 <p>Arisu chuckled at Nae Fitzgerald's Words. Her Mom's Appearance of exaggeration was amusing.</p>
 <p>Nae Fitzgerald was capable of escaping even when surrounded by hundreds of police officers. It seemed unlikely she would be caught by a mere New York Crime Syndicate. However, since there was always a 'what if,' Arisu reluctantly nodded her Head.</p>
-<p>「Alright. I'll postpone it for about one or two weeks, I guess....」</p>
-<p>「Once this Work is over, let's go to Tokyo together. We can meet Ryuta, too.... Huh? Ryuta is a Playboy, so we'll have to combine our strengths to capture him.」</p>
+<p>"Alright. I'll postpone it for about one or two weeks, I guess...."</p>
+<p>"Once this Work is over, let's go to Tokyo together. We can meet Ryuta, too.... Huh? Ryuta is a Playboy, so we'll have to combine our strengths to capture him."</p>
 <p>Nae Fitzgerald also knew how much Arisu wanted to see Taira Ryuta, so she spoke soothingly. She herself also wanted to see Taira Ryuta, so she decided to go to Japan once this Work was over.</p>
 <p>TheDreaming-nim requested Arcade Oofuchi Erika 1. Tied up state 2. Jumping with breasts jiggling~!</p>
 <p>1.</p>

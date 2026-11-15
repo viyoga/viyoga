@@ -34,7 +34,7 @@ chapter = 568
 <p>The students each chose either jajangmyeon or jjampong according to my opinion. As expected, there were many Japanese people who couldn't eat spicy food well, so the ratio of jajangmyeon was high, but Seizawa Shii-ssi, Kujo Kina-ssi, and Otagi Yuka-ssi, who have adventurous personalities, ordered jjampong.</p>
 <p>Since I ordered first, my food came first, and when three bowls came in front of me, everyone looked at me and laughed, as if the glutton commotion from earlier came to mind. It felt like, ,You ordered that much and said you weren't a glutton?</p>
 <p>,Tch...!</p>
-<p>While I was slurping jjampong while saying ,tch', the female students' orders soon arrived, and everyone was busy eating new food. After eating jjampong, it wasn't that spicy, so it seemed like the students who ordered jjampong were eating well too.</p>
+<p>While I was slurping jjampong while saying,tch', the female students' orders soon arrived, and everyone was busy eating new food. After eating jjampong, it wasn't that spicy, so it seemed like the students who ordered jjampong were eating well too.</p>
 <p>,Ryutta, ah...!</p>
 <p>As expected, Alik was the only one who took care of me. Alik picked up the gganpunggi that I didn't order and brought it to my mouth. When I opened my mouth and ate Alik's gganpunggi like a baby bird, Alik started eating jajangmyeon again with a proud expression. He looked quite cute eating with jajangmyeon on his face. It's distracting to eat, so I should wipe it off after the meal.</p>
 <p>,Have you decided what to wear for the next schedule?</p>

@@ -52,7 +52,7 @@ chapter = 683
 <p>According to Asada Ei, Takakusaki Athena is an adopted child who fell from the sky, but does that make sense?</p>
 <p>"That's strange."</p>
 <p>"We thought so too, so we investigated from a different angle. When I checked Takakusaki Gengo's data, this data came out."</p>
-<p>Asada Ei said she thought the same when I said it was strange, and she showed another piece of data on the screen. It was a document with a red stamp that read Level 2 Secret, and the document had a picture of Takakusaki Gengo, stating Takakusaki Gengo, Deputy Commander of the Special Task Force (特殊任務団).</p>
+<p>Asada Ei said she thought the same when I said it was strange, and she showed another piece of data on the screen. It was a document with a red stamp that read Level 2 Secret, and the document had a picture of Takakusaki Gengo, stating Takakusaki Gengo, Deputy Commander of the Special Task Force.</p>
 <p>"Takakusaki Gengo seems to have been working for the government doing assassination missions during the World War. He has a martial arts skill that can be called psychic power, and he doesn't need a gun to kill people, so the Japanese government seems to have killed those who expressed opinions against the Japanese government in enemy or allied countries."</p>
 <p>I didn't know that Takakusaki Gengo was from the government. I thought he stole Senkaiyatsude and locked himself in a mountain to practice martial arts, but it seemed that he had been traveling around the world, killing people with martial arts and honing his skills.</p>
 <p>As expected, it was a move worthy of the leader of Anyaji. Honing his martial arts by killing people.</p>

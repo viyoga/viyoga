@@ -36,7 +36,7 @@ chapter = 176
 <p>Once everyone was seated, the chatter hell of four women began. At first, they talked about when they met, who confessed first, and what they did on dates, but mostly Han Yu-gyeong talked and I added a few words.</p>
 <p>In particular, everyone seemed deeply impressed by the story of our first meeting, and when I said I saved her from thugs, everyone's eyes became dreamy. It's like they're imagining a knight saving a princess... Of course, I didn't mention that we had sex right away that day.</p>
 <p>Even after the food came out, the chatter didn't stop, but I briefly escaped from the chatter and touched my phone. It vibrated as if someone had contacted me. When I looked at my phone, the person who sent the KakaoTalk was Ha Ju-yoon.</p>
-<p>Ha Ju-yoon: I thought the music video would be released tomorrow, but it came out as a pre-release today? Check it out here .</p>
+<p>Ha Ju-yoon: I thought the music video would be released tomorrow, but it came out as a pre-release today? Check it out here.</p>
 <p>Jin Yong-tae: I'm embarrassed to watch it hehe</p>
 <p>I put my phone down for now. It definitely felt a bit cringe-worthy to see myself on screen.</p>
 <p>"What's wrong?"</p>

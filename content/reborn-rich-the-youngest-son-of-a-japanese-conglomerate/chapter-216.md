@@ -62,7 +62,7 @@ chapter = 216
 <p>Nae Fitzgerald-nim didn't seem to know that I was a big eater yet. Still, unlike the subtle atmosphere at the beginning, the tea party proceeded in a relatively friendly manner. Although my suspicions hadn't been resolved yet.</p>
 <p>###</p>
 <p>Back alley of New York's Chinatown.</p>
-<p>Jackson Sha, the New York branch manager of the Black Moon Society, stared at the person in front of him with fearful eyes. Mooyoung Gwi, the leader of the execution squad and a legendary figure in the Black Moon Society, stood there wielding a massive Daegyeom (大鎌: large sickle), reminiscent of the Grim Reaper’s scythe. Shrouded in black mist, they were even more terrifying, and it was impossible to tell whether they were male or female.</p>
+<p>Jackson Sha, the New York branch manager of the Black Moon Society, stared at the person in front of him with fearful eyes. Mooyoung Gwi, the leader of the execution squad and a legendary figure in the Black Moon Society, stood there wielding a massive Daegyeom (large sickle), reminiscent of the Grim Reaper’s scythe. Shrouded in black mist, they were even more terrifying, and it was impossible to tell whether they were male or female.</p>
 <p>The form of the black mist was an ominous sight that didn't seem human.</p>
 <p>To come here like this in the middle of the day without any restrictions... Jackson Sha felt sweat on his back.</p>
 <p>,I, I absolutely didn't betray you! There have been problems for the past few months...! I contacted headquarters several times, but I didn't receive a reply!"</p>

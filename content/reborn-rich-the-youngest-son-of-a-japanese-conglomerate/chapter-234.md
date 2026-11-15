@@ -8,7 +8,7 @@ chapter = 234
 <p>As the Nameless Ghoul and all traces related to it vanished due to the offering magic circle dedicated to the Daughter of the Abyss, everyone except Mimata Chieri, who knew my abilities to some extent, looked at me in surprise. But I didn't pay attention to their gazes and picked up something black that remained where the Nameless Ghoul had disappeared.</p>
 <p>It seemed that after offering tributes all this time, a gift had finally arrived from the Daughter of the Abyss. The offering I sent this time was quite rare. I sent the spiritual body of a necromancer who had lived for hundreds of years, the armor of a Death Knight, and a high-level weapon, a giant scythe, as a heaping bowl, so the Daughter of the Abyss must have been pleased.</p>
 <p>What I received was a black, glossy metal bracelet. But what's with the bracelet? When I focused my mind on the bracelet, an information window popped up.</p>
-<p>◆Battle Gear of the Abyss Consort [Legendary Armor]</p>
+<p>◆Battle Gear of the Abyss Consort "Legendary Armor"</p>
 <p>Equipment in the form of a bracelet made with love by the Daughter of the Abyss. When a certain amount of Abyss is infused, it transforms into black armor that covers the entire body. It was made by reforging the armor worn by a Death Knight with the pressure of the Abyss.</p>
 <p>It has powerful defense and additional performance related to the Abyss.</p>
 <p>Upon Armor Transformation</p>

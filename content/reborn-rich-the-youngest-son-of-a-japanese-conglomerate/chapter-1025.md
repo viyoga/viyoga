@@ -43,7 +43,7 @@ chapter = 1025
 <p>"What, what! Shoot!"</p>
 <p>Shadow Domination was released, and as those who were only visible as silhouettes were now armed, the surprised Latinx criminal gave the command to fire.</p>
 <p>Tangtangtatatangtang!!</p>
-<p>The gunshots were enough to make my sensitive ear hurt, but I stopped all the bullets in midair with telekinesis. At the same time, Kurayamada Kirie brushed past me and swung her unique, over 2-meter-long Oodachi (大太刀).</p>
+<p>The gunshots were enough to make my sensitive ear hurt, but I stopped all the bullets in midair with telekinesis. At the same time, Kurayamada Kirie brushed past me and swung her unique, over 2-meter-long Oodachi.</p>
 <p>Chwaaaak!</p>
 <p>In an instant, about seven underworld minions' upper bodies were severed and flew into the empty space. Oh, with one swing of the Sword, the Road was wide open.</p>
 <p>We ran north of New Rochelle, killing the underworld criminals one by one who were surprised and couldn't regain their senses, towards where the Chairman of the Arab Alchemy Alliance had flown after fleeing with the fragment of omniscience.</p>
@@ -51,7 +51,7 @@ chapter = 1025
 <p>As Taira Ryuta's party ran, breaking through the Road, those who shared the cabin with Kujo Kina also charged at the underworld minions.</p>
 <p>"Hap!"</p>
 <p>Kujo Kina calmly threw her fists, hitting vital points and knocking down one by one with a single blow, and Kinui Tachio, whom Taira Ryuta called old man Yoda, with his small Body, burrowed into the midst of the large-sized guys and wildly swung his fists and Feet, tearing the criminals' flesh and breaking their bones.</p>
-<p>Kujo Kina's bodyguard, Shigemori Kishio (繁森 貴志夫), holding a pistol in each hand, accurately hit the criminals' furrowed brows, reducing their numbers.</p>
+<p>Kujo Kina's bodyguard, Shigemori Kishio, holding a pistol in each hand, accurately hit the criminals' furrowed brows, reducing their numbers.</p>
 <p>Sei and Rieko melted into the Darkness, and when Kurayamada Kirie bisected no less than seven People into upper and Lower Bodies with a single stroke, with the large amount of blood that came out, they created dozens of blood ropes and reeled up dozens of People with those ropes.</p>
 <p>"Kwaaaah!"</p>
 <p>"What, what?!"</p>

@@ -67,7 +67,7 @@ chapter = 810
 <p>"Haaht, haaang...! Heung, I'm cumming again-eee-eot♥"</p>
 <p>While Kurayamada Kirie came dozens of times, I, too, spilled copious amounts of milk deep inside Kurayamada Kirie.</p>
 <p>After rolling around on the bed with Kurayamada Kirie for a long time, evening came, so we paused our sex and went to a Kofu restaurant in Kofu City for a meal with Kurayamada Kirie.</p>
-<p>"Why did you call me Master when we were doing that ?"</p>
+<p>"Why did you call me Master when we were doing that?"</p>
 <p>When I playfully asked Kurayamada Kirie, who was wearing a faint, satisfied smile, her expression changed back to a glare, and she opened her mouth.</p>
 <p>"It's just, like a spice during sex. Didn't the Major Shareholder get aroused listening to me?"</p>
 <p>"Well..."</p>

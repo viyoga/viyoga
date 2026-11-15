@@ -9,10 +9,10 @@ chapter = 783
 <p>Since I had to show the Corpse photos first after arriving at the auditorium, I stepped forward.</p>
 <p>'I didn't really think anything would happen, so I didn't go around the building Outside with any expectations.... The first thing I discovered was this photo.'</p>
 <p>As I spoke, I activated the hologram projector connected to my phone, and the Corpse of the male university student appeared.</p>
-<p>「Kyaaah!!」</p>
-<p>「T, Tanaka!」</p>
-<p>「Norio-gun...!」</p>
-<p>「W, what is this....」</p>
+<p>"Kyaaah!!"</p>
+<p>"T, Tanaka!"</p>
+<p>"Norio-gun...!"</p>
+<p>"W, what is this...."</p>
 <p>The university students who saw the photo were all astonished. By the way, it seems the dead university student's name is Tanaka Norio.</p>
 <p>'The cause of death, as shown in the photo, is the sword stuck in his neck.'</p>
 <p>Once the university students' reactions had subsided to some extent, I showed them photos taken from different angles and close-ups, saying,</p>
@@ -25,7 +25,7 @@ chapter = 783
 <p>Ah, all the Corpses were stabbed in the neck, so I felt a sense of deja vu, and it was similar to the story of the serial killer Kotowazuki that I saw on my smartphone while coming to the Resort.</p>
 <p>Seizawa Shii would have received various data from Eve while working as a fixer in Tokyo during vacation, so she must have seen photos of Corpses who had fallen victim to Kotowazuki.</p>
 <p>She had said that she tried to catch him even in the helicopter coming to the Resort, but she stopped because there was a lack of clues.</p>
-<p>'I don't know if it's appropriate to ask this in this Situation.... They're stabbing necks, so why do they call him Kotowazuki (斷頭鬼:Beheading Demon)? They're not cutting off Heads.'</p>
+<p>'I don't know if it's appropriate to ask this in this Situation.... They're stabbing necks, so why do they call him Kotowazuki (Beheading Demon)? They're not cutting off Heads.'</p>
 <p>'I'll explain that. When they discovered the Corpse in the early stages, the police made a Mistake while handling the Corpse, so the Head fell off, and that's why he's called by that nickname. He stabs the sword so deep into the neck that the Head might fall off if you're not careful.'</p>
 <p>Shido Tsubaki, who knew this kind of thing well, spoke in response to Kujo Kina's question. I was also wondering why he was called the Beheading Demon when he was stabbing necks, but it was a nickname that originated from a police Mistake.</p>
 <p>'Then.... does that mean Kotowazuki is inside here?'</p>

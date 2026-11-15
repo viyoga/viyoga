@@ -8,9 +8,9 @@ chapter = 182
 <p>While Pyongyang was quite hot, Kraskino had perfect weather, right between spring and summer. It must be freezing in winter, but right now, it was just right. A quick search showed the average temperature in July was around 24 degrees Celsius, so it was slightly warm.</p>
 <p>Getting off the train, I booked a room in a hotel near the station. Even though it was called a hotel, it felt like a run-down 90s Russian building. Well, considering the city, I guess it couldn't be helped. It's not a major city, after all.</p>
 <p>,First, I need to find the location of the human trafficker....,</p>
-<p>Since ,Mega Corp's Youngest Son, was a 15-rated game, the protagonist obviously couldn't use a slave market. I only found out about the human trafficker in this city while looking at Alexandra Smirnova's character settings, so I only knew the city name and not the exact location.</p>
+<p>Since,Mega Corp's Youngest Son, was a 15-rated game, the protagonist obviously couldn't use a slave market. I only found out about the human trafficker in this city while looking at Alexandra Smirnova's character settings, so I only knew the city name and not the exact location.</p>
 <p>,Is the only way to go through the Black Market app after all?,</p>
-<p>Of course, since the Black Market's name literally means 'Dark Merchant' (暗商), it has to be connected to human trafficking. I might be able to get information from the Black Market app, but if I rescued Alexandra Smirnova, it would be easy for them to trace it back to me.</p>
+<p>Of course, since the Black Market's name literally means 'Dark Merchant' , it has to be connected to human trafficking. I might be able to get information from the Black Market app, but if I rescued Alexandra Smirnova, it would be easy for them to trace it back to me.</p>
 <p>Then I would automatically become an enemy of the Black Market, which would be a huge problem. I wouldn't be able to get items, and I'd have to deal with attacks from the Black Market, which has tremendous influence in the underworld. That would be a significant issue.</p>
 <p>,Ah!,</p>
 <p>Right, I just don't have to rescue her. Why did I even think about rescuing her? I have plenty of points; I can just buy her....</p>
@@ -68,7 +68,7 @@ chapter = 182
 <p>,This is where we keep our troublemakers. You probably came here after hearing rumors about this one....,</p>
 <p>The slave trader said to me as he opened the door to the first room. As I expected, Alexandra Smirnova was standing in the first room. She was wearing a loose, white short-sleeved shirt that came down to her thighs, like a patient gown, and had beige hair. Her eyes were yellow, and she looked much smaller and younger than I remembered. Was it because she wasn't getting enough nutrition? Alexandra Smirnova quietly looked at me and the slave trader.</p>
 <p>,This kid is probably the 'electric eel' you heard rumors about. She's quite pretty, so she's been sold several times, but she always gets returned. She can't be used sexually because electricity flows through her body. Since she's been returned several times, I'll give her to you for 8,000 points.,</p>
-<p>The slave trader was surprisingly honest about Alexandra Smirnova's flaws(?). 8,000 points.... Roughly converted, that's about ten million won. It's amazing that I can buy the infamous mid-boss of ,Mega Corp's Youngest Son, for only ten million won....</p>
+<p>The slave trader was surprisingly honest about Alexandra Smirnova's flaws(?). 8,000 points.... Roughly converted, that's about ten million won. It's amazing that I can buy the infamous mid-boss of,Mega Corp's Youngest Son, for only ten million won....</p>
 <p>,I'm not just buying one, so give me a bit more of a discount.,</p>
 <p>I demanded a discount because I felt like I'd be taken advantage of if I didn't. I had a lot of money, but I didn't want to be a pushover.</p>
 <p>,Hmm, this already includes a discount.... Okay! Let's do this. Let's go through everything first, and I'll give you a percentage discount on the total amount.,</p>

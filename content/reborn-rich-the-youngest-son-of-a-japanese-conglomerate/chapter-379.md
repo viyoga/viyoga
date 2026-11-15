@@ -42,7 +42,7 @@ chapter = 379
 <p>Oh? This is out...? There was a movie in which Arisu briefly appeared as a model. These days, there were many simultaneous releases in theaters and OTT, and this movie seemed to be one of them.</p>
 <p>Arisu got a role as a supporting actor in the next movie thanks to this work, and she was currently filming it. Because of that, she couldn't do the Phantom Thief François activities, so she was very frustrated.</p>
 <p>In fact, I wasn't completely worried about Arisu, as Hollywood is so notorious, but I wasn't too worried.</p>
-<p>In the game, the women who were hit by the characteristic Golden Pillar did not betray me, and I had the characteristic , which evolved from the Golden Pillar. This characteristic had a stronger coercive force than the Golden Pillar, so I wasn't worried.</p>
+<p>In the game, the women who were hit by the characteristic Golden Pillar did not betray me, and I had the characteristic, which evolved from the Golden Pillar. This characteristic had a stronger coercive force than the Golden Pillar, so I wasn't worried.</p>
 <p>In addition, I had faith in Arisu that she wouldn't give other men a chance just because I couldn't see her for a few months.</p>
 <p>The movie was quite fun. Arisu appeared as one of the many models in the movie, and she was indeed a crane among chickens. Arisu had a striking and gorgeous beauty even among many famous models.</p>
 <p>She had a gentle impression that Easterners liked, so her popularity might be divided in the United States, where they like strong impressions, but Arisu was the best for me. In fact, I can't evaluate her acting skills because she was a minor role.</p>

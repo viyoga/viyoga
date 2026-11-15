@@ -64,8 +64,8 @@ chapter = 704
 <p>Lara Sinclair, who had instantly put holes in the foreheads of three enemies who were trying to enter the building, turned her body and entered between the buildings as she had said in advance, as if nothing had happened.</p>
 <p>Tang!</p>
 <p>Lara Sinclair fired again at one enemy who was coming out of the guard post and knocked him down, moving without any change in speed, as if she didn't even feel that she had fired. It was a natural shot as if she had planned it in advance.</p>
-<p>Damn it (他妈的: Shibal)!</p>
-<p>"Chūsī (去死: Go die)!"</p>
+<p>Damn it (Shibal)!</p>
+<p>"Chūsī (Go die)!"</p>
 <p>"Go die!"</p>
 <p>The enemies inside the research institute weren't just taking it either. Almost dozens of unidentified soldiers came out in droves and sprayed bullets with curses.</p>
 <p>Lara Sinclair calmly pointed to the cover, and the group ran along the path where the bullets were least exposed and hid behind the cover.</p>

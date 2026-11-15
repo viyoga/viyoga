@@ -34,7 +34,7 @@ chapter = 247
 <p>"Heoeok.... Heoeok.... If you practice any more, I might go crazy from too much pleasure?"</p>
 <p>-Huhu. Then this time, you'll make me go crazy, won't you?</p>
 <p>I felt so much pleasure that I was filled with the desire to repay Simyeonui ttal (Daughter of the Abyss). I spread Simyeonui ttal (Daughter of the Abyss)'s legs and brought my face to her pussy. As Simyeonui ttal (Daughter of the Abyss) said earlier, Simyeonui ttal (Daughter of the Abyss)'s pussy was indeed full of very sticky liquid.</p>
-<p>Like a butterfly seeking honey, I put my tongue to the flower and sucked and licked it wildly. The fluid that came out from the deepest part of Simyeonui ttal (Daughter of the Abyss) was truly sweet and addictive like honey. I forgot that I was even caressing her and continued to seek Simyeonui ttal (Daughter of the Abyss)'s honey.</p>
+<p>Like a butterfly seeking honey, I put my tongue to her pussy and sucked and licked it wildly. The fluid that came out from the deepest part of Simyeonui ttal (Daughter of the Abyss) was truly sweet and addictive like honey. I forgot that I was even caressing her and continued to seek Simyeonui ttal (Daughter of the Abyss)'s honey.</p>
 <p>-Heueuht! It feels good, my partner...♥</p>
 <p>Simyeonui ttal (Daughter of the Abyss) moaned sweetly, seemingly enjoying it just from being sucked. Hearing that moan, I came to my senses and used all the bedroom techniques I had to ravage Simyeonui ttal (Daughter of the Abyss)'s pussy with my tongue and fingers.</p>
 <p>-Heuaht...! Ahheung♥ My partner...! It feels...♥ Haeueut!</p>
@@ -72,7 +72,7 @@ chapter = 247
 <p>Come to think of it, what kind of father makes a nude statue of his daughter just because she was born? Moreover, a statue that produces milk once every 100 years.... Even if it's the Abyss, which is difficult to understand by human standards, it was a bit strange.</p>
 <p>-Ah, lastly, the gloves woven from my hair and the armor I gave you this time are made to have synergy when worn together. In game terms, you could say it's a set of equipment exclusively for you. And as a reward for finding my statue this time and making me feel good....</p>
 <p>Simyeonui ttal (Daughter of the Abyss) took out the brooch that Arisu-ssi had bought at the antique store in New York and held it out to me.</p>
-<p>◆Grace of the Deep Sea [Unique Accessory]</p>
+<p>◆Grace of the Deep Sea "Unique Accessory"</p>
 <p>A brooch containing the energy of the deep sea. Abyss stat increases by 1, and luck greatly increases in the sea.</p>
 <p>When worn with the Abyss Lord's Combat Gear item made by Simyeonui ttal (Daughter of the Abyss), the Abyss stat additionally increases by 2, and all places where the item wearer is located are treated as 'sea'.</p>
 <p>When did she take the item from me and modify it? Amazing. I didn't even bring it out today....</p>

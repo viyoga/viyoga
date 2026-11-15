@@ -17,7 +17,7 @@ chapter = 394
 <p>Han Yu-gyeong-ssi brings the backpack she carries around every day and takes out a bear statue about 40 centimeters tall from inside. It was definitely clean, as if Han Yu-gyeong-ssi had taken good care of it, and I couldn't see any old stains like when I bought it.</p>
 <p>I was grateful that Han Yu-gyeong-ssi didn't doubt my words at all, carrying it around and cherishing it because I told her to take good care of it. Usually, people wouldn't seriously listen to the words that you can gain abilities if you wipe this statue well.</p>
 <p>I stared intently at the Grizzly Totem with the glasses from the ruins on. I had to check why the totem wasn't giving Han Yu-gyeong-ssi its abilities. Since it's an item I got with some effort, I have to fix it if there's a defect, so I need to check what's wrong first.</p>
-<p>◆Grizzly Totem [Epic Totem]</p>
+<p>◆Grizzly Totem "Epic Totem"</p>
 <p>An Indian shaman bound a bear spirit to a bear statue. If you are recognized by the bear spirit, you can gain the bear's Strength and Stamina.</p>
 <p>It wants to become a summoned beast by making a contract with Han Yu-gyeong-ssi, the current owner of the totem.</p>
 <p>Uh...? This is the first time I've seen this? The Grizzly Totem can also become a summoned beast? Is it because Han Yu-gyeong-ssi takes such good care of it?</p>

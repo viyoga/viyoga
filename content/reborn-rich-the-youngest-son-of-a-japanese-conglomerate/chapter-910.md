@@ -126,7 +126,7 @@ chapter = 910
 <p>"...."</p>
 <p>Minamoto Lisa, who had been lying blankly, staring at the ceiling for a while, blushed her cheeks shyly and covered her Face with both Hands.</p>
 <p>How much must she love Yamashiro Ryuta to have dreamed of getting married and having a child...? Minamoto Lisa was a little embarrassed by her heavy Love.</p>
-<p>"Ryuri (竜里), that was the name, right? If I really have a daughter, should I name her that...?"</p>
+<p>"Ryuri, that was the name, right? If I really have a daughter, should I name her that...?"</p>
 <p>It was a name taken one character each from Yamashiro Ryuta and Minamoto Lisa. Minamoto Lisa had a shameful dream, but she gained a hint about her future Daughter's name.</p>
 <p>On the chest of the St. Francis Girls' Academy school uniform hanging in Minamoto Lisa's wide room, where her Emotions were on a Rollercoaster Ride, was a strand of pink blonde Hair, a little shorter than Minamoto Lisa's Hair.</p>
 <p>Side story B-cut!</p>

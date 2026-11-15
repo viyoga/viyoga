@@ -99,7 +99,7 @@ chapter = 817
 <p>She even had thoughts that she would never have had normally. That's why Takakusaki Athena was eagerly waiting for K's investigation to be completed.</p>
 <p>'Yeah, tell me.'</p>
 <p>Takakusaki Athena made up her Determination and opened her Mouth.</p>
-<p>-First of all, the Japanese Special Mission Unit (日本特殊任務団) you asked me to look into definitely existed. It was active during World War III and still exists today. And it’s true that your adoptive father, Takakusaki Gengo, served as the vice commander.</p>
+<p>-First of all, the Japanese Special Mission Unit you asked me to look into definitely existed. It was active during World War III and still exists today. And it’s true that your adoptive father, Takakusaki Gengo, served as the vice commander.</p>
 <p>This was already known Information. Takakusaki Gengo told Takakusaki Athena that he was a member of the special forces and came to rescue her.</p>
 <p>-From what I've learned, it seems like it's not a rescue team, but an assassination team. Looking at the Information roughly, it's quite flashy? They assassinated several key figures on the opposing side during World War III.... Also, it's a bit sensitive, but it says that they killed several people on the allied side who were not helpful to Japan. It's sensitive Information that anyone would hide tightly.... It was very difficult to get.</p>
 <p>K's words were not wrong. Every country operated an assassination team during World War III, but assassinating key figures of the alliance during a war where the outcome could not be predicted was one of the most fatal pieces of Information. That's why it took K almost a week to find the Information.</p>

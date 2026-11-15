@@ -58,7 +58,7 @@ chapter = 619
 <p>,As expected, North China must have done this, right?"</p>
 <p>,The information analysis team reports that there is an 87 percent chance that North China did it. The remaining 13 percent is attributed to the United States, Japan, and South Korea."</p>
 <p>Wang Chang frowned deeply at the reporter's words. In fact, there was a backup of the data at the headquarters before the incident occurred, so it wasn't a big loss, but he was angry that the data had been leaked. After taking a few breaths to calm his anger, Wang Chang opened his mouth again.</p>
-<p>,Okay, what about the Titans (巨神)?</p>
+<p>,Okay, what about the Titans?</p>
 <p>The robot project that SCSMC was conducting was secret, but the name used within the group was Titans. World War III was over, but the North and South Chinese governments still had a desire to unify China, so they continued to compete in military spending.</p>
 <p>Wang Chang thought that this Titan project would unify China and take SCSMC one step further, making it a global group, not just in South China, so he considered it very important.</p>
 <p>,Yes, one unit was destroyed on the road, but two units remained in the maintenance depot, so we were able to recover them."</p>

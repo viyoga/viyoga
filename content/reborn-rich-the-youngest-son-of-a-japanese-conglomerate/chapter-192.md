@@ -79,7 +79,7 @@ chapter = 192
 <p>"Wow, that was really good!"</p>
 <p>Mimata Chieri was making a fuss, and the Kiyona Hori and Mari sisters, who saw me naked for the first time, blushed, and Sawayanagi Seari and sniper Sawayanagi Mikiyo, who were in charge of cuteness in the Seryu Group, had interesting expressions even though they had seen it once. They both look very young, but they're adults, so I can't tell them not to watch it....</p>
 <p>For reference, Sawayanagi Shigeru, the speed ability user, who was one of the two men who didn't ride in the driver's seat and the passenger seat, was dozing off, probably because he was exhausted after catching Yang Xuexi earlier.</p>
-<p>Katayama Junichi, who is most interested in close combat in the Seryu Group, was excited as if he had seen a great martial arts video. He was looking at me with hot eyes that seemed like he would call me master right away. I don't know if I should be grateful that he looked at the martial arts instead of my Johnson, but it was definitely burdensome.</p>
+<p>Katayama Junichi, who is most interested in close combat in the Seryu Group, was excited as if he had seen a great martial arts video. He was looking at me with hot eyes that seemed like he would call me master right away. I don't know if I should be grateful that he looked at the martial arts instead of my dick, but it was definitely burdensome.</p>
 <p>"Now! Next, we'll watch the music video that Hubae-nim filmed in Korea this time!"</p>
 <p>"Waaaaah!"</p>
 <p>I should have ridden in the car that was following behind instead of this car.... I almost died of embarrassment because I kept watching videos related to me until I arrived in Daisen City.</p>

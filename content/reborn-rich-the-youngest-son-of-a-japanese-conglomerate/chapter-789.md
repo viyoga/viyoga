@@ -73,7 +73,7 @@ chapter = 789
 <p>"Since it's already revealed that Itsu Tomohiko sent a Line message to Tanaka Norio, the culprit is revealed, isn't he? If something bothers you, think about it while searching our assigned area."</p>
 <p>Saionji Diana told her not to think about other things since the culprit was already revealed, but Oofuchi Erika continued to tilt her Head at those Words. Then she looked at Saionji Diana and opened her mouth.</p>
 <p>"Diana. Sorry, but could you give me Tanaka-ssi's phone from earlier?"</p>
-<p>" Sigh .... Alright. I've also unlocked the security, so you should be able to find it right away."</p>
+<p>" Sigh.... Alright. I've also unlocked the security, so you should be able to find it right away."</p>
 <p>Saionji Diana, sighing at Oofuchi Erika, who was fixated on the idea that something was still strange, took out the phone from her pocket and handed it to Oofuchi Erika.</p>
 <p>Since they were in the same group, Oofuchi Erika could receive the phone immediately.</p>
 <p>Oofuchi Erika, holding Tanaka Norio's phone from Saionji Diana, checked the chat again.</p>

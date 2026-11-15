@@ -33,7 +33,7 @@ chapter = 861
 <p>As the Meeting was about to end, my phone suddenly Vibrated. Who is it? I took my phone out of my pocket and checked.</p>
 <p>**-Ichimonji Harugoro, the old man: The Sword is all finished. Tomorrow, I'll bring the Sword and deliver it to you!**</p>
 <p>Ah, the Weapon I ordered seems to be all finished. I thought it would be ready by Friday, but it seems he made it quite hastily. It would be good if Ichimonji-nim delivered it. Because I wouldn't have to go all the way to Kofu City.</p>
-<p>Seiwa Rieko (勢和 梨絵子). She dropped out of St. Francis Girls' Academy.</p>
+<p>Seiwa Rieko. She dropped out of St. Francis Girls' Academy.</p>
 <p>Although a bit timid, Seiwa Rieko, who was a bright girl, began to become unhappy precisely when several Accidents overlapped and she went to the special class, a class for Troublemakers or physically weak Students at St. Francis Girls' Academy.</p>
 <p>If it had been another prestigious Family, she might not have gone to the special class. But the Seiwa Family was a small Family barely clinging to the prestigious Families.</p>
 <p>Although they sent Seiwa Rieko to St. Francis Girls' Academy for the Family's reputation and connections, her Parents had to make many Sacrifices to allow Seiwa Rieko to attend St. Francis Girls' Academy. Therefore, regarding Seiwa Rieko going to the special class at St. Francis Girls' Academy, they could not strongly Protest. Even St. Francis Girls' Academy, without overlooking Seiwa Rieko's minor Mistakes of occasionally defaulting on tuition, immediately sent her to the special class.</p>

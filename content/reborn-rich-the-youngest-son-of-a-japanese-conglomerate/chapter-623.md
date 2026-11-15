@@ -79,7 +79,7 @@ chapter = 623
 <p>●Cherry Jjang: Should I ask Sensei? www</p>
 <p>└●Sasami: (ఠ ̥̆ ఠ) Don't pretend to be close to Sensei when you're not.</p>
 <p>└●Parfait Joa: That's right. Pretend to be close in the fan club next door.</p>
-<p>●Ryuko (竜子) Ttang: I hope it's true. So does that mean we can call this photo card official?</p>
+<p>●Ryuko Ttang: I hope it's true. So does that mean we can call this photo card official?</p>
 <p>●D-Cup Miko: If photo cards are coming out, I hope they release a lot of club anthologies. So they don't sell out.</p>
 <p>└●Fire Mari: But are you really a D-cup?</p>
 <p>└●D-Cup Miko: Yes.</p>

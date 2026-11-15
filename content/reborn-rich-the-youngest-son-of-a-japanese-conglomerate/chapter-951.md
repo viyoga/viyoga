@@ -6,7 +6,7 @@ chapter = 951
 +++
 
 <p>-Still, no clues about the culprit of the A-village mass Murder Incident are emerging, and the police are only saying that the investigation of this Incident is progressing....</p>
-<p>Miyano Yoshimi (宮野 世志実) trembled as she read the news article. Having moved from A-village to Tokyo a few months ago because of an unpleasant incident, Miyano Yoshimi was now certain who the culprit mentioned in the news was.</p>
+<p>Miyano Yoshimi trembled as she read the news article. Having moved from A-village to Tokyo a few months ago because of an unpleasant incident, Miyano Yoshimi was now certain who the culprit mentioned in the news was.</p>
 <p>Sato Tsukiyo.</p>
 <p>The Reason she had transferred to Tokyo. It was because she had excessively bullied an Orphan classmate named Sato Tsukiyo. After Miyano Yoshimi and two friends, who were identified as the main instigators of the Bullying, were transferred, she hadn't thought about Sato Tsukiyo, but the recent A-village Murder Incident made her unable to forget the name Sato Tsukiyo.</p>
 <p>The dead people mentioned in the News were the Students who had bullied Sato Tsukiyo along with Miyano Yoshimi, and their Parents. Although she herself had been transferred, these dead friends had received relatively less severe Discipline, such as suspension or Warning.</p>
@@ -16,7 +16,7 @@ chapter = 951
 <p>She called Fuke Michie, who had been transferred after actively bullying Sato Tsukiyo with her.</p>
 <p>-...The phone is not being answered and will be connected to voicemail.</p>
 <p>She didn't answer the phone. It was still early Morning for Fuke Michie to be awake. Because Fuke Michie was a far more out-of-control Student than Miyano Yoshimi, who merely bullied a friend, she was a friend who not only drank Alcohol and smoked Cigarettes but also did Drugs from who knows where, so her usual waking Time was late, past lunch, meaning she wouldn't answer the phone now.</p>
-<p>This time, she called the last student who had also been transferred, Ogata Koji (尾縣 交次). Ogata Koji was Miyano Yoshimi's boyfriend at the time of the incident, and after being influenced by his girlfriend, Miyano Yoshimi, he bullied Sato Tsukiyo, was caught in the act, labeled as the main instigator, received a transfer order, and moved to Tokyo.</p>
+<p>This time, she called the last student who had also been transferred, Ogata Koji. Ogata Koji was Miyano Yoshimi's boyfriend at the time of the incident, and after being influenced by his girlfriend, Miyano Yoshimi, he bullied Sato Tsukiyo, was caught in the act, labeled as the main instigator, received a transfer order, and moved to Tokyo.</p>
 <p>Due to this Incident, Miyano Yoshimi and Ogata Koji often had arguments and broke up. This was because Ogata Koji came to Resent Miyano Yoshimi over this matter. It seemed he felt it was unfair that he had merely followed orders but ended up as the main instigator and even received a transfer. However, Miyano Yoshimi's thoughts were completely different. Ogata Koji clearly enjoyed Bullying Sato Tsukiyo. She vividly remembered him wearing a deep Smile when he bullied Sato Tsukiyo.</p>
 <p>-Ah, why?!</p>
 <p>Ogata Koji answered the phone with an irritable Attitude.</p>

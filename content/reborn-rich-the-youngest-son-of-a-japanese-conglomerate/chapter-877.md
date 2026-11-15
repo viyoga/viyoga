@@ -6,7 +6,7 @@ chapter = 877
 +++
 
 <p>and breast chapter check contains exposure please surroundings this your</p>
-<p>Shimokawabe Airen looked at the white bag in her hand. On the outside of the bag, 『決鬪狀』 (Letter of Challenge) was written.</p>
+<p>Shimokawabe Airen looked at the white bag in her hand. On the outside of the bag, "" (Letter of Challenge) was written.</p>
 <p>Seugeok.</p>
 <p>Shimokawabe Airen cut off the top part of the Bag with her katana, then took out the Paper inside and unfolded it to read.</p>
 <p>-To Swordsman Shimokawabe Airen, Personal.</p>

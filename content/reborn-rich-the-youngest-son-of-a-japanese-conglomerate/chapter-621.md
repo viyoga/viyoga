@@ -9,17 +9,17 @@ chapter = 621
 <p>At Naruse Koyou's request, I readily nodded. There's no need to refuse when they offer more rewards. Besides, it's not a difficult task.</p>
 <p>"Thank you. The sealed items are located in the innermost part, so it would be best to choose what you want first."</p>
 <p>At Naruse Koyou's words, I nodded and began to examine the surrounding items again. There were quite a few historical artifacts, and some useful items came with demerits. A prime example is the white robe I'm looking at now.</p>
-<p>◆Haunted Shroud [Epic Equipment/Clothing]: The shroud worn by the executed famous poet ■■■. Wearing it inflicts a curse [Vitality Reduction]. There is a certain probability of poetic inspiration.</p>
-<p>└[Vitality Reduction]: Decreases Stamina and Resistance stats, makes you susceptible to diseases, and causes easy fatigue.</p>
+<p>◆Haunted Shroud "Epic Equipment/Clothing": The shroud worn by the executed famous poet ■■■. Wearing it inflicts a curse "Vitality Reduction". There is a certain probability of poetic inspiration.</p>
+<p>└"Vitality Reduction": Decreases Stamina and Resistance stats, makes you susceptible to diseases, and causes easy fatigue.</p>
 <p>Creativity +6</p>
 <p>It's a pretty good robe that raises the Creativity stat by 6, but since it's cursed, I decided to pass and look for something else. Besides, there's no one around me who needs Creativity stats or poetic inspiration.</p>
 <p>Oh.... This might be useful?</p>
-<p>◆Existence of Bodilessness [Unique Equipment/Accessory]: A charm used by the onmyoji Usudo Kimimasa, who lacked limbs. The more incomplete the body, the stronger the options are.</p>
+<p>◆Existence of Bodilessness "Unique Equipment/Accessory": A charm used by the onmyoji Usudo Kimimasa, who lacked limbs. The more incomplete the body, the stronger the options are.</p>
 <p>If one limb is missing, the accuracy of all attacks increases.</p>
 <p>If two limbs are missing, the probability of inflicting status ailments such as bleeding and lacerations upon hitting an enemy increases.</p>
 <p>If three limbs are missing, all physical stats except appearance increase by 3.</p>
-<p>If four limbs are missing, the trait [Asura] is applied.</p>
-<p>└◇Asura [Unique Trait]: Two semi-transparent arms of Asura are added behind your back, and the skill [Asura Arms] is created. You can control them like your own limbs depending on your skill proficiency.</p>
+<p>If four limbs are missing, the trait "Asura" is applied.</p>
+<p>└◇Asura "Unique Trait": Two semi-transparent arms of Asura are added behind your back, and the skill "Asura Arms" is created. You can control them like your own limbs depending on your skill proficiency.</p>
 <p>"Crazy...."</p>
 <p>It had options that seemed like it was left for Saionji Diana to use. It looked like a necklace with a small Asura statue made of an unidentified black mineral, but its options were amazing. It's a necklace that can increase accuracy, inflict status ailments on opponents, increase raw stats, and even gain a trait.</p>
 <p>Of course, the condition of having no limbs was extremely strict, but in this era with cyber implants, it wasn't a very difficult condition.</p>
@@ -37,7 +37,7 @@ chapter = 621
 <p>Urabe Konoka had an item exclusively for shrine maidens that increased divine power, so I chose it for her, and I chose an anklet that greatly increased movement speed, evasion rate, and judgment stats when fleeing as one of the three rewards given to me. I should give this to Arisu as a gift.</p>
 <p>I kept an eye out for these evasion items because Arisu, who is active as a phantom thief, shouldn't get caught. Then I went to the place where the swords were displayed, and among them, a Chinese-style sword caught my eye. The semi-transparent window that popped up told me the name and options, and it was a bit strange.</p>
 <p>"This is...?"</p>
-<p>◆Ha Ae-ryeong's Sword [Legacy Equipment/Sword]: A sword that crossed dimensions. A sword used by a martial artist named Ha Ae-ryeong from beyond the dimensions.</p>
+<p>◆Ha Ae-ryeong's Sword "Legacy Equipment/Sword": A sword that crossed dimensions. A sword used by a martial artist named Ha Ae-ryeong from beyond the dimensions.</p>
 <p>●Cannot be destroyed below the Mythic grade.</p>
 <p>●Increases the efficiency and reduces the consumption of space-based techniques.</p>
 <p>●Increases the damage of swordsmanship.</p>
@@ -59,7 +59,7 @@ chapter = 621
 <p>Now all that's left is.... Alik and my two choices. If that's all that's left, I'll find them quickly, right?</p>
 <p>"Let's keep looking."</p>
 <p>Just like I said I would find it quickly, Alik was able to find a useful piece of equipment right away. It was a scabbard.</p>
-<p>◆Scabbard Containing Lightning Storm [Unique Equipment/Scabbard]: Imbues the sword inserted into it with lightning damage and greatly amplifies the power of iaijutsu.</p>
+<p>◆Scabbard Containing Lightning Storm "Unique Equipment/Scabbard": Imbues the sword inserted into it with lightning damage and greatly amplifies the power of iaijutsu.</p>
 <p>The sword that Alik has, Clear Sky Thunderbolt, is a very good sword, but the scabbard was just a normal item. It seemed like it would be better to use it if he changed it to this scabbard.</p>
 <p>"Alik, you'll take what I recommend, right?"</p>
 <p>"Yeah, what Ryu-tta recommends.... Alik likes it."</p>
@@ -86,7 +86,7 @@ chapter = 621
 <p>Naruse Shiyo muttered after listening to my explanation. Naruse Koyou was listening to my explanation and writing it down in his notebook. He said he was thinking of creating a booklet explaining the items in the sealed area so that the data would never be lost again. Of course, he said that only the head of the family and high-ranking members would be able to see it so that others could not misuse it. He also asked us to keep what we saw and heard here a secret, so we nodded.</p>
 <p>"The last one is.... This item. A tuna fishing boat is said to have salvaged it from the Pacific Ocean a hundred years ago. They say that if you wear it, you'll go crazy and become something other than human."</p>
 <p>The last thing Naruse Koyou pointed to was a black breastplate armor, with tentacles wrapped around it as if an octopus was wrapped around the armor. Going crazy and changing the human form is the same as the side effects of something I know? Then this is....</p>
-<p>◆Armor of the Abyss [Unique Legacy Equipment/Armor]: An armor discovered and modified by the Master of the Abyss from a ship that sank in the sea's rage. Those who cannot withstand the abyss filled in this armor go crazy or become monsters with deformed bodies.</p>
+<p>◆Armor of the Abyss "Unique Legacy Equipment/Armor": An armor discovered and modified by the Master of the Abyss from a ship that sank in the sea's rage. Those who cannot withstand the abyss filled in this armor go crazy or become monsters with deformed bodies.</p>
 <p>Abyss +7 when equipped</p>
 <p>When defending against all attacks, the Abyss stat is added to the Resistance stat to calculate.</p>
 <p>The Abyss is watching you.</p>

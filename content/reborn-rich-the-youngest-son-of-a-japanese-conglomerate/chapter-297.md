@@ -92,7 +92,7 @@ chapter = 297
 <p>"If it's these three, I don't have any major objections either."</p>
 <p>Nagumo Sian and Yukiko nodded at Nae Fitzgerald's words. The intention to maintain a joint front was good, as they could be defeated individually by other women if they were alone.</p>
 <p>"We don't have much time, so let's talk about it in a group chat and decide on a name first?"</p>
-<p>"How about Mankai Karen Rengo (満開花連合: Full Bloom Flower Alliance)? Everyone is like a lady in full bloom..."</p>
+<p>"How about Mankai Karen Rengo (Full Bloom Flower Alliance)? Everyone is like a lady in full bloom..."</p>
 <p>Full Bloom Flower Alliance. Everyone nodded as if it wasn't bad. Now, the Full Bloom Flower Alliance will maintain a joint front and keep other women who approach Taira Ryuta in check.</p>
 <p>"First of all, let's talk about it later and decide on the order of who will sleep in Ryuta's room first."</p>
 <p>Only 1 minute after forming the alliance. The four women all glared at each other. They were all sending the look that I have to sleep with Ryuta today!</p>

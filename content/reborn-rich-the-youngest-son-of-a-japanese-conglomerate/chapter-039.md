@@ -53,8 +53,8 @@ chapter = 39
 <p>"Let's eat eel layered sex for lunch."</p>
 <p>What is she trying to make me do with eel layered sex? Moreover, instead of eating at the Store, we ordered takeout on the way to the Store. And the Place we arrived at was Shinoe Misano's Home.</p>
 <p>"Eat comfortably."</p>
-<p>When I said I ate a lot, my eel layered dish was ordered in Tokumori (特盛: extra-extra large, a regular large is called Oomori (大盛)) size.</p>
-<p>There was Hitsumabushi (ひつまぶし), the Nagoya style of eel dish where crispy eel is grilled and served over rice in a round bowl, and Unaju (うな重), commonly known as eel served over rice in a rectangular box with the eel laid out without gaps, eaten in Kanto and Kansai. Since Chiba is part of Kanto (関東), what we packed this time was also Unaju.</p>
+<p>When I said I ate a lot, my eel layered dish was ordered in Tokumori (extra-extra large, a regular large is called Oomori) size.</p>
+<p>There was Hitsumabushi, the Nagoya style of eel dish where crispy eel is grilled and served over rice in a round bowl, and Unaju, commonly known as eel served over rice in a rectangular box with the eel laid out without gaps, eaten in Kanto and Kansai. Since Chiba is part of Kanto, what we packed this time was also Unaju.</p>
 <p>Being Tokumori Size, it was twice as large as Shinoe Misano's vessel. As I looked at this enormous amount of eel layered sex, I could feel Shinoe Misano's dark Intention, hoping I would use my Power somewhere, but I first ate to appease my Hunger. This was because the Meal was a little late due to contracting with the furniture company.</p>
 <p>I don't know if it was because I was hungry or if it was a famous restaurant, but it was incredibly delicious. I found myself gobbling it down without realizing it.</p>
 <p>Shinoe Misano, who was halfway through her Meal, looked at me with a satisfied Appearance. It was an Expression like watching a Son eat well.</p>

@@ -21,7 +21,7 @@ chapter = 215
 <p>From the beginning, Alexandra's future self, before she met me, is the Cheil Group's secret weapon. I need to keep giving her experience and letting her participate in actual battles to unleash her potential.</p>
 <p>,Haa.... Okay. I'll have to modify the curriculum a bit since she's an ability user.</p>
 <p>,Thank you, Sunbae. But when are you planning to get off my lap?</p>
-<p>,I'm planning to stay here until Arisu-yang comes. I want to teach her the feeling of being NTR'd [Netorare - cuckolded].</p>
+<p>,I'm planning to stay here until Arisu-yang comes. I want to teach her the feeling of being NTR'd "Netorare - cuckolded".</p>
 <p>What is she, some kind of NTR evangelist? Mimata Chieri was doing something that ordinary people like me couldn't understand. Speak of the devil, Arisu approached the office where we were sitting.</p>
 <p>She approached Mimata Chieri, who was sitting on my lap and hugging me, put her hands on her waist, and asked with a stern expression.</p>
 <p>,Chieri, what are you doing?!</p>

@@ -5,7 +5,7 @@ weight = 153
 chapter = 153
 +++
 
-<p>"Ready?" A man with brown skin, wearing a Hawaiian shirt and sunglasses, shouted, looking around. He had a submachine gun slung over his shoulder, and around him were men in various attires, each holding a gun. Their inconsistency made them look like Kurotsukidoo's lower-ranking soldiers, but they were actually meant to resemble Kurotsukidoo. In fact, these were Taira Ichiro's secret armed subordinates, simply known as the First Unit (一番隊).</p>
+<p>"Ready?" A man with brown skin, wearing a Hawaiian shirt and sunglasses, shouted, looking around. He had a submachine gun slung over his shoulder, and around him were men in various attires, each holding a gun. Their inconsistency made them look like Kurotsukidoo's lower-ranking soldiers, but they were actually meant to resemble Kurotsukidoo. In fact, these were Taira Ichiro's secret armed subordinates, simply known as the First Unit.</p>
 <p>"From now on, we only speak Chinese, understand? You scum!"</p>
 <p>"Shì de (Yes)!!" The First Unit vigorously answered the Hawaiian-shirted man's words and piled into the truck-type transport vehicle. It was clear they intended to disguise themselves as Kurotsukidoo, as the truck was an old model transport truck used only in the early 2000s. Seeing the First Unit board the transport truck in perfect order, the Hawaiian-shirted man bared his teeth and smiled. The destination is Mount Kokūzō!</p>
 <p>"Shì de!"</p>
@@ -40,7 +40,7 @@ chapter = 153
 <p>The Hawaiian-shirted man spread his Palm and raised his Hand towards where the Bullets were flying, and the Bullets stopped dead in empty space, as if blocked by Something.</p>
 <p>It was Telekinesis! Since I couldn't yet block Bullets in empty space like that, he seemed to be a Superhuman with much stronger telekinetic Ability than me.</p>
 <p>"Bang!" The Hawaiian-shirted man, with his open Hand, extended only his Index Finger and thumb to form the shape of a Pistol, then made a gesture of shooting at us. Simultaneously, the Bullets suspended in empty space flew towards Seriyutai. Their speed was fast, comparable to the speed of Bullets.</p>
-<p>"Gasp!!" Kiyona Mari deployed a flame barrier, and I also extended my hand, using my telekinesis to its fullest. Sawayanagi Tobe, after turning into steel, spread his body into a large '大' shape to protect everyone in front. Sawayanagi Seari also created a headwind to block the bullets' rhythm.</p>
+<p>"Gasp!!" Kiyona Mari deployed a flame barrier, and I also extended my hand, using my telekinesis to its fullest. Sawayanagi Tobe, after turning into steel, spread his body into a large '' shape to protect everyone in front. Sawayanagi Seari also created a headwind to block the bullets' rhythm.</p>
 <p>Fortunate, the Bullets lost power after penetrating several layers of Barriers, and dropped with a 'hududuk' sound about one meter in front of us. It took the combined superpowers of four Superhumans to barely block the Hawaiian-shirted man's telekinetic Bullets.</p>
 <p>As Kiyona Mari's flame Barrier disappeared, the Hawaiian-shirted man was no longer visible, having apparently already entered the Entrance.</p>
 <p>This task might be quite difficult. He seemed to be the first Boss-level Strong Person I had encountered since coming to this World.</p>

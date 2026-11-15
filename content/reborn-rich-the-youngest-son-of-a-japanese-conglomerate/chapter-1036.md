@@ -22,7 +22,7 @@ chapter = 1036
 <p>No matter how fast, Seizawa Shii was already watching the Ogre, so she was able to duck her Head and dodge his clothesline.</p>
 <p>Huuung!</p>
 <p>She dodged it, but felt an immense power that made the air hum. Seizawa Shii, still crouched, formed her Hand into a Hand Blade and swung it.</p>
-<p>-Seizawa Eishin-ryu (清澤 影身流) Mugenzan (夢幻斬).</p>
+<p>-Seizawa Eishin-ryu Mugenzan.</p>
 <p>"Kuh-heo-eok!"</p>
 <p>Seizawa Eishin-ryu Mugenzan was a technique that swung the Hand Blade at immense speed to cut the opponent, but the Ogre's flesh was tough, and it didn't cut at all. However, he seemed to have taken a considerable shock, clutching his belly and writhing in Pleasurable Ache.</p>
 <p>"Hmph! Nothing special...!"</p>
@@ -42,7 +42,7 @@ chapter = 1036
 <p>-No matter how sturdy and strong an opponent is, if they are human, there are unavoidable weaknesses due to their structure.</p>
 <p>Remembering Fujigasaki Rinka's first teaching, Seizawa Shii quickly moved behind the Ogre and kicked the Back of his Knees.</p>
 <p>As Seizawa Shii kicked the popliteal fossa behind his knee, the Ogre couldn't withstand the pushing power and knelt on one knee. His Body lowered, and naturally, the Ogre's Temple came within Seizawa Shii's range.</p>
-<p>-Seizawa Eishin-ryu (清澤影身流) Eiu-chi (影穿)</p>
+<p>-Seizawa Eishin-ryu Eiu-chi </p>
 <p>Seizawa Shii spun her Body and struck the Ogre's Temple with her Elbow. For an ordinary person, it would have been a blow that would dent the Temple or shatter the skull, but the Ogre endured it.</p>
 <p>But Seizawa Shii's Attack wasn't over. She continuously struck the Ogre's philtrum, Chin, and Solar Plexus-known human vital points-continuing her assault.</p>
 <p>"Kuaaaah!"</p>
@@ -63,13 +63,13 @@ chapter = 1036
 <p>Puk!</p>
 <p>She had clearly landed a solid blow, yet perhaps due to his Hair and Leather, it didn't have the same satisfying impact as before. In that case, she had no choice but to use Fujigasaki Rinka's second teaching.</p>
 <p>-If attacking the weakness doesn't break through the opponent's Defense, you must destroy the opponent's inside, not just the outside.</p>
-<p>Fujigasaki Rinka's second lesson, learned in the USA, was about the Inner Heavy Hand Method (內家重手法), which targets the opponent's interior.</p>
+<p>Fujigasaki Rinka's second lesson, learned in the USA, was about the Inner Heavy Hand Method, which targets the opponent's interior.</p>
 <p>The Reason Fujigasaki Rinka reached the pinnacle of the Martial Arts world with a Woman's Body was precisely because she was a master of the Inner Heavy Hand Method.</p>
 <p>While in the USA, Seizawa Shii learned the secrets of the Inner Heavy Hand Method from Fujigasaki Rinka, and after diligent Effort, she was able to create and add a new Martial Arts Form to the Seizawa Eishin-ryu, which previously lacked Inner Heavy Hand Method techniques.</p>
 <p>"Kyaoooh!"</p>
 <p>Huung!</p>
 <p>The werewolf's Claws swished past where her Head had been. Seizawa Shii quickly ducked to dodge, then extended her Palm. Seizawa Shii's gently extended Palm adhered to the werewolf's breast.</p>
-<p>-Seizawa Eishin-ryu (清澤 影身流) Eishinbaku (影心爆).</p>
+<p>-Seizawa Eishin-ryu Eishinbaku.</p>
 <p>The Martial Arts Form Eishinbaku, created jointly by Seizawa Shii and Fujigasaki Rinka, was a technique that unleashed Fa Jin into the opponent's heart, delivering a shock to the heart.</p>
 <p>Immediately, the werewolf's movements, which had been about to counterattack by swinging his Claws at Seizawa Shii's Attack, stopped. And blood began to drip from his eyes, nose, and Sensitive Ear.</p>
 <p>The blood, which had initially flowed drop by drop, began to pour out in a Jureureuk, a stream that perfectly matched the sound.</p>

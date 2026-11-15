@@ -53,7 +53,7 @@ chapter = 431
 <p>Arisu: No~! I'm not busy because I'm taking a break from filming! \(⩌⩊⩌)/</p>
 <p>Taira Ryuta: Well, it's like this....</p>
 <p>I roughly explained the current situation to Arisu. And I said I needed the video from the museum.</p>
-<p>Arisu: Ah! That happened? (っ•3•)っ I'll send you the video right away! But please make sure our identities stay hidden.</p>
+<p>Arisu: Ah! That happened? (•3•) I'll send you the video right away! But please make sure our identities stay hidden.</p>
 <p>Taira Ryuta: Okay. Of course. Phantom Thief François can't have their identity revealed because of this, so I'll only cut out that situation.</p>
 <p>I didn't really know how to edit videos, but I could leave the video cutting to Eve, so I wasn't worried.</p>
 <p>Arisu: Ryuta, I miss you so much~! Come visit our filming location sometime!</p>
@@ -64,7 +64,7 @@ chapter = 431
 <p>Arisu: You miss me? You should have said so sooner! Wait a minute~!</p>
 <p>Arisu: Photo</p>
 <p>Arisu quickly sent me a picture at my request. Arisu was in a room, wearing short denim pants, shirtless, with a slightly flushed face, smiling as she took a picture and sent it to me. Hmm, she still has a good body like a model. Her hair was cut short, probably because of the movie shoot. It suits her in its own way.</p>
-<p>Arisu: You can see the bottom in person next week...! (♡ヮ♡)</p>
+<p>Arisu: You can see the bottom in person next week...! </p>
 <p>Taira Ryuta: OkayWWW I'll fully appreciate it, so wait for me.</p>
 <p>Arisu: Ahaha! 〜(￣▽￣〜) What do you mean by fully appreciate it~♥</p>
 <p>I was on LINE with Arisu for a while and received the video file Arisu sent. I took my eyes off my phone and raised my head, and the three of them, who were supposed to be having a strategy meeting, were staring at me intently.</p>

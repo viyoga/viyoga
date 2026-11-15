@@ -49,7 +49,7 @@ chapter = 116
 <p>The tail asked her to wait and made a phone call somewhere. It was probably the superior who wanted to see Mimata Chieri. After a brief phone call, the tail looked at Mimata Chieri and opened his mouth.</p>
 <p>,They want to meet at a nearby cafe. Please follow me."</p>
 <p>,Sure. I hope the story ends quickly. I'm busy too."</p>
-<p>Mimata Chieri followed the path to a café called Kokage (木陰). As the name suggests, the café was a wooden building. When she got there, the person in charge seemed to have already arrived and was sitting and drinking tea.</p>
+<p>Mimata Chieri followed the path to a café called Kokage. As the name suggests, the café was a wooden building. When she got there, the person in charge seemed to have already arrived and was sitting and drinking tea.</p>
 <p>,Hello?"</p>
 <p>,Yes, hello."</p>
 <p>,The tea here is very good. Would you like a cup?"</p>

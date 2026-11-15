@@ -52,7 +52,7 @@ chapter = 672
 <p>In fact, the one I was aiming for was the head of the Red Revolution Front leader. Even in the game, it varied depending on the progress, but after the New Nanjing event, it boasted a huge bounty compared to the easy difficulty. So it was rumored to be a super honey request. Of course, that easy difficulty was on the premise that you knew the location.</p>
 <p>I still didn't know the exact location, but I would be able to find out where the leader of the Red Revolution Front was around January this winter. It was discovered by the efforts of players who traveled around to claim this huge bounty.</p>
 <p>,Don't do such dangerous requests.</p>
-<p>I said to Seizawa Shii, adding ,because I have to do it, in my mind. Seizawa Shii chuckled and opened her mouth.</p>
+<p>I said to Seizawa Shii, adding,because I have to do it, in my mind. Seizawa Shii chuckled and opened her mouth.</p>
 <p>,Ryuta-cchi, don't worry, I'll hardly ever leave Miyashi until I graduate. I won't do anything too dangerous.</p>
 <p>Seizawa Shii, thinking I was worried, blushed slightly and seemed happy. Of course, I'm worried, but.... This time I was worried about money(?).</p>
 <p>After talking with Seizawa Shii for a little longer, someone knocks on the window. Who is it? When I checked, it was Minamoto Risa. It seemed she was done talking with Eve.</p>
@@ -70,7 +70,7 @@ chapter = 672
 <p>The three of us talked and headed towards St. Francis Girls' Academy. We arrived at Seizawa Shii's house first, and Seizawa Shii went home first. She seemed to want to go in quickly to try on the new clothes she received from Minamoto Risa.</p>
 <p>Now it was just Minamoto Risa and me, and even though my house was closer, I said I would take her to the Minamoto family's mansion since it was night. A moment of silence.</p>
 <p>,You....</p>
-<p>Minamoto Risa broke the silence of the night and called me. But after saying ,you,, she was making a troubled expression. It was probably because of what she talked about with Eve.</p>
+<p>Minamoto Risa broke the silence of the night and called me. But after saying,you,, she was making a troubled expression. It was probably because of what she talked about with Eve.</p>
 <p>,Huh? What's wrong?</p>
 <p>,Ah, no.... We decided to go on a date after this festival, right? When should we go?</p>
 <p>It definitely wasn't about the date, it felt like she was changing the subject. But if I forced her to talk, it would be even more counterproductive, so I pretended not to know and opened my mouth.</p>

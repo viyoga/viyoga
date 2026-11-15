@@ -7,7 +7,7 @@ chapter = 226
 
 <p>This time, I was able to acquire the items without being attacked like at the Energy-Link Industrial Company factory yesterday. I'm currently checking the items before heading back to the mansion.</p>
 <p>First, I checked the item I obtained from the lab of the defunct defense company, Fob Corp.</p>
-<p>◆Prototype Mithril Warhead Bullet Pack [Rare Consumable]</p>
+<p>◆Prototype Mithril Warhead Bullet Pack "Rare Consumable"</p>
 <p>Mithril rifle bullets manufactured by Fob Corp. It was not commercialized due to its high price. Fob Corp went bankrupt due to poor financial conditions after lobbying excessively to have the U.S. military adopt the mithril warhead.</p>
 <p>Since the discovery of mithril and its excellent performance, there have always been attempts to replace the lead warheads used until now. However, the attempts quickly disappeared because it was much more expensive than lead bullets and more difficult to manufacture. It was better to create protective armor that could stop lead bullets instead.</p>
 <p>Along with the mithril warhead, what I obtained from the Fob Corp lab was data researching the physical properties of mithril. In *MegaCorp's Youngest Son*, researching this research data and the prototype mithril warhead together resulted in mithril-coated bullets, but I don't know what will happen in this world.</p>
@@ -16,7 +16,7 @@ chapter = 226
 <p>Next was a circuit chip that was stuck in the warehouse of a lab at a company called Odin Technology. It was a prototype body modification control circuit chip. Odin Technology is still a thriving company, so it was difficult to infiltrate easily, but the item I wanted was in the most remote warehouse where defective products were stored, so it was relatively easy to infiltrate. This warehouse didn't have any resident security, making it even easier.</p>
 <p>Odin Technology considered this circuit chip, which didn't show the desired efficiency, to be a defective product and left it in the warehouse, but in reality, it was a chip that greatly increased the power of superpowers when used with the appropriate Centipede Spine.</p>
 <p>Actually, it was defective. Odin Technology wanted a general body modification control circuit chip. This defective prototype control circuit chip was created by a combination of several coincidences.</p>
-<p>◆Odin Technology 0001 Prototype Control Circuit Chip [Epic Modification Part]</p>
+<p>◆Odin Technology 0001 Prototype Control Circuit Chip "Epic Modification Part"</p>
 <p>Although born by mistake, Odin Technology accidentally completed a part that amplifies the abilities of espers. But no one knows that fact, so it's been abandoned.</p>
 <p>The good thing about this circuit is that Odin Technology made it, but they thought it was defective, so they didn't even apply for a patent. There was a USB with data in the compartment where the circuit chip was in the warehouse, so there were blueprints and such, so it would be easier to absorb it into our technology.</p>
 <p>Soon, an event will be held where espers will be revealed to the public, so doing business with these espers will emerge as a new blue ocean.</p>

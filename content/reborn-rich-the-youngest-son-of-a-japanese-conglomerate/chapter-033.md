@@ -5,7 +5,7 @@ weight = 33
 chapter = 33
 +++
 
-<p>◆Spray-Type Rapid Sleeping Potion [Common Item 4/10]</p>
+<p>◆Spray-Type Rapid Sleeping Potion "Common Item 4/10"</p>
 <p>A sleeping potion that can instantly put the target to sleep. The success rate varies depending on the average value of the target's resistance and will.</p>
 <p>Sleeping time is around 1 hour.</p>
 <p>After eating the breakfast that Shinoe Misano-ssi prepared and returning home, I looked at Kurakake Kuma's spray. Seeing the explanation window pop up, it's definitely an item that exists in the game. I know where to get this. It was an item sold by the Shadow Merchant, a back-alley merchant union in the world.</p>
@@ -63,7 +63,7 @@ chapter = 33
 <p>"Yes, I'll go in now, Mother."</p>
 <p>"Okay. Go in."</p>
 <p>The phone rang as I was opening the door after the story was over. I went into the room and turned on the phone, and an alarm came from the Shadow Merchant app.</p>
-<p>-Since KURA KUMA can no longer use the Shadow Merchant as a recommender, all points have been transferred to KURA KUMA's recommended 竜太-nim.</p>
+<p>-Since KURA KUMA can no longer use the Shadow Merchant as a recommender, all points have been transferred to KURA KUMA's recommended -nim.</p>
 <p>Oh, by the way, Ryuta was my ID. Kurakake Kuma must have been caught by the disciplinary team. I heard that the Shadow Merchant is connected to major companies in each country, and it seems true that Kurakake Kuma's points were transferred to me as soon as he was caught.</p>
 <p>For reference, points are the currency unit used in the Shadow Merchant, a global secret app, and it converts the currency of each country into points when you charge it. When doing auctions, it's confusing to say $100 here! and then ₩122,000 next to it! So they integrated it into points. Should I call it the most successful virtual currency?</p>
 <p>The value of the points was linked to the dollar. In other words, 1 dollar was 1 point. Let's see, how many points did that bastard Kurakake Kuma collect?</p>

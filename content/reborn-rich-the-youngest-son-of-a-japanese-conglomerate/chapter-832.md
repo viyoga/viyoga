@@ -24,7 +24,7 @@ chapter = 832
 <p>In the dark gymnasium, Genba Kiyohira sat alone.</p>
 <p>"It's tomorrow...."</p>
 <p>Genba Kiyohira muttered, looking at the wall. What Genba Kiyohira was looking at was the UMC Unlimited Class Champion Match poster stuck on the gymnasium wall. The poster, showing the current Champion Hunter Herrera and himself, Genba Kiyohira, facing each other, was affixed, announcing tomorrow's Date.</p>
-<p>Genba Kiyohira recalled his first meeting with Takakusaki Gengo, the Master of Anyaji, who was known as the Demonic Fist (魔拳) in the martial arts world.</p>
+<p>Genba Kiyohira recalled his first meeting with Takakusaki Gengo, the Master of Anyaji, who was known as the Demonic Fist in the martial arts world.</p>
 <p>Several months ago, after suffering a crushing Defeat in his original Weight class, welterweight, he was in the player's waiting room, blaming himself.</p>
 <p>At the advice of his friend, Taira Ryuta, the problem was that he had collected and learned Fist Technique books from a place called Am-sang. Due to the sudden Style change, he ended up in a half-baked Situation, becoming weaker than before.</p>
 <p>While he was blaming himself alone, suddenly the door opened and a man entered.</p>

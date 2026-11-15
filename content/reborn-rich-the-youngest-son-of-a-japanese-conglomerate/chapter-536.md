@@ -15,9 +15,9 @@ chapter = 536
 <p>,I don't know the exact diagnosis, but it's a temperature allergy. If the temperature rises above a certain point, she loses consciousness and complains of severe side effects, so she can't handle it."</p>
 <p>Asada Fukushi, who was touching his daughter's cheek with a worried expression, answered my question. A temperature allergy... From what I heard, it seemed like high temperatures above a certain level were fatal.</p>
 <p>I wondered if it was some kind of status ailment, so I put on the glasses from the ruins and looked at Asada Ei.</p>
-<p>◆Name: Asada Ei (浅田 永) Lv8</p>
-<p>Strength: 6 Agility: 10 Stamina: 9(-2) Resistance: 8(-2) Recovery: 5 Nerves: 10 Appearance: 14</p>
-<p>Intelligence: 8 Knowledge: 10 Concentration: 8(-2) Willpower: 8(-2) Creativity: 7 Charm: 12 Judgment: 8</p>
+<p>◆Name: Asada Ei Lv8</p>
+<p>Strength: 6 Agility: 10 Stamina: 9(2) Resistance: 8(2) Recovery: 5 Nerves: 10 Appearance: 14</p>
+<p>Intelligence: 8 Knowledge: 10 Concentration: 8(2) Willpower: 8(2) Creativity: 7 Charm: 12 Judgment: 8</p>
 <p>Luck: 7 Cold Resistance: 1</p>
 <p>◆Information Manipulation (Rare Skill Lv9): Can manipulate information through various schemes.</p>
 <p>◆Information Gathering (Rare Skill Lv8): The ability to obtain desired information.</p>
@@ -25,12 +25,12 @@ chapter = 536
 <p>◆Language - English (Common Skill LV9)</p>
 <p>◆Trap Installation and Disarming (Rare Skill Lv8): Installs and disarms traps, snares, and mines. The higher the skill level, the faster the installation and disarming speed without being caught by the opponent.</p>
 <p>◆Trap Detection (Rare Skill Lv5): Detects the presence of traps in the surrounding area.</p>
-<p>◆Owl's Eyes [Rare+ Trait]: Can see through the darkness and can see far away by concentrating.</p>
-<p>◆Stealthy Movement [Rare Trait]: Moves without being noticed by people around you. Footstep sounds are reduced, and movement speed is increased. The darker it is, the more you blend into the environment, and the lower the chance of being detected.</p>
-<p>◆Inquisitor's Sense [Epic+ Trait]: Can instinctively detect the opponent's lies. If you discern the opponent's lie, all physical stats increase by 1 during combat with that opponent. The maximum value of Judgment and Concentration stats increases by 1.</p>
+<p>◆Owl's Eyes "Rare+ Trait": Can see through the darkness and can see far away by concentrating.</p>
+<p>◆Stealthy Movement "Rare Trait": Moves without being noticed by people around you. Footstep sounds are reduced, and movement speed is increased. The darker it is, the more you blend into the environment, and the lower the chance of being detected.</p>
+<p>◆Inquisitor's Sense "Epic+ Trait": Can instinctively detect the opponent's lies. If you discern the opponent's lie, all physical stats increase by 1 during combat with that opponent. The maximum value of Judgment and Concentration stats increases by 1.</p>
 <p>◆Master of Trap Installation: Becomes a master at installing traps.</p>
-<p>◇Snow Woman's Bloodline [Legacy Bloodline]: Gains the special stat 'Cold Resistance'. Can increase the Cold Resistance stat by absorbing surrounding cold air, and the higher the maximum Cold Resistance, the better you can withstand the heat. The maximum value of the Cold Resistance stat increases by 5, and in cold places, 50 to 80 percent of the Cold Resistance stat is added to all physical stats depending on the temperature.</p>
-<p>However, in hot places, Stamina, Resistance, Willpower, and Concentration stats are reduced by 2 to 6 depending on the temperature. This debuff is indicated as [High Temperature]. If the [High Temperature] debuff persists for a long time, you will faint.</p>
+<p>◇Snow Woman's Bloodline "Legacy Bloodline": Gains the special stat 'Cold Resistance'. Can increase the Cold Resistance stat by absorbing surrounding cold air, and the higher the maximum Cold Resistance, the better you can withstand the heat. The maximum value of the Cold Resistance stat increases by 5, and in cold places, 50 to 80 percent of the Cold Resistance stat is added to all physical stats depending on the temperature.</p>
+<p>However, in hot places, Stamina, Resistance, Willpower, and Concentration stats are reduced by 2 to 6 depending on the temperature. This debuff is indicated as "High Temperature". If the "High Temperature" debuff persists for a long time, you will faint.</p>
 <p>These aren't the stats of an ordinary woman? There are so many people around with flashy stats that these stats seem a bit low, but they were still good enough to be used as troops in a game. Is it because her father is in the intelligence unit? Or did she become a soldier following her father?</p>
 <p>,Did you serve in the Self-Defense Forces like Asada-ssi?"</p>
 <p>,Yes, she was in the same intelligence unit as I was. She didn't work for many years, but she suddenly collapsed and was discharged seven years ago."</p>

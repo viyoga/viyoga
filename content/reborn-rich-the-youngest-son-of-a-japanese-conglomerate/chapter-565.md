@@ -25,7 +25,7 @@ chapter = 565
 <p>The bodyguards standing next to him were surprised by Kurayamata Kirie's sudden threat and tried to rush at her, but in her other hand, the one not holding the hand axe, she was already holding a Micro Uzi. The bodyguards, who were just burly guys with weapons, were helpless against the suddenly appearing gun and raised their hands.</p>
 <p>A Micro Uzi, she uses quite an old-fashioned gun. Recently, it's been a gun that terrorist groups use quite often... Ah, she was the leader of a terrorist group.</p>
 <p>,Mister, state your name."</p>
-<p>, Itsu Sadao (衣都 定雄)... P-please, spare me.</p>
+<p>, Itsu Sadao... P-please, spare me.</p>
 <p>,You're from the Itsu family. A protest will be sent in the name of the Kurayamata family, so be aware of that."</p>
 <p>,Y, you're from the Kurayamata family...? I, I'm sorry...!"</p>
 <p>Tang! Tang! Pat!</p>
@@ -46,7 +46,7 @@ chapter = 565
 <p>I was led by Kurayamata Kirie's hand to a hotel in Kofu city.</p>
 <p>###</p>
 <p>,We have news that Ryuta-dono successfully completed the PMC exam."</p>
-<p>Taira Danjo's chief secretary, Fumimoto Takayuki, reported to Taira Danjo. Taira Danjo wore a strange expression, as if he was both pleased and uncomfortable, and nodded with a ,ahem...!"</p>
+<p>Taira Danjo's chief secretary, Fumimoto Takayuki, reported to Taira Danjo. Taira Danjo wore a strange expression, as if he was both pleased and uncomfortable, and nodded with a,ahem...!"</p>
 <p>,So, will that guy pass?"</p>
 <p>,After checking with the PMC certification company, his average score is 86 points, which is within the passing range."</p>
 <p>,Hmph! Nasty guy...!"</p>
@@ -88,7 +88,7 @@ chapter = 565
 <p>Someone approached a researcher who was looking at the data screens on the monitors that were passing by mindlessly and asked. It was a man whose identity was not revealed because he was wearing a black mask, and the researcher nodded at the man's question and opened his mouth.</p>
 <p>,It should be done in a few days. We've almost completed the work of breaking through the firewall, and the method of controlling and stimulating the human central nervous system has already been completed."</p>
 <p>The masked man nodded at the researcher's answer and patted the researcher's shoulder as if to say he was doing well.</p>
-<p>,If the ,'thing' is completed, we need to test it..."</p>
+<p>,If the,'thing' is completed, we need to test it..."</p>
 <p>The man looked at a map on one wall of the dark room. The map was of Northeast Asia, with Korea, China, and Japan drawn on it.</p>
 <p>,Hehehe... Yes, that place would be good."</p>
 <p>The man muttered with an ominous laugh.</p>

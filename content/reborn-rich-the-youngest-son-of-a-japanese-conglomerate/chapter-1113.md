@@ -17,7 +17,7 @@ chapter = 1113
 <p>My recruitment of Alik, who was like a mid-boss, or Dang So-hwa, was a good example of that. Even if Trait acquisition through Level up was random, as long as there was a destiny line of being a mid-boss, their lower limit was quite high, and they always had innate Traits.</p>
 <p>Excluding such special Cases, I couldn't know the potential of the others, so I was surprised that Linling found an Ability User who could discern potential among those she rescued and captured as Prisoners this time.</p>
 <p>"Who is that Person, and what is their Ability Level?"</p>
-<p>She is a woman named Miyazaki Kirara (宮崎 煌), and while she may not know all the details, she says she can sense it by color when using her ability. The closer it is to gold, the higher the potential, and the closer it is to black, the lower the potential she feels.</p>
+<p>She is a woman named Miyazaki Kirara, and while she may not know all the details, she says she can sense it by color when using her ability. The closer it is to gold, the higher the potential, and the closer it is to black, the lower the potential she feels.</p>
 <p>It's not like looking at a Status Window, but an Ability to see by Color.... It didn't seem bad.</p>
 <p>"How much can that Ability be used?"</p>
 <p>"She says it's a Stack-type, and it can be charged once a day. There's no maximum, so if she accumulates it for 10 days, she can use the Ability ten times, and after a day passes, it charges once again, and so on."</p>

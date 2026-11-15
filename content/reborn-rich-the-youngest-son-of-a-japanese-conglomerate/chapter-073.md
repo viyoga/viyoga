@@ -62,7 +62,7 @@ chapter = 73
 <p>"Mentor-nim~! We've been waiting!"</p>
 <p>"The other teams didn't have a graduation party as fancy as ours~."</p>
 <p>Being surrounded by fourteen people in an instant, it felt like the fragrance of female bodies was wafting around.</p>
-<p>Ah, I can't get an erection yet. Hold on, my Johnson....</p>
+<p>Ah, I can't get an erection yet. Hold on, my dick....</p>
 <p>"Shall we have dinner at the hotel buffet first?"</p>
 <p>"""Yes~!"""</p>
 <p>Everyone answers my question with one heart. We're going to run like crazy from tonight until tomorrow, so everyone needs to fully recharge their energy.</p>

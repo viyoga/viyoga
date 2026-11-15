@@ -21,9 +21,9 @@ chapter = 956
 <p>What exactly could be the Purpose of such a cunning divine Existence, capable of calculating all these situations? They couldn't Guess what that Purpose was at all, but if that Purpose was something bad for humans, could they really stop this god? Because that thought came to mind.</p>
 <p>"Ahahaha. Don't worry. The Purpose is nothing special."</p>
 <p>Tsukiyo laughed loudly, looking at the two who were tense. And she waved her Hand, telling them not to worry, but still, the two couldn't relax their Taut Tension. Because she might say, "Don't worry, my Purpose is just to be offered about 100,000 lives~!" From the start, the standards of that Existence and human standards could not be the same.</p>
-<p>"Even if I say it's nothing special, you’re not relaxing your taut tension. You there, if you’re a Shrine Maiden, you’d understand well, right? You know well about the 'Divinity’s Division (神格の分化)', don’t you?"</p>
+<p>"Even if I say it's nothing special, you’re not relaxing your taut tension. You there, if you’re a Shrine Maiden, you’d understand well, right? You know well about the 'Divinity’s Division ', don’t you?"</p>
 <p>Tsukiyo pointed at Seido Omina and spoke. Seido Omina nodded her Head at Tsukiyo's Words.</p>
-<p>"As generations pass, the role of a god changes, or when a god ascends to a higher rank, isn't it when one 'Divinity' (位: a unit for counting gods) becomes two Divinities?" "You can roughly say something similar happened to me. The Kids who originally served me are now serving another god, so I came to meet them."</p>
+<p>"As generations pass, the role of a god changes, or when a god ascends to a higher rank, isn't it when one 'Divinity' (a unit for counting gods) becomes two Divinities?" "You can roughly say something similar happened to me. The Kids who originally served me are now serving another god, so I came to meet them."</p>
 <p>Seido Omina immediately understood what was happening from Tsukiyo's Explanation. The Solution to this Matter was simple. However, as an Investigator, Seido Omina couldn't make a Decision on what to do, so consultation was needed.</p>
 <p>"Can the two of us talk for a moment?" "Anytime."</p>
 <p>Seido Omina and Kahei Jingoro came Outside the House for a moment. Kahei Jingoro was listening, but because he hadn't fully understood The Situation, he looked at Seido Omina as if telling her to explain.</p>
@@ -45,9 +45,9 @@ chapter = 956
 <p>The two, having received permission from above, went Inside the House again. Inside the House was still full of Blood Scent, but because they had already received permission for the Solution, there wasn't the same level of Tension as when they first entered.</p>
 <p>"Th-then, who should I call?" "If you call one person who is with Konoka of the Urabe Family to me, the Matter will be resolved well."</p>
 <p>Ah, it's the Urabe Family. Seido Omina heard the name Urabe and inwardly let out a Sigh of Relief. If they brought Shrine Maidens or priests and said they had no Money to build a shrine, they would have to endure the anger of this unknown god named Tsukiyo, but if it was the Urabe Family, they would have the Money to build a new shrine.</p>
-<p>For reference, Seido Omina, unlike the Urabe faction that serves Susanoo, was a shrine maiden who served Tsukuyomi (月読).</p>
-<p>'By the way, if the name were Tsukiyo (月夜), it would suit us well.'</p>
-<p>Of course, it was the name of the Body possessed by this unknown god, but Seido Omina felt a bit regretful. She thought that if it had the same 'Moon' (月) character, it would be more fitting for the Tsukuyomi side. At the same time, she found the contact information of a high-ranking person from the Urabe side on her phone and made a call.</p>
+<p>For reference, Seido Omina, unlike the Urabe faction that serves Susanoo, was a shrine maiden who served Tsukuyomi.</p>
+<p>'By the way, if the name were Tsukiyo, it would suit us well.'</p>
+<p>Of course, it was the name of the Body possessed by this unknown god, but Seido Omina felt a bit regretful. She thought that if it had the same 'Moon' character, it would be more fitting for the Tsukuyomi side. At the same time, she found the contact information of a high-ranking person from the Urabe side on her phone and made a call.</p>
 <p>"Hello? Yes, I apologize for the late hour, but...."</p>
 <p>Seido Omina roughly informed them of what had happened so far. Due to the nature of the Work that required solving various Paranormal Phenomenon, the Paranormal Phenomenon Management Bureau maintained a quite strong Relationship with the shrine side, so she was able to explain this Incident well without hiding anything.</p>
 <p>"Oh, is that so? Thank you...!"</p>

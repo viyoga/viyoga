@@ -11,7 +11,7 @@ chapter = 462
 <p>Kujo Kina and Seizawa Shii left (strangely, they both seemed to like it and left wearing their maid outfits). I was left alone. Still, it's a relief that I don't have to clean up all by myself because I made them do all the cleaning as punishment.</p>
 <p>,Then, shall I check this out?"</p>
 <p>I stared at the gray onahole of the Daughter of the Abyss that caused a commotion among the students. A translucent information window appeared above the gray body.</p>
-<p>◆Husband's Disposable Self-Pleasuring Device of the Daughter of the Abyss [Legendary Consumable]: A masturbation tool created by the Daughter of the Abyss by tearing off a part of the abyss and making it in the same shape as her own pussy.</p>
+<p>◆Husband's Disposable Self-Pleasuring Device of the Daughter of the Abyss "Legendary Consumable": A masturbation tool created by the Daughter of the Abyss by tearing off a part of the abyss and making it in the same shape as her own pussy.</p>
 <p>It is connected to the Daughter of the Abyss, giving you a fantastic feeling when you masturbate.</p>
 <p>If you ejaculate semen inside the masturbation tool, the tool melts and is absorbed into your body, increasing the limit of all physical stats by 1 and the limit of abyss stats by 2.</p>
 <p>So, it's a super good onahole, and if I cum in it, the limit increases, right? Oh, nice! Stats can be obtained just by leveling up, but limit increases are usually impossible to obtain, so in the later stages, it's better than an elixir that raises stats. In the early stages, elixirs that raise stats are better because the stats are low.</p>

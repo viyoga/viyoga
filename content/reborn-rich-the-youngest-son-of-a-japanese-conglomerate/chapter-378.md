@@ -52,13 +52,13 @@ chapter = 378
 <p>I came to the Miyashi Dark Merchant Guild branch because I had ordered something in advance as a birthday present for Han Yu-gyeong last week. I could have had it delivered to my house, but I was away for the picnic, so the Dark Merchant Guild branch was the perfect place to store expensive items. I sent it to the Dark Merchant Guild branch instead of my house.</p>
 <p>"Yes, it's here~!"</p>
 <p>Eve handed me a box as soon as I asked, as if she had prepared it in advance. I received the box and opened it right away. Inside the box was a bracelet. When I concentrated a little, a translucent window appeared, showing the item's information.</p>
-<p>◆Star Cluster Bracelet [Unique Bracelet]</p>
+<p>◆Star Cluster Bracelet "Unique Bracelet"</p>
 <p>A bracelet made of ore containing starlight. If worn by the rightful owner, they can possess the power of starlight.</p>
-<p>○Only the owner of  can enjoy the item options.</p>
+<p>○Only the owner of can enjoy the item options.</p>
 <p>●Star light aura is activated when worn.</p>
 <p>└Star light aura: Magic damage is amplified, and magic damage is added upon attack.</p>
 <p>●All mental stats increase by 1.</p>
-<p>●You can use the skill . It can be used up to five times in a row and is charged once per hour. (5/5)</p>
+<p>●You can use the skill. It can be used up to five times in a row and is charged once per hour. (5/5)</p>
 <p>└Meteor Strike: You can blink to a distance within 100 meters.</p>
 <p>The Star Cluster Bracelet was one of the best items for a character who took the Star Magic tree. Each option was crazy, and the aura that strengthened not only herself but also her companions was perfect for Han Yu-gyeong, who had summons.</p>
 <p>And mental all-stats +1 was just a reliable option like a hearty rice soup. Especially for Han Yu-gyeong, who was a magic and summon-oriented character, it was an even better option. Since there were many stats to use in the mental stat area, mental all-stats +1 was almost the same as leveling up 3 times.</p>

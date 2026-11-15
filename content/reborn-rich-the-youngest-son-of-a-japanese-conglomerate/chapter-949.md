@@ -6,18 +6,18 @@ chapter = 949
 +++
 
 <p>As soon as I finished Contact with Minamoto Risa, another Contact came immediately after, this time from Arisu's LINE. Did everyone make an appointment to contact by text message at similar times? They're contacting me in order.</p>
-<p>-Arisu: Ryuta~! I think I'll be entering Japan soon G͜͡o͜͡o͜͡d͜͡( ˊᵕˋ )੭ ੈ❤︎ In about a week??? Let's meet then~!</p>
+<p>-Arisu: Ryuta~! I think I'll be entering Japan soon G͜͡o͜͡o͜͡d͜͡(ˊᵕˋ)੭ ੈ❤︎ In about a week??? Let's meet then~!</p>
 <p>Arisu had also gained quite a lot of popularity through movies and advertisements, so she had been spending a very busy daily life in the USA while I was at St. Francis Girls' academy. On top of that, it was said that her Fame had risen much higher after it became known that she was the Young Lady of a famous Luxury Brand company and that her Older Brother, Alex Fitzgerald, was a top popular American football prospect in the USA. She had recently grumbled a bit to me on the phone about how difficult that Fame was, but seeing that she's coming to Japan, it seems she's significantly reduced her Work.</p>
 <p>-Ryuta: Shall we? Is there anything Arisu wants to do or eat?</p>
 <p>-Arisu: (՞⸝⸝ᵒ̴̶̷᷄꒳ᵒ̴̶̷᷅⸝⸝՞)💕 Oh~ why ask such a thing~! I just want to stick close to Ryuta haha (๑✪ᆺ✪๑) What I want to eat is.... I want to eat Ryuta's cock ＼(☆o◎)／</p>
 <p>Arisu, like Minamoto Risa and Han Yu-gyeong, also wanted my Body. Of course, I didn't dislike it either, but the similar Attitude of the three of them is a bit scary....</p>
-<p>-Arisu: Oh! And I've prepared a gift too, so look forward to it! ( &gt;＿&lt; )♡</p>
+<p>-Arisu: Oh! And I've prepared a gift too, so look forward to it! (&gt;＿&lt)♡</p>
 <p>-Ryuta: A gift? What kind of gift suddenly?</p>
 <p>If it's a gift that Arisu, who is Phantom Thief François, tells me to look forward to, it must be quite a good gift. Then should I also prepare a gift to give to Arisu...?</p>
 <p>-Arisu: It's because something came up to give~ You might even be surprised?</p>
 <p>On the contrary, seeing her make such a Fuss like this, it seems the gift isn't something material like 'my kiss~!' but rather something intangible and emotional. Of course, that wouldn't be bad either.</p>
 <p>-Ryuta: Understood haha. I'll look forward to it. Then should I also prepare a gift for Arisu?</p>
-<p>-Arisu: No~ I didn't say I prepared Ryuta's gift because I wanted my gift.... Still, if you give it, I'll thankfully receive it (๑ - ̫ • )♡♬</p>
+<p>-Arisu: No~ I didn't say I prepared Ryuta's gift because I wanted my gift.... Still, if you give it, I'll thankfully receive it (๑ - ̫ •)♡♬</p>
 <p>Are you asking for a gift or not? Since things have come to this, I should pick out some gifts from the dark market App for the people who suffered in the Anya-ji incident this time, and for Arisu, Han Yu-gyeong, Minamoto Risa, and my other Women.</p>
 <p>Japan Paranormal Phenomenon Management Bureau. Director-General's Office.</p>
 <p>In the Director-General's Office were Iwanoh Sadakake, the Director-General of the Japan Paranormal Phenomenon Management Bureau, and standing on the Opposite Side, Araimachi Giun, Superintendent General, the Criminal Affairs Bureau Director-General of the Police Agency.</p>

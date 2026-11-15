@@ -12,17 +12,17 @@ chapter = 227
 <p>"Hmm, if I win, I get something Erotic from Ryuta, and if Ryuta wins, I do something for him, Heh."</p>
 <p>What, no matter who wins, it's Sex in the end. Not a bad Bet. Still, it's better to win a Bet, so if I pick the Item I had in mind to get from here, I should win.</p>
 <p>Leaving Arisu, who was already looking around, I focused on examining the Items here. There are quite a lot of Items? As I focused, translucent windows appeared everywhere. Hmm.... But even with many translucent windows appearing, there wasn't much that was useful. For example, if you look at a Bracelet like that one over there....</p>
-<p>◆L̵̢̟̦͑̑̀͠o̵̡̗͎̘̽̑͠h̴̘̀̈͜͠a̸̡̩̰͉̋̎͡l҉̧̛͉͗̏̄ą̵̝͛͊͠n̴͔̍͆͋͢͝t̴̢̫̦҇͊e҉̛̜̙̜̅͜'̸̳̑͜͞'s Bracelet [Unique Accessory - Curse]</p>
+<p>◆L̵̢̟̦͑̑̀͠o̵̡̗͎̘̽̑͠h̴̘̀̈͜͠a̸̡̩̰͉̋̎͡l҉̧̛͉͗̏̄ą̵̝͛͊͠n̴͔̍͆͋͢͝t̴̢̫̦҇͊e҉̛̜̙̜̅͜'̸̳̑͜͞'s Bracelet "Unique Accessory - Curse"</p>
 <p>A Ring worn by L̵̢̟̦͑̑̀͠o̵̡̗͎̘̽̑͠h̴̘̀̈͜͠a̸̡̩̰͉̋̎͡l҉̧̛͉͗̏̄ą̵̝͛͊͠n̴͔̍͆͋͢͝t̴̢̫̦҇͊e҉̛̜̙̜̅͜'̸̳̑͜͞. Because it was too large to be considered a Ring, humans regarded it as a Bracelet. It increases Knowledge by 10 and allows one to know L̵̢̟̦͑̑̀͠o̵̡̗͎̘̽̑͠h̴̘̀̈͜͠a̸̡̩̰͉̋̎͡l҉̧̛͉͗̏̄ą̵̝͛͊͠n̴͔̍͆͋͢͝t̴̢̫̦҇͊e҉̛̜̙̜̅͜'̸̳̑͜͞'s secret Order.</p>
 <p>Each time the related Knowledge and Order are used, one Finger disappears. When all Fingers disappear, one is devoured by the Dimension where L̵̢̟̦͑̑̀͠o̵̡̗͎̘̽̑͠h̴̘̀̈͜͠a̸̡̩̰͉̋̎͡l҉̧̛͉͗̏̄ą̵̝͛͊͠n̴͔̍͆͋͢͝t̴̢̫̦҇͊e҉̛̜̙̜̅͜'̸̳̑͜͞ resides.</p>
 <p>In this way, they granted immense Abilities, but the Price was also immense. No matter how many there were, they couldn't be used due to their Side Effects.</p>
 <p>Still, this Necklace I intended to purchase with the Knowledge I gained from the game was a quite decent Item with no Side Effects. Although it was a single-use Item, it was useful. Especially for Arisu.</p>
-<p>◆Necklace of Smoke [Rare Consumable]</p>
+<p>◆Necklace of Smoke "Rare Consumable"</p>
 <p>The gray pearl of the Necklace was made by collecting smoke. When thrown, the pearl breaks, filling the surroundings with smoke, helping one to easily escape.</p>
 <p>The Necklace itself had a modest Feeling. A lustrous silver-gray pearl hung from a thin Gold chain. As the description stated, it was for escape. Even if Arisu were to get caught during her phantom thief activities, this would allow her to escape once.</p>
 <p>"This is what I chose." I held out the Necklace of Smoke to Arisu. Arisu was still looking around the Store. Seeing that she wasn't choosing the numerous high-grade but dangerous Items, it seemed Arisu's Ability was at a Level where she could comprehensively review such Dangers. I should check it later with the Glasses from the Ruins. I'm incredibly curious what Trait it is.</p>
 <p>"Hmm.... I'll take this." Arisu held out something like a Brooch with a slightly unconfident Attitude. It was a bronze Brooch shaped like octopus tentacles coiled together, which some might find a little grotesque.</p>
-<p>◆Grace of the Deep Sea [Unique Accessory] A Brooch containing the Aura of the deep sea. Abyss Stats increase by 1, and luck increases in the Sea.</p>
+<p>◆Grace of the Deep Sea "Unique Accessory" A Brooch containing the Aura of the deep sea. Abyss Stats increase by 1, and luck increases in the Sea.</p>
 <p>Oh, a Brooch that gives Stats and, though conditional, even increases the rarely obtained luck! It seems Arisu won this Bet. The increase in Abyss Stats means that if I wear this Brooch, my Stats would become Abyss 16, Resistance 16, Will 17, which is close to the Side Effect threshold for Abyss Stats, making it a bit awkward, but since Abyss isn't higher yet, I probably don't need to worry about Side Effects for now.</p>
 <p>"Arisu won. This looks much better."</p>
 <p>"How do you know that, Ryuta? What you chose looks good too?"</p>

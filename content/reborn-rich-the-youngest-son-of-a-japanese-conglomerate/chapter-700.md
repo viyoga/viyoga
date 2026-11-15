@@ -16,7 +16,7 @@ chapter = 700
 <p>Following the guide's instructions, they went outside, where a multi-seater SUV was parked. It was an old-looking vehicle, and judging by the gas exhaust, it seemed to be a gasoline car, which is rare these days.</p>
 <p>"Haha. It's an old car, but it's well-maintained, so there won't be any discomfort."</p>
 <p>The guide said with a sly smile, seeing the bodyguards looking at it with curiosity. As Lara Sinclair's group got into the vehicle, the guide's expression, which had been sly until now, turned serious.</p>
-<p>Hello. I'm Jang Wei (張偉), a pathfinder from Amsang. Firearms and equipment are stored under the seats.</p>
+<p>Hello. I'm Jang Wei, a pathfinder from Amsang. Firearms and equipment are stored under the seats.</p>
 <p>"Please call me Alice."</p>
 <p>Lara Sinclair didn't want her real name to be revealed, even if the other party belonged to Amsang, so she gave a different name.</p>
 <p>If things went wrong and pathfinder Jang Wei was caught by the Public Security Bureau or other forces, he might reveal Lara Sinclair's or someone else's name, so they had agreed in advance to use aliases.</p>

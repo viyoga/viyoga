@@ -63,7 +63,7 @@ chapter = 1041
 <p>Even a basic straight punch, was the very thing that the recently annihilated Heupyeolgui and gang members couldn't withstand even a single blow from.</p>
 <p>Soda Haruto naturally deflected my straight punch, aimed at his Solar Plexus, with the Back of his Hand. Even though he had been captured by Anyaji and the Black Sage for over a decade and lost his Freedom, the Method of responding to Fist Technique still seemed to remain in his Body.</p>
 <p>This is quite admirable, isn't it? However, admiration only has meaning if Sajo is in his right mind, so I continued the Offensive without holding back my hand.</p>
-<p>-Shinkaiyatsude (深海八手) Kuroyamamota (黑山靠: Black Mountain Lean)</p>
+<p>-Shinkaiyatsude Kuroyamamota (Black Mountain Lean)</p>
 <p>I opened the fist of the deflected straight punch, grabbed Sajo's Arm, which was pushing me away, and pulled. And then I used Shinkaiyatsude Kuroyamamota, a Technique that strikes with the Shoulder.</p>
 <p>Kung!</p>
 <p>Although the Abyss, which is the foundation of Shinkaiyatsude, was absent, the Destructive Power of a Technique used by my large Body, even wearing Armor, could not be absent.</p>
@@ -72,7 +72,7 @@ chapter = 1041
 <p>As if Sajo also intended to fight seriously, the Abyss bloomed between the gaps of Sajo's fake Black Knight Armor.</p>
 <p>-Shinkaiyatsude (Deep Sea Sea Urchin) Shokushujin (Tentacle Blade) -Shinkaiyatsude (Deep Sea Eight-Hand) Kakekushi (Shadow Skewer)</p>
 <p>Sabu's Counterattack was, as expected, a Shinkaiyatsude Martial Arts Form. Following Shokushujin, which attacked with a Hand Blade, he simultaneously used Kakekushi, which drew sharp Abyss Spears from his own Shadow.</p>
-<p>It was quite a difficult simultaneous attack, moving my body and the Abyss separately. I dodged the Shadow Skewer, and at the same time, blocked Sajo's hand blade attack with the Shinkaiyatsude martial arts form, Shoten'isshoku (昇天一触: Ascension One Touch), by kicking upwards. Then I immediately delivered a spinning back kick to Sajo's chest.</p>
+<p>It was quite a difficult simultaneous attack, moving my body and the Abyss separately. I dodged the Shadow Skewer, and at the same time, blocked Sajo's hand blade attack with the Shinkaiyatsude martial arts form, Shoten'isshoku (Ascension One Touch), by kicking upwards. Then I immediately delivered a spinning back kick to Sajo's chest.</p>
 <p>No matter how difficult the Martial Arts Form combination the Opponent used, he was now merely an Opponent without Fading Reason, using techniques ingrained in his Body.</p>
 <p>It would be different if he used a Martial Art I didn't know at all, but the Opponent was using the same Martial Art as me, Shinkaiyatsude. It was unthinkable for me to be defeated when I knew all the Martial Arts Forms so well.</p>
 <p>"Now I roughly understand the Armor's defense, Sajo. Please wait a moment. I will rescue you from the Black Sage's demonic beast."</p>

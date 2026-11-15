@@ -7,12 +7,12 @@ chapter = 86
 
 <p>I left Han Yu-gyeong-ssi, who was surprised that she had four remaining superpowers, as is, and opened the next trait selection. I couldn't open all four remaining trait selections at once; I had to open them one by one. It seems that after level 6, I can't open them all at once because one of the traits or skills I've chosen so far appears as a related trait.</p>
 <p>Please select a trait</p>
-<p>①Saint of Fist Fighting ②Summoning Contract [Coordinates: 335%7#**56] ③Master of Net Dive</p>
+<p>①Saint of Fist Fighting ②Summoning Contract "Coordinates: 335%7#**56" ③Master of Net Dive</p>
 <p>Oh, is it because my luck is as high as 18? Pretty good traits came out. The Saint of Fist Fighting, the pinnacle of the fist fighting lineage that I wanted to come out so badly, did appear, but it wasn't a good choice to make considering Han Yu-gyeong-ssi's stat distribution. What a shame. Don't come out this time, come out to me next time.</p>
 <p>What's left are Summoning Contract and Master of Net Dive... Hmm, should I talk to Han Yu-gyeong-ssi and decide, rather than agonizing over it alone? It's Han Yu-gyeong-ssi's trait, so it's a bit much for me to choose alone. I put on my glasses and lay down next to Han Yu-gyeong-ssi again. Han Yu-gyeong-ssi leaned her head on my arm again as I gave her a pillow.</p>
 <p>"Explain it to me. What kind of method is it? How do you give superpowers and get four abilities again?"</p>
 <p>Han Yu-gyeong-ssi demanded an answer. So, I couldn't just say that this world is a game world... I needed to smooth out the story a bit to explain it. I thought for a moment and then opened my mouth.</p>
-<p>'There's a word called 'karma' (業), right?'</p>
+<p>'There's a word called 'karma' , right?'</p>
 <p>"Yeah, you mean karma?"</p>
 <p>"It works similarly to experience points in a game. If you live your life diligently, that karma accumulates and one of your possibilities can awaken."</p>
 <p>"And you can see that and awaken that possibility?"</p>
@@ -28,7 +28,7 @@ chapter = 86
 <p>"Is there a reason you chose summoning?"</p>
 <p>"I thought about whether it could be obtained with money. Net divers can be hired with money even now, even if I don't learn the skill. But the summoned creatures you mentioned seem to come from a completely different dimension, so they can't be obtained with money, right?"</p>
 <p>Ah, I see. Han Yu-gyeong-ssi had a specific criterion. It seemed that the criterion was to choose the one that couldn't be obtained with money if it could be obtained with money.</p>
-<p>I sat Han Yu-gyeong-ssi in the middle of the bed and stepped back slightly, then pressed Summoning Contract [Coordinates: 335%7#**56] in the trait selection. Then the surrounding light disappeared and brightened again. In that fleeting moment, a jet-black panther, which I didn't know when it appeared, was sitting obediently in front of Han Yu-gyeong-ssi.</p>
+<p>I sat Han Yu-gyeong-ssi in the middle of the bed and stepped back slightly, then pressed Summoning Contract "Coordinates: 335%7#**56" in the trait selection. Then the surrounding light disappeared and brightened again. In that fleeting moment, a jet-black panther, which I didn't know when it appeared, was sitting obediently in front of Han Yu-gyeong-ssi.</p>
 <p>Ah, those coordinates were the coordinates of the Shadow Panther. It wasn't the highest-grade summon, but it was quite useful. It could be put in the shadows and carried around anywhere, and its combat power was enough to beat about two humans who had undergone body modification. That's great. Dickson is there as a bodyguard, but it seemed like I could rely on that Shadow Panther in the final moments.</p>
 <p>"Kyaa! Cute!"</p>
 <p>It was a giant panther almost ten times the size of a cat, but Han Yu-gyeong-ssi was going crazy saying it was cute. Han Yu-gyeong-ssi rushed to hug it, but the Shadow Panther lightly floated its body to avoid her and came to me. Han Yu-gyeong-ssi is the owner, so why is it coming to me?</p>

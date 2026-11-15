@@ -49,7 +49,7 @@ chapter = 743
 <p>Konoe Akina recognized from Taira Kanna's look just now that the student council Chairman was the culprit who kidnapped Taira Ryuta.</p>
 <p>"Could you tell me which restaurant you had dinner at yesterday? The teacher boasted on LINE that it was so delicious, so I'm curious."</p>
 <p>Of course, it was Taira Ryuta who went to meet Taira Kanna and then lost contact.</p>
-<p>"It's a place called Kiyoshikiyoshi (淨潔: purity). Yamashiro-sensei was very satisfied, just like he messaged Konoe-ssi on LINE."</p>
+<p>"It's a place called Kiyoshikiyoshi (purity). Yamashiro-sensei was very satisfied, just like he messaged Konoe-ssi on LINE."</p>
 <p>"Thank you for letting me know. I'll talk to the club members about the contract issue that the student council Chairman-nim mentioned."</p>
 <p>Konoe Akina got up from her seat. Taira Kanna also got up from her seat and gave a kind smile.</p>
 <p>"I'm interested too, so I'll help you with anything I can."</p>

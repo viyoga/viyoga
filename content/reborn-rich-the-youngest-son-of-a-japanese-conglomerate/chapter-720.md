@@ -51,7 +51,7 @@ chapter = 720
 <p>,Thank you for your kind words. I'll do my best in the future.'</p>
 <p>Minamoto Risa hid her feelings and, at the same time, gave thanks for the blessings with a natural smile.</p>
 <p>###</p>
-<p>Incheon Metropolitan City, Shinkang Group Han Family Main Residence. Shinkang House (新强屋).</p>
+<p>Incheon Metropolitan City, Shinkang Group Han Family Main Residence. Shinkang House.</p>
 <p>Shinkang House, where Han Mun-gang, the head of the Shinkang Group, resides, was bustling with visits from Shinkang Group executives and the Shinkang Group's owner family for the New Year.</p>
 <p>,Last year, our Shinkang Group did quite well. It was good that the BS Group suddenly collapsed and our ranking in the business world rose, and it was even better that we were able to snatch some lucrative businesses from the failed BS Group.'</p>
 <p>Han Mun-gang talked about the BS Group's collapse incident that happened this year. Various opinions were divided, but it was thought that the BS Group's collapse was caused by the BS Group's factions fiercely engaging in a succession war with each other.</p>

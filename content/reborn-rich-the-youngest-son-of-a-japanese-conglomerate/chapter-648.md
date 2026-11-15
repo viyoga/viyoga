@@ -72,7 +72,7 @@ chapter = 648
 <p>As expected of a mixed martial arts club, they were very energetic. It was a menu with well-cooked meat such as beef, pork, and chicken, and a pile of french fries, which would be enough for two meals for an ordinary person.</p>
 <p>But my group was all fighters, so they ate it all without leaving any. In particular, Yoda Grandpa was trying to hold back his tears in front of his disciples, saying, ,It's delicious. It's delicious..." and hiccuping.</p>
 <p>After the meal, we went to the game club that the boy Sato Haruto wanted to go to and enjoyed playing games, and Suzuki Kaho and Ageba Tsurumi shopped for accessories sold by the crafts club that they had chosen.</p>
-<p>Suzuki Kaho and Ageba Tsurumi were quite cute as they carefully chose what to buy, so I gave them each an accessory as a gift, and Kujo Kina looked at me with a ,What about me?" expression, so I bought her a hair tie.</p>
+<p>Suzuki Kaho and Ageba Tsurumi were quite cute as they carefully chose what to buy, so I gave them each an accessory as a gift, and Kujo Kina looked at me with a,What about me?" expression, so I bought her a hair tie.</p>
 <p>Next, after hearing that Nakasone Rishin wanted to eat Japanese-style desserts, we headed to Cheongsim Hall. Yoda Grandpa also knew Shimokawabe Airen, so he seemed to be quite looking forward to seeing her after a long time.</p>
 <p>,?!"</p>
 <p>Huh? I felt a strange presence as I was passing through the main stadium to go to Cheongsim Hall. Something familiar but unfamiliar. I stopped for a moment and turned my head to look at the place where I felt the presence.</p>

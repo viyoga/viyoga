@@ -83,6 +83,6 @@ chapter = 84
 <p>,Did it feel good?"</p>
 <p>,Yeah. It felt like my soul was being sucked into my mouth."</p>
 <p>,Actually, I practiced quite a bit with an eggplant while Yong-tae wasn't here."</p>
-<p>As expected of a Korea University student, she thoroughly prepared in advance to demonstrate such skill. By the time Han Yu-gyeong-ssi showed me her swallowing my semen, my post-coital clarity had already ended and my Johnson was back to being stiff.</p>
+<p>As expected of a Korea University student, she thoroughly prepared in advance to demonstrate such skill. By the time Han Yu-gyeong-ssi showed me her swallowing my semen, my post-coital clarity had already ended and my dick was back to being stiff.</p>
 <p>Han Yu-gyeong-ssi swallowed hard as she looked at my stiff dick as I got up. Then she spread her legs and spread her pussy, which was inside the panties I had pushed aside, with both hands. The vaginal fluids flowing from her pussy looked like she was drooling.</p>
 <p>,Yong-tae-ya, come inside me now."</p>

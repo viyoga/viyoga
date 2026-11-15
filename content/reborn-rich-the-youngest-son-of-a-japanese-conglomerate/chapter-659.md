@@ -19,8 +19,8 @@ chapter = 659
 <p>"You're swift!"</p>
 <p>"You too...!"</p>
 <p>The two, who each uttered One Word while looking at each other, shifted up a Gear even further. Kinui Tachio unleashed a Killing Move using Pa-hyeong-ryu, a martial art he founded, and Seizawa Shii also began to use the inherited martial art of the Seizawa Family.</p>
-<p>**Pa-hyeong-ryu (破形流) Hachiku (破竹: Splitting Bamboo)**</p>
-<p>**Seizawa Yeongsin-ryu (清澤 影身流) Kagekire (影切: Shadow Cut)**</p>
+<p>**Pa-hyeong-ryu Hachiku (Splitting Bamboo)**</p>
+<p>**Seizawa Yeongsin-ryu Kagekire (Shadow Cut)**</p>
 <p>Pa-hyeong-ryu Hachiku was a Technique that cut the Opponent's grain as if splitting Bamboo, and Seizawa Yeongsin-ryu Kagekire was, as its meaning 'splitting shadows' implied, a Swift Strike of immense speed.</p>
 <p>The two, who crossed paths at immense speed, stood in that Place for a Moment. The one who opened her Mouth first was Seizawa Shii.</p>
 <p>"Pervert.... Old man!"</p>

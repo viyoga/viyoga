@@ -66,12 +66,12 @@ chapter = 506
 <p>Perhaps if she used her power to give me a gift, she wouldn't become much stronger even if she absorbed the remains of the avatar this time. I thought it would be better to wait, as I could receive a good reward and Simyeonui ttal could become stronger. When I said I would wait, Simyeonui ttal smiled with Urabe Konoka's face.</p>
 <p>, I knew I had a good eye for men. Did you happen to obtain the Seed of Earthquake? It's not really a reward, but the Root of Earthquake is a vicious thing that forcibly turns you into an avatar of the Sunken One if it's not purified, so I'll purify it for you.</p>
 <p>I was going to hire an alchemist or a corporate chemist to refine the Seed of Earthquake, but it would be great if Simyeonui ttal could do it. I took out the Seed of Earthquake. I had brought it with me today just in case, but I didn't know I would be able to purify it right away. When I took out the Seed of Earthquake, a translucent window soon appeared and informed me of the information once again.</p>
-<p>◆Seed of Earthquake [Legendary+ Elixir/Material/Consumable/Seed]</p>
+<p>◆Seed of Earthquake "Legendary+ Elixir/Material/Consumable/Seed"</p>
 <p>A seed that can create an avatar of the Sunken One - Root King who resides in the underground. If refined well, it becomes an ingredient for an elixir.</p>
 <p>When I handed the fist-sized jewel that was flashing red to Simyeonui ttal, Simyeonui ttal grabbed the Seed of Earthquake with both hands and closed her eyes. At that moment, a light burst out, and soon the light disappeared.</p>
 <p>, This much doesn't consume much power, so I can do it as much as I want.</p>
 <p>It was a rough, fist-sized jewel earlier, but what Simyeonui ttal returned to me was a pink, half-fist-sized jewel.</p>
-<p>◆Essence of the Earth [Legendary+ Elixir/Material/Consumable]</p>
+<p>◆Essence of the Earth "Legendary+ Elixir/Material/Consumable"</p>
 <p>The essence of the earth, desired by everyone connected to the land. It's good to consume on its own, but even more effective when used to make an elixir through alchemy.</p>
 <p>Permanently increases physical stats by +1 upon consumption, and additionally increases Strength, Stamina, Resistance, and Recovery stats by 2. The limit of all physical stats also increases by 1.</p>
 <p>The name has changed. It seemed that the Sunken One had transformed this Essence of the Earth with his own authority to create the Seed of Earthquake or the Root of Earthquake. It was highly likely that Simyeonui ttal had removed only the power of the Sunken One, and the original form had been revealed. It was indeed an option worthy of being called Legendary Plus. Moreover, it was said that the effect would be stronger if I made it into an elixir, so I was curious about how much better it would get from here.</p>

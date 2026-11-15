@@ -12,7 +12,7 @@ chapter = 102
 <p>,Ool~! You moved to a good place?"</p>
 <p>,It seems like this is the best neighborhood in Edogawa Ward?"</p>
 <p>Kazuhiro and Kiyohira said a word each as they got out. These guys were also coming to a newly moved house for the first time while living their social lives, so they looked around with wonder. Saying that there was such a neighborhood in Edogawa Ward.</p>
-<p>Edogawa Ward, along with Adachi Ward and Katsushika Ward, is called the ,Shomin 3-ku (Downtown Three Wards)' and is a representative neighborhood where the common people of Tokyo live, but it still had its own wealthy area, and the mansion Jinmija Yeosa-nim moved to was right in that neighborhood.</p>
+<p>Edogawa Ward, along with Adachi Ward and Katsushika Ward, is called the,Shomin 3-ku (Downtown Three Wards)' and is a representative neighborhood where the common people of Tokyo live, but it still had its own wealthy area, and the mansion Jinmija Yeosa-nim moved to was right in that neighborhood.</p>
 <p>We each carried our gifts and went up to the house. Jinmija Yeosa-nim's house was on the 8th floor. Since I had received the key from my mom in advance, I opened the door with the key without ringing the bell, and Jinmija Yeosa-nim was dressed up and sitting on the sofa watching TV. It seemed like she was dressed in advance because our appointment time was approaching.</p>
 <p>,Mom~!"</p>
 <p>,Mother!"</p>
@@ -26,7 +26,7 @@ chapter = 102
 <p>Kazuhiro asked Kagawa Umi to help him choose a gift together, and what the two of them chose was a luxury wallet. The color was similar to the luxury bag I chose, so it felt like a matching set, which I personally liked.</p>
 <p>,Thank you so much. You've all grown up. My sons."</p>
 <p>It was a simple statement, but she seemed very touched that the son she had raised and the son's friends she had taken care of since middle school had grown up well and were giving her gifts on her birthday. Kazuhiro and Kiyohira also seemed touched by Jinmija-ssi's words, ,My sons.' After that, we chatted for a while, evaluating each other's gifts, and then went outside as the dinner reservation time approached.</p>
-<p>The restaurant I reserved was a Korean BBQ place called Haga (河家), pronounced Kawaka in Japanese, which was quite luxurious. We were guided to the reserved room and took our seats. Jinmija Yeosa-nim sat at the innermost seat, Kazuhiro and Kiyohira on either side, and I sat closest to the door.</p>
+<p>The restaurant I reserved was a Korean BBQ place called Haga, pronounced Kawaka in Japanese, which was quite luxurious. We were guided to the reserved room and took our seats. Jinmija Yeosa-nim sat at the innermost seat, Kazuhiro and Kiyohira on either side, and I sat closest to the door.</p>
 <p>We each ordered our favorite cuts of meat. Mom ordered sirloin, Kazuhiro ordered beef tongue, and Kiyohira said he had eaten a lot of beef in the United States, so he ordered pork belly. Finally, I ordered ribs.</p>
 <p>Soon the meats came out, and we watched the staff grill them. The staff member grilling the meat was a female employee, and for some reason, she felt familiar. Someone I'm seeing for the first time, but feels familiar... Is this what they call déjà vu?</p>
 <p>We enjoyed the meat grilled by the female employee. Since there were three big guys, we added meat several times. We had a meal while having pleasant conversations. Kazuhiro tactlessly told Mom about my player story, but Mom coolly just said to take responsibility if I get someone pregnant. Taira Saburo also took responsibility by sending living expenses, so I guess that's what she meant.</p>
@@ -38,7 +38,7 @@ chapter = 102
 <p>However, the employee who came in now was not the employee who had been bringing the food until now. Both were burly men, and while pretending to carry food, they suddenly took something out of their apron pockets and pointed it at us.</p>
 <p>What the fuck, it was a gun!</p>
 <p>,Duck!"</p>
-<p>My body reacted faster than I thought, blocking the front of the table and spreading my arms to make a ,big character' with my body. When an urgent situation came, I felt like the speed of the world was flowing slowly, and I saw another person standing in front of me.</p>
+<p>My body reacted faster than I thought, blocking the front of the table and spreading my arms to make a,big character' with my body. When an urgent situation came, I felt like the speed of the world was flowing slowly, and I saw another person standing in front of me.</p>
 <p>The one who blocked me was the female employee who had been grilling our meat until now. That female employee also took out a pistol from somewhere and started firing back.</p>
 <p>Tang! Tang! Tang! Tang! Tang!</p>
 <p>Even while staggering from being shot, the female employee continued to fire until the end, and the feeling of bullets that didn't hit the female employee piercing my body, combined with the flames of the shooting and the tremendous noise of the gunfire, made it impossible to come to my senses. More than anything, what made it impossible for me to come to my senses was the worry for my mom and two friends behind me. No matter how much someone is blocking in front, you could still get shot if you're unlucky.</p>

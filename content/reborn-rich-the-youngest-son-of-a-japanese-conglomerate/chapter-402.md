@@ -31,9 +31,9 @@ chapter = 402
 <p>"Now, shall I make Simyeonui ttal's special milk pudding?"</p>
 <p>Now that I had eaten dinner, I decided to make the milk pudding I had made today with the special milk Simyeonui ttal had given me. I had the other ingredients, sugar and eggs, so I could easily make it by recalling the memories from earlier.</p>
 <p>I ended up making two puddings in total. Hmm, the color seems a bit whiter than before. Is it because the influence of the milk is stronger even though I added eggs? As I was examining the pudding, a semi-transparent window suddenly appeared in front of me.</p>
-<p>Great Achievement! You have created a dish for the first time using the breast milk of the abyssal being [Simyeonui ttal]. Creativity stat increased by 2.</p>
+<p>Great Achievement! You have created a dish for the first time using the breast milk of the abyssal being "Simyeonui ttal". Creativity stat increased by 2.</p>
 <p>Ah, this was something that would be registered as an achievement? I didn't know that. Creativity wasn't a very useful stat in combat, but it was quite useful in everyday life, so it was better than nothing. I checked the pudding's information.</p>
-<p>◆Milk Pudding Made with Simyeonui ttal's Special Milk [Legendary Food/Elixir]</p>
+<p>◆Milk Pudding Made with Simyeonui ttal's Special Milk "Legendary Food/Elixir"</p>
 <p>This is the first dish made with Simyeonui ttal's milk. Permanently increases Strength, Stamina, and Resistance by 1, and Abyss by 2. Stats cannot be further increased by repeated consumption.</p>
 <p>What? It had become an elixir that raised stats by a whopping 5 points. Crazy. The only downside was that I made two, but even if I ate both, I could only get the stat increase from one.</p>
 <p>Then I have to give it to someone, but the only person I know who uses Strength, Stamina, and Resistance stats, and even uses the Abyss, is just one person. First, I took a picture of the milk pudding.</p>
@@ -46,7 +46,7 @@ chapter = 402
 <p>I didn't want to give it to someone else and have them go crazy or undergo physical transformation because of the Abyss. Plus, it would be a waste to throw away such an elixir-level food, so I contacted my master, the only Abyss user I knew besides myself.</p>
 <p>First, I put the milk pudding I was going to give to Fujigasaki Rinka-ssi in an airtight container and put it in the refrigerator. I'll call a delivery service a little later and send it to Fujigasaki Rinka-ssi.</p>
 <p>Now, shall I eat it? I scooped up the pudding and put it in my mouth. It was delicious. It was a completely different level of rich flavor compared to the pudding I made in the club today. I was enjoying the sweet and deep flavor when another semi-transparent window appeared in front of me.</p>
-<p>Great Achievement! You have consumed a dish made with the breast milk of the abyssal being [Simyeonui ttal] for the first time. Stamina and Resistance stats increased by 1 each.</p>
+<p>Great Achievement! You have consumed a dish made with the breast milk of the abyssal being "Simyeonui ttal" for the first time. Stamina and Resistance stats increased by 1 each.</p>
 <p>I was actually expecting this. If there was an achievement for making the dish for the first time, there would probably be an achievement for eating it for the first time. I had to be very grateful to Simyeonui ttal. Combining the achievement and the effects of the pudding, I gained a total of 9 stats.</p>
 <p>I leisurely ate the rest of the pudding and got up from my seat. I should go to the convenience store and buy a lot of ice cream for Simyeonui ttal.</p>
 <p>###</p>

@@ -48,7 +48,7 @@ chapter = 995
 <p>Yukiko asked Tosen Nobumichi one last Question. Seeing that Tosen Nobumichi had not left the Group, he must not have received a Will telling him to leave, and seeing that he was currently Taira Ryuta's Butler, he hadn't joined the unaffiliated faction nor gone under Taira Kanna, so she asked out of curiosity.</p>
 <p>"A slightly different Will came to me. To return to Shizuku-nim...."</p>
 <p>"Is that so."</p>
-<p>At Tosen Nobumichi's answer, Taira Yukiko nodded her head with an expression of understanding. Since Tosen Nobumichi had originally been a butler that Taira Shizuku had kept since her days as Kabasawa Shizuku (椛澤 滴玖), it was natural for him to return to Taira Shizuku's side.</p>
+<p>At Tosen Nobumichi's answer, Taira Yukiko nodded her head with an expression of understanding. Since Tosen Nobumichi had originally been a butler that Taira Shizuku had kept since her days as Kabasawa Shizuku, it was natural for him to return to Taira Shizuku's side.</p>
 <p>"Thank you for the Story. I'll look around the mansion a bit before going in."</p>
 <p>"Be careful as it gets dark, Yukiko-nim."</p>
 <p>Thus, they finished their Conversation and parted ways. Yukiko decided to take a walk to clear her complex Mind. Yukiko wandered aimlessly along the paths created in Taira Ryuta's mansion, when she saw something peculiar.</p>

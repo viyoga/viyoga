@@ -34,7 +34,7 @@ chapter = 629
 <p>The jade necklace I picked out from the Naruse family warehouse has a bonus to the Willpower stat, so it won't solve Urabe Konoka's worries, but it will be a temporary measure.</p>
 <p>,I've been wearing it ever since sensei-nim picked it out."</p>
 <p>Urabe Konoka showed me the necklace she was wearing around her neck and smiled slightly. Perhaps because the necklace was slightly visible, an information window popped up in front of my eyes.</p>
-<p>◆Shamaness's Jade Necklace [Unique Equipment/Accessory]: A jade necklace worn by a shamaness called a Shamaness in the past. It protects the mind and facilitates communication with the gods.</p>
+<p>◆Shamaness's Jade Necklace "Unique Equipment/Accessory": A jade necklace worn by a shamaness called a Shamaness in the past. It protects the mind and facilitates communication with the gods.</p>
 <p>Strong resistance to mental attacks.</p>
 <p>Willpower +5</p>
 <p>Easier communication with the gods for shamanesses.</p>

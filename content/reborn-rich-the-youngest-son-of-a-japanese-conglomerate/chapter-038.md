@@ -34,7 +34,7 @@ chapter = 38
 <p>Arisu-ssi fainted in the middle of it, so I couldn't even come and came out awkwardly, so I got aroused by the stimulus of the smell without even realizing it. And it was really hard.</p>
 <p>"You must use good perfume."</p>
 <p>"I guess so. Seeing how it got like this...!"</p>
-<p>Hoshino Riho answered my question and secretly reached down to grab my Johnson. And she flinches when she feels my size. And then she smiles bashfully. Is this acting? Hoshino Riho's expression was so seductive that my dick got even harder.</p>
+<p>Hoshino Riho answered my question and secretly reached down to grab my dick. And she flinches when she feels my size. And then she smiles bashfully. Is this acting? Hoshino Riho's expression was so seductive that my dick got even harder.</p>
 <p>"I can see why your partner is sleeping soundly."</p>
 <p>Hoshino Riho drank all the remaining cocktail. She picked up the stem of the remaining cherry, bit it with her lips, and removed the stem. Then she grabbed my face with both hands and passed the cherry into my mouth. It's my first cherry kiss. I didn't refuse and accepted Hoshino Riho's kiss. It was definitely sweet with Hoshino Riho because of the cherry.</p>
 <p>"Hoo.... Since you took my cherry, you have to grant me a favor."</p>

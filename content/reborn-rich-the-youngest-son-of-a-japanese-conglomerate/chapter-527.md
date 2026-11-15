@@ -43,7 +43,7 @@ chapter = 527
 <p>The next turn was the opponent's, and judging from their skillful posture, it seemed like it was the vice-captain of the archery club that Shido Tsubaki had warned us about.</p>
 <p>The score was 9, 10, 8, for a total of 27 points. The wind seemed to have blown quite strongly when they shot the last arrow, which seemed to be the reason for the lower score. Still, they shoot pretty well?</p>
 <p>The next turn was Urabe Konoka's. I was also wondering about Urabe Konoka's participation, but since she wasn't from a prestigious family and was an adopted daughter, I thought she wouldn't have many opportunities to come into contact with archery, so I asked Urabe Konoka directly a few days ago.</p>
-<p>"Yabusame (流鏑馬: horseback archery ceremony hosted by shrines) and archery itself hold religious significance in Shinto, so I've been practicing archery ever since I was adopted."</p>
+<p>"Yabusame (horseback archery ceremony hosted by shrines) and archery itself hold religious significance in Shinto, so I've been practicing archery ever since I was adopted."</p>
 <p>Urabe Konoka said that she had been doing quite harsh training since she was adopted into the Urabe family, and I was convinced that if she could even do horseback archery, she could probably do something like shooting at the Sports Day.</p>
 <p>Urabe Konoka drew her bow and shot her arrows in a row without any sign of nervousness. 10, 10, 9. The surprised expression of the opposing team's vanguard was caught on the screen.</p>
 <p>The next opponent was surprised by Urabe Konoka's skill and seemed flustered, and their score wasn't good. 666. A very ominous number came out.</p>

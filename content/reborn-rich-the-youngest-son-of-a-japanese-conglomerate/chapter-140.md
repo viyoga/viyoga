@@ -11,7 +11,7 @@ chapter = 140
 <p>-I will. May I do it my way?</p>
 <p>The Daughter of the Abyss replied with a slightly playful smile. In an instant, tentacles emerged from the dark, jellyfish-free space and began to undress me. I never thought I'd have my clothes taken off by tentacles. It was an unimaginable experience. The tentacles controlled by the Daughter of the Abyss removed my clothes delicately and swiftly. At this rate, it could do more precise work than hands, couldn't it?</p>
 <p>I also took off the cloth that the Daughter of the Abyss was wearing, which wasn't covering much. Now we were both completely naked. Ever since I first entered this room and saw the Daughter of the Abyss, my dick had been painfully erect.</p>
-<p>Since this was an underwater-like environment, I thought we could try various difficult positions. We stood facing each other and kissed. Then I licked the long neck of the Daughter of the Abyss. At first, she seemed ticklish and said, Ahaha, that tickles , but as I kept licking, she gradually became aroused, twisting her body as if she didn't know what to do.</p>
+<p>Since this was an underwater-like environment, I thought we could try various difficult positions. We stood facing each other and kissed. Then I licked the long neck of the Daughter of the Abyss. At first, she seemed ticklish and said, Ahaha, that tickles, but as I kept licking, she gradually became aroused, twisting her body as if she didn't know what to do.</p>
 <p>-Euhut...! It feels good, my partner...!</p>
 <p>My lips slid down from her neck to her large breasts, heading for the nipples in the center. As I rolled her nipples with my tongue, they hardened, already half-erect.</p>
 <p>-Heuht, no matter how much, heueung♥ you suck...! Milk doesn't come out♥</p>
@@ -25,7 +25,7 @@ chapter = 140
 <p>-You are lovely, my partner. I can feel my love for you welling up.</p>
 <p>The Daughter of the Abyss looked at me with eyes that regarded me as something incredibly precious. I felt something warm in my heart from that gaze.</p>
 <p>-Now it's my turn.</p>
-<p>The tentacle hair of the Daughter of the Abyss rose up and bound my limbs. And made me spread my body in a large (大) shape. No, you said love was welling up, so what is this? I was a little embarrassed, but I decided to watch what the Daughter of the Abyss was doing. Curiosity was greater than embarrassment. I wasn't scared because I didn't think the Daughter of the Abyss would harm me after coming this far.</p>
+<p>The tentacle hair of the Daughter of the Abyss rose up and bound my limbs. And made me spread my body in a large shape. No, you said love was welling up, so what is this? I was a little embarrassed, but I decided to watch what the Daughter of the Abyss was doing. Curiosity was greater than embarrassment. I wasn't scared because I didn't think the Daughter of the Abyss would harm me after coming this far.</p>
 <p>The remaining tentacles crawled around, finding and stimulating my erogenous zones, and the Daughter of the Abyss took my dick into her mouth. This virgin goddess, who had been searching for a man worthy of her for thousands of years, unexpectedly had excellent fellatio skills.</p>
 <p>"Heueok!"</p>
 <p>Being caressed all over my body and having my dick sucked, I couldn't help but cum in less than ten minutes. It was truly a skill that deserved the saying that my soul was being sucked out.</p>
@@ -73,16 +73,16 @@ chapter = 140
 <p>-You can stay here for 'a little while' and then come back.</p>
 <p>A little while. It seemed like this was the story that Hangari Muneo was talking about.</p>
 <p>Someone might have thought it was a dream, but the semi-transparent window floating flamboyantly in front of me was telling me that the intercourse with the Daughter of the Abyss, which felt like an eternity just now, was not a dream.</p>
-<p>Mythical Achievement! You have wounded the divine body of the abyssal being [Daughter of the Abyss]. Penetration effect of 10 percent is added to all attack actions. Limit level increases by 1.</p>
-<p>Mythical Achievement! You have destroyed the hymen of the abyssal being [Daughter of the Abyss]! Acquire 5 free stats.</p>
-<p>Legendary Achievement! You have become the partner of the abyssal being [Daughter of the Abyss]! Abyss stat increases by 4, abyss stat efficiency increases, and abyss stat penalty weakens.</p>
-<p>Great Achievement! Your whole body is soaked in the vaginal fluids of the abyssal being [Daughter of the Abyss]. Charm stat increases by 2.</p>
-<p>Great Achievement! Your whole body is soaked in the virgin blood of the abyssal being [Daughter of the Abyss]. Resistance stat increases by 3.</p>
-<p>■■■/ Jin Yongtae/ Taira Ryuta's genitals are soaked in the virgin blood and vaginal fluids of the abyssal being [Daughter of the Abyss]. Trait Golden Pillar evolves.</p>
+<p>Mythical Achievement! You have wounded the divine body of the abyssal being "Daughter of the Abyss". Penetration effect of 10 percent is added to all attack actions. Limit level increases by 1.</p>
+<p>Mythical Achievement! You have destroyed the hymen of the abyssal being "Daughter of the Abyss"! Acquire 5 free stats.</p>
+<p>Legendary Achievement! You have become the partner of the abyssal being "Daughter of the Abyss"! Abyss stat increases by 4, abyss stat efficiency increases, and abyss stat penalty weakens.</p>
+<p>Great Achievement! Your whole body is soaked in the vaginal fluids of the abyssal being "Daughter of the Abyss". Charm stat increases by 2.</p>
+<p>Great Achievement! Your whole body is soaked in the virgin blood of the abyssal being "Daughter of the Abyss". Resistance stat increases by 3.</p>
+<p>■■■/ Jin Yongtae/ Taira Ryuta's genitals are soaked in the virgin blood and vaginal fluids of the abyssal being "Daughter of the Abyss". Trait Golden Pillar evolves.</p>
 <p>Due to prolonged exposure to special circumstances, the skill Golden Pillar Bedroom Arts evolves.</p>
 <p>LEVEL UP!</p>
 <p>Please select a trait.</p>
-<p>Cancelled. The abyssal being [Daughter of the Abyss] bestows a dedicated trait to her partner.</p>
+<p>Cancelled. The abyssal being "Daughter of the Abyss" bestows a dedicated trait to her partner.</p>
 <p>Acquired the trait Mark of the Daughter of the Abyss.</p>
 <p>How could I think it was a dream in this situation? I leveled up not long ago, but I had sex enough to level up again, so how much did I do? I probably had sex so much that I was sure I had gained some experience even after leveling up.</p>
 <p>--------</p>

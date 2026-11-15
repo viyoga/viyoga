@@ -46,8 +46,8 @@ chapter = 390
 <p>Han Yu-gyeong nagged, but Han Yu-gyeong's friends behind her took her side, saying, ,You're pretty, Mother~!</p>
 <p>,Oh my, this is nothing in America~! Yong-tae also came to the birthday party? Then I should have gone too~♥</p>
 <p>,I know, right? It's a shame I can't see you, Noona.</p>
-<p>When I called Ha Ju-yoon ,Noona, as I usually do, Han Yu-gyeong glared at me, but everyone laughed at my title, so she couldn't get angry.</p>
-<p>,I always feel good when I hear the word ,Noona,? Yu-gyeong-a, don't get too angry~! You know I told Yong-tae to call me ,Noona.?</p>
+<p>When I called Ha Ju-yoon,Noona, as I usually do, Han Yu-gyeong glared at me, but everyone laughed at my title, so she couldn't get angry.</p>
+<p>,I always feel good when I hear the word,Noona,? Yu-gyeong-a, don't get too angry~! You know I told Yong-tae to call me,Noona.?</p>
 <p>,Sigh.... I understand. I won't say anything. How's life in America, Mom?</p>
 <p>The two mothers and daughters talked for quite a long time, as if they had so much to say. Just as we were getting bored, Ha Ju-yoon finished the conversation with a sense of humor.</p>
 <p>,The kids will be bored waiting for us to finish our call. I'll just give the gifts and hang up~!</p>

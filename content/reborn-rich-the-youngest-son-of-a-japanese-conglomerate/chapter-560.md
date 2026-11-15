@@ -72,7 +72,7 @@ chapter = 560
 <p>And since I'm stuck at St. Francisco Girls' Academy, it takes quite a bit of time to find out what's going on here, so the creation of an information team is quite urgent.</p>
 <p>,Name, name is important!</p>
 <p>Eve, who was sitting down, raised her hand and said. I wondered if the name of the information team was that important, but I had a name that I had been thinking about for a long time.</p>
-<p>There's a saying in Korea that birds listen to daytime words and mice listen to nighttime words. I was thinking of naming it Torinezumi-dō (鳥鼠堂: Josedang) after that—what do you think?</p>
+<p>There's a saying in Korea that birds listen to daytime words and mice listen to nighttime words. I was thinking of naming it Torinezumi-dō (Josedang) after that—what do you think?</p>
 <p>Eve seemed to want a name with some force, but no other dissenting opinions came out, perhaps because the name Torinezumi-dō wasn't bad. In fact, it was important for the information team to be hidden, so the less the name was revealed, the better, so there were places that were simply called the information team and had no name.</p>
 <p>,If there are no objections, we'll move on to the next topic.</p>
 <p>In this way, the name of my newly created information team was confirmed as Torinezumi-dō.</p>

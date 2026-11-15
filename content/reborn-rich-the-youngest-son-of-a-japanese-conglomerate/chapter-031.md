@@ -44,7 +44,7 @@ chapter = 31
 <p>I said to the collapsed Kurakake Kuma and hailed a taxi that was approaching, giving the driver Shinoe Misano's address. Shinoe Misano's house was a residence near the Human Resources Development Institute. About a 20-minute walk? Because of that, we were able to arrive in less than five minutes by taxi.</p>
 <p>"Here you go, keep the change."</p>
 <p>"Oh, thank you."</p>
-<p>I paid the taxi fare and, still holding up the unconscious Shinoe Misano, stood in front of a house with a nameplate that read 'Shinoe Fujiro (篠江 風次朗)'. So, her husband's name is Shinoe Fujiro.</p>
+<p>I paid the taxi fare and, still holding up the unconscious Shinoe Misano, stood in front of a house with a nameplate that read 'Shinoe Fujiro '. So, her husband's name is Shinoe Fujiro.</p>
 <p>I rummaged through Shinoe Misano's bag, found the key, opened the door, and went inside. I carried her in princess style to the master bedroom, tossed Shinoe Misano onto the bed, and waited for her to wake up.</p>
 <p>Sleeping rape isn't my thing. In the first place, the sleeping spray Kurakake Kuma used was an item similar to an anesthetic that lasted for about an hour at most. She'll wake up soon.</p>
 <p>"Ah! I need to contact Taira Yukiko and tell her I'm staying out tonight."</p>

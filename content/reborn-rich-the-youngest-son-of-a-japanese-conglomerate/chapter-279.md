@@ -22,13 +22,13 @@ chapter = 279
 <p>,Then....</p>
 <p>,Could it be....</p>
 <p>,A forbidden...?</p>
-<p>The women looked at each other, their faces blushing. Could it be a forbidden relationship between a student and a teacher...? The 203 women looked at each other and laughed with a ,Kyaaak!, even though the truth was completely different.</p>
+<p>The women looked at each other, their faces blushing. Could it be a forbidden relationship between a student and a teacher...? The 203 women looked at each other and laughed with a,Kyaaak!, even though the truth was completely different.</p>
 <p>,No, let's not jump to conclusions. It could be someone else....</p>
-<p>Kiyona Mari, who had been ,Kyaaak!-ing for a while, regained her composure and spoke again. In that moment, the faces of the men in the training center flashed through her mind. All the Seryu-tai men except for the trainees and Sawayanagi Sinya.... And even Taira Ryuta, the investor who was the de facto owner of Seryu-tai.</p>
+<p>Kiyona Mari, who had been,Kyaaak!-ing for a while, regained her composure and spoke again. In that moment, the faces of the men in the training center flashed through her mind. All the Seryu-tai men except for the trainees and Sawayanagi Sinya.... And even Taira Ryuta, the investor who was the de facto owner of Seryu-tai.</p>
 <p>,Could it be the investor-nim?</p>
 <p>,I heard he was only here for a day....</p>
 <p>,It couldn't be, right?</p>
-<p>Taira Ryuta's name came up, but everyone reacted with an ,Ehh~, it couldn't be, right?</p>
+<p>Taira Ryuta's name came up, but everyone reacted with an,Ehh~, it couldn't be, right?</p>
 <p>,Since everyone is gathered at this outing, Rianna will definitely have a secret rendezvous.</p>
 <p>Sawayanagi Mikiyo opened her mouth. As a sniper, she had to predict the target's movement path, so she inferred Rianna Holden's actions as a sniper's habit. The word "rendezvous" brought silence to the room for a moment. Everyone felt the hidden meaning within it.</p>
 <p>,Since we're next door, I'll ask the wind for help~!</p>

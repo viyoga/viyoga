@@ -27,7 +27,7 @@ chapter = 70
 <p>"Hiaaang!!!"</p>
 <p>Whether it was because she was surprised by the sudden attack or because of the pleasure, Yukiko-ssi arched her back like a bow. I continued my offensive, sucking and touching her clitoris.</p>
 <p>"Haang! Haaheung! Too much...! Haaaang...! Put it in, Ryuta, huh? Put it in now! I can't take it anymore!"</p>
-<p>Unable to just watch Yukiko-ssi begging, I raised my head and looked into each other's eyes, inserting my Johnson as is. Perhaps because there was already lubricant from my semen, it went in more smoothly than the first time I thrust.</p>
+<p>Unable to just watch Yukiko-ssi begging, I raised my head and looked into each other's eyes, inserting my dick as is. Perhaps because there was already lubricant from my semen, it went in more smoothly than the first time I thrust.</p>
 <p>"Haa....! I love this! Haaang!"</p>
 <p>Yukiko-ssi was ecstatic when I put it in. I started shaking my hips to make her feel even better. After shaking my hips for a few minutes, I decided to ask Yukiko-ssi for some seasoning to make the sex even more exciting.</p>
 <p>"Say something dirty, Yukiko."</p>
@@ -44,10 +44,10 @@ chapter = 70
 <p>As her moans grew louder, my hip movements became more intense. I pulled out to the middle of my glans and then pushed all the way in again with a long stroke, reciprocating big and fast, and Yukiko-ssi's eyes rolled back. Her whites were showing, and it seemed like she was reaching her climax.</p>
 <p>"I'm going, going, going, going! Haaaahng!!"</p>
 <p>"Eueueuk, I'm cumming!!"</p>
-<p>As my Johnson poured white liquid deep into her cervix, Yukiko-ssi seemed to have completely gone as well, her vaginal walls spasming wildly, contracting and releasing my Johnson.</p>
-<p>After our climaxes ended, I hugged Yukiko-ssi without pulling out my Johnson. Yukiko-ssi also hugged me and gave me a light bird kiss on my lips. The bird kiss soon turned into a deep French kiss, and the French kiss made my Johnson regain its strength inside Yukiko-ssi's pussy.</p>
+<p>As my dick poured white liquid deep into her cervix, Yukiko-ssi seemed to have completely gone as well, her vaginal walls spasming wildly, contracting and releasing my dick.</p>
+<p>After our climaxes ended, I hugged Yukiko-ssi without pulling out my dick. Yukiko-ssi also hugged me and gave me a light bird kiss on my lips. The bird kiss soon turned into a deep French kiss, and the French kiss made my dick regain its strength inside Yukiko-ssi's pussy.</p>
 <p>"Eueung?? Again...?"</p>
-<p>Yukiko-ssi, feeling my Johnson growing vigorously inside her, asked me with wide eyes. I nodded and started moving my hips as is.</p>
+<p>Yukiko-ssi, feeling my dick growing vigorously inside her, asked me with wide eyes. I nodded and started moving my hips as is.</p>
 <p>"Haaang!! I just, I just cameee!! Let me rest a little, aahng!!"</p>
 <p>###</p>
 <p>After finishing our business two more times, Yukiko-ssi was lying down, using my arm as a pillow. I told Yukiko-ssi various stories, one of which was about Health Miracle stock.</p>

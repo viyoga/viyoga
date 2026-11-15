@@ -47,7 +47,7 @@ chapter = 602
 <p>With a tremendous roar, a hole the size of a person was created, revealing a secret space behind the bookshelf. It was a place with a strong smell of blood. Women's arms and legs were cut off, and taxidermied faces were on display. It was like a serial killer's murder site.</p>
 <p>"Hmm...! There's a reason why he asked to be killed so badly."</p>
 <p>The Goth Loli masked girl frowned slightly as she looked at the surrounding scenery. Perhaps it was thanks to the girl's voice, but the man who was about to cut off someone's head regained his senses and stood up, looking at the Goth Loli masked girl.</p>
-<p>This man was the notorious Kiruoni (切る鬼: Cutting Ogre), who had recently carried out a series of murders in the Tokyo area. He left almost no evidence and disposed of the limbs, excluding the head, in places like parks, which led to rumors that he might be a psychic.</p>
+<p>This man was the notorious Kiruoni (Cutting Ogre), who had recently carried out a series of murders in the Tokyo area. He left almost no evidence and disposed of the limbs, excluding the head, in places like parks, which led to rumors that he might be a psychic.</p>
 <p>There were already more than ten victims, and because of that, it was difficult to find people on the streets of Tokyo at night recently.</p>
 <p>"How did you get here?"</p>
 <p>"It's not a name I like, but.... Do you know someone called Ogre?"</p>

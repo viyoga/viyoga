@@ -24,7 +24,7 @@ chapter = 865
 <p>We had a light dinner with Wine, and Ichimonji Harugoro and his Disciples returned to Kofu City, while I drove the Students home one by one. Of course, some Students, drunk on Alcohol, clung to me, saying they wouldn't go, but since I had quite a lot of things to do tonight, I sent them all back.</p>
 <p>Shimokawabe Airen returned to Cheongsim Hall, carrying the Sword she received from Ichimonji Harugoro and her original Swords that had been signed with gold inlay. Since Taira Ryuta had driven her to the School's main gate, even though she carried a heavy Bag, it wasn't particularly difficult.</p>
 <p>Originally, the Swords she brought should have been placed on the 2nd floor of Cheongsim Hall, in Shimokawabe Airen's Sword exhibition room, but since she intended to leave after Graduation to Work under Taira Ryuta, it seemed fine to leave them in the Bag and place them with her moving Luggage.</p>
-<p>Shimokawabe Airen carefully set down her original swords, signed by Ichimonji Harugoro, still in their bag, and began to examine the newly received Kamiwa (神和: Divine Harmony).</p>
+<p>Shimokawabe Airen carefully set down her original swords, signed by Ichimonji Harugoro, still in their bag, and began to examine the newly received Kamiwa (Divine Harmony).</p>
 <p>Earlier, when she received the Sword, there were many Students, so she couldn't examine it closely, but now there was no one to scold her for focusing on her new Sword, so Shimokawabe Airen drew Kamiwa and examined it in detail.</p>
 <p>"...."</p>
 <p>It was certainly a Famous sword. Since Taira Ryuta, who had the Ability to see, had even told her its Abilities, she felt she could use it even better.</p>
