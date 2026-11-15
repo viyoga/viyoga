@@ -10,7 +10,7 @@ chapter = 36
 <p>This would unlock the Primordial Pill Master Alchemy records from the tower, granting him access to Tier 1 and Tier 2 pills. It would also enable him to concoct advanced versions of Tier 0 pills, which he planned to sell to Manager Alina in the coming days.</p>
 <p>His goal, however, was to amass enough money to start using the Bingo card he had won from the Destiny Changer quests given to him by the Tower.</p>
 <p>Reflecting on it, the sex had indeed been a pivotal event. Unity had changed her destiny simply by sleeping with Kent, taking a decisive step toward a new future when she became the sister of a goddess.</p>
-<p>One could argue that Kent’s d*ck was, quite literally, a destiny changer.</p>
+<p>One could argue that Kent’s dick was, quite literally, a destiny changer.</p>
 <p>"Thanks for your hospitality, Alina," Kent said to Manager Alina.</p>
 <p>"You’re always welcome to sell at my Silver Leaf Auction House," Manager Alina replied with a polite smile.</p>
 <p>"Then we’ll be leaving for today. I’ll return in a few days to sell more pills," Kent said before walking away with Unity, leaving behind a calm yet contemplative Manager Alina.</p>

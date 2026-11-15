@@ -27,8 +27,8 @@ chapter = 3
 <p>Vexthra wasted no time getting down to business. She waved her hand, and a screen appeared. On the screen, Kent’s body from his former life was displayed.</p>
 <p>"Before we even start, tone down the age to 18," Kent said, looking at his body. A few seconds later, his cute 18-year-old form appeared. He smiled, reminiscing about the days when, after swim practice, the ladies would be drooling at the sight of the bulge in his pants.</p>
 <p>If only they knew he was all show but no go.</p>
-<p>"Let’s start with your d*ck," Vexthra said, bringing up a projection of his soft dragon.</p>
-<p>"Damn, lady, hungry much?" Kent said, watching as Vexthra examined the already large but soft d*ck closely. She was like an appraiser appraising a fine treasure.</p>
+<p>"Let’s start with your dick," Vexthra said, bringing up a projection of his soft dragon.</p>
+<p>"Damn, lady, hungry much?" Kent said, watching as Vexthra examined the already large but soft dick closely. She was like an appraiser appraising a fine treasure.</p>
 <p>"How huge do you want it?" she asked. Kent, although not a stranger to things like this, was taken aback by how easily and curiously this goddess was handling the process.</p>
 <p>"Make it any length you would drool over," Kent said with a slight smile.</p>
 <p>"Very well." Before he could respond to her unusual answer, a nine-inch, vein-popping dick appeared on the screen, making him widen his eyes. ’Does she really crave this length?’ Kent wondered.</p>
@@ -47,7 +47,7 @@ chapter = 3
 <p>"Stand in that circle," Vexthra said, pointing at a specific diagram. Kent obeyed and stepped inside. The next second, his vision went dark for an unknown amount of time.</p>
 <p>During that period, the circle continued to exude chaotic energy that enveloped Kent’s spirit body. Vexthra stood there the whole time, watching the process from start to finish.</p>
 <p>When it was done, a body was created that possessed all the qualities of the perfect man. He was handsome—not too handsome by some standards, but close enough to make many ladies drool.</p>
-<p>He had a perfect physique, hair, eyes, and height. However, when it came to his d*ck, though it was soft at the moment, its size in that state was rather huge, with veins ready to pump blood through it.</p>
+<p>He had a perfect physique, hair, eyes, and height. However, when it came to his dick, though it was soft at the moment, its size in that state was rather huge, with veins ready to pump blood through it.</p>
 <p>"Kent, are you alright?" Vexthra asked, slightly worried as Kent woke up and began examining his body as if something was missing. A while later, a teardrop fell from Kent’s eye. With his hanging member, he moved forward and embraced the goddess.</p>
 <p>One could swear a murderous look appeared in her eyes, but just as quickly as it appeared, it vanished again. It was as if she had become a different person, apart from all the hate in her gaze.</p>
 <p>After a moment, Kent let go and apologized. "Sorry about that; I was just too happy to finally feel something down there."</p>

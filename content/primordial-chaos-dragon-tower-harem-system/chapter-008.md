@@ -6,7 +6,7 @@ chapter = 8
 +++
 
 <p>Kent’s pants fell, and as he expected, his "dragon" stood tall, veins pulsing along its length. He hadn’t seen himself like this before. Though he’d witnessed countless men flaunt their size back on Earth, this was his first time experiencing it firsthand.</p>
-<p>’She really put in the effort into crafting a rather long and thick d*ck for me,’ he thought, glancing at Vexthra, who was eyeing his dragon with interest.</p>
+<p>’She really put in the effort into crafting a rather long and thick dick for me,’ he thought, glancing at Vexthra, who was eyeing his dragon with interest.</p>
 <p>"Do you want to suck it?" Kent asked, meeting her gaze.</p>
 <p>Vexthra didn’t respond immediately. She lay back on the bed, glancing from Kent’s face to his firm dragon. Then, after a moment’s pause, she reached out, gently wrapping her hand around him.</p>
 <p>Kent smiled, watching her. She leaned in, and with a bit of hesitation, placed her lips on the tip, slowly beginning to lick it.</p>
@@ -56,7 +56,7 @@ chapter = 8
 <p>***</p>
 <p>Kent smiled and moved closer to Vexthra, his firm, and powerful dragon form brushing against her face. He gently guided her back to the bed, his hands resting on her hips. This allowed him to pull her closer to the edge of the bed before he carefully spread her legs.</p>
 <p>"Even though you are a goddess, know that this will only hurt for a moment," Kent said, positioning himself at the entrance to her hidden chamber.</p>
-<p>He rubbed his d*ck against her slit slightly, eliciting a soft moan from her. With careful alignment, he eased his dragon forward, pressing gently.</p>
+<p>He rubbed his dick against her slit slightly, eliciting a soft moan from her. With careful alignment, he eased his dragon forward, pressing gently.</p>
 <p>The resistance was immediate, but Kent didn’t allow it to stop his advance. He moved in slowly making sure he remained as gentle as he could be.</p>
 <p>He moved his hips, guiding his dragon into her, and Vexthra’s soft moans filled the room, which brought a satisfied smile to Kent’s face. He continued to push gently, careful with each movement. Suddenly, he felt the slight resistance give way, drawing a sudden yelp from Vexthra.</p>
 <p>Her first time had been taken by a mere mortal, but Vexthra didn’t seem distressed. Instead, she lay on her back, her expression revealing a desire for Kent’s full length inside her.</p>
@@ -64,7 +64,7 @@ chapter = 8
 <p>The tempo started slowly at first, but as seconds passed, Kent started to move faster and faster until he had finally gained the needed tempo he wanted to go at.</p>
 <p>And with that, he began to thrust his rod into her body making sure he hit all the right spots. Vexthra was moaning her heart out.</p>
 <p>***</p>
-<p>Somewhere in the celestial realm, the handsome gray-haired man smiled, but not from the fact that an elf was sucking on his d*ck. It was from something else.</p>
+<p>Somewhere in the celestial realm, the handsome gray-haired man smiled, but not from the fact that an elf was sucking on his dick. It was from something else.</p>
 <p>He looked in a certain direction, "Looks like you still have your touch" He muttered. He then waved his hand a manual of some kind appeared in his hand.</p>
 <p>"You would be needing what was yours in the first place back" He waved his hand and the manual dispersed into sparks of light and then they vanished from sight.</p>
 <p>"We’ll meet again soon brother..." He added before turning his attention to the elf lady who was going down on him. he grabbed her and lifted her into his embrace.</p>

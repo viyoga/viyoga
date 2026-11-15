@@ -40,7 +40,7 @@ chapter = 7
 <p>"So this is the feeling," he murmured, almost overwhelmed by emotion. He had anticipated something like this for many years, but fate had decreed he would have to die before experiencing it.</p>
 <p>Now, he is dead and was indeed experiencing it.</p>
 <p>’Then again, not many can boast about making a Goddess release her love juice.’ Kent moved forward and gently removed her jeans, feeling no resistance whatsoever.</p>
-<p>He observed her soaked panties for a moment, then leaned in, tongue extended as he drew closer to her sweet-smelling p*ssy.</p>
+<p>He observed her soaked panties for a moment, then leaned in, tongue extended as he drew closer to her sweet-smelling pussy.</p>
 <p>"Aaaaahhh..."</p>
 <p>Vexthra let out a loud moan as Kent’s tongue slid over her sensitive wet cave through her panties. Kent moved his tongue again, tasting her love juice, which coaxed another soft moan from her.</p>
 <p>’Tasty,’ Kent thought.</p>

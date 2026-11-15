@@ -27,7 +27,7 @@ chapter = 4
 <p>"Sonox, as I said, is a medium world. However, it’s not a world for humans alone. It’s a mixed-race world where Humans, Dragons, Elves, Beastkin, and even Demons reside."</p>
 <p>"Demons are real?" Kent asked.</p>
 <p>"Of course demons are real. I am a demon myself," Vexthra said, watching Kent’s reaction.</p>
-<p>’Damn, I wonder how her p*ssy would taste,’ Kent thought, eyeing her with a glint of mischief. Vexthra, hearing his thoughts, reacted inwardly but hid it well—though, of course, the former p*rn director noticed.</p>
+<p>’Damn, I wonder how her pussy would taste,’ Kent thought, eyeing her with a glint of mischief. Vexthra, hearing his thoughts, reacted inwardly but hid it well—though, of course, the former porn director noticed.</p>
 <p>Cough!!</p>
 <p>"As I was saying, the world of Sonox has different races. I will be sending you to the Human Continent, to a kingdom called Althea. It’s one of the four kingdoms kingdoms with roughly ten cities. However, before you get any ideas, just know that this single kingdom is as large as a continent in the world you came from.</p>
 <p>"The strongest there could crush you like an ant, but if you lay low for a few months and diligently use the powers I’ll be giving you, you can start roaming as you see fit."</p>

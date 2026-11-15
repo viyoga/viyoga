@@ -15,7 +15,7 @@ chapter = 26
 <p>"Aahhh... It’s coming!" she moaned loudly before her love juices gushed from her depths, filling the carriage with a sweet fragrance. Kent paused his movements to savor the moment.</p>
 <p>Once she was done releasing her essence, he returned to the rhythm, plunging his long rod back into her body and resuming his thrusting.</p>
 <p>Another five minutes later, Unity couldn’t hold back anymore and climaxed again, releasing her juices all over Kent’s body. The pleasure was incredibly intense for her, but thankfully, instead of passing out, she still had enough stamina to endure many more rounds.</p>
-<p>Kent pulled out his d*ck and turned Unity around, positioning her so her butt faced him. Due to the intensity of her climax, her butt was coated with her love juices, glistening under the natural light streaming through the windows.</p>
+<p>Kent pulled out his dick and turned Unity around, positioning her so her butt faced him. Due to the intensity of her climax, her butt was coated with her love juices, glistening under the natural light streaming through the windows.</p>
 <p>Kent smiled, stuck out his tongue, and licked her clean. After ensuring only his saliva remained on her butt skin, he thrust his rod into her again and began pounding her with renewed vigor.</p>
 <p>The carriage shook even more intensely, causing the driver to panic, worried that his favorite carriage might break down. But Kent and Unity were lost in their world of pleasure, unconcerned about anything else.</p>
 <p>"Aaaaahh... It’s coming again!" Unity cried out as she released her juices for the third time. At this point, Kent could feel her body starting to weaken, but she still had enough strength to continue.</p>

@@ -50,7 +50,7 @@ chapter = 25
 <p>[Tower Notification: Since Master managed to win the bet, I will place another one.]</p>
 <p>[Ding! You have received a new quest.]</p>
 <p>[Quest Name: Destiny Changer]</p>
-<p>[Quest Description: F*ck Unity and bring her to climax seven times before releasing your load.]</p>
+<p>[Quest Description: Fuck Unity and bring her to climax seven times before releasing your load.]</p>
 <p>[Rewards: Spirit Stones Multiplier Bingo Card, Appraiser’s Eye]</p>
 <p>’Nice one, Tower. I guess I’ll have to fuck her soul out of her body,’ Kent thought, smiling to himself.</p>
 <p>Without further delay, he pushed inside her, his length stretching her tight entrance. A few seconds later, her barrier broke, causing Unity to cry out in pain.</p>

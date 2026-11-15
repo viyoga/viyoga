@@ -41,7 +41,7 @@ chapter = 104
 <p>She then went back and started riding him in the reverse cowgirl posture. Kent’s heartbeat rose as he gazed at the perfect butt projected at him.</p>
 <p>Vexthra’s round butt was on full display, and for some reason looking at the perfect butthole, he wanted to stick his divine rod there and fuck her asshole.</p>
 <p>But he had to calm himself down.</p>
-<p>He had seen and video many porn scenes that involved an*l, and from what he saw, ladies like that. But he wasn’t about to force it on his goddess, so until she requested it, her pussy would have all the attention.</p>
+<p>He had seen and video many porn scenes that involved anal, and from what he saw, ladies like that. But he wasn’t about to force it on his goddess, so until she requested it, her pussy would have all the attention.</p>
 <p>After cumming, Kent changed position and took Vexthra into the doggy setting, where he came into her stomach.</p>
 <p>He then raised her and sat in the chair, where they spent another hour in the face-off position. Vexthra is a goddess, so her stamina is limitless.</p>
 <p>But Kent was holding on also, making sure he pleased his woman for the next 3 days before going back. It will be a few months before he can return again.</p>

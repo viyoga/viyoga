@@ -24,8 +24,8 @@ chapter = 13
 <p>[Skill Name: 10,000 Ways of Pleasure Manual]</p>
 <p>[Grade/Rank: SSS]</p>
 <p>[Effects]</p>
-<p>- With blood pumping through your d*ck, there is no p*ssy you can’t pleasure. You now have all 10,000 different styles to pleasure any woman, regardless of her race.</p>
-<p>- Be it Human, Elf, Dragon, Demon, or Angel—as long as they have p*ssy, you can pleasure them without fear of falling short. Good luck.</p>
+<p>- With blood pumping through your dick, there is no pussy you can’t pleasure. You now have all 10,000 different styles to pleasure any woman, regardless of her race.</p>
+<p>- Be it Human, Elf, Dragon, Demon, or Angel—as long as they have pussy, you can pleasure them without fear of falling short. Good luck.</p>
 <p>"Well, that took a sharper turn than I expected." Kent smiled, re-reading the descriptions. It just looked bizarre that, aside from the pervert touch, he now had more than a hundred ways to pleasure a woman.</p>
 <p>"At this rate, I’ll be swimming in pussy before I know it. But that’s a good thing for me, at least. After all, I deserve the best of the best." He chooses to convince himself</p>
 <p>Kent knew he was in for a thrill, considering he hadn’t even started his journey but had already received some of the best skills anyone could ask for. With 10,000 ways to pleasure any woman, who in their right mind wouldn’t be happy about that?</p>

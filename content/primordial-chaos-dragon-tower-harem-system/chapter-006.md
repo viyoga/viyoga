@@ -48,7 +48,7 @@ chapter = 6
 <p>"Do you want to feel other things... other emotions besides hate?" Kent asked. Vexthra didn’t respond verbally, but her gaze held a certain longing. She wanted it; she craved it but lacked the will to pursue it.</p>
 <p>It was as if a fundamental part of her nature preventing her from moving forward. Kent, meanwhile, was also facing his own struggle.</p>
 <p>He’d been alive for 34 years but had never once experienced life of Pleasure. Like Vexthra, he lacked the willpower to arouse himself. But now, he could sense a shift—his blood was beginning to boil.</p>
-<p>The cravings he envisioned feeling when he saw the lustful bodies of actresses through his lens, the taste he wanted to experience when he gazed into their pink p*ssy, and the excitement he longed to feel as he began drilling their holds—all of it, he began to feel.</p>
+<p>The cravings he envisioned feeling when he saw the lustful bodies of actresses through his lens, the taste he wanted to experience when he gazed into their pink pussy, and the excitement he longed to feel as he began drilling their holds—all of it, he began to feel.</p>
 <p>He and Vexthra were no different. One was an unfortunate soul who, due to many heartbreaks, became a goddess filled with hate and resentment. The other was a handsome young man cursed by the heavens at birth with neither sexual desire nor the strength to raise his dick.</p>
 <p>"If you do this, you will be cursed with hate and resentment," Vexthra suddenly said.</p>
 <p>"I would take that any day," Kent replied without hesitation, sealing her lips with his.</p>

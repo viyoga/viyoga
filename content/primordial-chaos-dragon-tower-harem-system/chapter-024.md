@@ -60,5 +60,5 @@ chapter = 24
 <p>"What are you doing?" Unity asked, a hint of anticipation in her voice.</p>
 <p>"I’m about to make you scream your heart out, dummy." Kent opened her legs, revealing her wet panties.</p>
 <p>He smiled at the sight and gently moved her panty aside revealing an inviting wet pink cave. Before Unity could fully register what was happening, Kent’s tongue found its way to her pink meat.</p>
-<p>The moment his tongue entered her p*ssy, she screamed her heart out. A sound that made the carriage driver further slow down the carriage.</p>
+<p>The moment his tongue entered her pussy, she screamed her heart out. A sound that made the carriage driver further slow down the carriage.</p>
 <p>He knew they wouldn’t be done anytime soon.</p>

@@ -23,7 +23,7 @@ chapter = 27
 <p>&lt;I know you’re the best,&gt; Kent said, smiling as he gazed at Unity, who was about to have her destiny changed by joining a harem where her big sister was a goddess.</p>
 <p>"Hurry up and link her. I want to meet my sister," Vexthra said, smiling.</p>
 <p>&lt;Okay... jeez, aren’t you the Goddess of Hatred and Resentment? Where is all this cheerfulness coming from?&gt;</p>
-<p>"From your d*ck, I think... It changed a lot of things for me," Vexthra admitted with a blush.</p>
+<p>"From your dick, I think... It changed a lot of things for me," Vexthra admitted with a blush.</p>
 <p>&lt;Pervert,&gt; Kent said before cutting the connection.</p>
 <p>Vexthra smiled and returned to her coffee. Kent had made sure her home resembled that of someone from modern-day Earth. She had a toaster and everything. She was practically living the life of a mortal now.</p>
 <p>Back in the carriage, Unity was giving Kent head, determined not to repeat the mistakes she made last time. After 15 minutes, Kent decided to let her have her way, releasing his load down her throat.</p>
