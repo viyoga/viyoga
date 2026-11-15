@@ -1,0 +1,30 @@
++++
+title = "Chapter 482: Goodies"
+weight = 482
+[extra]
+chapter = 482
++++
+
+<p>I gave it a read-over and was happy to see that it was as she said, a formality. By signing it, I declared that I wouldn't betray the Consortium in any shape or form, that I accept their rules, that I was allowed to start my own faction due to my being a Vesper Phenom, that I acknowledged that I was expected to pull my weight in exchange for receiving their protection and investments, and the likes.</p>
+<p>I signed it with my criminal alias, after which she brought out an artifact. It looked like a square object that fit in my palm perfectly. My primordial eyes scrutinized it before I even reached out to grab them. This was a simple artifact that allowed calls to go through in a wide range. Basically, a phone.</p>
+<p>"You can call me with this one, Raika with this one, and Orianna with this one." Vex announced in a cheery tune as she pointed at little crystals that seemed to be intuned with their mana. These crystals were etched onto the surface of the artifact. "Supply a bit of your mana into the right crystal for the communication line to be established. Vesper Phenoms normally don't get such items, but since you have the tendency to just up and disappear whenever you feel like it, we thought it would be necessary, or else we might not be able to reach you."</p>
+<p>I see, so this artifact was more limited than actual phones.</p>
+<p>"We can make you a crystal as well at a later date, which you can share with others just like I did now. However, we can call you as is because we paired our communication artifacts with this one already, so don't lose it. If you do, visit a Consortium branch as soon as possible."</p>
+<p>"So I get to chat with you if I feel like it? Maybe you can read me a nice book while I'm falling asleep."</p>
+<p>"Hehe! You're getting very brazen, Mister. Just a bit of a warning from your beautiful and youthful future wife, I recommend you take it to heart. You may call me even if it's not important from time to time, but don't do the same to Raika and especially not to Orianna. Raika will most likely just tell you off in a very unladylike manner before terminating the communication line, and at worst beat you up the next time you meet. Orianna… Yeah, just don't."</p>
+<p>"I see… I shall do as you say." I nodded before speaking up again, "Where are the rings?" I asked excitedly. They were half the reason I even wanted to join the consortium.</p>
+<p>"Be more patient, don't rush me..." Vex whined before complying and bringing out two rings from her pockets that were both very inconspicuous. She handed one to me and one to Kaelira.</p>
+<p>They were simple bands of polished steel with no engravings, jewels, or anything resembling craftsmanship that might draw attention. They looked so ordinary that one might mistake them for cheap accessories sold in bulk at a street market.</p>
+<p>Yet, as my primordial eyes analyzed them, I immediately spotted the intricate spellwork laced within. Beneath their unassuming appearance, these rings housed powerful enchantments that revealed just how practical - and potent - they truly were.</p>
+<p>The first spell was [Screamer Ward]. If anyone attempted to remove the ring without the owner's consent, a piercing siren-like sound would erupt which was loud enough to alert everyone within a wide radius.</p>
+<p>It was a thief's worst nightmare and ensured no one could take the ring without severe consequences. This was an incredibly handy imbuement to have when the Thief class existed, with some people specializing in pickpocketing strong-looking individuals. It was a high-risk, high-reward way of life.</p>
+<p>The second was [Echo Memoriam], an enchantment that allowed the ring to project a holographic message predetermined by its maker. I immediately used it, and a vibrant, three-dimensional hologram materialized above the ring. It displayed a bold inscription in an ornate, glowing script:</p>
+<p>"Devil, a highly valued Vesper Phenom of the Consortium. Attacking him is the equivalent of declaring war on the Vesper Consortium."</p>
+<p>The words pulsed with an intimidating radiance, designed to command respect and instill fear.</p>
+<p>This was a warning message I could manifest, making it incredibly important to my continued safety. The decision I made months ago that we needed a backer was based on multiple factors, but one of the biggest one was a lack of backers I could fall back onto. If I ran into a random strong person in the labyrinths or the streets, I could dissuade him from attacking us with this tool instead of us dying a dog's death.</p>
+<p>But how would it be enforced, you might ask?</p>
+<p>The third and final spell was [Lifeline Mark], a currently dormant imbuement that activated upon the wearer's death. If I get myself killed, it will activate and leave a mark on anyone who received XP for my death, and the Consortium could track the mark to exact revenge. ṙàꞐꝋꞖÈS̩</p>
+<p>This was the perfect tool to dissuade outsiders from barking at the wrong tree, while it also served as my identification. I was masked and armored, they didn't know who I was, thus showing this ring to any Consortium branch would do the job. Of course, in my case that one was a bit less prevalent since not many people could impersonate an Elemental Sovereign.</p>
+<p>Perhaps the best thing about it was the inconspicuous nature of the ring. It looked so unassuming, like something a random guy on the streets might wear, thus even if someone saw it on my fingers, it wouldn't scream at them that I was a member of the Vesper Consortium. I could go into enemy territory in incognito and not get my cover blown by a unique ring that shouted 'I'm from the Consortium!'</p>
+<p>"I truly appreciate everything, future wife. Are we done for now?"</p>
+<p>"Not so fast, future husband." Vex shook her head and then glanced at the door's direction. "You see, Lady Black Fang decided to provide you with a sign-up bonus of sorts. Consider it her token of goodwill. I think you will absolutely love it."</p>

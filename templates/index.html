@@ -55,18 +55,14 @@
   {% set pride = get_section(path="pride-and-prejudice/_index.md") %}
   {% set odyssey = get_section(path="the-odyssey/_index.md") %}
   {% set lith = get_section(path="lith's-slice-of-life/_index.md") %}
-  {% set hos = get_section(path="herald-of-shalia/_index.md") %}
   {% set shotk = get_section(path="son-of-the-hero-king/_index.md") %}
   {% set hearth = get_section(path="hearthomancy-vol-1/_index.md") %}
   {% set ima = get_section(path="i-am-a-mage-but-with-milf-system/_index.md") %}
   {% set tcdg = get_section(path="the-corruption-dragon-god-lust-system/_index.md") %}
-  {% set ptg = get_section(path="path-to-godhood/_index.md") %}
   {% set golden = get_section(path="the-golden-lord-sss-rank-summoning-system/_index.md") %}
-  {% set cuck = get_section(path="my-cuckhold-system/_index.md") %}
   {% set asc = get_section(path="ascendant-path-of-a-lustful-vampire/_index.md") %}
   {% set villain = get_section(path="the-lustful-villain-every-milfs-and-gilfs-are-mine/_index.md") %}
   {% set friendly = get_section(path="creating-a-friendly-family/_index.md") %}
-  {% set netori = get_section(path="netori-talent-stealing-system-rise-of-the-supreme-milf-hunter/_index.md") %}
   {% set primordial = get_section(path="primordial-chaos-dragon-tower-harem-system/_index.md") %}
   {% set shelves = [ri, lotm, chapters, md, wn, idiot, nfu, bk, meta, trial, pride, odyssey] %}
   <div class="novels-grid">
@@ -220,26 +216,22 @@
     {% set pride = get_section(path="pride-and-prejudice/_index.md") %}
     {% set odyssey = get_section(path="the-odyssey/_index.md") %}
     {% set lith = get_section(path="lith's-slice-of-life/_index.md") %}
-    {% set hos = get_section(path="herald-of-shalia/_index.md") %}
     {% set shotk = get_section(path="son-of-the-hero-king/_index.md") %}
     {% set hearth = get_section(path="hearthomancy-vol-1/_index.md") %}
     {% set ima = get_section(path="i-am-a-mage-but-with-milf-system/_index.md") %}
     {% set tcdg = get_section(path="the-corruption-dragon-god-lust-system/_index.md") %}
-    {% set ptg = get_section(path="path-to-godhood/_index.md") %}
     {% set golden = get_section(path="the-golden-lord-sss-rank-summoning-system/_index.md") %}
-    {% set cuck = get_section(path="my-cuckhold-system/_index.md") %}
     {% set asc = get_section(path="ascendant-path-of-a-lustful-vampire/_index.md") %}
     {% set villain = get_section(path="the-lustful-villain-every-milfs-and-gilfs-are-mine/_index.md") %}
     {% set friendly = get_section(path="creating-a-friendly-family/_index.md") %}
-    {% set netori = get_section(path="netori-talent-stealing-system-rise-of-the-supreme-milf-hunter/_index.md") %}
     {% set primordial = get_section(path="primordial-chaos-dragon-tower-harem-system/_index.md") %}
     {% set villain_heroines = get_section(path="a-villains-way-of-taming-heroines/_index.md") %}
     {% set system_villain = get_section(path="system-distributing-villain-guide-to-conquering-heroines-hearts/_index.md") %}
     {% set reborn = get_section(path="reborn-rich-the-youngest-son-of-a-japanese-conglomerate/_index.md") %}
-    {% set director_favors = get_section(path="i-became-a-director-who-received-sexual-favors/_index.md") %}
     {% set dominator = get_section(path="dominator-of-the-imperial-academy/_index.md") %}
     {% set necromancer = get_section(path="strongest-necromancer-system/_index.md") %}
     {% set demonic_pornstar = get_section(path="demonic-pornstar-system/_index.md") %}
+    {% set primordial_villain_harem = get_section(path="primordial-villain-with-a-slave-harem/_index.md") %}
     {% set_global ri_n = 0 %}
     {% for sub in ri.subsections %}
       {% set vol = get_section(path=sub) %}
@@ -277,36 +269,27 @@
     {% set pride_n = pride.pages | length %}
     {% set odyssey_n = odyssey.pages | length %}
     {% set lith_n = lith.pages | length %}
-    {% set_global hos_n = 0 %}
-    {% for sub in hos.subsections %}
-      {% set vol = get_section(path=sub) %}
-      {% set vol_n = vol.pages | length %}
-      {% set_global hos_n = hos_n + vol_n %}
-    {% endfor %}
     {% set shotk_n = (shotk.pages | length) - 1 %}
     {% set hearth_n = hearth.pages | length %}
     {% set ima_n = ima.pages | length %}
     {% set tcdg_n = (tcdg.pages | length) - 1 %}
-    {% set ptg_n = ptg.pages | length %}
     {% set golden_n = golden.pages | length %}
-    {% set cuck_n = cuck.pages | length %}
     {% set asc_n = asc.pages | length %}
     {% set villain_n = villain.pages | length %}
     {% set friendly_n = friendly.pages | length %}
-    {% set netori_n = netori.pages | length %}
     {% set primordial_n = primordial.pages | length %}
     {% set villain_heroines_n = villain_heroines.pages | length %}
     {% set system_villain_n = system_villain.pages | length %}
     {% set reborn_n = reborn.pages | length %}
-    {% set director_favors_n = director_favors.pages | length %}
     {% set dominator_n = (dominator.pages | length) - 1 %}
     {% set necromancer_n = necromancer.pages | length %}
     {% set demonic_pornstar_n = demonic_pornstar.pages | length %}
+    {% set primordial_villain_harem_n = primordial_villain_harem.pages | length %}
     {% set ch_n = chapters.pages | length %}
-    {% set all_n = ch_n + ri_n + lotm_n + md_n + wn_n + idiot_n + nfu_n + bk_n + meta_n + trial_n + pride_n + odyssey_n + lith_n + hos_n + shotk_n + hearth_n + ima_n + tcdg_n + ptg_n + golden_n + cuck_n + asc_n + villain_n + friendly_n + netori_n + primordial_n + villain_heroines_n + system_villain_n + reborn_n + director_favors_n + dominator_n + necromancer_n + demonic_pornstar_n %}
+    {% set all_n = ch_n + ri_n + lotm_n + md_n + wn_n + idiot_n + nfu_n + bk_n + meta_n + trial_n + pride_n + odyssey_n + lith_n + shotk_n + hearth_n + ima_n + tcdg_n + golden_n + asc_n + villain_n + friendly_n + primordial_n + villain_heroines_n + system_villain_n + reborn_n + dominator_n + necromancer_n + demonic_pornstar_n + primordial_villain_harem_n %}
     <div class="stat-card">
       <div class="stat-top-bar"><span class="stat-indicator">●</span> ARCHIVE</div>
-      <div class="value">33+8</div>
+      <div class="value">29+8</div>
       <div class="label">Novels &amp; Tools</div>
     </div>
     <div class="stat-card">

@@ -1,0 +1,32 @@
++++
+title = "Chapter 297: Absolute Cinema 1 [Bonus]"
+weight = 297
+[extra]
+chapter = 297
++++
+
+<p>Devil's free hand snapped up, summoning forth a barrier of liquid energy. "[Water Shield]!" he called and the mage's spell smashed into it, causing water to spray everywhere as the bolt dispersed harmlessly. But before he could savor the victory, the spearwoman lunged forth.</p>
+<p>The spear pierced clean through Quinlan's side.</p>
+<p>Black Fang's eyes fluttered wide open with excitement. "Ouch!" She squealed cutely while gripping onto her own side as if she suffered damage herself. She watched closely the object of her fascination possibly breathing his last. Blood poured from the wound which soaked his clothes as his remaining Health Points took a nosedive. His body swayed weakly due to his strength draining rapidly.</p>
+<p>"This can't be the end, right? I've finally found someone interesting on this boring plane of existence…" Black Fang whispered dejectedly. She could've stepped in, going as far as ordering her guards to eliminate everyone who attempts to take Devil's life, but she wouldn't do that. If he couldn't pass a Trial made for rookies like this, he wasn't worthy of her attention in the gorgeous woman's eyes.</p>
+<p>"Amazing!" She exclaimed due to the images her eyes were sending to her brain. She rose from her lying position and shot to her feet, getting an even better view of the ongoings. Her numerous snakes were thrown to the ground, save for those that clung to her thighs or the one around her torso. The ones on the ground soon slithered their way to Black Fang and made their way up her legs.</p>
+<p>Instead of faltering, Devil gripped the spear that was still embedded in his side with his free hand. His eyes burned with malevolent intent as he locked eyes with the spearwoman. Black Fang couldn't see his face, but she was certain of the fact that he had a sinister grin tugging at his lips.</p>
+<p>"Time's up…" he growled through the pain. His voice was filled with cruel satisfaction. "You've lost."</p>
+<p>Before the spearwoman could react to his ominous, words a shadow blurred behind her. The dog-kin assassin's claws ripped through the air as she tore through the woman's neck with lethal precision. Due to her relatively high Vitality, it took three swipes of her mighty claws but the spearwoman's head ended up being severed cleanly. It flew through the air as her body stiffened.</p>
+<p>The headless woman was still holding the spear that was etched in Devil for a brief moment before she crumbled to the ground lifelessly. The assassin had already vanished before the head even hit the dirt as she moved on to her next target.</p>
+<p>Black Fang's fingers twitched in excitement as she watched the carnage unfold. "That's a good subordinate if I've ever seen one. She rushed to her Phenom's side while completely ignoring her own safety… Either he is an amazing leader or a lover. Maybe both."</p>
+<p>Devil fell to his knees with blood beginning to pool beneath him, but the fight wasn't over.</p>
+<p>The Phenom let out a desperate, enraged scream due to the death of his comrade and the severity of his situation and charged again. Before he could reach Devil, A magic arrow struck him square in the face. The force of the shot caused his head to jerk back, but his absurd Vitality allowed him to stay standing.</p>
+<p>"Die already, you shitty no-name extra. You've served your purpose already when you injured the hero… Now it's time for a dramatic farewell between him and his companions or a miraculous revival." Black Fang whispered under her breath. She just now realized that this was the first time in centuries that she was having genuine fun.</p>
+<p>Another of Devil's Heralds was already there before he could even recover from getting shot in the face. Her katana was already crimson red from all the blood she'd shed since the Trial started, but she showed no signs of slowing down when she brutally sliced through the Phenom's body with professionally honed precision. One cut became two, two became four.</p>
+<p>His body was separated into clean pieces, each part falling to the ground in a gory display of the Herald's desperation and anger. The enemy Phenom's blood splattered across the battlefield in great waves due to her handiwork.</p>
+<p>Just as the spearwoman's body hit the floor, the Assassin was already on the Wizard. Her claws slashed through the mage's chest, shredding him apart in a single moment's worth of time. His screams were cut short because he died to the first swipe of her claws but just for good measure the girl gave him twenty extra, shredding him to red paste in the process. She was beyond furious.</p>
+<p>They all rushed to the kneeling Phenom's side. His health had fallen dangerously low, and his vision blurred as he fought to stay conscious. The archer of the group aimed at his wound and let an arrow go.</p>
+<p>"[Lifebloom Shot], huh." Black Fang mused. "Not good enough. Not even high-tier potions would save Devil now."</p>
+<p>The ancient woman was right. Despite the soothing warmth that spread through Devil's body, it wasn't enough. The spear had ruptured something vital. He was losing way more than what the shot gave him.</p>
+<p>"[Lifebloom Transform]" the 'archer' intoned. The bow suddenly began twisting and reshaping itself into a magnificent staff.</p>
+<p>"[Vital Scan]" she said, pointing the staff at her bleeding-out leader. Golden threads of light extended from the staff, wrapping around his body like tendrils. The spell allowed its caster to assess the full extent of her patient's injuries.</p>
+<p>Enjoy new adventures from m-v l'e-NovelFire</p>
+<p>Meanwhile, this single transformation of her weapon was enough for the long-lived Black Fang to come to numerous conclusions. Well-off healers were often equipped with bows that could shoot [Lifebloom Shot] at their targets, but [Lifebloom Transform] was a completely different story. "The Epic rarity weapon, Lifebloom Arc.</p>
+<p>Only a single person can create them, and I even know the stocky midget's name; Draegar Hammerfist. This can only mean one thing. Our resident robed Healer is an elf from the Alliance, likely from a good family at that. Not many people can get their hands on Draegar's crafts, after all.</p>
+<p>That information then means that Devil likely dabbles in slavery since elves and dwarves must be enslaved while in the Vraven Kingdom. Or he's a bad boy harboring a free elf…"</p>

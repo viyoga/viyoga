@@ -1,0 +1,46 @@
++++
+title = "Chapter 1681 No More Running"
+weight = 1681
+[extra]
+chapter = 1681
++++
+
+<p>Ragnar's fingers crushed inward and [Synchra] screamed, fractures webbing from every point of contact as the mutated dwarf king hauled Quinlan's entire body overhead in a single motion that cracked the air apart with its speed. The leg beneath that grip should have been powder, and the only reason it wasn't was the anima-grade armor absorbing what no bone could survive, every fracture in her plating a hit his femur didn't have to take.</p>
+<p>They hung in open air together, the dwarf king's momentum from the launch barely spent, and the arm holding Quinlan's leg coiled backward like a siege engine being cranked to full draw.</p>
+<p>"SURVIVE THIS!"</p>
+<p>Quinlan's world inverted as the arc began and Ragnar swung him toward the earth like a siege hammer, every ounce of that dark-ritual-enhanced Strength compressed into a single downward strike meant to paint the hillside with whatever remained of the Primordial Villain after the stone finished catching him.</p>
+<p>The wind tore at Quinlan's face, the ground rushing toward him at a speed that would have frozen most men's thoughts into a single white point of terror. However, his mind went somewhere else entirely, past the dwarf and the arm holding him to a place forty meters south and falling, where the bond pulsed with a dozen heartbeats that weren't his own, every single one of them fighting. He could feel Serika's knuckles splitting against blacksteel. Vex's curses burning through her tattoos. Blossom flickering between void and flesh with each strike. Ayame's silent fury aimed at the sister who had betrayed her.</p>
+<p>&lt;Succubus,&gt; he sent through the bond while the ground screamed closer, his body still mid-arc, still accelerating, still very much being used as a blunt instrument. &lt;I think you're underestimating both me and my girls.&gt;</p>
+<p>&lt;...My Ruin.&gt; Nyxara's tone flattened. &lt;A creature that could kill you in one good punch has your leg in its fist. You're about to become unrecognizable gore.&gt;</p>
+<p>Quinlan scoffed.</p>
+<p>&lt;A roided-up retard gets the jump on me and you think I'm in grave danger?&gt; The ground was fifteen meters away now, closing fast, and the memory of the last time surged through him unbidden, the shameful retreat Ragnar had forced on him, the taste of running when everything in his blood screamed to stay. &lt;That I have no choice but to run? Over and over again?&gt;</p>
+<p>Primordial wrath and fury were blazing in Quinlan's chest as Black Fang's final image resurfaced.</p>
+<p>&lt;I'm done running, Nyxara.&gt;</p>
+<p>The ground filled his vision, and Ragnar's swing reached its apex of force with every muscle in the dwarf king's swollen frame firing at once. The air ahead of Quinlan's body compressed into a visible shockwave from the speed alone, stone already fracturing in a ring beneath the impact point before he'd even arrived, and the force bearing down on the Primordial Villain's spine would have turned his bones to powder and his organs to paste against the hillside, left nothing but a red crater where a man used to be.</p>
+<p>Quinlan's hands moved and the earth answered at the speed of thought, and the precision it demanded at this velocity was inhuman. The stone directly beneath the impact point folded. Quinlan carved a channel straight down through the earth in a surgical cut exactly wide enough to swallow his body, the ground parting like water beneath a blade's edge, displaced mass compressing sideways into the surrounding rock in the same instant it moved.</p>
+<p>And while he carved, his mind split three ways.</p>
+<p>A [Warp Gate] split the earth forty meters south of the girls' position, and a brunette woman in merchant's robes stepped through.</p>
+<p>Her blue eyes had turned the bright, unnatural gold of freshly minted coins. "It's time to splurge~" she sang excitedly, about to spend more money in a single second than she'd ever done before. Jasmine's hand dipped into her pocket ring, and gold poured forth in a cascade, thousands of coins spilling into the air above the portal in a glittering flood that hung for a heartbeat before the spell caught them. The metal twisted, stretched, and snapped into shapes that had no business forming that fast, ornate mail layering over hollow bodies, heavy helms settling onto shoulders that didn't exist a heartbeat prior, and blades materializing in gauntleted fists as [Gilded Legion] filled the air with the sound of an army being born from wealth. Thousands of golden-eyed mercenaries hit the ground in lockstep, and at their center a general in gilt plate materialized last, twin orbs blazing beneath his visor, already raising his blade toward the undead tide. "As my unfairly hot and overly dangerous future sis said, 'show no mercy,' guys!"</p>
+<p>The legion advanced.</p>
+<p>"[Awaken]."</p>
+<p>His necromantic power flared outward, pale fire erupting along the saber's edge without him touching it, and hundreds of soul constructs tore into existence across the air around him in shapes that solidified between one heartbeat and the next.</p>
+<p>&lt;Overwhelm the monster with numbers?&gt; Nyxara's voice cut through with a faint thread of approval.</p>
+<p>The constructs formed fully, weapons drawn, eyes locked on Quinlan's position as if awaiting the command that would send them at the dwarf king's throat.</p>
+<p>But...</p>
+<p>&lt;Help them.&gt;</p>
+<p>Every soul construct turned its back on Ragnar in the same instant and launched into the chaos below, spreading across the battlefield in a wave of spectral bodies that crashed into the gaps between his women and the enemies closing on their flanks.</p>
+<p>Ragnar watched, dumbfounded.</p>
+<p>The force that should have pulverized a man against solid stone met open air, and the dwarf king's arm plunged through the space where stone had been an instant ago with nothing to stop it. His momentum carried him forward and down, his center of gravity lurching past the point of recovery as the resistance he'd built his entire swing around simply wasn't there.</p>
+<p>"...Huh?"</p>
+<p>The sound left him small and confused, the first noise to leave the mutated king since arriving that didn't carry the weight of a death sentence behind it.</p>
+<p>Quinlan being swung in the carved channel with Ragnar's grip still locked on his leg, the dwarf's arm extended fully into the hole by now, his face close enough to see clearly from below with that blown pupil and the confusion spreading across it.</p>
+<p>Quinlan's feet ignited in the same breath. Wind compressed first, spiraling around both boots in bands so tight the air itself went visible, and fire erupted through the channels a heartbeat later, white-hot and concentrated into twin jets that turned the carved stone to glass.</p>
+<p>The combined force hit Ragnar's chest and face at point-blank range with nowhere to go, the confined space compressing the blast upward like a cannon bore, and the detonation blew the dwarf king's upper body backward in a spray of molten rock and superheated air that lit the hillside white.</p>
+<p>Ragnar's fingers spasmed and his grip broke. Quinlan rocketed upward through the channel on jets of wind and fire, making perfect use of the velocity he was gifted. After all, Ragnar's swing had driven him toward the earth hard enough to crater stone, and the channel had caught every ounce of that momentum and bent it skyward. Wind and fire stacked on top of the dwarf king's own Strength, and the speed Quinlan carried as he cleared the channel was faster than the swing that put him there.</p>
+<p>Lightning crawled down his right arm.</p>
+<p>It started at the shoulder and raced to the knuckles in bright forking veins that turned the limb white. The last time he'd put lightning into this dwarf, Ragnar's organs cooked inside his own sealed plate, his blood boiled at the entry points, and his left eye burst against the inside of his helmet from the pressure of its own boiling fluids.</p>
+<p>Quinlan drove his fist into Ragnar's face with every point of Strength he owned behind it.</p>
+<p>The punch connected where the helmet met the cheekbone, and the impact caved the blacksteel inward against the skull beneath. The charge followed the dent, flooding through the contact point with enough voltage to turn the air between them to ozone. For one fraction of a second the path was open, metal to bone, sealed helmet, nowhere for the charge to go but through the head inside.</p>
+<p>But then runes blazed alive across Ragnar's armor in lines of cold blue that hadn't existed the last time they fought. The lightning hit the first glyph and split, the current that should have cooked everything beneath the plate seized by the rune-braid and hauled sideways along channels etched into the blacksteel's surface. It raced from glyph to glyph in arcing veins that earthed through the boots and discharged into scorched stone, every last volt grounded through the metal like a rod driven into the earth during a storm.</p>
+<p>Ragnar's remaining eye found Quinlan through the ozone haze, and the grin that split his face was wide and knowing.</p>
+<p>"You thought you could get me with the same trick twice, Villain?!"</p>

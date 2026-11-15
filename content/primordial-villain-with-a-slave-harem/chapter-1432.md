@@ -1,0 +1,38 @@
++++
+title = "Chapter 1432 Mounting Resistance"
+weight = 1432
+[extra]
+chapter = 1432
++++
+
+<p>She used the grip of her tongue to anchor herself, pulling his body back toward her even as he pushed, creating a brutal friction that sent sparks of white-hot lightning through his spine.</p>
+<p>"Mmmph!" she moaned against him, visibly enjoying the struggle.</p>
+<p>Every time Quinlan shoved, the suction tightened, and the rhythmic twirl of her tongue around his manhood bypassed his willpower entirely. His body was a traitor, responding to the specialized anatomy of a primordial predator designed for exactly this kind of warfare. Quinlan felt the familiar, terrifying pressure building at the base of his spine for the third time in a few seconds. His vision blurred as he lost the battle for his own autonomy again. His fingers dug so hard into her horns that he thought they might snap. A third, even more violent explosion of seed tore out of him, a torrent of primordial life-force that Nyxara caught with a series of rhythmic, heavy gulps. After that, perhaps in a show of mercy, Nyxara herself decided to release her hold on him.</p>
+<p>Her lips parted from his sensitive head with a wet, lingering pop. She didn't move away, however; instead, her long tongue began a slow, agonizingly warm ascent. It trailed up his shaft, over his stomach, and carved a path through the valley of his pectoral muscles until it reached the pulse point of his neck.</p>
+<p>Quinlan lay back, his breath coming in shallow hitches. He felt a profound sense of depletion. The Limitless Lust Physique was no joke; she was literally drinking the foundations of his power. While ejaculating didn't outright make Quinlan weaker, it empowered Nyxara, creating a lack of balance.</p>
+<p>Furthermore, while he could ejaculate dozens of times normally, for some reason, when it came to breeding this slutty succubus, Quinlan felt like a mortal man once again.</p>
+<p>She was draining him dry.</p>
+<p>Nyxara climbed back up his body, her movements supple and feminine, and draped herself over his chest. She leaned into his hold, her face inches from his, and parted her glistening, red lips to show him her empty mouth.</p>
+<p>"I drank all of you ❤️ Every drop was perfection… You are the most delicious man I have ever tasted... far more potent than any vintage I've sampled."</p>
+<p>Quinlan forced his heavy eyelids open, his mind racing to find a gap in her rhythm. He needed a breather, a moment to let his Primordial Breeding Physique start the process of regeneration. He shifted his gaze to her swirling pink eyes and decided to engage her in a conversation to stall for time.</p>
+<p>Clearly, she was not taking this challenge as one to be completed as soon as possible. With begrudging acceptance, Quinlan was forced to realize that she was playing with her food. Instead of remaining on the attack, she felt comfortable cuddling and flirting with him.</p>
+<p>"Succubus, you must be jesting," he rasped. "You birthed the entire succubus population of Thalorind. That implies a history with your primordial counterpart, the Incubus Primordial. Surely a creature of his nature was more 'filling' than a man like me?"</p>
+<p>Nyxara's eyes widened, the swirling patterns momentarily freezing in a rare display of surprise. "They told you about that failure...?" she murmured, her voice losing its manic edge for a split second before her slutty, unhinged attitude returned tenfold. She leaned in, her lips ghosting over his in an attempt to claim a direct, deep kiss.</p>
+<p>Quinlan raised a hand, pressing his palm firmly against her mouth to block the contact. "I only kiss my lovers," he stated coldly.</p>
+<p>"!!" The womb tattoo on her belly throbbed violently at his rejection, glowing with a deep, bruised light. Instead of being offended, Nyxara seemed physically sparked by his resolve. She wrapped her arms around his neck, her body molding against his with a desperate, seductive pressure. "Resolute even now..." she whispered, her breath hot against his hand. "Then let me become your lover. I'll give you everything of myself for a kiss, Little Ruin~"</p>
+<p>Quinlan let out a low, dark chuckle. "I might not be the greatest genius in the history of Thalorind, but even I can tell when I hear such an obvious lie."</p>
+<p>"So mean…!!" Nyxara brooded for a moment, pouting cutely with her tail lashing irritably against the satin sheets. "You're so cruel," she huffed, but then she leaned down to breathe heavily into his ear. "Fine. I'll tell you the truth."</p>
+<p>"I unlocked my Limitless Lust Physique before that failure of a man could even find his own rhythm. I depleted…"</p>
+<p>She paused, thinking, then shrugged with a giggle, "I even forgot that irrelevant creature's name. Anyhow. I depleted his life essence until he shriveled up into a husk and died as the greatest failure among all primordials. He was weak and brittle, a partner not worthy to stand by my side as an equal. But you..." she nipped at his earlobe, her voice dropping to a guttural growl, "you're so much more tasty than that failure of a man ever was… So much more tasty than any man I've ever had…"</p>
+<p>'Is it the Breeding Physique?' Quinlan thought inwardly, feeling the stirrings of his power returning. 'It has to be. Combined with [Blessed Seed], I'm the ultimate source of nourishment for her particular brand of power.'</p>
+<p>"Thanks for answering, and thanks for giving me a breather."</p>
+<p>"You're welcome, Little Ruin~" she purred before leaving a big peck on his neck. "You might think of me as a terrible monster to defeat, but to me…"</p>
+<p>Her fingers trailed his muscular chest lovingly. "You're a meal worth savoring ❤️" she whispered with her eyes half-closed in bliss.</p>
+<p>"Is that so?" Quinlan's voice suddenly dropped an octave, losing its exhausted rasp. "Just don't regret it when the meal eats you up."</p>
+<p>"If that is my fate, I shall accept it with a joyous heart~ But I won't go easy on you…" she breathed before leaning in for a second kiss on his neck, full of need and warmth.</p>
+<p>In a blur of sudden, explosive motion, Quinlan's hands shot down. He didn't go for her wrists or horns this time; he gripped her two extremely perky, silk-clad buttcheeks with brutal strength. Before she could process the shift in momentum, he exerted the full force of his physical might. With a sharp, violent tug, he tore the attire that housed her privates.</p>
+<p>As he lifted her into the air and shoved his length deep into her core in one continuous motion, she arched her spine so hard she nearly fell out of Quinlan's hold. But she was not trying to make an escape…</p>
+<p>Instead, Nyxara let out a high-pitched shriek made of pure, crystalline ecstasy. "Ah! My clothes...!" she gasped between frantic, wet moans, her legs locking around his waist to pull him even deeper into herself. "They are meant to be indestructible... but if I love a dominant man... they become so easy to tear for him and him alone... What a blunder! ❤️"</p>
+<p>She laughed, releasing a manic, joyous sound as she began to ride the rhythm he dictated, her womb tattoo burning so brightly it turned the pink steam in the room into a blinding white fog.</p>
+<p>The air within the dome was no longer just a mist; it was a pressurized atmosphere of pure, unadulterated lust. As Quinlan drove himself into her, the sensation was a violent collision of two primordial physiques. Unlike the previous rounds, there was no silk barrier, no teasing graze. It was skin-on-hot-skin, a friction that felt like it was peeling away the very layers of his soul.</p>
+<p>However…</p>

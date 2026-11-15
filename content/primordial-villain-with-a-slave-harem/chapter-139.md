@@ -1,0 +1,31 @@
++++
+title = "Chapter 139: Shadowhold"
+weight = 139
+[extra]
+chapter = 139
++++
+
+<p>As we step out into the open, the city of Shadowhold stretches out before us, bustling with life. The streets are lined with stone buildings, some of them carved directly into the cavern walls, others constructed from a mixture of stone and wood.</p>
+<p>There's a marketplace just ahead, filled with stalls where merchants haggle over prices, selling everything from fresh produce to weapons and enchanted goods. The air is adorned with the scent of spices, cooked meats, and the faint, earthy aroma of damp stone.</p>
+<p>Children run through the streets, laughing and playing, their voices echoing in the vast space. A group of them races past us, kicking a ball made of tightly woven leather, while a few mothers, their arms full of shopping baskets, call after them with a mixture of exasperation and affection.</p>
+<p>"This place…" Ayame murmurs, her voice barely above a whisper. "It's like a medium sized city..."</p>
+<p>Jasmine nods, her earlier attitude fully replaced by a more open and honest demeanor. "Shadowhold is more than just a hub for the Consortium's local operations. It's home to thousands of honorary members- families, merchants, craftsmen, and of course, the active members of the Consortium itself.</p>
+<p>The people you see here live their lives just like anyone on the surface would, with the only difference being is that here they have to adhere to the rules set by the org and not the kingdom."</p>
+<p>We continue walking through the city, taking in the sights and sounds. There's a blacksmith shop, where a muscular man hammers away at a glowing piece of metal, shaping it into a sword. Next door, a tailor is carefully stitching intricate patterns into a fine cloak, while a few customers browse through his wares.</p>
+<p>Nearby, a group of young men are practicing their swordplay in an open courtyard, their movements sharp and disciplined under the watchful eye of an older instructor.</p>
+<p>In the distance, I can see the silhouette of a grand building, towering above the rest. It's made of dark stone, its spires reaching up towards the ceiling of the cavern like the claws of some ancient beast. Jasmine notices my gaze and follows it.</p>
+<p>"That's the Obsidian Citadel," she explains. "It's the heart of Shadowhold's power, where the leaders, including my father, conduct their meetings and other businesses."</p>
+<p>We walk past a small garden, where a few people are tending to rows of plants. The crops are modest- herbs, vegetables, and some fruit trees- but they're thriving under the light of the Heart of Lumora. "As you see, there are also many people who prefer to grow their own food instead of psychedelics, after all, not everyone is involved in the drug business."</p>
+<p>As we move deeper into the city, I begin to see the full scale of Shadowhold. It's a place of contrasts, where the everyday life of families and tradespeople exists side by side with the darker, more secretive aspects of the Consortium's operations. There are hidden alleyways, guarded doorways, and shadowy figures conducting quiet conversations in corners.</p>
+<p>But there's also laughter, commerce, and a sense of community that's almost palpable.</p>
+<p>With that being said, I can also feel a distinctly controlled, oppressed atmosphere when I glance at the civilians. Perhaps because the law and its enforcers are made by criminals and policed by criminals, thus I imagine the process of a prosecution would be rather swift and lethal, and not at all involve judges and juries.</p>
+<p>Though, to be fair, the outside world doesn't strike me to run on the policy of 'innocent until proven otherwise' ideology neither, which is best evidenced by Ayame's peril.</p>
+<p>We spend the next few hours touring the otherworldly settlement with our guide quickly becoming friendly with us despite our masks and robes hiding even our voices and physical proportions.</p>
+<p>Then, when we've seen enough, she pauses and turns to look at us. "So, I've shown you what I can. Naturally, I couldn't let you into unauthorized places as you are outsiders, but I believe you've had the chance to get acclimated to how the syndicate functions. Are you interested in joining?"</p>
+<p>"We will have to have a long conversation between the three of us before I can answer you, however, I can tell you that I personally do like what I'm seeing. Could you tell us a bit more about the admission test for becoming Vesper Phenoms?"</p>
+<p>She nods, "sure. It's an event that takes place once every year, with the next date occurring in a month, so you will have plenty of time to get ready. As for what the test itself entails, I can't tell you much, since I'm just a simple Twilight Apprentice with limited insider knowledge. 𝔯á₦ŐᛒĘș</p>
+<p>What I do know is that there are a lot of members applying each time, and both outsiders and already accepted members can participate. Only about five people tend to end up being selected on average, with about a thousand deaths each time and even more injured."</p>
+<p>Only five? That makes things very difficult, as we are three individuals. I don't like the success/death ratio one bit either.</p>
+<p>"I don't know how the power dynamics work in your harem, or whatever the relationship between the three of you is, but if you can name a leader I recommend you do that. You can form a team of three, with the team leader getting the Vesper Phenom rank and the remaining two becoming his or her designated subordinates, also known as Vesper Heralds.</p>
+<p>Each Phenom can promote up to five Heralds who can act as their representatives and also enjoy the benefit of privacy regarding their identity. As I mentioned, the Phenoms are equal to Dusk Adepts, and those people often have entire teams working under them, which can be the same for you, should you succeed."</p>
+<p>It should be no problem. Blossom is a complete bottom who would much rather be my subordinate than my boss and Ayame doesn't want to join this org at all in the first place, so I'm sure she will happily let me take the limelight. Well, even if she were interested, it would still be me who ends up being the leader since I've always been and always will be the leader of this party.</p>

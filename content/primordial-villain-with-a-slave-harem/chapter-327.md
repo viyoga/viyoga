@@ -1,0 +1,32 @@
++++
+title = "Chapter 327: Black Fang’s Demand"
+weight = 327
+[extra]
+chapter = 327
++++
+
+<p>"I'm sick of the fucking forest. Fuck the Trials too! I came here expecting a party of the likes I've never seen before, but I spend most of my time going from forest to fucking forest!" Soren shouted with frustration. As a disinherited noble I imagine this way of life is something he needs so time to adjust to.</p>
+<p>Enjoy new stories from .com</p>
+<p>"It's not that bad, geo boy." Gragan tried to cheer him up. Despite her not being a very smart person, the axe-wielder giantess was definitely one of the kinder souls out of all the Phenom candidates present in the group.</p>
+<p>"I'm not 'geo boy'! Call me Lord Soren." The delulu was strong with this one.</p>
+<p>At least he lessened Lyra's humiliation. Her iron collar was no longer attached to a leash. This allowed her to fight much better, perhaps also because a semblance of honor returned to her due to not being dragged around like a guard dog.</p>
+<p>Selene and Cedric remained vigilant of us, and the same was true for our side. We maintained a distance from each other at all times. With Vex watching, it would've surely been a negative point- if not outright enough to have our candidacy ruined- to attack a party member while on a mission, so our hands were tied as long as her eyes remained closed in on us.</p>
+<p>Abudha was silent, only conversing with his four Heralds on occasion. They were a strange bunch who also seemed to be Monks. Maybe they were all from some niche clan.</p>
+<p>Iris meanwhile was completely closed off. She only attacked monsters when they appeared, but beyond that, she did nothing noteworthy.</p>
+<p>It was a good sign at least. If she went to the higher-ups, Vex in this case, and informed her of my having a legendary artifact somewhere in my possession I don't want to think about the consequences. I need to settle this matter with the woman before we return from the mission.</p>
+<p>Our days continued as such, with the team chemistry not at all getting better, in fact, it was only getting worse.</p>
+<p>…</p>
+<p>While Quinlan and co were heading towards the mission's location, the seven circle heads met up via an artifact call. With the first round concluded, they wanted to discuss the happenings, mainly…</p>
+<p>"Black Fang. We disapprove of your actions." The army head grunted.</p>
+<p>"Which ones?" The woman in question wasn't bothered at all by the overwhelming dissatisfaction her peers had for her.</p>
+<p>"You know exactly which ones. You going out of your way to assign a specific mission for specific candidates is not how the Trials should be conducted. It loses credibility for being a fair competition." The finance head decreed.</p>
+<p>"You mean it's fair when the rich kids are taxied by the high-level guards their parents hired to deliver their children to the location while the less fortunate ones have to fumble their way through monster-infested long strips of land only to be thrown into a death battle against well-rested opponents who are also equipped in significantly better gear?" Black Fang long since believed that the Trials were not fair from the start.</p>
+<p>"Be that as it may, you're only adding fuel to the fire." The meditator who held the highest respect in the syndicate said in a calm, non-confrontational tone. "If there's a little bit of unfairness present that doesn't mean that you should make it even worse."</p>
+<p>Black Fang relaxed back into her poison-filled bath as she gently caressed her tender skin. Spending a few hours every week in this potent mix extracted from the venomous glands of serpentine monsters was one of the remedies she's found to be very effective for skincare. Of course, as long as one had the required poison resistance, as otherwise it would just melt their skin off and kill them in mere moments. "Okay then. Write me up or something."</p>
+<p>"…" Multiple sighs could be heard through her communication device. The other department heads were used to her non-caring attitude.</p>
+<p>"Can you give us an explanation as to why you selected those few candidates?" The human trafficking head inquired. She was also a woman, though unlike Black Fang she was old not just based on the calendar but her physical form too.</p>
+<p>"Yeah. I wanted to talk to you six about it. I selected them more or less at random, save for one." Black Fang revealed casually, before changing her carefree tone to that of extreme authority. "Devil. Devil is mine. I care not for what you think or want. If you oppose me, I'll kill you."</p>
+<p>Her announcement sent shockwaves through all those who heard her voice. The Trials were meant for the Consortium to find promising youths who could fill their ranks, and after they invested in the youngsters, one day they might even take up positions as respected members such as the Veil Walkers who were the main muscle of the syndicate. Usually, the heads didn't compete or argue among themselves about which candidate would go to which department. Most of the time it didn't matter much, since the Phenoms could change departments if they wanted. It was more so just to decide which head would finance which youth's growth.</p>
+<p>Black Fang wanting to sponsor a specific Phenom was a new thing for them. Of course, similar things have happened before with other Obsidian Circle Members wanting a specific Phenom to be allocated to them, but not to the point of outright threatening murder. The woman was a bit abrasive, and very distant at all times, so her being this interested in Devil made all of them curious too. It would've been one thing if it was the army head or someone more simple-minded who did this, but Black Fang…? The one who basically left all her duties to her subordinates because she couldn't care about drugs and money?</p>
+<p>That's right; not all department heads were masters of their craft. They were just the mightiest people in their departments. Black Fang for example never did anything for the drug business besides completing missions like killing their rivals and the like. While this might be true for most of them, over the centuries they did acclimate to their roles and have been allocated a great deal of resources to excel as actual leaders of their fields, it's just that Black Fang never cared for it.</p>
+<p>"You'll kill us, huh…? But can you do it?" The army head asked arrogantly.</p>

@@ -1,0 +1,30 @@
++++
+title = "Chapter 41: Desperate War Troll Fight 1"
+weight = 41
+[extra]
+chapter = 41
++++
+
+<p>With each thrust, I feel the difference. This spear glides through the air with ease, its weight much better balanced. I plunge it into the first goblin's chest, and it drops instantly. I yank it free and spin around, skewering another goblin in the throat.</p>
+<p>The new steel spear combined with my extra Strength stats increase the potency of my attacks greatly. Low level goblins that required two thrusts of my iron spear now fall from a single precise strike. Furthermore, if I hit a vital spot I can even dispatch level 4 goblins in one thrust.</p>
+<p>[Power Strike] became even more potent too, allowing me to kill a level 6 goblin with a well aimed plunge to its chest.</p>
+<p>Ayame moves with lethal grace beside me, her new sword flashing as she mows down the goblins. She's a blur of motion, her strikes quick and deadly. Each swing of her blade brings down another goblin, and her movements are so fluid that it looks like a deadly dance more than a desperate fight for survival.</p>
+<p>I stab another goblin through the heart, then spin and slam the butt of my spear into the face of a goblin trying to flank me. It crumples to the ground, and I quickly finish it off with a thrust to the neck. I've killed six goblins by now, and the pile of bodies around us grows larger by the second.</p>
+<p>Ayame is relentless, slicing through the goblins with undying determination. She's taken down twelve of them, her movements swift and efficient. Her eyes blaze with fury, and each strike is filled with a palpable hatred for these creatures.</p>
+<p>When there's only two goblins remaining she turns on her heel and says; "I leave the last pair to you. I will face the troll alone. Once you've slain the goblins run to the forest like there's no tomorrow. Don't worry about my safety and don't even dare to think about helping me out. A light tap of its finger will put you into your grave."</p>
+<p>The sacrificial nature reminiscent of honor-bound samurai of old shine through her persona at this moment. I bite my lower lip in frustration but I can't bring up any better counter solution. With the troll being above level 20 it can surely outrun me if we attempt an escape, and Ayame being only level 14 isn't safe either.</p>
+<p>Dejectedly, I turn to the goblins, praying that Ayame somehow triumphs over the monstrosity that is now very close to us. The sounds of battle are deafening, and I hear a loud roar followed by a bang, probably indicating that the troll missed Ayame with its hammer.</p>
+<p>I quickly dispatch the goblins, my new spear making swift work of them. As I turn back, an unexpected sight meets my eyes. Ayame is darting on the ground, skirting the troll and leaving small scratches on its legs. But what truly surprises me is the newcomer seated atop the troll's neck.</p>
+<p>It's a golden-haired girl with dog-like ears and a long ponytail, clinging to the beast with fierce determination emitting from every fiber of her existence.</p>
+<p>The woman's eyes are filled with unwavering resolve as she invokes a spell, "[Behemoth's Bane]." Her curved dagger becomes coated in a foul-looking poisonous substance, dark purple and extremely menacing. She begins stabbing the war troll repeatedly all over the neck and head with ferocious intensity and speed. Each stab emits a sizzle as the poison seeps into the troll's thick skin.</p>
+<p>Her arm flickers in and out of existence at speeds I'm struggling mightily to follow and pierces the troll's hide at least thirty times.</p>
+<p>The war troll roars in pain and fury, its massive hands flailing in an attempt to reach its attacker. Despite the significant damage it had taken, the troll doesn't relent and finally manages to reach the girl. With a powerful swipe, it grabs her and throws her to the ground. She lets out a whimper as she is hurled through the air, crashing into the ground with a loud thud.</p>
+<p>She lands so close to me that I was almost hit by her.</p>
+<p>The girl struggles and fails to get up, her body battered from the fall. The war troll, now even more enraged, turns its attention back to Ayame, who continues her relentless assault.</p>
+<p>The troll suffered severe injuries and despite Ayame saying that it's specialty is [Rapid Regeneration] I see no signs of him healing. The poison spell probably had anti-healing properties.</p>
+<p>I step in front of the heavily injured girl who is still attempting to get back into the fray of battle despite her perilous state. I kneel down in front of her and gently pat her shoulder. "I'm forever grateful for your intervention- whoever you might be- and I swear that we won't let it go to waste.</p>
+<p>Tend to your injuries and leave the rest to us." I equip my most encouraging smile from my expression inventory on my face.</p>
+<p>She looks at me with wide, disbelieving eyes before asking hesitantly, "you thanked me?" I examine her with a puzzled gaze and then I notice an iron collar strapped tightly around her neck. It's the exact same Ayame has.</p>
+<p>It doesn't take a genius to piece things together. She must be a slave that has never been thanked for her services by her owner. Now that I examine her better I see numerous scars in various stages of healing all over her skin that are visible from under her dark ragged attire. She is obviously severely mistreated on a near daily basis.</p>
+<p>However, I don't have the leisure to dwindle around any longer. I know I can't approach the troll because compared to Ayame I'm slower, significantly worse at acrobatics and I'm much less experienced. Instead I decide to utilize my Assassin class's innate spell, [Knife Throw] for the first time.</p>
+<p>Before standing from my kneeling position I take her dagger with great care as it's still coated in the bile substance. She looks at me worriedly, but seeing my reassuring smile, or perhaps remembering my previous words she doesn't object.</p>
