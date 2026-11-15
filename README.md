@@ -65,7 +65,6 @@ Novels, chapter by chapter:
 | Moby Dick | 61 |
 | The Idiot | 55 |
 | Notes from Underground | 24 |
-| The Odyssey | 25 |
 | White Nights | 12 |
 | The Trial | 11 |
 | Metamorphosis | 4 |
