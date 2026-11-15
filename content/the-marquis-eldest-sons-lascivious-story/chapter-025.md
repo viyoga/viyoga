@@ -16,7 +16,7 @@ chapter = 25
 <p>Kohali tightly pressed her hands together and said with a tearful voice. Her brother looked worried too, and he repeatedly shifted his eyes between me and Kohali.</p>
 <p>It wasn't like he would be joining us, so it was fine. I waved my hand and answered:</p>
 <p>「Suit yourself.」</p>
-<p>The bath was built in the courtyard. Surrounded by a Camellia hedge, a gazebo was built over a large rock.[1] There was a hole in the form of a bathtub dug in the large rock which had been cut through with a cross area of around six and a half tatami mats.</p>
+<p>The bath was built in the courtyard. Surrounded by a Camellia hedge, a gazebo was built over a large rock."1" There was a hole in the form of a bathtub dug in the large rock which had been cut through with a cross area of around six and a half tatami mats.</p>
 <p>It was literally a rock bath.</p>
 <p>The rock was probably originally a large one. Perhaps they'd polished the area, its smooth texture was great.</p>
 <p>Of course, there was no water inside the rock bath.</p>

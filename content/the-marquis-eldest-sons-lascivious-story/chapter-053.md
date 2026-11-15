@@ -31,7 +31,7 @@ chapter = 53
 <p>The elderly woman made an expression of understanding when Minith mentioned the name of her friend. It seemed that her friend was a devout believer.</p>
 <p>「The great spirit of the sun, Whatenthsāma, anwered my prayers. I came here to offer my gratitude.」</p>
 <p>Her response was clear and concise.</p>
-<p>「Oh my, that's wonderful. Please wear a habit and proceed inside.」[1]</p>
+<p>「Oh my, that's wonderful. Please wear a habit and proceed inside.」"1"</p>
 <p>The elderly woman gave a sincere smile and beckoned us to proceed first. I was curious about her clothes. Perhaps she was a nun in the convent.</p>
 <p>Churches under the Synod had a distinctive attire for its members, including the priests and the believers. Female members wore a completely black dress with wide sleeves along with a black veil. Male members dressed the same as the female members, but a shorter veil. It was possible to find yourself in a despairing situation where you'd feel aroused seeing someone's back figure, and then you'd realize that it was actually a man. What a dangerous thing.</p>
 <p>「Do we change here?」</p>

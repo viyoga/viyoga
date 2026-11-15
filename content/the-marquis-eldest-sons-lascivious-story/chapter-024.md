@@ -61,7 +61,7 @@ chapter = 24
 <p>When a part of her private area became visible, she covered it with her hand, and she squatted down as she dropped her panty all the way to her feet.</p>
 <p>「...Brother, I have taken it off.」</p>
 <p>「Uh, huh...」</p>
-<p>Seeing that I was trying to peek, Kohali sat down on the spot. She sat with her legs bent beside her ass, and covered her important area with her palm.[1] Her calf and plump thighs were pushing against each other, and her palm was covering her private her. There was nothing more arousing than a half-naked young girl taking such a pose.</p>
+<p>Seeing that I was trying to peek, Kohali sat down on the spot. She sat with her legs bent beside her ass, and covered her important area with her palm."1" Her calf and plump thighs were pushing against each other, and her palm was covering her private her. There was nothing more arousing than a half-naked young girl taking such a pose.</p>
 <p>「Next is your bra. Hurry up!」</p>
 <p>My dick was already standing hard.</p>
 <p>Her naked brother followed my order and moved his fingers on Kohali's back, and then the bra's hook was suddenly released.</p>

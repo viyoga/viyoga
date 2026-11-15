@@ -45,7 +45,7 @@ chapter = 23
 <p>「…Brother?」</p>
 <p>Kohali looked like she didn't understand the situation. She was looking strangely at her brother who suddenly went down on his knees. I ignored her and looked down on her brother.</p>
 <p>「I won't repeat myself.」</p>
-<p>I had no interest watching a man strip. If I had, the story would've become 'The Marquis' Eldest Son's BL Story'.[1]</p>
+<p>I had no interest watching a man strip. If I had, the story would've become 'The Marquis' Eldest Son's BL Story'."1"</p>
 <p>「Ku…」</p>
 <p>Frustrated, Kohali's brother stripped his coat off. He then folded it neatly and placed it on the floor.</p>
 <p>「Your wearing a good leather belt, aren't you? Is the design gold?」</p>

@@ -102,7 +102,7 @@ chapter = 105
 <p>“I see”</p>
 <p>“The city of Nambonan has also become a territory of Koldenze, and immigrants will no longer come from the territory of Evenapis, because the mayor of Nambonan is master Wilk.”</p>
 <p>Commoners are the ones who control taxes and support the aristocrats who are the rulers. If you imitate it indiscriminately, it could be a source of war. If it is between territories that have a friendly relationship, that area will be dealt with firmly.</p>
-<p>The Koldenze family and the Evenapis family are very close. From the eastern aristocrats of the kingdom, they are so close that they can be slammed together with “the three central aristocrats, [the stratagem of Koldenze, the martial arts of Evenapis, and the sword of shiruopea] .”</p>
+<p>The Koldenze family and the Evenapis family are very close. From the eastern aristocrats of the kingdom, they are so close that they can be slammed together with “the three central aristocrats, "the stratagem of Koldenze, the martial arts of Evenapis, and the sword of shiruopea" .”</p>
 <p>Anyway, the mayor of Nambonan is me. And my mother, Merly (TLN: メルリィ), is from the Evenapis family, so of course I should be careful.</p>
 <p>“It doesn’t change if the knights rule the city of Nambonan. They categorically reject the people who abandoned Evenapis.”</p>
 <p>The civilian who said that was from the knight family. He is a man who does not have the right to inherit the patriarch because he has no magical power.</p>

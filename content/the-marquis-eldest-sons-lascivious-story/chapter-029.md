@@ -63,7 +63,7 @@ chapter = 29
 <p>「Ah, it has ended without a hitch. It is well said that people lose their judgement as they increase in number.」</p>
 <p>The official announcement of the surrender had ended, and we were holding an evaluation meeting at Viscount Galliana's tent. As everything had gone according to plan, Viscount Galliana was all smiles.</p>
 <p>「In the end, how are things any different from being ruled by a noble?」</p>
-<p>Nambonan's mayor possessed great authority. It had the power to do anything, just like the Enabling Act of 1933.[1] Honestly, it was a cheat position. Moreover, only members of the House of Quordentz could sit on the position of mayor. What was democracy all along?</p>
+<p>Nambonan's mayor possessed great authority. It had the power to do anything, just like the Enabling Act of 1933."1" Honestly, it was a cheat position. Moreover, only members of the House of Quordentz could sit on the position of mayor. What was democracy all along?</p>
 <p>「Possessing authority is one thing, employing it is another. By pretending on leaving everything to their hands, wouldn't people view Wilk-dono as an understanding mayor?」</p>
 <p>「You have a point.」</p>
 <p>Nambonan was originally semi-independent, so it should be enough to just watch over them to make sure things don't advance in a weird direction. A civil officer would be transferred from the Quordentz to build a new city hall and supervise Nambonan's council, so the only thing left for me was to approve things. In Quordentz territory, Nambonan wasn't comparable to Nyuneri, but its development was among the top three, so it wouldn't be too bad to visit once in a while for inspection.</p>

@@ -16,24 +16,24 @@ chapter = 204
 <p>And this is not the city of Newnelly, but the Royal Capital of Levios. An unmarried Princess wouldn’t be able to openly enter another family’s bath.</p>
 <p>Picking up the cup of barley tea, the ice made a crunching sound. It’s probably a large piece of ice made with magic, which is then crushed.</p>
 <p>The sound of the coolness was soothing to my flushed body, and I ate loquat-like fruit, a specialty of the Royal Capital, to cool off before going to bed.</p>
-<p>[Father won’t be coming back tonight, huh?]</p>
+<p>"Father won’t be coming back tonight, huh?"</p>
 <p>I waited for a while, but there was no sign of my father returning.</p>
 <p>Before I took a bath, I received a message from my father asking me to take a rest first, so I thought that he would be late. It seemed that he was tangled in a fairly complex matter.</p>
 <p>Even if I wait like this, I won’t be able to talk to my father until tomorrow morning, so I’ll take his word for it here.</p>
 <p>Even though it’s called resting, it’s not like I’m actually resting. It’s simply just taking a break.</p>
 <p>After closing the diary, which was much longer than usual, I ordered the servant to put it away. Then I got up from the sofa, left the hall, and proceeded down the dark corridor.</p>
-<p>[Is she still sleeping? Where is her room?]</p>
+<p>"Is she still sleeping? Where is her room?"</p>
 <p>I called out to the short maid who was leading the way. Without turning around, she answered the question in a clear voice.</p>
-<p>[Yes. I just checked and she hasn’t fully recovered yet. As for the room…]</p>
+<p>"Yes. I just checked and she hasn’t fully recovered yet. As for the room…"</p>
 <p>She’s a maid who has stayed in the Royal Capital for a long time, as I can feel her confidence in her words and actions. She was a girl with poor breasts and buttocks, but she’s fairly good looking. Let’s taste her when I have some spare semen. Since it’s a local maid that can only be tasted in the Royal Capital, it’s human nature to want to get my hands on her.</p>
 <p>While I was thinking about such things, the local maid stopped and grabbed the handle of the door of the room she was aiming for.</p>
 <p>This room contains Eve who was knocked unconscious by Orshian.</p>
 <p>According to the testimony of those who saw her, she fainted after being threatened with full power for the second time.</p>
-<p>[Has she woken up even once?]</p>
-<p>[Not at all. There was almost no reaction when I cleaned her body.]</p>
+<p>"Has she woken up even once?"</p>
+<p>"Not at all. There was almost no reaction when I cleaned her body."</p>
 <p>After Orshian retreated, I gave permission to only heal the body when a civil officer was intending to restore Eve’s consciousness. I told him not to do anything mentally.</p>
 <p>The instructions were mostly made in the spur of the moment, and I won’t be able to say anything if asked why. I dare say it was my sixth sense that made me do it.</p>
-<p>[Open it.]</p>
+<p>"Open it."</p>
 <p>I ordered the local maid to open the door to the room.</p>
 <p>When I stepped inside the room, a ball of light the size of a softball drifted around me. I can tell from my sense of magical power that it was a lighting magic created by a local maid.</p>
 <p>The room that Eve was put in was about half the size of my room and was in reasonably good condition.</p>
@@ -41,30 +41,30 @@ chapter = 204
 <p>It looked like she’s really asleep.</p>
 <p>Lying on her back on the bed, Eve’s hands were folded around her plexus.</p>
 <p>A picturesque scene of a final resting place, if you ask me. The fluffy, flickering light ball of lighting magic looks like a lantern used for a funeral.</p>
-<p>[Eve.]</p>
+<p>"Eve."</p>
 <p>I tried confirming the presence, or absence, of her consciousness with a low voice. Eve didn’t respond to my voice at all. But, she kept breathing peacefully.</p>
-<p>[Here.]</p>
+<p>"Here."</p>
 <p>I tried to squish Eve’s cheeks with my index finger, but her expression didn’t change at all.</p>
-<p>[Here~here~]</p>
+<p>"Here~here~"</p>
 <p>I tried using both hands to squash her face into a diamond shape to make a funny face, and tried pinching her nose to obstruct her breathing, but she still didn’t react.</p>
 <p>As expected, her consciousness was completely cut off.</p>
-<p>[It’s like she’s dead, isn’t she?]</p>
+<p>"It’s like she’s dead, isn’t she?"</p>
 <p>I asked the local maid in the corner of the room. She said yes in a small voice. But, considering the warmth that is transmitted through her skin and the gentle breathing, she can’t be dead.</p>
 <p>However, I feel like I was shown the difference between sleep and coma from this unresponsiveness. A little scary, actually.</p>
 <p>However, this was also a very convenient situation for me.</p>
 <p>Freed from my funny face attack, Eve continued to slumber with a clear expression as if nothing had happened.</p>
 <p>When I thought that Eve wasn’t looking at me, I couldn’t help but stare at her beautiful and well-groomed appearance. I thought I understood it enough, but it was a beautiful figure that made me sigh. If I have a picture of Eve’s face, I’m confident that I can masturbate with it.</p>
-<p>[…To fall asleep defenseless like this.]</p>
+<p>"…To fall asleep defenseless like this."</p>
 <p>I felt like I could now explain in words why I limited Eve’s healing to only her body.</p>
 <p>With today’s Orshian assault, Eve may change her perception of me.</p>
 <p>A good pattern is “reliable and wonderful master”, and a bad pattern is “a super dangerous guy who is more than a demon”. The former is undoubtedly preferable, but I also need to think about how to deal with it once she’s awake.</p>
-<p>No matter how much she likes me, tomorrow she won’t suddenly say, [Master, you’re wonderful♡ Pour plenty of baby impregnation juice into my pussy ♡♡♡].</p>
+<p>No matter how much she likes me, tomorrow she won’t suddenly say, "Master, you’re wonderful♡ Pour plenty of baby impregnation juice into my pussy ♡♡♡".</p>
 <p>After a long winter, it’s finally starting to wag its tail. I should stop forcibly pressing for a physical relationship.</p>
 <p>Start with light body touches such as shoulders and head, then move on to kissing and petting, gradually softening her resistance to sex. The goal is of course Eve-Raeve Oyakodon.</p>
 <p>That’s why, depending on Eve’s attitude tomorrow, I may not be able to hold her for a while. In other words, I can only fuck her to my heart’s content tonight while she’s unconscious.</p>
 <p>My sixth instinct for not missing the slightest opportunity should probably be called my sex sense.</p>
-<p>[If you don’t wake up, I will kiss you.]</p>
-<p>[…..]</p>
+<p>"If you don’t wake up, I will kiss you."</p>
+<p>"….."</p>
 <p>Of course, there was no reply from Eve. If such a beautiful girl fainted and was lying on the side of the road, she would likely be impregnated on the next day.</p>
 <p>The defenseless exposed fresh lips were something that no real man could ignore. I gently brought my face closer.</p>
 <p>Smooch.</p>
@@ -84,7 +84,7 @@ chapter = 204
 <p>The cool, low-friction cuticle that slips through my fingers was irresistible. It was a fascinating feeling that made me want to touch her hair forever.</p>
 <p>I kissed her and stroked her hair, kissed her and stroked her hair. I stroked her hair again, and kissed her.</p>
 <p>Strangely enough, I never got tired of it.</p>
-<p>Even though my cock was so hard that it could perhaps tear my pants, insisting that it should [plant some seeds], I couldn’t find a reason to stop stroking her hair.</p>
+<p>Even though my cock was so hard that it could perhaps tear my pants, insisting that it should "plant some seeds", I couldn’t find a reason to stop stroking her hair.</p>
 <p>In a civilized society, people have no choice but to be conscious of being evaluated by others. For that reason, no matter how much one trusts their partner, they will be reluctant to reveal all of their desires. Rather, it may be that they are concerned about their face.</p>
 <p>Being freed from the shackles may be the situation that most stimulates the instincts of a human being as a single creature… While I was toying with Eve while thinking about such things, both of her cheeks were wet with saliva and began to shine under the lighting magic.</p>
 <p>Eve keeps an expression like she doesn’t care. It was as if a work of art that shouldn’t be defiled was painted over with the paint of a man’s desires. A sense of immorality welled up, and my heart tightened.</p>
@@ -106,12 +106,12 @@ chapter = 204
 <p>My erection actually waned a little.</p>
 <p>I put my hands on Eve’s hands. I think it’s probably fine because she won’t wake up even if I mess around with her, but I was a little nervous about removing the towel blanket that covered her body.</p>
 <p>When the cover was removed, Eve appeared in the same clothes as during the day.</p>
-<p>[Oh…]</p>
+<p>"Oh…"</p>
 <p>A voice of admiration leaked out, and I involuntarily swallowed my saliva.</p>
 <p>As the local maid said earlier, Eve has been bathed. Since she’s unconscious, the plan was getting her straight to bed afterward.</p>
 <p>Nevertheless, the maids actually outfitted her with everyday clothes instead of pajamas.</p>
-<p>I see, one of the charms of sleep sex is that it’s an extraordinary thing that comes out of everyday life, [secretly raping a woman in a deep sleep in one normal scene]’.</p>
-<p>It’s night now, and this is the bedroom. If Eve had been wearing her sleepwear, the element of night crawling would have appeared strongly, and a serious incident of situation conflict might have occurred. No, I like the setting of [a younger brother who plays naughty pranks on his older sister who doesn’t wake up until morning once she goes to sleep], and I rather like it, but that’s not what people want right now.</p>
+<p>I see, one of the charms of sleep sex is that it’s an extraordinary thing that comes out of everyday life, "secretly raping a woman in a deep sleep in one normal scene"’.</p>
+<p>It’s night now, and this is the bedroom. If Eve had been wearing her sleepwear, the element of night crawling would have appeared strongly, and a serious incident of situation conflict might have occurred. No, I like the setting of "a younger brother who plays naughty pranks on his older sister who doesn’t wake up until morning once she goes to sleep", and I rather like it, but that’s not what people want right now.</p>
 <p>Eve doesn’t have much of an older sister element, and above all, I really like Eve’s appearance these days.</p>
 <p>To be able to prepare women’s civilian uniforms that they wear on a daily basis, and prepare a place where they can purely enjoy the element of sleep rape… This can be seen as a fairly high-level human being working behind the scenes. .</p>
 <p>I put my hands together with the person whose face and name that I didn’t know in gratitude, then focused back on Eve.</p>
@@ -145,7 +145,7 @@ chapter = 204
 <p>What delicious-looking breasts.</p>
 <p>Because she was lying on her back, her breasts were flattened. However, there was still a tension due to youth, and strength remains in the swelling in the vertical direction. In this regard, compared to Anna and Mimon, it feels like there is a core in Eve’s breasts.</p>
 <p>Well, there’s a melt-in-your-mouth softness, and it’s satisfying to eat. It’s not about which one is better or worse. There are big and small, hard and soft breasts, but there is no Noble or inferior among them.</p>
-<p>[Hamu.]</p>
+<p>"Hamu."</p>
 <p>I sucked at the nipple, which appealed to me with a pungent presence, as if to ask me to suck it.</p>
 <p>Then, I began to selfishly suck only for my own satisfaction.</p>
 <p>Chu, chu, chupa, chu, churu…</p>
@@ -229,28 +229,28 @@ chapter = 204
 <p>I felt like I would ejaculate involuntarily from the moment I peeled off the foreskin. The meat stick was on the verge of exploding.</p>
 <p>I put the glans with tremendous heat and lust against the opening of the vagina. All I had to do was move in.</p>
 <p>Haa, haa, haa, the sound of my own breathing was terribly annoying.</p>
-<p>[… Eve, if you don’t wake up, you’ll get pregnant…]</p>
+<p>"… Eve, if you don’t wake up, you’ll get pregnant…"</p>
 <p>I whispered into her ear, but there was no response.</p>
 <p>After sucking her lips a few times, I sat up and went into an insertion position.</p>
 <p>In order not to inflict severe pain on her, I inserted only the tip first.</p>
 <p>From this position, I could clearly see the connection. My glans had hidden itself in Eve.</p>
 <p>Eve’s vaginal meat gently envelops my most sensitive part. Pleasant sensations similar to sharp pain numb the lower half of the body.</p>
 <p>Perhaps it’s because Eve’s body doesn’t have enough strength, the tightening of her vagina isn’t that strong. But, it’s never boring. Rather, I felt my ejaculation limit approaching at high speed with a fresh soft touch that I had never experienced before.</p>
-<p>[Kuh…!]</p>
+<p>"Kuh…!"</p>
 <p>The base of the rod tightened. From here on out there is no turning back, the whole body has already shifted to a complete ejaculation mode. Rather than enduring it poorly, I had to give priority to releasing it comfortably.</p>
 <p>I put my hands on Eve’s shoulders and thrusted the hardened meat stick deep into her vagina.</p>
-<p>[Uh, gh! Kufuu…!]</p>
+<p>"Uh, gh! Kufuu…!"</p>
 <p>Bururu! Byu, buu!</p>
 <p>The highly viscous semen that had been accumulating from the ascetic life up until now, jumped into Eve’s defenseless womb.</p>
-<p>[Ngguu!]</p>
+<p>"Ngguu!"</p>
 <p>Byuru, byu, byu!</p>
 <p>The muscles on my whole body contract and exert their strength, trying to pour out as many seedlings as possible.</p>
-<p>[Eve…!]</p>
+<p>"Eve…!"</p>
 <p>She still didn’t answer.</p>
 <p>The rod, which could be seen slightly from the joint, pulsated greatly every time it spits semen. It was a scene that clearly showed that it was the climax of mating.</p>
 <p>Although I’m the only one desperately trying to have sex here.</p>
 <p>Looking at Eve’s clear expression, I felt apologetic and overflowed with semen. The feeling of guilt running down my back like cold water makes my balls shake.</p>
-<p>[Haa…haa…!]</p>
+<p>"Haa…haa…!"</p>
 <p>The amount of accumulated semen was tremendous. Even though I ejaculated vigorously several times, my cock was still trembling and squeezing out the offspring.</p>
 <p>Doku… Doku… Doku… It’s almost like it’s dripping, but even so, my penis didn’t stop working to impregnate Eve.</p>
 <p>This brain-numbing pleasure is definitely caused by ejaculation.</p>
@@ -259,12 +259,12 @@ chapter = 204
 <p>Plop.</p>
 <p>When the cock that came out of the vagina finally ejaculated a small amount like a dying man, it withered and stopped moving.</p>
 <p>After all, it was just a matter of ejaculating for a long time. I feel a strange impression in my ejaculation power.</p>
-<p>[…phew…good for you… Eve…]</p>
+<p>"…phew…good for you… Eve…"</p>
 <p>Semen dripped from Eve’s vaginal opening as she continued to sleep. The highly viscous semen slowly spilled out of the vaginal orifice, traveled to the butt, and disappeared as it is.</p>
 <p>With her exposed and defiled breasts, and the lust overflowing from her vagina, it’s as if I’m looking at a young girl after she’s been raped….. No, is that a correct perception?</p>
 <p>However, despite such vulgar deeds, Eve’s face was nothing but peaceful.</p>
 <p>You have a pretty face, don’t you? For someone that just got raped that is.</p>
-<p>[Pfft…]</p>
+<p>"Pfft…"</p>
 <p>Due to the strange tension immediately after ejaculation, I laughed at the words that came to my mind.</p>
 <p>But that will soon be settled. By seeing the dripping semen, my cock was slowly starting to reboot.</p>
 <p>At this rate, it should be possible to insert it again after a short break. Next, let’s do a slow piston movement and enjoy Eve’s vaginal walls.</p>

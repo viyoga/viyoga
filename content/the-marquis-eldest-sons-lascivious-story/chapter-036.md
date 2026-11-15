@@ -58,7 +58,7 @@ chapter = 36
 <p>I opened the door and went inside my room for the first time in a while. Today's weather was good, and the sunlight was shining in so brightly from the window. Glasses, which were considered as high-class goods, were used without restrain in the window of my room. It was the kind of room that one would expect from the son of a Marquis.</p>
 <p>The glass was colored and not completely transparent, but its transparency was high enough that I could see through beyond the window. Perhaps because the sunlight had warmed up my room, there was a fragrance of a flower inside.</p>
 <p>「Hm?」</p>
-<p>The door leading to the balcony was made of glass over a wooden frame, similar to a shoji.[1] I could see a shadow beyond the door, but I couldn't identify the person because the glass wasn't clear. The person was crouching down without moving.</p>
+<p>The door leading to the balcony was made of glass over a wooden frame, similar to a shoji."1" I could see a shadow beyond the door, but I couldn't identify the person because the glass wasn't clear. The person was crouching down without moving.</p>
 <p>Opening the glass door quietly, I stepped inside the balcony.</p>
 <p>The person crouching down was wearing a female servant's clothes. So it was a woman. What should I do if the person was a man?</p>
 <p>「Oh. So its you, Minith.」</p>

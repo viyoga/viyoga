@@ -36,7 +36,7 @@ chapter = 39
 <p>Closely, Minith stared at me with loving eyes.</p>
 <p>The initial spurt had calmed down. But, slowly and unevenly, I still continued delivering my seed. While that was happening, Minith and I were connected by a deep kiss.</p>
 <p>「Mmhhm, mwah♡ … mwah♡… fhaa… mwah. Young master, I love you, very much…♡」</p>
-<p>I showed a smile at Minith while she stared me lovingly. I understood what she wanted. As my ejaculation ended and I entered semi sage mode, I whispered to her ears in a tone sounding as sweet as possible.[1]</p>
+<p>I showed a smile at Minith while she stared me lovingly. I understood what she wanted. As my ejaculation ended and I entered semi sage mode, I whispered to her ears in a tone sounding as sweet as possible."1"</p>
 <p>「I also love you, Minith.」</p>
 <p>Moving my face slightly away from her ears, I planted a kiss on her cheek. Following that, I intensely kissed her body a number of times, including her nape, collarbone, and breasts. Unconsciously, I was declaring that she was mine.</p>
 <p>Minith let out a seductive sound with a hint of satisfaction, and then she closed her eyes.</p>

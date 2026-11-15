@@ -13,39 +13,39 @@ chapter = 231
 <p>I could see it when we’re face to face like this; her face is very similar to Dunkel. The younger brother is a handsome Prince with a sweet mask that seemed to be popular with Japanese women of my time. Now imagine gender-bending him. That’s what Princess Ena looks like to me.</p>
 <p>Both Alina and Ena came from the same source of seeds, yet just because of the difference in the field where the seedling grew, there is such a disparity in facial features? The reality is really ruthless.</p>
 <p>As I was preparing myself for what would happen, she solemnly asked for permission to speak.</p>
-<p>[We recognize that the defeat of the second demon beast was due solely to the efforts of Wilk-dono and Princess Orshian. I thank you on behalf of Lugain Levios.]</p>
+<p>"We recognize that the defeat of the second demon beast was due solely to the efforts of Wilk-dono and Princess Orshian. I thank you on behalf of Lugain Levios."</p>
 <p>It was a really soft tone. Despite being an important statement for the Levios family, she made it felt like it’s someone else’s affair. It’s only a small trace that I could have missed, and I even felt a cold impression.</p>
 <p>I wonder if it’s okay for them to suddenly make a statement that fully approves of my achievements. It’s like giving a word.</p>
 <p>Taking a glance at the granny Vaine, I noticed that she didn’t show any signs of trying to stop Ena.</p>
 <p>Whether she is the representative of the Levios family head or the King of the Levios Kingdom, it was still unclear. I could say that Ena’s remark was thoughtful words of gratitude in line with my intentions. She gave me a better impression than granny Vaine, who suddenly set up a verbal battle. …..It’s a disgusting expression, but it’s like I’m fighting with an old woman and deep kissing each other.</p>
-<p>[I am honored by those words.]</p>
+<p>"I am honored by those words."</p>
 <p>I chose to play it safe and replied. She thanked me again in response.</p>
-<p>[I regret the clumsiness of the Palace, which has not been able to select a substitute. I am truly grateful for Wilk-dono’s consideration, and I, Levios Ena, once again thank you…]</p>
+<p>"I regret the clumsiness of the Palace, which has not been able to select a substitute. I am truly grateful for Wilk-dono’s consideration, and I, Levios Ena, once again thank you…"</p>
 <p>Thank you for taking the message without getting angry when a concubine’s daughter like myself came to be the messenger…that’s what she’s implying.</p>
 <p>What a servile line of thought. As long as they’re a Highlord and the real child of the family head, there would be a few people who would care if it was the child of the concubine.</p>
-<p>[You don’t have to worry about it. I’m pretty close to Prince Dunkel myself, so I think it’s a good opportunity to finally meet his older sister. If you don’t mind, can we talk a little?]</p>
+<p>"You don’t have to worry about it. I’m pretty close to Prince Dunkel myself, so I think it’s a good opportunity to finally meet his older sister. If you don’t mind, can we talk a little?"</p>
 <p>Hearing words of thanks does not mean dissolution. Since it’s a face-to-face meeting between Nobles, we have to have a conversation to some extent.</p>
 <p>She accepted the offer with a smile. Well, it’s nice to be able to talk to beautiful women.</p>
 <p>Beginning with the classic talk of Nobles, Ena and I continued our silly discourse for a while.</p>
 <p>=========</p>
-<p>[…..oh, did my brother do such a thing?]</p>
-<p>[Yes, actually…]</p>
+<p>"…..oh, did my brother do such a thing?"</p>
+<p>"Yes, actually…"</p>
 <p>In order to grasp Ena’s personality, I spreaded the topic in various directions.</p>
 <p>She didn’t even throw words back to test me, she just calmly answered. There is no “just business” atmosphere that can always be felt during the first greeting and the subsequent conversation between Nobles. It was a pleasant chat that gave me a faint sense of intimacy.</p>
 <p>The conversation between me and Ena was spun as if we were resonating with each other really well.</p>
 <p>So smoothly and beautifully. It’s a fluent and flowing exchange.</p>
 <p>Is this…..</p>
-<p>[Princess Ena…]</p>
+<p>"Princess Ena…"</p>
 <p>I was at a loss for words for a moment.</p>
-<p>[Yes? What is it?]</p>
+<p>"Yes? What is it?"</p>
 <p>A single intuition sprouted out in my head. In order to confirm the identity of the discrepancy that I felt vaguely during this conversation, I decided to throw a slightly different and stronger ball.</p>
-<p>[I can tell that Princess Ena had a deep knowledge of classics. I heard that the library in the Royal Capital has a large number of books, so if you don’t mind, please let me know if there are any books you recommend.]</p>
+<p>"I can tell that Princess Ena had a deep knowledge of classics. I heard that the library in the Royal Capital has a large number of books, so if you don’t mind, please let me know if there are any books you recommend."</p>
 <p>First, it will be affirmation</p>
-<p>[Yes, of course.]</p>
+<p>"Yes, of course."</p>
 <p>The following words are humility and anticipation.</p>
-<p>[However, it’s a bit of a problem. My Levios is confident in the number of books we have, but when it comes to classics, I wonder if it will be enough to satisfy Wilk-dono of Quordenze…]</p>
+<p>"However, it’s a bit of a problem. My Levios is confident in the number of books we have, but when it comes to classics, I wonder if it will be enough to satisfy Wilk-dono of Quordenze…"</p>
 <p>The final choice was a book written during the era when the Levios family was born as a Noble family.</p>
-<p>[…Then how about a travel journal? My Levios have a record of the expedition to the Mist Land written by the first head of the family…]</p>
+<p>"…Then how about a travel journal? My Levios have a record of the expedition to the Mist Land written by the first head of the family…"</p>
 <p>I see, this woman is quite talented.</p>
 <p>Ever since the conversation started, she has maintained an amiable attitude to male Nobles. Instead of flattering me straight, she was able to ascertain the reaction, facial expression, way of speaking, and answer that I wanted in my heart, and then gave an accurate response.</p>
 <p>It’s too late, but I’m convinced now.</p>
@@ -58,8 +58,8 @@ chapter = 231
 <p>Although it’s scary, it’s not something I fear.</p>
 <p>In the end, it’s nothing more than “the ability to read other people’s complexions”. If she works at a cabaret club, she will definitely be the number one nomination, but that’s it.</p>
 <p>Frankly speaking, granny Vaine and Duchess Crowne are much scarier. These old ladies have a tingling atmosphere that makes them feel like they’ll skim my feet and thrust a knife to my throat as soon as I let my guard down. …… There is no good old lady among the old ladies that I meet in the Royal Capital.</p>
-<p>[Is it the adventures of the first head of the family, Lindy Levios? That sounds interesting.]</p>
-<p>[I’m happy to hear your words. It’s worth the trouble.]</p>
+<p>"Is it the adventures of the first head of the family, Lindy Levios? That sounds interesting."</p>
+<p>"I’m happy to hear your words. It’s worth the trouble."</p>
 <p>I wonder if she’s aware of my probing.</p>
 <p>I looked into Ena’s eyes, but I couldn’t find any clue. The radiance of ultramarine blue with a gloomy color has a charm that will draw you in. It was like a beautifully made doll.</p>
 <p>…..a doll, huh.</p>
@@ -86,20 +86,20 @@ chapter = 231
 <p>After that, I continued to talk with Ena for a little while, but I couldn’t really enjoy it because I already figured out the other side.</p>
 <p>Even though she’s so beautiful and smart, she continues to be a puppet that does as her parents tell her to. If this is what the concubine’s daughter looks like, then how empty it must feel?</p>
 <p>Come to think of it, I heard that Ena was sent back to her parents’ house to have a baby, but I wonder if that plan has already started. If I fall for this ploy, I’ll end up becoming King Levios’ hole brother, but…… well, okay. If I wash it properly, it should be fine.</p>
-<p>[…..Wilk-dono.]</p>
+<p>"…..Wilk-dono."</p>
 <p>The conversation was about to end while I was thinking about how a Princess who can’t go against her father’s order would kill her emotions and accept child-making, and how it would be a pretty exciting situation.</p>
-<p>[Yes?]</p>
-<p>[Sadly, the social gathering will soon be suspended.]</p>
+<p>"Yes?"</p>
+<p>"Sadly, the social gathering will soon be suspended."</p>
 <p>That’s probably a message from King Levios. She returned to the same indifferent tone as when I first greeted her.</p>
 <p>First granny Vaine, followed by Ena, after some routine farewells, she concluded:</p>
-<p>[…I hope that the connection between Levios and Quordenze will overcome this disaster and become even stronger.]</p>
+<p>"…I hope that the connection between Levios and Quordenze will overcome this disaster and become even stronger."</p>
 <p>Is it King Levios’ desire to strengthen relations? I don’t know if it’s due to marriage or a joint retaliation pact.</p>
-<p>[I believe that Levios will continue to be an important ally for Quordenze.]</p>
+<p>"I believe that Levios will continue to be an important ally for Quordenze."</p>
 <p>I neither confirm nor deny. All I can say is that the Levios family are important friends. In order to destroy the Spierzeig family, you are important as the key to the East.</p>
-<p>[I am truly happy that Wilk-dono is such a close friend.]</p>
+<p>"I am truly happy that Wilk-dono is such a close friend."</p>
 <p>Her tone was slightly different this time. It was a voice that had a little “flavor”.</p>
 <p>Soon after she replied to me, she stood up and left the camp as if to follow granny Vaine, who was out ahead of her.</p>
-<p>[Well then.]</p>
+<p>"Well then."</p>
 <p>Left alone, I thought about the meaning of the last words.</p>
 <p>She rephrased that cherishing the alliance as a strong friendship. It’s not bad, but I think there are better sentences. She seems to be good at using phrases like that, so the unnaturalness stands out.</p>
 <p>Prince Dunkel came to mind. Is it correct to take that remark as my sister’s wish to be friendly with her younger brother? I think that’s probably correct, but… what is going on inside the Levios family?</p>
