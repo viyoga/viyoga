@@ -1,5 +1,5 @@
 +++
-title = "Chapter 612"
+title = "Chapter 612: Otagi Yuka's New Trait"
 weight = 612
 [extra]
 chapter = 612

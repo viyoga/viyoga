@@ -1,5 +1,5 @@
 +++
-title = "Chapter 224"
+title = "Chapter 224: Mistaking Nae for Arisu [18+]"
 weight = 224
 [extra]
 chapter = 224

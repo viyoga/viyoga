@@ -1,5 +1,5 @@
 +++
-title = "Chapter 647"
+title = "Chapter 647: Shimokawabe Airen's Cooking"
 weight = 647
 [extra]
 chapter = 647

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 980"
+title = "Chapter 980: Gensuke's Awkward Praise"
 weight = 980
 [extra]
 chapter = 980

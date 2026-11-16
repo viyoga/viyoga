@@ -1,5 +1,5 @@
 +++
-title = "Chapter 564"
+title = "Chapter 564: The PMC Certification Exam"
 weight = 564
 [extra]
 chapter = 564

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 454"
+title = "Chapter 454: Authentic Hollywood Autographs"
 weight = 454
 [extra]
 chapter = 454

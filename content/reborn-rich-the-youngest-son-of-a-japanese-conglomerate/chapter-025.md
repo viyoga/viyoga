@@ -1,5 +1,5 @@
 +++
-title = "Chapter 25"
+title = "Chapter 25: Rerolling the Traits"
 weight = 25
 [extra]
 chapter = 25

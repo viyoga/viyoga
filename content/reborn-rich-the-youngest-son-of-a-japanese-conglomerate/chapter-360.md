@@ -1,5 +1,5 @@
 +++
-title = "Chapter 360"
+title = "Chapter 360: Sparring With Airen"
 weight = 360
 [extra]
 chapter = 360

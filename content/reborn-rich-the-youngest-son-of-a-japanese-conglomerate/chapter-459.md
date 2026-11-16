@@ -1,5 +1,5 @@
 +++
-title = "Chapter 459"
+title = "Chapter 459: Konoka's Embarrassing Gift [18+]"
 weight = 459
 [extra]
 chapter = 459

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 297"
+title = "Chapter 297: The Full Bloom Alliance [18+]"
 weight = 297
 [extra]
 chapter = 297

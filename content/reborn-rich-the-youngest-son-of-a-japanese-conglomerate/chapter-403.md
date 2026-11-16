@@ -1,5 +1,5 @@
 +++
-title = "Chapter 403"
+title = "Chapter 403: The VR Special Forces Game"
 weight = 403
 [extra]
 chapter = 403

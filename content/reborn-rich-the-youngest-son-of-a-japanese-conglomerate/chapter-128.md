@@ -1,5 +1,5 @@
 +++
-title = "Chapter 128"
+title = "Chapter 128: The Shrine's Hidden Prison"
 weight = 128
 [extra]
 chapter = 128

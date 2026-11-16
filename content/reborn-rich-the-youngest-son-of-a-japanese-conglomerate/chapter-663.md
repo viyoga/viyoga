@@ -1,5 +1,5 @@
 +++
-title = "Chapter 663"
+title = "Chapter 663: Why Airen Let Him Go"
 weight = 663
 [extra]
 chapter = 663

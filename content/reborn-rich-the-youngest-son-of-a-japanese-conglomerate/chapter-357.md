@@ -1,5 +1,5 @@
 +++
-title = "Chapter 357"
+title = "Chapter 357: Chieri and Seari's Service [18+]"
 weight = 357
 [extra]
 chapter = 357

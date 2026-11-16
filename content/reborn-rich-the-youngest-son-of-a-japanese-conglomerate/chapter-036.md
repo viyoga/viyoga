@@ -1,5 +1,5 @@
 +++
-title = "Chapter 36"
+title = "Chapter 36: Master Fujigasaki Rinka [18+]"
 weight = 36
 [extra]
 chapter = 36

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 175"
+title = "Chapter 175: A Proper Date With Yu-gyeong"
 weight = 175
 [extra]
 chapter = 175

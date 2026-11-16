@@ -1,5 +1,5 @@
 +++
-title = "Chapter 212"
+title = "Chapter 212: Dang So-hwa's Prison Bargain [18+]"
 weight = 212
 [extra]
 chapter = 212

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 944"
+title = "Chapter 944: Terue Learns the Truth [18+]"
 weight = 944
 [extra]
 chapter = 944

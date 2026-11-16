@@ -1,5 +1,5 @@
 +++
-title = "Chapter 363"
+title = "Chapter 363: Silencing the MiiTubers"
 weight = 363
 [extra]
 chapter = 363

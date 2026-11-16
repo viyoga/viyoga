@@ -1,5 +1,5 @@
 +++
-title = "Chapter 781"
+title = "Chapter 781: Taira Yukiko's Succubus Dream [18+]"
 weight = 781
 [extra]
 chapter = 781

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 55"
+title = "Chapter 55: Suzuki Chisami's True Colors [18+]"
 weight = 55
 [extra]
 chapter = 55

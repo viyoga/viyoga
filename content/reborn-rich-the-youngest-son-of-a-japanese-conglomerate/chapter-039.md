@@ -1,5 +1,5 @@
 +++
-title = "Chapter 39"
+title = "Chapter 39: Shinoe's Eel Lunch [18+]"
 weight = 39
 [extra]
 chapter = 39

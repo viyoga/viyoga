@@ -1,5 +1,5 @@
 +++
-title = "Chapter 1099"
+title = "Chapter 1099: The Mental Amplifier"
 weight = 1099
 [extra]
 chapter = 1099

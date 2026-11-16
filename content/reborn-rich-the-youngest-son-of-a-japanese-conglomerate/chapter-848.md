@@ -1,5 +1,5 @@
 +++
-title = "Chapter 848"
+title = "Chapter 848: Tsubaki's Karma Counseling"
 weight = 848
 [extra]
 chapter = 848

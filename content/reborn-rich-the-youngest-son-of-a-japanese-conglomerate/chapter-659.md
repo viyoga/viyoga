@@ -1,5 +1,5 @@
 +++
-title = "Chapter 659"
+title = "Chapter 659: Funayama's Cruel Reveal"
 weight = 659
 [extra]
 chapter = 659

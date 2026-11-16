@@ -1,5 +1,5 @@
 +++
-title = "Chapter 637"
+title = "Chapter 637: Uenozono Karen's Photo Cards"
 weight = 637
 [extra]
 chapter = 637

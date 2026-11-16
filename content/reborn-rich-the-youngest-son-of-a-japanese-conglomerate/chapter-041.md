@@ -1,5 +1,5 @@
 +++
-title = "Chapter 41"
+title = "Chapter 41: Gokado Hanako's Jealousy [18+]"
 weight = 41
 [extra]
 chapter = 41

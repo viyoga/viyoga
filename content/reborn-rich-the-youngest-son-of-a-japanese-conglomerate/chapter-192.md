@@ -1,5 +1,5 @@
 +++
-title = "Chapter 192"
+title = "Chapter 192: Tang Xiaohua in the Coffin"
 weight = 192
 [extra]
 chapter = 192

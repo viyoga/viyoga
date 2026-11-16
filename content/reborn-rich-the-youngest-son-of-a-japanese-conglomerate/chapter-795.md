@@ -1,5 +1,5 @@
 +++
-title = "Chapter 795"
+title = "Chapter 795: Seizawa Shii's Consultation Fee [18+]"
 weight = 795
 [extra]
 chapter = 795

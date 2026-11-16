@@ -1,5 +1,5 @@
 +++
-title = "Chapter 885"
+title = "Chapter 885: Kirie's Giant Oodachi"
 weight = 885
 [extra]
 chapter = 885

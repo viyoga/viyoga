@@ -1,5 +1,5 @@
 +++
-title = "Chapter 557"
+title = "Chapter 557: Yukiko's Teacher Roleplay [18+]"
 weight = 557
 [extra]
 chapter = 557

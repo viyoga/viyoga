@@ -1,5 +1,5 @@
 +++
-title = "Chapter 918"
+title = "Chapter 918: Otagi Yuka's Three Reasons [18+]"
 weight = 918
 [extra]
 chapter = 918

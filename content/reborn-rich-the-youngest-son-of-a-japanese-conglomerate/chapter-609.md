@@ -1,5 +1,5 @@
 +++
-title = "Chapter 609"
+title = "Chapter 609: Nagumo Sian's Magic [18+]"
 weight = 609
 [extra]
 chapter = 609

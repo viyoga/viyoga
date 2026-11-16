@@ -1,5 +1,5 @@
 +++
-title = "Chapter 305"
+title = "Chapter 305: Seari's Elf Reveal"
 weight = 305
 [extra]
 chapter = 305

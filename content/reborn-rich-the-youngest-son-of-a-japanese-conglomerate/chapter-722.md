@@ -1,5 +1,5 @@
 +++
-title = "Chapter 722"
+title = "Chapter 722: Jinmija Meets Yu-gyeong"
 weight = 722
 [extra]
 chapter = 722

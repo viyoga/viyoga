@@ -1,5 +1,5 @@
 +++
-title = "Chapter 367"
+title = "Chapter 367: Konoe Akina's Trust"
 weight = 367
 [extra]
 chapter = 367

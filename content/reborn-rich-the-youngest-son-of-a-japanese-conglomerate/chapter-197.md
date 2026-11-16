@@ -1,5 +1,5 @@
 +++
-title = "Chapter 197"
+title = "Chapter 197: Azuma's Hidden Camera [18+]"
 weight = 197
 [extra]
 chapter = 197

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 982"
+title = "Chapter 982: The Non-Factional Faction"
 weight = 982
 [extra]
 chapter = 982

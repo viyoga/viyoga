@@ -1,5 +1,5 @@
 +++
-title = "Chapter 43"
+title = "Chapter 43: The Woman in the Abyss [18+]"
 weight = 43
 [extra]
 chapter = 43

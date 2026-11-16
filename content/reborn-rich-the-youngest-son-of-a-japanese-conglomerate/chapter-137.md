@@ -1,5 +1,5 @@
 +++
-title = "Chapter 137"
+title = "Chapter 137: Wano Haruto at the Grave"
 weight = 137
 [extra]
 chapter = 137

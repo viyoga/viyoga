@@ -1,5 +1,5 @@
 +++
-title = "Chapter 60"
+title = "Chapter 60: Cambion's Body Unlocked [18+]"
 weight = 60
 [extra]
 chapter = 60

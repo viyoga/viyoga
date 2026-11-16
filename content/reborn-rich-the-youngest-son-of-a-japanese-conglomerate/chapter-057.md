@@ -1,5 +1,5 @@
 +++
-title = "Chapter 57"
+title = "Chapter 57: The Mentor System Gambit"
 weight = 57
 [extra]
 chapter = 57

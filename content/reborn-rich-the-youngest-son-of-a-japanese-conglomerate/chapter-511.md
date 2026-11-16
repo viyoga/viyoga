@@ -1,5 +1,5 @@
 +++
-title = "Chapter 511"
+title = "Chapter 511: The Scroll Gift for Sakagami Rena"
 weight = 511
 [extra]
 chapter = 511

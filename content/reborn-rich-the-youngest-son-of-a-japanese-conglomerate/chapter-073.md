@@ -1,5 +1,5 @@
 +++
-title = "Chapter 73"
+title = "Chapter 73: Hanasaki Sayaka's Autograph"
 weight = 73
 [extra]
 chapter = 73

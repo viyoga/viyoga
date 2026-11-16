@@ -1,5 +1,5 @@
 +++
-title = "Chapter 717"
+title = "Chapter 717: Jinmija Yeosa Returns [18+]"
 weight = 717
 [extra]
 chapter = 717

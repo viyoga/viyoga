@@ -1,5 +1,5 @@
 +++
-title = "Chapter 555"
+title = "Chapter 555: Koyou's Gratitude Call"
 weight = 555
 [extra]
 chapter = 555

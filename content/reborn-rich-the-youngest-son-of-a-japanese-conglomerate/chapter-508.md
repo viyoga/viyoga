@@ -1,5 +1,5 @@
 +++
-title = "Chapter 508"
+title = "Chapter 508: Kasaoka Yuzuki Is Divorced"
 weight = 508
 [extra]
 chapter = 508

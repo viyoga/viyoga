@@ -1,5 +1,5 @@
 +++
-title = "Chapter 940"
+title = "Chapter 940: Hanakame's Moonlit Outdoor Play [18+]"
 weight = 940
 [extra]
 chapter = 940

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 67"
+title = "Chapter 67: Takagi Iwazo's Gaze"
 weight = 67
 [extra]
 chapter = 67

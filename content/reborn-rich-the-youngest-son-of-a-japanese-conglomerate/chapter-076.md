@@ -1,5 +1,5 @@
 +++
-title = "Chapter 76"
+title = "Chapter 76: Hunting Nadachi Tojo"
 weight = 76
 [extra]
 chapter = 76

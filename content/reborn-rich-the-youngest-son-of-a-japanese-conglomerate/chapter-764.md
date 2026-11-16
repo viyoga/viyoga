@@ -1,5 +1,5 @@
 +++
-title = "Chapter 764"
+title = "Chapter 764: Mythical Achievements Unlocked"
 weight = 764
 [extra]
 chapter = 764

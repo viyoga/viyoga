@@ -1,5 +1,5 @@
 +++
-title = "Chapter 320"
+title = "Chapter 320: Egawa Alexandra Transfers In"
 weight = 320
 [extra]
 chapter = 320

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 698"
+title = "Chapter 698: Yu-gyeong's Summon Minions"
 weight = 698
 [extra]
 chapter = 698

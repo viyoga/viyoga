@@ -1,5 +1,5 @@
 +++
-title = "Chapter 409"
+title = "Chapter 409: Kasaoka Yuzuki's Lesson [18+]"
 weight = 409
 [extra]
 chapter = 409

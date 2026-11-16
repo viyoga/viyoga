@@ -1,5 +1,5 @@
 +++
-title = "Chapter 935"
+title = "Chapter 935: Yoda Joins Rinka's Mission"
 weight = 935
 [extra]
 chapter = 935

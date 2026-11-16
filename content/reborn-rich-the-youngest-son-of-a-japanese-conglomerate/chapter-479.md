@@ -1,5 +1,5 @@
 +++
-title = "Chapter 479"
+title = "Chapter 479: Shigemune's Proposal"
 weight = 479
 [extra]
 chapter = 479

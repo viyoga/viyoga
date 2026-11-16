@@ -1,5 +1,5 @@
 +++
-title = "Chapter 572"
+title = "Chapter 572: Raiding the Yongcheol Faction"
 weight = 572
 [extra]
 chapter = 572

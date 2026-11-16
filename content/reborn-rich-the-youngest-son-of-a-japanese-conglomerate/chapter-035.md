@@ -1,5 +1,5 @@
 +++
-title = "Chapter 35"
+title = "Chapter 35: Meeting Hanasaki Sayaka"
 weight = 35
 [extra]
 chapter = 35

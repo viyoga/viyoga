@@ -1,5 +1,5 @@
 +++
-title = "Chapter 513"
+title = "Chapter 513: The Kurayamada Wolf Bloodline"
 weight = 513
 [extra]
 chapter = 513

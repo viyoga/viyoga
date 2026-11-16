@@ -1,5 +1,5 @@
 +++
-title = "Chapter 972"
+title = "Chapter 972: The Succubus Awakens [18+]"
 weight = 972
 [extra]
 chapter = 972

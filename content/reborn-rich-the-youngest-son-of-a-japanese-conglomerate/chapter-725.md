@@ -1,5 +1,5 @@
 +++
-title = "Chapter 725"
+title = "Chapter 725: The Furisode Welcome"
 weight = 725
 [extra]
 chapter = 725

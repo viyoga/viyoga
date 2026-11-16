@@ -1,5 +1,5 @@
 +++
-title = "Chapter 606"
+title = "Chapter 606: The Sawayanagi Gathering [18+]"
 weight = 606
 [extra]
 chapter = 606

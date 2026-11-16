@@ -1,5 +1,5 @@
 +++
-title = "Chapter 550"
+title = "Chapter 550: The Giant Tanuki"
 weight = 550
 [extra]
 chapter = 550

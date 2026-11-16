@@ -1,5 +1,5 @@
 +++
-title = "Chapter 135"
+title = "Chapter 135: The Blind Muneo's Test [18+]"
 weight = 135
 [extra]
 chapter = 135

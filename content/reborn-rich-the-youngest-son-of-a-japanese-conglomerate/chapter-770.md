@@ -1,5 +1,5 @@
 +++
-title = "Chapter 770"
+title = "Chapter 770: Athena at Matsumoto Castle"
 weight = 770
 [extra]
 chapter = 770

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 754"
+title = "Chapter 754: The Tairaga Succession Alliance [18+]"
 weight = 754
 [extra]
 chapter = 754

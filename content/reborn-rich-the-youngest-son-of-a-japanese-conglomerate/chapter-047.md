@@ -1,5 +1,5 @@
 +++
-title = "Chapter 47"
+title = "Chapter 47: Kuriyamada Kirie's Secret [18+]"
 weight = 47
 [extra]
 chapter = 47

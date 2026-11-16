@@ -1,5 +1,5 @@
 +++
-title = "Chapter 6"
+title = "Chapter 6: Status Window and Elixir"
 weight = 6
 [extra]
 chapter = 6

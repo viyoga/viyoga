@@ -1,5 +1,5 @@
 +++
-title = "Chapter 841"
+title = "Chapter 841: Gengo's Training Plan"
 weight = 841
 [extra]
 chapter = 841

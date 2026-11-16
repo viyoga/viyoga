@@ -1,5 +1,5 @@
 +++
-title = "Chapter 278"
+title = "Chapter 278: The Futsal MVP Vote"
 weight = 278
 [extra]
 chapter = 278

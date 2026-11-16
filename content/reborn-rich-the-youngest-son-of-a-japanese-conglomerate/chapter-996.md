@@ -1,5 +1,5 @@
 +++
-title = "Chapter 996"
+title = "Chapter 996: Visiting Saburo's Grave"
 weight = 996
 [extra]
 chapter = 996

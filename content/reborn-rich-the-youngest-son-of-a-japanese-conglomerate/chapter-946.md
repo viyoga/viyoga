@@ -1,5 +1,5 @@
 +++
-title = "Chapter 946"
+title = "Chapter 946: The Thoughtography Photograph"
 weight = 946
 [extra]
 chapter = 946

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 712"
+title = "Chapter 712: Linling Goes Online"
 weight = 712
 [extra]
 chapter = 712
