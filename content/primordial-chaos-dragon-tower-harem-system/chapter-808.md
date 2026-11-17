@@ -22,7 +22,7 @@ chapter = 808
 <p>Realizing that, his face went pale when he recognized where he was and who had just discovered one of the many secrets he never knew he had.</p>
 <p>In his defense, he never knew how amazing the pill recipes he received from the Primordial Pill Records were.</p>
 <p>However, now it seemed he had to be more careful, and that started by figuring out whether his "supposed" big sister was greedy or not.</p>
-<p>First of all, Kent knew he could not escape, and he most certainly could not face that lady, for she could kill him before he even thought of running away.</p>
+<p>First of all, Kent knew he could not escape, and he most certainly could not face that lady, because she could kill him before he even thought of running away.</p>
 <p>He faced a Spirit Lord before, but he knew King Balma would look like a puppy before Pill Monarch Nefeli.</p>
 <p>Kent knew he was in deep now, and his mistake was not learning about all the amazing pill recipes he had.</p>
 <p>Pill Monarch Nefeli saw the hesitation appear on Kent’s face and smiled, "Don’t overthink, Kent. I have no intention of stealing from you. If anything, I want to advise you instead."</p>
@@ -31,7 +31,7 @@ chapter = 808
 <p>That said, since you offered, I will take the recipes, but I will only add one in your name since just one is valuable enough to allow your friend to view the Grand Pill Tablet five times.</p>
 <p>However, I don’t intend to keep the rest for myself.</p>
 <p>I will add the next recipe 10,000 years from today, and the third will be added 100,000 years from when the second was added.</p>
-<p>Of course, should I die before then, it will die with me, for I cannot in good conscience add 20 Soul-type pill recipes to the collection of the Pyris Pill Alliance.</p>
+<p>Of course, should I die before then, it will die with me, since I cannot in good conscience add 20 Soul-type pill recipes to the collection of the Pyris Pill Alliance.</p>
 <p>Doing so would be calling doom on myself and the entire Pyris Pill Alliance. I hope you understand my good intentions."</p>
 <p>Kent nodded. "I guess you do what is good for the alliance and me. In that case, do you want me to write it down or transfer it to you?"</p>
 <p>"Transferring will make it much more secure. It will be easy to place seals on said memories and only unlock them when the time intervals to release them reach."</p>

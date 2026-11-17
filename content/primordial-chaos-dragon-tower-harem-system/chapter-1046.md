@@ -41,7 +41,7 @@ chapter = 1046
 <p>Aside from that, he also said I need to have weak flame resistance before I can learn it. However, despite reaching Flame Harmony, I can feel the ’Finger of Destruction’ calling to me."</p>
 <p>Kent chuckled... "I have only formed one flame core, but I know it is already big enough to fuel the Finger of Destruction, meaning I can learn it now."</p>
 <p>He examined his body and could tell he could indeed learn the technique.</p>
-<p>He closed his eyes again and entered the Sword Mind to learn. When he appeared, he saw the runes for the Claw Art, but he didn’t attempt it, for he knew he was still too weak for that technique.</p>
+<p>He closed his eyes again and entered the Sword Mind to learn. When he appeared, he saw the runes for the Claw Art, but he didn’t attempt it; after all, he knew he was still too weak for that technique.</p>
 <p>He moved straight to the runes for the Finger of Destruction and began learning.</p>
 <p>---</p>
 <p>[9 months later]</p>

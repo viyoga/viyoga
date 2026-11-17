@@ -6,7 +6,7 @@ chapter = 848
 +++
 
 <p>⟦Update: The requirements to become a Pill Saint have been updated⟧</p>
-<p>Kent opened the panel to see what had changed, for he knew this was a critical moment for him.</p>
+<p>Kent opened the panel to see what had changed; after all, he knew this was a critical moment for him.</p>
 <p>While he had plans to stay in the medium world for another three years, which is the maximum for him, he did not plan on being a Pill Grandmaster for long.</p>
 <p>The plan is to become at least a Pill Sage or Pill King before ascending.</p>
 <p>So this message was his last hope.</p>
@@ -17,7 +17,7 @@ chapter = 848
 <p>↠ Gain at least two enlightenments in the pill path (Completed)</p>
 <p>↠ Defeat Pill Saint Flura in a Pill Duel - [Pill World] (Uncompleted)</p>
 <p>’This is perfect.’ Kent sighed inwardly, reading the message.</p>
-<p>This was something he could work with, for he had no idea how someone would accept his challenge after he had humiliated them and later challenged them to a duel, which he planned to defeat again.</p>
+<p>This was something he could work with. After all, he had no idea how someone would accept his challenge after he had humiliated them and later challenged them to a duel, which he planned to defeat again.</p>
 <p>This solution was one he received, even though he had no idea who Pill Saint Flura was.</p>
 <p>Kent looked at Lady Liora and smiled.</p>
 <p>He could tell she truly needed his help, so now that he was free to go all out, he would make sure the pill princess understood the error of her ways.</p>

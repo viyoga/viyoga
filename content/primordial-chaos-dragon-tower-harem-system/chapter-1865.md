@@ -32,7 +32,7 @@ chapter = 1865
 <p>This meant the second possibility was that the same people who corrupted the forsaken race were responsible for Dia becoming a heart demon. That meant they were aware of Kent’s existence and that they knew he was the Chaos Ascension King.</p>
 <p>This told Kent he was dealing with beings far more dreadful than any horror he had faced so far.</p>
 <p>If they were indeed the ones responsible, then he knew Dia was in for a rough time; perhaps she might not survive this.</p>
-<p>Not that he had any plan to watch her die. Kent had also been preparing for this very moment, for he knew that if he wanted answers about why he had been targeted, he had to make sure Dia survived this.</p>
+<p>Not that he had any plan to watch her die. Kent had also been preparing for this very moment; after all, he knew that if he wanted answers about why he had been targeted, he had to make sure Dia survived this.</p>
 <p>"Give me a minute, Safira."</p>
 <p>Kent walked toward the cocoon, surrounded by his wives, who were all rooting for Dia to come out as the winner.</p>
 <p>"Relax, ladies. She will be fine."</p>

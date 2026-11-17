@@ -52,7 +52,7 @@ chapter = 520
 <p>They even showed signs of panic, considering they didn’t exactly handle him like the egg he is when they first met.</p>
 <p>"Don’t worry, guys. I don’t hold grudges," Kent said with a smile. His groove returned, though the Priestess was still giving him the creeps.</p>
 <p>"As for the Mother of Killers, she is indeed reborn and currently in seclusion, training. Of course, she doesn’t know her true identity yet, but she bears the names Shara and Rakshasa.</p>
-<p>She doesn’t know I’m here, for I came under someone else’s order. I can’t talk about the person, but they want me to save your kind simply because you truly believe in the Mother of Killers.</p>
+<p>She doesn’t know I’m here; after all, I came under someone else’s order. I can’t talk about the person, but they want me to save your kind simply because you truly believe in the Mother of Killers.</p>
 <p>That is why I am here. I am here to help save the followers of Shara from a great calamity."</p>
 <p>Kent knew he couldn’t lie in front of the lady for unknown reasons, and he was right.</p>
 <p>She had a unique ability that allowed her to know if someone was lying. This made Kent choose to tell the truth—but with limited information.</p>

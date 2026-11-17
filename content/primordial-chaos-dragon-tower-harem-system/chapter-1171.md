@@ -35,7 +35,7 @@ chapter = 1171
 <p>Uncle Drew paused and let his mind fully encompass the point where everything changed for him.</p>
 <p>"On one fateful day, just when we ended a battle that drained us completely, a man who, if I didn’t know better, I would say is your brother, appeared from thin air and saved us."</p>
 <p>Kent furrowed his brow, hearing what Uncle Drew said.</p>
-<p>Seeing his expression, Uncle Drew smiled. "Trust me, either he is your long-lost redhead twin brother or your father, for he is a copy of you. Of course, he said nothing about his name, but I know for a fact he is a Celestial."</p>
+<p>Seeing his expression, Uncle Drew smiled. "Trust me, either he is your long-lost redhead twin brother or your father, since he is a copy of you. Of course, he said nothing about his name, but I know for a fact he is a Celestial."</p>
 <p>Uncle Drew let the words sink in before adding...</p>
 <p>"Maybe he was merely disguising himself; however, I know for a fact he was a Celestial and a friendly one."</p>
 <p>"Did he say something that suggested he knew me aside from looking like me?"</p>

@@ -11,7 +11,7 @@ chapter = 993
 <p>However, the 500 people gathered inside are all wearing white, which contrasts with the ominous feeling they were trying to convey.</p>
 <p>Standing at the altar, holding a black candle, is a human figure with green eyes and deep red marks on its neck.</p>
 <p>"I have just received words from our lord," he spoke, causing the people kneeling down to smile. "The lord said we shouldn’t worry, that he will bestow his power on us so we can fight against those who seek to end us.</p>
-<p>He promised to allow us to feel what it is like to have faith in him, so my brothers and sisters, do not worry, for we have nothing to fear."</p>
+<p>He promised to allow us to feel what it is like to have faith in him, so my brothers and sisters, do not worry, as we have nothing to fear."</p>
 <p>"All hail Lord Balmos."</p>
 <p>"Praise be to the Demon God."</p>
 <p>Meanwhile, 400 meters away from the church, Unity stood on a stone wearing a focused expression. Behind her stood Veydris, Sylara, and Neomi.</p>

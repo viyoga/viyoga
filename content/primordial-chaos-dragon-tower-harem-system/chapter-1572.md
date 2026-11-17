@@ -51,5 +51,5 @@ chapter = 1572
 <p>The only person who wasn’t in a prayerful state was Princess Pandora, who sat in a comfortable chair, sipping wine with visible ripples of boiling on its surface.</p>
 <p>One could only wonder where she got the hell wine from.</p>
 <p>As she watched Kent continue to read, a smile lingered on her face. Soon, the smile widened a little, causing her to smirk.</p>
-<p>"Welcome back, Lex Morvane. Now, you reap what you sow, for you deserve it all."</p>
+<p>"Welcome back, Lex Morvane. Now, you reap what you sow; after all, you deserve it all."</p>
 <p>To the ordinary eye, nothing extraordinary is going on. However, to those with a third eye, they can see that as the people pray, a change starts to take root in Kent, one that had been planted a very long time ago.</p>

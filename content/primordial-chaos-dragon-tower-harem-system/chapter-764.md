@@ -6,7 +6,7 @@ chapter = 764
 +++
 
 <p>Elder Lance was clearly shocked when he finally noticed that Kent was a human.</p>
-<p>He hadn’t paid much attention to anyone aside from Uncle Drake when he first arrived. But now that he did, he was shaken a little, for he was told no human had ever entered the Flame Tower since its emergence.</p>
+<p>He hadn’t paid much attention to anyone aside from Uncle Drake when he first arrived. But now that he did, he was shaken a little, as he was told no human had ever entered the Flame Tower since its emergence.</p>
 <p>’Supreme Elder Jian clearly said the humans regressed after the war, and so in the world of Sonox, the humans are trash. However, looking at this kid now, I don’t think that deduction about them is correct.</p>
 <p>He looked calm, confident, and almost aloof despite staring me in the eye. If I didn’t know better, I would say he is even more arrogant than the dragon from before.’</p>
 <p>He looked at Kent for a moment.</p>

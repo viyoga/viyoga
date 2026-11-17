@@ -35,7 +35,7 @@ chapter = 1397
 <p>After grouping them, they got 24 groups, showing they had captured 240 slaves this time around. They gave each group a number.</p>
 <p>Within group 2, there is a loli who, despite the despair around her, seems okay with the situation she has found herself in.</p>
 <p>There was no sorrow or pain in her eyes. If anything, she seems okay with death hanging over her head. Her fellow red foxes have their fluffy ears and tails twitching, but she seems content with her life.</p>
-<p>This wasn’t because she had given up hope. To her, life is not worth living, for she has been on her own ever since she learned to walk. Life had already been cruel to her from the start, so she is fine with how she has turned out.</p>
+<p>This wasn’t because she had given up hope. To her, life is not worth living, since she has been on her own ever since she learned to walk. Life had already been cruel to her from the start, so she is fine with how she has turned out.</p>
 <p>At least in two days’ time, her misery will end.</p>
 <p>After dividing them, they kept each group in a separate cage and locked it with an enchanted lock. Tomorrow, the first batch of hunting will start.</p>
 <p>---</p>

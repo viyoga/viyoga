@@ -21,7 +21,7 @@ chapter = 786
 <p>Considering their sister had to put her life on the line to give them a chance at winning, they weren’t giving the tigers a chance to breathe.</p>
 <p>Now that the walls were down, the tigerkins were forced to assume battle positions. However, their stance was being broken by Kent, who was moving faster than the eye could track.</p>
 <p>The rings on his heels were like wheels propelling him forward at a speed that not even a Spirit Emperor could track.</p>
-<p>Of course, Kent wasn’t using his actual speed, for that would just be too fast, and he might not be able to focus, so he was moving at half his speed, but even so, the tigers couldn’t track him at all.</p>
+<p>Of course, Kent wasn’t using his actual speed. After all, that would just be too fast, and he might not be able to focus, so he was moving at half his speed, but even so, the tigers couldn’t track him at all.</p>
 <p>Soon, Kent spotted King Renie within the rubble created when he was sent flying by Camilla’s attack.</p>
 <p>Kent moved, and before the Tiger King could understand what was going on, dozens of sword arcs appeared before him, sending him flying back.</p>
 <p>His body slammed through many buildings again, sending him crashing through, creating numerous shockwaves.</p>

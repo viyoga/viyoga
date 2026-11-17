@@ -58,6 +58,6 @@ chapter = 301
 <p>Kent smiled, which turned into mocking laughter.</p>
 <p>"Yesterday, after the auction, I had a few mice try to steal my fish. But when the day broke today, I had to dispose of those dead mice.</p>
 <p>Though I wouldn’t advise you to send more mice, you can take it upon yourself and pay me a visit personally.</p>
-<p>I promise you, tomorrow, you won’t be here bidding for any new items, for you won’t live long enough to tell the tale.</p>
+<p>I promise you, tomorrow, you won’t be here bidding for any new items. After all, you won’t live long enough to tell the tale.</p>
 <p>A wise man once said, ’When he is handsome and surrounded by beautiful ladies, never try to intimidate him. You will never know what he is hiding in his pants... ahem... his arsenal.’</p>
 <p>So take my advice and peekaboo."</p>

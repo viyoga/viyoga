@@ -9,7 +9,7 @@ chapter = 946
 <p>None of them, regardless of how much they hated Pill Saint Flura, could fathom just where Kent gathered the courage to ask that last question.</p>
 <p>’Why the long face, are you scared?’</p>
 <p>The sentence was echoing in their heads as they looked at Kent, who held a small smile on his face. Lady Azela stood behind him, her face expressionless.</p>
-<p>Naturally, she was equally taken aback, for she never expected Kent to accept the challenge of a Pill Saint and, to some extent, taunt her.</p>
+<p>Naturally, she was equally taken aback, since she never expected Kent to accept the challenge of a Pill Saint and, to some extent, taunt her.</p>
 <p>’So when he said he had a business here, this was what he meant,’ she wondered while keeping the calm look on her face.</p>
 <p>Thanks to seeing a much more shocking side of Kent in the past few days, she was able to handle this one well.</p>
 <p>However, the onlookers, Niki and her young miss Pill Saint Flura, weren’t that lucky.</p>
@@ -42,12 +42,12 @@ chapter = 946
 <p>However, the more he listened to Kent, the more he sensed the brat would be facing so much hardship in the future.</p>
 <p>’Even if he wins and gets the token, he wouldn’t be able to move even an inch inside the Pill Ascension Realm, considering he had angered someone from that arrogant yet powerful family.’</p>
 <p>He sighed but chose not to do anything.</p>
-<p>Like Kent said, he shouldn’t break his cover yet, for he would be the getaway car. He was banking on the mysterious token that caused hundreds of people to accept a challenge they were doomed to fail at.</p>
+<p>Like Kent said, he shouldn’t break his cover yet. After all, he would be the getaway car. He was banking on the mysterious token that caused hundreds of people to accept a challenge they were doomed to fail at.</p>
 <p>"Very well. You said your name is Kent, right? I will be sure to teach you what happens when you insult someone like me." Pill Saint Flura also flew and landed on the stage.</p>
 <p>"Oh, please, don’t act like you are some sanctimonious person. You set this trap yourself, and so you must be prepared to be trapped in it.</p>
 <p>As to what comes after, you will soon understand why my name is Kent."</p>
 <p>The moment Pill Saint Flura landed on the stage, a Pill Sage appeared, and everyone went quiet.</p>
-<p>He looked at Kent with a frown, but the brat merely smirked. He wasn’t being arrogant for nothing. In Kent’s eyes, he wanted this duel to be his debut, for it was bound to spread. When that happened, his status within the Pyris Pill Alliance would skyrocket.</p>
+<p>He looked at Kent with a frown, but the brat merely smirked. He wasn’t being arrogant for nothing. In Kent’s eyes, he wanted this duel to be his debut; after all, it was bound to spread. When that happened, his status within the Pyris Pill Alliance would skyrocket.</p>
 <p>Naturally, that would just be the start. He had made a name for himself as a swordsman; he planned to make one for himself as an Alchemist.</p>
 <p>"The rules are simple," the Pill Sage spoke, "You both have 5 hours to concoct a Tier 9 Bone Tempering Pill—"</p>
 <p>"Just Tier Nine?" Kent cut the Pill Sage off, causing the man’s face to contort into an angry one. He didn’t know if he should just grab Kent by the ear and beat his backside for his unruly behaviour.</p>

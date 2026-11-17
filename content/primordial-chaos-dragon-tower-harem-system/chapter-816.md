@@ -43,7 +43,7 @@ chapter = 816
 <p>Among the five seeded candidates of the sect, the Venom King is regarded as the strongest and most dangerous.</p>
 <p>However, while his legacy is unmatched and can’t be surpassed, his baby sister has also carved a path for herself, making her something akin to the most dangerous in the current generation.</p>
 <p>The Widow Empress, the master manipulator, the Thread Assassin...</p>
-<p>All know her and have been left with an impression, for she is the only one to have blatantly rejected the offer to join the Crimson Cult, the elite unit of terrifyingly powerful cultivators that even high worlds are wary of.</p>
+<p>All know her and have been left with an impression, as she is the only one to have blatantly rejected the offer to join the Crimson Cult, the elite unit of terrifyingly powerful cultivators that even high worlds are wary of.</p>
 <p>That alone made her someone many hated and feared at the same time, for at just 67 years old, she had already formed her core and refined it seven times.</p>
 <p>According to rumors, she had already rebuilt her foundation in one of the most dangerous places in her world, the Devil’s Anus.</p>
 <p>She is a monster in human form, and now she has come to join the Supreme Immortal Sect.</p>

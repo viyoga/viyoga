@@ -35,7 +35,7 @@ chapter = 1167
 <p>There was no remorse in Kent’s eyes.</p>
 <p>The current him is akin to when Chaos found Elina’s body.</p>
 <p>His anger is now controlling his heart. However, despite that, he knew his limit and, like Chaos, he would not kill children, pregnant women, and those who couldn’t even lift a sword.</p>
-<p>However, he will kill all warriors, for that is a promise he made to himself many years ago and will keep to the day all forsaken race is eradicated completely.</p>
+<p>However, he will kill all warriors. After all, that is a promise he made to himself many years ago and will keep to the day all forsaken race is eradicated completely.</p>
 <p>"Once all warriors are dead, this planet will be sealed and turned into a low world where cultivation will be a thing of the past."</p>
 <p>Even Uncle Drew seemed shocked by what Kent had just said. Downgrading a planet from High to Low is not possible.</p>
 <p>But then again, this is Kent...</p>

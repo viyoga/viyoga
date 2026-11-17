@@ -48,7 +48,7 @@ chapter = 1570
 <p>Naturally, I didn’t deny them the chance to go to the afterlife.</p>
 <p>By now, my name had already spread across the planet and beyond, causing every soul to quake in fear when they learned what had happened.</p>
 <p>This was also why nobody dared come to plead for his life when I marched my uncle on the street naked, his body littered with all kinds of cuts.</p>
-<p>His death, as I had planned, was slow and excruciating. It took me 66 days to kill him. By then, I am sure his soul had been scarred for all eternity. In his next life, the pain would haunt him, for I made sure of that.</p>
+<p>His death, as I had planned, was slow and excruciating. It took me 66 days to kill him. By then, I am sure his soul had been scarred for all eternity. In his next life, the pain would haunt him; after all, I made sure of that.</p>
 <p>After exacting his kill, I realised I wasn’t living up to my potential, so I went further and hunted down everyone who had ever committed a crime against my family in the past.</p>
 <p>It took 100 years, but I managed to kill over 1,560,000, all in some way linked to the downfall of my family. Now, I have to head back to the Nine Heavens Sect and make sure it ceases to exist in the coming years.]</p>
 <p>"Hehe... this is going to be blood-curdling," Kent said with a grin, his expression twisting to mirror that of an evil demon king.</p>

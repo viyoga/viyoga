@@ -31,7 +31,7 @@ chapter = 377
 <p>"How are they?" Kent asked.</p>
 <p>"All physical and internal wounds have been healed. Right now, they can only sleep and wake up when they want," Elsa replied, making Kent nod.</p>
 <p>"They deserve that much sleep. After what they went through, I wouldn’t be surprised if they slept for a whole month or two." He took a deep breath.</p>
-<p>"You can go back to your training if you want, for they will be sleeping for a while."</p>
+<p>"You can go back to your training if you want; after all, they will be sleeping for a while."</p>
 <p>"We will wait for them to wake up," Selene replied, and the ladies nodded in agreement. Kent nodded.</p>
 <p>"Then, in that case, I will be busy with a few things, so let me know when they wake up." They nodded, and he left. He went back to the Sword Tower.</p>
 <p>He sat down and pulled out the messages he had received.</p>

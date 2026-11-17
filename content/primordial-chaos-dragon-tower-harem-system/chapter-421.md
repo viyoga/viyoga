@@ -50,8 +50,8 @@ chapter = 421
 <p>"You will be shocked if I tell you the kind of stuff I did with your half-dead body." She smiled with a slight blush.</p>
 <p>"You are spoiled, Val. I have to punish you for that..."</p>
 <p>"I don’t mind passing out." She looked at his dick and licked her lips seductively.</p>
-<p>"We can even do anal, for I want that thickness in there." She covered her face while saying that. She was clearly embarrassed asking to be fuck in the ass.</p>
+<p>"We can even do anal; after all, I want that thickness in there." She covered her face while saying that. She was clearly embarrassed asking to be fuck in the ass.</p>
 <p>"You would have to get in line. Vexthra and Alina have already booked a slot." Kent smiled. Val was bold, and she didn’t hesitate to ask for it.</p>
 <p>Had Alina asked when she wanted to, he would have spread her asshole like she wanted. But now, Vexthra had taken the lead, already prepared for when he arrived in the god realm.</p>
-<p>"Then I will go next after them. I want to feel you everywhere, so be ready, for I will keep you awake every night." She smiled before assuming the doggy position.</p>
+<p>"Then I will go next after them. I want to feel you everywhere, so be ready, since I will keep you awake every night." She smiled before assuming the doggy position.</p>
 <p>Kent knew what had to be done, so he went for it and placed his dick at her entrance. A few seconds later, he entered her cave.</p>

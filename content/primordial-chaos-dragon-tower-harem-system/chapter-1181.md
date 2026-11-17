@@ -28,7 +28,7 @@ chapter = 1181
 <p>He was not worried in the least.</p>
 <p>He had already experienced how powerful he was, so he was even looking forward to their next bout. Of course, that didn’t mean he was bloodthirsty to the point he didn’t know when to be civil and when to be chaotic.</p>
 <p>In fact, under normal circumstances, considering what the Pill Families had done—the number of alchemists they had killed just to rise to power—Kent shouldn’t have even given them an hour to pack up.</p>
-<p>He should have killed every last one of them, for they had hurt many people.</p>
+<p>He should have killed every last one of them; after all, they had hurt many people.</p>
 <p>However, Kent, despite his bloodthirsty nature, chose to walk the path Unity wanted for Chaos in this life. Thankfully, he had more than enough emotional support.</p>
 <p>His mother was also there to keep him straight, so at the moment, he was a rational human/dragon who chose to give his enemies a chance to keep their lives. Those who disobeyed, he, of course, would kill as compensation for the pain they had caused.</p>
 <p>Kent, his wives, and Nana decided to wait for the true members of the Pyris Pill Alliance that were driven out to come so he could put things in place properly this time around.</p>

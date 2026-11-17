@@ -23,7 +23,7 @@ chapter = 1216
 <p>Immortals and gods fell to her dagger.</p>
 <p>In the hidden records, an account of the death marks was said to originate from her. They said that along the way, the universe made her their weapon, just as they did long before the primordial era, when they weaponised the Poison Queen.</p>
 <p>Vel’Zai became their weapon, and all who they marked were killed by her, no matter how well they hid themselves.</p>
-<p>Legend even speaks of her as the second coming of the Faceless Assassin, for she gets the job done, no matter how dangerous and stacked the odds are.</p>
+<p>Legend even speaks of her as the second coming of the Faceless Assassin. After all, she gets the job done, no matter how dangerous and stacked the odds are.</p>
 <p>However, one day she vanished and wasn’t heard from for thousands of years. It got to the point that her name started to vanish from everyone’s mind.</p>
 <p>However, when the Chaos Beast arrived, and the powerhouses rose to the occasion, Vel’Zai appeared and fought the harrowing battle with them.</p>
 <p>In the end, nobody knew what happened to her. She just vanished, and with her, the legend of the Chaos Reaper Assassin died.</p>
@@ -32,13 +32,13 @@ chapter = 1216
 <p>Kent and his wives stood back. The darkness swirling around Liora is not simple at all. In fact, they all can tell that just being touched by this darkness will consume their life like a hungry lion.</p>
 <p>So to be on the safe side, they moved further back.</p>
 <p>"When Kent awakened Vari and Lani’s True Name, only shadows were manifested. They were assassins, but they awakened shadows. So why is Liora manifesting darkness?" Unity asked, looking at the thick darkness surrounding Liora.</p>
-<p>None of them could see what was happening within the darkness, for it was impenetrable. However, they knew something big was happening within the mist of darkness.</p>
+<p>None of them could see what was happening within the darkness, as it was impenetrable. However, they knew something big was happening within the mist of darkness.</p>
 <p>"I don’t know what is happening within the darkness, but I do know Liora will be coming out a completely different person," Adina muttered.</p>
 <p>Enzi smiled evilly and replied, "You have no idea."</p>
 <p>Just then, the moment for Kent to invoke her True Name came, so he stepped forward. When he was much closer to the darkness, he started to speak.</p>
 <p>"She Who Walks Between Shadow and Death. The blade that shaped the ending of a beautiful era. You answered when called and fought through the thick and thin."</p>
 <p>Kent paused, feeling a chill run down his spine. He turned and looked at Enzi, who smiled and winked at him. This sight made him super alert; however, he had to continue.</p>
-<p>"You were once the blade of the universe. They gave you a mission, a purpose, and you accomplished it as it should be. So they gave you a name, a beautiful name that would give you back what they owe you, for you deserve to be paid.</p>
+<p>"You were once the blade of the universe. They gave you a mission, a purpose, and you accomplished it as it should be. So they gave you a name, a beautiful name that would give you back what they owe you, since you deserve to be paid.</p>
 <p>Rise, Vae Mortis, your life has just begun."</p>
 <p>"Huh"</p>
 <p>Just when Kent invoked the name, the darkness expanded and enveloped him.</p>

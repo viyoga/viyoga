@@ -44,7 +44,7 @@ chapter = 354
 <p>"No need to look so shocked. Our relationship is a special one. If you don’t believe me, you can ask her later and see," Kent said, still smiling, while the two ladies looked both shocked and shaken.</p>
 <p>"You do know Master is one of the strongest people in this world, right? How were you able to stay calm before her? I expected you to be shaken by now," Lady Lani asked.</p>
 <p>Kent smiled.</p>
-<p>"A wise man once said, ’A cultured man is never shaken when thrown into the lion’s den, for he knew he will walk out chewing the bones of the lion.’"</p>
+<p>"A wise man once said, ’A cultured man is never shaken when thrown into the lion’s den, because he knew he will walk out chewing the bones of the lion.’"</p>
 <p>"Unbelievable," Alina said, shaking her head. She had heard of the Kingdom Protector before and knew she was someone only a few people had the privilege to meet.</p>
 <p>For her man to have met her and walked away, even reaching the brother and sister stage with her, was just too much. Kent was simply extraordinary for someone his age and strength.</p>
 <p>"Just don’t be too shocked, ladies. Sometimes, you can only accept what has happened and move on," Kent decided to end the teasing there.</p>

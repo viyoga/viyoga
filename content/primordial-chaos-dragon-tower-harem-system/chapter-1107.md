@@ -9,7 +9,7 @@ chapter = 1107
 <p>He had no idea where this sadness was coming from; however, at the moment, as he looked at Unity, his heart started to break.</p>
 <p>Soon, Kent couldn’t hold it in anymore and started shedding tears.</p>
 <p>In his eyes, he could see someone who had given everything she had but got nothing in return. Kent didn’t know why, but he felt a sense of guilt.</p>
-<p>He had no idea that in his past life, he had failed Artemis. He could have at least tried to be her friend, or even better, a teammate, for they had fought many battles together. However, he was none of that.</p>
+<p>He had no idea that in his past life, he had failed Artemis. He could have at least tried to be her friend, or even better, a teammate, as they had fought many battles together. However, he was none of that.</p>
 <p>And yet again, just when he seemed to realize that, she was taken away from him by the same forsaken race that took his one true love from him.</p>
 <p>His nonchalance and complex destiny took away her chance to live a happy and fulfilling life.</p>
 <p>But as if that was not enough, she again gave her life just so his incarnation could have a happy ending, one she deemed necessary for someone who fought for the lives of the innocent and weak.</p>

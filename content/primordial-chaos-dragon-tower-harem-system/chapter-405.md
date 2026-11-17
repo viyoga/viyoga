@@ -22,7 +22,7 @@ chapter = 405
 <p>Vexthra woke up like a mortal every Monday morning.</p>
 <p>She stretched on her bed, and while her spirit told her to wake up, her body said otherwise. However, after a few internal struggles, she got up.</p>
 <p>She brushed her teeth, prepared breakfast, and ate.</p>
-<p>Then she walked outside and started doing some light stretches. Kent had forced her to live as a mortal, for that was the only way she wouldn’t revert to her hateful self.</p>
+<p>Then she walked outside and started doing some light stretches. Kent had forced her to live as a mortal; after all, that was the only way she wouldn’t revert to her hateful self.</p>
 <p>After she finished stretching, she took a quick bath, walked back to her bed, and started reading. Thankfully, the book she was reading was fun, so she was engaged for a while.</p>
 <p>"This bastard, can’t you just kill all these hateful heirs and eradicate their families?" she frowned, saying that. Clearly, the main character, a certain white-haired brat, wasn’t doing what she wanted to read.</p>
 <p>"I will definitely give this hateful author a piece of my mind later."</p>

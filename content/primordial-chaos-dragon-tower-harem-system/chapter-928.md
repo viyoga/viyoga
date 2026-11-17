@@ -31,7 +31,7 @@ chapter = 928
 <p>"Aerithyne is a Fifth Rank Pill World. Although most of its inhabitants are alchemists, hidden monsters lie in wait, eager to devour the unprepared.</p>
 <p>This badge will grant you access to that world, but it will not protect you from harm. Be cautious when you arrive. The moment you win or lose, return here immediately."</p>
 <p>Kent smiled, looked at Pill Monarch Nefeli, and said, "If you are worried about me, then don’t be. I have been through countless life-and-death situations, so I know how to handle myself.</p>
-<p>That said, the protection you arranged for me won’t be necessary, for I planned to go to a certain place to train, and I am not sure they will be able to follow me there."</p>
+<p>That said, the protection you arranged for me won’t be necessary, because I planned to go to a certain place to train, and I am not sure they will be able to follow me there."</p>
 <p>"Then hand the badge to someone else in case you win. The moment the access token to enter the Pill Ascension Competition leaves your hands, no one will bother coming after you."</p>
 <p>Kent rose and walked toward the door. "I will do just that, Big Sister. Until then, do not trouble yourself to run to my aid if you hear that I have gotten myself into trouble."</p>
 <p>With a faint smile, Kent left and made his way toward the city, where thousands of towering buildings stretched before his eyes.</p>

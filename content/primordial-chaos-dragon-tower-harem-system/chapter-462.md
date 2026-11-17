@@ -73,4 +73,4 @@ chapter = 462
 <p>She was injured in multiple places.</p>
 <p>Suddenly, she sensed her life was in danger, causing her to move back, narrowly evading a giant, sleek arrow.</p>
 <p>However, the arrow that missed turned back and shot at her again. She was too slow to dodge this time because her left leg was hurt from previous battles.</p>
-<p>So the arrow came stabbing toward her chest, causing her to close her eyes and embrace death, for she knew the arrow was death.</p>
+<p>So the arrow came stabbing toward her chest, causing her to close her eyes and embrace death; after all, she knew the arrow was death.</p>

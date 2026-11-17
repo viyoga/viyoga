@@ -24,7 +24,7 @@ chapter = 589
 <p>"You are next."</p>
 <p>Those words were so brave that the universe, looking to select a few people to become her weapons, picked her, and instead of becoming someone who would never know peace, she became someone who had both peace and torment.</p>
 <p>The legend speaks of the one who has no presence. She makes no sound and feels no remorse for those she kills.</p>
-<p>They called her the Shadow Reaper, for she comes and goes with the shadow.</p>
+<p>They called her the Shadow Reaper. After all, she comes and goes with the shadow.</p>
 <p>Those who saw her said she had both white and dark hair, and those who knew her said she had two personalities.</p>
 <p>They said that when her hair turns white, she uses a white dagger that claims the life of those she wants, and when her hair turns dark, all those marked for death will never escape her shadow.</p>
 <p>They called her the Yin-Yang Assassin.</p>

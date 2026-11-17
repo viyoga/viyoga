@@ -26,7 +26,7 @@ chapter = 884
 <p>Puzzles are mostly easy to solve simply because a puzzle is a problem that, to some extent, requires physical interaction to solve. In most cases, a trial-and-error approach often leads to the person finding the solution to the puzzle.</p>
 <p>At least, that was his take on puzzles from his Earth Knowledge.</p>
 <p>But with riddles, it is virtually impossible to do trial and error.</p>
-<p>Kent smiled slightly, making sure nobody saw it, for he could already sense powerful people beyond his strength level keeping close eyes on him.</p>
+<p>Kent smiled slightly, making sure nobody saw it, as he could already sense powerful people beyond his strength level keeping close eyes on him.</p>
 <p>’The second thing is, for a cultivation world where there are no schools, these riddles are things that require great thinking and problem-solving skills. However, to someone like me who has a PhD in computer science and cybersecurity, this riddle is child’s play to me.’</p>
 <p>Kent cast his mind back to his life on Earth.</p>
 <p>He became one of the few young people to earn a PhD, largely because his life was too dull and he had no active social life.</p>

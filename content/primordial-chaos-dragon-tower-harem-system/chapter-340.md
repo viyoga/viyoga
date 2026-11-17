@@ -52,7 +52,7 @@ chapter = 340
 <p>"But this is just unbelievable. Not only are you a dragon—" Selene, who was too happy for her man, blurted out his secret mistakenly but stopped herself from revealing too much.</p>
 <p>However, she had already revealed enough for the ladies to hear what she said, and they were now looking at Kent with expressions that said, *Please, we want to see your dragon horns.*</p>
 <p>"Sorry," Selene said, covering her face though she was smiling.</p>
-<p>"No need to look shocked, ladies. I am indeed a dragon, but not fully a dragon yet. In a way, you can just call me a demi-dragon, for I can’t transform into a dragon yet."</p>
+<p>"No need to look shocked, ladies. I am indeed a dragon, but not fully a dragon yet. In a way, you can just call me a demi-dragon; after all, I can’t transform into a dragon yet."</p>
 <p>"Then did you come from the Dragon Continent?" Elsa asked.</p>
 <p>"Nope, but I plan on going there soon."</p>
 <p>"Then where did you come from? I doubt there are dragons on this continent," Lilian followed up with her question.</p>

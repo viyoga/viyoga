@@ -46,7 +46,7 @@ chapter = 1381
 <p>He had yet to conquer the first six levels of the sword bridge in this life.</p>
 <p>The other requirement was, of course, conquering the sword legend on the sixth level of the sword bridge. This must be accomplished by Jest, meaning he must review memories of that before his sword realm would awaken.</p>
 <p>The tower gave him these requirements, so he was sure Jest would do that. This meant he would have to review more of his memories and know what happened next.</p>
-<p>This meant he must go see Inaya, for she was the key to everything. If he wants to awaken his sword realm, he must go back home.</p>
+<p>This meant he must go see Inaya; after all, she was the key to everything. If he wants to awaken his sword realm, he must go back home.</p>
 <p>As for the first six levels of the sword bridge inside the tower, Kent stood up and flew toward it. He might not have a sword realm yet, but he had copied thousands of sword realms over the years he spent on the move.</p>
 <p>And while he had yet to awaken the Divine sword aura and intent, he had knowledge of how to fight sword legends and even sword immortals.</p>
 <p>Even better, he had the many sword skills and techniques that Jest had created over the years, now at his disposal. Basically, he was now loaded with so much knowledge about his sword path than he was weeks ago.</p>

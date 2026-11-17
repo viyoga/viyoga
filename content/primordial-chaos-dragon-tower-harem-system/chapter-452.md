@@ -24,7 +24,7 @@ chapter = 452
 <p>"You can’t tell me what to do and what not to do," she responded, already planning on fighting beside her friend.</p>
 <p>"And if you are worried about my identity getting exposed, you won’t have to worry much. I have that covered."</p>
 <p>"You do know the battle coming isn’t one even I know of its magnitude. And while it’s admirable to see your want to fight for my cause, I also don’t want you getting any backlash.</p>
-<p>You can sit out this one, for there is more to come in the future."</p>
+<p>You can sit out this one, as there is more to come in the future."</p>
 <p>"I will fight, and that is final. Or are you underestimating me?"</p>
 <p>"Kent, no need to argue with her. She is that annoying. The more you prohibit her from doing something, the more she wants to do it," Nara said, brushing Kent’s hair with her hand.</p>
 <p>The past three days had brought them closer. Even Lady Lani seemed to have gotten closer to him than a couple of days before.</p>
@@ -35,7 +35,7 @@ chapter = 452
 <p>Kent smiled and looked at her.</p>
 <p>"Though I don’t like to brag, I faced a god just a few weeks ago and gave him the middle finger. So a Kingdom Protector or a Forest King should be the least of my worries."</p>
 <p>Lady Lani turned and looked at Nara.</p>
-<p>"He doesn’t lie." That was all Nara could say, for she knew that despite Kent saying those words with an unserious smile, he meant every word.</p>
+<p>"He doesn’t lie." That was all Nara could say, because she knew that despite Kent saying those words with an unserious smile, he meant every word.</p>
 <p>Though, the god part seemed to be exaggerated a bit.</p>
 <p>The beautiful assassin could only stare at the brat for as long as her mind could comprehend what she had just heard.</p>
 <p>Of course, she has her own agenda in this battle, and thanks to Kent, it will be realised.</p>
@@ -54,7 +54,7 @@ chapter = 452
 <p>However, the person they are going after is no easy human. Many with strength so great have already fallen going against him, so they aren’t underestimating him.</p>
 <p>Meanwhile, somewhere else, also outside the city, the Evil Sect, with its evil presence, was lying in wait for the mouse to enter its trap.</p>
 <p>"Remember, the end game is to capture his soul," a skinny, almost bony old man holding a twisted staff said. His eerie tone was enough to make a person quake in their boots.</p>
-<p>"His death shouldn’t be merciful, for he has caused us to lose a lot."</p>
+<p>"His death shouldn’t be merciful; after all, he has caused us to lose a lot."</p>
 <p>"Grand Sect Leader, we’ve already made provisions. He will die by all means."</p>
 <p>"How about his body?" a dark-eyed, large, bald-headed fellow asked. "From what the Sect Master told us, his spirit root is of the highest grade, so turning him into a corpse puppet wouldn’t be bad."</p>
 <p>"The body is what those assassins are after. Right now, we can’t afford to lose any more manpower. So let them have it.</p>

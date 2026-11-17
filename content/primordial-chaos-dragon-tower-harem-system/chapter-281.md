@@ -22,7 +22,7 @@ chapter = 281
 <p>The lady became so happy that if she were to die, she wouldn’t complain. Hearing about what she had been holding on to for all these years, her life had finally gained some hope and joy.</p>
 <p>[Well, Mara is alive and living. But she wasn’t exactly living, considering when you apparently died, she followed in your footsteps and became a swordsman just like you so she could learn what truly happened to you.</p>
 <p>However, don’t worry. She is safe and has become someone you will be proud of the moment you are out of here.</p>
-<p>In fact, I think you should be happy. She never forgot about you, for she never for one moment believed you died. Your sister really believes in you, lady.]</p>
+<p>In fact, I think you should be happy. She never forgot about you; after all, she never for one moment believed you died. Your sister really believes in you, lady.]</p>
 <p>Kent’s words brought a smile to her lips, but the pain in her eyes said it all. She craved to see her sister.</p>
 <p>[So she stopped dancing so she could one day come and rescue me? What a silly girl.]</p>
 <p>[She, indeed, is one silly little girl. Be sure to spank her when you are out of this place. I can even help you if you don’t mind,] Kent said. He probably would have been smiling if he were in his human form.</p>

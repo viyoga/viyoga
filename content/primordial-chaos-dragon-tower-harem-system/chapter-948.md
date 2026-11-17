@@ -49,7 +49,7 @@ chapter = 948
 <p>However, the impurities left in the medicinal essence aren’t significant, so Kent chose to proceed with the best course of action, which involves simultaneously condensing and burning the impurities.</p>
 <p>As he changed the flame technique, the Pill Sovereigns on the last floor and a few others on the 6th, 7th, and 8th floors raised their brows.</p>
 <p>Most recognised what Kent was doing, and while they could do the same, a Pill Grandmaster has no business doing that. In fact, most stood from their seats and appeared on the 5th floor just to witness Kent’s brilliance.</p>
-<p>Within minutes, a powerful Alchemist appeared on the 5th floor, but Kent ignored them all, for he knew what he was doing was something extraordinary.</p>
+<p>Within minutes, a powerful Alchemist appeared on the 5th floor, but Kent ignored them all; after all, he knew what he was doing was something extraordinary.</p>
 <p>Half an hour later, Pill Saint Flura’s pill formed, and the smell of a Pure Bone Tempering Pill spread all over, causing many to admire her brilliance.</p>
 <p>It was already three and a half hours since the start of the contest, but she had already formed her pill. Naturally, that is something worth being proud of.</p>
 <p>Pill Saints had no business concocting Tier 8 and 9 pills. Those are meant for Pill Sages. However, the brightest in the Pill Path can be extraordinary.</p>

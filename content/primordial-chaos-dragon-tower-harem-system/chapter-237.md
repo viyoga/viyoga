@@ -63,5 +63,5 @@ chapter = 237
 <p>Rumour had it that the strongest path available could only go as far as the Sword King stage. So he was stuck.</p>
 <p>His talent was being wasted. He tried for four more years, but he could not gain any form of understanding of how to progress.</p>
 <p>So, he was depressed and didn’t know how to move forward.</p>
-<p>Until he said to himself, "I will create my own path, and just like how I scaled the wall of death, I will take this to the peak. I will name it the Genesis Sword Path, for this will be the first path to the pinnacle of the Sword Dao."</p>
+<p>Until he said to himself, "I will create my own path, and just like how I scaled the wall of death, I will take this to the peak. I will name it the Genesis Sword Path. After all, this will be the first path to the pinnacle of the Sword Dao."</p>
 <p>Kent woke up inside the Tower feeling different...</p>

@@ -50,7 +50,7 @@ chapter = 1306
 <p>BOOM</p>
 <p>The taunt got to the temple master, so his fury exploded, causing the space around him to burst into flames. Lava gushed out, spraying all around.</p>
 <p>"No need to throw a tantrum. I doubt you were even born back then. But even if you were, considering how pitiful your people were back then, you would have died like a bug, crashed like a nut.</p>
-<p>So be grateful for that. However, since you are here, then despair, for I have come to do what we couldn’t during the Primordial Era."</p>
+<p>So be grateful for that. However, since you are here, then despair, as I have come to do what we couldn’t during the Primordial Era."</p>
 <p>BOOM</p>
 <p>Kent’s own killing intent exploded, and at once, the air inside the first floor of the void temple turned grim. Kent’s new and improved killing intent had already reached a whole new level.</p>
 <p>"I, Vhar’Zeth, the first temple master of fire, will slay you and use your blood to—"</p>

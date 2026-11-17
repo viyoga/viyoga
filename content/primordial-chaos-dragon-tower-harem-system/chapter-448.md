@@ -52,7 +52,7 @@ chapter = 448
 <p>This made him set the ruthless Sylara and the more human Saden on the mission. One was meant to kill, and the other was meant to take the two humans back to the tower.</p>
 <p>The universe even gave him the location of Elaine’s village, where her small home was, and who was keeping an eye on her parents.</p>
 <p>Naturally, Kent could sense the universe was angry. This also strangely made him angry.</p>
-<p>He knew the kingdom must lose one Pill Saint, for he had already marked Pill Saint Enex. He will soon die regardless of where he hid.</p>
+<p>He knew the kingdom must lose one Pill Saint, as he had already marked Pill Saint Enex. He will soon die regardless of where he hid.</p>
 <p>But before that, he must ensure everyone knew what a demented person he was.</p>
 <p>So he gave everyone a good show, telling them he is indeed the Perfect Alchemist. But the moment that happens, it means Elaine is now his servant.</p>
 <p>But this means the bait that Pill Saint Enex set wasn’t able to catch any fish.</p>

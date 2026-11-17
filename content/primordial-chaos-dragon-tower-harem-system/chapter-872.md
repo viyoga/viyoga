@@ -60,6 +60,6 @@ chapter = 872
 <p>Adina looked around, and all she could see was luxury. However, there was one thing that caught her attention: the priestess smiling back at her.</p>
 <p>"You are one of the Seven Virtues," Adina said, fear gripping her.</p>
 <p>The High Priestess laughed as she walked toward Adina. "I am indeed one of the Seven Virtues, just like you are one of the Seven Sins.</p>
-<p>However, you shouldn’t fear me, for I have no issue with you. After all, we both have something in common."</p>
+<p>However, you shouldn’t fear me; after all, I have no issue with you. After all, we both have something in common."</p>
 <p>The priestess unleashed a strand of her aura, causing Adina to calm down instantly.</p>
 <p>The priest laughed, "I also have the Extreme Pure Yin Body, and just like you, I am being hunted. However, I believe that with the two of us combined, we can overcome this struggle."</p>

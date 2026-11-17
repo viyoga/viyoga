@@ -49,7 +49,7 @@ chapter = 1189
 <p>She nodded, but one could see she still wanted to defeat the fox lady whose seven fluffy tails suddenly appeared and started whipping through the air.</p>
 <p>This sight instantly turned Kent on, but he calmed his nerves since they weren’t there just yet.</p>
 <p>"I know saying this wouldn’t do much to repair the damage the Orcs have caused, but know that inside here, there is no danger. Friends and family will always surround you, so don’t keep your guard up.</p>
-<p>Allow yourself to enjoy the moment you now have, for you have earned it. Trust me, there is more fun to be had in here."</p>
+<p>Allow yourself to enjoy the moment you now have, as you have earned it. Trust me, there is more fun to be had in here."</p>
 <p>They nodded.</p>
 <p>"We are sorry for how we reacted back then," Indie said, running her fingers absentmindedly across Kent’s fine abs.</p>
 <p>"No need to apologize. It isn’t your fault to begin with." Kent laughed and added, "If I hadn’t been a creep, none of this would have happened."</p>

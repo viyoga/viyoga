@@ -26,7 +26,7 @@ chapter = 719
 <p>If he started killing just anyone, the Elves could alert all their men outside and in the Ancient Battlefield of Parting. Their orders would be to kill any human or Half-Elf they saw.</p>
 <p>They could even go as far as ordering them to hunt them down, knowing full well Kent wouldn’t be able to save everyone, even if he were resourceful.</p>
 <p>Though he might be able to save the Half-Elves now, those outside would pay the price. Kent didn’t want that, so instead of angering the Elves further, he planned on teaching them a lesson.</p>
-<p>If possible, he wanted them to acknowledge the Half-Elves, for he knew soon enough they would rise, and when they did, they would fight back, leading to a more catastrophic ending for everyone.</p>
+<p>If possible, he wanted them to acknowledge the Half-Elves, since he knew soon enough they would rise, and when they did, they would fight back, leading to a more catastrophic ending for everyone.</p>
 <p>But if he lets the elves go, none of that would happen, and before he ascends, the Half-Elves will become powerhouses. So peace now, peace forever.</p>
 <p>Kent saw the hell Chaos had to go through to save his world from people who didn’t care about the common folk, just like the Hand was doing.</p>
 <p>So Kent planned to purge them, but he also wanted a peaceful world where others could live, thrive, and grow in peace.</p>

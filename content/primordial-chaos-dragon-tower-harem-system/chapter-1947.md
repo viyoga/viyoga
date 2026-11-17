@@ -31,7 +31,7 @@ chapter = 1947
 <p>"She will be more useful alive than dead."</p>
 <p>"But she had tortured me for years, Master." Sanguine frowned deeply, but Kent didn’t change his mind.</p>
 <p>"I will compensate you for that. However, keeping her alive, as I said, will prove more useful than leaving her dead."</p>
-<p>Sanguine looked at Emmet for a few seconds before he sighed and released his grip on her head. "Thank my master with all your soul, for he is the only person who can make me change my mind, and now he has used that power to free you."</p>
+<p>Sanguine looked at Emmet for a few seconds before he sighed and released his grip on her head. "Thank my master with all your soul; after all, he is the only person who can make me change my mind, and now he has used that power to free you."</p>
 <p>Kent sighed, knowing he was a bit selfish for this one.</p>
 <p>If he had suffered at the hands of someone for millions of years, the first thing he would do after he was freed would be to kill the person.</p>
 <p>Denying Sanguine that satisfaction was already bad enough.</p>

@@ -22,7 +22,7 @@ chapter = 766
 <p>The others who saw this strange behavior could only wonder silently in their heads. They had no idea what Kent was doing, but they knew it was none of their business, so their focus was on their own affairs.</p>
 <p>Kent studied their faces and sighed.</p>
 <p>"I will make this short so you can get back to your business. Don’t ask me how I know, but I know that you seven are looking for the best enhancement Flame Art that can aid you in climbing further.</p>
-<p>First of all, don’t be ashamed of seeking help. Be proud, for you are survivalists, someone who knows how to survive at all costs.</p>
+<p>First of all, don’t be ashamed of seeking help. Be proud, because you are survivalists, someone who knows how to survive at all costs.</p>
 <p>That said, I have a way to help you seven. All I ask is to reach the 3rd floor, which, if you don’t slack, you can make it within one day, or one and a half if your determination isn’t strong enough.</p>
 <p>Now, my help isn’t for free. Of course, I am not asking you to become my slaves. I hate slavery, so wipe that out of your head. However, I do want something from you, and that is to see you survive the next 3 years.</p>
 <p>If you manage to survive and grow much stronger over the next 3 years, I will tell you what I want in return for helping you today.</p>
@@ -38,7 +38,7 @@ chapter = 766
 <p>It was only after Kent left the first floor that they breathed. They looked at each other for a moment before Lorin, the lady Qilin, placed the grape in her mouth and ate it.</p>
 <p>The others followed her, and soon, all seven of them were in the lotus posture, absorbing the energy they felt entering their bodies.</p>
 <p>Meanwhile, on the outside, all names had been displayed on the board. However, some names stood out.</p>
-<p>At the top was Freya Stoneforge, the youngest princess of the Dwarves. Her appearance at the top was normal, for she is known as the best flame user in the younger generation.</p>
+<p>At the top was Freya Stoneforge, the youngest princess of the Dwarves. Her appearance at the top was normal; after all, she is known as the best flame user in the younger generation.</p>
 <p>Following her was Helga Forog, best friend of Freya and the second-best flame user in this year’s selection to enter the power.</p>
 <p>Prince Roran Fireclaw, the second prince of the Flame Dragons, took the third spot. He is also an impressive young person, someone everyone knows and recognises. He has a remarkable journey ahead of him.</p>
 <p>An Elf took the fourth spot, and the fifth was also an Elf. Then, from the 7th onwards, there was a mix of other races. The 26th to the 33rd were all half-elves.</p>

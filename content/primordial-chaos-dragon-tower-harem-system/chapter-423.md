@@ -18,13 +18,13 @@ chapter = 423
 <p>"This bastard. Won’t he go to that Pill Master Competition?" Vexthra asked.</p>
 <p>"He still has time, big sister. Our man is someone who has a lot of time on his hands," Unity smiled.</p>
 <p>"That’s true. We’re lucky to have him, then," Vexthra smiled, remembering when Kent first made a move on her.</p>
-<p>She knew nothing about love back then, so she was just going with the flow. Of course, she tried to resist, but she couldn’t, for she wasn’t able to muster that resistance against him.</p>
+<p>She knew nothing about love back then, so she was just going with the flow. Of course, she tried to resist, but she couldn’t. After all, she wasn’t able to muster that resistance against him.</p>
 <p>But the moment she accepted him, she discovered something called happiness, despite her Law being that of Hate and Resentment.</p>
 <p>"They’re done with the second round, so he’ll be reaching out soon," Unity reported, and Vexthra smiled. She hurriedly ate her plate of fruit salad and waited.</p>
 <p>It didn’t take long for her smile to bloom.</p>
 <p>[Hello there, my heartbeat. I hope you and Unity had a nice chat,] Kent said with a smile, making Vexthra blush.</p>
 <p>"You saw her, huh?" Vexthra asked.</p>
-<p>[Indeed. Unity is just too innocent and sweet, so she wasn’t good at sneaking around.] When he saw Unity spying on him, he just laughed, for she was rather cute doing the sneaking.</p>
+<p>[Indeed. Unity is just too innocent and sweet, so she wasn’t good at sneaking around.] When he saw Unity spying on him, he just laughed; after all, she was rather cute doing the sneaking.</p>
 <p>There is something about that just makes her too cute and innocent.</p>
 <p>"Don’t punish her, okay? Doing so will mean her big sisters will have to step in, and since we wouldn’t want them beating you up, just reward her instead," Vexthra smiled.</p>
 <p>"Don’t worry, Unity is a doll. I wouldn’t want to punish her. But her reward will leave her panting for breath," Kent laughed, causing Val to blush.</p>

@@ -34,7 +34,7 @@ chapter = 422
 <p>There are treasures and opportunities to be gained, so most just go adventuring despite its dangers.</p>
 <p>So the real powerhouses are the Root Ascensions. For Val to reach that stage at such an age, it wouldn’t be an exaggeration to say she would shock her sect if she were to return.</p>
 <p>Naturally, she will go and look for trouble with them.</p>
-<p>"That was awesome," Val said, licking the dragon rod after unplugging it from inside her. Kent smiled back at her, for he had indeed enjoyed the sex.</p>
+<p>"That was awesome," Val said, licking the dragon rod after unplugging it from inside her. Kent smiled back at her. After all, he had indeed enjoyed the sex.</p>
 <p>"I never knew sex with you would be this fun. I would have done it while you were in a coma," she smiled, knowing she had thought about that multiple times.</p>
 <p>"Do you have a thing for dead bodies?" Kent asked, and Val just smiled.</p>
 <p>"I have a thing for your dead body, only yours." She wouldn’t hide that the allure of having his dick all to herself in his half dead state.</p>
@@ -50,7 +50,7 @@ chapter = 422
 <p>That’s her kink, and Kent wouldn’t deny her that. As to how it will pan out, only time will tell.</p>
 <p>"You are an amazing man, Kent. I regretted targeting you back then," Val smiled.</p>
 <p>Her reason for coming to the Divine Palace sect was to kill Kent or get him on her side, the side of the Everlasting Immortal Sword Sect.</p>
-<p>Naturally, she was doomed to fail from the start, for she had no chance against Kent. Even though her second plan was to defeat Selene and take her disciple, that one was also destined to fail.</p>
+<p>Naturally, she was doomed to fail from the start, since she had no chance against Kent. Even though her second plan was to defeat Selene and take her disciple, that one was also destined to fail.</p>
 <p>So she was doomed from the beginning.</p>
 <p>Now that she was thinking about it, she couldn’t help but blush.</p>
 <p>Kent smiled, watching her expression.</p>

@@ -63,5 +63,5 @@ chapter = 1061
 <p>"Damn. Today is the best day of my life," Ignarok said, and the other Monarchs nodded.</p>
 <p>"The Beasts Kingdom is a place where every beast in the universe dreams of living. It has ninety-nine worlds, each of which is several times bigger than the Flame Sea.</p>
 <p>According to history, this star system was once home to the Divine Beast Tamer. Legend has it that during his era, every beast went there to seek guidance on how to evolve beyond their bloodline limits.</p>
-<p>Many say just living there will raise the potential of any beast. Personally, it is not a rumor, for I have met beasts from there, and while I can beat my chest and say I am a dragon, I pale in comparison to them.</p>
+<p>Many say just living there will raise the potential of any beast. Personally, it is not a rumor. After all, I have met beasts from there, and while I can beat my chest and say I am a dragon, I pale in comparison to them.</p>
 <p>After all, they are all descendants of beasts that once followed the Divine Beast Tamer."</p>

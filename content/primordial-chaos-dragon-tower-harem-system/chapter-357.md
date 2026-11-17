@@ -11,7 +11,7 @@ chapter = 357
 <p>"Damn, this is the best cheat one could ever ask for."</p>
 <p>Kent received the sword mastery that used to belong to the clone. Now feeling it in his bones, he knew it was more than he could have asked for.</p>
 <p>The clone had perfect control of its skills and the sword. So, receiving its mastery was something worth celebrating.</p>
-<p>Kent, who knew just how much he had been lacking, was now smiling, for he had closed that gap.</p>
+<p>Kent, who knew just how much he had been lacking, was now smiling. After all, he had closed that gap.</p>
 <p>The feeling he was swimming in now was that of having the confidence to defeat the clone again in under a minute—if this were him before the duel.</p>
 <p>"So, if I am not mistaken, the sword path is, first, to improve my swordsmanship and, second, to give me the mastery of the clones, which are far superior to me in all aspects.</p>
 <p>And lastly, to gain the Split Body Sword Skill, which, from the description, will keep improving as the duel continues," Kent sighed with a smile.</p>

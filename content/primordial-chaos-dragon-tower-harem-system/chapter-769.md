@@ -8,7 +8,7 @@ chapter = 769
 <p>Kent wasn’t offended by being called a loser.</p>
 <p>If anything, he was amused looking at the struggling Elf who he knew deep within his heart wouldn’t make it to the 4th level.</p>
 <p>The path leading there is much more torturous.</p>
-<p>If Kent were to guess, she would lose determination on the 60th step, for that is where he could see his friends.</p>
+<p>If Kent were to guess, she would lose determination on the 60th step, because that is where he could see his friends.</p>
 <p>"Have you ever heard of blind determination?" Kent asked, sitting on the step, legs crossed and left hand supporting his chin.</p>
 <p>"Blind determination is when you want to prove yourself to someone as a form of pleasing them. You fight so hard just so you could show everyone you are worthy to be among the privileged.</p>
 <p>You, Kella, aren’t meant to be among such people.</p>
@@ -27,9 +27,9 @@ chapter = 769
 <p>Of course, if you can change your determination, the fight to please your father. That is much better than aiming to become a royalty."</p>
 <p>With that, Kent walked away, leaving the Lotus Plum mind Fruit with Kella.</p>
 <p>The Elven girl looked at the fruit for three whole minutes before storing it away. She had a lot of thinking to do and a short time to do it.</p>
-<p>She had no idea how Kent managed to read her thoughts and know what she was chasing after. She was indeed trying to be recognised by the Elven Queen, for she wanted to live a life of affluence.</p>
+<p>She had no idea how Kent managed to read her thoughts and know what she was chasing after. She was indeed trying to be recognised by the Elven Queen, as she wanted to live a life of affluence.</p>
 <p>Perhaps she wanted to appear regal like her mates. So she worked for it. However, what nobody, not even the Elf Queen, knew was that, unlike most of the Elves who had inherited their soul flames from Flame Beasts, Kella awakened her own manually.</p>
-<p>He father made sure she covered that up, for he knew if it were recognized, she would be taken from him and made into a doll that the Elves would use to boost their power.</p>
+<p>He father made sure she covered that up, since he knew if it were recognized, she would be taken from him and made into a doll that the Elves would use to boost their power.</p>
 <p>They will use her name to boast, and that is not something he wanted for his daughter.</p>
 <p>So she remained low-key and hoped one day, when the elven queen recognized her, she would show this amazing side of herself.</p>
 <p>"He even knows my secret. Just who is this kid?"</p>

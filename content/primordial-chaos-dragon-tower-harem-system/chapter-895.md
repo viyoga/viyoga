@@ -28,13 +28,13 @@ chapter = 895
 <p>However, while Kent managed to send a rather brutal message this time, that escalation was a recipe for disaster that even Kent didn’t see coming.</p>
 <p>Not that he could have predicted the Hand would have such a plot in mind. It was safe to say she was indeed a schemer, one who put a lot of thought into her plans.</p>
 <p>When the mysterious face that appeared in the mirror told her to use the Ancient Vampire race in her plot, she accepted that outcome.</p>
-<p>But she didn’t immediately go to them, for she knew that even at her strength, which she had managed to recover a few weeks ago, entering the Death Region was like throwing her defenseless body to a pack of wolves.</p>
+<p>But she didn’t immediately go to them, since she knew that even at her strength, which she had managed to recover a few weeks ago, entering the Death Region was like throwing her defenseless body to a pack of wolves.</p>
 <p>So she waited and instead focused on finding the keys of the Apocalypse.</p>
 <p>Seven days ago, the last of the Seven Keys of the Apocalypse was found.</p>
-<p>The moment the Keys were found, the sky turned gloomy, for the inevitable was finally upon everyone. Kent knew of this, for he had been waiting for this very moment to arrive.</p>
+<p>The moment the Keys were found, the sky turned gloomy, for the inevitable was finally upon everyone. Kent knew of this, as he had been waiting for this very moment to arrive.</p>
 <p>It was his destiny to experience the apocalypses, after all.</p>
 <p>But yet again, what happened next shook everyone days later.</p>
-<p>While everyone was going about their lives, the Sea Race was colluding with the Hand to do something very bad. In fact, this bad thing was something not even Lord Leviathan was aware of, for it went against everything he stood for.</p>
+<p>While everyone was going about their lives, the Sea Race was colluding with the Hand to do something very bad. In fact, this bad thing was something not even Lord Leviathan was aware of; after all, it went against everything he stood for.</p>
 <p>He may be arrogant and even unreasonable most of the time; however, he never once goes to extreme lengths, such as catching all those who possess the bloodline of the Wynthralls—the same bloodline flowing through Elaine’s body—and offering them as a bargaining chip to the Ancient Cursed Vampire Race.</p>
 <p>Nobody saw that coming. However sinister this plot was something that had been in the works for years now.</p>
 <p>It all started 13,000 years ago when the Hand found out a very important secret that had been kept under wraps for a very long time.</p>
@@ -42,7 +42,7 @@ chapter = 895
 <p>Their lineage came from a very dangerous force in this universe that nobody wanted to mess with, especially during the Evil Era: the Forsaken Race.</p>
 <p>They are a race of powerful beings that have been forsaken by the universe. They don’t have a root, for their root has been wiped from existence.</p>
 <p>Legend has it that they came about due to an unholy union between the Doom Race, who evaded the universe and were the cause of the fall of the Primordial era.</p>
-<p>These forsaken races are dangerous, for they are the only beings in the entire universe who aren’t affected by the restrictions on worlds.</p>
+<p>These forsaken races are dangerous. After all, they are the only beings in the entire universe who aren’t affected by the restrictions on worlds.</p>
 <p>This means they can go anywhere they want, and their cultivation wouldn’t be affected in any way.</p>
 <p>Thankfully, there was a restriction on them. Because of this restriction, they cannot leave their worlds.</p>
 <p>However, just like everything, there is a loophole, and this loophole was the Ancient Vampire Race.</p>

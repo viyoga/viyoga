@@ -39,7 +39,7 @@ chapter = 841
 <p>Those eyes belong to the Venom King.</p>
 <p>He is slender and wiry, with ash-grey skin. His long, black hair is tied back with green silk, and judging by the look on his face, he doesn’t appear happy to see Kent holding hands with his sister.</p>
 <p>Suddenly, the entire Mutual space turned quiet as everyone felt the poison in the air.</p>
-<p>Xhan Wu, also known as the Venom King, was staring at Kent. That is not something anyone wanted to see, for it was not meant to happen this early.</p>
+<p>Xhan Wu, also known as the Venom King, was staring at Kent. That is not something anyone wanted to see; after all, it was not meant to happen this early.</p>
 <p>However, it was happening: a Core disciple who had been seeded for the upcoming Interplanetary sect competition was inside the inner sect, and his demeanor wasn’t friendly.</p>
 <p>Of course, the Venom King never smiled or looked friendly, but they all could feel the intensity of his gaze on Kent, and that alone made them take a few steps back.</p>
 <p>Kent examined the fellow and then tapped Nyss on the shoulder, asking a question that made many gasp.</p>

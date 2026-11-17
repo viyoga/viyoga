@@ -35,14 +35,14 @@ chapter = 759
 <p>"In that case, we will come early so we can explore your humble kingdom before the auction." He turned to leave, but then he stopped and, turning around with a smile, he extended his hand and handed over two red tokens to King Thalirion.</p>
 <p>"Take that as a sign of goodwill for this newly formed relationship between our kingdoms." With that, he left, making the Half-Elves smile slightly.</p>
 <p>’Bunch of pretenders pretending to care when they just want what we have. Of course, when we are done with them, they will know a Half-Elf is not an easy target,’ Queen Jascia said inwardly, looking at Lord Qilin retreating.</p>
-<p>If she were to be sincere, then she would say only the Dwarves are worthy of her respect, for they were their allies in a way.</p>
+<p>If she were to be sincere, then she would say only the Dwarves are worthy of her respect, since they were their allies in a way.</p>
 <p>She and the queen of the Dwarves are friends to some extent, who, back in the day, shared some happy moments. Had it not been for Queen Ylva, when Kenji’s dagger pierced Queen Jascia’s chest, she would have died.</p>
 <p>But Queen Ylva used one of her most fabulous creations to save her, and for that, she is grateful.</p>
 <p>Even if the last 1,000 years hadn’t seen the Dwarves helping the Half-Elves, if anything, at the end of the day, they saved their queen, so that counted for something.</p>
 <p>However, the others merely want to use the Half-Elves, and when they have obtained what they want, they will reveal their true colors.</p>
 <p>That is the worst kind of evil, and they are ensuring its success. However, the Half-Elves are also not going to reveal their true nature until it is necessary.</p>
 <p>Queen Elenara was seething in anger while she watched the races she had a good relationship with now sucking up to the Half-Elves.</p>
-<p>If anything, she most certainly would want the Half-Elves to drop dead, for she didn’t like what she was after to be discovered by them. But now, she was starting to suspect the Half-Elves wouldn’t be in the dark for long.</p>
+<p>If anything, she most certainly would want the Half-Elves to drop dead; after all, she didn’t like what she was after to be discovered by them. But now, she was starting to suspect the Half-Elves wouldn’t be in the dark for long.</p>
 <p>That both made her weary and pissed off like hell.</p>
 <p>Kent was also now more focused on something else, and that was the demons.</p>
 <p>The Blood Demons, in particular, were looking at him with extreme killing intent. It was as if, at any moment, they would lunge at him.</p>

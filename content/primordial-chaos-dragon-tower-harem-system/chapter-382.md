@@ -47,12 +47,12 @@ chapter = 382
 <p>The moment they passed through the portal, they appeared atop a different mountain where a large expanse of forest could be seen stretching far and wide.</p>
 <p>Most of the plants in the forest had pink leaves, and the energy in the air was much more powerful than that of Sonix, the world Kent lives in.</p>
 <p>He quickly scanned the world using his enchanted eyes. He had gained those eyes after absorbing the Kingdom Builder books from the Enchantress.</p>
-<p>That quest is also pending, for he knew one day, the Enchantress will ask her favour, and he cannot turn her down. But for now, he can only enjoy the benefits.</p>
+<p>That quest is also pending, as he knew one day, the Enchantress will ask her favour, and he cannot turn her down. But for now, he can only enjoy the benefits.</p>
 <p>⟪World Name: Fedora⟫</p>
 <p>⟪Rank: High⟫</p>
 <p>⟪Strongest Existence: Tyrant Orc King Balma (Level 6 Spirit Lord)⟫</p>
 <p>"I know you all can sense the energy in this world. That is because this world is a high world, while the one we came from is a medium world," Kent said.</p>
-<p>"But soon, we will ascend to a higher world and start to travel to more worlds of even higher ranks. So get a feel for it now, for you will be getting more later."</p>
+<p>"But soon, we will ascend to a higher world and start to travel to more worlds of even higher ranks. So get a feel for it now; after all, you will be getting more later."</p>
 <p>He turned his focus back to the next set of messages that were all about the world. Basically, this is a world ruled by beasts and monster races.</p>
 <p>They have different kinds of beasts, each with a powerhouse rooted in this world.</p>
 <p>However, the strongest existence is the Tyrant Orc King Balma, a powerful being whose tyranny spreads far and wide.</p>

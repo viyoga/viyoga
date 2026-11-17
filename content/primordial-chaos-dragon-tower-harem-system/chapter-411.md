@@ -16,7 +16,7 @@ chapter = 411
 <p>However, she had never thought that far ahead when she ran.</p>
 <p>So she chose to steal. This was the best way to keep going until she had run far enough.</p>
 <p>However, that day, when she stole fruits from that old lady, her life changed forever. That old lady was a Peak Ascension stage expert trying to comprehend something profound, so she took the form of a mortal.</p>
-<p>And when Zaila stole from her, she captured her, for she was able to help her greatly.</p>
+<p>And when Zaila stole from her, she captured her; after all, she was able to help her greatly.</p>
 <p>Most cultivators seemed to forget their roots the moment the years started passing by. So little moments like this were a thing of the past for most.</p>
 <p>But that moment changed the cultivator’s life.</p>
 <p>So instead of punishing her, she took her to a weapon store and asked her to pick a weapon of her choice.</p>

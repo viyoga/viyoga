@@ -6,7 +6,7 @@ chapter = 566
 +++
 
 <p>Long after the Angelic Order fell and the Angel race parted, a child was born to the Moonlit Angel race during the alignment of the Celestial Star and the Harmonious Moon.</p>
-<p>They called her Seraphina Moonveil, for she was the one born when all hope was lost.</p>
+<p>They called her Seraphina Moonveil, because she was the one born when all hope was lost.</p>
 <p>She was born during a rare celestial event—an event that happens once every million years. However, millions of years after the Angelic Order fell, peace was not born again in the remaining Angel race.</p>
 <p>Her birth brought hope to her people, and for years, she was nurtured. Her name was used to bring peace to the remaining Angel race.</p>
 <p>Her name was used to deter all enemies, and as she grew, her radiance started to manifest. Before she turned 20, she became a symbol that stood at the forefront of the Moonlit Angel race.</p>

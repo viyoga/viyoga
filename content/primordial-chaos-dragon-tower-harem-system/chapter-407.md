@@ -61,4 +61,4 @@ chapter = 407
 <p>"I can only say yes to that." Mara took the reverse cowgirl position and gently inserted Kent’s dick in her pussy making sure Kent watch that ass bounce.</p>
 <p>Then she started raising her butt up and down creating a slapping sound. Naturally, Kent couldn’t help but land a gentle slap on it.</p>
 <p>However, the moment the slap landed on her ass, a moan came from her mouth. It was a seductive moan that took hold of Kent’s reasoning.</p>
-<p>"Do more, slap it more," Mara requested, and thus, a wild Mara was born, one that Kent will do a whole lot of nasty stuff with, for she is one wild vixen with a great sexual imagination.</p>
+<p>"Do more, slap it more," Mara requested, and thus, a wild Mara was born, one that Kent will do a whole lot of nasty stuff with, since she is one wild vixen with a great sexual imagination.</p>

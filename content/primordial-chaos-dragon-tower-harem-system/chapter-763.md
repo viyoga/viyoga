@@ -30,8 +30,8 @@ chapter = 763
 <p>So this is your chance to prove to everyone how impressive you are because trust me, you will need it now more than ever."</p>
 <p>Everyone sighed, knowing their one shot to enter the sect was about to be determined in 72 hours. If they blew it, then that would be on them. But if they managed to get it done, they were one step away from entering the strongest sect in the world.</p>
 <p>It was a big gamble, one that depended on their performance upon entering the tower.</p>
-<p>"Now let’s talk about the nature of the tower." Kent’s attention was pulled into what Elder Lance was about to say, for that was the main thing he was waiting for.</p>
-<p>The rules aren’t something he has to know, for he isn’t planning on ruining the experience by cheating.</p>
+<p>"Now let’s talk about the nature of the tower." Kent’s attention was pulled into what Elder Lance was about to say, because that was the main thing he was waiting for.</p>
+<p>The rules aren’t something he has to know; after all, he isn’t planning on ruining the experience by cheating.</p>
 <p>He had already planned to get things done faster, so stabbing someone in the back wasn’t something he planned on doing.</p>
 <p>"The tower is simple. When you enter, you will appear at the foot of a long stairway. All you have to do is start to climb.</p>
 <p>However, it isn’t as simple as it sounds. You see, the reason we call it Flame Tower is that inside the tower, it’s as hot as hell.</p>

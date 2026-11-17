@@ -42,7 +42,7 @@ chapter = 1436
 <p>"It is really you."</p>
 <p>"In the flesh." Kent smiled and opened his arms wide. Although he is against hugging men, he made an exception for meeting an old friend.</p>
 <p>Under the stunned looks on everyone’s faces, Crimson Dagger walked forward and gave his old friend and savior a big hug.</p>
-<p>Everyone sighed, letting down their guard. They were all tense, for they had been informed someone important was coming to meet them, and so they came.</p>
+<p>Everyone sighed, letting down their guard. They were all tense; after all, they had been informed someone important was coming to meet them, and so they came.</p>
 <p>However, as assassins, they knew not to let their guard down, not when they had no idea who they were coming to meet.</p>
 <p>Now that they could see what was happening, they knew even if Kent was a trouble, Crimson Dagger would handle him.</p>
 <p>"You really have returned," Crimson Dagger said after making sure Kent was indeed a real person.</p>

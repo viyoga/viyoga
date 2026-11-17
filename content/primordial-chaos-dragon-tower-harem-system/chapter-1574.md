@@ -8,7 +8,7 @@ chapter = 1574
 <p>The records of the Jade Emperor described some things and some people as beyond the realm of common sense. These people, no matter how closely one looks at them, just don’t make sense.</p>
 <p>The records described the Primordial Chaos Dragon as an entity whose nature lies beyond common sense. It was said that his entire existence was so bizarre that making heads or tails of him was just not possible.</p>
 <p>Years later, the Ruthless Bandit was born, an existence that also defied the laws of common sense. He stood at the peak of immortality and fought, killed, and slaughtered gods.</p>
-<p>The forbidden records speak of him as one of the untamed ones, for he indeed exists outside the realm of common sense.</p>
+<p>The forbidden records speak of him as one of the untamed ones; after all, he indeed exists outside the realm of common sense.</p>
 <p>Many came and left.</p>
 <p>Today, the rebirth of the Ruthless Bandit had already sent waves of shock everywhere, causing fear and panic to take root in the hearts of many.</p>
 <p>---</p>

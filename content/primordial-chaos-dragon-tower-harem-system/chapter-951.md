@@ -42,7 +42,7 @@ chapter = 951
 <p>Pill Saint Flura smiled, "I am not deceiving anyone, Elder Grant. I was indeed defeated because my opponent was able to form a grey Pill Ring.</p>
 <p>I mean, think about it, if both of us concocted a Perfect Pill, then how come I lost? Naturally, I completed first, so even if we both had the same purity, because I completed first, I was meant to be the winner.</p>
 <p>But since I am not the winner, it means my opponent’s pill purity was higher than mine, and the only way to achieve that is through Pill Rings.</p>
-<p>If you don’t believe me, you can go to the Alliance. The three old monsters were there and witnessed the whole thing. It was also the reason why I accepted the results, for I wouldn’t have believed that kid was a Pill Grandmaster."</p>
+<p>If you don’t believe me, you can go to the Alliance. The three old monsters were there and witnessed the whole thing. It was also the reason why I accepted the results, as I wouldn’t have believed that kid was a Pill Grandmaster."</p>
 <p>"Unbelievable. Just where did this kid come from?" Elder Alban asked.</p>
 <p>"Pyris Pill Alliance."</p>
 <p>They were left stunned yet again. However, the patriarch was staring at his daughter, looking at the smile on her face. He could tell she wasn’t angry for losing; this only made him want to find out why.</p>
@@ -57,7 +57,7 @@ chapter = 951
 <p>"Anything, Father."</p>
 <p>"The next time you meet this kid who defeated you, you must defeat him. Can you do that?"</p>
 <p>Pill Saint Flura smiled, "I will try my best, Father."</p>
-<p>She couldn’t say yes, for she knew Kent was no simple person. He was a prodigy among prodigies.</p>
+<p>She couldn’t say yes. After all, she knew Kent was no simple person. He was a prodigy among prodigies.</p>
 <p>"You can leave now. I will get you a new Pill Ascension Token, so do well to comprehend the Nine Flame Pill Art."</p>
 <p>Within a day, words of the Pill Prodigy called Kent had reached every Pill World, causing many to start doubting themselves.</p>
 <p>The idea that a mere Pill Grandmaster was able to form a Pill ring was more than they could take in.</p>

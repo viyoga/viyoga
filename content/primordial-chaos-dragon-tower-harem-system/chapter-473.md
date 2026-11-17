@@ -26,7 +26,7 @@ chapter = 473
 <p>So, for Kent to get on their timeline, it was safe to say they wouldn’t let this slide regardless of how Kent saw it.</p>
 <p>They were not afraid of any king or queen, so Kent wasn’t someone they would be afraid of.</p>
 <p>But there was someone they were afraid of, and it was the leader of the Hand. The lower members of the organisation called her the Hand, while the seven of them called her my lady.</p>
-<p>Those who could rival her strength were just a few in the world. Of course, as to whether they could kill her, only the stars could tell, for she was one terrifying lady.</p>
+<p>Those who could rival her strength were just a few in the world. Of course, as to whether they could kill her, only the stars could tell. After all, she was one terrifying lady.</p>
 <p>She was just a Level 3 Core Formation expert, yet the seven before her could not fathom her strength, regardless of how they measured it.</p>
 <p>Her existence was one nobody could fathom.</p>
 <p>So, regardless of their thoughts, they first asked for her permission before making any move.</p>

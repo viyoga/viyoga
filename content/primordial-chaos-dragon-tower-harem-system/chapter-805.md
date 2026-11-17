@@ -15,7 +15,7 @@ chapter = 805
 <p>With her past with Queen Jascia, they indeed brought out the big guns.</p>
 <p>The princess and her maid had already made contact with the princess of the Half-Elves during the Flame Tower trial, showing there was a path they could explore, too.</p>
 <p>Then there was Metal King Magda, with his skills, power, and influence; the Half-Elves wouldn’t be able to turn them down.</p>
-<p>Of course, the Half-Elves had no plans to turn them down, for they already wanted to ally with the Dwarves. This relationship would yield long-term benefits for both parties.</p>
+<p>Of course, the Half-Elves had no plans to turn them down. After all, they already wanted to ally with the Dwarves. This relationship would yield long-term benefits for both parties.</p>
 <p>So they were received well, and even the princess and her maid joined the eight Half-Elves to train under Uncle Drake while the adults talked.</p>
 <p>Days later, after Kent wakes up from his dream-like sleep, the result of this new alliance will become plain to him.</p>
 <p>However, soon, more races started appearing, and while none were turned back, they were also not received with the same enthusiasm as the Dwarves.</p>

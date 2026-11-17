@@ -30,7 +30,7 @@ chapter = 800
 <p>"Speak."</p>
 <p>Kent stood up and looked around him, seeing all eyes glued to him.</p>
 <p>"That is a Pill Grandmaster, what does he even know about pills?" someone said, and everyone nodded, some casting hateful looks at Kent, as if his status as a Pill Grandmaster while being on the 7th floor was an insult to them.</p>
-<p>Naturally, they were right to think that, for it takes a great deal of mastery to get to the 7th floor. So his presence there was an insult to them.</p>
+<p>Naturally, they were right to think that, because it takes a great deal of mastery to get to the 7th floor. So his presence there was an insult to them.</p>
 <p>Some even cast murderous looks at him. However, Kent stood his ground and even smiled slightly as he answered,</p>
 <p>"The pill that can be made from these ingredients is the Soul Mending Pill."</p>
 <p>The moment Kent spoke, everyone quieted down. They turned and looked at the Pill Emperor, checking to see if Kent’s answer was right or wrong.</p>

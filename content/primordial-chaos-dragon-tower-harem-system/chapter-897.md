@@ -29,7 +29,7 @@ chapter = 897
 <p>A few seconds later, the void cracked again, and the Beast Race also arrived and joined the battle. The dragons, on the other hand, had yet to arrive.</p>
 <p>However, with the Elves, Half-Elves, demons, Dwarves, and the Beasts already in combat, the battle was slowly taking shape.</p>
 <p>Spells flew through the air with deadly accuracy, chants echoed, and weapons clashed as the chaos of the battle slowly took shape.</p>
-<p>Uncle Drake was being held back; however, looking at the seven Sea Kings, one could tell they weren’t having it easy, for they had already sustained multiple wounds.</p>
+<p>Uncle Drake was being held back; however, looking at the seven Sea Kings, one could tell they weren’t having it easy. After all, they had already sustained multiple wounds.</p>
 <p>However, they were holding him back because they knew holding him back was the only chance they had in winning the battle, or at least killing as many as they could.</p>
 <p>Twenty minutes into the battle, the dragons also appeared, bringing their power to the fight. However, even so, more and more Sea Beasts kept coming out, making the reinforcements less effective than they were supposed to be.</p>
 <p>With warriors like Queen Jascia on the battlefield, the Sea Beasts weren’t having it easy. Yet, thirty minutes into the battle, a crab-like sea beast appeared and held back Queen Jascia.</p>
@@ -37,7 +37,7 @@ chapter = 897
 <p>Thankfully, a select few on the battlefield had received Kent’s generosity, so with them doing the most, the battle was at least not as brutal as it was supposed to be.</p>
 <p>"It is like there are endless Sea Beasts. Just where are they coming from?" a dragon asked as he clawed the face of a seahorse, sending it flying back several meters.</p>
 <p>Everyone was wondering the same thing, for nobody understood that there were so many sea beasts in the world.</p>
-<p>What they didn’t know was that, when it comes to the Sea Race, they have millions of warriors to use in battle, for they hold the biggest stretch of land in the world. The sea is vast, and they have seven kingdoms, each housing millions of sea creatures.</p>
+<p>What they didn’t know was that, when it comes to the Sea Race, they have millions of warriors to use in battle, since they hold the biggest stretch of land in the world. The sea is vast, and they have seven kingdoms, each housing millions of sea creatures.</p>
 <p>If they didn’t have this many fighters, they might as well just become mere food.</p>
 <p>However, regardless of their number, the mission was to kill them, and thus, they were being killed.</p>
 <p>But just like how they were being killed, they also weren’t sparing the warriors of Sonox.</p>

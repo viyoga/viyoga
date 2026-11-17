@@ -47,6 +47,6 @@ chapter = 755
 <p>"I most certainly would love to see the Flame King and the Chaos Dragon exchange blows and claws one of these days."</p>
 <p>The Enchantress chuckled, "It will be a good one, considering our dear Chaos would most certainly want to fight the Flame King again."</p>
 <p>"Well, Chaos already seems to notice there is something icky about the Flame King. He doesn’t know it was his memories, but of course, I may be the Universe’s heart, but I don’t control the flow of the Universe’s fate, so we can only wait."</p>
-<p>"We should probably prepare for that battle, for I can already feel it brewing in the air."</p>
+<p>"We should probably prepare for that battle; after all, I can already feel it brewing in the air."</p>
 <p>The two ladies were almost happy to see a battle that once shook the primordial Era. The Chaos dragon and the Flame King met as enemies but fell as brothers.</p>
 <p>Now, they are back again, and as to whether the rivalry will continue, only time will tell...</p>

@@ -14,7 +14,7 @@ chapter = 1965
 <p>"You do not have to worry, big sister. It wouldn’t be long before I become a god. Then I can have your virginity and have all the sex in the world," said Kent, who was already looking forward to that day.</p>
 <p>"You make it sound like by becoming a God, you can awaken a Dao," Fiannarel said, looking at the confident smile on Kent’s face, and she couldn’t help but smile.</p>
 <p>He is confident in himself, so much so that he declared something many would have smacked him silly for if they had heard him say it.</p>
-<p>Touching the Dao starts from the Supreme stage and goes much deeper at the Celestial stage. To become a Primordial, one must awaken one’s own Dao, for that is the sure path.</p>
+<p>Touching the Dao starts from the Supreme stage and goes much deeper at the Celestial stage. To become a Primordial, one must awaken one’s own Dao; after all, that is the sure path.</p>
 <p>Gods have no business talking about the Dao. They don’t even qualify to be near a place where the Dao is being discussed. So Kent saying it like by becoming a God, he would awaken a Dao, sure sounds both rude and arrogant.</p>
 <p>But then it is Kent they are talking about.</p>
 <p>He is someone who has, on multiple occasions, done the impossible.</p>

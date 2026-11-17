@@ -11,7 +11,7 @@ chapter = 751
 <p>Every True Beast strives to awaken at least one innate talent.</p>
 <p>The beasts Kent killed in the Flame Region are beasts, all right, but they do not possess the innate intelligence that allows them to adapt, take on human form, and live within society.</p>
 <p>They are basically monsters. However, with innate awareness, even a monster can become sociable.</p>
-<p>Yet, it extends beyond innate awareness and intelligence. In fact, when the word, innate is mentioned, even gods would have to listen, for it is one thing that anyone, especially beasts, will benefit from.</p>
+<p>Yet, it extends beyond innate awareness and intelligence. In fact, when the word, innate is mentioned, even gods would have to listen, since it is one thing that anyone, especially beasts, will benefit from.</p>
 <p>Innate Talent comes in different forms.</p>
 <p>There are innate talents, including Body, Mind, Spirit, Soul, Abilities, Aspects, and many more. Most even say that innate talent is what governs one’s ability to attain perfection.</p>
 <p>It comes in different forms. Of course, there are differences when compared to Bloodline talent.</p>
@@ -21,7 +21,7 @@ chapter = 751
 <p>Most people believe that two individuals with the same bloodline can possess the same Innate talents. However, that is just not possible. Innate talents are unique to everyone.</p>
 <p>Skills awakened from innate talents are unique and otherworldly.</p>
 <p>Even if one is dumb, just awakening their Innate Mind will turn them into a once-in-a-lifetime genius.</p>
-<p>It is what defines a cultivator, for it is through innate talent that one can comprehend their domains and later form the laws and build their world of law.</p>
+<p>It is what defines a cultivator, as it is through innate talent that one can comprehend their domains and later form the laws and build their world of law.</p>
 <p>Lord Leviathan has already reached his limit. He had long refined his core, broken two limits, attained Sage Body cultivation, reached Tier 14 in soul cultivation, and reformed his foundation ten times.</p>
 <p>The current him qualifies to compete with Spirit Emperors and Spirit Sovereigns. In fact, in the Celestial Conclave planetary alliance, he can be counted among the top ten strongest out of 64 worlds in the coalition.</p>
 <p>That is how strong he is.</p>
@@ -39,7 +39,7 @@ chapter = 751
 <p>"Do you know who this mysterious alchemist is?" Lord Leviathan asked, but King Zephyr shook his head.</p>
 <p>"They didn’t say who this alchemist is. Only that he is talented, perhaps a Pill King or a Pill Sage; however, they announced there will be an auction three weeks from today. I believe they will sell one there."</p>
 <p>"That is not good enough. Send men to the surface world. Let them blend into this auction, and when a chance appears, they must grab this pill no matter the consequences."</p>
-<p>The order was absolute. There was no denying his words, for he meant everything he said. King Zephyr nodded, not daring to say anything. To him, he would bow to Lord Leviathan first before bowing to a god.</p>
+<p>The order was absolute. There was no denying his words; after all, he meant everything he said. King Zephyr nodded, not daring to say anything. To him, he would bow to Lord Leviathan first before bowing to a god.</p>
 <p>"What about Kent Madson?" Queen Nyssa, the leader of the Giant Octopus race, asked.</p>
 <p>Of course, at the moment, she is in her human form, but in combat, a giant purple octopus with razor-sharp tentacles would appear, and that is why she is the second strongest of the seven sea leaders.</p>
 <p>"Leave him to our geniuses in the Primal Beast Sect. I am sure soon the interplanetary competition will start, and knowing the Supreme Immortal Sect, they would want their core disciples to represent this world.</p>

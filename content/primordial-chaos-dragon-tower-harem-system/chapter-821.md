@@ -13,7 +13,7 @@ chapter = 821
 <p>"You can use any means to climb, but I recommend skills and techniques, for pills will burn out three times faster, and the higher you climb, the more quickly the effect wears off.</p>
 <p>Treasures like artifacts and weapons will also lose 90% of their functionality the higher you climb. The only things that will aid you here are your techniques and skills.</p>
 <p>Then, of course, the most important thing is your will to climb.</p>
-<p>In the trial of will, your treasures can fail, you can run out of pills, but you can never run out of skills or techniques, for they are within you.</p>
+<p>In the trial of will, your treasures can fail, you can run out of pills, but you can never run out of skills or techniques. After all, they are within you.</p>
 <p>Of course, it will be slightly challenging to use them the higher you climb, but if you are determined to climb, you will.</p>
 <p>For your second question, the answer is no. You can’t help anyone, since the moment you step onto the stairway, you will be in your own space, where the only way to come out is to climb to the top.</p>
 <p>And for the last question, there is no other reward for becoming a disciple—that is reward enough. Any more questions?"</p>

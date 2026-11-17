@@ -8,7 +8,7 @@ chapter = 186
 <p>After parting ways with Kent and Uncle Drew, Saden, the second Night Rider who was previously known as Aria, made her way toward the Varyndor Kingdom, where she planned to exact revenge on the one she once thought was her sister.</p>
 <p>It turned out she wasn’t, and in the end, Saden ended up with a dagger through her back. It was the classic backstab one would expect from a jealous friend.</p>
 <p>Melody... She was practically her sister, but due to her jealousy of Aria—now called Saden after becoming a Night Rider—she colluded with Darren, the aloof heir of the Malric noble family.</p>
-<p>Saden just couldn’t understand how it all went downhill, but now she wanted revenge, for she had promised it before becoming a Night Rider.</p>
+<p>Saden just couldn’t understand how it all went downhill, but now she wanted revenge, because she had promised it before becoming a Night Rider.</p>
 <p>Riding through the night, she sped toward the Varyndor Kingdom, knowing from what she had overheard before her supposed death that Darren and Melody would be heading to the Althea Kingdom to attend the annual auction and sell the Ten-Year-Old Gold Essence Mushroom.</p>
 <p>She wouldn’t let that happen.</p>
 <p>Thankfully, in her Night Rider form, she quickly reached the borders of the Varyndor Kingdom and reverted to her human form. But instead of walking with an uncovered face, she donned a mask that obscured her eyes and pulled up a hoodie.</p>

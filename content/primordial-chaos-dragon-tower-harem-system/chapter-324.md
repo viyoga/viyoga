@@ -23,7 +23,7 @@ chapter = 324
 <p>"For the next item," Alina’s voice entered Kent’s ears. He had already scanned the item, and from its name alone, he planned on buying it.</p>
 <p>"This is the Absolute Darkness Crystal. Just like its name suggests, it contains the purest form of darkness. When absorbed, it has a 90% chance of granting one darkness affinity.</p>
 <p>And let me tell you, the darkness element is the rarest kind out there. Those with darkness elements are practically the most dangerous people you can ever meet.</p>
-<p>I know what I am talking about, for I have met one and know what she can do," Alina smiled, using the line the Auction Master had given her quite cutely.</p>
+<p>I know what I am talking about, as I have met one and know what she can do," Alina smiled, using the line the Auction Master had given her quite cutely.</p>
 <p>The lady had a dark affinity.</p>
 <p>In fact, she was one of only seven people in the entire human continent who possessed it. So when she said it was rare, she meant it.</p>
 <p>"The price is set at 10 billion, with a minimum increment of 100 million spirit stones. Let the bidding begin."</p>

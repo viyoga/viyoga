@@ -20,7 +20,7 @@ chapter = 590
 <p>Many called her the Blood Demoness because when she was done with the Huxian army, she was bathed in their blood, causing many to start to fear her.</p>
 <p>The universe still recognizes that battle to this day as one of the bloodiest and most chilling battles in history.</p>
 <p>Legend even spoke of the day the Yama King came from hell just to see if she was indeed real, for the legend speaks of the day hell was filled to the brim due to one person’s carnage.</p>
-<p>They called her the Crimson Reaper, for she uses blood both passively and actively in combat.</p>
+<p>They called her the Crimson Reaper, since she uses blood both passively and actively in combat.</p>
 <p>Years after her battle, she laid down her sword and chose the life of a pacifist, secluding herself in the inner reaches of the Primordial Flower Garden, where the Everlasting Healer resides.</p>
 <p>She chose to live a life of peace since she had completed the mission she had given herself.</p>
 <p>And for millions of years, she did, she remained in seclusion, not touching her sword.</p>
@@ -34,7 +34,7 @@ chapter = 590
 <p>A day later, the true name appeared in his mind.</p>
 <p>"The Mistress of Blood. The Blood Reaper. The Crimson Reaper. The one who harnesses blood. Even the Yama King, the ruler of hell, was impressed by her prowess.</p>
 <p>The one who brought down a race of evil and wiped filth from the world.</p>
-<p>They called her the Blood Queen, for she has the means to harness blood to do her bidding. When she was needed, she didn’t hesitate, and that was why she was rewarded.</p>
+<p>They called her the Blood Queen, because she has the means to harness blood to do her bidding. When she was needed, she didn’t hesitate, and that was why she was rewarded.</p>
 <p>Rise, Sanguis Dominara, the Crimson Reaper, for your destiny awaits."</p>
 <p>The blood exploded, but instead of spraying everywhere, it moved back and entered Velyra’s body or formed around her, creating black and red leather armour.</p>
 <p>On her back, red and black angel wings spread, showing their elegance. Her hair was black with strands of silver, and her skin colour matched her affinity for blood.</p>

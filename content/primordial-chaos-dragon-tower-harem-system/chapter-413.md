@@ -18,7 +18,7 @@ chapter = 413
 <p>"Go ahead."</p>
 <p>"How did you meet my master and make her your woman?" Zaila asked with a blush. She knew her master good enough to know she wouldn’t make the first move.</p>
 <p>This meant this was all Kent.</p>
-<p>"Our meeting was a funny yet romantic one. When you were presumed dead, it broke her. Luckily, she confided in Mara, saying she knew you were still alive, for she never once believed you had died," Kent started, making Zaila smile.</p>
+<p>"Our meeting was a funny yet romantic one. When you were presumed dead, it broke her. Luckily, she confided in Mara, saying she knew you were still alive, since she never once believed you had died," Kent started, making Zaila smile.</p>
 <p>"The two gate masters then became friends and later best friends when Mara confessed her reason for coming to the sect.</p>
 <p>It was for her sister, Nara.</p>
 <p>So, for years, they confided in each other, looking for you two until later, I came into the scene. Naturally, Mara wanted to cripple me, and your master wanted to tie me down and fuck me."</p>

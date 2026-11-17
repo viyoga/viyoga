@@ -46,7 +46,7 @@ chapter = 825
 <p>"Grandmaster swordsman and had already unlocked Profound Sword Aura. Doesn’t that make him comparable to those monsters that mostly come from the High Worlds?"</p>
 <p>Old Sword nodded.</p>
 <p>"I think this time, we have found a gem. And oh, he said he is an alchemist, so maybe you should keep an eye on him; he might have the means to teach your arrogant disciple some manners."</p>
-<p>Lady Liora didn’t say anything, but she would now keep a close eye on Kent, for she could tell there was more to him than met the eye.</p>
+<p>Lady Liora didn’t say anything, but she would now keep a close eye on Kent; after all, she could tell there was more to him than met the eye.</p>
 <p>"Everyone should settle in. Elder Mikko will handle that. But know that in two weeks, there will be a major duel that will happen here in the Outer Section.</p>
 <p>That means, for the next 13 days, you each have one chance to land your strongest attack on the Great Titan’s body, and those who fall within the top 100 will participate in the upcoming competition.</p>
 <p>Now, those of you thinking of using pills to cheat, know that I will personally oversee the selection and competition, so be sure not to test me.</p>

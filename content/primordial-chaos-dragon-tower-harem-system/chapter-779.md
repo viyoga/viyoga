@@ -11,7 +11,7 @@ chapter = 779
 <p>They were delighted to finally have a chance to join the sect, which would continue to help them grow beyond their wildest expectations.</p>
 <p>Essentially, learning even a heavenly grade technique had opened doors for them.</p>
 <p>However, while some were celebrating, others were shedding tears because they couldn’t even learn a single technique.</p>
-<p>That was their loss, for they now have no chance of even taking the sect entrance exams, let alone entering to grow further.</p>
+<p>That was their loss, since they now have no chance of even taking the sect entrance exams, let alone entering to grow further.</p>
 <p>Their one chance to change their lives was now taken away by their inability to learn even a single technique.</p>
 <p>Of course, those who manage to make progress are now smiling, knowing in 7 days, they will be embarking on a new journey, one that will see them grow beyond their imaginations.</p>
 <p>Then again, although they managed to secure a slot to enter the sect, not all would make it, for another obstacle lay ahead of them.</p>

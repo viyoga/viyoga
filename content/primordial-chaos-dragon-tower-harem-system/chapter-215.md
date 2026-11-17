@@ -26,7 +26,7 @@ chapter = 215
 <p>"Now I dare ask, do you know anyone by the name Alina?" Kent asked again, but Turyn didn’t seem to recall who he was talking about.</p>
 <p>"Please let me go. I don’t know who you are talking about," He said, but Kent only extended his finger, and a bolt of lightning bombarded the bastard.</p>
 <p>"You can either keep quiet and recall the faces and names of all the ladies you have defiled and destroyed all for your canal pleasures. People like you don’t deserve to have easy endings.</p>
-<p>So take your time, for you have a lot of those. I will just be here asking every two minutes, and until you manage to give me a good answer, prepare to receive a blast.</p>
+<p>So take your time. After all, you have a lot of those. I will just be here asking every two minutes, and until you manage to give me a good answer, prepare to receive a blast.</p>
 <p>And don’t worry, you won’t die from the lightning. That will be mercy, so take your time, for the more time you waste, the more chances I will have to torture you."</p>
 <p>Kent leaned back on his chair while he observed Turyn, who was groaning with a few burnt skin here and there. Ken wasn’t making things easy on him.</p>
 <p>Two minutes later, another painful groan filled the prison cell. It was two minutes later and he still hadn’t recall who Alina was.</p>

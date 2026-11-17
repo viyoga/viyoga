@@ -63,5 +63,5 @@ chapter = 449
 <p>In all of his existence, his name and face were known only to one person, and that person was his mother.</p>
 <p>Many called him the exterminator, the executioner, the grim reaper.</p>
 <p>Those are just his nicknames.</p>
-<p>His mother called him Dela, for that was the name she gave to him right after she fell to her death.</p>
+<p>His mother called him Dela, as that was the name she gave to him right after she fell to her death.</p>
 <p>However, to the rest of the universe, they called him the Faceless Assassin.</p>

@@ -16,7 +16,7 @@ chapter = 374
 <p>His plan was to become a Sovereign, and once he achieved that, he would invade the land of the elves and get his woman back.</p>
 <p>He was still deluded into thinking he would get his woman back, even though that would never be the case.</p>
 <p>His battle with the elves caused the elven race to declare humans their enemies, and since then, whenever they met on the ancient battlefield of Parting, they would try to kill one another.</p>
-<p>But he never stopped. Over time, the Kingdom Protector became aware of his dark arts, but she did nothing to stop him, for she wasn’t concerned with the petty squabbles of individuals.</p>
+<p>But he never stopped. Over time, the Kingdom Protector became aware of his dark arts, but she did nothing to stop him, since she wasn’t concerned with the petty squabbles of individuals.</p>
 <p>To her, she would only intervene when actions threatened the entire kingdom.</p>
 <p>But she kept her sights on him, and now, watching him get trashed by Kent and Kaizo, she could only sigh.</p>
 <p>Victor swung his staff, summoning a barrage of dark orbs that shot toward the Brute.</p>
@@ -44,7 +44,7 @@ chapter = 374
 <p>"Overdrive!" His energy surged, and his speed increased, moving at a pace that caught the sect master completely off guard.</p>
 <p>"Behind you," Kaizo said, forcing the sect master to look back. But he regretted that action, as the moment he turned, a thick spear made of lightning stabbed into his chest.</p>
 <p>"Never turn your back on your opponent," Kaizo said with a smile that was heartbreaking for the sect master, who seethed and gritted his teeth, drawing blood.</p>
-<p>"I know you probably still don’t realize what’s happening. But don’t worry, dying without knowing how it happened is also a good thing, for it makes things simple for you in the underworld."</p>
+<p>"I know you probably still don’t realize what’s happening. But don’t worry, dying without knowing how it happened is also a good thing. After all, it makes things simple for you in the underworld."</p>
 <p>Kaizo landed another attack on his body, sending him flying down.</p>
 <p>"Your move, Master," The brute said, smirking. Kent vanished, and the next second, a painful cry filled the peak of the broken mountain.</p>
 <p>A dark shard stabbed into the chest of the sect master. But it didn’t stop there—two more stabbed through his thighs, making Kent smile.</p>

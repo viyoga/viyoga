@@ -31,7 +31,7 @@ chapter = 1324
 <p>"Damn, I can’t wait to see it." Gaap appeared inside the dome, still completely evading the senses of the bony figure.</p>
 <p>Kent stood up and dismissed the domain, leaving five shields circling around him.</p>
 <p>"I know you can hear me, so listen carefully. I wanted to fight you on fair grounds; however, since you have made it impossible for me to do that, I have no choice but to drown you and your army."</p>
-<p>Kent paused and let out a chuckle. "Be happy, though, for you are the first person I will be using the technique against. And don’t worry, you are guaranteed to die, so rest in peace, I guess."</p>
+<p>Kent paused and let out a chuckle. "Be happy, though, since you are the first person I will be using the technique against. And don’t worry, you are guaranteed to die, so rest in peace, I guess."</p>
 <p>Kent took a deep breath, and he tapped into the Underworld Soul River technique. Inside his soul sea, the large dark door shuddered and vanished, appearing on the outside.</p>
 <p>Just when it appeared, the entire cemetery shuddered, causing the formation to shatter like glass.</p>
 <p>Kent even took several steps back, feeling his soul tremble as he beheld this terrifying gate. However, he had no time to waste since the longer it stayed outside, the more soul essence it consumed.</p>

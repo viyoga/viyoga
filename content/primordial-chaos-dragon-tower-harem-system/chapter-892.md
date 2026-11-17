@@ -8,7 +8,7 @@ chapter = 892
 <p>If there is one thing every dedicated Body cultivator chases after and, to some degree, lusts after, then it is Nirvana Body.</p>
 <p>A body forged from the flames of Nirvana is one that no Body cultivator would reject. Legends even say that bodies forged from the flames of Nirvana can live for hundreds of thousands of years, even if the spirit is dead.</p>
 <p>Naturally, this isn’t much if one puts the natural lifespan from cultivation into consideration.</p>
-<p>Hundreds of thousands of years, to some cultivators, isn’t much, for there are immortals who have been alive for a million years.</p>
+<p>Hundreds of thousands of years, to some cultivators, isn’t much, as there are immortals who have been alive for a million years.</p>
 <p>However, this unique ability of the Nirvana Body is one that only true cultivators understand its value.</p>
 <p>Those who truly chase after the Daos (Laws) know that the laws are more visible in the underworld. Naturally, to get to the underworld, one must die.</p>
 <p>The underworld is the realm of the dead.</p>

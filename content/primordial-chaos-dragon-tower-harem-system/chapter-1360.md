@@ -27,7 +27,7 @@ chapter = 1360
 <p>"Oh hell no. I am not forgiving the Forsaken Race to save myself. Even if I have to be in the deepest and most harrowing kind of pain, several times more painful than in the past, I would never forgive them, so don’t dare ask that of me, Vex."</p>
 <p>His hatred for the Forsaken Race runs very deep. He can afford to forgive even the Void Beast Race, but when it comes to the Forsaken Race, he hates them to the point that he would forfeit his life rather than forgive them.</p>
 <p>Vexthra took his hand and pressed it against her chest, "I am not asking you to forgive the Forsaken Race, my love. I would never ask such a thing of you. I know what they took from you, so I can’t ask that of you.</p>
-<p>However, to save yourself, you must forgive a Forsaken being, for she holds the key to saving you and making sure Dia never becomes the same evil she was in all 13 lives she has lived."</p>
+<p>However, to save yourself, you must forgive a Forsaken being. After all, she holds the key to saving you and making sure Dia never becomes the same evil she was in all 13 lives she has lived."</p>
 <p>Kent took a deep breath, his expression softening a bit, "Sorry I lashed out at you. I shouldn’t have done that. I am sorry."</p>
 <p>He leaned in and kissed her forehead. He was a bit harsh to her just now when all she was trying to do was make sure the pain he felt in all 13 lives never happened this time around.</p>
 <p>"No need to apologise, Kent. I am sorry for making you feel that. It is just that I can’t afford to see you in pain, so even if you are going to hate me, I would still ask that, please, listen to me."</p>

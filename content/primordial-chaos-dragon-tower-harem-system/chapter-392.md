@@ -32,7 +32,7 @@ chapter = 392
 <p>Kent had entered his first enlightenment, and from the energy surrounding him, one could tell something profound was happening to him.</p>
 <p>⟪Gaining enlightenment right after awakening his Sword Gaze is a recipe for disaster,⟫ Akira giggled.</p>
 <p>⟪Dori, what are his chances of learning at least a Sword Gaze ability?⟫ Gaia asked. Dori was the best person to answer, considering this was her field.</p>
-<p>⟪The chances of the master learning a Sword Gaze ability is 51%. The reason he might fail 49% of the time is because he is inexperienced. He is still too green, for he has never really faced much hardship for a while now.</p>
+<p>⟪The chances of the master learning a Sword Gaze ability is 51%. The reason he might fail 49% of the time is because he is inexperienced. He is still too green, as he has never really faced much hardship for a while now.</p>
 <p>However, the 51% comes into play, considering he has just recalled a memory of his time with the Sword Dao.</p>
 <p>Though it’s just a memory, we all know the master’s memories aren’t ordinary, so we can only hope that comes into play.</p>
 <p>But he has a higher chance of learning a Sword Gaze ability—and a powerful one—if he indeed was taken to such a place.⟫</p>

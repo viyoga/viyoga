@@ -30,7 +30,7 @@ chapter = 576
 <p>Legend spoke of the ’Night of Endless Blades.’</p>
 <p>That night, the Joker single-handedly assassinated 1,022 assassin guild leaders, and the collateral damage she caused numbered in the tens of thousands.</p>
 <p>The legend speaks of that endless night when her laughter filled every corner, leaving bodies in her wake.</p>
-<p>That night, she destroyed her entire guild, the Silent Veil, for she found out they were part of the reason she had lost everyone.</p>
+<p>That night, she destroyed her entire guild, the Silent Veil, since she found out they were part of the reason she had lost everyone.</p>
 <p>Despite her tribe, the Veilshadow, having powerful warriors, they all died like dogs. This was the Silent Veil, known for killing without making even a sound.</p>
 <p>They sneakily poisoned the warriors of her tribe, allowing this great massacre to happen.</p>
 <p>So she slaughtered every last one of them, laughing like the maniac she was.</p>

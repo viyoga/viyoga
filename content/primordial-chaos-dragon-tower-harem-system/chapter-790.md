@@ -10,7 +10,7 @@ chapter = 790
 <p>It looks grand and graceful, housing some of the finest and most beautiful flowers in the universe.</p>
 <p>"Come on, Meric. You are older than I. So, there is no need to run here with your weak bones." A handsome man, also with yellow hair, sitting on a throne, said, a smile gracing his lips.</p>
 <p>Meric smiled, but he held a serious expression, unlike the Emperor, who was in the mood to have some fun.</p>
-<p>Of course, he is capable of having some fun, for he is Emperor Yuval, the Emperor of all races in Hular.</p>
+<p>Of course, he is capable of having some fun. After all, he is Emperor Yuval, the Emperor of all races in Hular.</p>
 <p>He shook his head and smiled, knowing this particular Elder in his council was particularly serious about his job.</p>
 <p>"Go ahead, Meric. What happened?"</p>
 <p>"My Emperor, the Unbreakable City has been destroyed."</p>

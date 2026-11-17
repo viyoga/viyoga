@@ -9,7 +9,7 @@ chapter = 591
 <p>However, the mother of life magicians, the one they called the Everlasting Healer, didn’t start out as this benevolent entity worth looking up to.</p>
 <p>She started out with the name The Contractor.</p>
 <p>Legends speak of the greatest killer during the Primordial Era. They talk about the one who can kill anyone and anything, regardless of who they are or where they are.</p>
-<p>They called her the Jackal, for she always finds a way to kill.</p>
+<p>They called her the Jackal. After all, she always finds a way to kill.</p>
 <p>However, to understand where she came from, we would have to know about the first human kingdom to rise during the Primordial Era and why they were the first to fall.</p>
 <p>The legend started when the first human awakened a rare bloodline called the Dark Lotus, which is said to have come from the law of death itself.</p>
 <p>This human rose through the ranks and soon stood on equal footing with the dragons, Beastkin, Elves, Dwarfs, and other races, who, until the rise of this human, ruled over the humans and made them their slaves for thousands of years.</p>

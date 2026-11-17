@@ -23,7 +23,7 @@ chapter = 420
 <p>So we have two years to save them."</p>
 <p>"Then we must make it count. The last thing I want is some idiots destroying a world full of defenseless people," Ingrid, the warrior princess, said.</p>
 <p>The war princess, Neomi, nodded. Their determination was that of warriors who sought to protect the weak.</p>
-<p>"We will keep them safe, for that is what we are here for."</p>
+<p>"We will keep them safe, because that is what we are here for."</p>
 <p>The ladies nodded at his words. Kent turned and looked at Nara.</p>
 <p>"We will get that Bat soon enough. Just wait a few months," Kent said, and Nara nodded.</p>
 <p>It was during his battle with Evil Bat that she revealed her sword will, which caught the sect masters’ eye.</p>

@@ -17,7 +17,7 @@ chapter = 924
 <p>The first was, of course, taking a third-person seat and watching his memories unfold. He had experienced that with all three of his past lives.</p>
 <p>The second, of course, was meeting his past selves. That one too happened when he was reviewing Chaos and Faceless’s memories.</p>
 <p>Naturally, he knew this method would only happen once, unless, of course, he were to come across something that once belonged to him with his divine sense imbued in it.</p>
-<p>The third was the diaries, which so far were Kent’s favourite, for he knew that after every diary, he would gain enlightenment. He had already gained four enlightenments for just his Chaos Dragon form.</p>
+<p>The third was the diaries, which so far were Kent’s favourite; after all, he knew that after every diary, he would gain enlightenment. He had already gained four enlightenments for just his Chaos Dragon form.</p>
 <p>However, he never expected the fourth method to be this drastic. This time, he was thrown into Chaos’s life, causing him to relive his memories.</p>
 <p>Unlike the first method, this one made him feel whatever Chaos felt back then. So, while he couldn’t control how things unfolded, he was forced to relive the memories, and that alone was more than a person could bear, especially when they were not prepared.</p>
 <p>Kent felt the love Elina had for him, and while the current him would have reciprocated that love, Chaos had been clueless until it was too late.</p>

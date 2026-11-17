@@ -18,7 +18,7 @@ chapter = 358
 <p>The ability to scheme against your opponent and win for the essence of combat or battle is to win and to win, you must use whatever scheme you can come up with to kill your opponent.</p>
 <p>A good schemer, one who is skilled with the sword, will always win."</p>
 <p>Kent knew he couldn’t match the clone’s raw power or speed head-on. But he had one advantage: creativity.</p>
-<p>Using his points now isn’t ideal, for he is literally training to go against the odds. Using the points would defeat the purpose of this combat.</p>
+<p>Using his points now isn’t ideal; after all, he is literally training to go against the odds. Using the points would defeat the purpose of this combat.</p>
 <p>If he manages to kill the clone with his current mastery and experience, then when he adds the points to his stats, he can take what he has achieved to the next level.</p>
 <p>The clone was a perfect replica of his skills, but it fought predictably, relying on sheer mastery rather than adaptability. Kent, on the other hand, could think outside the box.</p>
 <p>The clone may be faster, but if he could create the perfect situation where it wouldn’t have that predictability to counter, he could kill it.</p>
@@ -42,7 +42,7 @@ chapter = 358
 <p>Suddenly, the clone lunged forward, its sword a blur of green light. Kent sidestepped, parrying the strike with a precise flick of his blade.</p>
 <p>The impact sent a jolt through his arms, but he held his ground. He countered with a quick slash aimed at the clone’s side, but the clone effortlessly deflected it, its movements fluid and efficient.</p>
 <p>Kent retreated a few steps, creating distance.</p>
-<p>He needed to buy time to formulate a plan. His own split body was now moving into position, for he knew he could not win without sacrificing a body. So he was doing all the planning...</p>
+<p>He needed to buy time to formulate a plan. His own split body was now moving into position, because he knew he could not win without sacrificing a body. So he was doing all the planning...</p>
 <p>The clone didn’t give him much room, though.</p>
 <p>It pressed the attack, unleashing a flurry of sword arcs that forced Kent to dodge and block in rapid succession. Each strike was precise, each movement calculated to overwhelm him.</p>
 <p>But Kent wasn’t just defending. He was observing. Slowly, he started to notice things...</p>

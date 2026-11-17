@@ -58,7 +58,7 @@ chapter = 366
 <p>But that was what he aimed for. Kent appeared in front of the lady, whose body was being plague with lightning.</p>
 <p>However, right as Kent appeared before her, a hand grabbed him from behind.</p>
 <p>The moment he turned, he came face to face with another copy of Neomi—but this copy had six arms. The first four arms grabbed him while the other two raised spears aimed at his neck.</p>
-<p>Kent smirked, for he knew the winner had been determined.</p>
+<p>Kent smirked, because he knew the winner had been determined.</p>
 <p>"We’ll fight again later, dear," he said.</p>
 <p>The two spears stabbed at him, but just as they were an inch from his neck, his body vanished.</p>
 <p>Then, from behind Neomi, a split body appeared. "This is going to hurt."</p>

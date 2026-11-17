@@ -9,7 +9,7 @@ chapter = 1900
 <p>Long before she became the legendary Spear Maid, Rakshasa, she was known as Shara, the Mother of Killers. She was among the thousands who entered the Trial of Death with nothing but a pair of short swords in hand.</p>
 <p>After 700-plus kills, she emerged as the lone survivor, her killing intent forcing even Celestials to take a step back.</p>
 <p>Many have won the Trial of Death, but none before or after her came out with that much aura. It was said that even Death feared her, for in her presence, unless she willed it, Death could not claim the souls she had killed.</p>
-<p>Kent knew it had to be her, for he knew that unless she willed it, she could not die. Death would not even accept her because Death feared her, and Kent knew this because inside his soul, he had a literal embodiment of Death who was wary of Neomi.</p>
+<p>Kent knew it had to be her; after all, he knew that unless she willed it, she could not die. Death would not even accept her because Death feared her, and Kent knew this because inside his soul, he had a literal embodiment of Death who was wary of Neomi.</p>
 <p>This gave him the confidence to select Neomi, since she would be well-suited to handle what he had planned.</p>
 <p>Kent patted her back and said, "No need to cry, Neomi. You are qualified to represent the universe in this challenge, so lift your head and accept your mission like the warrior you are."</p>
 <p>Neomi lived during the Flame Era, when the Nine Underworld Flame Blacksmith reigned supreme. While they’d never met, Fjorge (Kent’s Incarnation as the Nine Underworld Flame Blacksmith) had heard a lot about the legendary Rakshasa back then.</p>
@@ -18,8 +18,8 @@ chapter = 1900
 <p>"Do you accept your mission?"</p>
 <p>Neomi wiped her eyes and went down on one knee, crossing her right hand over her chest. "I accept, my lord."</p>
 <p>Right now, everyone could sense an unfamiliar yet familiar feeling coming from Neomi. She wasn’t the Neomi they knew, for the aura coming from her was that of a warrior who knew nothing but bloodshed and death.</p>
-<p>Eliza, Kaizo, Meiko and Ruby smiled, for they could relate to that feeling. They all loved nothing more than battles, Kaizo and Meiko especially.</p>
-<p>"Then rise, for you will be representing the Infinity Universe in what awaits us." Neomi nodded and rose to her feet. She then smiled and hugged Kent...</p>
+<p>Eliza, Kaizo, Meiko and Ruby smiled, because they could relate to that feeling. They all loved nothing more than battles, Kaizo and Meiko especially.</p>
+<p>"Then rise. After all, you will be representing the Infinity Universe in what awaits us." Neomi nodded and rose to her feet. She then smiled and hugged Kent...</p>
 <p>While she may be Rakshasa or Shara, she was also Neomi, the wife of the legendary Primordial Chaos Dragon.</p>
 <p>After hugging him, she turned to her sisters, who looked both happy and worried. They trusted her, but it was a death match, and they knew it was a trap.</p>
 <p>While she was capable, at the moment, she was only a demigod, and her opponents would be Pseudo-Primordials and Primordials.</p>

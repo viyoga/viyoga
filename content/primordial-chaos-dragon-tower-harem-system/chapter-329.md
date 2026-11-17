@@ -39,7 +39,7 @@ chapter = 329
 <p>Meanwhile, a Quest message appeared before Kent, but he brushed it aside for the moment it was revealed that the voice was from an evil practitioner; something in him snapped.</p>
 <p>"Tsk, to think a mere nobody portraying as a Root Soverign can be arrogant in front of me. When have your wings grown to that level Bat?" Kent asked in a voice filled with disdain.</p>
 <p>"Gasp"</p>
-<p>This was the reaction that echoed in the auction house. Even the evil bat gasped, for he never expected someone like Kent to make such a comment.</p>
+<p>This was the reaction that echoed in the auction house. Even the evil bat gasped, as he never expected someone like Kent to make such a comment.</p>
 <p>"You came look for trouble with me so what, you can fluent your stolen wealth...Hahaha. I don’t blame you. It’s the fault of the seniors in the kingdoms that allowed you to grow to this stage.</p>
 <p>But I will make you a promise today. You will die whether you come after me or not. And I will be taking the body of the Lava wolf with me.</p>
 <p>So please, do your worst, and please, be sure to try your best for your ending is neigh."</p>
@@ -47,7 +47,7 @@ chapter = 329
 <p>The bat came to intimidate them, and he succeeded, yet a mere brat who hadn’t even reached the Root Great Sage stage yet just shut him up.</p>
 <p>That is just bold.</p>
 <p>But Kent wasn’t done.</p>
-<p>"I know some of you seniors were planning to go after the one who will end up buying the Lava wolf body. I will be buying it, and so I ask the seniors not to come after me, for I have an offer none of you can reject."</p>
+<p>"I know some of you seniors were planning to go after the one who will end up buying the Lava wolf body. I will be buying it, and so I ask the seniors not to come after me. After all, I have an offer none of you can reject."</p>
 <p>Kent turned toward VIP room 1.</p>
 <p>"Please Kingdom Protector, I know you don’t deal with minimal things like this, but I want to leave something in your care," Kent spoke, showing he knew the kingdom protector who appeared the second day was still around.</p>
 <p>Unlike most, Ingrid was able to see everyone, and she was the one who told him the kingdom protector was around and in VIP room 1</p>

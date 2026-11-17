@@ -46,7 +46,7 @@ chapter = 959
 <p>"I think it is time you all learn something about us gods." They all opened their ears and were ready to listen.</p>
 <p>"The reason why I said attacking their church is a bad idea is that doing so can be considered as directly attacking their patron god.</p>
 <p>You see, the church is something blessed by their god since he receives their sacrifice. So if we were to attack that place, he has every right to intervene.</p>
-<p>Of course, he can’t come down himself, but he can bless any of them, bestowing godly powers on them. We gods hold our worshippers dear, for they are our source of strength.</p>
+<p>Of course, he can’t come down himself, but he can bless any of them, bestowing godly powers on them. We gods hold our worshippers dear, since they are our source of strength.</p>
 <p>Of course, not all gods require the power of faith to grow, but this particular Demon God requires one, and I know with certainty he would use it against us."</p>
 <p>"Can you stop him? I mean, you once slapped him, I am sure you can do that again," Anna asked, having complete trust in her big sister.</p>
 <p>Vexthra pinched her cheek and smiled. "I am afraid I can’t stop him unless he sends down an avatar or he descends himself.</p>
@@ -55,7 +55,7 @@ chapter = 959
 <p>Of course, if Kent were to be here, I would have been able to bestow a sliver of my power on him, but even that would cause more damage to him than good."</p>
 <p>"Then it seems we are at a loss here," Elyndra, the strongest Undead in Kent’s legion until Sylara formed the Blood Hunger seal, said, shaking her head.</p>
 <p>"Not entirely. While it is true that attacking them in their church is a suicide move, attacking them outside the church is possible; we just have to lure them out."</p>
-<p>Vexthra, however, smiled at her own words. "Though I am afraid that wouldn’t be possible, for I am sure their god has already informed them of what happened and even told them what to do."</p>
+<p>Vexthra, however, smiled at her own words. "Though I am afraid that wouldn’t be possible, as I am sure their god has already informed them of what happened and even told them what to do."</p>
 <p>"Well, that is just great," Zareth shook his head.</p>
 <p>"All this about gods and faith is making my head bleed." Kaizo gave up and sat down. This caused some of his friends to sigh and also sit down.</p>
 <p>However, Vexthra kept a smile on her face as she looked at them.</p>

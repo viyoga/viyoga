@@ -12,7 +12,7 @@ chapter = 1880
 <p>Safe to say, as they were being surrounded, what he had envisioned came to pass.</p>
 <p>In fact, it went beyond what he had envisioned, for the moment they were surrounded, Vexthra and her sisters also appeared inside the Legion Tower, each coming to welcome them.</p>
 <p>Of course, sensing the intense killing intent emanating from them, they all felt like there was a lot to unpack.</p>
-<p>Naturally, that worked in Kaizo’s favour, for he planned to exaggerate most of the things they had experienced in the Undead Realm just to make everyone jealous.</p>
+<p>Naturally, that worked in Kaizo’s favour, since he planned to exaggerate most of the things they had experienced in the Undead Realm just to make everyone jealous.</p>
 <p>But as they say, he wasn’t prepared for what happened next...</p>
 <p>"Kaizo, buddy, how I missed you... especially during the Dark War," Unity said with an evil grin, instantly wiping the smug expression off Kaizo’s face.</p>
 <p>He even stumbled, his foot slipping slightly as the words Unity had practiced for weeks finally came out...</p>
@@ -34,7 +34,7 @@ chapter = 1880
 <p>"Okay, that is enough." Pandora stepped in just when Kaizo was nearly drawn to tears. Zaila and Adina deactivated their powers, allowing him a chance to breathe and gather his thoughts.</p>
 <p>Unity smiled and teleported away, knowing Kaizo would challenge her to a duel once he realized she had used underhanded means to get under his skin.</p>
 <p>Luckily for her, just before Kaizo could straighten his thoughts, a portal opened, and Kent, alongside Mjolnir and the Second Flame Matriarch, walked out.</p>
-<p>Everyone turned to face them, for they sensed two dangerous individuals had arrived inside the tower.</p>
+<p>Everyone turned to face them, as they sensed two dangerous individuals had arrived inside the tower.</p>
 <p>Luckily, before any of them could go on high alert and enter battle mode, they noticed that the two individuals who had come were with the master of the tower.</p>
 <p>Kent smiled, seeing that everyone he wanted to see had gathered in one place...</p>
 <p>"Well, something seems to be lively here," he said, watching as everyone stared at him and the two behind him.</p>

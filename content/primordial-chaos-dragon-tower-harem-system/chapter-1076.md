@@ -5,7 +5,7 @@ weight = 1076
 chapter = 1076
 +++
 
-<p>This time, however, he was the one receiving the end of this aura, and while Kent had no idea how this poor angel was feeling, he started to grow excited, for he had finally awakened the Chaos Dragon Aura.</p>
+<p>This time, however, he was the one receiving the end of this aura, and while Kent had no idea how this poor angel was feeling, he started to grow excited. After all, he had finally awakened the Chaos Dragon Aura.</p>
 <p>But that wasn’t all.</p>
 <p>Awakening the aura gave Kent his first Dragon Technique. The ones he had been using were all innate abilities and a few borrowed ones from Chaos’s memories.</p>
 <p>After making sure his aura had slipped into Zevrael’s bones, he made his move.</p>

@@ -52,9 +52,9 @@ chapter = 347
 <p>[Master of the Lost Knights]</p>
 <p>→ During the last war of Sanguine, the 14 guardian Knights of Sabatan fought as the first and last stand against the Creatures of the Night.</p>
 <p>→ It was said that during the final phase of the siege, the 14 knights laid down their lives to protect the lost children of the mother.</p>
-<p>→ Because of their sacrifice, when the mother received her children, she named them the Guardians of the Lost, for she knew once they were lost, they would be found again.</p>
-<p>→ You now have the ability to find and awaken these brave knights, for they must exact their revenge when the end comes knocking.</p>
-<p>→ Whenever a Lost Knight is nearby, you will know and awaken them, for that is your duty as the Master of the Lost Knights.</p>
+<p>→ Because of their sacrifice, when the mother received her children, she named them the Guardians of the Lost; after all, she knew once they were lost, they would be found again.</p>
+<p>→ You now have the ability to find and awaken these brave knights. After all, they must exact their revenge when the end comes knocking.</p>
+<p>→ Whenever a Lost Knight is nearby, you will know and awaken them, since that is your duty as the Master of the Lost Knights.</p>
 <p>Kent remained frozen as he read and reread the messages in front of him. It just didn’t make sense, as this was something he never expected.</p>
 <p>All he wanted was to give a cool name of one of his favorite game characters to the metal knight, but instead, he ended up awakening a lost knight.</p>
 <p>⟪Master is very lucky. The Lost Knights of Sabatan, huh? It’s been a long time since I heard of the bravest knights to have ever lived.⟫</p>

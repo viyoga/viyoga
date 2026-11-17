@@ -55,7 +55,7 @@ chapter = 905
 <p>The stabbing strike came to a halt, and then the lady felt her body start falling. "What is this?"</p>
 <p>She panicked, unsure why she was falling, yet she wasn’t hitting the ground. Even worse, she tried to use the void, but she felt her surroundings locked, preventing her from opening it.</p>
 <p>"I need her head!" Kaizo, who still hadn’t received the head, shouted.</p>
-<p>However, no one minded him, for they knew assassinating a Peak Spirit Emperor wasn’t something they could do...</p>
+<p>However, no one minded him; after all, they knew assassinating a Peak Spirit Emperor wasn’t something they could do...</p>
 <p>Well, assassinating a Peak Spirit Emperor wasn’t something that could be achieved easily. However, among Kent’s undead, there was one who had the means to kill the Peak Spirit Emperor’s lady.</p>
 <p>Naturally, she was the first to move, even before Kaizo gave the command.</p>
 <p>So when the third command came from Kaizo, Velmora, who was hidden inside the Forsaken lady’s shadow, emerged, and with one swift swing of her deadly scythe, the Spirit Emperor lady, someone said to be above them all, lost her head, shocking everyone.</p>

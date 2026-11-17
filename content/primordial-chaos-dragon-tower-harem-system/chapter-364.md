@@ -53,7 +53,7 @@ chapter = 364
 <p>The moment she achieved that, the tattoo on her body came to life, and a dark hound—more majestic than terrifying, as a hound should be—appeared.</p>
 <p>It was imposing, and from its presence, they all recognized its rank, which shocked them.</p>
 <p>The hound was at the Root Transcendent stage, while Ingrid, just like Selene, became a Root Transcendent warrior after the awakening.</p>
-<p>This made Kent smile, for he knew he had succeeded in being the most amazing husband in the universe.</p>
+<p>This made Kent smile. After all, he knew he had succeeded in being the most amazing husband in the universe.</p>
 <p>Even Lilian moved straight to the peak of the Root Great Sage stage. Kent could only smile at the cheat of a tower he managed to inherit.</p>
 <p>The ladies could save the two women currently being held against their will even if he chose not to be part of it.</p>
 <p>But there can never be too much of something, for since he has the means, he can only use it to help his ladies, who are now becoming some of the strongest beings in the world.</p>

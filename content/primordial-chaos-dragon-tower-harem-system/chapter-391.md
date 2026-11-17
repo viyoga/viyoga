@@ -42,7 +42,7 @@ chapter = 391
 <p>Go back and resume your journey. You are already on the path, but whether you can walk it, as I said, will depend on the three things."</p>
 <p>"Who are you?" Jest asked. Just now, when the entity spoke, it was as if his eyes had been opened, and he could finally see.</p>
 <p>In fact, his eyes had been opened, and he could see the strings of the Sword Dao, one of the mysteries of the universe that, to this day, hasn’t been fully understood.</p>
-<p>"I don’t have a name; I only have a symbol. I don’t come from anywhere, for I am everywhere. I aspire to be known, followed and chased after.</p>
+<p>"I don’t have a name; I only have a symbol. I don’t come from anywhere; after all, I am everywhere. I aspire to be known, followed and chased after.</p>
 <p>I am the Dao of the Sword, the path you seek to walk. Remember your determination to walk, your intent toward what you are walking towards, and your will to never stop walking.</p>
 <p>These are the only things you need.</p>
 <p>Go back, and may fortune smile on you, Slave. We will meet again someday, and when that day comes, I hope you will finally figure out what it is you are truly chasing after."</p>

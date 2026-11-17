@@ -16,7 +16,7 @@ chapter = 287
 <p>Kent was seated, surrounded by ladies as they sipped their wine, waiting for the auction to begin. It didn’t take long for the atmosphere to be set.</p>
 <p>The auction hall fell silent as the lights dimmed, focusing on the stage.</p>
 <p>A tall, elegant woman with sharp features, heavy on the butt and a confident stride walked to the centre. She was Alina, the auctioneere. Her presence commanded attention as she moved toward the main stage.</p>
-<p>This was her moment, for she had waited for this for a very long time. She had wanted to host an auction of this magnitude for years.</p>
+<p>This was her moment, because she had waited for this for a very long time. She had wanted to host an auction of this magnitude for years.</p>
 <p>Finally, it was thanks to Kent that she managed to climb that stage.</p>
 <p>The people there couldn’t see it, but Kent could tell she was very happy inside.</p>
 <p>Thanks to the support from her sisters and a goddess, she had grown confident over the past few weeks she had spent with them inside the tower.</p>

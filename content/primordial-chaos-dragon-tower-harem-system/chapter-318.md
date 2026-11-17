@@ -15,7 +15,7 @@ chapter = 318
 <p>They had asked Alina what would be sold, but she said she knew nothing, and even if she did, she wouldn’t say anything.</p>
 <p>She wanted them to experience the full auction experience by getting excited when an item was revealed. If they knew in advance, they wouldn’t enjoy the auction.</p>
 <p>Of course, a few minutes ago, she told them the items would cause many bidding wars that might escalate outside the auction house. So they were all wondering just what was being sold on the last day.</p>
-<p>Then again, they knew if they saw something they wanted, they wouldn’t lose the bid, for they knew their man was super rich.</p>
+<p>Then again, they knew if they saw something they wanted, they wouldn’t lose the bid, as they knew their man was super rich.</p>
 <p>"You ladies don’t have to wonder about anything. Just get ready to bid when you see an item you want," Kent said to them, making them smile and look at each other.</p>
 <p>"But how are we going to get back to the sect?" Unity asked. "I mean, Kent has already pissed off a lot of people. These people wouldn’t just let him go after the auction, so how are we going to get back to the sect?"</p>
 <p>The ladies, who were all wondering the same thing, looked at Kent for a solution.</p>
@@ -33,7 +33,7 @@ chapter = 318
 <p>There, he came face to face with the three Metal Saints: Rocky, Adolf, and Andrew, who, thanks to Kent, had let go of their grudges and chosen to team up against him.</p>
 <p>"Brat, have your fun today, for after the auction, you will not live long to enjoy it," Metal Saint Andrew threatened, not minding the many people listening.</p>
 <p>"Oooh, I am so scared. Look, there are goosebumps on my skin," Kent grinned, watching the expressions of the three blacksmiths darken.</p>
-<p>"Let me make something clear," Kent turned and looked at everyone around. "I won the bids, yet they are trying to steal from me. Personally, I want them to come after me, for that will give me an excuse to kill them.</p>
+<p>"Let me make something clear," Kent turned and looked at everyone around. "I won the bids, yet they are trying to steal from me. Personally, I want them to come after me; after all, that will give me an excuse to kill them.</p>
 <p>Now, if you wake up in the coming days and hear that one of these three—or perhaps all three of them—are dead, none of you should try to seek revenge for them.</p>
 <p>Trust me, you wouldn’t want your families to pay for your foolishness.</p>
 <p>So I’ll say this once: If you three come after me, I promise you, I will kill you, and not even your backers will be able to do anything about it."</p>
@@ -52,5 +52,5 @@ chapter = 318
 <p>None of them survived. Our condolences go out to them and their family."</p>
 <p>Alina spoke like the most sympathetic person alive, though in truth, she was more than happy to hear that such scum of a family had been massacred.</p>
 <p>At that very moment, the rest of their family, involved in the slave business, were being hunted and killed as she spoke.</p>
-<p>Saden and her three teammates were doing a thorough house cleaning, for she wouldn’t be happy until they were all dead.</p>
+<p>Saden and her three teammates were doing a thorough house cleaning, because she wouldn’t be happy until they were all dead.</p>
 <p>"Now, before we begin, the Auction Master would like to say a few words," Alina said as the veiled beauty who had appeared the previous day walked onto the stage.</p>

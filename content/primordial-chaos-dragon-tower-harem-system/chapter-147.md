@@ -54,7 +54,7 @@ chapter = 147
 <p>-- Akira’s unique skill sets make her the most important summon one could ever request.</p>
 <p>-- I know you think Akira is just a troublemaker. Well, think again, master; I am a one-in-a-million summon.</p>
 <p>-- If you choose not to take me seriously, that is your problem. Of course, I will ask you not to assume I am useless simply because I can’t fight.</p>
-<p>-- Think again, for I stand at the peak of the Soulweavers race, and I can tell you this: I am second to none when it comes to weaving.</p>
+<p>-- Think again, because I stand at the peak of the Soulweavers race, and I can tell you this: I am second to none when it comes to weaving.</p>
 <p>______________</p>
 <p>Kent blinked a few times before returning to the rest of the messages. He could tell that this little girl had somehow managed to make her profile convey exactly what she wanted to say.</p>
 <p>Kent didn’t know how she pulled it off, but he admired that ability.</p>

@@ -7,7 +7,7 @@ chapter = 748
 
 <p>The drake continued to stare at Kent for three whole minutes. However, while that is a long time to maintain his pressure, the half-elves soon began adapting to it. Kent noted this and could only smile inwardly.</p>
 <p>The drake fought all kinds of internal battles, figuring out whether or not to attack. However, after a few more minutes, he withdrew his aura.</p>
-<p>"You can leave. But be sure you don’t come back again, for I won’t be merciful next time." With that, the drake turned to leave.</p>
+<p>"You can leave. But be sure you don’t come back again; after all, I won’t be merciful next time." With that, the drake turned to leave.</p>
 <p>However, Kent didn’t allow him.</p>
 <p>"You are looking to become a dragon, right? What if I can help you become one within a week?" The drake halted in his tracks and turned sharply to Kent, looking with eyes filled with fury.</p>
 <p>"I have changed my mind. You all can die." The drake started charging an attack.</p>
@@ -24,7 +24,7 @@ chapter = 748
 <p>The drake was present when the Spirit Grapefruit was auctioned many years ago. He caught wind of it and knew that something of such value was something he could use. However, back then, he couldn’t do much because he wasn’t privileged like most were.</p>
 <p>It was that frustration that drove him to the Flame Valley, and luckily for him, he managed to locate the flower that he had been guarding for the past 300 years.</p>
 <p>Many came after it but met a rather agonizing end.</p>
-<p>But today, Uncle Drake wasn’t in the right mindset to attack, for he was offered something he wanted, something he had been looking for ever since he sensed a trace of dragon blood in his body.</p>
+<p>But today, Uncle Drake wasn’t in the right mindset to attack, since he was offered something he wanted, something he had been looking for ever since he sensed a trace of dragon blood in his body.</p>
 <p>This also meant that if he wanted to take that step, he had to trust Kent. But the question now was whether Kent was trustworthy.</p>
 <p>Thankfully, Kent had the means to help him, for the tower had already made him aware of what had to be done.</p>
 <p>"Look, I would be lying if I said my coming here is noble. I came here for the flower you are guarding with the intent to take it, regardless of who is protecting it. This means I came here to kill you.</p>

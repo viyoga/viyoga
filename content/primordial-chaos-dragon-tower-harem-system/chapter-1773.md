@@ -48,7 +48,7 @@ chapter = 1773
 <p>The entire universe witnessed what he was capable of, and Fiannarel finally saw the kind of person her little brother truly was.</p>
 <p>Seeing him carry the entire universe on his back, she made a vow to ensure he succeeds and has a happy ending. That was why, during the war, when the danger reached a certain point, she decided to go all out with no intention of failing.</p>
 <p>In the end, instead of death, she survived and found herself transported to a strange world.</p>
-<p>For the first few million years, she blamed herself, feeling like a deserter. After all, she had promised her brother that she would stand by his side until the very end. If she had died, she would not have blamed herself, for she had given it her all.</p>
+<p>For the first few million years, she blamed herself, feeling like a deserter. After all, she had promised her brother that she would stand by his side until the very end. If she had died, she would not have blamed herself; after all, she had given it her all.</p>
 <p>However, she survived, and what was even worse was that she could not return to her world, no matter how hard she tried. That had eaten away at her sanity for years.</p>
 <p>However, over time, she came to accept her new life.</p>
 <p>Never in her wildest dreams did she think the brother she had thought about every single day for the past 13 billion years would now be in her arms.</p>

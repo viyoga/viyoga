@@ -46,7 +46,7 @@ chapter = 1353
 <p>↠ The day she came face to face with the one she blamed for her sister’s death, she became unrecognisable. Her hatred had twisted and made her bitter.</p>
 <p>↠ In the end, she died at the unwilling hand of the Chaos Dragon, something he regretted to the point of planting a heart demon in him, a heart demon he still struggles with to this day.</p>
 <p>↠ Now you have the chance to save her and, in doing so, save the Chaos Dragon from the pain he is destined to go through. This mission is to bring two sisters together and, in doing so, save the one whose destiny and fate are tied to the Universe.⟧</p>
-<p>⟦Kill as many as you want, for this planet is doomed⟧</p>
+<p>⟦Kill as many as you want. After all, this planet is doomed⟧</p>
 <p>⟦Rewards⟧</p>
 <p>↠ 30 Billion Tower Points</p>
 <p>↠ 300 Billion Soul Essence</p>

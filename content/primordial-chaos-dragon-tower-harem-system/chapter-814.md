@@ -14,7 +14,7 @@ chapter = 814
 <p>It moved through the cracks and, before they could put a stop to it, it had already seeped into the running river, taking it away and spreading it everywhere.</p>
 <p>Within an hour, almost everyone had heard and seen the circulating video. The name Kent Madson has reached every ear and every tongue that has said it.</p>
 <p>Supreme Elder Jian held the recording in his hand, anger etched on his face. "Who was responsible for this?" he asked, his tone cold like ice.</p>
-<p>The elders sitting in the same hall looked at each other, but couldn’t tell who was responsible. They knew they weren’t the ones responsible, and thinking about it, they knew Elder Lance wasn’t accountable either, for he had more to lose.</p>
+<p>The elders sitting in the same hall looked at each other, but couldn’t tell who was responsible. They knew they weren’t the ones responsible, and thinking about it, they knew Elder Lance wasn’t accountable either. After all, he had more to lose.</p>
 <p>This then sparked the debate about who was the root cause of this problem.</p>
 <p>Of course, it could have been solved had they paid more attention to Sonox. They would have known that Elder Lance wasn’t the only one who went to Sonox the last time.</p>
 <p>He went with two disciples, and one of them was the cause of this. But due to their own negligence, they now found themselves in hot soup.</p>

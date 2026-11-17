@@ -26,7 +26,7 @@ chapter = 758
 <p>Even the dragons were the same.</p>
 <p>The Hell Zone, one of the seven unconquered regions in the ancient battlefield of parting.</p>
 <p>The Dead Region, The Hell Zone, The Ancient Temple, The Haunted City, The Frozen Mountain, The Blood Desert, and finally, the Rib Dome City.</p>
-<p>These are the seven unconquered zones in the Ancient Battlefield of Parting. Not even the Supreme Immortal Sect was able to conquer them, for they are some of the most dangerous places in the entire world.</p>
+<p>These are the seven unconquered zones in the Ancient Battlefield of Parting. Not even the Supreme Immortal Sect was able to conquer them, because they are some of the most dangerous places in the entire world.</p>
 <p>Yet there is a being from that place, and looking at how he behaved toward the dragons, which everyone saw, he was indeed worthy of being a creature from there.</p>
 <p>Of course, what Uncle Drake isn’t telling them is that he only lived in the outer reaches of the zone, where he mainly dealt with the humans who dared explore the Hell Zone.</p>
 <p>When he left using a rift that opened one day, he appeared in the Beast Empire. He lived there for just 100 years and left because he didn’t feel at home there.</p>

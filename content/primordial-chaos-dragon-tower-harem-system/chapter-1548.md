@@ -72,6 +72,6 @@ chapter = 1548
 <p>***</p>
 <p>In several other places, the other monarchs reacted similarly. They all felt happy to sense that the Primordial Chaos Dragon had returned.</p>
 <p>But it was not just them. Other beasts, humans, and all kinds of brave warriors that were affected by the Spell of Origin felt his return.</p>
-<p>Not all of them were strong enough to reincarnate with their memories, but when his presence passed over them, they felt the urge to take up arms and rally behind him, for they knew that with him leading the charge, nothing could stand against them.</p>
+<p>Not all of them were strong enough to reincarnate with their memories, but when his presence passed over them, they felt the urge to take up arms and rally behind him, since they knew that with him leading the charge, nothing could stand against them.</p>
 <p>It is rare for someone to have this much effect on people, but Chaos did, and this time, he is bound to lead a much bigger and stronger army into battle.</p>
 <p>Of course, when allies sense his presence, the foes are bound to do so also.</p>

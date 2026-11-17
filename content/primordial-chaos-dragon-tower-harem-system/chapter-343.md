@@ -11,7 +11,7 @@ chapter = 343
 <p>But the universe, who couldn’t sit idle and watch her beloved die, picked up the last piece she could and set him on a different kind of reincarnation. He would have to live 13 fulfilling lives in order to restore his soul and be born again.</p>
 <p>Kent, who was now resting his head on the chest of a damsel, getting his dick sucked by another damsel, and playing with the breasts of yet another, was that dragon.</p>
 <p>Despite not knowing it yet, he was making a certain beautiful lady smile from the heart of the universe.</p>
-<p>"Live the best of life, Chaos. You’ve earned it. But don’t slack off, for you still have work to do and a promise to fulfill," she spoke those words with a smile playing on her lips.</p>
+<p>"Live the best of life, Chaos. You’ve earned it. But don’t slack off. After all, you still have work to do and a promise to fulfill," she spoke those words with a smile playing on her lips.</p>
 <p>She then closed her eyes as a teardrop fell.</p>
 <p>Kent, who was sleeping in the midst of his ladies, felt a wave of protection, love, and longing wash over him. This caused him to smile absentmindedly.</p>
 <p>"Kent, why don’t you tell us something about yourself? Big sister Vexthra is teasing us when we asked her about your background," Unity asked, like the spoiled lady she is.</p>
@@ -19,7 +19,7 @@ chapter = 343
 <p>"You do know if that gets hurt, you ladies will be sex-starved for all eternity," Klaus joked.</p>
 <p>"True, Ingrid, maybe you should release him before that beautiful dragon gets hurt," Selene said, causing the ladies to laugh. They all knew Kent was just messing with them.</p>
 <p>He had already told them that unless the secret was to save their lives, he would never keep any secret from them.</p>
-<p>The Seven Primordial Chaos relics were something he would never tell them, for that would be for the best.</p>
+<p>The Seven Primordial Chaos relics were something he would never tell them; after all, that would be for the best.</p>
 <p>But telling them about his past on Earth was not something damaging to them. Telling them about his past as Jest was something he would not reveal for now.</p>
 <p>So he chose to tell them something about his past and this is his past as Kent on earth.</p>
 <p>"I am actually not from this world. I came from a distant world that doesn’t have cultivation, nor does it have dragons and demons. Everyone was human."</p>

@@ -72,7 +72,7 @@ chapter = 898
 <p>That said, there are two dangers coming. One is the Ancient Vampire races sealed in the Death Region. They will be free in the next 15 minutes. Aside from them, the Hand has started an inevitable ritual that will open the door to the apocalypse.</p>
 <p>Safe to say this world is in danger, so I came to tell you all to be ready; it is going to be a dangerous one."</p>
 <p>The faces of everyone turned pale, hearing that there was this much danger looming over them.</p>
-<p>Sect Leader Deimos, on the other hand, didn’t seem that alarmed, for he was already aware of the vampires. However, he didn’t expect to hear that the main danger was rather coming from the Hand he had disregarded as a credible threat all these years.</p>
+<p>Sect Leader Deimos, on the other hand, didn’t seem that alarmed; after all, he was already aware of the vampires. However, he didn’t expect to hear that the main danger was rather coming from the Hand he had disregarded as a credible threat all these years.</p>
 <p>"This battle must end fast." Lady Enzi turned back to the battlefield and was about to charge when Princess Enzi held her back.</p>
 <p>"No need," Princess Lovina looked to her left and nodded.</p>
 <p>Suddenly, Alina appeared in the air and formed a hand seal.</p>

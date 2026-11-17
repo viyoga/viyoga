@@ -27,7 +27,7 @@ chapter = 1905
 <p>A smile formed on her face, which, for someone like Ruby who personally knew Meiko, told her Meiko really liked this sister of hers very much...</p>
 <p>"She isn’t the violent type like me. She prefers to handle her issues with words, which I found very boring. But as long as it makes her happy, I had no problem with that."</p>
 <p>"Sounds like she is a good person," Vexthra said, and Meiko nodded.</p>
-<p>"Inkala was the best soul I knew during the Flame Era. If anyone deserved to survive that era, it was her, for she had been through a lot of hardship before I met her."</p>
+<p>"Inkala was the best soul I knew during the Flame Era. If anyone deserved to survive that era, it was her, as she had been through a lot of hardship before I met her."</p>
 <p>Pandora, who, over the years staying with Kent’s wives, had allowed her to learn more about human emotions, smiled and then she placed her hands on Meiko’s shoulder and said, "Don’t worry, if she is still alive, we will find her, and you two can have your sisterly reunion."</p>
 <p>Meiko nodded.</p>
 <p>Sometime later, they entered the transport array, and after a week of teleporting, they arrived in the Celestial Realm, where the energies in the air were much denser and more purified.</p>

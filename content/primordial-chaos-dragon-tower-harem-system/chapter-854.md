@@ -39,7 +39,7 @@ chapter = 854
 <p>All over the arena, every last disciple was just seated, staring at Kent like he was some demon.</p>
 <p>None understood how the battle they all assumed would be over in minutes had turned into one-sided dominance. The worst part was that the Pill Princess, who was being dominated, was the one doing the attacking.</p>
 <p>It all just didn’t make sense.</p>
-<p>"Listen carefully, Princess, for I am going to say this one time. The reason I see you as a nobody is that, aside from your status as the Pill Princess, you are basically a nobody.</p>
+<p>"Listen carefully, Princess. After all, I am going to say this one time. The reason I see you as a nobody is that, aside from your status as the Pill Princess, you are basically a nobody.</p>
 <p>You may be regarded as a talented cultivator in this sect, but in the grand scheme of things, you are but a mere toad in a rather large river.</p>
 <p>I am a mere 21-year-old handsome human who started cultivating three years ago; however, within those three years, I managed to achieve what takes others thousands of years to do.</p>
 <p>First, let’s discuss your strongest suit: alchemy. I asked around, and I was told you are really talented and that you are a one-in-a-million talent.</p>

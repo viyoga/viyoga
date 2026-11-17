@@ -12,8 +12,8 @@ chapter = 367
 <p>"Blood-soaked battlefields are her playground. Her hobby is to kill. Her vacation is to march onto the battlefield with her spear in a firm grip.</p>
 <p>Blood rains when she smiles, and her enemies succumb when she looks at them. She goes by many names.</p>
 <p>The dragons call her Blood Monarch, for her nature is that of blood.</p>
-<p>The elves call her the Bane of Peace, for she is not peaceful.</p>
-<p>The dwarves call her the Bringer of Disaster, for she is a menace on the battlefield.</p>
+<p>The elves call her the Bane of Peace, because she is not peaceful.</p>
+<p>The dwarves call her the Bringer of Disaster, since she is a menace on the battlefield.</p>
 <p>However, she is known by only one name. The name of Rakshasa, the War Princess. The name signifies war. A child born in battle, the harbinger of death. The one who descended from peace into chaos."</p>
 <p>Kent took a deep breath.</p>
 <p>"Blood remembers. Battle calls. The Rakshasa rises once more. Rise, Warrior Princess. Rise, Vekshara, the Scarlet Fang."</p>
@@ -27,16 +27,16 @@ chapter = 367
 <p>"You know about Rakshasa, right? Why don’t you tell me what you can recall? Every small detail will be fine."</p>
 <p>"Rakshasa wasn’t just a name; it was a symbol. A symbol of war. The legend of Rakshasa can be told from different angles. The dragons have a different legend, and the elves also have their own.</p>
 <p>However, from the legend I know, Rakshasa was a child born into battle and grew up in battle. She was a killer, someone who didn’t shy away from blood.</p>
-<p>She is a menace, for she is the incarnation of slaughter.</p>
+<p>She is a menace. After all, she is the incarnation of slaughter.</p>
 <p>Legend has it that during the Calamity Wars, when the creatures of the Grey Realm invaded, the alliance of 20 different races stood aside as the Princess of War slaughtered every last creature.</p>
-<p>They called her the War Ender, for it was said that when she appeared in battle, the side she picked was destined to win.</p>
-<p>They called her the Daughter of Death, for it was said that in all of history, she could be counted among the few who had sent many souls to the underworld."</p>
+<p>They called her the War Ender, as it was said that when she appeared in battle, the side she picked was destined to win.</p>
+<p>They called her the Daughter of Death; after all, it was said that in all of history, she could be counted among the few who had sent many souls to the underworld."</p>
 <p>The four-armed lady kept speaking, and from all she was saying, Kent could tell that the lady he had added to his harem, the genius sword saintess he fell in love with, was a menace to society.</p>
 <p>’Damn, how hot can one be?’ He could already imagine how hot she would look when drenched in blood and slaughtering left and right.</p>
 <p>Strangely, he wanted to see that sight, for a part of him was very happy she was becoming a Rakshasa.</p>
 <p>Just as his heart calmed and his feelings deepened when he awakened the true names of his other ladies, he could already feel the same toward Neomi.</p>
 <p>He was happy despite her awakening to such a true name.</p>
-<p>"You should be happy, my Lord. Rakshasa is someone worth having as an ally. But be ready, for she is a child of battle, so she cannot leave the battlefield."</p>
+<p>"You should be happy, my Lord. Rakshasa is someone worth having as an ally. But be ready. After all, she is a child of battle, so she cannot leave the battlefield."</p>
 <p>Kent nodded.</p>
 <p>’The dungeons will come in handy from now onwards.’</p>
 <p>The awakening process went on for five whole days.</p>
@@ -57,7 +57,7 @@ chapter = 367
 <p>In her place stood a damsel to die for. She was impeccable in her body and her beauty, and Kent, who wanted to know how she had restrained him, immediately forgot about that question.</p>
 <p>Instead, he stared into her beautiful red eyes, and for a moment, he could envision the two of them engaged in a fierce, passionate battle in the bedroom.</p>
 <p>"You have become a demoness," Kent said, smiling.</p>
-<p>"A demoness for you, my love. From today onward, I will be your war general, for that is who I am and who I am meant to be."</p>
+<p>"A demoness for you, my love. From today onward, I will be your war general, because that is who I am and who I am meant to be."</p>
 <p>Kent pulled her closer until her breasts were pressed against his chest.</p>
 <p>"There will be many battles to fight, my love... many battles to be fought." He locked onto her lips, and for the next five minutes, they could only kiss and kiss and keep kissing.</p>
 <p>This was a happy moment for both of them. The two are meant for each other.</p>

@@ -52,7 +52,7 @@ chapter = 812
 <p>They nodded and flew onto the large deck of the flying ship. Kent landed with a calm step and swept the entire deck and inner rooms with his senses just to be sure the elders hadn’t done anything to it.</p>
 <p>If anything went wrong, he would fly to the sect, find the elders, and beat the shit out of them.</p>
 <p>Elder Lance handed the rewards to the races that came first, second, and third in the ranking during the Flame Tower trial. Then, he flew back to the ship, and with a wave of his hand, the void crack closed, and the ship sped through it.</p>
-<p>The moment it closed, everyone dispersed, for they knew the young ones were now on their way to claim their destinies.</p>
+<p>The moment it closed, everyone dispersed; after all, they knew the young ones were now on their way to claim their destinies.</p>
 <p>---</p>
 <p>(A/N: That’s a wrap on Volume IV. It was a wild ride from the Human Continent to the other side of the world. Can the entire Alliance contain the Chaos Dragon... We will find out in the next volume.</p>
 <p>Volume V: Kent vs The Sect &amp; The Alliance)</p>

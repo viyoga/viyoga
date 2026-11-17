@@ -13,7 +13,7 @@ chapter = 867
 <p>"Help me stand up." Iver nodded and approached Kent.</p>
 <p>He helped him stand up. Kent smiled and moved out of the tent using the little energy he could muster.</p>
 <p>Inside the tent, Adina was panting, feeling her heartbeat much faster than it should.</p>
-<p>’That was close,’ she thought, inadvertently reflecting on how close she was to Kent just now. That scared her, for she never expected to come this close to a man.</p>
+<p>’That was close,’ she thought, inadvertently reflecting on how close she was to Kent just now. That scared her; after all, she never expected to come this close to a man.</p>
 <p>’I better stay away from him. This brat is a poison.</p>
 <p>With that decision set in her mind, she sat in a lotus posture to cultivate.</p>
 <p>Kent took out some fruits and started eating, using the energy to strengthen himself. After a couple of minutes, he felt his body gain some power. He turned to Iver and handed some of the fruits to him.</p>
@@ -30,7 +30,7 @@ chapter = 867
 <p>He asked Bhaal if he had cultivated the Primal Core Formation Diagram before, and his answer was both yes and no.</p>
 <p>According to him, he had only managed to form seven Core Gates, which Kent could stop at if he chose to. He can rise to the Celestial stage with just seven core gates.</p>
 <p>However, Bhaal made changes to the technique, which now requires Kent to form all nine before reaching the Immortal stage.</p>
-<p>Forming the eighth and ninth was like opening the door to a whole new world of craziness, and while Kent knew all this, he wanted to walk that path, for he could only hope for more strength.</p>
+<p>Forming the eighth and ninth was like opening the door to a whole new world of craziness, and while Kent knew all this, he wanted to walk that path, because he could only hope for more strength.</p>
 <p>’Bhaal said I will start to see the change after absorbing my first core. I suppose I am looking forward to that.’</p>
 <p>Kent smiled and then turned to Adina, who immediately looked away, pretending she wasn’t staring at him.</p>
 <p>"I have something to handle up there tomorrow. Do you want to join in?" Kent asked, and Adina looked at him.</p>

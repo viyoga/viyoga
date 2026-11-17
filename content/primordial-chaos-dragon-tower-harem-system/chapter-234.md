@@ -26,7 +26,7 @@ chapter = 234
 <p>His anger was so intense that he began coughing up blood.</p>
 <p>The video showed his one and only son, the heir meant to replace him one day. The talented son of the Miller family was now being tortured.</p>
 <p>He couldn’t hold himself up any longer, so he fell to the ground along with the note inside the jade box. After a couple of minutes on the ground, he picked up the note and began to read.</p>
-<p>⟪Greetings. If you are reading this, then your son Turyn is dead. No need to cry about it. But yes, he is dead, for you saw this coming many years ago and did nothing about it.</p>
+<p>⟪Greetings. If you are reading this, then your son Turyn is dead. No need to cry about it. But yes, he is dead, because you saw this coming many years ago and did nothing about it.</p>
 <p>Now, while I would love to gloat about it, I don’t have time, so listen carefully, for the survival of the entire Miller family depends on it.</p>
 <p>I know everything about you. I know what you like and dislike, I know the kind of women you are into, and I know the kind of person you are. You are the scum of a father, by the way.</p>
 <p>But that is just by the way. Now, listen. I will give you a month—just a month—to tell the entire kingdom what you and your family have done.</p>

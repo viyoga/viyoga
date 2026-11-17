@@ -58,7 +58,7 @@ chapter = 853
 <p>Naturally, the arrogance was clear, and this only made the Pill Princess even more pissed off.</p>
 <p>"Looks like you couldn’t wait long enough to lose, so you came early," Kent said, smiling at the Pill Princess.</p>
 <p>The princess looked at him for a few seconds and pointed her sword at him. "You should do your best because becoming my servant isn’t something you want."</p>
-<p>"Oh, I most certainly wouldn’t want to find out the hard way, I guess. But the same goes for you—calling me Big Daddy Kent for three years will be hell and humiliating, so do well to beat me, for that is the only way out for you."</p>
+<p>"Oh, I most certainly wouldn’t want to find out the hard way, I guess. But the same goes for you—calling me Big Daddy Kent for three years will be hell and humiliating, so do well to beat me, as that is the only way out for you."</p>
 <p>The comments were cut short, and the main battle was about to begin.</p>
 <p>"Remember, you can choose to tap out or die and respawn on the outside. Aside from that, the moment your opponent surrenders, the battle is over.</p>
 <p>Do any of you have any objections?"</p>

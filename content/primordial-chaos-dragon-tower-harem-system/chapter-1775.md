@@ -52,7 +52,7 @@ chapter = 1775
 <p>"I don’t know how complex a cultivation technique that surpasses the Eternal realm can be, but I trust and believe in myself. I can master it in no time.</p>
 <p>And before you call me arrogant, know that I have a record of mastering almost any technique in a less than thousandth of the time it would take the next prodigy.</p>
 <p>So you can all rest assured that if what Tribe Leader Jyoti Lata said is indeed the case, your freedom will soon be yours."</p>
-<p>They could no longer doubt his words, for he had already shocked them. While he could not even tickle their minds or souls, the mere fact that he could tap directly into their mental link and speak to them left them stunned.</p>
+<p>They could no longer doubt his words, since he had already shocked them. While he could not even tickle their minds or souls, the mere fact that he could tap directly into their mental link and speak to them left them stunned.</p>
 <p>They are Eternals, and he isn’t even a god yet.</p>
 <p>Kent had proven himself to them, and with that, they were ready to hand over the most valuable treasure of their tribe.</p>
 <p>"I will go first since I was the one who started all this," Jyoti Lata said, taking a step forward.</p>

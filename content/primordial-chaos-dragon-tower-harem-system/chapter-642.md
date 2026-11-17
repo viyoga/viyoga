@@ -30,7 +30,7 @@ chapter = 642
 <p>"Just messing with you. The reason you’re here is that I have something to show you." Faceless looked down, staring at the black water as if there was something hidden inside.</p>
 <p>"This is the Sea of Darkness. It is one of the oldest seas in the universe, and hidden deep inside is the gate to the Lost Realm. Some famous swordsman left it...</p>
 <p>I have never been there before, but from what I know, the hidden races are there and looking for a way back.</p>
-<p>Of course, not all of them deserve to be back. But most are to be brought back, for they will be needed. Again, don’t ask me what they will be required for because I don’t know."</p>
+<p>Of course, not all of them deserve to be back. But most are to be brought back, because they will be needed. Again, don’t ask me what they will be required for because I don’t know."</p>
 <p>"I understand. I will stay away from there," Kent nodded with a thoughtful expression. He didn’t want to show it, but he had a nagging feeling that nothing good would ever come of it—and he was right.</p>
 <p>"That is the thing, because of me, you will have to go there," Faceless said, and Kent’s brow furrowed.</p>
 <p>"Why?" he asked.</p>

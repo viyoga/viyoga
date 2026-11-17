@@ -44,7 +44,7 @@ chapter = 363
 <p>Standing with the ladies, Kent could tell every last one of them was scared.</p>
 <p>And they should be, for the true name their sister has awakened was one that once belonged to a huntress, a real predator who has killed many.</p>
 <p>She traversed the void to hunt down abominations, slaughtering countless of them. Such a person will have a presence that makes anyone fear her.</p>
-<p>⟪The master should give her the bloodline now, for she has awakened it, but she doesn’t have much control over it.⟫</p>
+<p>⟪The master should give her the bloodline now. After all, she has awakened it, but she doesn’t have much control over it.⟫</p>
 <p>Gaia said to Kent, making the dragon nod. He flew toward Ingrid, who was looking at her sisters with the gaze of a huntress.</p>
 <p>"You have become a menace, dear. Maybe you should stop scaring them now. Some might faint if those eyes don’t stop staring at them," Kent said, and Ingrid smiled. Her eyes were now completely dark.</p>
 <p>"I was just messing with them," Ingrid blinked, and her dark eyes turned brown, matching her skin colour.</p>

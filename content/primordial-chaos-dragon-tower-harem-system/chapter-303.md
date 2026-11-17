@@ -37,7 +37,7 @@ chapter = 303
 <p>"Master, I think she should do what her heart wants. After all, the disciples of the other three kingdom protectors will participate in the upcoming sect competitions in their various kingdoms.</p>
 <p>This means the four will soon meet in the Kingdom Genius competition. If she manages to dominate this competition, she will feel confident against them."</p>
 <p>"Whatever. Just know that a monster has appeared in the Sword Gate, and from what you have heard and seen, he is not afraid of multiple Transcendents coming after him.</p>
-<p>This should tell you that he is not simple. So, if you don’t want to come crying, then you’d do well to take your training seriously, for you will be meeting someone you cannot underestimate," the dark-veiled lady said.</p>
+<p>This should tell you that he is not simple. So, if you don’t want to come crying, then you’d do well to take your training seriously. After all, you will be meeting someone you cannot underestimate," the dark-veiled lady said.</p>
 <p>"Master, do you think he will be able to defeat Yami?" Lani asked.</p>
 <p>"All I can say is that the brat who just made you rich is someone none of us can underestimate. Just looking at him has a certain effect on a person. He cannot be underestimated.</p>
 <p>But don’t worry, Yami is someone who can easily kill a Transcendent if she puts her mind to it. However, she shouldn’t underestimate him either.</p>

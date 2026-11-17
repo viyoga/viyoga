@@ -9,7 +9,7 @@ chapter = 247
 <p>The discovery that someone she held in high esteem would lower herself in Kent’s presence was just too much to take in. In fact, she just couldn’t understand what had happened.</p>
 <p>The four-armed lady, or as Saintess Neomi chose to call her, Naja, was a Monarch of the Spear Path—someone that many would bow to... even kings and emperors would bow to.</p>
 <p>So, for someone of such high esteem, lowering herself in front of Kent was just too much to take in.</p>
-<p>"Y-you, who are you exactly?" she asked with interest. She wanted to know, for she realized Kent wasn’t someone she could easily ignore anymore.</p>
+<p>"Y-you, who are you exactly?" she asked with interest. She wanted to know, because she realized Kent wasn’t someone she could easily ignore anymore.</p>
 <p>"I am just your friendly neighborhood swordsman... no need to fuss about it," Kent smiled, making the disciple and her master look at him with demanding gazes.</p>
 <p>"Chill, ladies. I am just that awesome that a whole weapon spirit found me likable. No need to think too much into it."</p>
 <p>He walked closer to Ingrid and held her waist.</p>

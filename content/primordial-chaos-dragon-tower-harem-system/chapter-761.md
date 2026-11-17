@@ -17,7 +17,7 @@ chapter = 761
 <p>"We have already explored 80% of the second floor, and aside from a few ancient texts that only Unity can translate, we have yet to find anything in the lines of a skill, technique, or whatever.</p>
 <p>Of course, we have marked everything on the map so later you can explore it and see if you can make heads or tails of everything."</p>
 <p>Vexthra was meticulous about the entire process, ensuring that everything was marked for later reference.</p>
-<p>Kent most certainly would love to explore every section of the floors, for he knew it had something to do with his past one way or another.</p>
+<p>Kent most certainly would love to explore every section of the floors, as he knew it had something to do with his past one way or another.</p>
 <p>[Don’t worry too much about digging for everything now. A time will come when you will have to relax. You can use that time to conduct further research. For now, handle the most essential and let me know how it goes.</p>
 <p>Also, in case you can’t reach me in the next three days, don’t panic.]</p>
 <p>"Okay. Talk to you later," Vexthra cut the connection and went back to exploring the second floor.</p>

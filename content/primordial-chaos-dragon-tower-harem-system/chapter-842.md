@@ -17,7 +17,7 @@ chapter = 842
 <p>"First question. What at all do you wish to achieve from doing this?" Kent asked, then he raised two fingers.</p>
 <p>"And what is your plan to begin with? Do you think a little poison can harm me?</p>
 <p>Lastly, aren’t you scared I will disgrace you in front of all your shameless fans?"</p>
-<p>All the questions were ones Xhan ignored, for he was looking forward to seeing what Kent had under his sleeves.</p>
+<p>All the questions were ones Xhan ignored, since he was looking forward to seeing what Kent had under his sleeves.</p>
 <p>So far, he had heard four shocking things about Kent, and each one pissed him off.</p>
 <p>The first was Kent learning 12 Divine grade techniques. That was like a slap to his face, for had it not been for the sect, he wouldn’t have even had the chance to see what a divine-grade technique book looks like before learning one.</p>
 <p>So, Kent learning 12 was something he didn’t take lightly. All five seeded core disciples shared this sentiment.</p>

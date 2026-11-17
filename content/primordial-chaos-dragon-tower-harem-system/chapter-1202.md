@@ -48,7 +48,7 @@ chapter = 1202
 <p>Though it broke his heart that two of his wives aren’t happy.</p>
 <p>However, just when he was about to give up, a shooting star caught his eye, so he decided to fly up and see what the tower looked like from the clouds.</p>
 <p>Safe to say, when he entered the clouds, he saw the most beautiful sight.</p>
-<p>In an instant, his worries were washed away, for he had found the perfect spot he had been searching for.</p>
+<p>In an instant, his worries were washed away, as he had found the perfect spot he had been searching for.</p>
 <p>He quickly paid Gaia to build tangible clouds for him. This was so they could sit on it and enjoy the view. Afterwards, he bought wine from the tower shop and brought it there.</p>
 <p>Then he came for his two virgins.</p>
 <p>"So beautiful..." Runa said, watching a colourful star streak across the sky, leaving a dazzling trail of light behind.</p>

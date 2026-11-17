@@ -67,5 +67,5 @@ chapter = 1039
 <p>Kent moved and left the city behind.</p>
 <p>In all 12 levels of hell, everyone held smiles on their faces. The insects were massacred, and with them, the City of Flies would be dissolved for a while before a new race of demons took their place.</p>
 <p>Kharzun, the City of Shadows, was the next destination. Kent had already handled four cities, leaving him with ten more to go.</p>
-<p>Naturally, all viewers adjusted their sitting posture, for they all knew the real battle had begun here.</p>
+<p>Naturally, all viewers adjusted their sitting posture. After all, they all knew the real battle had begun here.</p>
 <p>If only they knew Kent had also made plans to unleash his full strength... In the end, the one who remains standing is the strongest.</p>

@@ -21,7 +21,7 @@ chapter = 1215
 <p>However, a part of him still thinks Aelvara Shardheart is hiding in there somewhere. Although she was Enzi’s past self, and that she would eventually remember that part of her, just from the way Aelvara spoke, Kent knew something wasn’t right.</p>
 <p>She wouldn’t send a part of her consciousness to the future just to throw a tantrum. If anything, it seems she did everything for Enzi, and that alone is scary.</p>
 <p>’Maybe I am just overthinking things.’ Kent chose to force everything back in his mind and instead focus on the present and how best to live a good life.</p>
-<p>Enzi is in no way going to betray him. None of his wives will, for they love him more than anything to betray him. However, there are more ways to make him regret his life choice.</p>
+<p>Enzi is in no way going to betray him. None of his wives will, as they love him more than anything to betray him. However, there are more ways to make him regret his life choice.</p>
 <p>’First, it was Lene who dodged the question about my life when I was the master of the Night Riders. Now, it seems I was a bastard who toyed with the hearts of women.’</p>
 <p>He smiled weakly...’I thought Chaos was a bastard, but it seems I was wrong. Now, I can’t help but wonder just what kind of person I was in all 13 lives.</p>
 <p>’Was I a villain somewhere along the line?’</p>

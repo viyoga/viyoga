@@ -27,7 +27,7 @@ chapter = 1128
 <p>Lyna, who had already been told how to handle this question, smiled. "Oh, Lord Agni said you people may know him by the name Kent Madson."</p>
 <p>"Kent." Hearing a familiar name, all three ladies lightened up.</p>
 <p>Kent’s name was like cold water poured on their beating hearts. Although Lyna is not a direct subordinate of Kent, she is a trusted subordinate of a subordinate of Kent who is also a demigod.</p>
-<p>There is no way somebody like that will harm them. Kent would never harm Adina, for he had promised to protect her.</p>
+<p>There is no way somebody like that will harm them. Kent would never harm Adina, because he had promised to protect her.</p>
 <p>So, hearing that the scroll was for him, the three ladies calmed down.</p>
 <p>However, Lady Enyo, who quickly traced back all Lyna said, widened her eyes when a thought suddenly surfaced in her mind.</p>
 <p>"You called him Chaos and even said Lord Agni is the direct subordinate of the Primordial Chaos Dragon. Are you saying Kent is the legendary Primordial Chaos Dragon?"</p>

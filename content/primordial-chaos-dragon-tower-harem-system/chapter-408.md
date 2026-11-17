@@ -29,7 +29,7 @@ chapter = 408
 <p>Annabelle’s body shuddered at her master’s words. The last thing she wanted was to bring doom on her master and family.</p>
 <p>She had heard rumors about the battle between Kent and the Evil Sect but never truly believed them. Now, hearing it from her master, she couldn’t help but wonder—just who could be that monstrous?</p>
 <p>"Just stay away from him during the Pill Master Competition. He will also be participating, so do your best to mind your own business.</p>
-<p>Once he removes the seal, we will never interact with him again, for that kid is terrifying. He also has powerful aides and a good relationship with the Master of the Silver Leaf Auction House.</p>
+<p>Once he removes the seal, we will never interact with him again, since that kid is terrifying. He also has powerful aides and a good relationship with the Master of the Silver Leaf Auction House.</p>
 <p>We cannot afford to offend them."</p>
 <p>"Okay, Master." Annabelle loved her master, so hearing her words, she knew she had to swallow her pride and perhaps never think of Kent again.</p>
 <p>But deep down, she also knew she had to get back at him somehow. Hearing that he would be participating in the Pill Master Competition, she decided—at the very least, she would win and rub it in his face once she was free of the seal.</p>

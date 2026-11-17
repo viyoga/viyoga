@@ -43,7 +43,7 @@ chapter = 1785
 <p>They said he was so powerful that the Laws, Daos, and everything in existence bowed at his feet. One day, he came to this world and fought the Chaos Ascension King, just as he had fought many others.</p>
 <p>During their battle, the Chaos Ascension King invoked the True Name of Life and Death, hoping to suppress him. After all, the concept of immortality was merely an idea. The cycle of Life and Death is eternal and cannot be avoided.</p>
 <p>However, this person overcame it with a mere wave of his hand. When questioned by the Chaos Ascension King, he said he had already transcended Death and claimed Life, so nothing could kill him, not even the overwhelming might of the Chaos Ascension King.</p>
-<p>That day, the Chaos Ascension King named him the Paragon, for he had transcended Existence and stood beyond both the known and the unknown, stepping on the Heavenly Dao and everything else.</p>
+<p>That day, the Chaos Ascension King named him the Paragon, since he had transcended Existence and stood beyond both the known and the unknown, stepping on the Heavenly Dao and everything else.</p>
 <p>He also bestowed the power over Life and Death upon the Chaos Ascension King, promising to fight him once again when he finally reached that level.</p>
 <p>Years later, they fought again, and it ended in a tie. However, many who witnessed even a fraction of that battle all said one thing... Life and Death dance upon the palm of the Sovereign of Life and Death."</p>
 <p>"Wow... chills," Kent muttered, looking at his body. He clearly never expected his achievement to now be attributed to a legendary event that had happened billions, perhaps even trillions, of years ago.</p>

@@ -64,7 +64,7 @@ chapter = 1753
 <p>"What... what do you mean?" he asked, still struggling to speak, let alone stand.</p>
 <p>Hearing the question, Kent smiled and slowly shook his head.</p>
 <p>"You dared to enslave a hero whose sacrifice helped save this universe. So, as your punishment, I am going to slowly and painfully roast you with the Umbral Flame of Oblivion.</p>
-<p>Be grateful, for this flame is only a spark of its true glory."</p>
+<p>Be grateful, because this flame is only a spark of its true glory."</p>
 <p>Black flames ignited in Kent’s palm.</p>
 <p>Then he sent them toward the Fatty, engulfing him instantly.</p>
 <p>"AAAARRRGGGHHHHH!"</p>

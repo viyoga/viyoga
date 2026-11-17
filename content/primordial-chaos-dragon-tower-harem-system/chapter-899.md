@@ -43,7 +43,7 @@ chapter = 899
 <p>The seven demon states formed one section, with each state forming five lines. The Half-Elves followed up, then the Dragons, Dwarves, the 11 Beast Kingdoms in their own section, then the Elves last.</p>
 <p>They had sustained the biggest loss in the just-ended battle. However, they lined up with Lady Aelith, who managed to not only kill that sneaky seahorse but also kill the Sea Dragon standing in front of them. The Elven queen was beside her.</p>
 <p>She was tired, but she was not about to look weak—not when the Supreme Immortal Sect was around.</p>
-<p>Uncle Drake, Vaelros, Kaizo, Zareth, and Sylara stood on the other side. Uncle Drake was, in a way, happy they were here, for he knew that if they had not arrived, things would have been worse.</p>
+<p>Uncle Drake, Vaelros, Kaizo, Zareth, and Sylara stood on the other side. Uncle Drake was, in a way, happy they were here, because he knew that if they had not arrived, things would have been worse.</p>
 <p>Of course, if he were to turn into his dragon form, he would have killed the seven sea kings much faster. However, that would have also affected his team, which he wasn’t ready to do.</p>
 <p>In a way, the seven sea kings planned well and executed their move in such a way that he would be caught in the heart of the battle, and their plan worked.</p>
 <p>However, he was now free, and thus, he was ready for phase two.</p>

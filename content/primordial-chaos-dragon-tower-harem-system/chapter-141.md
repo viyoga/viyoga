@@ -54,7 +54,7 @@ chapter = 141
 <p>"My powers are currently locked, with only a few unlocked because of my cultivation base, but there is one that requires you to take my maidenhood.</p>
 <p>Do you want to do that now, or should we discuss where we are?"</p>
 <p>Elsa asked, looking around. Kent smiled and held her waist, and the next second, they were back in the room where only five hours had passed.</p>
-<p>They resumed their kiss, which lasted for several minutes. Kent was very happy at the moment, for he knew he had gotten yet another powerful figure on his side.</p>
+<p>They resumed their kiss, which lasted for several minutes. Kent was very happy at the moment, as he knew he had gotten yet another powerful figure on his side.</p>
 <p>Vexthra was a goddess, and now, he has a Sentinel. The feeling was just too much that before he knew it, he removed the last fabric covering Elsa’s body and raised her up, grabbing her by the ass as they kissed.</p>
 <p>After a while, he placed her on the bed and got naked. His dick immediately became hard and ready for action.</p>
 <p>But before she could pounce on her, Elsa asked a question that made Kent smile like the happiest man in the universe.</p>

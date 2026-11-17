@@ -7,7 +7,7 @@ chapter = 409
 
 <p>"Wow, you really went wild with Kent, huh?" Unity said as the ladies examined Mara’s ass, now looking like she had polished it with red paint.</p>
 <p>She went wild with Kent last night, and while she could have stayed and perhaps healed before going out, she wanted to use the yin pool instead.</p>
-<p>That would have sped up her healing. She planned to sneak in, knowing they were still in the forest. But that wasn’t what happened, for they were waiting for her when she arrived in the pool.</p>
+<p>That would have sped up her healing. She planned to sneak in, knowing they were still in the forest. But that wasn’t what happened, as they were waiting for her when she arrived in the pool.</p>
 <p>This meant her sisters were around to check her out, and right now, as they examined her butt, they couldn’t help but smile and wonder what had gone on between her and Kent.</p>
 <p>"Tell us, what happened between you two?" Lilian asked.</p>
 <p>"Nothing," Mara said, sticking out her tongue as she walked into the pool, making her sisters look at her enviously.</p>

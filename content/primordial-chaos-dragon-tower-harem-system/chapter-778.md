@@ -8,12 +8,12 @@ chapter = 778
 <p>Eventually, only one hour remained before the tower closed.</p>
 <p>But a lot had happened.</p>
 <p>First, those destined to fail still couldn’t even comprehend a heavenly grade flame art. No matter how hard they tried, they couldn’t accomplish it.</p>
-<p>It may be harsh to say, but spending resources on such people would be a waste, for they lack the natural talent to even try without external help.</p>
+<p>It may be harsh to say, but spending resources on such people would be a waste, because they lack the natural talent to even try without external help.</p>
 <p>While some eventually managed to learn at least one technique, others failed even to scratch the surface.</p>
 <p>However, away from there, some managed to reach the second level and even the third level.</p>
 <p>The main fun, however, happened on the 4th level.</p>
 <p>Some years back, only one person managed to reach that level. This time, 24 managed to get there, and some even went beyond.</p>
-<p>Princess Elowen and her friends were told to learn seven techniques each by Kent, for he had helped them reach Tier 12 in soul cultivation before they entered the tower.</p>
+<p>Princess Elowen and her friends were told to learn seven techniques each by Kent. After all, he had helped them reach Tier 12 in soul cultivation before they entered the tower.</p>
 <p>So, thanks to their souls enlarging to a rather proportioned degree, they managed to complete their task 36 hours into the 72 hours they would be spending inside the tower.</p>
 <p>By the time they each comprehended the seven Mythic grade techniques, the first ten ranks on the display board were occupied by the half-elves.</p>
 <p>Kent was in the first spot, with Princess Freya sitting in the second spot, having mastered eight mythic grade techniques.</p>

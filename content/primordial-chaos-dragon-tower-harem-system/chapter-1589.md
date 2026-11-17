@@ -52,5 +52,5 @@ chapter = 1589
 <p>"Oh, trust me, you are the greatest monster. But let’s not focus on that. What we should be concerned about now is the tree." The Tower pointed at the tree that now stood two meters tall.</p>
 <p>"I have no idea what this tree is, Tower. Just that I can sense an overwhelming might of the Life Dao coming from it."</p>
 <p>"That is because the tree was born from a Dao Seed. I have no idea how you managed to transport a Dao Seed into your soul sea, Master. But what you have to know is this: soon, this tree will bloom, and there is a chance it will gain sentience.</p>
-<p>Once it does, it will try to take over your soul. I would advise the Master to be ready by then to go into combat mode, for I am afraid the greatest battle you will ever fight at this stage is slowly growing inside your body."</p>
+<p>Once it does, it will try to take over your soul. I would advise the Master to be ready by then to go into combat mode; after all, I am afraid the greatest battle you will ever fight at this stage is slowly growing inside your body."</p>
 <p>Kent sucked in a cold breath.</p>

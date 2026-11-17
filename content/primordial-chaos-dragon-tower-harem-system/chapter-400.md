@@ -28,8 +28,8 @@ chapter = 400
 <p>The forbidden legend has it that for 1,022 days, a great battle rocked Ebonviel when the Wraith Queen was betrayed by her second general.</p>
 <p>They fought, and in the end, the Wraith Queen was forced to make a huge sacrifice for the future of what she was destined to protect.</p>
 <p>Legend has it that when the battle was nearing its end, the Wraith Queen gazed at the 66 individuals who acted as her weapons and killed for her.</p>
-<p>Vey was one of the 66, for she fought and killed to her heart’s content. But in the end, they still lost—or were on track to lose.</p>
-<p>The Wraith Queen was stabbed in the back and was destined to die, for there was nothing that could save her.</p>
+<p>Vey was one of the 66, as she fought and killed to her heart’s content. But in the end, they still lost—or were on track to lose.</p>
+<p>The Wraith Queen was stabbed in the back and was destined to die, because there was nothing that could save her.</p>
 <p>The Wraith Queen looked at the 66, and a rare smile appeared.</p>
 <p>"I was told a day like this would come—the day I would fall and my legend would come to an end. But you know me, I am stubborn and never truly listened to things like that.</p>
 <p>But I guess this is the end.</p>
@@ -45,8 +45,8 @@ chapter = 400
 <p>The sky inside the tower shook, and at once, eternal darkness enveloped everything, preventing everyone except Nara, Uncle Drew, Saden, and Kent from seeing what followed next.</p>
 <p>Up in the air, Nara was moved deeper into the clouds, where a dark, colossal head of a wraith appeared. Then it moved and swallowed her whole.</p>
 <p>"That is a wraith, right?" Kent asked, and Uncle Drew nodded.</p>
-<p>"That is a wraith, young master. They are creatures of legend. From what I know about them, they command the night, for they are creatures born from the night.</p>
-<p>Many legends even say that they were once the true overlords of the beasts, for they can’t easily be killed, especially at night."</p>
+<p>"That is a wraith, young master. They are creatures of legend. From what I know about them, they command the night, since they are creatures born from the night.</p>
+<p>Many legends even say that they were once the true overlords of the beasts. After all, they can’t easily be killed, especially at night."</p>
 <p>"I see," Kent nodded, staring at the events in the dark clouds, which were exuding a rather powerful energy.</p>
 <p>"If my calculations are correct, then she is being reborn as a wraith-human hybrid," Uncle Drew smiled.</p>
 <p>This smile was because of something he discovered. In the small memory he had remembered, he saw Nara in it. That day, when he saw her, he knew she was someone he shared destiny with.</p>

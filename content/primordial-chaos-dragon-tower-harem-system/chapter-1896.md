@@ -8,9 +8,9 @@ chapter = 1896
 <p>A very long time ago, a crack like this appeared in the clouds, and from within came five people who called themselves Blood Messengers.</p>
 <p>They came from the Blood Realm, or as they referred to it, the Nine Savage Heavens.</p>
 <p>They came with a message: an invasion that later nearly swallowed the entire universe. Kent was there, from the little he could remember, and so was Blood Harvester, who could actually remember everything.</p>
-<p>Right now, as she gazed at the nine people, each bearing the aura of a Primordial, appearing from the crack, her expression turned pale, for she knew what followed.</p>
+<p>Right now, as she gazed at the nine people, each bearing the aura of a Primordial, appearing from the crack, her expression turned pale. After all, she knew what followed.</p>
 <p>The nine people walked out, each holding a flag bearing the same insignia: two shattered skulls and a jaw in the middle.</p>
-<p>After the last of them appeared, they turned their gazes toward Cassius, for he was the strongest so far, and they could sense that. However, instead of addressing him, they turned and faced Eliza...</p>
+<p>After the last of them appeared, they turned their gazes toward Cassius, since he was the strongest so far, and they could sense that. However, instead of addressing him, they turned and faced Eliza...</p>
 <p>"Looks like the reports were wrong. You are still alive, Blood Harvester," one of them, a baldy with a rather large belly, said, his dark eyes narrowing at Eliza.</p>
 <p>"Looks like your reports were indeed wrong. After all, I still live and would probably be there when we slaughter your kind the next time we meet on the battlefield."</p>
 <p>The big-bellied Blood Messenger laughed, not even angry at the provocative words said by Eliza...</p>
@@ -27,7 +27,7 @@ chapter = 1896
 <p>100 years from today, the Blood &amp; Death Arena will descend. When it does, it will appear in the realm boundary where, under the guidance of the Primordial Order, we will officially challenge the Infinity Universe to Ten Death Duels.</p>
 <p>7 Pseudo-Primordials and 3 Primordials from both realms will fight to the death. After ten battles, the one with the highest number of wins will gain the authority to rule the loser.</p>
 <p>This means that if the Nine Savage Heavens win, the Infinity Universe is ours to rule, and this will be enforced by the Primordial Order. This also means that if you win, we will forever become your servants.</p>
-<p>That is all, and good luck, for you are going to need it."</p>
+<p>That is all, and good luck; after all, you are going to need it."</p>
 <p>The scroll closed and shot toward Eliza, who caught it...</p>
 <p>"This scroll must be delivered to the one they call the Blood Spear King. He is to sign it with his blood and accept the call when the 100 years are up.</p>
 <p>Until then, good luck, and may fortune smile on you."</p>

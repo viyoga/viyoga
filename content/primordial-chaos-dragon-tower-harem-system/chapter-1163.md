@@ -27,7 +27,7 @@ chapter = 1163
 <p>"Now, to what you must do. First, do not form the third core until both cores are saturated. This is a must, and you must do well to remember that.</p>
 <p>Second, be sure to awaken all blood seals before forming the third core. Also, do not cultivate the second form of the Bone Tempering Art until all blood seals have been awakened.</p>
 <p>Third, be sure to refine at least ten Blood Life and Death Seals. This is important, and you must ensure it is completed before the third core is formed.</p>
-<p>Lastly, when you have refined at least ten Blood Life Seals, you can attempt learning the first form of the Claw Art. For now, don’t dare try, for it will be painful, and if care is not taken, your soul might even be affected.</p>
+<p>Lastly, when you have refined at least ten Blood Life Seals, you can attempt learning the first form of the Claw Art. For now, don’t dare try. After all, it will be painful, and if care is not taken, your soul might even be affected.</p>
 <p>So for now, stay away from it."</p>
 <p>Kent nodded.</p>
 <p>Bhaalzhar waved his hand, and a portal opened. "Remember this, learning too much has backlashes, so before you question the others, know that there is a reason we have Low, Medium, High, and Immortal worlds."</p>

@@ -9,10 +9,10 @@ chapter = 456
 <p>He had indeed fallen into a deep one this time. Among all of Kent’s women, he found himself facing Mara of all people.</p>
 <p>Her legend is known by many.</p>
 <p>Many call her a hater of men for she had never killed a woman before. Naturally, she hated men, so her trial of bodies are men.</p>
-<p>Many know her as the Sword Dancer, for she moves like she is dancing, and she is really good at close combat using weapons.</p>
+<p>Many know her as the Sword Dancer; after all, she moves like she is dancing, and she is really good at close combat using weapons.</p>
 <p>She mostly prefers close combat, and it is one of the many reasons she is known by all.</p>
 <p>Of course, nobody knew her true identity to be the infamous Dancer who once graced the sight of many men with her seductive dance moves.</p>
-<p>It’s said that when she is in combat, just her moves alone can mesmerize her opponent, for she moves with the wind, and her body is connected to her sword, making every moment a sight to behold.</p>
+<p>It’s said that when she is in combat, just her moves alone can mesmerize her opponent, because she moves with the wind, and her body is connected to her sword, making every moment a sight to behold.</p>
 <p>Now, the pitiful Pill Saint, whose plan was to set the six individuals he came with on Kent and then move back, was being forced to fight.</p>
 <p>He never expected the formation set by the Evil Sect and the Middle Finger Assassin Guild to be destroyed so quickly.</p>
 <p>But aside from that, he never expected Kent to unleash his own formation, one that could not be escaped.</p>

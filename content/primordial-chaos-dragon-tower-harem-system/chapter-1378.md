@@ -30,12 +30,12 @@ chapter = 1378
 <p>"I can’t say I was unfortunate to be one,"</p>
 <p>"Then you should know that being asked to work 12 hours a day with only 3 hours of rest is not something to be happy about. The day my mother gave birth to me, she was forced to go deep into a cave, and that was the last time she was heard from.</p>
 <p>I started carrying an axe and a hoe from the age of six, and for the better part of my life, I only knew the pained smile of slaves.</p>
-<p>It doesn’t matter how hurt you are; when your shift comes, you are required to go and work, for that is the purpose and the life of a slave.</p>
+<p>It doesn’t matter how hurt you are; when your shift comes, you are required to go and work, since that is the purpose and the life of a slave.</p>
 <p>To them, a slave is an expendable tool. They can always get more slaves, so a few deaths are nothing to worry about.</p>
 <p>So imagine how it feels if a brat dares to say my life’s worth is to be his slave. It is painful, Elder Ritsu, and for that, I will kill him.</p>
 <p>I don’t care who his family is or what they are capable of. I will kill him, and there is nothing anyone can do to stop me."</p>
 <p>Elder Ritsu and Willa were left with nothing to even say. They clearly understood what Jest meant, and that was enough for them to know where his stubbornness to kill that brat was coming from.</p>
-<p>There was nothing they could do to stop him, for they knew his hatred was coming from deep within his soul. Such hatred cannot be stopped.</p>
+<p>There was nothing they could do to stop him; after all, they knew his hatred was coming from deep within his soul. Such hatred cannot be stopped.</p>
 <p>However, knowing the kind of asset Jest is, there was just something about protecting him from himself.</p>
 <p>If he were to become a problem now, then he would one day become a pain in the ass or be killed before he could make a name for himself.</p>
 <p>’I guess we will just keep him engaged long enough to find a permanent solution for him. Either way, he cannot be allowed to kill that madman’s son.’</p>

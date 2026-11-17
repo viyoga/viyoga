@@ -29,14 +29,14 @@ chapter = 1581
 <p>Moltros had now transformed into a muscular, shirtless man with reddish, metallic skin, the kind that shows the defensive monster he is.</p>
 <p>Standing beside him are the legendary White Horn Moon Kirin and Shadow Talon Chaos Qilin.</p>
 <p>Many called them twins, for as far as one could remember, they had been together, despite one being a unicorn and the other a Qilin.</p>
-<p>Nareth was the unicorn who wielded control over Ice, Light, and Time. The records describe her as a support-type warrior, for they say she can speed up time to see the next few seconds, paving the way for Xarion, known for his control over Chaos and Destruction, to do his thing.</p>
+<p>Nareth was the unicorn who wielded control over Ice, Light, and Time. The records describe her as a support-type warrior. After all, they say she can speed up time to see the next few seconds, paving the way for Xarion, known for his control over Chaos and Destruction, to do his thing.</p>
 <p>They were the dynamic duo, the kind of beasts you want on your side, not against you.</p>
 <p>Nareth has long hair and a beautiful body, while Xarion has bluish-purple hair and a handsome appearance.</p>
 <p>Among all seven beasts, Xarion was the strongest of them since he was already at the Peak-Level True Supreme stage. But even with that power, as he took a step forward, a smile could be seen on his face.</p>
 <p>"The first time I saw him, he was locked in battle with a Celestial-stage Forbidden King. From the start to the end of the battle, he dominated the Forbidden King until he killed him," Xarion smiled...</p>
 <p>"As someone who wields the power of Chaos, I saw him as my mentor, and so I followed him around until the day he noticed me and, to my shock, approached me.</p>
 <p>That encounter changed my life for good and also awakened a sense of respect that I, Xarion, would honor one day." He turned and looked at his friend, or more like a twin, Nareth, before adding.</p>
-<p>"I am saying all this simply because my sister Nareth has the power to tell when someone is lying. If what you had said now was a lie, I would have killed you in a heartbeat, for I would not allow anyone to tarnish the image of Lord Chaos." He grinned, causing Inaya to feel her legs grow weak.</p>
+<p>"I am saying all this simply because my sister Nareth has the power to tell when someone is lying. If what you had said now was a lie, I would have killed you in a heartbeat, since I would not allow anyone to tarnish the image of Lord Chaos." He grinned, causing Inaya to feel her legs grow weak.</p>
 <p>"Luckily for you, what you said wasn’t a lie, meaning you had indeed met Lord Chaos and even became his disciple."</p>
 <p>Nareth stepped in. "The disciple part can be debated later. However, I have reasons to believe you share a close relationship with Lord Chaos, so all five of us decided to make things short for you."</p>
 <p>Lios’s smile caused his already handsome appearance to glow. "Since you are Lord Chaos’s disciple, we have no reason to judge your worth. You qualify to become a Supreme, so accept our defeat."</p>

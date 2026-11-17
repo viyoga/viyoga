@@ -39,7 +39,7 @@ chapter = 352
 <p>If anything, the question should be whether or not the Sovereign would be able to leave after getting humiliated by a brat and his abnormal subordinates.</p>
 <p>"A wise man once said, ’The metal is arrogant because of its hardness, but the moment it is submerged in fire, it becomes soft and can be beaten into any shape.’" Kent’s smile bloomed.</p>
 <p>"I’m not saying I alone can beat a Sovereign, but when the time comes, I won’t be lying on the ground oozing blood.</p>
-<p>I will stand and smile at them, for they don’t have what it takes to kill me." His confidence was oozing, making the lady smirk under her veil.</p>
+<p>I will stand and smile at them; after all, they don’t have what it takes to kill me." His confidence was oozing, making the lady smirk under her veil.</p>
 <p>"You should be careful. There are many dangers already chasing after you, some in hiding, just waiting for you to slip up so they can swoop in and take everything."</p>
 <p>"I will heed your advice, my lady," Kent nodded to her warning.</p>
 <p>"It’s good to hear that." She took out a spatial ring and handed it over to Kent. "Only 14 were deemed worthy to receive the Spirit Enlightenment Fruit, considering most tried to come after you."</p>

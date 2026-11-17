@@ -16,11 +16,11 @@ chapter = 638
 <p>And that was his life, and Lumen was his only place to keep his head. He liked it there regardless. He had friends—other scum who would do anything for food.</p>
 <p>However, was Lumen really this hard? Was it meant to be this hard?</p>
 <p>The answer is no. The reason Lumen was a challenging place to love was due to the three great families who never stopped fighting over resources.</p>
-<p>They are the cause of everything wrong with Lumen, and people like Chaos were left to bear the hard life, for that was what they were created for.</p>
+<p>They are the cause of everything wrong with Lumen, and people like Chaos were left to bear the hard life. After all, that was what they were created for.</p>
 <p>By 17, Chaos had lost more friends than he could count. Every friend he lost was a stark reminder of how worthless life is.</p>
 <p>But as a Chaos Dragon, Chaos never truly believed his life was worthless. No, Chaos believed his destiny was to lay waste to the three great families, so that was what he did.</p>
 <p>A creature born out of chaos is meant to bring chaos to everyone. He knew his life had purpose, and to realize that life, to be able to dream and see his life more than 24 hours ahead, he knew he had to become who he was meant to be.</p>
-<p>So Chaos jumped into the Primal Void, the only place the three Great Families couldn’t control; it was also a place only Chaos could enter without difficulty, for that was where he was born.</p>
+<p>So Chaos jumped into the Primal Void, the only place the three Great Families couldn’t control; it was also a place only Chaos could enter without difficulty, since that was where he was born.</p>
 <p>Nobody knew what was in there, and nobody wanted to find out; after all, millions who had gone in thousands of years before had yet to return. So when Chaos said he would be back, his words were but a joke to many.</p>
 <p>Until he returned, 30 years later.</p>
 <p>The day he returned was the day of reckoning for the three great families.</p>

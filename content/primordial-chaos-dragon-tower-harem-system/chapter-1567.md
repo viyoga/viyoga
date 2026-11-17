@@ -40,14 +40,14 @@ chapter = 1567
 <p>"You crack me up like always, Lex. When we met, you were but a demigod fleeing from twelve Chaos Gods. The sight of you hurling profanities at them while also at risk of dying piqued my interest. I couldn’t hold back my laughter back then."</p>
 <p>She smiled, a beautiful expression on her face. "My little Evil King, you really need to recover your memories before you make your sweet master angry."</p>
 <p>Kent kept his expression calm, but deep down, his heart was beating like a drum.</p>
-<p>If others saw the smile on Princess Pandora’s face, they would become charmed, for it was very beautiful. She is extremely beautiful.</p>
+<p>If others saw the smile on Princess Pandora’s face, they would become charmed, since it was very beautiful. She is extremely beautiful.</p>
 <p>However, to someone like Kent, her beautiful smile was merely a mask hiding the darkest evil. Perhaps because his evil heart was slowly awakening, he could see past her mask, and what he saw was truly horrible.</p>
 <p>The beauty before him is the worst kind of evil he had set his sights on, and he had seen his fair share of evil in his life as Jest (Lord Genesis).</p>
 <p>"Just who are you, and why am I afraid of you even though you mean me no harm?"</p>
 <p>Princess Pandora smiled and answered:</p>
 <p>"It would be hard to explain it to you unless you recover your memories. Thankfully, I can sense evil in your heart, meaning you have already taken a step but stopped.</p>
 <p>My advice is to continue, because if you want to survive the trip to the Tormented Chaos Abyss, you’ll need those memories.</p>
-<p>In fact, your mission to kill the four demigods and the portal guardian is secondary. Your reason for coming here is to come see me, for I am the only person who can ensure you don’t become the worst version of yourself after recovering your memories."</p>
+<p>In fact, your mission to kill the four demigods and the portal guardian is secondary. Your reason for coming here is to come see me, because I am the only person who can ensure you don’t become the worst version of yourself after recovering your memories."</p>
 <p>She paused and gazed at Kent with a narrowed gaze. "If I am not mistaken, when you recovered your first set of memories, you lost control."</p>
 <p>Kent didn’t know how she knew, but he nodded.</p>
 <p>"That was because what is buried in you is so much darker that the current you is not strong enough to contain it. That said, I can help keep it at bay until you reach the stage where you can handle it."</p>

@@ -18,7 +18,7 @@ chapter = 737
 <p>’Of course, I could have gone for all ten crystals, but this is a lesson to the four that will be joining me to enter the Tower and the sect. I can help them with the Flame Tower, but when it comes to the sect, I know nothing of that...yet’</p>
 <p>’However, I overheard someone say that the sect has a similar trial to this one. So those who have eyes would see that lifting all the stones at once is such a bad idea.’ Kent sighed as he lifted the third into the air.</p>
 <p>’The moment the stone is lifted off the ground by six inches, the rune stops affecting it, making it return to its original weight. However, all of them lifted it up to four inches, which is just too short.’</p>
-<p>’However, if they had lifted it one by one, perhaps one of them would have recognized this. But now that I am doing this, I hope they learn from it, for I may not be generous in the future.’</p>
+<p>’However, if they had lifted it one by one, perhaps one of them would have recognized this. But now that I am doing this, I hope they learn from it, since I may not be generous in the future.’</p>
 <p>Kent smiled as he lifted the fourth crystal.</p>
 <p>The fifth followed, then the sixth. At this point, everyone was starting to see a trend in Kent’s trial. However, while their questions wanted to come out, they could only watch as Kent lifted the seventh and eighth crystals.</p>
 <p>Then, when it came to the ninth, Kent paused and looked at Madea and the top geniuses before wrapping his flame around both the ninth and tenth, lifting them off the glass floor simultaneously.</p>

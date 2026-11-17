@@ -61,5 +61,5 @@ chapter = 823
 <p>"This goes to all Outer and Inner disciples. I don’t know what you all expect to gain from hating me, nor do I care about any of you.</p>
 <p>However, I have recently come to realize that preserving life is something we should all strive to practice.</p>
 <p>It has many benefits.</p>
-<p>So, all those thinking of challenging me to a death match, don’t. I don’t want a death match, for I don’t plan on shedding blood.</p>
+<p>So, all those thinking of challenging me to a death match, don’t. I don’t want a death match; after all, I don’t plan on shedding blood.</p>
 <p>But to those who won’t listen to reason and still challenge me, if I don’t kill you in under five seconds, I will pack my things and leave the sect."</p>

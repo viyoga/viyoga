@@ -36,7 +36,7 @@ chapter = 693
 <p>Kent then turned to Selene and Neomi. "You two must be wondering what type of memories you will be unlocking after all your memories are intact.</p>
 <p>The answer is simple: every last one of you, regardless of your background, was once someone great. Most of you died defending your family, some died defending their worlds, and some died defending the universe.</p>
 <p>However, while you were meant to be dead and remain dead, some idiot did something brilliant years ago, and due to that, you now have a second chance at life.</p>
-<p>I don’t know what these memories will do, but whatever you see, treat them as yours, for they are indeed yours—memories of the life you lived billions of years ago."</p>
+<p>I don’t know what these memories will do, but whatever you see, treat them as yours; after all, they are indeed yours—memories of the life you lived billions of years ago."</p>
 <p>By the time Kent was done, everyone around him remained quiet... the sheer shock they felt was enough to show they were indeed gobsmacked.</p>
 <p>"No need to look shocked... You are bound to remember one of these days, so getting it this early isn’t too bad."</p>
 <p>Kent made sure everyone calmed down before he continued with the rest of what he had to say. He would be leaving soon, so he wanted to make sure everyone had what they needed.</p>

@@ -15,8 +15,8 @@ chapter = 369
 <p>He knew she didn’t mean to look at him like that, but the redness in her eye—or rather, the redness in her single eye, which appeared to glow intensely as she gazed at him—made him shudder in his boots.</p>
 <p>He did not know if that was her eyes, just one red glow, but getting looked at by those set of dangerous eyes isn’t something to be taken lightly.</p>
 <p>"Her name is Sylara, a Reaper and also the Harbinger of souls and blood. But I will call her the Bone Claw Reaper," Akira said with a smile.</p>
-<p>She was the one who designed her, so she seemed happy watching her creation come to life. Of course, I had already started weaving skills for her, for she wanted all her creations to be the best of the best.</p>
-<p>"This is one terrifying creation, Akira. I never expected the design to look this terrifying yet badass," Kent said, also smiling, for she was indeed a terrifying undead.</p>
+<p>She was the one who designed her, so she seemed happy watching her creation come to life. Of course, I had already started weaving skills for her. After all, she wanted all her creations to be the best of the best.</p>
+<p>"This is one terrifying creation, Akira. I never expected the design to look this terrifying yet badass," Kent said, also smiling, because she was indeed a terrifying undead.</p>
 <p>Sylara was clad in a form-fitting battle suit made of a dark, almost organic material. The armour has sharp, jagged edges that resemble the claws of a beast.</p>
 <p>Red energy pulses through the veins of her suit, glowing intensely at her chest, hands, and knees. A hood covers her head, casting a shadow over her face.</p>
 <p>Just looking at her appearance was enough to show just how monstrous the lady standing inside the forge was.</p>

@@ -63,9 +63,9 @@ chapter = 813
 <p>Elder Calix, a high elf, swallowed nervously.</p>
 <p>"Supreme Elder, I asked Supreme Elder Jian two days ago about the standing of the current disciples coming from Sonox this year, and he said they were trash as usual. He said nothing about what we are seeing now."</p>
 <p>Elder Calix replied, ready for a deadly response. However, Supreme Elder Espen continued to look at the recording.</p>
-<p>"Who went for them?" he asked next, but none of the elders knew, for they didn’t place much emphasis on the disciples from Sonox, as all they had heard and seen showed they were indeed trash.</p>
+<p>"Who went for them?" he asked next, but none of the elders knew, as they didn’t place much emphasis on the disciples from Sonox, as all they had heard and seen showed they were indeed trash.</p>
 <p>The two good ones they’ve raised, one is arrogant, and the other is too prideful for her own good.</p>
 <p>"Unbelievable."</p>
-<p>Supreme Elder Espen stood up, bringing a heaviness, one that Elder Lance would have recognized, for he felt the same from Uncle Drake. Elder Espen is also a Dragon, one of the powerful ones in the sect.</p>
+<p>Supreme Elder Espen stood up, bringing a heaviness, one that Elder Lance would have recognized, since he felt the same from Uncle Drake. Elder Espen is also a Dragon, one of the powerful ones in the sect.</p>
 <p>"Elder Calix, Evander, and Lain, make sure the disciples from Sonox get here in one piece. Elder Mikko, summon Supreme Elder Jian here immediately.</p>
 <p>He must explain why he never bothered to disclose this important information to me."</p>

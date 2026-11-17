@@ -16,7 +16,7 @@ chapter = 455
 <p>Many call him the Hunter, one of the deadliest killers known across the Ancient Battlefield of Parting. He was one of Pill Saint Barton’s men.</p>
 <p>They said he had established his mercenary force in the ancient battlefield of Parting, cementing himself as a force that could not be reckoned with.</p>
 <p>"Why don’t you give it to my Middle Finger Assassin Guild to handle?" the leader of the assassins hired by the Hand proposed.</p>
-<p>He was also known by many for his skill in killing. They called him Haunting Shadows, for he haunted his victims before killing them.</p>
+<p>He was also known by many for his skill in killing. They called him Haunting Shadows, since he haunted his victims before killing them.</p>
 <p>Both recognized Ruolan’s superiority, considering they were only level 8, while Grand Elder Ruolan was level 9. But aside from that, they also knew fighting over Kent with him would invite doom upon themselves.</p>
 <p>They are afraid of the skinny figure. This made Kent wonder just what they are scared of. But he just remained quiet, considering his third undead was around.</p>
 <p>"How about you two come with him? My master needs to exercise." Kent smiled as his third undead, Vaelros, spoke, accompanied by two chains latching onto the Hunter and Haunting Shadows.</p>

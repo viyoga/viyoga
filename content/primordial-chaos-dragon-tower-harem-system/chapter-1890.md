@@ -40,7 +40,7 @@ chapter = 1890
 <p>The moment he walked into the arena, all talking died down.</p>
 <p>"Good day, everyone, and thank you all for coming on such short notice," the Pseudo-Primordial Blue Horn Tigerkin said as he scanned the arena.</p>
 <p>"I know most of you have this idea that this criminal deserves to live. However, I say she deserves to die because her crimes are ones that cannot be forgiven. She laid hands on an heir of my race, and she went ahead to kill over 200 of our warriors.</p>
-<p>The last time someone dared to try that, they were cut down, so hold your sympathy, for she will die today, and there is nothing anyone under or above the heavens can say to stop or prevent that."</p>
+<p>The last time someone dared to try that, they were cut down, so hold your sympathy, because she will die today, and there is nothing anyone under or above the heavens can say to stop or prevent that."</p>
 <p>Chills ran down everyone’s spines as his words reached their ears.</p>
 <p>He turned and looked at the Blood Harvester, whose expression remained calm despite death staring at her.</p>
 <p>"Any last words before you are escorted to the underworld..."</p>

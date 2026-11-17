@@ -8,7 +8,7 @@ chapter = 852
 <p>"Tch, I would take back those words if I were you."</p>
 <p>The Pill Princess said, looking coldly at Kent.</p>
 <p>As someone who prided herself on being stronger than everyone, she felt stung when Kent said those words. To her, this was Kent looking her in the face and spitting at her.</p>
-<p>Kent, of course, was after that, for he knew undermining her was the fastest way to get what he wanted. Though he might earn more haters for taking this road, Kent didn’t care because he was after something important.</p>
+<p>Kent, of course, was after that; after all, he knew undermining her was the fastest way to get what he wanted. Though he might earn more haters for taking this road, Kent didn’t care because he was after something important.</p>
 <p>Every disciple became quiet, staring at Kent, who held a smile on his face.</p>
 <p>"What if I don’t want to take back my words?" Kent replied, looking her in the eyes with a calm resolve. This only added to the bubbling anger simmering in the Pill Princess’s eyes.</p>
 <p>"You may have received a slot to take part in the sect team selection thanks to Lady Enzi, but that doesn’t guarantee your win. If three of the seeded candidates were to refuse, then you would be taken off the team."</p>

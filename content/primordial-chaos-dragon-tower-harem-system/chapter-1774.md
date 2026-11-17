@@ -29,7 +29,7 @@ chapter = 1774
 <p>"How...?"</p>
 <p>"It is a long story, big sister."</p>
 <p>"Tell me everything," she said, waving her hand. A sofa-like chair appeared for them to sit on. Naturally, she sat down, placed her head on Kent’s shoulder, and hugged his arm.</p>
-<p>Kent, who wanted to use the excuse that the tribe leaders were waiting for him, had to abandon that thought, for he knew the kind of person his sister was.</p>
+<p>Kent, who wanted to use the excuse that the tribe leaders were waiting for him, had to abandon that thought; after all, he knew the kind of person his sister was.</p>
 <p>Until she was satisfied, nobody else would get to have a moment with her baby brother. So he started to narrate everything that had happened after she was sucked into the portal and found herself here.</p>
 <p>"After you left, which I thought meant you had died, I lost it and went berserk, killing as though that was my purpose in the universe. However, during that time, I also started to unlock the hidden abilities we had tried several times and failed to awaken.</p>
 <p>Thanks to that, I managed to face the four Primordials and won. However, the last one managed to block the arrow I fired at his past self, and his present self came close to killing me.</p>

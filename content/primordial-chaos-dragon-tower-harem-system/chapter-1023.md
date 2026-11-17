@@ -57,7 +57,7 @@ chapter = 1023
 <p>Aside from that, he could now use 12% of his bloodline. Of course, his Bloodline Awakening was still at 19% and no new Bloodline Aspect had awakened. But he can channel 12% of his bloodline, so that is something.</p>
 <p>’This is better than none.’</p>
 <p>Kent channeled the soul universe into his index finger and drew a rune in the air. When it formed, he pressed it against Gaap’s forehead.</p>
-<p>"This will allow you to reap the blood of every kill we make and store it in a pool I created in my soul universe. Kindly extract only high-quality blood, for I will need it for my first blood-cleaning bath."</p>
+<p>"This will allow you to reap the blood of every kill we make and store it in a pool I created in my soul universe. Kindly extract only high-quality blood; after all, I will need it for my first blood-cleaning bath."</p>
 <p>[Okay.]</p>
 <p>Kent smiled and stood up...</p>
 <p>"I am here to get stronger, Gaap. This means I am here to train, and if bloodshed is the way, then let’s paint the sea red."</p>

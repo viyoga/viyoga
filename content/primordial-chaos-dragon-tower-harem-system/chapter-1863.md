@@ -7,7 +7,7 @@ chapter = 1863
 
 <p>Creating a solid, unbreakable bond is something Kent is rather good at. He understands people more than one would wish they could fathom.</p>
 <p>Maybe it had to do with his many lives and experiences. But when it comes to understanding people, he is very good at it, especially when he draws on his life as Kevin Sage.</p>
-<p>That life had been one deep mind game where he had the choice to trust or kill. He had never once made a bad call, for he had a good read on people.</p>
+<p>That life had been one deep mind game where he had the choice to trust or kill. He had never once made a bad call; after all, he had a good read on people.</p>
 <p>Safira is a Forsaken being, a natural enemy of the Primordial Chaos Dragon. However, looking at her right now, Kent could tell with certainty that she isn’t someone he can bring himself to hate.</p>
 <p>Maybe his feelings are being influenced by the fact that he had a past with Safira, one where she helped him and, in turn, suffered for it.</p>
 <p>Maybe he feels sorry for her, and so he feels like he could trust her.</p>

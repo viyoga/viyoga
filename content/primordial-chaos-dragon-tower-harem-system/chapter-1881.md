@@ -23,7 +23,7 @@ chapter = 1881
 <p>"Oh, I am sure you can do that, but can you defeat her, though?"</p>
 <p>The clash of blood intent and flame intent instantly filled the Arena. Luckily, they were in a self-healing arena, so whenever the void cracked open, it closed, healing at a speed that would astonish many.</p>
 <p>Back when they met, Ruby was a Celestial, and the Second Flame Matriarch was a Pseudo-Primordial. Ruby could only wish she had the power to face her back then.</p>
-<p>However, they are now a match, for it had been years, and Ruby had had time to catch up. Now, she can unleash powers that would even shake the hearts of Primordials.</p>
+<p>However, they are now a match, as it had been years, and Ruby had had time to catch up. Now, she can unleash powers that would even shake the hearts of Primordials.</p>
 <p>So, as they clashed, one could see that they were both at the peak of their power.</p>
 <p>Ruby specialises in close combat. She is very fast, so fast that most opponents she has faced in battle don’t even know when she moves until it’s too late.</p>
 <p>Aside from that, she possesses an uncanny ability of illusion and misdirection. She can choose to move left when, in fact, she wants to move right.</p>

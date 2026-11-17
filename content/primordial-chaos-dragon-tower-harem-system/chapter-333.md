@@ -35,7 +35,7 @@ chapter = 333
 <p>The defence Adolf raised was destroyed, and his left arm was severed from his body. The moment that happened, Kent moved in for the kill, but Metal Saint Andrew spoke before his sword could pierce his chest.</p>
 <p>"Brat, don’t kill him. If you do, you will never know peace ever again," his words were desperate yet arrogant.</p>
 <p>"Okay," Kent said, and then stabbed Adolf through the heart, ending him.</p>
-<p>"A wise man once said, ’I hate peace; I want problems, always,’" he smiled and then looked at Andrew. "Now, prepare to die, for that is the only way out for you."</p>
+<p>"A wise man once said, ’I hate peace; I want problems, always,’" he smiled and then looked at Andrew. "Now, prepare to die, as that is the only way out for you."</p>
 <p>The Metal Saint held a grim look on his face.</p>
 <p>"Then we can die together," he said, taking a dark pill from his space ring and swallowing it. The moment he did, his eyes turned dark, and he coughed up blood.</p>
 <p>"Blood Possession Pill... What an idiot," Kent muttered, but he wasn’t smiling.</p>

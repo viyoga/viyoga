@@ -40,7 +40,7 @@ chapter = 335
 <p>But it was and he could tell from the countless swarm of sword arcs coming at him.</p>
 <p>The attack closed in rapidly, forcing him to retreat even faster before the cold could overtake him. Kent was attacking like a madman, and Kaizo was standing idle instead.</p>
 <p>As for the Dolls, some were standing guard for any sneak attacks while some were in full-on attack mode.</p>
-<p>The bat kept retreating, trying not to get trapped in the Ice, for that was one of his weaknesses. But Kent was also making sure his retreat wouldn’t go smoothly.</p>
+<p>The bat kept retreating, trying not to get trapped in the Ice, because that was one of his weaknesses. But Kent was also making sure his retreat wouldn’t go smoothly.</p>
 <p>Evil bats burst into bats and flew away before forming into humans again.</p>
 <p>However, he had to dodge to the side when Kaizo’s fist nearly grazed his face.</p>
 <p>In response, he exploded into countless bats again, but as before, Kent unleashed the full power of Rapid Slash, slaughtering the bats in droves.</p>

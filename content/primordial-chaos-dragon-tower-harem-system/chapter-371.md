@@ -18,7 +18,7 @@ chapter = 371
 <p>"Don’t worry. Smaller people like you tend to become the strongest when they grow." Though the Atomic Divine Body physique hadn’t awakened yet, she possessed it, and that was why she would never increase in height or size again.</p>
 <p>But that would all change if she wanted to. She could just learn a transformation skill and temporary take on a bigger body if she wanted to.</p>
 <p>"Big brother, watch this!" Li Hua retrieved a dagger she had hoisted on her waist and started flipping it between her fingers.</p>
-<p>It was like someone who had used the dagger for years, for she was really moving it between her fingers skillfully, causing Kent to raise his eyebrow.</p>
+<p>It was like someone who had used the dagger for years, as she was really moving it between her fingers skillfully, causing Kent to raise his eyebrow.</p>
 <p>He didn’t expect something like that to happen, so he was taken aback.</p>
 <p>"That’s awesome, right? Big sister Nyxira showed me how to do it," Li Hua said with a cute little smile.</p>
 <p>"You are a genius Li Hua, a one of a kind Genius." The small human smiled, making Kent strangely feel a sense of happiness for her.</p>

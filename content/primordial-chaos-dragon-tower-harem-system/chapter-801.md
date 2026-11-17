@@ -22,7 +22,7 @@ chapter = 801
 <p>Pill King Han Lu had managed to extract the essence of ten minor ingredients, while Pill King Yota had only managed to extract the essence of three major ingredients.</p>
 <p>This shows that while they can easily extract essence from Tier 9 ingredients in their sleep, now, due to the requirements they must meet, they are ensuring every last essence is extracted to perfection.</p>
 <p>They were ultimately required to come out with a Tier 12 pill using Tier 9 ingredients, so they needed all the medicinal essence from each herb in abundance.</p>
-<p>If they were to make a mistake and lack even one herb, especially a major one, their process would have to be stopped, for they wouldn’t be able to achieve their goals.</p>
+<p>If they were to make a mistake and lack even one herb, especially a major one, their process would have to be stopped, because they wouldn’t be able to achieve their goals.</p>
 <p>So they were going at it slowly, and within three hours, the progress became clear. Just when Pill King Han Lu extracted the 13th minor ingredient, Pill King Yota had also completed the 6th major herb.</p>
 <p>Then the positions switched.</p>
 <p>Now, Pill King Yota was extracting essence from minor herbs while Pill King Han Lu started on the major ones.</p>

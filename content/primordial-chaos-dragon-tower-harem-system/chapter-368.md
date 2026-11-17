@@ -19,7 +19,7 @@ chapter = 368
 <p>From the description Kent read, in that form—which she could maintain for only an hour a day—all her senses would be heightened, and aside from her allies, anything she faced would die.</p>
 <p>The more she killed, the stronger she became.</p>
 <p>The more blood-soaked her armour and body, the more lethal she became.</p>
-<p>Had Kent been aware of the true history of Rakshasa, he would have recognized that form, for it was the form she used to enter the trial of awakening, where 10,000 natural-born killers were pitted against each other, with the endgame being that only one would walk out alive.</p>
+<p>Had Kent been aware of the true history of Rakshasa, he would have recognized that form, as it was the form she used to enter the trial of awakening, where 10,000 natural-born killers were pitted against each other, with the endgame being that only one would walk out alive.</p>
 <p>Shara entered that trial when her mother died, and she walked out a killer who had to slay 6,790 people to survive.</p>
 <p>Her skills are for killing, and her aspects are for killing.</p>
 <p>Then there is her Rakshara form, where she becomes a warrior princess born for war. In this form, she is clad in red and black armour and wields a red spear.</p>
@@ -28,7 +28,7 @@ chapter = 368
 <p>The three forms of Rakshara are Prey, Slaughter, and Warrior. But even though she is prey, the predator lies hidden behind her eyes.</p>
 <p>"Moments like this make me wonder where you came from and where you are going, Kent," Neomi asked, looking fondly at Kent, who was getting his divine rod serviced by a Void Reaver.</p>
 <p>Ingrid may have become a dangerous warrior, but when it came to her main, she was as tame as a cat.</p>
-<p>"I came from the unknown, ladies, and I am rising to kill a god, for that is the mission I will accomplish in less than a century," Kent smiled.</p>
+<p>"I came from the unknown, ladies, and I am rising to kill a god; after all, that is the mission I will accomplish in less than a century," Kent smiled.</p>
 <p>"You want to kill a god?" Camilla raised an eyebrow.</p>
 <p>"Indeed, my love. I rose from the dead to kill a god, and I will kill him regardless of who he is or what authority he holds." The ladies turned and looked at him.</p>
 <p>"You’ll be taking us with you, right?" Neomi asked, already pumped for a battle of that magnitude.</p>

@@ -37,7 +37,7 @@ chapter = 1793
 <p>"The fact that you are here now, seated beside me as a demigod with the power of a Celestial, shows you are on the right path. You are the Primordial Chaos Dragon, buddy.</p>
 <p>Your existence is as unbelievable as mine. The only difference between us is that I have no home, but you do, and you have the fate of all Existence behind you."</p>
 <p>Paragon smiled and added, "But we have to do better. We have to reach the peak before he awakens. We failed once simply because we underestimated our opponent. But like you always say, there is nothing in Existence or above Existence that cannot be killed.</p>
-<p>So, Master of Chaos, now that your journey has finally begun, do well to rise to the occasion, for I have already reached the stage we should be at, and I believe you and the others will too, eventually."</p>
+<p>So, Master of Chaos, now that your journey has finally begun, do well to rise to the occasion. After all, I have already reached the stage we should be at, and I believe you and the others will too, eventually."</p>
 <p>"And where is that stage? Which stage will make me someone worthy to stand between whatever wants to devour Existence and not break out in a cold sweat?"</p>
 <p>Paragon chuckled, almost laughing at Kent’s question.</p>
 <p>"You know, sometimes I forget you are someone very manipulative, Chaos Dragon. The first time we met, you had just become a Celestial with power that rivaled Eternals. Of course, I knew you still had more to learn, but I underestimated how cunning a dragon could be."</p>

@@ -25,7 +25,7 @@ chapter = 818
 <p>He was questioned after Elder Mikko brought him, but as planned, he made sure the five elders corroborated his story.</p>
 <p>They almost got a free pass. However, Elder Lance is a master Schemer than they are.</p>
 <p>During the questioning process, one of the Inner sect elders made a new discovery.</p>
-<p>He managed to pick up another rumor that Elder Lance had gone to Sonox with two disciples. He doesn’t know who these disciples were, for there are many, and it will take time to gather them all and question them.</p>
+<p>He managed to pick up another rumor that Elder Lance had gone to Sonox with two disciples. He doesn’t know who these disciples were; after all, there are many, and it will take time to gather them all and question them.</p>
 <p>However, the rumor stated that Elder Lance instructed the disciples to release the video. There was no reason why he did that, but this was already enough to tell Supreme Elder Jian they had been played.</p>
 <p>So they found a way to send a message to his men in Elder Lance’s world, with plans to capture his wives and children, perhaps kill a few to make him aware of what was wrong.</p>
 <p>They knew he could contact his people, and they could contact him, so the plan was for him to hear the voices of his captured family before he even got back to the sect.</p>
@@ -36,7 +36,7 @@ chapter = 818
 <p>He turned slightly and looked into the cold gaze of Supreme Elder Jian’s eyes. Those eyes spoke all the threats in the world, and Elder Lance understood his task.</p>
 <p>He looked at Supreme Elder Esper and answered, "But I did report. It was the first thing I did when I returned from Sonox six days ago.</p>
 <p>I reported to Supreme Elder Jian, Elder Aster, Elder Aren, Elder Xior, Elder Kenna, and Elder Lewin. I told them everything in detail, but I guess they were too scared to tell you.</p>
-<p>And oh, among the hundred disciples I brought today, three are above one hundred years old, but I saw it best to add them, for they are among the twelve that made it to the fifth floor.</p>
+<p>And oh, among the hundred disciples I brought today, three are above one hundred years old, but I saw it best to add them, as they are among the twelve that made it to the fifth floor.</p>
 <p>And while we are at it, you should also know that the human named Kent Madson actually managed to learn all twelve divine-grade techniques in under an hour.</p>
 <p>If you don’t believe me, you can test him and you will find out how talented he is."</p>
 <p>"Wait, did you say the hundred disciples you brought? Shouldn’t there be two hundred of them?" Elder Mikko asked.</p>

@@ -7,7 +7,7 @@ chapter = 361
 
 <p>"How are you feeling, Lil?" Elsa asked, holding her daughter’s hand.</p>
 <p>"I am fine, Mom. More than fine. Look, I am now a dragon." She smiled, causing her sisters to smile as well. The beauty they knew had now become something else.</p>
-<p>She had become stronger, for they could sense her energy, and she had become even more beautiful.</p>
+<p>She had become stronger, because they could sense her energy, and she had become even more beautiful.</p>
 <p>The body she had before had changed completely. The new her is a force and beauty that can shake the hearts of men.</p>
 <p>"So, can you turn into a dragon anytime you want?" Mara asked with a curious expression.</p>
 <p>"No, at least not yet. I am two races in one body. So, in a way, you can call me a hybrid."</p>
@@ -23,7 +23,7 @@ chapter = 361
 <p>And while that alone was fearsome, she had now become even more monstrous because of the bloodline abilities she had awakened.</p>
 <p>Kent didn’t want to spend all the time going through them all, but after reading just a few, he could already see his woman rising to the peak with ice and fire.</p>
 <p>As for what this means for the future, he will learn it when they meets the dragons.</p>
-<p>After all, the legend of the Twin-Breath Tyrant was one known to many dragon races to this day. She was hated by many, for she was deemed an abomination of a dragon.</p>
+<p>After all, the legend of the Twin-Breath Tyrant was one known to many dragon races to this day. She was hated by many. After all, she was deemed an abomination of a dragon.</p>
 <p>But that doesn’t mean the Frostfire Dragon, hated during the primordial era, didn’t have sympathizers.</p>
 <p>She did, and right now, somewhere in the vast universe, millions are celebrating, for the Ignis star has appeared in the sky, meaning the legacy of the long-lost Frostfire Dragon has risen.</p>
 <p>This time, she is not alone.</p>

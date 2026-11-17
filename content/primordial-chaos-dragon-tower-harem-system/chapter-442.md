@@ -14,7 +14,7 @@ chapter = 442
 <p>"So tell me, what are the stakes, and what evil plans do you have in mind, trying to set me up?" Kent smiled, causing the audience and the contestants around to look at Elaine.</p>
 <p>"I don’t need anything from you. However, if you lose, you will become my servant for ten years, and within those ten years, you will not touch a cauldron or even a sword.</p>
 <p>Your only job will be to serve me."</p>
-<p>Her stake was indeed huge, and everyone who heard it turned and looked at Kent. He wasn’t speaking, for he was laughing uncontrollably.</p>
+<p>Her stake was indeed huge, and everyone who heard it turned and looked at Kent. He wasn’t speaking, since he was laughing uncontrollably.</p>
 <p>Her demand is rather unusual.</p>
 <p>Meanwhile, up in the VIP room, Pill Saint Enex smiled, causing the rest of the Pill Saints to glare at him.</p>
 <p>"You bastard, what did you do?" Pill Saint Barton asked with angry eyes.</p>

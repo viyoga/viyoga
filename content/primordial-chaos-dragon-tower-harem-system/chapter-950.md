@@ -19,7 +19,7 @@ chapter = 950
 <p>Kent looked at Pill Saint Flura when there were only 20 more minutes for the 5-hour duration of the duel to end, and smiled.</p>
 <p>"No need to look sour, young lady. The only reason why you are in this predicament is because you grew cocky, thinking you are better than everyone." Kent formed a hand seal and pointed it at the pill, making the grey rings around the pill more visible now.</p>
 <p>"I have to admit, you are a brilliant Alchemist, there is no doubt about that. However, until you are alone at the peak, never think you are better than everyone. Trust me, there are monsters hidden in sheep’s clothing looking at you with contempt and disgust.</p>
-<p>So let this be a lesson to you. In the near future, no matter your achievements, regardless of your understanding in the Pill Path, whenever you feel like gloating, remember me, for I will forever be better than you." Kent laughed.</p>
+<p>So let this be a lesson to you. In the near future, no matter your achievements, regardless of your understanding in the Pill Path, whenever you feel like gloating, remember me. After all, I will forever be better than you." Kent laughed.</p>
 <p>If what Kent said sounded like motivation, then the last sentence shattered everything. His words made everyone who heard him enter a deep thought, but considering what Kent had achieved, some couldn’t help but wonder if they even had a future in the Pill Path.</p>
 <p>But Kent wasn’t done. This time, he used the soul map to speak only to Pill Saint Flura.</p>
 <p>"I hope you have learned your lesson from this defeat. We may be opponents, or to some extent enemies, but know that I came to accept your duel today because the Pill Dao willed it.</p>

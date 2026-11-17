@@ -40,12 +40,12 @@ chapter = 398
 <p>The atmosphere was very calm and lovely.</p>
 <p>They had already spent over a hundred days inside the city while Kent was undergoing his enlightenment, so it was safe to say that the trauma the ladies had experienced had diminished significantly.</p>
 <p>But that was to be expected, considering the place they were in could make anyone forget all about their worries.</p>
-<p>Zaila even started training again with her master, for she wanted to get much stronger so she would never fall into such a situation again, like she did with the sect master.</p>
+<p>Zaila even started training again with her master, as she wanted to get much stronger so she would never fall into such a situation again, like she did with the sect master.</p>
 <p>According to her account of what happened twenty-plus years ago, she was attacked by the sect master sneakily, but she managed to dodge and retaliate.</p>
 <p>However, she was overpowered after exchanging a few blows with the sect master. This was her greatest failure, for when her life was truly in danger, she couldn’t even escape.</p>
 <p>So, she started training, and thankfully, she was now surrounded by powerful warriors with whom she could train.</p>
 <p>Nara had spent her time every day doing the things she wanted to do with her sisters all these years, so she hadn’t touched a weapon yet.</p>
-<p>But she knew it was only a matter of time, for she could already sense it. Her duty was calling, and when Kent appeared just now, she knew that duty must be answered first.</p>
+<p>But she knew it was only a matter of time. After all, she could already sense it. Her duty was calling, and when Kent appeared just now, she knew that duty must be answered first.</p>
 <p>"Alina, when did you get here?" Kent asked, smiling.</p>
 <p>Lady Lani had been keeping her close the past few days on the outside, so she hadn’t had much time inside the tower like her sisters.</p>
 <p>She also hadn’t started her training yet.</p>

@@ -25,7 +25,7 @@ chapter = 849
 <p>Of course, his fans were more than happy to see their idol get away with what everyone was protesting.</p>
 <p>The elder looked at Kent and sighed inwardly.</p>
 <p>’Lucky bastard. To think he has already gained the favor of someone like Lady Enzi, even going as far as receiving her Supreme Badge.’</p>
-<p>It was safe to say the elder also didn’t like Kent, for he was one of the fair ones. He always does things by the book, so no matter one’s strength level, he would make them join the line.</p>
+<p>It was safe to say the elder also didn’t like Kent. After all, he was one of the fair ones. He always does things by the book, so no matter one’s strength level, he would make them join the line.</p>
 <p>However, against Lady Enzi’s Supreme Badge, he was powerless, and that alone was enough to tell everyone how powerful the person standing behind Kent was.</p>
 <p>’I should probably take Vexthra’s idea and help those I want. After all, I have more than enough ways to help them without affecting myself or my legion.’</p>
 <p>Far back in the long line, a disciple retrieved a device and spoke into it. Far in the core sect, a disciple moved toward the Pill Princess’s immortal cave to alert her of Kent’s presence.</p>

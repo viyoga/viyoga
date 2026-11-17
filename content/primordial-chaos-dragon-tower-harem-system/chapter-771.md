@@ -34,11 +34,11 @@ chapter = 771
 <p>Standing at the peak would mean she and her father would have a good life, the kind she had been looking for all these years.</p>
 <p>She was blinded, but Kent had finally opened her eyes to the truth, and now, she wanted nothing more than to climb the stairs and create the life she wanted for herself and her father.</p>
 <p>She wouldn’t chase after people who had it good from the start. She wouldn’t chase after the royalty who could get anything they wanted with a wave of their hand.</p>
-<p>She wanted none of that, for she now wanted to create a life where she stood above all of them. She wanted to surpass them all, and with that determination and resolve, she was moving steadily, heading slowly to the 4th level.</p>
+<p>She wanted none of that. After all, she now wanted to create a life where she stood above all of them. She wanted to surpass them all, and with that determination and resolve, she was moving steadily, heading slowly to the 4th level.</p>
 <p>Kent’s friends were still absorbing the essence of the pill they’d taken. Of course, they were moving closer to awakening an Innate Talent.</p>
 <p>Kent didn’t know what talent they would be awakening, but he knew that since they took it while under the heat of the flame tower, their innate talents would be flame-related.</p>
 <p>Of course, he expected something like that to happen, so he wanted them to enter the tower first before taking the pills.</p>
-<p>If they truly managed to awaken a flame-related innate talent, then this year’s batch of half-elves would dominate the entire world, for they would become some of the most dangerous cultivators in the world.</p>
+<p>If they truly managed to awaken a flame-related innate talent, then this year’s batch of half-elves would dominate the entire world; after all, they would become some of the most dangerous cultivators in the world.</p>
 <p>This would also mean Kent would be getting much more soul essence. Ultimately, it was all about the soul’s essence.</p>
 <p>Kent, on the other hand, was moving closer to the 5th level. He had already climbed to the 95th step and was moving closer to the 100th.</p>
 <p>"I wonder what will become of me after mastering divine-grade techniques. I am sure everyone will freak out, but who could blame them?</p>

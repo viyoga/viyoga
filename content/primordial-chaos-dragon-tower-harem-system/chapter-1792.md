@@ -43,7 +43,7 @@ chapter = 1792
 <p>"Is that so?"</p>
 <p>"Yes, Senior."</p>
 <p>Frafal heard a hum come from the man. Then, the next second, he spoke.</p>
-<p>"That is good. Unfortunately for you, the person I have been waiting for isn’t you. So go back and grow stronger, for he will need you."</p>
+<p>"That is good. Unfortunately for you, the person I have been waiting for isn’t you. So go back and grow stronger, because he will need you."</p>
 <p>The fishing rod rose from the water and landed on Frafal’s shoulder, sending him flying out of the portal.</p>
 <p>---</p>
 <p>Kent took a deep breath and smiled.</p>

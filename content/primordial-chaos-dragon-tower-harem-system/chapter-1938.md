@@ -40,7 +40,7 @@ chapter = 1938
 <p>Neveross turned to her and smiled. "I ranked 5th during the Chaos Era. This era, I want to rank 3rd or maybe 2nd."</p>
 <p>"Why not first?" Yukiko asked, but Neveross just smirked.</p>
 <p>"The only person who can stand against tha 13-headed bastard is the master himself. Aside from him, I don’t see anyone, not even that fiend who nearly became the 14th Divine wonder, could compete against him."</p>
-<p>Yukiko nodded, for she knew what Neveross said was indeed true. All 13 Divine Wonders have their own fields of expertise. So they are all special in their own way.</p>
+<p>Yukiko nodded. After all, she knew what Neveross said was indeed true. All 13 Divine Wonders have their own fields of expertise. So they are all special in their own way.</p>
 <p>However, the strongest of them, the Thirteen-Headed Calamity Dragon, or as they mostly call him, the Scourge of Chaos, is a terror none could compare to.</p>
 <p>"But who knows, if I keep collecting and refining souls, maybe one day I will surpass him. That said, I can feel you have suppressed your power. Is there any reason for that?" Neveross asked, but Yukiko just smirked.</p>
 <p>"Master placed three seals on me before he died. He didn’t tell me why, but I know it is for my own good, so we can only wait for him to come and remove them."</p>

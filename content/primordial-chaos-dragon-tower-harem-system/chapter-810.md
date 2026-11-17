@@ -26,7 +26,7 @@ chapter = 810
 <p>Kent nodded and went on to talk to Uncle Drake for a few minutes before parting ways.</p>
 <p>He went to see the king and queen, who were in a meeting with a few representatives from the Elven Kingdom and the Earth Dragon Kingdom.</p>
 <p>He allowed them to end their conversation, and after they left, he started his meeting with them. They told him all that had happened after he left.</p>
-<p>Most, of course, he was already aware of, for he had seen the messages and the changes in his Soul Universe. After they had ensured everything was said, Kent also shared his plans for their future.</p>
+<p>Most, of course, he was already aware of, because he had seen the messages and the changes in his Soul Universe. After they had ensured everything was said, Kent also shared his plans for their future.</p>
 <p>"I will send someone here in the next few months to begin building a unique Ascension Platform. It will link to a high world called Fedora, home to beasts.</p>
 <p>In the future, I will add more worlds to it. However, for now, it will have only one world, and the good part is that you can go and come back, provided you have the Spirit Stones to return.</p>
 <p>As for those who can use it, I will leave that to you to figure out. That said, you should also visit all the races you are allied with and select twelve capable people.</p>
@@ -40,7 +40,7 @@ chapter = 810
 <p>He was angry.</p>
 <p>It had been a few days since Elder Lance dropped the bomb on them, and since then, things had never been the same.</p>
 <p>As elders of the sect, they were obligated to seek out talented and promising disciples and send them to the Inner Area for proper grooming.</p>
-<p>They had been doing their work quite well for the past thousand years. However, this time around, they were in a bind, for they didn’t know what to do.</p>
+<p>They had been doing their work quite well for the past thousand years. However, this time around, they were in a bind, since they didn’t know what to do.</p>
 <p>Corruption was pervasive, and although it was uncommon for such a prestigious sect to have corrupt individuals, all six senior elders in the outer area of the sect were rotten to the core.</p>
 <p>This was why, instead of giving Sonox the quota they deserved every three years, they lied to the higher-ups that the place was filled with trash and, in return, sold half the slots that belonged to Sonox to the other worlds.</p>
 <p>However, things were different now.</p>

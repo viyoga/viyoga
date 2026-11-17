@@ -41,17 +41,17 @@ chapter = 379
 <p>→ Ten Memory Keys (4 diff. Incarnations)</p>
 <p>→ Ascension Platform</p>
 <p>→ Hidden Rewards (Ten)</p>
-<p>Kent was left stunned, for this was just too much for someone like him, despite knowing this was meant to happen when he became the son of the universe and was granted the Universe Quest Pool.</p>
+<p>Kent was left stunned, because this was just too much for someone like him, despite knowing this was meant to happen when he became the son of the universe and was granted the Universe Quest Pool.</p>
 <p>But now that he had received this quest, he could tell shit had just gotten real.</p>
 <p>"An SSS rank quest, huh... That is a huge one," he sighed.</p>
-<p>⟪I wouldn’t say the master was unfortunate, for this is a big opportunity for you. The odds are indeed against you, but these will prepare you for the dangers that will come.</p>
+<p>⟪I wouldn’t say the master was unfortunate. After all, this is a big opportunity for you. The odds are indeed against you, but these will prepare you for the dangers that will come.</p>
 <p>Facing hundreds of Sovereigns will be a good way for you to measure your strength against odds that just can’t be ignored.</p>
 <p>Also, you will be getting some good Sovereign bodies for your undead. I can already see hundreds of undead warriors moving at your command.</p>
 <p>But if that isn’t all, after defeating this Ant King, you will not only have a Core Formation stage warrior on speed dial, but you will also have a powerful dungeon future legions will be able to train in.</p>
 <p>For now, plan well and face this with determination. The rewards are just too good to be ignored.⟫</p>
-<p>Gaia said, and Kent could only nod. Like she said, this was a huge boon for him, for this is where shit gets real. If he wants to prepare for the apocalypse, he must face the dangers of this quest.</p>
+<p>Gaia said, and Kent could only nod. Like she said, this was a huge boon for him; after all, this is where shit gets real. If he wants to prepare for the apocalypse, he must face the dangers of this quest.</p>
 <p>⟪Plus, you already have material to create 6 more undead and 12 dungeons you can use to train with your ladies before this quest begins.</p>
-<p>2 years is over 40 years inside the tower, so you have enough time to prepare. Just make good use of your tower, for this is a big game for you, and you must play it.⟫</p>
+<p>2 years is over 40 years inside the tower, so you have enough time to prepare. Just make good use of your tower, since this is a big game for you, and you must play it.⟫</p>
 <p>Akira also added her voice, and Kent could only smile.</p>
 <p>"You two are the best. I guess we must rescue Dori next to reunite you three sisters."</p>
 <p>⟪Of course, we are the best. And don’t worry about that slacker. Not even gods can kill her⟫</p>
@@ -61,7 +61,7 @@ chapter = 379
 <p>The beautiful lady sitting at the universe’s core smiled when she saw the ready expression on Kent’s face.</p>
 <p>"Some destinies are meant to be remembered and reawakened." The image of Unity appeared: "She once laid down her life for her people, and now a world that also lost its protector has triggered her destiny."</p>
 <p>The smile on her face bloomed.</p>
-<p>"She was once known as a warrior with the bow, for she was the best archeress in the universe. She was known as Love, the protector who laid down her life for her people.</p>
+<p>"She was once known as a warrior with the bow, as she was the best archeress in the universe. She was known as Love, the protector who laid down her life for her people.</p>
 <p>Now she must awaken her destinies and become who she once was and who she was meant to be."</p>
 <p>She snapped her finger, and far away into the cosmos, inside a dungeon, a key appeared on the first floor, which entered the body of a level 3 Root Transcendent Obsidian Dark Demon Warrior Ant.</p>
 <p>"Your aim will determine your destiny, sister... I look forward to when you awaken."</p>

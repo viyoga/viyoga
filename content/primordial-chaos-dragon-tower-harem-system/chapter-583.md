@@ -43,7 +43,7 @@ chapter = 583
 <p>"So we all have past selves?" Lilian asked, and Kent nodded.</p>
 <p>"The true names, though I am not sure, are from your past selves. I think you all did something impeccable in your past that made the universe give you unique names that only belong to you."</p>
 <p>"If that was the case, was I truly that ruthless?" Neomi couldn’t help asking.</p>
-<p>Her sister also thought the same, for they knew her names and what they meant, especially her Shara name, which made her the Mother of Killers.</p>
+<p>Her sister also thought the same; after all, they knew her names and what they meant, especially her Shara name, which made her the Mother of Killers.</p>
 <p>Neomi turned and looked at Velyra, since she was one of the many who worshipped her.</p>
 <p>"The Mother of Killers is known not for her beauty but for her incredible talent when it comes to killing," Velyra said what she knew, which only made Neomi want to bury herself.</p>
 <p>"I knew it. Somehow, I am a monster in human skin."</p>

@@ -21,7 +21,7 @@ chapter = 1045
 <p>"This is really a bummer. For a group of Immortal Lords and a Demigod to struggle against me, who is just a mere Core Formation kid... what a disappointment."</p>
 <p>Kent sighed, his disdainful expression taking over.</p>
 <p>Of course, it had to be noted that the people he fought with were much more powerful than they actually were now. They had the means to kill him ten thousand times over. However, because of the laws, he was now looking down on them.</p>
-<p>All those who heard what he said started calling him shameless for thinking he was superior. Kent didn’t mind them, for he knew if these seven people currently suppressed under his bloodline were even to be allowed to use the strength of Empyreans, he would die for sure...</p>
+<p>All those who heard what he said started calling him shameless for thinking he was superior. Kent didn’t mind them, as he knew if these seven people currently suppressed under his bloodline were even to be allowed to use the strength of Empyreans, he would die for sure...</p>
 <p>But then again, he had already proven that seven levels were not impossible for him.</p>
 <p>"I wanted this to be fun, so I limited myself, held back my punches, and even decided to slow myself down to make up for your lack of strength and speed. However, now that we are here, I might as well end things.</p>
 <p>We can have a good battle if we meet again. But today, you seven are as good as dead."</p>
@@ -42,7 +42,7 @@ chapter = 1045
 <p>"From today onwards, the Blood Reaper will be our new Hell King. He has demonstrated his strength and battle experience, so we both can attest that he will make a fine Hell King."</p>
 <p>"However, because he has to leave, I will be allowing him to pick someone to rule in his place. One day, when he is done adventuring, he will come back to take his rightful throne."</p>
 <p>Hearing this, everyone became shocked.</p>
-<p>Killing a Hell King means becoming a Hell King. You stay and rule, for that is the rule.</p>
+<p>Killing a Hell King means becoming a Hell King. You stay and rule; after all, that is the rule.</p>
 <p>Never in billions of years had anyone ever become a Hell King and let someone rule for them. This was their first time, so they couldn’t handle it.</p>
 <p>But none dared question the Hell Monarch.</p>
 <p>"Know that in my bid to limit the bloodshed that would have happened if he were allowed to challenge the cities, I had to compromise somehow. Of course, I know what you all are wondering...</p>

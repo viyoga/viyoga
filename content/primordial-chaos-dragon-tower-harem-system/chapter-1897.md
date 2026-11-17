@@ -11,7 +11,7 @@ chapter = 1897
 <p>Safe to say, in less than 5 minutes, billions had died.</p>
 <p>In the grand scheme of things, that number was a small number compared to the total number of living beings in the universe.</p>
 <p>Of course, some planets had fewer than half a billion living souls, so, in comparison to the lives lost, it could be treated as alarming.</p>
-<p>As many were concerned, the Blood War never happened, for they had never heard of it until today.</p>
+<p>As many were concerned, the Blood War never happened; after all, they had never heard of it until today.</p>
 <p>They had never heard of the Nine Savage Heavens, they had never heard of the Blood Spear King, and they most certainly never knew this universe had won the first war against the Blood Race.</p>
 <p>So, since something like that had happened and now seemed to have come back to bite them in the ass, they might as well do with their lives as they pleased.</p>
 <p>Of course, there were those who also wished for order, so they were doing their best to handle what had happened, and they most certainly would not want this delicate balance to slip out of their control.</p>

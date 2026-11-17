@@ -52,7 +52,7 @@ chapter = 179
 <p>Everyone hated him now.</p>
 <p>Even the Gate Master genuinely hated him to the bone, and if that wasn’t enough, even Spear Saintess Neomi changed her opinion of him.</p>
 <p>However, Saintess Selene was still smiling, knowing Kent was perhaps doing something important.</p>
-<p>Vexthra had already told her that, in all things, she should trust Kent, for he wouldn’t do anything without a reason.</p>
+<p>Vexthra had already told her that, in all things, she should trust Kent, since he wouldn’t do anything without a reason.</p>
 <p>Kent looked at the elder, who was seething in anger. "No offense, senior, but I had to warn them. Now, if you don’t mind, can we get this show on the road?"</p>
 <p>After saying that, Kent took a dark gold mask that covered his eyes to his nose and wore it. It was one of the rewards of the quest, and its only function was to make him look cool.</p>
 <p>As expected, the moment he wore the mask, he became much cooler. He stood, holding his sword inside the golden sheath. It was the sheath he won at the auction that made Saintess Selene follow him home.</p>

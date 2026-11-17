@@ -18,7 +18,7 @@ chapter = 351
 <p>Per his memories, the ore would have surfaced years again due to natural events or beasts discovering it. But he is also confident it would still be there, waiting to be claimed.</p>
 <p>"I will just handle the rescue mission first and then prepare for that later," Kent said.</p>
 <p>He stood up and stretched. Bright Faywood’s body had been discovered, and it was chaotic at the moment in his mansion.</p>
-<p>But Kent didn’t care, for he had completed the quest that gave him another memory key, some items he would check later, and the location of a metal ore, possibly a meteor like the one he used on Veydris</p>
+<p>But Kent didn’t care, because he had completed the quest that gave him another memory key, some items he would check later, and the location of a metal ore, possibly a meteor like the one he used on Veydris</p>
 <p>That was a good harvest.</p>
 <p>"I must first visit the auction house and see how many came for the Spirit Enlightenment Fruit," Kent said.</p>
 <p>He took to the air and started flying away. Now a Great Sage, moving through the air was not something he found difficult.</p>

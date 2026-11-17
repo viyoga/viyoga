@@ -23,7 +23,7 @@ chapter = 850
 <p>After all, he had already concluded that he wouldn’t be able to defeat his perfect clone, so he could only learn the errors of his ways and improve on them.</p>
 <p>"Go ahead."</p>
 <p>"First of all, you are fighting based on your current limit. Instead of going beyond what you can currently do, you were instead focused on what you can already do, and that is affecting your combat power.</p>
-<p>So, if you want to have a shot at making me bleed, then it will be in your best interest to go above and beyond, for that is the only way for you to know your true potential.</p>
+<p>So, if you want to have a shot at making me bleed, then it will be in your best interest to go above and beyond, as that is the only way for you to know your true potential.</p>
 <p>Also, your speed is still lacking.</p>
 <p>I estimate that, using your agility, you should be able to move at half the speed the [Flame Wheels] skill does. Instead of relying more on your techniques, focus on improving your speed.</p>
 <p>I know we are smart, so we will find a way to do that soon enough. That said, your swordsmanship is impeccable, but without speed and endurance, you will never touch my skin with your sword."</p>

@@ -29,7 +29,7 @@ chapter = 1719
 <p>Meanwhile, Saden slipped into the shadows and vanished from sight, while Nara stood back, watching the battle and paying attention to the surroundings.</p>
 <p>The moment she sensed danger, she would make a move to counter it.</p>
 <p>So, in this battle, only Uncle Drew, Eryndor, Vargus, and Lene were participating. Even Saden hadn’t attacked yet, and the creature was already close to death’s door.</p>
-<p>However, for this creature to have snuck up on them, it was clear that the Worm Desert wasn’t as simple as they had thought. None of them saw it coming, not even for a moment.</p>
+<p>However; after all, this creature to have snuck up on them, it was clear that the Worm Desert wasn’t as simple as they had thought. None of them saw it coming, not even for a moment.</p>
 <p>So they had to remain on high alert.</p>
 <p>Of course, that decision saved their lives a minute into the battle.</p>
 <p>"Three more incoming!"</p>

@@ -38,8 +38,8 @@ chapter = 501
 <p>After half an hour, Kent and Vexthra stopped at an inn to grab a bite before leaving for their next destination, which, in this case, was Lanky City for the rest of the herbs.</p>
 <p>The book had a private table.</p>
 <p>"It’s been a long time since I did something like this," Vexthra said, sitting behind their offered table.</p>
-<p>"Enjoy it, for this is your life now. You eat mortal food and wear mortal clothes."</p>
-<p>The experience was new to Vexthra, for it had indeed been a long time since she left the mortal realm. But this was all she wanted, so while she wasn’t really benefiting from it, the experience was indeed something many gods would ask for.</p>
+<p>"Enjoy it; after all, this is your life now. You eat mortal food and wear mortal clothes."</p>
+<p>The experience was new to Vexthra, because it had indeed been a long time since she left the mortal realm. But this was all she wanted, so while she wasn’t really benefiting from it, the experience was indeed something many gods would ask for.</p>
 <p>Of course, most gods create avatars to live through their mortal days again. But she was privileged to have this experience in her true body.</p>
 <p>That is not something even a god can brag about.</p>
 <p>A few minutes later, they were served, and they started digging in. Kent relaxed and waited to see if Vexthra could use the chopsticks.</p>

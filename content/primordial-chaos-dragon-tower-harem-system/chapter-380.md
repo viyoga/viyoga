@@ -7,7 +7,7 @@ chapter = 380
 
 <p>After finishing everything up, Kent and the two cosmic beings teleported into Tower City.</p>
 <p>Gaia made sure they appeared atop a mountain several kilometers away from the city, where everything would come into view.</p>
-<p>In reality, the mountain they appeared on is part of the city, for it has a garden with several fruits already ripe. The garden was meant for relaxation.</p>
+<p>In reality, the mountain they appeared on is part of the city, since it has a garden with several fruits already ripe. The garden was meant for relaxation.</p>
 <p>This means he and his ladies can come there if they want the view.</p>
 <p>But the view is something that is in abundance, for the city he was staring at wasn’t something that could be found anywhere in the universe.</p>
 <p>Gaia is a Cosmic Weaver.</p>

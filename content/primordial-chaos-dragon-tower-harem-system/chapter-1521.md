@@ -38,7 +38,7 @@ chapter = 1521
 <p>She leaned in and kissed him again. This time, it took some time before she pulled back. A small red tint appeared on her cheeks.</p>
 <p>While it was a bit too late for all this, she indeed was happy for him. She never had the chance to do that, since Jest was nowhere to be found back then.</p>
 <p>She had always supported him in his quest to reach the peak of swordsmanship. When they both became Sword Supremes, she stood by his side for 400,000 years, searching tirelessly for a path that led to the peak.</p>
-<p>So there was just this wave of joy she always felt whenever she remembered the day she heard that Jest had reached the peak. That day, she cried heavy tears, for she wasn’t there to celebrate with him.</p>
+<p>So there was just this wave of joy she always felt whenever she remembered the day she heard that Jest had reached the peak. That day, she cried heavy tears, because she wasn’t there to celebrate with him.</p>
 <p>Reminiscing about the past had, in a way, brought it back. However, being held by Kent, she seemed to have calmed down a bit.</p>
 <p>They remained in silence for a few minutes before Inaya suddenly asked... "So how did you die...?"</p>
 <p>Kent turned and looked at her strangely.</p>

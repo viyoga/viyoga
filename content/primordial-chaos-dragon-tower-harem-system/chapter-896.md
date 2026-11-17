@@ -18,7 +18,7 @@ chapter = 896
 <p>As someone in a High world, she had heard of Kent. At first, she didn’t put any effort into finding out who this Kent was; however, after weeks, when she heard of Kent appearing on Planet Manelaus, she started to panic, knowing her daughter was in a world nobody knew this mysterious Kent was from.</p>
 <p>Again, as someone who couldn’t leave her world, she wasn’t about to send everyone to a medium world knowing a very important mission that, if successful, would not only free her and her people but would also bring them a step closer to freeing all Forsaken clans scattered in the vast universe.</p>
 <p>She couldn’t risk sending the whole universe to Sonox.</p>
-<p>So she said nothing to anyone, for she didn’t want to compromise her daughter. Now hearing Kent wasn’t around to mess with their plans, she was pleased.</p>
+<p>So she said nothing to anyone. After all, she didn’t want to compromise her daughter. Now hearing Kent wasn’t around to mess with their plans, she was pleased.</p>
 <p>"How about the sacrifice?" the lady asked.</p>
 <p>"I have prepared everything. The gate will take an hour to open, so I made sure the Cursed Vampires and the Sea Race will pave the way for your arrival, Mother."</p>
 <p>The lady smiled. "You are the weakest among your sisters, Amix; however, you have proven to be the most brilliant of them all. I will be sure to recommend you to the Lord when all this is over."</p>

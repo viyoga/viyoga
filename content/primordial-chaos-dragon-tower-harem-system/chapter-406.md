@@ -58,4 +58,4 @@ chapter = 406
 <p>"You are a wild one, Mara; I never pegged you to be this kind of wild vixen."</p>
 <p>"You can never truly know what is on one’s mind." She smiles.</p>
 <p>"Very well, I will handle you the way you want it." Kent knew she wanted it intensely, and so he would go wild with her.</p>
-<p>However, he wouldn’t go overboard, for he sees his women as delicate flowers.</p>
+<p>However, he wouldn’t go overboard, since he sees his women as delicate flowers.</p>

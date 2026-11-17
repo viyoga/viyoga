@@ -26,7 +26,7 @@ chapter = 430
 <p>However, the Saints had four-star badges, showcasing their mastery and deep understanding of the pill path.</p>
 <p>"Now that we are done with the issue of badges and registration, know that the competition will take place in four forms: Spiritual Strength Testing, Memory Testing, Problem-Solving, and what we all love—the actual concoction trials.</p>
 <p>This time, the spiritual testing will be measured at the peak of the Green Grade. This means that if your soul strength is below the Tier 4 stage, you will be disqualified."</p>
-<p>A collective sigh escaped many lips. Those who knew they wouldn’t progress any further sighed, for they truly had no chance.</p>
+<p>A collective sigh escaped many lips. Those who knew they wouldn’t progress any further sighed. After all, they truly had no chance.</p>
 <p>Their soul strength was simply too weak.</p>
 <p>"Second, you will be presented with thousands of pill recipes, and you will be given a short time to memorize and record them afterward. The stronger your memory, the better.</p>
 <p>The third test will involve fixing recipes selected from the second test, so the better your memory, the further you will go.</p>

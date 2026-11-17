@@ -50,7 +50,7 @@ chapter = 945
 <p>However, knowing her background, none said anything and merely seethed inwardly. They knew that when the Pill Ascension Competition came, they would have their revenge.</p>
 <p>If only they knew their revenge would come from a handsome, purple-haired person who walked into the Pagoda by flashing his pill badge at the guards.</p>
 <p>Soon, Kent was on the 5th floor and started walking toward Pill Saint Flura.</p>
-<p>Kent’s appearance stunned everyone, for they could all sense his cultivation base. Core Formation warriors weren’t invited to the 5th floor.</p>
+<p>Kent’s appearance stunned everyone; after all, they could all sense his cultivation base. Core Formation warriors weren’t invited to the 5th floor.</p>
 <p>However, Kent ignored their stares and walked toward the arrogant Pill Saint.</p>
 <p>"I am Kent, a Pill Grandmaster from the Pyris Pill Alliance. I have come to accept your challenge." An expression of shock appeared on Pill Saint Flura’s face.</p>
 <p>However, it immediately changed to anger when Kent added a few words.</p>

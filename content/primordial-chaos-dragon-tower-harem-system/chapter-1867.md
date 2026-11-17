@@ -7,7 +7,7 @@ chapter = 1867
 
 <p>Kent knew with absolute certainty that if Dia finally managed to break free from the hold the unknown beings had on her, their final play would be to threaten him.</p>
 <p>He had seen this play out many times, so he knew they would act.</p>
-<p>He was prepared for them, though, for he had no plans to let them go without telling them a piece of his mind. They had messed with Dia’s life and, by extension, his. So they had to understand that when it came to him, nobody was beyond reproach.</p>
+<p>He was prepared for them, though, as he had no plans to let them go without telling them a piece of his mind. They had messed with Dia’s life and, by extension, his. So they had to understand that when it came to him, nobody was beyond reproach.</p>
 <p>Looking into Dia’s eyes solved the issue, though.</p>
 <p>They came for him, and so while the others were all staring at her, he seemed to see beyond that.</p>
 <p>His body froze on the outside, and his soul vanished from his body and entered a very dark realm, appearing in an eerie space.</p>

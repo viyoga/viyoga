@@ -42,7 +42,7 @@ chapter = 1882
 <p>"I see she still hasn’t forgotten about what happened back then," Kent said, referring to the White Lady, who still seemed pissed.</p>
 <p>"Just give her some time. I am sure she will come around."</p>
 <p>Kent just laughed and looked at the three other Pseudo-Primordials. All of them are what the undead call Ancients. They are a special kind of undead, possessing powers far more dreadful than those of regular undead.</p>
-<p>They first appeared when Sanders went to the Undead Realm. In fact, Kaizo is the first-ever Ancient, for he was the first-ever undead Kent had created.</p>
+<p>They first appeared when Sanders went to the Undead Realm. In fact, Kaizo is the first-ever Ancient; after all, he was the first-ever undead Kent had created.</p>
 <p>Later, he got to know that the Ancients came from a realm unknown even to him. Long story short, he managed to find a way to summon them.</p>
 <p>But since he had no use for that method back then, people like the Third Undead Princess surely could benefit from it, so he gave it to her and a few others.</p>
 <p>She summoned the White Lady, and back when she sided with her father to attack him, the White Lady fought Sylara. Safe to say she was defeated, and that defeat had followed her ever since then.</p>

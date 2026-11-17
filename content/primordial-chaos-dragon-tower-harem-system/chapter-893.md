@@ -44,7 +44,7 @@ chapter = 893
 <p>Bhaal chuckled as if he wasn’t bothered. "Just so you know, this statue of me was when I was a mere Spirit King, just two realms above your current level.</p>
 <p>However, at that stage, with this aura you are feeling, Spirit Kings and Sovereigns were insects before me.</p>
 <p>The Blood Aura isn’t one that can be cultivated while seated in a lotus posture. It demands slaughter — the more you kill, the stronger it gets.</p>
-<p>It is a perfect match for the Primal Body Tempering Art, so listen to my advice and slaughter more, for that is the only way you will one day reach the point where nobody can threaten you."</p>
+<p>It is a perfect match for the Primal Body Tempering Art, so listen to my advice and slaughter more. After all, that is the only way you will one day reach the point where nobody can threaten you."</p>
 <p>"I will be sure to remember your kind words."</p>
 <p>Bhaal, in his statue form, didn’t say anything; however, a light flew from the forehead of the statue and entered Kent’s forehead.</p>
 <p>"It will be ideal to slaughter realms above you. Also, only temper your body with the blood of beasts. I recommend demonic beasts since they have a much more tyrannical presence and chaotic bloods..</p>

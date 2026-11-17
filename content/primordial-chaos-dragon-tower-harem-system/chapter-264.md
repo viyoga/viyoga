@@ -32,7 +32,7 @@ chapter = 264
 <p>The Saintess wasn’t looking too good at the moment.</p>
 <p>"Dare I ask: were you hoping to claim this battle in the bag? You might have thought this battle was as good as over, considering I am a Sword Grandmaster.</p>
 <p>But you probably must be regretting that decision now. Don’t worry. I am not done yet. I am not one to talk between battles, but I just want to say this:</p>
-<p>If you have any trump cards, now might be the time to use them, for I am about to end the battle. I would love to see you struggle to the bitter end."</p>
+<p>If you have any trump cards, now might be the time to use them; after all, I am about to end the battle. I would love to see you struggle to the bitter end."</p>
 <p>Kent smiled, hoping she would listen to his words.</p>
 <p>The reason he taunted her was that if she indeed brought out all her trump cards and he still defeated her, immediately after the battle, he would face the Sword Bridge again.</p>
 <p>So he moved and swung his sword again. This time, the rapid slash didn’t activate. Instead, the [72 String Sovereign Strike] did.</p>

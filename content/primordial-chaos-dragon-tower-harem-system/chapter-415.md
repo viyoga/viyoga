@@ -54,7 +54,7 @@ chapter = 415
 <p>"You and Mara are something. I never expected you two to be this wild," Kent said, watching Camilla pant for breath after their second round.</p>
 <p>"I guess there is a first time for everything," she smiled.</p>
 <p>"I have been observing you for a while now, and I know you love all your wives, so now that I am one of them, or soon to be, I want to show you what I can offer."</p>
-<p>"Well, you have a lot to offer, for I am more than happy spending time with you. You are amazing."</p>
+<p>"Well, you have a lot to offer. After all, I am more than happy spending time with you. You are amazing."</p>
 <p>"I have a lot to show you, but let Zaila come out of her training first," she smiled.</p>
 <p>"Whatever kinky thing you are thinking, I will make it happen, so do well to become creative." Kent knew that kinky stuff was something his ladies were fantasizing about.</p>
 <p>Elsa and her daughter Lilian wanted to do some stuff with him, so he was looking forward to that.</p>

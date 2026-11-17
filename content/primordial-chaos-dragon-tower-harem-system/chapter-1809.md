@@ -33,7 +33,7 @@ chapter = 1809
 <p>Before coming, they had received the names of people to look out for from the Primal Temple. On that list, Ruthless Bandit was the first, followed by Kael Duskbane, Captain of the Night Riders.</p>
 <p>Many names were on that list, and one of them was the Silent Shadow, or as many knew her, the Joker. They said she was raised by a team of assassins into a deadly weapon that had claimed the lives of both the good and the bad.</p>
 <p>However, along the way, she had a change of heart, so she killed the people who raised her, and since then, she has chosen to do good. Her chance to atone for her past transgressions arrived when the Dark Creatures came.</p>
-<p>She killed a lot of them, so much so that even the Dark Empress was tempted to personally come after her, for she was that deadly. She never forgot that laughter, even long after the Joker had died.</p>
+<p>She killed a lot of them, so much so that even the Dark Empress was tempted to personally come after her, since she was that deadly. She never forgot that laughter, even long after the Joker had died.</p>
 <p>Today, she heard it again, and the same sight she saw the last time was repeating itself, only this time, Lani was an Immortal Lord.</p>
 <p>This meant she could be killed, and since the Dark Empress had already been caught off guard, killing some of the brat’s allies who her three guards were now locked in battle with would feel good.</p>
 <p>Surely, that would make her very happy.</p>

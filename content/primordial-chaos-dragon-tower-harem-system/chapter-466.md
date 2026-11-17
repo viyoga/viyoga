@@ -54,6 +54,6 @@ chapter = 466
 <p>"Go ahead, my love, take your time."</p>
 <p>Vexthra gently pushed Kent to rest on his back, making his still-hard dick point at the ceiling.</p>
 <p>Vexthra smiled as she took it into her mouth again, ensuring it was lubricated with her saliva before rising and positioning herself well.</p>
-<p>It was safe to say she knew what she was doing, for she had extensively researched it.</p>
+<p>It was safe to say she knew what she was doing, as she had extensively researched it.</p>
 <p>Now, taking the dick with one hand, she positioned her butt at the tip and then gently sat on it, making the divine rod start spreading her tiny entrance.</p>
 <p>Her body shuddered when the tip entered. This, of course, brought a smile to her face, making the goddess slowly sit on the dick...</p>

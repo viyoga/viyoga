@@ -17,7 +17,7 @@ chapter = 1200
 <p>Even Uncle Drew admires Lord Genesis. He was born three eras after the legendary Lord Genesis walked the face of the universe.</p>
 <p>As a swordsman, he knows his master’s past incarnation laid the foundation that every swordsman is walking on now. He had studied him, and thanks to him, he became a legendary warrior, creating his own legend.</p>
 <p>However, that wasn’t enough either. He was also the Faceless Assassin—the most elusive killer to ever appear in this universe.</p>
-<p>They know of him, and they adore his methods, for he was the only assassin nobody saw coming. He perfectly portrayed the true essence of an assassin.</p>
+<p>They know of him, and they adore his methods, because he was the only assassin nobody saw coming. He perfectly portrayed the true essence of an assassin.</p>
 <p>But to hit them with the hardest reveal of all, the one who made it possible for these legendary figures to once grace the universe with their majestic selves was actually the most wanted person in the universe at the moment.</p>
 <p>The seven Demigods came from the land of the living and had heard of Kent Madson. Even down in hell, his name had reached many ears.</p>
 <p>So this reveal took them by surprise.</p>

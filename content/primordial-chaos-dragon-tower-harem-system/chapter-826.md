@@ -8,7 +8,7 @@ chapter = 826
 <p>When word spread of the duel, every disciple, regardless of what they were doing, abandoned everything and rushed to the outer section where the selection would be happening.</p>
 <p>It took just an hour, but the queue extended several miles. Every last disciple in the inner and outer sections of the sect wants to participate.</p>
 <p>Of course, knowing one doesn’t have to defeat Kent but merely has to hold on till five seconds run out was the reason all of them wanted to join the competition.</p>
-<p>Of course, even if there was no such stake to the duel, they would still want to participate, for they wouldn’t let a chance to earn a million Supreme Points go to waste.</p>
+<p>Of course, even if there was no such stake to the duel, they would still want to participate; after all, they wouldn’t let a chance to earn a million Supreme Points go to waste.</p>
 <p>So they came and they joined the line.</p>
 <p>---</p>
 <p>It’s already been three days since Kent and his pals arrived in the sect, and so far, they’ve managed to learn quite a lot about the sect.</p>
@@ -22,7 +22,7 @@ chapter = 826
 <p>Many who seek to gain enlightenment come there to watch, and he knew he would frequent those places too when he was done handling his business.</p>
 <p>Aside from that, they explored the Supreme Market, where disciples who have items to sell or wish to buy go to conduct their transactions.</p>
 <p>Aside from that, there are also the official stores of the sect where even more treasures are sold.</p>
-<p>Of course, spirit stones don’t work there, and while Kent would love to use the tower to top up his own account, he refrains from doing that, for he wants to work for his keep.</p>
+<p>Of course, spirit stones don’t work there, and while Kent would love to use the tower to top up his own account, he refrains from doing that, as he wants to work for his keep.</p>
 <p>In all, they are impressed with what they saw. However, they knew there was more to be had in the inner sect if the outer sect was already this impressive.</p>
 <p>This means they all want to try their best and become one of the 100 disciples who will face Kent. In fact, most had already joined. The only ones left to join the queue were the 11 that made it to the 5th level of the Flame Tower.</p>
 <p>Over the past three days, Kent helped them to the best of his ability, or more accurately, within their capabilities. He has more treasures, but they can’t handle it yet.</p>
@@ -62,6 +62,6 @@ chapter = 826
 <p>Even Kent was taken aback when they came to him smiling and cheering.</p>
 <p>"You guys really impressed me. I know you 11 can make it thanks to your superior skills, but you seven truly made me proud.</p>
 <p>I will reward you all after kicking your butts tomorrow."</p>
-<p>They laughed, knowing winning was impossible. Uncle Drake had already told them to look up to Kent, for he is someone terrifyingly strong.</p>
+<p>They laughed, knowing winning was impossible. Uncle Drake had already told them to look up to Kent, because he is someone terrifyingly strong.</p>
 <p>So had it not been for the chance to become inner disciples, none of them would have dared challenge him.</p>
 <p>Tomorrow, they knew it would be a one-sided beatdown, but still, they looked forward to it.</p>

@@ -59,7 +59,7 @@ chapter = 1491
 <p>Half an hour later, they arrived 20,000 km from the statue.</p>
 <p>To everyone’s shock, what Sylara initially thought was a statue was actually a person wielding a large broadsword.</p>
 <p>He stood 200 meters tall, muscles built to punch like a titan. His skin was made of stone, with most of it appearing metallic. They knew the monster standing before them, though only at the peak of the True Immortal stage, was no simple fiend.</p>
-<p>Even Vexthra panicked, for she knew the titan of a man standing and looking directly at them was bad news.</p>
+<p>Even Vexthra panicked, because she knew the titan of a man standing and looking directly at them was bad news.</p>
 <p>"That is one large bastard," Kaizo, who prided himself on being a brute, knew he was nothing compared to this monster of a man.</p>
 <p>"Kaizo, how large can you grow after using your transformation innate ability?" Vexthra asked, already formulating a plan in her mind.</p>
 <p>"For now, I can grow to 50 meters. However, if I use my bloodline, I can reach 100 meters for 30 minutes before I run out of energy."</p>

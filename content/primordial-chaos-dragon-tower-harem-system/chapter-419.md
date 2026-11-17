@@ -28,7 +28,7 @@ chapter = 419
 <p>⟪Don’t get me wrong, Master. Kaizo and the others are undead, but they have yet to awaken their bloodlines, which means they haven’t awakened their True Names.</p>
 <p>Undead go through a different evolutionary path. This means that the moment they awaken their bloodlines and True Names, they will truly start walking the path of the undead.</p>
 <p>You may not be aware of this, but undead are beings that can grow endlessly since killing them is almost impossible.</p>
-<p>However, because of the bloodline and True Name restrictions placed on them, they can’t reach the Immortal stage. They cannot surpass the Life stage, for they are dead.</p>
+<p>However, because of the bloodline and True Name restrictions placed on them, they can’t reach the Immortal stage. They cannot surpass the Life stage, because they are dead.</p>
 <p>Dead beings can’t comprehend the Law of Life before becoming immortals.</p>
 <p>The highest they can attain is the Empyrean stage.⟫</p>
 <p>"But with them having a True Name, that can be solved, right?"</p>

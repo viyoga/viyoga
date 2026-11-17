@@ -40,7 +40,7 @@ chapter = 360
 <p>’Four forms, huh? Just what bloodline has she awakened?’ He scanned her and focused solely on her bloodline. When he saw it, a part of her smiled happily, as if she had met an old friend.</p>
 <p>⟪Bloodline: Primordial Frostfire Dragon Lineage (25%)⟫</p>
 <p>→ This bloodline descends from a legendary dragon known as Vaeltharion, the Twin-Breath Tyrant, who wielded both Primordial Frost and Eternal Flame—a nearly impossible combination.</p>
-<p>→ The one who inherits this bloodline shall be called a Frostfire Dracovian, for she will have command over both ice and fire.</p>
+<p>→ The one who inherits this bloodline shall be called a Frostfire Dracovian, because she will have command over both ice and fire.</p>
 <p>’Just 25%, and she can already have a full-on dragon form. I guess the moment I awaken my bloodline to 10%, I can also rise to a similar stage or close.’</p>
 <p>Kent smiled.</p>
 <p>Lilian stayed in the air for a few minutes before descending with an air of grace. She had taken on the form of Ice, meaning unlike Elsa, who can only maintain her sentinel form for a few hours a day, she can do so all day.</p>

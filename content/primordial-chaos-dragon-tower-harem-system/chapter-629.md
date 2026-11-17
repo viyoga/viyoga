@@ -52,5 +52,5 @@ chapter = 629
 <p>"First, I will review Jest’s memories, all three of them, and then move on to the Chaos Dragons’ memories, and then the Faceless Assassin.</p>
 <p>Afterward, I will handle the Soul Path before ending with Alchemy. By then, my wives will be out of seclusion, and the legion will become stronger.</p>
 <p>They can even start handling the dungeon in Dusk while I find my way into the Supreme Immortal Sect and challenge the Pill Princess.</p>
-<p>I only hope she lives up to the hype, for I won’t be coming out a wannabe Alchemist. It is time for the Perfect Alchemist to rise and dominate the entire universe."</p>
+<p>I only hope she lives up to the hype, since I won’t be coming out a wannabe Alchemist. It is time for the Perfect Alchemist to rise and dominate the entire universe."</p>
 <p>Kent sighed and retrieved the first memory key...</p>

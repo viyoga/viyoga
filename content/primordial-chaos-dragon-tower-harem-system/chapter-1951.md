@@ -15,7 +15,7 @@ chapter = 1951
 <p>The ending was as she had wanted and expected.</p>
 <p>Now, they were making merry.</p>
 <p>The Midnight Shadows were also part of this celebration. Kent had asked them to wait until he returned, so they had been exploring the tower for the past 120 days.</p>
-<p>They loved it here, and since nobody was kicking them out, they might as well stay and enjoy themselves, for they had earned it.</p>
+<p>They loved it here, and since nobody was kicking them out, they might as well stay and enjoy themselves, because they had earned it.</p>
 <p>Even Emmet was having a good time.</p>
 <p>After spending four months around Kent’s wives, she had started to adapt to her new life.</p>
 <p>She still had her memories and free will, but the ladies, just as they had done with Estella, the Second Flame Matriarch, made her see something worth living for inside the tower.</p>

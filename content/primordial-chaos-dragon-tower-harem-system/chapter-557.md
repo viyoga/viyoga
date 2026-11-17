@@ -36,7 +36,7 @@ chapter = 557
 <p>The dragon man smiled, hearing what Kent said.</p>
 <p>"You are a Demon Lord," Kent said, staring at the third dungeon boss.</p>
 <p>"I am. You can call me Vorthar, the Warbringer."</p>
-<p>"I do not doubt that, for I know what Demon Lords can do," Kent said with a smile.</p>
+<p>"I do not doubt that, because I know what Demon Lords can do," Kent said with a smile.</p>
 <p>From Jest’s memories, he knew who the Demon Lords were and the role they played in the demon race. They were directly beneath the Demon Kings, who were beneath the Demon Emperor, who was in turn beneath the Demon Monarch.</p>
 <p>However, despite being ranked beneath the Demon Kings, Demon Lords were some of the most dangerous demons one could ever encounter.</p>
 <p>When Jest went on his journey to see if he could find a path higher than the Sword King stage, he nearly died by the sword of a Demon Lord.</p>

@@ -13,7 +13,7 @@ chapter = 1207
 <p>So, as a good and loving wife, Vexthra only wanted to protect her man. She wants to make sure her sister, whom she has yet to meet, is rescued and brought home safely.</p>
 <p>Of course, while Kent isn’t aware, the mission he had embarked on is one that struck close to home for Vexthra. It reminded her of someone, who is the key reason why she wanted Kent to help her kill the god of Alchemy.</p>
 <p>In truth, she wanted many people dead, even celestials. However, the Alchemy god is just the first domino in a long line of dominoes.</p>
-<p>This is why she wants this mission completed on good terms, for she genuinely wanted to meet this Elina.</p>
+<p>This is why she wants this mission completed on good terms, because she genuinely wanted to meet this Elina.</p>
 <p>Perhaps this is destiny playing her game, but the Vexthra that Kent met when she appeared in the realm of Hatred and Resentment was actually grieving.</p>
 <p>She only became more normal when she met Kent’s wives and started interacting with the others in the tower.</p>
 <p>She had yet to tell Kent why she wanted the Alchemy god dead. Of course, Kent didn’t ask her why when she gave him that mission, and she is grateful for that.</p>

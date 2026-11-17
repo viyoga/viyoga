@@ -58,7 +58,7 @@ chapter = 454
 <p>He channeled his energy into the item, causing it to fly up. The moment it entered the clouds, a powerful energy burst out from it.</p>
 <p>Then, from the sky, small stars started raining down on everyone. It took just a few seconds for the stars to land on everyone, even those hidden.</p>
 <p>A few tried to dodge or destroy them, but they couldn’t.</p>
-<p>"I prepared well for this moment, for I will be leaving when all of you are dead," Kent said as his sword appeared in his grip.</p>
+<p>"I prepared well for this moment, as I will be leaving when all of you are dead," Kent said as his sword appeared in his grip.</p>
 <p>"This is why you should try to kill me, because until I am dead, nobody can leave this formation." Kent laughed as he floated up.</p>
 <p>"Ladies and gentlemen, welcome to No Man’s Land." He snapped his fingers, and the terrain within a ten-mile radius changed into a battleground, pulling everyone in.</p>
 <p>At the same time, space cracked, and Verydris, alongside thirteen Metal Battle Dolls, appeared. Kent bought the rest.</p>

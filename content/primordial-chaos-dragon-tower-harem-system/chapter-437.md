@@ -32,7 +32,7 @@ chapter = 437
 <p>"Also, send word to the Evil Sects. I learned that their previous sect master is out for blood. Let them know that in four days’ time, the brat who caused them to close their doors will be trapped in Vastport City."</p>
 <p>"Okay, Leader."</p>
 <p>The seven figures melded into the shadows and left the hall. The Sovereign let out a heavy sigh and departed, leaving the hall empty.</p>
-<p>Kent knew nothing of this, for he was not aware that a dangerous organization with roots worldwide now knew of his existence and the threat he posed to them.</p>
+<p>Kent knew nothing of this, since he was not aware that a dangerous organization with roots worldwide now knew of his existence and the threat he posed to them.</p>
 <p>However, unlike the Dark Devil Church, this organization ran much deeper, so it wasn’t hard to determine who could threaten them.</p>
 <p>The Hand was now after Kent, and they were using the Middle Finger Assassin Guild as their weapon. Kent would have to be extra careful this time.</p>
 <p>Meanwhile, Kent arrived at the hotel with Nara and Lady Lani, who remained quiet throughout the journey.</p>

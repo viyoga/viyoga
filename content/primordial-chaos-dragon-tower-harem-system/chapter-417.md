@@ -21,7 +21,7 @@ chapter = 417
 <p>"It’s normal, Big Sister. The first time with him is magical because that is the day you’ll want to remember forever."</p>
 <p>"Why are you telling me this?" Nara asked.</p>
 <p>"Because we’ve decided to let only you accompany Kent to Vastport City for the Pill Master competition.</p>
-<p>That means you’ll have an entire week with him, for he will be banned from entering the tower until after the competition.</p>
+<p>That means you’ll have an entire week with him, since he will be banned from entering the tower until after the competition.</p>
 <p>Now, we’re all women here, and we know you love him. No need to lie to yourself about that. So use this time to get to know him, and if you’re lucky, you might even get to taste the dragon juice."</p>
 <p>Selene giggled.</p>
 <p>"So don’t be jealous of her. When the time comes, you’ll know what to do."</p>
@@ -38,7 +38,7 @@ chapter = 417
 <p>He let out his entire load in her before pulling out and collapsing onto the soaked bed. Camilla had climaxed countless times, leaving the sheets drenched.</p>
 <p>Now, she was completely spent, panting for breath as she lay beside Kent, smiling. She had indeed come a long way.</p>
 <p>She was now Kent’s tenth wife, and after going at it all night and into the morning, she had helped her man push to the 8th level of the Root Great Sage realm.</p>
-<p>This made her proud, for she knew their man would rely on them for his strength. But even without them, Kent possessed a monstrous cultivation technique that allowed him to grow at an astonishing rate.</p>
+<p>This made her proud, as she knew their man would rely on them for his strength. But even without them, Kent possessed a monstrous cultivation technique that allowed him to grow at an astonishing rate.</p>
 <p>Of course, they wouldn’t let him handle everything alone. He could focus on his swordsmanship and alchemy while they took care of his cultivation.</p>
 <p>"You are now ready to go out without making us worry about your safety," Camilla said with a proud smile as she crawled into Kent’s arms.</p>
 <p>"It’s all thanks to your effort." Kent smiled, planting a gentle kiss on her forehead. "It’s good you know that."</p>

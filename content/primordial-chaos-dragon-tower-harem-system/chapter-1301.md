@@ -45,7 +45,7 @@ chapter = 1301
 <p>Of course, if you can leave a marker here, then I would enter the tower and handle that and return to take care of the Void Temple."</p>
 <p>[Unfortunately, with the seal in place and the corruption in the air, I can’t do that. The master would have to depend on the passing of time outside, this time around.]</p>
 <p>"Then I will focus on the Blood Essence. I want to be able to run circles around the temple masters. Back during the Primordial Era, Chaos always had the upper hand. That was why they hated him the most.</p>
-<p>This time around, I want them to do more than hate me. I want them to fear me, for I will be their worst nightmare."</p>
+<p>This time around, I want them to do more than hate me. I want them to fear me, because I will be their worst nightmare."</p>
 <p>Kent snapped his finger, and ice burst from the ground, creating a cave-like fortress for him.</p>
 <p>"Gaap, stay on the outside just in case we miss a target." Gaap transformed into his demon form and gave Kent a nod. He moved out and sat calmly atop the forest, his eyes closed, resentment emanating from him.</p>
 <p>Back inside the forest, Kent waved his hand, and the air turned golden. Millions of blood essence appeared, filling the ice fortress with the aura of blood.</p>

@@ -32,7 +32,7 @@ chapter = 914
 <p>However, all this was within Kaizo’s calculations.</p>
 <p>"Camilla, do it again and make it go boom this time."</p>
 <p>Camilla nodded and raised her spear up. The lady who had manifested behind her was gone now. However, the moment she raised her spear, an oppressive force came down from the clouds, forcing the Forsaken warriors to turn pale.</p>
-<p>Camilla also turned pale, for she had unleashed one of her three trump cards, draining a large chunk of her energy.</p>
+<p>Camilla also turned pale; after all, she had unleashed one of her three trump cards, draining a large chunk of her energy.</p>
 <p>Lightning flashed across the sky as a large blue ring, and a giant hand inside appeared slowly. At one glance, one might think an immortal had arrived on the battlefield, for the aura coming from it was too great.</p>
 <p>"Forsaken Formation!" The Spirit Lords immediately formed hand seals and raised their fingers up. However, the formation they manifested crashed the next second when the ring started spinning.</p>
 <p>"Move back, everyone," Kaizo commanded, and all warriors, including the vampires, moved back.</p>
@@ -47,7 +47,7 @@ chapter = 914
 <p>Ingrid floated just 300 meters away from the Forsaken warriors and clapped her palms together. Then her eyes turned dark, almost as if she could see through the void.</p>
 <p>Naturally, she could see through the void.</p>
 <p>She slowly began to open her palm, causing a small black dot to appear between the palms that were opening.</p>
-<p>"Are we safe?" Kaizo asked, looking at the Forsaken warriors who were charging toward Ingrid. He didn’t panic, for he knew this was exactly what Ingrid was after.</p>
+<p>"Are we safe?" Kaizo asked, looking at the Forsaken warriors who were charging toward Ingrid. He didn’t panic. After all, he knew this was exactly what Ingrid was after.</p>
 <p>Instinctively, he took a few steps back just in case.</p>
 <p>One of the Spirit Lords got close and stabbed his sword forward. However, just when his sword’s cold edge could touch Ingrid, she vanished, and in her place, the black dot she was holding appeared.</p>
 <p>Then a voice came from the void, filling the entire space...</p>

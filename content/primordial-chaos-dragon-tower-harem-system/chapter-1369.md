@@ -50,6 +50,6 @@ chapter = 1369
 <p>"Those hateful bastards. If they dare try that nonsense with me this time around, I will kill every last one of them and make sure their bodies are used to create more capable warriors."</p>
 <p>Kent grabbed hold of the last memory key for Chaos and took a deep breath. He had just seen 380 years of Chaos’ life of pain and bloodshed.</p>
 <p>Now, he wanted to see how he survived the ambush by 15 demigods while he was just an Immortal King.</p>
-<p>He had no idea he would be ambushed, for he knew the location he was at wasn’t a place the Forsaken race would dare come.</p>
+<p>He had no idea he would be ambushed; after all, he knew the location he was at wasn’t a place the Forsaken race would dare come.</p>
 <p>However, they did, which now that he thinks about it sounds a bit fishy. So he wanted to find out more.</p>
 <p>He pressed the memory key against his forehead, and his eyes rolled back...</p>

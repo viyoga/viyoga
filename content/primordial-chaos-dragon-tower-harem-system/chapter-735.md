@@ -33,7 +33,7 @@ chapter = 735
 <p>"You’ve done nothing bad, Kent. In battle, being able to learn your opponent’s moves is half the battle won. So, having the capabilities to copy the skills of your opponents in this contest shows you are not someone to underestimate."</p>
 <p>She turned to the contestants. "This is a lesson to you all. Sometimes, you will meet people like him. People who don’t follow the same rules as we do. They are monsters beyond our comprehension.</p>
 <p>People who will do things that don’t align with common sense—things like copying your skills and using them more effectively than you.</p>
-<p>However, instead of feeling offended, you should instead grab this opportunity and learn from him, for you never know when he will be leaving." The queen smiled.</p>
+<p>However, instead of feeling offended, you should instead grab this opportunity and learn from him, because you never know when he will be leaving." The queen smiled.</p>
 <p>"In other words, all of you should show him your skills in the contest and let him help you gain a better understanding of them. Don’t waste this opportunity.</p>
 <p>And that is your punishment for stealing other people’s skills, Kent Madson." Kent smiled, hearing how shameless the queen sounded.</p>
 <p>She never failed to secure an opportunity for her people.</p>

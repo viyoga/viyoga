@@ -22,7 +22,7 @@ chapter = 947
 <p>"What do you expect? The saying that the arrogant always have someone more arrogant than they are is true. Today, this young man has proved that saying."</p>
 <p>"He is just sitting there like he wasn’t concerned at all."</p>
 <p>"Maybe he has given up."</p>
-<p>More murmurs began to spread as everyone shared their opinions about Kent’s character. None was even focused on the Pill Saint, for they had already seen what she could do.</p>
+<p>More murmurs began to spread as everyone shared their opinions about Kent’s character. None was even focused on the Pill Saint, as they had already seen what she could do.</p>
 <p>Kent, however, is a newcomer with a big mouth and a rude character. They wanted to see if his skills matched his mouth.</p>
 <p>---</p>
 <p>On the last floor of the Pagoda, three people, each with a cultivation base of a Peak Heavenly Ascension and soul power that could nullify the effect of even a Tier 18 Soul Extinguishing Pill, sat with a calm look on their faces.</p>

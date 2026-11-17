@@ -17,7 +17,7 @@ chapter = 342
 <p>"Mmmmhh."</p>
 <p>Kent started thrusting, and her moans were the only thing filling the room. The High Mage was moaning, and the ladies around were getting their blood pumping.</p>
 <p>Kent was thrusting, and Lilian was moaning like crazy.</p>
-<p>⟪I like this. We both should cherish this, for it will never happen anywhere except with Kent,⟫ Neomi said, using the connection between them.</p>
+<p>⟪I like this. We both should cherish this, since it will never happen anywhere except with Kent,⟫ Neomi said, using the connection between them.</p>
 <p>⟪Indeed. When I saw his lifeless body, my heart nearly gave out. I know I’ve been stubborn when he made his desires known to me. I even nearly hurt him back then.</p>
 <p>But now, being here with you all, I see my past self was just being an idiot. I would have regretted it if I had made a different decision back then,⟫ Selene added.</p>
 <p>⟪Same here. I never planned on sleeping with my daughter’s husband, but it happened, and here I am, happy and a sister to all of you.</p>
@@ -36,7 +36,7 @@ chapter = 342
 <p>She closed her eyes with a blissful expression on her face as she passed out. She would wake up for more later.</p>
 <p>Elsa cleaned the dick and then sat on it, starting to jump up and down. His dick slid in and out of her, making the ladies drool.</p>
 <p>Even Mara, Camilla, and Val were drooling over that dick.</p>
-<p>But they planned on taking that step after the two ladies were rescued, so they could only wait and wait, for they would ensure the brat felt everything they were feeling now.</p>
+<p>But they planned on taking that step after the two ladies were rescued, so they could only wait and wait; after all, they would ensure the brat felt everything they were feeling now.</p>
 <p>Elsa did her best, lasting as long as she could, but the current Kent was much more aggressive since they all wanted to pass out.</p>
 <p>That fantasy required the dragon to be a dragon, so he was fucking them like a dragon, and that alone made them very happy.</p>
 <p>After Elsa passed out, Ingrid went for her turn.</p>
@@ -46,8 +46,8 @@ chapter = 342
 <p>By the time they were done, Lilian woke up and came for her second round. This continued for a couple of days, with Mara, Camilla, and Val now drinking his dragon juice.</p>
 <p>They didn’t even try to protest their current status; instead, they went all in, and their rewards were more than they asked for.</p>
 <p>By the time a week passed, the ladies had each levelled up three times, with Kent himself finally stepping into the rank of a Root Great Sage.</p>
-<p>This made him want to fight the bat again, for he knew this time he would be able to get his blood and further injure him without fear of being hurt as he did before.</p>
-<p>As for the reserve stat points now in the thousands, he knew they would come in handy, for he knew the dangers surrounding him were far from over.</p>
+<p>This made him want to fight the bat again, because he knew this time he would be able to get his blood and further injure him without fear of being hurt as he did before.</p>
+<p>As for the reserve stat points now in the thousands, he knew they would come in handy. After all, he knew the dangers surrounding him were far from over.</p>
 <p>But first, he would ensure the days they spent in each other’s arms were cherished. After a week, they took a break and went inside the Love Garden.</p>
 <p>Selene set a rule that all the ladies seconded.</p>
 <p>The rule was simple: inside the Harem Tower, none of them would wear any clothes. The place was a haven for them and their man, and she planned on making sure their man received all the love there.</p>

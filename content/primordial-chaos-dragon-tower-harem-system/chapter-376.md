@@ -18,10 +18,10 @@ chapter = 376
 <p>His legs were healed, his arm was restored, and even his eye was healed.</p>
 <p>However, the pain he was in was multiplied, and just from the moaning sound coming from his mouth, Kent could tell he was in pain—a very agonizing pain.</p>
 <p>But that pain wasn’t something Neomi cared about.</p>
-<p>In her Rakshasa form, she could go on for five hours. However, that form was for battles, for she is a war child. So, instead of tainting her image as a warrior, she changed from Rakshasa to Shara, the killer.</p>
+<p>In her Rakshasa form, she could go on for five hours. However, that form was for battles, since she is a war child. So, instead of tainting her image as a warrior, she changed from Rakshasa to Shara, the killer.</p>
 <p>Her armour shifted to dark red, her spear now exuded red blood energy, and the look in her eyes caused the Sect Master to shudder.</p>
 <p>Lilian was in her Ice elemental form, but the moment the healing spell took effect, she changed into her Fire elemental form.</p>
-<p>Kent warned her not to take her dragon form or demi-dragon form, for he knew he was being watched.</p>
+<p>Kent warned her not to take her dragon form or demi-dragon form, as he knew he was being watched.</p>
 <p>The tower had informed him Lady Vari, or as one would call her, Protector Vari, was around and watching everything.</p>
 <p>As for Ingrid, she was in her hybrid form, where she was both a Voidling and a human. Like Lilian, Kent told her not to take out her Void Hound.</p>
 <p>That will be exposing too much.</p>

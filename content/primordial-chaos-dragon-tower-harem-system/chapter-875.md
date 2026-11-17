@@ -15,7 +15,7 @@ chapter = 875
 <p>However, everything became worse seven days ago.</p>
 <p>Kent killed a certain Panther-type beast after a three-minute battle following the formation of his core. He didn’t use the Soul Universe in the battle, just his sword.</p>
 <p>However, when he was done killing the beast, he didn’t leave; instead, he used the beast’s blood to leave a provocative message for the wandering Demon swordsman.</p>
-<p>He wrote, "Well, well, well. Looks like the title, The Wandering Demon Swordsman, was all for nothing. The wandering part was on point, for you are indeed wandering aimlessly.</p>
+<p>He wrote, "Well, well, well. Looks like the title, The Wandering Demon Swordsman, was all for nothing. The wandering part was on point. After all, you are indeed wandering aimlessly.</p>
 <p>Not only are you clueless, the person you were after had long left this valley, but you foolishly think you have her in your grip.</p>
 <p>Let me tell you, Mr. Demon, you missed her by a whole month. So, instead of thinking you have what it takes to catch her and perhaps send her to your employer, here is your wake-up call.</p>
 <p>Of course, things wouldn’t have been worse, but all this happened because a mere kid chose to meddle in your business.</p>

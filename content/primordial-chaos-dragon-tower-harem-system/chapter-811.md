@@ -12,7 +12,7 @@ chapter = 811
 <p>When they appeared on the Flame Mountain, there were others there. Of course, most were new faces, mostly royals who had received an invitation to enter the sect.</p>
 <p>Of course, Kent could sense the stares from them, and judging by the ones he was receiving from the Crystal Dragon Prince and the Flame Dragon Princess, they weren’t happy he was taking all the spotlight from them.</p>
 <p>But who could blame them? If they were to learn 12 Divine grade techniques, perhaps they would also gain the same spotlight.</p>
-<p>Kent didn’t even bother with them, for he knew killing them would be as simple as waving his hand. Had it not been for his duel with the Pill Princess, he wouldn’t have wasted his time entering the sect.</p>
+<p>Kent didn’t even bother with them, since he knew killing them would be as simple as waving his hand. Had it not been for his duel with the Pill Princess, he wouldn’t have wasted his time entering the sect.</p>
 <p>Of course, he was now eager to see the strongest the medium world had to offer, and the only way to do that was to join a sect that could give him that platform.</p>
 <p>These children, thinking they were the greatest under the heavens, were merely swimming in ponds while he had already dived into the surging seas.</p>
 <p>They settled down and began to wait for the representatives from the supreme Immortal sect.</p>
@@ -50,7 +50,7 @@ chapter = 811
 <p>Of course, he was rocking that dragon nonchalance like a flag. Kent turned to Elder Lance, who didn’t know, or more like wasn’t sure, what was happening here.</p>
 <p>One minute, he was telling his troubles to Uncle Drake, and now, he was asked to say the same to a mere kid he could swipe away with the back of his hand.</p>
 <p>This made him wonder if Uncle Drake was merely playing a prank on him.</p>
-<p>"If you want to save your people, then you will talk to him. Because today, whether you come clean or not, every last kid going to the sect will reach the sect, for he alone is enough to ensure their safety.</p>
+<p>"If you want to save your people, then you will talk to him. Because today, whether you come clean or not, every last kid going to the sect will reach the sect; after all, he alone is enough to ensure their safety.</p>
 <p>I can save the kids, but I can’t help your people. He, on the other hand, can do both, so talk to him."</p>
 <p>Kent raised his brow and looked at the elder. "Let me guess, somebody wants you to kill us, and to ensure you do it, they are holding your people hostage."</p>
 <p>Elder Lance hesitated but nodded. "It’s the Outer Area Senior Elders. They want you all dead, for if you get to the sect, it will be revealed the corruption ring they’ve been running all these years."</p>

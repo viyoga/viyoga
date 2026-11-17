@@ -27,7 +27,7 @@ chapter = 1734
 <p>It was well known that the only way to get on the Ice Dao Tablet or any elemental Dao Tablet was to comprehend a True Name of the element.</p>
 <p>In all of the universe’s history, only 24 Ice cultivators had managed to do that, and all of them were legendary figures, so she couldn’t get to them easily.</p>
 <p>However, Kent was within her realm, meaning getting to him was as simple as sending people to fetch him.</p>
-<p>She needed his help in creating a masterpiece, one she intended to leave as her mark in the Immortal World before ascending. She needed his Ice element, one that possessed a True Name, for that masterpiece.</p>
+<p>She needed his help in creating a masterpiece, one she intended to leave as her mark in the Immortal World before ascending. She needed his Ice element, one that possessed a True Name. After all, that masterpiece.</p>
 <p>If she had known the person she was competing against was the same person whose help she needed, she wouldn’t have pressed on like that.</p>
 <p>She looked at her palm and was about to slap herself when Kent spoke again...</p>
 <p>"Sorry for pressing on, Senior, but I really needed Heaven’s Breath Crystal. However, learning that you are a blacksmith, I am willing to give you a chunk. I hope that makes up for my unruly behaviour."</p>

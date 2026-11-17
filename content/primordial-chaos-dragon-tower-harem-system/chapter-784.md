@@ -22,7 +22,7 @@ chapter = 784
 <p>Now, if her attack doesn’t take down the wall, I will follow up with my attack and hope that does the job. Now, should that one too fail, Neomi, you will go.</p>
 <p>However, I believe we can handle it; even Camilla is enough," Kent smiled, knowing full well things can go both ways.</p>
 <p>"Now, should the wall come down, there are 100,001 bloodthirsty warriors who would surely want our heads and drink our blood.</p>
-<p>You don’t have to think about what to do, for the odds are already against us, so go all out. Please don’t hold back, for they surely wouldn’t hold back against us."</p>
+<p>You don’t have to think about what to do, for the odds are already against us, so go all out. Please don’t hold back, since they surely wouldn’t hold back against us."</p>
 <p>"Just get the wall down and the rest will be handled," Kaizo said, already itching to get into battle.</p>
 <p>Kent looked at Camilla. "Are you up for it?"</p>
 <p>She nodded. "Too bad I won’t be able to fight with you all after using my attack." She smiled, though the smile didn’t reach her eyes. It was plain as day she wanted to join the battle.</p>

@@ -19,7 +19,7 @@ chapter = 774
 <p>He was surrounded by death, but knowing he was protected from the heat while on the island, he chose to sleep. He sat down and lay his back on the ground, lifting his right leg to rest on his left knee.</p>
 <p>"Though this dream is not pleasant at all. Perhaps next time I should comprehend ice; I might just end up in a fortress of solitude where the air would be much more comforting."</p>
 <p>Kent closed his eyes and started to wait for when he would wake up from his dream.</p>
-<p>A few hours went by, but he was still there. However, Kent knew he wouldn’t be there for long, for he knew the moment the three days were over, the tower would wake him up.</p>
+<p>A few hours went by, but he was still there. However, Kent knew he wouldn’t be there for long, as he knew the moment the three days were over, the tower would wake him up.</p>
 <p>However, nothing prepared him for what happened three hours after he entered the weird realm.</p>
 <p>At first, he thought perhaps the sun was being covered by a cloud. However, after a few moments of thought, he realized there was no sun where he was. The lava pool lit the space.</p>
 <p>So then, why was a shield covering his face? That shouldn’t be possible.</p>
@@ -31,7 +31,7 @@ chapter = 774
 <p>However, the reason behind the strange looks from both of them was completely different.</p>
 <p>Kent was looking at the handsome redhead to see if his life was in danger. He felt the aura and knew feelings like that weren’t normal.</p>
 <p>There had to be a reason.</p>
-<p>Of course, that was Kent’s thought, for he hadn’t felt fear, not even once, from the very moment he was sent to this world.</p>
+<p>Of course, that was Kent’s thought, because he hadn’t felt fear, not even once, from the very moment he was sent to this world.</p>
 <p>The only time he could have felt fear was when he, Kaizo, Veydris, and Sylara poisoned the Tyrant King in Fedora.</p>
 <p>But even back then, instead of fear, he felt the rush to put his life in danger and dance on the edge of life and death.</p>
 <p>However, today he felt genuine fear. That was immediately translated into hostile intent, and for that, Kent assumed the handsome redhead demigod was out for blood.</p>
@@ -54,6 +54,6 @@ chapter = 774
 <p>He only said what he meant and believed in it. That is the spirit of the Chaos Dragon.</p>
 <p>The end game was how he wanted it to be, and now, he was faced with one roadblock, and the only thing he could think of was to brag.</p>
 <p>’That is a demigod, but I am the Chaos Dragon... my blood is thicker than his.’</p>
-<p>"Pay attention, Mr. Demigod, for I will not repeat myself."A grin appeared on Kent’s face. "You are honored to be in the presence of the undefeated, the most handsome, and the sane one.</p>
+<p>"Pay attention, Mr. Demigod, since I will not repeat myself."A grin appeared on Kent’s face. "You are honored to be in the presence of the undefeated, the most handsome, and the sane one.</p>
 <p>I go by many names. They referred to my great self in my titles and described in my tonations. I dont sing my praises, but you can call me the Primordial Chaos Dragon."</p>
 <p>*Rumbled*</p>

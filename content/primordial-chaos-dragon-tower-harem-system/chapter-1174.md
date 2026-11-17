@@ -50,7 +50,7 @@ chapter = 1174
 <p>An evil smile then crossed Selene’s face, prompting her sisters to welcome the real Selene back...</p>
 <p>"Also, his dick is rather perfect, and damn, the dragon juice is natural and extremely sweet, so make the right decision, or else you will miss out on all the amazing orgies we will have in the future."</p>
 <p>All the sympathy her sisters felt for her was wiped away by her shameless comment.</p>
-<p>They could only shake their heads and hope she would change one day. Naturally, they knew she would never change, for this is who she is, and so they could only accept her as she was.</p>
+<p>They could only shake their heads and hope she would change one day. Naturally, they knew she would never change; after all, this is who she is, and so they could only accept her as she was.</p>
 <p>However, she seemed to have said what the ladies wanted to hear.</p>
 <p>They all seemed to have made their decisions... even Lady Liora.</p>
 <p>The ladies smiled and gave Selene a thumbs-up while Kent gave the mental command to the Tower to add the three ladies to the harem.</p>

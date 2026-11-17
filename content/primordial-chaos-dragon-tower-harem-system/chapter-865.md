@@ -6,7 +6,7 @@ chapter = 865
 +++
 
 <p>"Hahahahaha... Finally, after waiting for so long, you have arrived."</p>
-<p>Kent felt a chill run down his back when he heard the laughter. Instinctively, he took a few steps back, but it was futile, for he was standing in a pool of blood with nothing but blood spreading far and wide.</p>
+<p>Kent felt a chill run down his back when he heard the laughter. Instinctively, he took a few steps back, but it was futile, since he was standing in a pool of blood with nothing but blood spreading far and wide.</p>
 <p>"Who is there?" Kent asked, looking around, his instinct screaming at him to run. However, all he could see was a sea of blood.</p>
 <p>There was nowhere to run, and he knew that.</p>
 <p>So he was left with one desperate option if it came down to it — to face whatever had pulled him into this godforsaken realm. Kent was ready to battle, and so he prepared himself.</p>

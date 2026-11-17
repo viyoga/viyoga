@@ -46,11 +46,11 @@ chapter = 772
 <p>So they knew that getting to know Kent now meant that if he were to gain strength one day, he could help them acquire at least one ascension platform.</p>
 <p>They were hopeful and knew things would work out as long as they stayed on Kent’s good side.</p>
 <p>As for the dwarves, they were pleased to see their princess had already mastered two mythic-grade techniques.</p>
-<p>They never expected her to master two mythic-grade techniques that fast, but they were aware she intended to climb to the 4th level, for she had trained for it.</p>
+<p>They never expected her to master two mythic-grade techniques that fast, but they were aware she intended to climb to the 4th level; after all, she had trained for it.</p>
 <p>Now, seeing her succeed was all they could have asked for. They were happy, especially her father, who couldn’t stop smiling.</p>
 <p>The beasts were also hopeful that their people would be able to make them proud. Some had already shown promising results, and that was all they could ask for.</p>
 <p>Their true geniuses had already received invites from the sect and would be taking the exams in a week, so seeing more join the roster was already enough for them.</p>
 <p>More names were added, and by the time the day ended, the arrangement started to shift even more.</p>
-<p>Elder Lance was quiet the entire time, for he didn’t understand how any of this was possible. He had seen geniuses in the sect, but this was his first time seeing something this bizarre.</p>
+<p>Elder Lance was quiet the entire time, as he didn’t understand how any of this was possible. He had seen geniuses in the sect, but this was his first time seeing something this bizarre.</p>
 <p>"Elder Lance, what should we do?" the male disciple behind him asked, already knowing what kind of chaos this would cause in the sect when news broke out.</p>
 <p>"We can watch now and report everything to the supreme elders later. I am sure they will know what to do. Until then, not a word to anyone when we go back."</p>

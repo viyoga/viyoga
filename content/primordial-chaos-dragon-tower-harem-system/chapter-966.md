@@ -28,7 +28,7 @@ chapter = 966
 <p>The Nine Flames of Nirvana that Kent used to create his body when he attained Nirvana through body cultivation all had unique aspects.</p>
 <p>The green flame, which was recognised during the primordial era as the Verdant Flame of Renewal, had healing and rebirth aspects.</p>
 <p>It can mend wounds, purify toxins, and restore vitality. In fact, its essence was what the Phoenix race inherited, which granted them rebirth, allowing them to rise from the ashes and advance to higher stages.</p>
-<p>With the Verdant Flame of Renewal, Kent was basically immortal, for it would take more than killing him to actually kill him.</p>
+<p>With the Verdant Flame of Renewal, Kent was basically immortal. After all, it would take more than killing him to actually kill him.</p>
 <p>Of course, when he merely had the flames in his core, killing him was possible. However, after Nana helped him merge them with his Chaos Soul flame, his healing speed increased significantly.</p>
 <p>However, it wasn’t just him who could benefit. If he wanted, he could share it with others. He shared it with the lady who was currently healed of all external wounds and was undergoing internal healing.</p>
 <p>However, temporarily using the flame, even though he didn’t know it yet, a pair of scarlet eyes opened deep within the core region of the Serpent’s Coil Valley, looking for something they sensed yet couldn’t see.</p>

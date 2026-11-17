@@ -10,7 +10,7 @@ chapter = 870
 <p>Kent smiled. "It is the Vine Forest, so what do you expect?"</p>
 <p>Their next destination was the Vine Forest. However, they weren’t going to stay there. Nobody in their right mind would stay in such a place.</p>
 <p>They just want to kill the Vion Lion and be on their way.</p>
-<p>Of all the many beasts Kent planned on killing, all were below the Heavenly Ascension stage, for he knew that even using his soul universe, killing a Heavenly Ascension stage beast would not be easy.</p>
+<p>Of all the many beasts Kent planned on killing, all were below the Heavenly Ascension stage, since he knew that even using his soul universe, killing a Heavenly Ascension stage beast would not be easy.</p>
 <p>Of course, he planned on facing the Wandering Demon Swordsman, who was a Level 2 Heavenly Ascension stage expert.</p>
 <p>However, before that, he had planned to form his core and that involved killing Level 8 Spirit Lord beasts. Given that it was within his capabilities, he was determined to do so.</p>
 <p>"So what is our next move?" Adina asked, and Kent sat down.</p>

@@ -20,17 +20,17 @@ chapter = 782
 <p>Syrelith was on her deathbed at some point, only a few breaths away from succumbing to the curse that took hold of her race, when the spirit of the fallen Poison Mother Plant found her.</p>
 <p>It was as if they were meant to find each other.</p>
 <p>One of them was dying, and the other could not live without a vessel. However, if they were to come together and unite, their union would enable them to achieve their goals.</p>
-<p>Naturally, both sought the extinction of the Primordials, for they had lost everything because of them. So they agreed, and in the end, what none of them expected happened.</p>
+<p>Naturally, both sought the extinction of the Primordials, since they had lost everything because of them. So they agreed, and in the end, what none of them expected happened.</p>
 <p>The spirit of the Poison Mother Plant and a Fallen Fae turned out to be a recipe for disaster. Their union birthed the Duskwraith Nymph, first of her kind.</p>
 <p>The Duskwraith Nymph is deeply attuned to toxins, mists, and nocturnal energy, with a body that naturally produces potent poisons and pheromones.</p>
 <p>The loving and peaceful Fae girl became the incarnation of Poison</p>
 <p>That was when she rose to fame, rising with the poison oozing from her body. Her trail reeks of poisons, and her steps left marks of poison in her wake.</p>
 <p>Syrelith became the bane of the Primordials.</p>
 <p>She created poisons that even beings heralded as the strongest in the universe grew weary of. They were scared of her, reaching the point where they had to stop fighting among themselves and band together to face her.</p>
-<p>But they failed, for she had long transcended the limit of poison, rising to the stage that even being as strong as he, six True primordial couldn’t measure to.</p>
+<p>But they failed, because she had long transcended the limit of poison, rising to the stage that even being as strong as he, six True primordial couldn’t measure to.</p>
 <p>They lost the battle miserably, but it created a legacy, one that the universe needed at that moment.</p>
 <p>They called it the birth of the True Primordial Era, for when the last of them fell, the true era where the one called the Primordial Chaos Dragon rose—and unlike his predecessors, he walked the path of a True Primordial.</p>
-<p>Although the legends containing her history were lost and long forgotten, those who knew something about the one heralded as the Toxic Queen called her the mother of the Primordial Era, for it was through her that peace had returned to the universe.</p>
+<p>Although the legends containing her history were lost and long forgotten, those who knew something about the one heralded as the Toxic Queen called her the mother of the Primordial Era; after all, it was through her that peace had returned to the universe.</p>
 <p>Kent respects and adores all his wives.</p>
 <p>They are his reason for everything he does.</p>
 <p>They are the ones he will run to when in pain.</p>

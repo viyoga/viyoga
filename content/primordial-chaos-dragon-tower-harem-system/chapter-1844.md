@@ -22,7 +22,7 @@ chapter = 1844
 <p>The man who spoke was handsome, with golden hair and golden eyes. He seemed normal, almost native, yet if one looked closer, he appeared foreign.</p>
 <p>His words made everyone inside the Undead Train nod in silence.</p>
 <p>There is a legend that, many years ago, a single Necromancer, together with his sixty-six Undead Generals, each commanding no fewer than a hundred warriors, invaded the Undead Realm and came dangerously close to annihilating the Undead Monarch and his legacy.</p>
-<p>Of course, before that, he was someone many respected, for he had contributed immensely to the betterment of the Undead Realm.</p>
+<p>Of course, before that, he was someone many respected; after all, he had contributed immensely to the betterment of the Undead Realm.</p>
 <p>Nobody truly knew what had happened between him and the Undead Monarch, considering they had once been akin to best friends.</p>
 <p>But before he vanished, the two of them fought a great battle.</p>
 <p>"Wasn’t he the only person to have sixty-six Ancients under his command back then? I wonder where he is now, considering nobody knows his whereabouts or has seen him in the last billions of years... I think."</p>

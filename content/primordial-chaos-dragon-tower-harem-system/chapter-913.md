@@ -11,7 +11,7 @@ chapter = 913
 <p>This means she could use them flawlessly, and that was exactly what she did.</p>
 <p>In a battle that defied all odds, she knew they needed an army and, more importantly, they needed a disposable army that couldn’t disobey commands.</p>
 <p>The vampires who were planning on using the chaos of the battle to slip through the cracks and escape never had the chance.</p>
-<p>Zaila didn’t allow their plans to bear fruit, for she knocked them out before they could even think of it. Of course, she could have killed them using her strongest attack, which was a skill called ’Mind Bomb’.</p>
+<p>Zaila didn’t allow their plans to bear fruit, as she knocked them out before they could even think of it. Of course, she could have killed them using her strongest attack, which was a skill called ’Mind Bomb’.</p>
 <p>However, she merely put them to sleep and chose to weave their memories. Of course, she could have done that by merely controlling their minds.</p>
 <p>However, knowing that using a skill to control their minds would limit their combat prowess, Zaila took the long way, and that was the complete weaving of their memories.</p>
 <p>She first wiped their memories clean and then wove new ones for them. In this new reality, they were loyal warriors of General Zaila.</p>

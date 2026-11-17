@@ -36,7 +36,7 @@ chapter = 1374
 <p>Inside the cave, the green-haired lady also kept a close eye on the battle, just like every last disciple and elder who was watching with an unblinking expression.</p>
 <p>"Just who are you?" she muttered, her expression turning a bit dark. She suspected Jest had somehow managed to learn her sword realm after he clashed with one of her Nine Emotions Sword Realms, Seraphina.</p>
 <p>Initially, it was merely a suspicion, but after seeing what Jest had done with Adrian’s sword realm, she was inclined to believe he had copied it.</p>
-<p>Naturally, if he had indeed copied it, then he must die, for she could not have someone running with a loophole into her sword realm.</p>
+<p>Naturally, if he had indeed copied it, then he must die, as she could not have someone running with a loophole into her sword realm.</p>
 <p>However, now that she was seeing what Jest was capable of, she couldn’t help but see him as an asset. This put her in a complicated situation, but the more she saw him fight the Ten-Star Sword God, the more her interest in him grew.</p>
 <p>After four minutes, the Ten-Star Sword God finally saw that he would lose the battle. But even with this discovery, he didn’t seem to care about it.</p>
 <p>"It would be best if you use your sword realm," Jest said with a smug smile. Blood trickled down the corner of his mouth. The pressure he was under was just too much for him to handle.</p>
@@ -53,5 +53,5 @@ chapter = 1374
 <p>He confirmed that there are indeed 1.6 million moves, and I have mastered all of them. My mission is to rise to the peak and pave the way for all who have been stuck at the last stage."</p>
 <p>The Ten-Star Sword God narrowed his eyes and asked with a small smile, "You want to become a Sword Celestial?"</p>
 <p>"That is my main goal, yes."</p>
-<p>"Does that mean you are walking your own path?" This question, however, drew everyone’s attention, for they all wanted to know just what the hell was going on with Jest.</p>
+<p>"Does that mean you are walking your own path?" This question, however, drew everyone’s attention. After all, they all wanted to know just what the hell was going on with Jest.</p>
 <p>No sword king should be that monstrous.</p>

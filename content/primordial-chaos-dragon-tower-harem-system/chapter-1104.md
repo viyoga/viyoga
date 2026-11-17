@@ -14,7 +14,7 @@ chapter = 1104
 <p>The problem, however, is the identity of the Planet King, his race, and the blood that flowed through his veins.</p>
 <p>"The Planet King you killed, you said he is from the Supreme White Tiger Clan, right..." Vexthra asked, and Kent nodded...</p>
 <p>"That is what Ignarok said, and even he admitted it to me."</p>
-<p>"Then, well, it seems you are the one they’ve been searching for all this time. 370,000 years ago, the White Tiger Clan placed a bounty on someone named Chaos. Of course, the name is unusual, for it only belonged to the Chaos Dragon during the Primordial Era.</p>
+<p>"Then, well, it seems you are the one they’ve been searching for all this time. 370,000 years ago, the White Tiger Clan placed a bounty on someone named Chaos. Of course, the name is unusual. After all, it only belonged to the Chaos Dragon during the Primordial Era.</p>
 <p>However, the bounty is so big that the entire universe went into a frenzy and started searching for you.</p>
 <p>Now, while I can just say their threats are unfounded, the problem is that it has already been 370,000 years. That is a long time for even us gods.</p>
 <p>Back then, they had only five demigods and hundreds of immortals. However, now, they have five gods, dozens of demigods, and thousands of immortals.</p>
@@ -46,7 +46,7 @@ chapter = 1104
 <p>So Kent told her about the path he is walking, and as expected, Vexthra was more than happy to provide some insight when Kent saw no easy way forward.</p>
 <p>"While in the high world, demigods and immortals will be suppressed to the peak of the heavenly Ascension stage, so even if they come against you, they will be crushed.</p>
 <p>So, from the way I see it, that is even a bonus for you to farm more blood essence. Go ahead, use the name Kent like the proud and arrogant dragon you are.</p>
-<p>Carry the name Chaos with pride, for there is no better person worthy of such a name.</p>
+<p>Carry the name Chaos with pride, since there is no better person worthy of such a name.</p>
 <p>All those who dare come against you, my sisters and I will crush them. If more keep coming, we will continue to crush them like bugs until they learn sense."</p>
 <p>PAH</p>
 <p>Kent landed a gentle, seductive slap on Vexthra’s ass, causing it to jiggle.</p>

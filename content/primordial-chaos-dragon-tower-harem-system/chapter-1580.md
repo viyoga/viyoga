@@ -10,7 +10,7 @@ chapter = 1580
 <p>Because of this, his respect for Chaos was on another level. It was even said that, at one point during the Primordial Era, he studied under the Chaos Dragon.</p>
 <p>In fact, regardless of whether or not he studied under the Chaos Dragon, the fact that he fought side by side with him during the great war shows the kind of beast he is.</p>
 <p>Legends even have it that the Primordial and Great Records contain accounts of legendary beings who lived during the Primordial Era, and that his name is among them.</p>
-<p>Many don’t recognize the kind of legend Inaya had found herself locked in battle against at the moment. If they knew, perhaps they would have seen Inaya in a new light, for there is just no telling what kind of talent one needed to be able to contend with a beast whose entire existence is linked to the void.</p>
+<p>Many don’t recognize the kind of legend Inaya had found herself locked in battle against at the moment. If they knew, perhaps they would have seen Inaya in a new light, since there is just no telling what kind of talent one needed to be able to contend with a beast whose entire existence is linked to the void.</p>
 <p>Her understanding of the sword is indeed deep.</p>
 <p>After five hours locked in fierce battle, the two of them paused, and under everyone’s stunned gaze, Tharos transformed into his humanoid form, taking on the appearance of a 6’4 slightly muscular man with short dark hair and a void tattoo on his forehead.</p>
 <p>It was when he turned human that many realized he was a Peak-Level Early Supreme.</p>

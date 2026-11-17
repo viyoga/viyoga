@@ -7,7 +7,7 @@ chapter = 956
 
 <p>What Kent did was merely buy himself some time to prepare before starting the main quest.</p>
 <p>He was meant to kill some powerful people, which, from what he had learned so far, would require him to face a large army.</p>
-<p>First of all, he knew he had to prepare adequately, for that is the only way he would be able to complete the quest and go back home.</p>
+<p>First of all, he knew he had to prepare adequately. After all, that is the only way he would be able to complete the quest and go back home.</p>
 <p>The second is merely him making sure the Heaven’s Eye Sect wasn’t suddenly razed down while he was away.</p>
 <p>Everybody at this point knew the Heaven’s Eye Sect bought one Soul Spirit, and while others wouldn’t dare come for it, knowing they wouldn’t be able to enter the sect thanks to the formation protecting it, there was one person who would dare try.</p>
 <p>The sect also knew these people wouldn’t pose a threat to them. However, the Planet King is different. His influence is known by all, and because of that, giving them the Soul Spirit was more like taking a strategic retreat.</p>

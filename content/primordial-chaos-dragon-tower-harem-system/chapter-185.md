@@ -14,7 +14,7 @@ chapter = 185
 <p>However, when he made his intentions toward her disciple known, her Intent Meter shot up to 52%. As a result, Kent endured a few minutes of relentless beatings, leaving him with several broken bones.</p>
 <p>A short while ago, Saintess Selene and Ingrid were discussing matters related to Kent. Selene was sharing details about how she met him and even disclosed their intimate relationship.</p>
 <p>Ingrid was initially shocked but quickly composed herself. However, her curiosity was piqued, and she began asking a flurry of questions.</p>
-<p>Of course, Selene was happy to talk, for she knew what she was doing.</p>
+<p>Of course, Selene was happy to talk; after all, she knew what she was doing.</p>
 <p>However, a few minutes into her speech, they heard a scream, followed by another scream. This forced them to pocket their conversation and rush out to see what was happening.</p>
 <p>It was then that they saw Kent getting thrashed by Saintess Neomi, who was using nothing but her hands. Kent’s right arm was bent at an unnatural angle, and his left leg was in the same condition.</p>
 <p>The two ladies froze for a moment, and they could only watch as the usually calm Spear Saintess suddenly resorted to violence.</p>

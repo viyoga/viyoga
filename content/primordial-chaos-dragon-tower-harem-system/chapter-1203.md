@@ -6,7 +6,7 @@ chapter = 1203
 +++
 
 <p>The god realm is just like the mortal realm.</p>
-<p>Of course, all mortals born in the god realm can be considered fortunate, for they are among the one percent.</p>
+<p>Of course, all mortals born in the god realm can be considered fortunate, because they are among the one percent.</p>
 <p>Being born in a realm surrounded by gods not only makes one overprivileged but also leads one to become a powerful cultivator.</p>
 <p>Take Kent’s wives, for example.</p>
 <p>Because their sister is a goddess, they received high-tier cultivation techniques, treasures, and more. This advantage had propelled them on a path that most, even in god worlds, wouldn’t be able to have.</p>

@@ -38,7 +38,7 @@ chapter = 952
 <p>’I can’t wait to see the reason why she is that dependent on her mother.’ Kent closed his eyes and pulled his mind back into his memories of Chaos.</p>
 <p>This time, instead of reviewing the moment when Elina died, he chose to focus on the happy moments they shared.</p>
 <p>As if knowing she would die, she made sure she and Chaos had all the best moments she could think of, and that alone was now helping Kent clear his chaotic mind.</p>
-<p>He didn’t come back to the past to escape his trauma. He came to build his strength, for that was the only way he could gain access to some things he wanted.</p>
+<p>He didn’t come back to the past to escape his trauma. He came to build his strength; after all, that was the only way he could gain access to some things he wanted.</p>
 <p>Now, he had become a Pill Saint, and judging by the requirements to become a Pill Sage, Kent knew he would soon become a Pill Sage.</p>
 <p>After spending three enjoyable days reviewing the best moments from his past life spent with Elina, Kent chose to proceed with the next set of records from the Primordial Pill Records.</p>
 <p>It took him a day to review all.</p>

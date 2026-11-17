@@ -41,7 +41,7 @@ chapter = 1795
 <p>He had been a Brawler during the Primordial Era. After all, most dragons preferred to fight like brutes. But he became a Swordsman during the Divine Era and an Assassin during the Shadow Era.</p>
 <p>Then he went on to become many things throughout the ten remaining lives.</p>
 <p>Right now, he could sense the connection forming between him and nine classes, showing that the nine lives whose memories he had recalled had now awakened their classes.</p>
-<p>He let this sink in, for he understood that, regardless of how much time had passed, his past would always find a way to shape his future.</p>
+<p>He let this sink in, since he understood that, regardless of how much time had passed, his past would always find a way to shape his future.</p>
 <p>Now, he had awakened so many classes, and even without moving a finger, he could feel his understanding of them deepening.</p>
 <p>It was as though he had always possessed those classes, but now, they had truly become a part of him... He had become their rightful owner.</p>
 <p>But that wasn’t all.</p>

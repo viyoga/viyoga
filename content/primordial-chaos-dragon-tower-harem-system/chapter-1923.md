@@ -11,7 +11,7 @@ chapter = 1923
 <p>That was because he indeed possessed an affinity for the flame element, and his go-to style of attack was a manifestation of the sun. Perhaps that was his Dao, or he just chose to make that his style of attack and display of power.</p>
 <p>Regardless, he had managed to earn his name and even joined the ranks of the Monarchs who oversaw the operations of the Grim Arcane Legends.</p>
 <p>The moment he appeared, a smile spread across his face, and he said, "Thank you all for coming. A million years ago, we met like this to celebrate my 9-millionth birthday. Back then, I had just become a Primordial and had been promoted to the rank of Monarch.</p>
-<p>Just like that, a million years have passed, and I am now more powerful and have done so much more for this humble organization. So, since we are all here today, I wish to say thanks for coming, and enjoy yourselves, for I have made sure today will be the best day of your lives."</p>
+<p>Just like that, a million years have passed, and I am now more powerful and have done so much more for this humble organization. So, since we are all here today, I wish to say thanks for coming, and enjoy yourselves, since I have made sure today will be the best day of your lives."</p>
 <p>Claps and cheers rang out. Many had indeed come for the celebration and also to cement their relationship with the Grim Arcane Legends.</p>
 <p>But before that, they had to enjoy themselves first, of course, and handle business later.</p>
 <p>Monarch Solran raised his hand to calm the cheers down a bit... He looked at a carriage large enough to fit ten people and smiled before he added.</p>

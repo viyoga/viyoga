@@ -10,7 +10,7 @@ chapter = 824
 <p>He saw that when it came to speed, he was lacking, and so he changed his mind. He needed to focus on improving himself.</p>
 <p>The sect is a place filled with the best and the brightest, so in one way or another, he is going to find someone with something unique he can’t measure up to, and if he wants to reach perfection and surpass his past selves, then he must ensure he was the best version of them all.</p>
 <p>Vexthra, being a goddess and knowing what it takes to reach that stage, advised him to improve the smallest aspect of himself.</p>
-<p>The small mistakes he might choose to ignore, the unique way something he is doing can be done, and the idea that he was better than everyone else... all these must be fixed, for it is the only way he can attain perfection.</p>
+<p>The small mistakes he might choose to ignore, the unique way something he is doing can be done, and the idea that he was better than everyone else... all these must be fixed. After all, it is the only way he can attain perfection.</p>
 <p>He must embrace the idea that in the journey to the top, he isn’t the only one walking it, and relying solely on himself isn’t the way to walk it.</p>
 <p>To reach perfection, he must take the small chances he can get and build upon them. That and only that is the way to the top.</p>
 <p>Of course, not all qualify to make him tick.</p>
@@ -23,7 +23,7 @@ chapter = 824
 <p>She turned and looked at Kent, ’I must recruit him into the Law Enforcement Hall. Someone with this much effect will bring order to the sect easily.’</p>
 <p>She was about to proceed with her duties when, suddenly, a voice spoke, accompanied by the sound of glass shattering.</p>
 <p>"One would say those words are very arrogant, don’t you think, disciple Kent?" Reality shattered like glass, and she walked out, looking calmly at Kent.</p>
-<p>⟦She is a red flag master. Whatever you do, don’t make her angry, for you will shatter like glass before you know what happened⟧</p>
+<p>⟦She is a red flag master. Whatever you do, don’t make her angry; after all, you will shatter like glass before you know what happened⟧</p>
 <p>’No need to exaggerate it, Tower. I know danger when I see one.’</p>
 <p>⟦I wasn’t exaggerating, master. This lady is dangerous, and while I would love to be on your side and tell you there is a chance for you, there is none.</p>
 <p>Of course, you can kill her with the asteroid, but would that be something you would want to waste your precious asteroid on⟧</p>

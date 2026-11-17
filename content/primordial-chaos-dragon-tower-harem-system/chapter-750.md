@@ -15,7 +15,7 @@ chapter = 750
 <p>They saw the races in the outside world as worthless.</p>
 <p>However, things have changed now. This change came when the hand informed them of a name and a reason to be wary of that name.</p>
 <p>Kent Madson.</p>
-<p>They didn’t think much of him at first, but they do now, for they had just received two reasons to... even more reasons, in fact.</p>
+<p>They didn’t think much of him at first, but they do now, as they had just received two reasons to... even more reasons, in fact.</p>
 <p>A few days ago, Thalorin, the outer sea guardian, came with some news and a gift. When Kent was passing through to the half-elves’ kingdom, the dragon that blocked him and tried to kill him did as Kent told him to.</p>
 <p>So he reported to his leaders, and while he was scolded, he wasn’t killed like he had expected. Of course, his punishment wouldn’t free him from his duties anytime soon. But even so, he was happy he wasn’t killed.</p>
 <p>When he relayed the message to his leaders, a meeting that hadn’t taken place in thousands of years was soon to happen.</p>

@@ -18,7 +18,7 @@ chapter = 386
 <p>"He would probably twist your ear if he heard you call him Slave Swordsman," Akira said, and Dori smiled.</p>
 <p>"Then thank you both for helping Master come to get me, though the chance of him learning about me in the coming days was high even if you two hadn’t said anything."</p>
 <p>"And what makes you think he would have learned of your existence?" Gaia asked.</p>
-<p>"Have you forgotten which of us found him first in his life as Lord Genesis, the Divine Swordsman? It was I, and back then, he knew I was a Mind Weaver, for I helped him in his path as the first true swordsman.</p>
+<p>"Have you forgotten which of us found him first in his life as Lord Genesis, the Divine Swordsman? It was I, and back then, he knew I was a Mind Weaver. After all, I helped him in his path as the first true swordsman.</p>
 <p>So whether you said anything or not, he would have realized, and knowing him, the universe had already made contact, so he would have asked for a way to save me.</p>
 <p>Either way, he would have come for me," Dori said, and the two sisters just smirked.</p>
 <p>"Sometimes, you are just too smart for your own good. Now, let’s sit back and watch how Master makes his first overpowered enemy."</p>
@@ -35,7 +35,7 @@ chapter = 386
 <p>The moment he appeared, his gaze fell on the destroyed fortress, causing his blood to surge. However, just as he was about to act, lightning flashed through the clouds, and a large fist emerged from the lightning storm that formed on the horizon.</p>
 <p>"Mountain-Breaking Fist!"</p>
 <p>Kaizo’s voice filled the space as his fist descended on the figure, who looked up and smirked. He raised his hand and flicked his finger, sending a beam of white energy at the fist.</p>
-<p>The moment it connected, the fist was destroyed, but Kaizo just smiled, for he saw a red light flash through the surroundings. Before the Orc King could sense it, Sylara was a meter from him.</p>
+<p>The moment it connected, the fist was destroyed, but Kaizo just smiled, because he saw a red light flash through the surroundings. Before the Orc King could sense it, Sylara was a meter from him.</p>
 <p>She stabbed her claw at the Orc King, who held a calm expression. However, just as he was about to attack, Sylara’s red eyes brightened, and the Orc King closed his eyes.</p>
 <p>She didn’t attack with her claw again; instead, she turned into a dust of red energy right when a purple sword arc arrived behind her.</p>
 <p>At the same time, the Orc King, who had been mind-attacked by Sylara, opened his eyes just as the sword arc appeared before him.</p>

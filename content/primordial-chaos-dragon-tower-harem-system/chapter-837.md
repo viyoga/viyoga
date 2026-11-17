@@ -48,7 +48,7 @@ chapter = 837
 <p>"Are you going to tell me the name, or should I pull it out of your mouth?"</p>
 <p>Yuna smiled, "The name that appeared on the tablet is Kent Madson, an unknown person."</p>
 <p>"What did you just say?" Pill Immortal Nefeli appeared before Yuna, looking very demanding.</p>
-<p>Yuna didn’t panic, for she knew her master wouldn’t hurt her. To anyone other than her, they would have panicked and fled.</p>
+<p>Yuna didn’t panic, since she knew her master wouldn’t hurt her. To anyone other than her, they would have panicked and fled.</p>
 <p>To her, seeing her master this eager to hear something and even displaying these many expressions made her happy.</p>
 <p>Her master is always cold and distant, so this was a new side of her she would love to see more often. Her master has shown her an emotion, which means she wasn’t a robot, as most thought she was.</p>
 <p>"I haven’t seen the name myself, but from rumors going around, the name Kent Madson has appeared on the Sword Dao Tablet.</p>

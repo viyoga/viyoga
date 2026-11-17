@@ -7,7 +7,7 @@ chapter = 756
 
 <p>Dorren, Madea, Elia, Norion, Cyran, Arion, and Helyra came early the next day, as the queen had instructed them the day before.</p>
 <p>She asked for all of them to come, and so they did. They were seated inside the hall where all meetings were held.</p>
-<p>Kent hadn’t arrived yet, for he had gone into the tower to handle a few things. But the elders were present.</p>
+<p>Kent hadn’t arrived yet, because he had gone into the tower to handle a few things. But the elders were present.</p>
 <p>Of course, Princess Elowen and her parents entered the hall a few minutes after the seven half-elves arrived. A few minutes after the arrival of the royals, Kent also entered the hall with Uncle Drake.</p>
 <p>"Everyone is here," King Thalirion said, looking at the lineup that would be heading to the land of the Qilin race.</p>
 <p>Of course, only three elders would go with them, considering Uncle Drake would also be heading there with them. The other seven elders would ensure the kingdom remained intact while they were away.</p>

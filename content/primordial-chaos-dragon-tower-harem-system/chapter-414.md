@@ -37,7 +37,7 @@ chapter = 414
 <p>He raised her waist and brought her pussy close to his face like a plate of fruit salad. The sweet scent came from her already wet pussy, making Kent lick his lips.</p>
 <p>He moved close and then planted his face in there and started licking.</p>
 <p>Her moans instantly filled the garden, and the others who weren’t far started smiling. Naturally, Mara made sure her sister was there to hear it all.</p>
-<p>She was already blushing, for she knew what was happening, and it wasn’t something she should be hearing. However, her sisters made sure she stayed.</p>
+<p>She was already blushing, since she knew what was happening, and it wasn’t something she should be hearing. However, her sisters made sure she stayed.</p>
 <p>Why?</p>
 <p>Because Zaila beat her to the punch by being the first to have an intimate moment with Kent, Mara wanted to give her sister that chance, too.</p>
 <p>"You ladies are freaks," Nara said, but she couldn’t deny the allure of being there.</p>

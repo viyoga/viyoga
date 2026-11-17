@@ -30,7 +30,7 @@ chapter = 886
 <p>Strangely, Kent felt an external force compel him to read the content of the scroll to everyone.</p>
 <p>"This is the Cult of Wisdom. If you are reading this, it means you have passed our trial. Congratulations. However, this is not over.</p>
 <p>Ten years from today, the Cult of Wisdom will hold the Trial of Wisdom to pick the bearers of the Ten Seals of Wisdom collected over a span of 7 million years.</p>
-<p>This is the invitation to the one who solved the puzzles. You are required to answer the call when the time is due, for this is your destiny.</p>
+<p>This is the invitation to the one who solved the puzzles. You are required to answer the call when the time is due, because this is your destiny.</p>
 <p>As a sign of precaution, we have poisoned the ruler of this Alliance and the world. To prove your worth and receive the seal of wisdom, seek the last puzzle, solve it, and you will receive the antidote.</p>
 <p>Failure will cause your leader to die along with half the world. And remember, this is the Cult of Wisdom; there is no escaping us."</p>
 <p>After reading the content, Kent finally understood why everyone became pale when they saw the name, "Cult of Wisdom."</p>

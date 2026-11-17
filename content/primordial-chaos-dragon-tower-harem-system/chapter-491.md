@@ -59,6 +59,6 @@ chapter = 491
 <p>She had already made Kent aware that she would never become his woman. However, asking to go near Vexthra was a recipe for disaster.</p>
 <p>The goddess had clearly set a trap, and she is falling into it.</p>
 <p>"I just want to thank her, Kent. It wasn’t like I wanted to challenge her to a life-and-death duel," Lady Vari replied, making Kent smile.</p>
-<p>"Your funeral. Not that I mind, so my advice to you: better prepare your voice, for you will be screaming in my bed sooner than you think."</p>
+<p>"Your funeral. Not that I mind, so my advice to you: better prepare your voice, as you will be screaming in my bed sooner than you think."</p>
 <p>He held her hand, and they teleported to where Vexthra and her sisters were having the welcome party.</p>
 <p>Vexthra smiled when her gaze met that of Lady Vari. The Kingdom protector immediately sensed the mischief.</p>

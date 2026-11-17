@@ -55,9 +55,9 @@ chapter = 134
 <p>In her heart, she vowed that if there was life after this, she would return and get her revenge. But alas, death is a one-time thing.</p>
 <p>Unless you have a destiny transcending that of the living or the dead, in Aria’s case, she did, and thus, fate decided to step in.</p>
 <p>Just when she was at her last leg, a dark portal opened, and a hooded figure with green eyes riding a shadowmare stepped out and stopped before her.</p>
-<p>"Revenge is for the night, for they shall scream as you burn them with the flames of vengeance. Your destiny doesn’t want you to die here, Aria; you are to rise and ride into the night.</p>
+<p>"Revenge is for the night, since they shall scream as you burn them with the flames of vengeance. Your destiny doesn’t want you to die here, Aria; you are to rise and ride into the night.</p>
 <p>Your destiny wills you to heed the call of our master and ride into battle with him. So, I call you to rise and ride with me using the night’s flames, the Night Riders’ Authority, and my name, Kael Duskbane."</p>
 <p>Uncle Drew, now in his Night Riders form, extended his hand, and Aria took it without hesitation.</p>
 <p>Soon, her horse also rose from the ground and transformed into a shadowmare, and she mounted it, and like what happened to Uncle Drew, she also transformed into a hooded figure. But there was something different about her.</p>
 <p>It was like she hadn’t fully taken her Night Rider form yet.</p>
-<p>"Let’s go and greet our master, for it is said the Riders of the Night shall grace the battlefields once more."</p>
+<p>"Let’s go and greet our master; after all, it is said the Riders of the Night shall grace the battlefields once more."</p>

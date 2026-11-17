@@ -30,7 +30,7 @@ chapter = 866
 <p>Immortals and gods are supposed to tremble when they stand before you. Your name is supposed to shake the heart of the heavens and cause the Celestials to go to their knees for you.</p>
 <p>As for the second question, you don’t have to worry about this new technique conflicting with your true technique.</p>
 <p>If there’s one thing I know about us True Primordials, it’s that our cultivation techniques can adapt to whatever technique we learn, making us even stronger.</p>
-<p>So instead of worrying, you should be happy, for you will not only be learning a new technique, but it will make your true cultivation technique several times stronger.</p>
+<p>So instead of worrying, you should be happy. After all, you will not only be learning a new technique, but it will make your true cultivation technique several times stronger.</p>
 <p>Aside from that, it will allow you to learn all the other techniques I have left out there. You already have the Claw Art and the Primal Body Tempering Art. Building your core with this technique will bring you closer to learning them.</p>
 <p>Lastly, without forming your core using this method, you wouldn’t be able to learn the other five techniques from the True Primordials waiting for you out there.</p>
 <p>And trust me, without them, you will come out as an ordinary person regardless of how strong you have become.</p>

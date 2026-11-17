@@ -10,7 +10,7 @@ chapter = 461
 <p>However, there is a catch.</p>
 <p>The skill depends on two things.</p>
 <p>The first is the grade of the skill used by the attacker. If the grade of that skill is lower than Kent’s, then it can be reflected.</p>
-<p>However, if it’s higher than Kent’s skill grade, he wouldn’t even be able to activate the skill, for he would simply know.</p>
+<p>However, if it’s higher than Kent’s skill grade, he wouldn’t even be able to activate the skill; after all, he would simply know.</p>
 <p>But it’s more complicated than that. This is where the second factor comes in.</p>
 <p>Aside from the skill grade, the second factor is the attack power behind the skill.</p>
 <p>Kent has high attack power, which makes even an Earth-grade skill dangerous in his arsenal. The logic is simple: the higher the attack power, the perilous the skill.</p>

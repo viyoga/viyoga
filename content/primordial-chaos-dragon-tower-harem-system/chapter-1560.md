@@ -10,7 +10,7 @@ chapter = 1560
 <p>Every last being comes to the Flame Temple, even the aged and children. Even the sick are carried there to pray. This shows a clear respect and dedication to their culture and norms.</p>
 <p>The High Priestess handles the gathering, leading the prayers since it is believed her voice is heard first by the evil god and higher beings.</p>
 <p>Skull City can be considered a lower realm. It is among the 12 member states, comprising 12 different species of Star Beasts. For as long as they could remember, they had been living in this city.</p>
-<p>For years, they faced many obstacles, with the most dire one being the sudden aggression of Stone City. It was said a very long time ago that, when the time comes, every being inside Skull City would have to take up arms and march into battle, for they would have no choice but to kill.</p>
+<p>For years, they faced many obstacles, with the most dire one being the sudden aggression of Stone City. It was said a very long time ago that, when the time comes, every being inside Skull City would have to take up arms and march into battle; after all, they would have no choice but to kill.</p>
 <p>The only downside to this, however, was the fact that the natives of Skull City are pacifists. Killing is not in their nature, so they can only call on their higher beings to come to their aid in these times of great struggle.</p>
 <p>As a lower realm, they have a few Immortal-level existences among them, with the High Priestess being the only demigod among them. She is a great healer and a wise leader.</p>
 <p>Over the years, she had led her people in building all kinds of defensive formations to protect them. This had protected them for years until the sudden invasion of Stone City.</p>

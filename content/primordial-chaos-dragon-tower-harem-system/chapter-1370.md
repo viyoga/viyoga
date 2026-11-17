@@ -53,6 +53,6 @@ chapter = 1370
 <p>She sat down and leaned against the wall, her entire body aching like hell.</p>
 <p>"I guess I was lucky this time around," she said, taking another deep sigh. "Ah, what the hell, it isn’t as if I can die anyway. But getting eaten alive also hurt like hell." She smiled weakly, then retrieved a crystal from her space ring.</p>
 <p>Many years ago, the Primordial Chaos Dragon gave her that crystal. Several eras later, she still held on to it.</p>
-<p>"A lot has happened after we met, Chaos. I hope you got what you wanted, for I had received the opposite of what I wanted."</p>
+<p>"A lot has happened after we met, Chaos. I hope you got what you wanted, as I had received the opposite of what I wanted."</p>
 <p>She smiled again, then she exhaled.</p>
 <p>"I will try again after another million years." She closed her eyes and started to recover her strength.</p>

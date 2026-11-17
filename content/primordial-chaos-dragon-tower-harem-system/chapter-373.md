@@ -13,7 +13,7 @@ chapter = 373
 <p>The sword arcs fashioned from sword qi landed a few cuts on his body. This caused his fury to explode even more.</p>
 <p>Kent and Kaizo decided to start the battle with punches and slashes instead of talking it out with the sect master, who was doing his best to understand where it all went wrong.</p>
 <p>He had been careful, making sure nobody suspected a thing, but in the end, he was found out. The most painful thing was that he never suspected a thing.</p>
-<p>That was just too painful for him, for he never knew all these years that his cover was blown and that the people he was close to were the same people who would bring his downfall.</p>
+<p>That was just too painful for him, since he never knew all these years that his cover was blown and that the people he was close to were the same people who would bring his downfall.</p>
 <p>Perhaps it was out of guilt, but he saw the two gate masters as her main allies inside the sect.</p>
 <p>Of course, he knew nothing about the relationship between Mara and Nara, but he trusted her mainly because Camilla was with her, and he knew it was thanks to her that Camilla recovered after her disciple died.</p>
 <p>So he saw them as her allies, but he never expected them to know of his treachery all these years.</p>

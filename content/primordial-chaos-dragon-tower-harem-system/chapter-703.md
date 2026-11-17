@@ -37,7 +37,7 @@ chapter = 703
 <p>⟦Realm: Core Formation (7/7)⟧</p>
 <p>⟦Flame Spirit: Pyre Sprite⟧</p>
 <p>It was a welcome message to Kent, so he faced the brute flame beast that came, shaking the very ground it ran on. Unlike the Beetle, this one couldn’t fly, so the battle was grounded.</p>
-<p>It took just five minutes, but by the end, the two-mile radius was destroyed beyond repair. Kent tried to handle most of the attacks defenseless, but it was a failed attempt, for he never had the heart to stand against a moving truck of pure stone muscle slamming into him.</p>
+<p>It took just five minutes, but by the end, the two-mile radius was destroyed beyond repair. Kent tried to handle most of the attacks defenseless, but it was a failed attempt; after all, he never had the heart to stand against a moving truck of pure stone muscle slamming into him.</p>
 <p>Kent had to distance himself three kilometers before the Void Cleave was able to penetrate the body of the beast. It was one tough bastard that wouldn’t just die.</p>
 <p>Of course, Kent didn’t use too much force, as he was learning to wield his skills with minimal effort. He wanted to gain a much deeper understanding of them, since, aside from attaining seven-sword enlightenment, he must also lay the foundation for the three-sword moves.</p>
 <p>So while using techniques like the "Nine Calamities Sword Strike" could have killed any of the beasts he faced easily, he focused more on combat experience and understanding, which in the long run will come in handy.</p>

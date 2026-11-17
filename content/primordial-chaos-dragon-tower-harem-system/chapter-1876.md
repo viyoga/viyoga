@@ -48,6 +48,6 @@ chapter = 1876
 <p>A grin formed on Kent’s face. Then he tapped into his newfound power, unleashing his killing intent and bringing an overwhelming pressure and dread down upon the Second Flame Matriarch.</p>
 <p>Her expression suddenly paled. At that very moment, part of her wished she hadn’t tried to threaten Kent.</p>
 <p>However, Kent hadn’t come this time to sweet-talk her.</p>
-<p>No, he had come to recruit her, for he had found a way back to the Flame Realm, and he needed an obedient guide for when he was ready to head over.</p>
+<p>No, he had come to recruit her, as he had found a way back to the Flame Realm, and he needed an obedient guide for when he was ready to head over.</p>
 <p>If he wished to defeat the flame race, he first had to understand their power structure and battle formations.</p>
 <p>Who better to help him with that than the second strongest Flame General of the Flame Era?</p>

@@ -8,7 +8,7 @@ chapter = 1873
 <p>Blacksmithing is similar to alchemy.</p>
 <p>When something grand or extraordinary has happened, the heavens acknowledge it. So, just like Pill Judgement, where the Pill Dao judges the pill created, in blacksmithing, the Blacksmith Dao also has to judge and acknowledge the item forged.</p>
 <p>However, unlike alchemy, where there is a certain tier of pills that can be judged, in blacksmithing, there are no tiers.</p>
-<p>The judgement only comes when something extraordinary has been forged. So whenever tribulation clouds form during a blacksmithing process, everyone becomes elated, for they know something remarkable has been born.</p>
+<p>The judgement only comes when something extraordinary has been forged. So whenever tribulation clouds form during a blacksmithing process, everyone becomes elated; after all, they know something remarkable has been born.</p>
 <p>Lady Khronisia smiled, watching as the Eternal Ice Genesis Spear slowly rose into the air.</p>
 <p>Just when it was high enough, she formed a hand seal, and a humanoid soul radiating intense ice essence appeared and entered the spear.</p>
 <p>RUMBLE</p>

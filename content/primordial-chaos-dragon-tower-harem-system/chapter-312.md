@@ -17,7 +17,7 @@ chapter = 312
 <p>"It’s not about being shy or not. It’s about me seeing something I want and going after it. I mean, you saw how I approached you. It was me telling you I wanted you, and I gathered the courage to come after you.</p>
 <p>Now, look at us. You are lying in my arms and not thinking about cutting my dick off. A few days ago, I could swear you had thought about that.</p>
 <p>So don’t be shy; instead, be bold and go after what you want. Trust me, it’s much easier that way," Kent said, making Mara sigh in her heart.</p>
-<p>Just now, she tried to think this was just a dream she would wake up from, but she never for one moment believed that, for she didn’t want this to be a dream.</p>
+<p>Just now, she tried to think this was just a dream she would wake up from, but she never for one moment believed that, because she didn’t want this to be a dream.</p>
 <p>She may have played the uptight role well, but now, she is different. A part of it was the fact that she was now relying on Kent to save her sister.</p>
 <p>Another reason was Kent’s ladies, who kept praising him like he was some kind of a god.</p>
 <p>Lastly, she just wanted to make a decision and would one day look back and say I gathered the courage and did that. She wanted to be proud of herself.</p>

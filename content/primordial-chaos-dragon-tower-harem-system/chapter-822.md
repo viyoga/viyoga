@@ -50,7 +50,7 @@ chapter = 822
 <p>The first level was to test their conviction of the soul.</p>
 <p>Many passed this stage because it has something to do with the soul, and as people who have already formed their cores, their connection to their souls is much stronger.</p>
 <p>The second is the conviction of the Mind. Many suffered there, but eventually passed.</p>
-<p>The last part is where many struggle, for it involves the conviction of the body. That is where the pressure comes in, and also where many have suffered the most, and some continue to suffer.</p>
+<p>The last part is where many struggle; after all, it involves the conviction of the body. That is where the pressure comes in, and also where many have suffered the most, and some continue to suffer.</p>
 <p>However, regardless of all three, Kent went through them all as if they weren’t even there.</p>
 <p>But then again, they weren’t aware he had already broken a limit on his Mind, soul, and body. That alone took care of all forms of pressure that would have affected him,</p>
 <p>In a way, because he broke those limits, he became immune to the stairway.</p>

@@ -43,8 +43,8 @@ chapter = 890
 <p>Also, some swordsmen from the Celestial Conclave alliance, of which Sonox is part, were there to send their friend off. It had already been in their plans that one day, when they were ready, they wouldn’t hesitate to ascend.</p>
 <p>Their aim was, of course, a Great High world. However, most end up ascending to a Legacy High world and even stay there for as long as they can.</p>
 <p>However, they knew Old Sword wasn’t going to a Legacy High world because they knew the kind of person he was.</p>
-<p>Though he was ascending to a Legacy High World, they knew his main destination would be a Great High World, for that is where the best treasures and training can be found.</p>
-<p>They all came to bid him farewell, as friends or even rivals. However, at the moment, they all are happy for Old Sword, for he had proven the path is not close for any of them.</p>
+<p>Though he was ascending to a Legacy High World, they knew his main destination would be a Great High World. After all, that is where the best treasures and training can be found.</p>
+<p>They all came to bid him farewell, as friends or even rivals. However, at the moment, they all are happy for Old Sword, since he had proven the path is not close for any of them.</p>
 <p>"I am not going to give any grand speech before I leave, so don’t expect one. However, to all of you who have received my care package, study it well and practice, because, believe it or not, the path forward is what I have given you.</p>
 <p>You have time, and with time, you have opportunities. Use this time to improve, and trust me, soon, you will be the one ascending.</p>
 <p>I know you will all miss me, but don’t worry; by the time you catch up, I will become an immortal and take you all in as my disciples."</p>

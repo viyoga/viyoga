@@ -23,7 +23,7 @@ chapter = 839
 <p>"No need to put it that way. There are swordsmen out there with understanding so vast that calling them True Swordsmen is only deserving of them.</p>
 <p>Trust me, long before you, many swordsmen rose and came close to reaching the peak. They earned my respect, but you were the only one who qualified to see me.</p>
 <p>"As to why that was, I still don’t understand."</p>
-<p>Kent smirked, a smug expression plastering his face. Although the Sword Dao read his mind, he didn’t mind, for this wasn’t his first rodeo.</p>
+<p>Kent smirked, a smug expression plastering his face. Although the Sword Dao read his mind, he didn’t mind, as this wasn’t his first rodeo.</p>
 <p>Hearing the Sword Dao’s confusion made him happy.</p>
 <p>"Tell me more about this legacy, and if you are lucky, I will accept it."</p>
 <p>Kent laughed.</p>

@@ -29,7 +29,7 @@ chapter = 787
 <p>---</p>
 <p>[The Joker (Lani’s) POV]</p>
 <p>One disturbing aspect of Lani is her laughter, which always accompanies her whenever she is killing. To the masses, it might seem like she were some maniac who enjoys the thrill of killing.</p>
-<p>Of course, anyone who witnesses her kill will say that, for it isn’t normal to laugh like a maniac while death and destruction follow her.</p>
+<p>Of course, anyone who witnesses her kill will say that, as it isn’t normal to laugh like a maniac while death and destruction follow her.</p>
 <p>However, while she indeed laughs while she kills, the laughter isn’t a happy one. To Lani, this laughter contained unknown pain and regret.</p>
 <p>At first, it was a normal thing for her, but now that she had awakened her True name and Blood, she had no idea where they came from.</p>
 <p>She never knew why she laughs when killing or how it happens.</p>

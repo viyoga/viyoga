@@ -39,7 +39,7 @@ chapter = 1162
 <p>He also knows one day he will find answers to his question. Bhaalzhar merely dumped a big plot on him and decided not to answer any questions.</p>
 <p>"Tell me about my father then."</p>
 <p>In the end, asking about someone else makes sense. He knew Bhaalzhar exaggerated when he said his father was darkness.</p>
-<p>"I cannot speak his name, for he will be the one to say it. Even our True Primordial names carry weight."</p>
+<p>"I cannot speak his name. After all, he will be the one to say it. Even our True Primordial names carry weight."</p>
 <p>Kent nodded.</p>
 <p>He is already aware of this. Even his own name holds some power that his followers can use to command others with his permission. Lyna used it when she came and handed the scroll to Runa, the High Priestess.</p>
 <p>"However, I can tell you that Darkness was the most elusive of us all. Among the six of us, he is the hardest to kill.</p>

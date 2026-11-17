@@ -26,7 +26,7 @@ chapter = 1411
 <p>Kent held his breath like his lastborn was about to jump off a building. He knew the moment had arrived, and so when he made his move, the outcome became clear.</p>
 <p>A faint, sweet, and wonderful smell escaped the cauldron, filling the alchemy tower in an instant. Kent didn’t dare breathe; he continued to refine the last part of the essence for five minutes.</p>
 <p>With every minute that passed, the smell of the pill kept intensifying until it stopped when a white smoke escaped the cauldron.</p>
-<p>The moment the smoke appeared, Kent sighed, for he knew white smoke meant a Grey Pill Ring. It was a bit heartbreaking, but he kept his composure.</p>
+<p>The moment the smoke appeared, Kent sighed, since he knew white smoke meant a Grey Pill Ring. It was a bit heartbreaking, but he kept his composure.</p>
 <p>However, a second later, blue smoke also escaped the openings in the cauldron. Kent’s heart skipped a beat for a moment, then a broad smile that came from the heart appeared on his face.</p>
 <p>"YES..."</p>
 <p>His mood brightened immediately because, at that moment, the process ended, and when the cauldron opened, the pill that came out was not what he expected.</p>

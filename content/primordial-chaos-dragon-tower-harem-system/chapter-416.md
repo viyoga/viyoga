@@ -26,11 +26,11 @@ chapter = 416
 <p>⟪You have received +210,000 Soul Essence and +9,300 Stat Points.⟫</p>
 <p>’Hmm, I am 90,000 points short of becoming a Root Ascension stage soul cultivator,’ Kent sighed.</p>
 <p>Though he knew this cheat was just too much, the moment he added Val to the harem, he would indeed become a Root Ascension stage expert in soul cultivation.</p>
-<p>This means that if he were to face anyone at the Root Ascension stage, killing them wouldn’t be too much of a hassle, for he would have the means to end them easily if he wanted to.</p>
+<p>This means that if he were to face anyone at the Root Ascension stage, killing them wouldn’t be too much of a hassle, since he would have the means to end them easily if he wanted to.</p>
 <p>The only thing left now was to get more soul-attacking skills.</p>
 <p>’I have the Soul Shock skill I bought from the Green Gate Bazaar. Though it is just a Heaven-grade skill, I have more than enough points now to upgrade it to higher grades.’</p>
 <p>Kent smiled.</p>
-<p>Naturally, he had become very confident, for he knew that having such a powerful soul would make his alchemy much simpler.</p>
+<p>Naturally, he had become very confident. After all, he knew that having such a powerful soul would make his alchemy much simpler.</p>
 <p>He understood that the moment he started concocting Tier 3 and higher pills, his soul strength would come into question, so he was preparing for that in advance.</p>
 <p>But now, if he were to compare himself to other alchemists, his soul strength would be on par with Pill Sages. He had met Pill Saints, and their soul strength had yet to reach the Tier 10 stage.</p>
 <p>This also meant that if he possessed the necessary knowledge, he could concoct Tier 8 pills—something that had never happened on this human continent.</p>

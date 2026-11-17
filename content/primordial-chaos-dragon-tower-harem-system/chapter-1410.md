@@ -34,7 +34,7 @@ chapter = 1410
 <p>He celebrated, then he started another extraction process. This time, he made sure he had more than enough time to focus on his technique and see how it improved with each extraction he had accomplished over the past few days.</p>
 <p>He made so much progress, and when he was finally done with everything, he smiled and gave himself a pat on the back.</p>
 <p>He had succeeded with Tier 11 herbs; his next challenge was Tier 12, which he started with great confidence.</p>
-<p>By the time he was done with the first extraction using Tier 12 herbs, Kent smiled broadly, for he knew he had figured out a way that, if developed well, would catapult his alchemy skills to a whole new level.</p>
+<p>By the time he was done with the first extraction using Tier 12 herbs, Kent smiled broadly, since he knew he had figured out a way that, if developed well, would catapult his alchemy skills to a whole new level.</p>
 <p>But after the jubilation, his limitations surfaced. The first was the time it took him to achieve 100% extraction.</p>
 <p>It took him close to 4 hours to extract the Tier 11 herbs, while it took up to 5 hours to handle the Tier 12 herbs. The process was just too slow.</p>
 <p>In a pill competition, he would be required to accomplish everything within 5 hours. If he spent this much time extracting only the medicinal essence, he would be disqualified before he even made any progress.</p>
@@ -51,7 +51,7 @@ chapter = 1410
 <p>However, comparing the essence he got from Tier 11, he knew attempting the Azure Pill Ring with Tier 12 would push him to his limits and might even fail.</p>
 <p>He could later try that. But with what he was aiming for, he wanted to become a Pill Monarch first before doing many other things.</p>
 <p>He arranged the ingredients for the Bone Tempering Pill. That was what he would be making his name with.</p>
-<p>"Tower, this is the moment. Make sure every last second and angel is captured, for I will be sharing the video with the alchemy community one day."</p>
+<p>"Tower, this is the moment. Make sure every last second and angel is captured. After all, I will be sharing the video with the alchemy community one day."</p>
 <p>[The master should rest assured that I will capture every moment. If the master manages to concoct a Tier 11 pill with an Azure Pill Ring, he would become the first person in history to accomplish that. So I will capture every last second.]</p>
 <p>"You are the best, Tower."</p>
 <p>Kent sighed, then he started the extraction process. Two hours later, the moment of the day came.</p>

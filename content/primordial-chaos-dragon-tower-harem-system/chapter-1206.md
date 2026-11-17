@@ -11,8 +11,8 @@ chapter = 1206
 <p>His bloodline is human, but, as many said, his true lineage traces back to the ancient humans. Legends speak of them as the first humans.</p>
 <p>He was the prince of a mighty empire.</p>
 <p>He had a loving family, friends, and riches that promised to keep him afloat for years to come. Basically, he had everything.</p>
-<p>To him, reaching the peak of cultivation was paved for him, for he had the backing to walk with his shoulder held high.</p>
-<p>However, despite his riches, his family made sure he also received a good upbringing. The plan was to mold his character into that of an emperor, for he was destined to sit on the throne one day.</p>
+<p>To him, reaching the peak of cultivation was paved for him, as he had the backing to walk with his shoulder held high.</p>
+<p>However, despite his riches, his family made sure he also received a good upbringing. The plan was to mold his character into that of an emperor. After all, he was destined to sit on the throne one day.</p>
 <p>Everyone loved him, and he was on track to become the next emperor.</p>
 <p>However, all that was taken from him when their own allies conspired against them. Those his family had protected for eons plotted against them, and overnight, every last one of them was slaughtered.</p>
 <p>He was the only one who barely survived by sheer luck.</p>
@@ -33,7 +33,7 @@ chapter = 1206
 <p>And so for hundreds of thousands of years, they hunted him down, and he killed his fair share of immortals and gods.</p>
 <p>The forgotten legend spoke of the day he became a god. It was said that the day he stepped into the realm of godhood, almost all gods ran into hiding, leaving the god realm all to him.</p>
 <p>Supremes and Celestials avoided him like a plague.</p>
-<p>Even the heavenly laws didn’t dare mess with him, for he was explosive, and whatever he set his mind to, no matter how long or how much he had to sacrifice, until he achieved it, he would never stop.</p>
+<p>Even the heavenly laws didn’t dare mess with him, because he was explosive, and whatever he set his mind to, no matter how long or how much he had to sacrifice, until he achieved it, he would never stop.</p>
 <p>When the creatures of the Dark arrived, to everyone’s shock, the Ruthless Bandit didn’t run, but faced them with everything he had. In the end, he fell, but not before he cleaved the last Dark Beast.</p>
 <p>"If I remember correctly, the Ruthless Bandit was shunned by the universe, his name erased from all existence. I even learned that talking about him carried some karmic debt.</p>
 <p>So how does such a person, so ruthless that even the universe chose to erase his name, be of help to me?"</p>

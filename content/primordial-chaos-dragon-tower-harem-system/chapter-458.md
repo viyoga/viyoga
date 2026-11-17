@@ -18,7 +18,7 @@ chapter = 458
 <p>Veydris was their leader, and while Kent didn’t know how he gave them commands, considering the overpowered knight didn’t talk, the battle went smoothly because of him and the thirteen dolls.</p>
 <p>But now, the scene had changed, and Kent was about to face the music.</p>
 <p>"So this is where it ends for us, huh?" Neomi asked, still in her Vak’Shara form. This form was for slaughter.</p>
-<p>It was designed to kill, for that was the form Shara created when she entered the trial of ten thousand people and came out as the sole survivor.</p>
+<p>It was designed to kill; after all, that was the form Shara created when she entered the trial of ten thousand people and came out as the sole survivor.</p>
 <p>She had killed over seven thousand people in that trial, something that molded her into someone even death obeyed.</p>
 <p>But now, she couldn’t help but ask.</p>
 <p>Bang!</p>

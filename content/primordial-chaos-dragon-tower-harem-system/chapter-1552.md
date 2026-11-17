@@ -17,7 +17,7 @@ chapter = 1552
 <p>Kent cleared his throat as if to say, but you are blind, so how can you see him, but he just smiled. Master of Purgatory also smiled.</p>
 <p>"The point is, he took interest in growth, and thanks to his rogue nature, I grew into an existence that even the heavens came to fear. I still don’t know why he has taken an interest in you, but what I can tell you is this: when the Paragon comes calling, it is nothing good. However, most of the time, it had to do something very important, something that the Presence of the Primordial Chaos Dragon would be needed.</p>
 <p>So we must play chess again, only that this time, it will be against a monster who can break into any universe and manipulate events, all just to ensure the people he calls friends suffer, but one day becomes the absolute version of themselves."</p>
-<p>Kent smiled, for he knew indeed his life had been manipulated by the Paragon in all the right ways from the start. The [Soul Universe] and his living sword [Gaap] were all his doing.</p>
+<p>Kent smiled, since he knew indeed his life had been manipulated by the Paragon in all the right ways from the start. The [Soul Universe] and his living sword [Gaap] were all his doing.</p>
 <p>However, just what is he up to this time around?</p>
 <p>"Tell me plainly, Master of Purgatory, compared to this statue, how far have I risen? In other words, out of 100, what is my score if the statue is a 100?"</p>
 <p>"Probably 65%."</p>

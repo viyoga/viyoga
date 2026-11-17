@@ -36,7 +36,7 @@ chapter = 611
 <p>"This is a delicate request, so give us some time to deliberate on it, and we will get back to you. However, regarding your uncle living here, he is welcome to stay for as long as he wants.</p>
 <p>We will prepare a room for him and even provide a training space where he can have peace of mind to cultivate," King Hkum said, and Kent nodded. At least one of his requests was accepted.</p>
 <p>This showed progress.</p>
-<p>"Thanks for accepting my request, King Hkum. I am grateful." Kent was indeed grateful. But while Kent was indeed grateful, the Foxkins are the same, for they are aware of what swordsmen can do.</p>
+<p>"Thanks for accepting my request, King Hkum. I am grateful." Kent was indeed grateful. But while Kent was indeed grateful, the Foxkins are the same; after all, they are aware of what swordsmen can do.</p>
 <p>One thing about swordsmen is that they can grow endlessly regardless of their cultivation base, so they wouldn’t let go of such an asset.</p>
 <p>Hearing he would soon be breaking his limit, they wouldn’t want to lose him, not when they are going against an alliance of five powerful Beast factions.</p>
 <p>The odds were far greater than something they could handle, so they would spend most of their efforts ensuring that someone who would soon break a limit on themselves was well cared for.</p>

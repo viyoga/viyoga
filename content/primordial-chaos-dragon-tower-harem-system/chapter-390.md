@@ -41,7 +41,7 @@ chapter = 390
 <p>Skills used in that infamous battle were captured in the sword energy in the air, waiting for the lucky ones to come and learn.</p>
 <p>Many rumours also suggest that the sword path used by the two swordsmen was captured within the sword that was stabbed into the ground.</p>
 <p>So, all those who ventured there were not only after those sword skills but also the sword paths said to have been stored inside the sword stabbed into the ground.</p>
-<p>However, nobody has ever gotten close to the sword, for it was never meant to be approached by the unworthy.</p>
+<p>However, nobody has ever gotten close to the sword, as it was never meant to be approached by the unworthy.</p>
 <p>Naturally, Jest wanted to go there and see if the rumours were true. So he set off, and after a year of travelling, he arrived at the Sword Valley, where he was thrust into a world of danger.</p>
 <p>The air was filled with the potent energy of the sword, and the remnants of previous sword attacks and echoes of those battles still lingered.</p>
 <p>Powerful beasts also took refuge in that space, so Jest had to be extra careful not to fall prey to any of them.</p>

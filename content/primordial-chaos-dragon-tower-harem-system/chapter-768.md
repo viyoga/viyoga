@@ -36,7 +36,7 @@ chapter = 768
 <p>But now, something this unexpected had happened, and everyone couldn’t wrap their heads around it.</p>
 <p>They just don’t understand what was going on.</p>
 <p>Of course, while everyone was wondering what the hell was happening, the half-elves were just sighing in their hearts, knowing full well who was behind the current events inside the Flame Tower.</p>
-<p>They already knew this had something to do with Kent, for he was the only one with the means to make nobodies suddenly gain recognition and strength like the seven names now displayed on the board.</p>
+<p>They already knew this had something to do with Kent; after all, he was the only one with the means to make nobodies suddenly gain recognition and strength like the seven names now displayed on the board.</p>
 <p>’Just what is your angle here, Kent?’ Queen Jascia wondered, not understanding what Kent intended to gain by making seven nobodies suddenly gain prominence.</p>
 <p>Meanwhile, back inside the tower, the seven who mastered their Flame Arts stood on the path leading to the second level.</p>
 <p>"Are you all ready?" Lorin asked, and all six with her nodded in agreement.</p>

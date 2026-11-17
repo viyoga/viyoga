@@ -6,7 +6,7 @@ chapter = 1907
 +++
 
 <p>"If you are watching this, then know we are all dead. I don’t know how they found us, but they did, and now, I am the only one remaining." The man in the display spat a mouthful of blood.</p>
-<p>"My lady, I am so sorry I couldn’t protect Lady Inkala from those monsters. I don’t know if they will kill her or enslave her, but I do hope that they kill her, for that would be mercy.</p>
+<p>"My lady, I am so sorry I couldn’t protect Lady Inkala from those monsters. I don’t know if they will kill her or enslave her, but I do hope that they kill her; after all, that would be mercy.</p>
 <p>The idea of them enslaving her eats at my sanity and conscience as a person. I will never wish that on even my enemies," He spat blood again.</p>
 <p>"I couldn’t do much, but all we have gathered on them is in this manual. If you return one day, please avenge us."</p>
 <p>The projection cut, and then the formation changed color, sending a sharp light throughout the room and forcing everyone to shield their eyes.</p>

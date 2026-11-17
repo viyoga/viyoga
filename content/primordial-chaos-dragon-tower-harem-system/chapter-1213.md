@@ -57,7 +57,7 @@ chapter = 1213
 <p>Before Liora could answer, the process began.</p>
 <p>Kent stepped forward and started to speak.</p>
 <p>"The path that had never been threaded before remains unthreaded simply because no one is brave enough to walk it.</p>
-<p>She chose to walk it, and in the end, she created a legend. They called her the Crystalborne Sovereign, for she rose above and became a sovereign of her own kind.</p>
+<p>She chose to walk it, and in the end, she created a legend. They called her the Crystalborne Sovereign, because she rose above and became a sovereign of her own kind.</p>
 <p>They called her the Mistress of Shattered Realms for her duelling lines in the realm of the shattered mirrors, an existence with infinite reflections.</p>
 <p>Many called her by many names, but the universe called Veirynthia, The Mirror of Shattered Realms.</p>
 <p>Rise Veirynthia, and reclaim your destiny."</p>

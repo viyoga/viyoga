@@ -9,7 +9,7 @@ chapter = 381
 <p>Akira had told him what she could do when she was first summoned, but never in his wildest dreams did he expect this to be the outcome when he asked for a class where he could create an undead legion.</p>
 <p>But now, standing before the panel and creating a new undead, Kent just couldn’t believe his eyes.</p>
 <p>⟪This time, the undead will be a male,⟫ Akira said, retrieving an undead schematic from which she had modified an already unique undead created by the universe.</p>
-<p>One good thing about the undead schematic is that it only creates one-of-a-kind undead. There isn’t a second version of them out there, for they are unique to Kent and Kent alone.</p>
+<p>One good thing about the undead schematic is that it only creates one-of-a-kind undead. There isn’t a second version of them out there, since they are unique to Kent and Kent alone.</p>
 <p>Akira activated the card, causing a projection of a figure to appear.</p>
 <p>"This one looks very menacing just from his image; I wonder what kind of powers he will have," Kent muttered, looking at a towering figure with white and red skin and two large horns on his forehead.</p>
 <p>⟪He will also have brute strength like Kaizo, but unlike Kaizo, who uses his fists, this one will use chains as his weapon.</p>
@@ -36,7 +36,7 @@ chapter = 381
 <p>But even without that, I just don’t have the power to attack or use my powers against anyone, not even against my sisters.</p>
 <p>First, if Dori were to use her powers against her captors, she would cause more harm to the fabric of the world she was in, and perhaps, many would perish without her even knowing.</p>
 <p>That is the power of a weaver. We have been created as absolute beings, but we are powerless children if you ask me.</p>
-<p>A single punch from me can shatter galaxies, but doing so would be very bad for this universe, for we are created from the core of the universe.</p>
+<p>A single punch from me can shatter galaxies, but doing so would be very bad for this universe, because we are created from the core of the universe.</p>
 <p>Perhaps, if we are outside the confines of this universe, we can freely use our powers, but while inside, it would mean us destroying this universe. None of us want that.⟫</p>
 <p>"I think I get the gist of it. In that case, under no circumstance should the two of you use your powers to come to my aid.</p>
 <p>I won’t be happy about saving me while millions or perhaps billions perish," Kent said, and the two ladies nodded.</p>

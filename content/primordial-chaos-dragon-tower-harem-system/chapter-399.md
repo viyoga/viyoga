@@ -18,7 +18,7 @@ chapter = 399
 <p>"Young Master, with your permission, I can start the process," Uncle Drew said, and Kent nodded.</p>
 <p>"Before we start anything, do you have any questions you would want answers to? I know this is all strange to you, but I think you have some questions you need to ask."</p>
 <p>"What would I become?" she asked. She could feel it deep in her bones. The changes that are coming would change her, so she wants to know.</p>
-<p>"You will become an existence known as a Night Rider. Most would call you Riders of the Night or the Night Warden. And as a Night Rider, you are neither dead nor alive, for you hang in the middle.</p>
+<p>"You will become an existence known as a Night Rider. Most would call you Riders of the Night or the Night Warden. And as a Night Rider, you are neither dead nor alive, since you hang in the middle.</p>
 <p>You will become an invincible being in the night and have supreme authority over the flames of hell. You will also have insight into the supernatural, and if you once were, then you will be again," Uncle Drew explained.</p>
 <p>"If you once were, then you will be again. Can you explain this part?"</p>
 <p>"It sounds exactly as it means. The Night Riders were beings who fought in these universes, but we all died."</p>
@@ -30,7 +30,7 @@ chapter = 399
 <p>I tried to understand how we came into being, but she said only some ancient book — one that takes one’s longevity when read — could disclose that.</p>
 <p>She also said every Night Rider is still born with their memories locked within them, and it will take some time to start recalling them.</p>
 <p>But she helped me unlock a very small portion of mine. This was the reason I slowly went from Root Sage to Transcendent. I discovered a secret from my past as a Night Rider, and the effect was what you saw."</p>
-<p>Kent smiled, for he understood where he was coming from. He himself had grown by leaps and bounds after his second memory recovery, so he knew Uncle Drew was telling the truth.</p>
+<p>Kent smiled, as he understood where he was coming from. He himself had grown by leaps and bounds after his second memory recovery, so he knew Uncle Drew was telling the truth.</p>
 <p>But while he was smiling, he still couldn’t figure out who this Nyx lady was or why she was going out of her way to help his subordinate.</p>
 <p>Of course, there wasn’t an answer to his question now, but he was bound to find out in the coming years.</p>
 <p>Nara listened to Uncle Drew talk about the Night Riders, and at every turn, something within her seemed to want to awaken.</p>

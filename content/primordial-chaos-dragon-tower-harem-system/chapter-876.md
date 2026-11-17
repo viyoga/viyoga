@@ -28,7 +28,7 @@ chapter = 876
 <p>He tried again, striking with a powerful diagonal attack, attempting to use the opening between the ring at the top and the one in front of Kent. However, they moved and blocked his sword.</p>
 <p>But just before his sword was about to land on the ring, his left leg moved, aiming for Kent’s exposed ribcage.</p>
 <p>However, the ring behind Kent moved and blocked the powerful kick, sending him flying back again.</p>
-<p>[That was ten percent of his power, master. Be ready, for he is getting angry.]</p>
+<p>[That was ten percent of his power, master. Be ready, as he is getting angry.]</p>
 <p>’I suppose the rings work. It was too draining. But then again, I have four unabsorbed cores powering them, so I can use them for a while.’</p>
 <p>[Until the master forms the first Core Gate, he cannot use the rings to channel energy directly from the Primal Chaos Core since that will be too draining.</p>
 <p>However, even with four cores active, the master still needs to handle things more actively.]</p>

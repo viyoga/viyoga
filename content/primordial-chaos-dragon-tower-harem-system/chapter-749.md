@@ -11,7 +11,7 @@ chapter = 749
 <p>However, Kent is different; his contracts essentially require him to ensure that every one of his companions is taken care of by him.</p>
 <p>Of course, they will provide him with Spiritual Qi, soul essence, skill upgrade points, and tower points. But that is just something trivial in the long run. After all, Kent already has three races under his belt, giving him all he wants.</p>
 <p>So, looking at this offer with a critical eye, Uncle Drake has more to gain than even Kent.</p>
-<p>However, Kent is a no-nonsense guy, so he already anticipated this response, for that is how he would respond if someone he couldn’t kill asked for said contract.</p>
+<p>However, Kent is a no-nonsense guy, so he already anticipated this response, because that is how he would respond if someone he couldn’t kill asked for said contract.</p>
 <p>"Relax. This contract isn’t for you to become my slave. I hate slavery, so don’t worry about me turning you into one."</p>
 <p>"Then what contract are you talking about?"</p>
 <p>"The kind that will allow you to grow unimpeded. I’m not sure if you’re already aware, but this world is just the beginning of a cultivation journey.</p>
@@ -55,7 +55,7 @@ chapter = 749
 <p>’Well, that was unexpected but welcome.’ Kent’s smile, feeling newfound strength, washed through his body. His main objective for coming to the valley had been realized.</p>
 <p>This means he can now focus on other things.</p>
 <p>"Let’s go." Kent started flying away while the eight Elves followed. Princess Elowen wanted to ask something, but she kept it to herself after some consideration.</p>
-<p>For now, she would just remain on the side and follow all Kent had to say, for that was her main objective for coming to the valley. The other minor issues would be handled later.</p>
+<p>For now, she would just remain on the side and follow all Kent had to say. After all, that was her main objective for coming to the valley. The other minor issues would be handled later.</p>
 <p>⟦I have mapped out 12 locations in the core region with a large number of flame beasts. However, be warned, the locations house some of the most terrifying beasts you will meet in a medium world.⟧</p>
 <p>’I guess it is a good thing I brought backup,’ Kent laughed inwardly.</p>
 <p>With his strength, fearing anything in a medium world would be very hard. Perhaps there are beings he would struggle against, but dying to them isn’t one of those.</p>

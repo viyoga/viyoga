@@ -29,7 +29,7 @@ chapter = 1219
 <p>She later fell in combat during the Great War...</p>
 <p>She was one of many deaths that brought the Chaos Dragon to his breaking point. However, because of their sacrifice, he also gained the strength to make the ultimate sacrifice.</p>
 <p>The hidden records even spoke of her having allies in the Cosmic Realm, despite cosmic beings said to have no favourites.</p>
-<p>"They called her Aeryn’Vael — The Fox Beyond Distance, for she had indeed bridged a vast distance, bringing peace and tranquillity that threatened to devour the universe."</p>
+<p>"They called her Aeryn’Vael — The Fox Beyond Distance, because she had indeed bridged a vast distance, bringing peace and tranquillity that threatened to devour the universe."</p>
 <p>Kent smiled, a wave of happiness bubbling in his heart. He didn’t know where the happiness was coming from, but he knew for a fact that he was happy at the moment.</p>
 <p>He looked up at the white mist now surrounding Arien. From the edges of the fog, he could see white fluffy tails snaking out from it from time to time.</p>
 <p>"Rise once again, Aeryn’Vael, let the space be yours to rule once again."</p>

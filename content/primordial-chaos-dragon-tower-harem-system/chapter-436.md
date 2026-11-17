@@ -27,7 +27,7 @@ chapter = 436
 <p>The assassin he killed was one of their best, so the moment his classic one-dash kill attack failed, they knew they had to run.</p>
 <p>"Oh, but you cannot run," Kent smiled and activated one of the abilities unlocked when he upgraded the [Soul Shock] skill.</p>
 <p>"Soul Lock." The entire space around the house where the assassins were hiding was locked down. "No running now unless you want to die the most painful way."</p>
-<p>His warning was heard by all, and like he said, none of them moved, for they knew they were under rather powerful soul energy.</p>
+<p>His warning was heard by all, and like he said, none of them moved; after all, they knew they were under rather powerful soul energy.</p>
 <p>Those closer to the boundaries of the soul lock felt their souls getting pressed down hard.</p>
 <p>"Kill him," one of the Ascension-stage assassins ordered, and like the obedient assassins they were, they lunged at Kent.</p>
 <p>He moved back, evading an arrow aimed at his head. In return, he turned and locked eyes with the assassin atop a structure who was using the crossbow against him.</p>

@@ -14,7 +14,7 @@ chapter = 794
 <p>That was when Alina realized Kent was inside her space, causing her to stop. She looked at him for a few moments before bowing her head, planting her gaze on the ground.</p>
 <p>"You look funny," Kent said, walking toward her. Soon, he was standing in front of her. Then he reached out and hugged her.</p>
 <p>Alina immediately started crying in his arms.</p>
-<p>Not that Kent minded, for he knew to some extent Alina saw herself as inferior when in fact she was the most dangerous of them all.</p>
+<p>Not that Kent minded. After all, he knew to some extent Alina saw herself as inferior when in fact she was the most dangerous of them all.</p>
 <p>But who could blame her for thinking that?</p>
 <p>All of her sisters were warriors with their weapons, while she just had to be guarded before she could analyze a battlefield and draw the correct formation or array to handle it.</p>
 <p>Of course, long before Kent awakened her True Name, she never knew what she could bring to the harem aside from the fact that her man was obsessed with her butt.</p>
@@ -32,7 +32,7 @@ chapter = 794
 <p>She wanted to cheer Kent up and assure him she was fine. But Kent knew her better than she did, so he pulled her closer, and as expected, his hands found her butt and started kneading it.</p>
 <p>"Don’t see yourself as a failure, Alina. You are my wife, and every last one of my wives is no failure. When you should have given up after your mother died, you didn’t; instead, you chose to live on, and now you are here.</p>
 <p>That alone tells you what you are. You are a warrior just like every last one of your sisters.</p>
-<p>So live like one, for there will be many setbacks and failures in the future, and if you let them kill your spirit, then your future as a true warrior might as well be shattered now."</p>
+<p>So live like one, as there will be many setbacks and failures in the future, and if you let them kill your spirit, then your future as a true warrior might as well be shattered now."</p>
 <p>Alina nodded, a subtle moan escaping her lips as she looked at the smug look on Kent’s face.</p>
 <p>"You always know the right words to say and what to do."</p>
 <p>"That’s because I am awesome." Kent raised her into his arms, making Alina wrap her legs around his waist. Kent, of course, shamelessly sank his fingers into her soft ass, causing Alina to giggle.</p>
@@ -50,6 +50,6 @@ chapter = 794
 <p>’Since this is what you wanted to do, I will make sure your dreams come true. Also, this is my time to nerd up and make sure that when all is said and done, the battlefield will tremble at your presence.’</p>
 <p>Kent didn’t know where this reasoning of hers came from. It was all too modern and mundane.</p>
 <p>But he understood one thing: if what she said was indeed what she aimed for, then there was a chance that she would become something akin to a Sovereign of the Matrix, someone whose presence encompasses all battlefields and nothing, no matter how minute it is, will escape her sight.</p>
-<p>’I hope you succeed, Alina, I really do, for this will be very difficult to create, but if you manage to break free of all limitations, you will become someone who wouldn’t make mistakes when in combat.’</p>
+<p>’I hope you succeed, Alina, I really do, since this will be very difficult to create, but if you manage to break free of all limitations, you will become someone who wouldn’t make mistakes when in combat.’</p>
 <p>Kent walked out of the grid space with Alina in his arms. When he arrived in the harem tower, he could sense the jealous looks from her sisters, especially when they saw what his hands were doing.</p>
 <p>He just laughed, and soon, he was in Fedora with everyone except Vexthra and Camilla.</p>

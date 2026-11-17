@@ -18,7 +18,7 @@ chapter = 757
 <p>In the past, the half-Elves would have gone to them, but the tables have now turned on them. Now, they are the ones on the bad side of the coin.</p>
 <p>Of course, there was Queen Jascia too, whom she knew deep in her heart that with her now back from the dead, things wouldn’t be the same anymore.</p>
 <p>Two thousand three hundred ninety-eight years ago, she was a promising talent they were nurturing to lead the Elven army to greater heights.</p>
-<p>They spent a lot of resources in the hope that when she reached the stage they wanted, she would be announced as their beacon of hope, for she was indeed worthy of being called so.</p>
+<p>They spent a lot of resources in the hope that when she reached the stage they wanted, she would be announced as their beacon of hope, since she was indeed worthy of being called so.</p>
 <p>However, just when their investment was about to bear fruit, she grew wings instead and married into the race they’d been trying to suppress.</p>
 <p>That alone was a giant slap to the Elves’ ego.</p>
 <p>So seeing her alive wasn’t something they were happy about, and Queen Elenara made it plain from her frown.</p>

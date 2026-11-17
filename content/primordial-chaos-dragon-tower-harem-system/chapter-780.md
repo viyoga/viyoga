@@ -24,10 +24,10 @@ chapter = 780
 <p>"They indeed surprise even me. However, this also shows that they have potential that will take them even further. For now, they must join the sect.</p>
 <p>That said, I believe they have what it takes to get in, so we shouldn’t be worried. Also, I think with the path they’ve taken, their growth will only continue to soar."</p>
 <p>Kent turned to Uncle Drake. "You must help them in the next few days. You are the best person to help them when it comes to using the flame."</p>
-<p>"I will do my best." Uncle Drake was already looking forward to this assignment, for he could tell something had changed about them.</p>
+<p>"I will do my best." Uncle Drake was already looking forward to this assignment; after all, he could tell something had changed about them.</p>
 <p>They looked and felt more confident, and for that, he wanted to see what he could do to bring out more of their potential.</p>
 <p>"I will be gone for the next six days, so I might even miss the auction. But don’t worry, Uncle Drake is here for any trouble.</p>
-<p>Additionally, be prepared to start receiving visitors soon. I know you can handle them, for you already have your own thing going on."</p>
+<p>Additionally, be prepared to start receiving visitors soon. I know you can handle them. After all, you already have your own thing going on."</p>
 <p>The Half-Elves laughed, and Kent stood up.</p>
 <p>Now that he saw a way forward in the path of flame cultivation, he wanted to work on that. But first, he must visit the ladies currently preparing to enter the third floor of the Planet Killer Dungeon.</p>
 <p>A few seconds later, he left...</p>

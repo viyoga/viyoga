@@ -43,7 +43,7 @@ chapter = 261
 <p>Spirit-wielding is when a swordsman, spearman, or any weapon cultivator uses their mind to control their weapons. Right now, the Saintess was using three flying swords and a real sword in her grip for the battle.</p>
 <p>Kent smiled. "A wise man once said, ’What shall it profit a woman if she had all the swords in the world but doesn’t know how to wield them?’" He took a step forward, causing the air to distort around him.</p>
 <p>"I may be a Grandmaster, but there is another saying that goes, ’Don’t judge a book by its cover.’" He extended his hand, and the golden sword sheath appeared, causing many to raise their eyebrows.</p>
-<p>"But you can judge now, for you wouldn’t have the same chance again. Not ever." Kent pointed the golden sheath at her and said the magic words.</p>
+<p>"But you can judge now, since you wouldn’t have the same chance again. Not ever." Kent pointed the golden sheath at her and said the magic words.</p>
 <p>"Give me your best swing... Saintess."</p>
 <p>That was all it took, but the next second, three swords came from three different directions. The speed was just too much to handle. However, Kent just took a single swing, and three sword arcs appeared.</p>
 <p>The three thin flying swords were countered, and then he blinked away and appeared behind the Saintess. However, before he could attack, the Saintess attacked using the flying swords again.</p>

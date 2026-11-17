@@ -19,7 +19,7 @@ chapter = 917
 <p>"I know your real body can hear what I am saying, so listen well. I am someone who values happiness above all else. I don’t hate, for hatred is for those who have no other choice.</p>
 <p>But for someone to hate you means they want you gone, and thus hate is the strongest evil intent a person can ever have.</p>
 <p>So, for me to hate you, know that there is no way I will let you go scot-free. I will follow up on this and will continue hunting for your kind for generations to come.</p>
-<p>So take in this moment. Let it imprint on your mind and do well to remember, for this is the fate that awaits you when I get my hands on you."</p>
+<p>So take in this moment. Let it imprint on your mind and do well to remember; after all, this is the fate that awaits you when I get my hands on you."</p>
 <p>The flame intensified, and the scream of the Forsaken Elder increased even more. Eventually, he stopped screaming. A few seconds later, his body was consumed by the flame. The only thing that remained was a pill-sized blood essence.</p>
 <p>Kent waved his hand, and the blood essence floated and entered his forehead.</p>
 <p>For a second, nothing happened. However, a few seconds later, a powerful pressure crashed down on Deva, who immediately started coughing blood.</p>

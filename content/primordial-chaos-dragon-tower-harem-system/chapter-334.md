@@ -30,7 +30,7 @@ chapter = 334
 <p>"Kill them all." Suddenly, a familiar voice entered their ears, forcing those who could look to turn toward the direction it came from.</p>
 <p>There, standing in the air, was Kent, who pointed his sword forward as five metallic figures moved with the wind.</p>
 <p>In the next moments, people began dying, with even two unfortunate Root Ascension stage experts falling prey to Kent’s perfect attack plan.</p>
-<p>The metal dolls were perfect for killing, for they didn’t make mistakes when it came to aiming for the lives of those they were facing.</p>
+<p>The metal dolls were perfect for killing, since they didn’t make mistakes when it came to aiming for the lives of those they were facing.</p>
 <p>"Hahahahah!"</p>
 <p>Suddenly, a sinister laughter echoed through the air, accompanied by a bone chain.</p>
 <p>It shot toward Kent with the intent to stab him through the heart, but before it could get within two meters of him, a hand grabbed it and pulled forward, sending the attacker flying toward him.</p>
@@ -52,7 +52,7 @@ chapter = 334
 <p>Both Elders were assassins, but instead of using the element of surprise against him, they were now trying their best to outpace him.</p>
 <p>"I know I can’t kill you like that, but I made you look cocky for a moment there," Kent said, blocking his attack and grabbing hold of his arm.</p>
 <p>"Soul Shock." Kent activated his soul skill, and for a moment, the figure blacked out as his soul was attacked suddenly.</p>
-<p>"Die." That was all the elder heard before his head was severed from his body. "Always go for the head, for it cannot walk without the body", Kent added coldly.</p>
+<p>"Die." That was all the elder heard before his head was severed from his body. "Always go for the head. After all, it cannot walk without the body", Kent added coldly.</p>
 <p>"What?!"</p>
 <p>The other elder, who was closing in, retreated when he saw his fellow elder die through physical means.</p>
 <p>It shouldn’t have been possible, considering they always turned to smoke whenever a physical attack landed on them.</p>

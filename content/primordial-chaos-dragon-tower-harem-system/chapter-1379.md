@@ -10,7 +10,7 @@ chapter = 1379
 <p>The sword intent inside the garden felt like it had taken hold of the entire garden, rewriting everything within it.</p>
 <p>"Fascinating. So one day, I would be able to influence the very laws within a space using my sword Realm ."</p>
 <p>The sword intent in the air, from what Jest could feel, had overridden the laws of the garden, making it so that once he enters there, the only thing he can do is train his sword intent.</p>
-<p>Jest didn’t mind that, for he had already expected that even before he entered the garden.</p>
+<p>Jest didn’t mind that; after all, he had already expected that even before he entered the garden.</p>
 <p>"The air is filled with sword intent to the point that merely breathing is allowing me to understand some mysteries of the sword."</p>
 <p>As someone who had mastered the foundation of swordsmanship completely, he could sense that breathing inside this garden was not so simple.</p>
 <p>There was so much to it that he just could not place his finger on it.</p>

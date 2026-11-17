@@ -46,5 +46,5 @@ chapter = 633
 <p>When I said bye-byes to True Immortal Yusif, I entered the ship that took three years to get to Valyrion.</p>
 <p>I arrived in Shengdao City, the capital of the Bladeheart continent. I didn’t know what awaited me there, but it turns out that if you step into that godforsaken city, if you don’t want to be challenged, then put away your sword.</p>
 <p>I didn’t know that, and that was how I came to know Seraphina, the Moonlit Dancer — the woman who would chase me all over Valyrion and beyond.</p>
-<p>I will spend thousands of years running from her, for she aims to kill me. The reason was that I refused to accept her challenge... a grave crime.]</p>
+<p>I will spend thousands of years running from her; after all, she aims to kill me. The reason was that I refused to accept her challenge... a grave crime.]</p>
 <p>Kent closed the book, and his consciousness was drawn back into the realm of enlightenment once again...His fourth enlightenment was underway.</p>

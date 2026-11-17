@@ -39,7 +39,7 @@ chapter = 1859
 <p>Even though Ruby’s power was suppressed, the killing intent in her eyes said otherwise...</p>
 <p>"She is your sister? Are you saying this vixen who caused many to lose their minds is your sister?" A pained laugh came from Ruby’s mouth, causing her killing intent to start leaking...</p>
 <p>"This bitch killed my friend simply because she liked the Nine Underworld Flame Blacksmith. Then she went ahead and attacked me simply because I was her friend, so tell me, do you think you can stop me from killing her today?"</p>
-<p>"Oh please, you should be grateful I killed that bitch. In case you are not aware, she colluded with one of the Flame Monarchs, and she was going to betray you. Had it not been because you were related to Fjorge, I wouldn’t have minded. So instead of spouting nonsense, be grateful, for I did you a great favor."</p>
+<p>"Oh please, you should be grateful I killed that bitch. In case you are not aware, she colluded with one of the Flame Monarchs, and she was going to betray you. Had it not been because you were related to Fjorge, I wouldn’t have minded. So instead of spouting nonsense, be grateful, because I did you a great favor."</p>
 <p>"You bitch, you killed her because you were jealous of our friendship and her liking for Fjorge. Or you think just because we used to be friends, you had the right to kill my other friends?"</p>
 <p>Meiko giggled. "As a matter of fact, yes. And in case you are wondering, I was also the one who killed your stepsister and your stepmother. Those losers tried to betray you too, and despite hating you with all my guts, we used to be friends, so be grateful again."</p>
 <p>"You crazy bitch."</p>

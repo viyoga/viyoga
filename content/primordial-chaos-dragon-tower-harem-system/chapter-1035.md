@@ -23,7 +23,7 @@ chapter = 1035
 <p>He can now condense a flame dragon by channeling the essence of his flame core.</p>
 <p>Now, looking down at the thousands of hell demons, a grin appeared on Kent’s face.</p>
 <p>"It is rather unfortunate, isn’t it? Here you all are, thinking the moment this mysterious person who dares challenge the Hell Road appears, we will swarm him and kill him in the most painful way possible." The grin on his face spread.</p>
-<p>"I mean, that is normal, for I would have done the same thing if I were in your place. However, I am not in your place, and while I should applaud you all for delivering precious blood essence to me, I have to say, I am very disappointed."</p>
+<p>"I mean, that is normal, because I would have done the same thing if I were in your place. However, I am not in your place, and while I should applaud you all for delivering precious blood essence to me, I have to say, I am very disappointed."</p>
 <p>Kent looked toward the distance, his gaze piercing through the fabric of space as he locked eyes with the ruler of the city, City Lord Zorvak.</p>
 <p>"If you want to welcome me into your domain, at least have the decency to send those with powerful blood essence."</p>
 <p>After forming the Blood Core Gate, Kent gained the ability to sense the blood essence of his foes and tell which had the highest quality.</p>

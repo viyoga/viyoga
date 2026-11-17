@@ -34,7 +34,7 @@ chapter = 434
 <p>He made sure he recorded everything correctly and in the order he was given.</p>
 <p>Forty-five minutes later, he was done and placed the stick down.</p>
 <p>In the VIP room, the Saints who were watching everyone turned and looked at each other. They knew one of two things would happen if they didn’t become careful.</p>
-<p>Kent spent less than an hour finishing the recipes, and clearly, everyone saw that. So when the results came out, they would expect to see his name in the first spot, for they knew he had written all the correct recipes on the scroll.</p>
+<p>Kent spent less than an hour finishing the recipes, and clearly, everyone saw that. So when the results came out, they would expect to see his name in the first spot, because they knew he had written all the correct recipes on the scroll.</p>
 <p>So if they instead chose to bump down his ranking, people would notice. This meant they could only ensure he wasn’t suppressed like before.</p>
 <p>But they were also not willing to make him first.</p>
 <p>Initially, Kent knew this would happen and was happy about it. He didn’t care about the ranking. When the real alchemy began, he gradually showed everyone his mastery.</p>

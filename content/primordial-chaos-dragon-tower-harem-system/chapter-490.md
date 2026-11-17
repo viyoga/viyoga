@@ -47,7 +47,7 @@ chapter = 490
 <p>She moved closer and started examining Vexthra like she was a patient in Li Hua’s health center. After a while, she smiled and walked back to Kent, jumping into his arms and bringing her mouth closer to his ear.</p>
 <p>"Do you think she likes banana cakes?" she asked Kent this time, doing her best to lower her tone even further.</p>
 <p>Kent, who knew the brat in his arms meant nothing good by asking this question, chose to entertain her. He was already made aware of Li Hua’s love for money.</p>
-<p>She always liked to have money in her life, for she and her grandma were always on the run, and money was the most valuable item for them.</p>
+<p>She always liked to have money in her life, because she and her grandma were always on the run, and money was the most valuable item for them.</p>
 <p>Seeing a beautiful lady, she knew what had to be done.</p>
 <p>Vexthra just laughed, knowing her character, for Kent had told her everything when he visited her the first time. But watching her in action was much better, so she was smiling her head off.</p>
 <p>Kent was also the same.</p>

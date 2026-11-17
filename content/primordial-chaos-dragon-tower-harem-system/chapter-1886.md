@@ -41,4 +41,4 @@ chapter = 1886
 <p>Kent even received the materials they’d gathered and had begun tempering them within his soul Universe for when he was ready to upgrade them.</p>
 <p>Back then, when they all reached the God stage, they awakened mind-bending powers. This time, too, Kent planned to ensure that each of them rose to the Peak of Godhood, or even to early Supremehood.</p>
 <p>This way, they can fight even Celestials and not feel much pressure.</p>
-<p>But that all can wait, for he had some beauties to entertain, and one of them wishes to spend three god months with him.</p>
+<p>But that all can wait. After all, he had some beauties to entertain, and one of them wishes to spend three god months with him.</p>

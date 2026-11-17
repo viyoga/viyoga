@@ -35,7 +35,7 @@ chapter = 843
 <p>Hovering behind the elder is a soul flag, and before him is an ordinary sword spinning vertically. The elder was moving souls from the flag and using them to refine the sword.</p>
 <p>’This is unreal’</p>
 <p>Kent said inwardly, paying close attention to what the elder was doing. The more souls he takes from the soul flag, the more powerful the sword gets.</p>
-<p>None of the disciples dared blink, for they feared even blinking once would cause them dearly.</p>
+<p>None of the disciples dared blink, since they feared even blinking once would cause them dearly.</p>
 <p>’Tower, keep tracking the grade of the sword and update me whenever it goes up.’</p>
 <p>A few hours later, the tower updated Kent on the grade of the sword.</p>
 <p>⟦Current Grade: Legendary (Low)⟧</p>

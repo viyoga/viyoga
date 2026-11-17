@@ -15,7 +15,7 @@ chapter = 962
 <p>The man looked at Kent for a few more minutes, ignoring the shouts from those standing in line. Kent could tell the man was genuinely concerned about his safety.</p>
 <p>However, he didn’t mind that. After all, he had already made plans to get to the planet one way or the other.</p>
 <p>"Fine. However, be sure to purchase life-saving treasures upon arrival on Planet Cosima. Of course, you should know this transfer channel will take you to the Moon on Planet Cosima, and you will have to buy a teleportation talisman to teleport to one of the seven regions on Planet Cosima.</p>
-<p>You must buy double, for you will need one to get off the world.</p>
+<p>You must buy double; after all, you will need one to get off the world.</p>
 <p>Be careful, too, when you are there. There are beasts there, but there are also human monsters who prefer to kill their fellow humans instead of hunting beasts.</p>
 <p>Be guarded against them, and most importantly, never trust anyone."</p>
 <p>He handed Kent a jade stone and asked him to enter without even taking the 50,000 Spirit Stones he was supposed to. Kent thanked him and left.</p>

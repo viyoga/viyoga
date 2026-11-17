@@ -11,7 +11,7 @@ chapter = 792
 <p>"You all are perfect. I don’t need you proving yourselves to me to see that. I can see you all, so why go to such extreme lengths just to make me want to see you?"</p>
 <p>Kent asked, and Vexthra smiled.</p>
 <p>"Because we love you and want to do everything for you. Why do you think we wanted to take the dungeon off your hands so you could go out there and handle your business?</p>
-<p>We wanted to take as many loads as you carry off your shoulders, for we are your wives and that is our role.</p>
+<p>We wanted to take as many loads as you carry off your shoulders, since we are your wives and that is our role.</p>
 <p>We aren’t just housewives or bed warmers. We are warriors, and for that, we would do everything in our power to make sure your dreams come true."</p>
 <p>"How about your dreams? Dont you have to make them come true too?"</p>
 <p>Vexthra’s smile blossomed into a small, loving laugh. "Our dream is to see your dreams come true. Our dream is to see you happy, fulfilled, and above all else, loved.</p>
@@ -23,7 +23,7 @@ chapter = 792
 <p>Since then, he had never known tears, but today, he couldn’t hold back his emotions.</p>
 <p>’What did I do to deserve all this love? Do I even deserve this much love, dedication, and commitment? Am I even worthy of being loved this much?’</p>
 <p>His emotions were in turmoil, unsure of what to think. Just a little over three years ago, he was but a lonely 34-year-old with nothing but hate buried deep in his heart.</p>
-<p>He had nobody in his life, for he was incapable of feeling love. He couldn’t feel emotions. He was unworthy of being loved.</p>
+<p>He had nobody in his life. After all, he was incapable of feeling love. He couldn’t feel emotions. He was unworthy of being loved.</p>
 <p>But now, he had not only one, but eighteen women willing to do everything they could to see him happy. That is just too much for someone like him not to feel something.</p>
 <p>Being loved that deeply was just too much for him to handle. However, Kent’s emotional outburst turns out to have caused a much bigger disaster than anyone would have expected.</p>
 <p>---</p>

@@ -11,7 +11,7 @@ chapter = 860
 <p>After all, Kent came there for a mission, and knowing his life was linked to hers wasn’t something he took lightly. If he were there on his own accord, he wouldn’t mind teasing her in an attempt to get her to open up.</p>
 <p>Even so, Kent had already made plans to get them closer to their destination, so being friendly to her was but a side quest he wasn’t planning on taking seriously.</p>
 <p>After they were done eating, Kent took out a map and made it hover before him.</p>
-<p>"This is the map of the Valley of Torture. Don’t ask me how I got it, for I don’t plan on telling you. That said, as you can see, there are three different color markings on it.</p>
+<p>"This is the map of the Valley of Torture. Don’t ask me how I got it. After all, I don’t plan on telling you. That said, as you can see, there are three different color markings on it.</p>
 <p>The black ones are the various mercenary groups sent after you for reasons I don’t know, and I don’t plan on asking if you don’t want to tell me.</p>
 <p>The green marks are the beasts above the Spirit Sovereign stage. As you can see, there are thousands of them. We can’t reach our destination without crossing paths with them, so be prepared for some significant battles.</p>
 <p>As for the red marks, they indicate the naturally hazardous areas in this valley. There are six of them, and our only hope of getting to the teleportation mountains is to use these six places to our advantage.</p>

@@ -42,7 +42,7 @@ chapter = 1025
 <p>"When I next meet Paragon, I want to feel like his equal. So I must challenge myself."</p>
 <p>Many Heavenly Ascension stage warriors would run with their tails burning behind them if they were to face this horde of Damned Hell beasts.</p>
 <p>However, a mere Core Formation stage warrior had the audacity to hold himself back and even use them as training dummies.</p>
-<p>One would ask where the logic is, for there is no logic in what Kent is doing.</p>
+<p>One would ask where the logic is, as there is no logic in what Kent is doing.</p>
 <p>He is still seven realms below these beasts. However, he is killing them as if they were mere bugs.</p>
 <p>---</p>
 <p>[Two months after entering the Damned Hell Sea - 70,000km deep into the Outer Layer]</p>

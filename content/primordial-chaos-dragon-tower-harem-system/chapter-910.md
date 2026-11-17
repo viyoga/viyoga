@@ -9,8 +9,8 @@ chapter = 910
 <p>As this was happening, somewhere on the battlefield, Vari, who was making sure Lani was okay, turned slightly and looked in the direction of Lady Liora.</p>
 <p>"The Yin-Yang Death Circle." On Vari’s forehead, the same circle appeared, but unlike Lady Liora, she had a perfect union, showing her life and death were balanced.</p>
 <p>Of course, as the one heralded as the Mother of Assassins, she was destined to weave both life and death in perfect union.</p>
-<p>However, Lady Liora wasn’t having it easy, for she had never truly managed to comprehend life as she had planned. She had made some progress, but it wasn’t enough to balance things out.</p>
-<p>This was part of the reasons why she refused to join any Pill Alliance. She wasn’t looking for fame, for she was rather after life.</p>
+<p>However, Lady Liora wasn’t having it easy; after all, she had never truly managed to comprehend life as she had planned. She had made some progress, but it wasn’t enough to balance things out.</p>
+<p>This was part of the reasons why she refused to join any Pill Alliance. She wasn’t looking for fame, as she was rather after life.</p>
 <p>During her life as the Silent Angel, after many kills, she awakened the Yin-Yang Death Circle and quickly comprehended the essence of death, allowing her to gain control of the ’Yin’ aspect of her power.</p>
 <p>However, the ’Yang’ was something she had been trying to comprehend for 15,000 years. Her master did her best to help her, and she had also done her best to gain some understanding.</p>
 <p>However, with a great battle right at her doorstep, she knew it was time for her to fight, and so she dropped all caution and chose to kill.</p>
@@ -25,7 +25,7 @@ chapter = 910
 <p>"Allow it to flow through your body."</p>
 <p>Vari instructed, and Lady Liora did as she was told. After a few more minutes, she felt her eyes gain a new clarity, and naturally, she sensed she had taken a step toward comprehending the essence of life.</p>
 <p>Vari nodded, seeing the Yin-Yang Death Circle slowly start to stabilise.</p>
-<p>"It isn’t a permanent fix, for you still have to comprehend Life. However, the energy running through your body will aid you, so go into seclusion right after the battle."</p>
+<p>"It isn’t a permanent fix, because you still have to comprehend Life. However, the energy running through your body will aid you, so go into seclusion right after the battle."</p>
 <p>"Thank you," Lady Liora said, thanking Vari, who merely nodded and vanished, appearing beside Lani, who was doing her best to wipe as many tattoos off her body.</p>
 <p>On one side of the battlefield, Zaila was hovering in the air, four runic symbols revolving around her. Her hands were moving in the air, making her appear like a music conductor.</p>
 <p>However, if one looked much closer, they would see she was doing more than just moving her hands through the air.</p>
@@ -47,7 +47,7 @@ chapter = 910
 <p>Sylara, who had been in the air for almost an hour, revealed herself from the mist, exuding a powerful blood aura.</p>
 <p>She was clad in her black, spiky, jagged armour, her claws extending a few inches longer this time.</p>
 <p>When everyone saw her, their backs broke into a cold sweat.</p>
-<p>If Kent were around, he would laugh and call the Evil One-Eyed Demoness a mega evil, for that is what she had become.</p>
+<p>If Kent were around, he would laugh and call the Evil One-Eyed Demoness a mega evil, since that is what she had become.</p>
 <p>Of course, Sylara was relatable, for on a normal day, she had two eyes just like everyone else. That change was thanks to having a True Name.</p>
 <p>However, hovering in the air with her bloody claws exuding danger, she had turned into her battle form, now having only one eye, and it was red, burning with blood flames.</p>
 <p>When she took a step, the space beneath her feet cracked, but it closed the next second. However, the more steps she took, the more these cracks continued to appear.</p>

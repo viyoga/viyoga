@@ -9,7 +9,7 @@ chapter = 365
 <p>That was the city where the War Princess was born. Her father was nonexistent. Her mother was a soldier blessed with the speed of an eagle.</p>
 <p>She was called the Iron Fang Eagle, for her presence was like the passing wind in battle. She was the bringer of death to the battlefield.</p>
 <p>Her mother had just led her soldiers to victory the day Shara was born. They said during the battle, her water broke, but until the last soldier was stabbed through the heart, she held back.</p>
-<p>Shara was a war child, for she was born in war.</p>
+<p>Shara was a war child; after all, she was born in war.</p>
 <p>They called her the War Child, Daughter of battle.</p>
 <p>She picked up her first weapon when she was seven and took her first life when she was nine.</p>
 <p>That day, it was kill or be killed, for when her mother was betrayed and injured in battle, she carried her using all her strength. On the run, she had to make a bold choice.</p>

@@ -40,7 +40,7 @@ chapter = 1875
 <p>The other thirty, from what I could find out, had also ventured into all kinds of calamity zones this universe had to offer. Some even ventured into the Abyssal Chaos and the Forsaken Seas.</p>
 <p>Honestly, they seem to have a thing for dangerous zones, so I wouldn’t be surprised if the next time you see them, they are monsters or perhaps dead."</p>
 <p>Kent smirked and looked down the cliff, staring deep into the scorching sea of lava.</p>
-<p>He laughed. "I picked them as my legion for a reason, Mjolnir. Every last one of them is crazy in their own way. So rest assured, even if they were to meet the most dreadful enemy, I wouldn’t be too worried about their safety, for they will survive somehow."</p>
+<p>He laughed. "I picked them as my legion for a reason, Mjolnir. Every last one of them is crazy in their own way. So rest assured, even if they were to meet the most dreadful enemy, I wouldn’t be too worried about their safety, because they will survive somehow."</p>
 <p>Kent sounded confident, which showed he indeed had that much confidence in the Hell Devastators. But then he turned around and spread his arms.</p>
 <p>"Enough about the Hell Devastators. How about we go see our old friend we had chained down there? I am sure she will be happy to see us again... or not."</p>
 <p>He fell backward, plunging headfirst into the lava below.</p>

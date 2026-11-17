@@ -41,7 +41,7 @@ chapter = 747
 <p>He was close to three meters tall, and in his hand, an axe so big that Kent knew it would take considerable strength to wield.</p>
 <p>The beast of a man was a flame drake in the process of becoming a dragon, and judging by the pressure it emitted and the strength coursing through him, he had already reached the stage most dragons couldn’t dream of.</p>
 <p>The only thing left now was to take that final step and become a dragon.</p>
-<p>Kent suspected this phenomenon when he felt the pressure. This gave him a reason not to attack immediately, for he wanted this beast on his side.</p>
+<p>Kent suspected this phenomenon when he felt the pressure. This gave him a reason not to attack immediately; after all, he wanted this beast on his side.</p>
 <p>Killing him would be a waste.</p>
 <p>Of course, it would be a good fight for Kent, since though he knew he could trounce him, the drake, staring at him, was no easy target</p>
 <p>The drake, now in his human form, looked down at Kent with an expression filled with primal fury. However, deep within his soul, he knew attacking the human wouldn’t end well for him.</p>

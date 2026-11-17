@@ -35,7 +35,7 @@ chapter = 1003
 <p>"During the Primordial Era, beasts are known by how strong they are, not by their rank or their bloodline. I was but an ordinary boy with no parents or siblings.</p>
 <p>As a young dragon, I was constantly at the mercy of those who claimed they were a great family with legacies stretching thousands of years.</p>
 <p>Due to this, even a useless heir was able to look down on me. They had the power to ridicule and command me around. At first, I respected the hierarchy simply because it was a part of the culture.</p>
-<p>However, one day, I said no, and so I decided to chase after strength, for I believe that with strength, nothing is impossible to achieve.</p>
+<p>However, one day, I said no, and so I decided to chase after strength, as I believe that with strength, nothing is impossible to achieve.</p>
 <p>That was when the Primordial Chaos Dragon was born."</p>
 <p>Everyone except Sylvara narrowed their eyes, looking at Kent.</p>
 <p>Kent ignored their scrutiny and activated his bloodline. Then he lit his Chaos flame...</p>
