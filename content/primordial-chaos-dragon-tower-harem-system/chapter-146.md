@@ -64,5 +64,5 @@ chapter = 146
 <p>"Good job, buddy. We’ll have you crossing over to the Root Transcendent stage soon enough." Kent’s laughter rang out before he dismissed the doll.</p>
 <p>He asked Gaia to scan their bodies for something valuable. Ultimately, he found a dark token and a good mask that he would use soon enough.</p>
 <p>After that, he gathered the bodies and burned them. After making sure everything was settled, Kent took down the formation and then left to have some fun with his lovers, who were eagerly waiting for him.</p>
-<p>But of course, he had things to do, and one of them was to get back to manage Alina. He also needed to check the gifts Vexthra had given him when he visited the god realm.</p>
+<p>Still, he had things to do, and one of them was to get back to manage Alina. He also needed to check the gifts Vexthra had given him when he visited the god realm.</p>
 <p>She called them trinkets, but he knew better. Anything from a god is not a trinket. Perhaps, to them, it might seem that way, but to mortals, it’s a treasure worth killing for.</p>

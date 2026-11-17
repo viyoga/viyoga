@@ -33,7 +33,7 @@ chapter = 757
 <p>If anything, they are too prideful even to lower themselves and ask a question that would have perhaps been a waking moment for them.</p>
 <p>But despite recognizing Uncle Drake’s presence, they would rather die than acknowledge him.</p>
 <p>The demons were also looking at Kent with eyes that contained both animosity and weariness. They didn’t know whether to attack him or let him be.</p>
-<p>But of course, for now, they wouldn’t dare cause any fight.</p>
+<p>For now, though, they wouldn’t dare cause any fight.</p>
 <p>However, the same cannot be said for later. Knowing what they will gain giving him to the Hand, they already wanted to see him captured or even better, dead.</p>
 <p>The Beasts and the Dwarves were the only ones looking at Kent and the Half-Elves with neutral expressions.</p>
 <p>Unlike the other races, they don’t hold any animosity against the Half-Elves or Kent.</p>

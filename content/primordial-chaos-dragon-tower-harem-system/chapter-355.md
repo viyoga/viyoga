@@ -53,7 +53,7 @@ chapter = 355
 <p>So hearing her request, Kent smiled.</p>
 <p>"Hmm, that is some offer you have there, Lady Lani." But he pretended to be in a deep thought.</p>
 <p>"Oh, please, I know you are thrilled, so why pretend?" Alina, however, had had enough of Kent’s antics, so she shattered all the facade he had around him.</p>
-<p>"You demoness, why make it so obvious? But of course, Lady Lani, I will be thrilled to join the expedition. Don’t worry about giving a slot to that brute; he can get there without the help of the Sovereign. In fact, a few friends will be joining, but they won’t need a slot."</p>
+<p>"You demoness, why make it so obvious? Naturally, Lady Lani, I will be thrilled to join the expedition. Don’t worry about giving a slot to that brute; he can get there without the help of the Sovereign. In fact, a few friends will be joining, but they won’t need a slot."</p>
 <p>Lady Lani smiled. "If you say so, then I will inform the team."</p>
 <p>"Big sister, you know you can be free around him, right? Holding back your happiness is not good for your health," Alina, however, wasn’t done.</p>
 <p>She had shattered Kent’s facade, so she had to touch Lady Lani’s composure.</p>

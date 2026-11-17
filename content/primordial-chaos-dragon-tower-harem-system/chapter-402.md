@@ -17,7 +17,7 @@ chapter = 402
 <p>But if the time difference is anything like this place, then I will be gone for three years tops.</p>
 <p>However, I won’t be leaving without putting measures in place.</p>
 <p>Nara is my second-in-command. She also has the ability to sense and locate the next rider, so while I’m gone, she will continue to increase our ranks.</p>
-<p>But of course, if things hasten, then I will return sooner than you think," Uncle Drew said solemnly. He probably felt guilty about abandoning Kent like this. Though he would be back, it would take a while.</p>
+<p>That said, if things hasten, then I will return sooner than you think," Uncle Drew said solemnly. He probably felt guilty about abandoning Kent like this. Though he would be back, it would take a while.</p>
 <p>"There’s no need to feel guilty about it, Uncle Drew. Go do what you have to; I’ll be fine." Kent smiled. "There’s Kaizo and the others, so I’ll be fine.</p>
 <p>"You, on the other hand, should be careful. Though you have a connection with an Underworld Queen, you cannot blindly trust her.</p>
 <p>But even if she is trustworthy, be careful of the other underworld kings and queens.</p>

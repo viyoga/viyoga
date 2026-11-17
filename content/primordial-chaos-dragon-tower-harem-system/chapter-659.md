@@ -50,4 +50,4 @@ chapter = 659
 <p>"Then, in that case, why don’t we make sure you become Supreme faster?" Kent laughed.</p>
 <p>"We only have two more rounds to go before they kick you away. My sisters are waiting, you see." Vari smiled and then turned her flushed face to look at Kent.</p>
 <p>"One more round from the front, then I want it from the back too."</p>
-<p>Kent grinned, "But of course, my love... let’s make these two rounds count."</p>
+<p>Kent grinned, "Anything for you, my love... let’s make these two rounds count."</p>

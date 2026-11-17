@@ -9,7 +9,7 @@ chapter = 162
 <p>Kent noticed the look in her eyes and immediately understood what she was thinking. Without hesitation, he dismissed any direction she might want to take.</p>
 <p>"Being part of a noble or merchant family is not something I’m interested in. They’re all about scheming and backstabbing."</p>
 <p>The lady seemed to grasp Kent’s point and decided to back off. However, that doesn’t mean she completely dismissed the idea.</p>
-<p>"But of course," she replied, choosing not to press further. Instead, she led him to the section of the store that housed the poison-type herbs.</p>
+<p>"Very well," she replied, choosing not to press further. Instead, she led him to the section of the store that housed the poison-type herbs.</p>
 <p>"While you may not like the idea of joining a noble or merchant family, you should know that they come with amazing benefits and protection. However, as great as that might sound, showing exceptional skill during the competition has its downsides," the lady explained, her tone neutral and unreadable.</p>
 <p>"How so?" Kent asked.</p>
 <p>"For starters, the noble and merchant families are highly competitive. They always strive to have the best of everything. If you become the top ranker in the competition, they’ll try to recruit you.</p>

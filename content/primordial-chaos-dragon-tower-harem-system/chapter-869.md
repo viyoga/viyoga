@@ -17,7 +17,7 @@ chapter = 869
 <p>Iver shook his head.</p>
 <p>Kent sighed and then looked at Adina, but she also shook her head.</p>
 <p>[Does the master want to refine the metallic feathers of the beast?]</p>
-<p>"But of course, Tower. They are powerful soul weapons I can use to cause considerable damage. With weapons this sharp, my dream of killing an immortal might just come to pass quickly."</p>
+<p>"As expected, Tower. They are powerful soul weapons I can use to cause considerable damage. With weapons this sharp, my dream of killing an immortal might just come to pass quickly."</p>
 <p>[In that case, since the master already has a soul flag, why doesn’t the master buy a soul capture skill from the tower store and then use this mission to gather some souls? When the master goes back to the sect, the master can learn how to refine weapons from the elders.]</p>
 <p>"That is a smart move, Tower. Let’s do that."</p>
 <p>Kent looked at the colossal body of the beast, and his smile spread all over his face. "That is thousands of soul weapons right here."</p>

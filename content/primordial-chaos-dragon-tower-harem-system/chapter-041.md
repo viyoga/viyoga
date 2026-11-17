@@ -31,7 +31,7 @@ chapter = 41
 <p>"Then I ask, Saintess, say I become your disciple, would I still have the time to practice Alchemy?" Kent asked.</p>
 <p>"Of course. I am one of the leaders of the Sword Gate in the Divine Palace Sect, but I also have some connections in the Alchemy Gate. I can even help you in that field," Saintess Selene said.</p>
 <p>"And what if, after you accept me as your disciple, you decide to go back on your words?" Kent asked curiously.</p>
-<p>"You don’t have to worry about that. All I want is for you to never drop your sword," she added. Deep down, she was happy, but of course, she had to maintain the facade.</p>
+<p>"You don’t have to worry about that. All I want is for you to never drop your sword," she added. Deep down, she was happy, but naturally, she had to maintain the facade.</p>
 <p>She had witnessed Kent kill the three people sent after him by Dave Ashland, so she wanted nothing more than to get her hands on such a talent. She had been following him and would do anything to get her hands on him.</p>
 <p>After all, the Continent Genius competition would happen two years from now, and she, like every Sword Saint or Saintess, would want their disciples to compete. She had been putting it off for long, but for the next two years’ edition, a huge prize is being offered.</p>
 <p>So, since she couldn’t win herself because she didn’t fit the qualifications to participate, she needed an able person to become her disciple so she could prepare them for the competition.</p>

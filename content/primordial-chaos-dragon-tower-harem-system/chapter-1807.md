@@ -52,7 +52,7 @@ chapter = 1807
 <p>Before Kent could make a move against them, Han appeared beside him, standing on a large sword with his hands clasped behind his back.</p>
 <p>"Why don’t I handle them, Big Brother?" he said, gliding down with a smile on his face. He had been in seclusion long before Baldy and Inaya ventured into the Calamity Zone.</p>
 <p>It appeared that, sensing there was a battle, he had come out to fight...</p>
-<p>Kent looked at him and smiled as well. "But of course, Han. Suit yourself."</p>
+<p>Kent looked at him and smiled as well. "Very well, Han. Suit yourself."</p>
 <p>Han jumped down from his sword, and it flew into his waiting grip. "Well then, let’s see what you guys are made of."</p>
 <p>Suddenly, the scene around them changed, sending everyone into a world of mortals. Kent sensed all the energy in the air drain away, leaving every Celestial feeling like a mortal.</p>
 <p>His brow furrowed.</p>

@@ -18,7 +18,7 @@ chapter = 1906
 <p>"Uhm, hello, sir. If you don’t mind, can we go somewhere more private to have a discussion?" Vexthra, who over the years had developed great social skills, took the lead.</p>
 <p>She had come a long way, and that showed just how much she wished to learn human emotions.</p>
 <p>Nowadays, she was even the one teaching Pandora and the rest of her sisters, who didn’t have many social skills.</p>
-<p>"But of course. Please follow me."</p>
+<p>"Certainly. Please follow me."</p>
 <p>They left the ground floor and climbed upstairs.</p>
 <p>"Who are these ladies? I have never seen them in this part of the world before."</p>
 <p>"Same here. They don’t even look like they are from around here."</p>

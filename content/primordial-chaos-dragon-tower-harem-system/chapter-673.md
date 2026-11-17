@@ -16,7 +16,7 @@ chapter = 673
 <p>⟦Rank: SSS+⟧</p>
 <p>⟦Job Class: Divine Thunderborn Berserker⟧</p>
 <p>’So his true realm after the upgrade was actually at the spirit King stage, but has been suppressed. I guess using high-quality bodies to upgrade him wasn’t so bad. This will give him a head start when I ascend to a higher world.’</p>
-<p>Kent smiled and then stood up. "But of course, Kaizo, you will be a good sport."</p>
+<p>Kent smiled and then stood up. "I'm sure, Kaizo, you will be a good sport."</p>
 <p>Kaizo grinned and then moved, appearing on one of the many training grounds in the legion tower. Kent also moved and stood opposite him.</p>
 <p>The distance between them was not that wide, showing that the clash would be instantaneous. Of course, it would be a spectacle, considering they wouldn’t be using their weapons, only their fists.</p>
 <p>...Well, Kaizo’s fist was his weapon... But Kent wouldn’t be using his sword or dagger, considering he had fallen in love with daggers after recalling Faceless Memories.</p>

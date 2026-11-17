@@ -18,7 +18,7 @@ chapter = 1008
 <p>This time, I pray we get more than that."</p>
 <p>"Me too. However, with the top two factions at war, who knows what will become of us?"</p>
 <p>"Maybe we should focus on actually qualifying to enter before thinking about all this."</p>
-<p>Although none of them dares to say it, they are scared. But of course they should be. They are heading to a place where even a herb can kill them. If that is not scary enough, then what is?</p>
+<p>Although none of them dares to say it, they are scared. And rightly so. They are heading to a place where even a herb can kill them. If that is not scary enough, then what is?</p>
 <p>"Look, it is Pill Monarch Nefeli." Suddenly, someone shouted, pointing at the green-haired beauty walking out toward them.</p>
 <p>"Who is that kid beside him?"</p>
 <p>Naturally, that kid is Kent, who wore a smug smile walking shoulder to shoulder with Pill Monarch Nefeli. Yuna was hidden behind the two, so nobody saw her.</p>

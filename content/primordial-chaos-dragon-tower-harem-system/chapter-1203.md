@@ -16,7 +16,7 @@ chapter = 1203
 <p>Even Immortals in the god worlds find it easy to form immortal qi.</p>
 <p>Of course, given the abundance of resources there, every person can be considered a powerhouse. But then again, thanks to everyone being overprivileged there, their arrogance is also on another level.</p>
 <p>However, unlike the mortal realm, where there are rulers on every planet, city, or two, in the god realm, most gods prefer to keep to themselves.</p>
-<p>Most stay indoors to cultivate, some travel to ruins to explore and seek out opportunities. But of course, other gods like to roam and cause trouble.</p>
+<p>Most stay indoors to cultivate, some travel to ruins to explore and seek out opportunities. Then again, other gods like to roam and cause trouble.</p>
 <p>In the end, not all gods act godly. Some are just scums that would use any means necessary to get what they wanted.</p>
 <p>Vexthra, of course, is one of the secluded gods. She is a domain god.</p>
 <p>So unlike some of the gods that go about causing trouble here and there, she always keeps to herself. The number of interactions she had with others over the millions of years she lived as a god wouldn’t be up to ten.</p>

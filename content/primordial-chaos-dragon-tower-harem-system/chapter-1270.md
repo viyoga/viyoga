@@ -16,7 +16,7 @@ chapter = 1270
 <p>He pointed at the snake, "Won’t you be taking it with you?"</p>
 <p>"Nope. I don’t need it. So you can have it. After all, you came all the way here to hunt it."</p>
 <p>Yet again, the two siblings bowed toward Kent... "In that case, allow us to lead you to the Dark City. That is where we are from."</p>
-<p>"But of course. I could use the company."</p>
+<p>"By all means. I could use the company."</p>
 <p>Ryan and his twin sister smiled, and they hastily stored away the colossal body of the snake that nearly killed them. The worst part is they didn’t choose to hunt this snake. They were forced to.</p>
 <p>It would have been a regretful death, one that would have haunted them in the underworld.</p>
 <p>Soon, they were in the air, flying at speeds several times faster than planes on Earth. Kent deactivated both his wings and horns, but Ryan and Ryen recognised his race from the moment they saw him.</p>

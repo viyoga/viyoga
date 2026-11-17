@@ -14,7 +14,7 @@ chapter = 424
 <p>"She is a Kingdom Protector, Selene. At least let Kent grow a little. The chances of him dying from her aura alone are very high. So giving him the idea to chase her is like telling him to poke the hornet’s nest."</p>
 <p>Neomi smirked, saying that.</p>
 <p>"Please, it’s Kent we are talking about. He is probably putting plans in motion already. Just make room for the first Kingdom Protector." Selene just laughed.</p>
-<p>The ladies smirked. But of course, they knew what she said was indeed possible.</p>
+<p>The ladies smirked. Then again, they knew what she said was indeed possible.</p>
 <p>Kent had already interacted with the lady and knew she was someone worth watching. Whether he would shoot his shot would depend on whether he had the strength to withstand her beatings.</p>
 <p>Selene was just stating facts.</p>
 <p>"You ladies are thinking too much. This is a competition I am going to; no need to add so many add-ons to it.</p>

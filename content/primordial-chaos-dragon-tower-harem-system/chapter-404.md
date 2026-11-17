@@ -59,4 +59,4 @@ chapter = 404
 <p>The dick is the first priority. She licked it dry and even went ahead and suck it for a few minutes before pulling back.</p>
 <p>"How was it?" Kent asked, looking at her flustered expression.</p>
 <p>"It was amazing," she smiled. "I want more." Of course, she didn’t hesitate to request more.</p>
-<p>"But of course." Kent smiled, "However, let’s focus on something important first."</p>
+<p>"Gladly." Kent smiled, "However, let’s focus on something important first."</p>

@@ -54,7 +54,7 @@ chapter = 503
 <p>"Where are we?" one person asked, recognizing the person beside her. After all, they had once worked for the same family.</p>
 <p>"I’m as lost as you are, Theo. I was in the middle of buying a skill book when I was teleported here," a lady replied, holding the skill book in her hand.</p>
 <p>"Hope you didn’t pay for that skill book yet," someone else chimed in with a smile, clearly recognizing her.</p>
-<p>"But of course. Too bad Old Jace is such a good guy," the lady shook her head. "But seriously, where are we?" she asked again, looking around at the stunning city surrounding them.</p>
+<p>"Indeed. Too bad Old Jace is such a good guy," the lady shook her head. "But seriously, where are we?" she asked again, looking around at the stunning city surrounding them.</p>
 <p>"I don’t know, but I think whoever pulled us here might’ve just saved my life," another man joined the conversation, making everyone turn toward him.</p>
 <p>"What happened to you, Steve?" Theo asked, staring at the bleeding man. Steve had cuts on his left arm, chest, and leg.</p>
 <p>"I was about to be executed when I was suddenly pulled here. And I think all of us would’ve been—if we weren’t teleported into this world."</p>

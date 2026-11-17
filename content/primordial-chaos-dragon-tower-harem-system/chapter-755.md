@@ -26,7 +26,7 @@ chapter = 755
 <p>So they paid their respect, and Uncle Drake nodded.</p>
 <p>"No need to be polite. I will merely be staying here as a means to deter all those with evil intent. As to whether I will even get a chance to do that, considering none of you is any weaker than I am, I guess we will soon find out."</p>
 <p>The elders smiled, reading the subtle compliment hidden within Uncle Drake’s words. He acknowledged them and made sure they knew he wasn’t there to steal their thunder.</p>
-<p>But of course, when they couldn’t handle it, he would step in. Because while nobody would want to admit it, even Kent himself knew the dragon standing beside him was a terror.</p>
+<p>Even so, when they couldn’t handle it, he would step in. Because while nobody would want to admit it, even Kent himself knew the dragon standing beside him was a terror.</p>
 <p>Even Kent doesn’t think he can defeat him.</p>
 <p>The drake he met a week and a few days ago was no more. This time, something primal, something straight from the Primordial Era, had awakened, and while Kent could sense it, he knew something was still hidden from him.</p>
 <p>He didn’t know if the universe was trying to protect his feelings, but something about Uncle Drake still made his skin crawl. That alone made him wonder just what could make him, a chaos dragon, feel that way.</p>
@@ -46,7 +46,7 @@ chapter = 755
 <p>Lady Universe laughed, "They will probably try to kill each other, knowing them."</p>
 <p>"I most certainly would love to see the Flame King and the Chaos Dragon exchange blows and claws one of these days."</p>
 <p>The Enchantress chuckled, "It will be a good one, considering our dear Chaos would most certainly want to fight the Flame King again."</p>
-<p>"Well, Chaos already seems to notice there is something icky about the Flame King. He doesn’t know it was his memories, but of course, I may be the Universe’s heart, but I don’t control the flow of the Universe’s fate, so we can only wait."</p>
+<p>"Well, Chaos already seems to notice there is something icky about the Flame King. He doesn’t know it was his memories, and while I may be the Universe’s heart, I don’t control the flow of the Universe’s fate, so we can only wait."</p>
 <p>"We should probably prepare for that battle; after all, I can already feel it brewing in the air."</p>
 <p>The two ladies were almost happy to see a battle that once shook the primordial Era. The Chaos dragon and the Flame King met as enemies but fell as brothers.</p>
 <p>Now, they are back again, and as to whether the rivalry will continue, only time will tell...</p>

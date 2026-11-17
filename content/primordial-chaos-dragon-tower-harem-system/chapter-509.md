@@ -52,7 +52,7 @@ chapter = 509
 <p>Her presence was so overbearing that Kent and his undead were forced down, landing on the ground.</p>
 <p>The lady smirked, then used Kent’s own words against him.</p>
 <p>"Are you confident you’ll be leaving here alive?"</p>
-<p>In response, Kent raised his right hand, extending the middle finger first, before snapping his fingers. "But of course."</p>
+<p>In response, Kent raised his right hand, extending the middle finger first, before snapping his fingers. "Obviously."</p>
 <p>The dense pressure falling on him evaporated the moment he snapped his fingers.</p>
 <p>The Hunter frowned, sensing her control over Kent vanish just like that. This wasn’t something she expected, but she shrugged and pointed forward.</p>
 <p>"Kill him."</p>

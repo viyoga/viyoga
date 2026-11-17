@@ -13,7 +13,7 @@ chapter = 714
 <p>I killed thousands of their men, rendering their plans to send a message to everyone that they are not to be messed with, obsequious. That was a massive blow to them.</p>
 <p>Then they sent the one called ’the Hunter,’ who, as it turns out, wasn’t so bad. One led to another, and we are now buddies."</p>
 <p>"Wait, did you just say the Hunter came after you?" Lord Faelen cut Kent off before he could end his theories.</p>
-<p>Kent looked at him and then smiled. "But of course. She isn’t too bad if you get to know her." The elders looked at each other and then at their king.</p>
+<p>Kent looked at him and then smiled. "Well, yes. She isn’t too bad if you get to know her." The elders looked at each other and then at their king.</p>
 <p>"And as I was saying, after the Hunter failed, I had to send them a new message, and this time, I made them aware of the consequences if they were unable to meet my expectations.</p>
 <p>I mean, for such an organization claiming to be the best in the world, they sure don’t behave like one. So I gave them a notice that they shouldn’t mess with me, and judging by how the Elves reacted at the gate, the Hand is serious about ending me now."</p>
 <p>Kent smiled weakly. "Poor souls, they will be dying for nothing."</p>

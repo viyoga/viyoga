@@ -54,7 +54,7 @@ chapter = 320
 <p>"Looks like the big games are about to start," Kent said with a smile.</p>
 <p>"You’re about to make more enemies, huh?" Mara, who was getting comfortable and was now rubbing Kent’s chest through his open shirt, said.</p>
 <p>"They just choose to be my enemies when, in fact, they should have realized this was an auction where the rich get to have what they want.</p>
-<p>But of course, since they want to take offense and try to attack me, then I can only prepare and wait for them to come."</p>
+<p>Since they want to take offense and try to attack me, I can only prepare and wait for them to come."</p>
 <p>"There’s no stopping it, I guess," she muttered. Though she would love to cut a few heads off, her priority now was getting her sister back, so if possible, she would prefer not to have outside enemies.</p>
 <p>They still have to deal with the monster inside the sect.</p>
 <p>"Just relax. They’ll understand why they shouldn’t mess with me soon enough," Kent said, rubbing her thighs.</p>

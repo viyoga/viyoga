@@ -45,7 +45,7 @@ chapter = 726
 <p>He would only be using the [Purifying] and [Nourishing] aspects of his Chaos soul flame to work on the pill, so Kent lit it up and started heating the cauldron.</p>
 <p>The golden flame spread around the cauldron, giving it a brilliant glow, one that made Kent smile.</p>
 <p>’Having a flame straight from my soul feels different. It makes me feel like I have accomplished something worthwhile.’ Kent smiled.</p>
-<p>’But of course I did achieve something great. Not many were able to awaken soul flames. Some inherited it from Spirit Flames...So indeed have I made a great achievement, awakening my own.’ The pride he felt made him very happy.</p>
+<p>’Then again, I did achieve something great. Not many were able to awaken soul flames. Some inherited it from Spirit Flames...So indeed have I made a great achievement, awakening my own.’ The pride he felt made him very happy.</p>
 <p>’Next time, I will purchase flames or hunt for flame spirits that can be used for alchemy.’ The more flame spirits that have alchemical value, the easier it gets when used in alchemy.</p>
 <p>Kent had already seen what the Blue Void Flame and the Purifying Flames could do, so he wanted to get more of them.</p>
 <p>The moment he became a Pill Saint, he would unlock his third alchemy flame, but until then, he wanted to make sure he got some things on his own. He had to work extra hard because he had to surpass his past selves.</p>

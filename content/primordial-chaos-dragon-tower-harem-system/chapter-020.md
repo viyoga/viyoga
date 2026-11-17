@@ -35,7 +35,7 @@ chapter = 20
 <p>"As expected, like a sleeping beauty, she slept," Kent muttered. A few seconds later, he turned to face three curious pairs of eyes.</p>
 <p>He smiled and said, "Relax, everyone. She is not in any danger." He stepped away from the bedside. "In fact, she might even be able to hear everything you all have said since the moment she fell asleep." The three exchanged looks.</p>
 <p>"So, can you cure her?" John Alderford asked.</p>
-<p>"But of course. Now, if you can give me something to write on, I’ll provide the list of ingredients needed to prepare the antidote for her."</p>
+<p>"Naturally. Now, if you can give me something to write on, I’ll provide the list of ingredients needed to prepare the antidote for her."</p>
 <p>Unity rushed out and returned a minute later, holding a scroll and a writing stick. Kent admired the items briefly, then began writing the ingredients.</p>
 <p>He only needed six of the twenty-five ingredients he’d listed for the antidote. However, since he needed the extras for his own purposes, he decided to play it smart and earn something upfront.</p>
 <p>"You can have your people collect these ingredients as soon as possible," Kent said, handing the list to John Alderford. He then added, "Personally, I recommend a group of five soldiers with a leader named Steve. He’s a good one."</p>

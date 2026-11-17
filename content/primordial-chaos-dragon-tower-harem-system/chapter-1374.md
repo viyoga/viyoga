@@ -44,7 +44,7 @@ chapter = 1374
 <p>Surviving 5 minutes is fine, but he cannot defeat him.</p>
 <p>But he also didn’t want to lose without seeing his sword realm.</p>
 <p>"Are you sure you want to see it?" the Ten-Star Sword God asked, a smile playing on his handsome demon face.</p>
-<p>"But of course. You have 30 seconds, which means it is my win. But I cannot head to the fifth level without seeing your sword realm."</p>
+<p>"Naturally. You have 30 seconds, which means it is my win. But I cannot head to the fifth level without seeing your sword realm."</p>
 <p>"The moment I activate my sword realm, you will lose, so let’s wait out the thirty seconds so you can pass. You have already proven yourself to me and everyone."</p>
 <p>Jest had no objections, and frankly, nobody who watched the four minutes of beautiful swordsmanship would have any objections. Jest had proven himself, and all could see that.</p>
 <p>So, allowing him to pass was just something none of them minded. They all thought he wouldn’t even be able to pass the first level. However, he was now on the fourth level, and that was just something none of them saw coming.</p>

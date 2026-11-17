@@ -27,7 +27,7 @@ chapter = 737
 <p>After a full minute, he lowered the crystals before taking a deep sigh. ’It is strange how I didn’t even feel anything... like I never even used my flame essence.’</p>
 <p>Kent walked off the stage under the watchful gaze of every last contestant. They knew he had proven to everyone he was the best, and at the same time, also proved he was the right person to make the dreams of every Half-Elf come to pass.</p>
 <p>A few of the contestants—of course, the ones yet to go—had expressions of defeat on their faces. The five geniuses had already demonstrated their strength, and now that Kent had, they all began to wonder if they had a chance.</p>
-<p>But of course, they wouldn’t have to think much deeper into it since the next person was called. With no reason to step down, the rest tried their luck, and in the end, only ten passed.</p>
+<p>In any case, they wouldn’t have to think much deeper into it since the next person was called. With no reason to step down, the rest tried their luck, and in the end, only ten passed.</p>
 <p>The ranking showed that Kent was first, followed by Madea in second, Norion in third, and the list continued from there.</p>
 <p>Those who washed out were given their gift and left with satisfied expressions on their faces. Of course, they would have loved to be part of the ten remaining, but in the end, they couldn’t meet the expectations to be among the top ten.</p>
 <p>However, among the top ten, five would also have to wash out.</p>

@@ -14,7 +14,7 @@ chapter = 1157
 <p>Many nodded.</p>
 <p>However, inasmuch as they would love to deny it, Jest had done it, and judging by the look on Adrian’s face, everyone knew there was no underhanded technique used by Jest.</p>
 <p>Adrian looked at Jest calmly, then spoke. "You read my moves like an open book."</p>
-<p>Jest smiled calmly. "But of course. I already warned you that I have mastered all 1.6 million sword moves a person could make. Even if there were thousands of you, as long as your sword moves are within the 1.6 million moves I know, then defeating you is possible."</p>
+<p>Jest smiled calmly. "Naturally. I already warned you that I have mastered all 1.6 million sword moves a person could make. Even if there were thousands of you, as long as your sword moves are within the 1.6 million moves I know, then defeating you is possible."</p>
 <p>Adrian shook his head and smiled. "I guess you aren’t arrogant for nothing."</p>
 <p>"I like to prove my words, making sure everything I say is backed by evidence. Just now, I have proven to everyone why I am the most qualified to challenge the Sword Bridge."</p>
 <p>Naturally, that was a subtle jab at the disciples, seething with anger on the outside. Those who caught his words gritted their teeth, but they could not deny that perhaps his words were indeed true.</p>

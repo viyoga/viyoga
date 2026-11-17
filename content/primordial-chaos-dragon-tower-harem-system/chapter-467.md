@@ -17,7 +17,7 @@ chapter = 467
 <p>’I’ll have freaks on my hands soon,’ he smiled to himself as he enjoyed the ride for 45 minutes before he climaxed, making the goddess moan and smile through the process.</p>
 <p>"That was awesome," Vexthra said, making Kent shake his head.</p>
 <p>"I guess you won’t let me rest these three days, huh?" Kent asked.</p>
-<p>"But of course. You and I will keep going until I am satisfied. And let me tell you, I missed you so damn much," the goddess had her priorities straight.</p>
+<p>"You bet. You and I will keep going until I am satisfied. And let me tell you, I missed you so damn much," the goddess had her priorities straight.</p>
 <p>She wouldn’t let anything from Kent’s side come in her way of her pleasure.</p>
 <p>"However, we have a lot to talk about. We can start with your Night Riders." Vexthra looked serious as she said that</p>
 <p>"Looks like you weren’t just missing me because of the sex," Kent laughed. "But I am ready to listen to whatever you have to say after two more rounds."</p>
@@ -30,7 +30,7 @@ chapter = 467
 <p>Once they become gods, they are known as Lesser Gods. Then, from that stage, there is the High God. Most gods at this stage choose to create a domain and integrate it with the heavens or inherit one.</p>
 <p>Vexthra inherited the Realm of Hatred and Resentment, which came straight from the universe. You are upgraded to a True God when you inherit such a domain or create one.</p>
 <p>That is the stage she is at, so most gods respect her. Even her peers respect and fear her because they know that she is dangerous despite not being one of the popular True Gods.</p>
-<p>But of course, they all knew better, so that was why she didn’t have any friends, so unless you are looking to die, breaking into her domain is the last thing you would want.</p>
+<p>Then again, they all knew better, so that was why she didn’t have any friends, so unless you are looking to die, breaking into her domain is the last thing you would want.</p>
 <p>She had no friends. Not that she ever had a shot at making friends, considering she was full of hate when Kent first met her.</p>
 <p>"Kent, do you know the origin of your Night Riders?" Vexthra asked the moment they settled down.</p>
 <p>"I don’t know much about them. I only knew that they are from the 14th level of hell, where not even gods can reach.</p>

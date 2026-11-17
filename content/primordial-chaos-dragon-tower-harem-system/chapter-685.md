@@ -10,7 +10,7 @@ chapter = 685
 <p>Basically, the Oracle headquarters was a fortress that couldn’t be breached.</p>
 <p>However, it was breached today, and the one who did it was the last person they wanted to see.</p>
 <p>They didn’t know that the hunter they had sent into the Dead Region had infiltrated their domain. They never saw that far into their reckless planning and now, it came back to bite them in the ass.</p>
-<p>But of course, they didn’t recognize her, and while it would have been polite to talk things out, they knew she hadn’t come for conversation.</p>
+<p>After all, they didn’t recognize her, and while it would have been polite to talk things out, they knew she hadn’t come for conversation.</p>
 <p>After all, she breached their safe space and was exuding potent killing intent. There was no need to think otherwise.</p>
 <p>So they attacked, employing a range of soul-attacking skills. However, all their attacks were rendered useless, considering Yi Lai held her sword.</p>
 <p>Her sword was the same as her scepter. Since it could render most soul attacks useless, the Oracles, who weren’t known for their combat powers, found themselves in a precarious situation.</p>

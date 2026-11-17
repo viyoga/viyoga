@@ -44,7 +44,7 @@ chapter = 1911
 <p>He waved his hand, and a large cauldron rose from the ground. Then, with another wave, the lid opened slightly, allowing five souls, each bound in chains, to appear in the air.</p>
 <p>"They are the five I have kept alive since they knew more than the others. You can later interrogate them if you want."</p>
 <p>Zaila narrowed her eyes at the five souls before turning to Neveross. "Is it possible to make them a bit docile? I wish to take a deep dive into their minds and see what they are still hiding."</p>
-<p>"But of course."</p>
+<p>"As you wish."</p>
 <p>Neveross extended his hand, and a sea rose in the garden.</p>
 <p>"This water feels like it is from the River Styx," Vexthra muttered, having already come face-to-face with how dreadful that water is whenever Kent uses the Underworld Soul River.</p>
 <p>"It is indeed from the River Styx."</p>

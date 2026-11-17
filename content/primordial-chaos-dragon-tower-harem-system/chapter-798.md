@@ -38,7 +38,7 @@ chapter = 798
 <p>"It happens to the best of us. I was lost when I first came here, and it took me some time to figure things out, but eventually, I did.</p>
 <p>However, don’t worry, I will help you understand all you want to know about this place," Suoh said with a rather happy smile.</p>
 <p>"Thank you, brother Suoh. I will be rather happy to learn more about this place."</p>
-<p>The handsome elf smiled. "But of course. For someone of your status to be allowed here on the 7th floor, you must be from one of the 5 Pill Families.</p>
+<p>The handsome elf smiled. "It is my duty, after all. For someone of your status to be allowed here on the 7th floor, you must be from one of the 5 Pill Families.</p>
 <p>As such, it is my duty to help you to the best of my abilities. Just don’t forget, my name is Suoh."</p>
 <p>Hearing his words, Kent turned and looked at his chest. That was when he saw the Pill Grandmaster badge hanging there.</p>
 <p>It was then that everything clicked.</p>

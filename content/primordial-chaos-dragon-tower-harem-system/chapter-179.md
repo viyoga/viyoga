@@ -14,7 +14,7 @@ chapter = 179
 <p>So when she spoke to Ingrid and found out that she had seen the two of them in the auction house, she could only smile and wait for this moment.</p>
 <p>"That is my disciple, Kent. Isn’t he handsome?" Saintess Selene said, looking at the shocked and flustered Ingrid.</p>
 <p>Ingrid nodded absentmindedly.</p>
-<p>But of course, even Saintess Neomi couldn’t deny it—Kent was indeed handsome.</p>
+<p>Even Saintess Neomi couldn’t deny it—Kent was indeed handsome.</p>
 <p>However, now wasn’t the time to focus on that.</p>
 <p>"Who are those two cute ladies behind him?" someone asked, making everyone start to wonder. Akira was rocking her usual tank top and short jeans with a nice set of cute little shoes.</p>
 <p>Her black, small backpack was still on her back, and her long ponytail braided hair was nearly touching the floor behind her.</p>

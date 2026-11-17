@@ -22,7 +22,7 @@ chapter = 1156
 <p>A burly man holding a large broadsword spoke, causing the air around him to twist and turn.</p>
 <p>’A Sword King with level 9 Heavenly Sword Energy, huh?’ Jest smiled, sensing the powerful intent and aura of the sword emanating from the man.</p>
 <p>"I suppose you are the one I have to defeat to pass this level."</p>
-<p>"But of course. However, the last person who came was a Sword Emperor, and he spent five hours before getting past me.</p>
+<p>"Naturally. However, the last person who came was a Sword Emperor, and he spent five hours before getting past me.</p>
 <p>Also, over the millions of years I’ve spent guarding the entrance to the Heavenly Sword Bridge, only one person managed to kill me.</p>
 <p>You... unfortunately lack all the qualities to defeat me. So do yourself a favour and surrender before things become embarrassing for you."</p>
 <p>Everyone could hear the conversation happening between Jest and the burly man. This left them all in a daze.</p>

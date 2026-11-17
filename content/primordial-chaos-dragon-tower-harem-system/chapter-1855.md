@@ -26,7 +26,7 @@ chapter = 1855
 <p>"Yes, big sister, let’s go kick some ass," Baldy was as enthusiastic as ever, while Mak seemed okay with everything as well.</p>
 <p>"I would like to meet big brother, so the earlier we get things done, the better."</p>
 <p>She nodded and turned back to Damba. "Hand over the rune and send us closer to the Umbrella Forest. Just prepare for battle because the last thing I want is to fight that bitch."</p>
-<p>"But of course."</p>
+<p>"Understood."</p>
 <p>Damba still looks suspicious, but Inaya had no plans to dwell on it. If she failed to get close, she would just teleport into the tower and try again later.</p>
 <p>Initially, when they appeared inside this place, their connection to the tower was severed. However, it was restored a couple of days ago, allowing them to return to the tower whenever they wanted.</p>
 <p>So she wasn’t worried about the success of this mission.</p>

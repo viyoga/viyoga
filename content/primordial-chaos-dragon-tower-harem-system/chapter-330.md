@@ -32,7 +32,7 @@ chapter = 330
 <p>"We will pay whatever amount you have in mind, provided we get the apple in the end." Alina smiled politely, but inwardly, she was imagining scenes where her boss was screaming Kent’s name.</p>
 <p>"Since I will be dealing with some idiots after this, why don’t I leave it with you then? You can give it to whoever this person is.</p>
 <p>Just tell them that if they want to know the price, they should meet me a day before the start of the Pill Master Competition at the Evermore Restaurant for lunch.</p>
-<p>I will tell them the price by then. But of course, they can use the apple, considering keeping it exposed for too long will lower its potency."</p>
+<p>I will tell them the price by then. In that case, they can use the apple, considering keeping it exposed for too long will lower its potency."</p>
 <p>Kent took out a jade box housing the apple and handed it to Alina.</p>
 <p>"Thank you for your generosity, Mr. Kent," Alina said.</p>
 <p>"I will be on my way then," he said before walking away, making sure the one watching from the shadows didn’t suspect anything.</p>

@@ -40,7 +40,7 @@ chapter = 1274
 <p>Kent hesitated but answered... "I did. Is that why Lord Karma had summoned me here?"</p>
 <p>"Unfortunately, yes. I was forced into summoning you ahead of time." He stood up and moved toward Kent... "I had big plans for you in our five-year appointment, but I was forced to make some modifications."</p>
 <p>"So this is about the Void Temple."</p>
-<p>"But of course. You see, to save this galaxy, you must venture into the Void Temple and defeat the five temple masters. However, that will depend on your strength since they have, in a way, evolved over the years."</p>
+<p>"Indeed. You see, to save this galaxy, you must venture into the Void Temple and defeat the five temple masters. However, that will depend on your strength since they have, in a way, evolved over the years."</p>
 <p>"How so?" Kent asked, sensing something bad...</p>
 <p>"Where is the fun in that when you will be finding out soon enough?" Karma smirked and walked past Kent. He moved toward a table, picked a yellow-looking fruit, and bit into it.</p>
 <p>"I only called you here to inform you that if you manage to defeat the Void Temple, all the karma you owe me will be cleared.</p>

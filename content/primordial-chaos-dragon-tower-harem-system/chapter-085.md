@@ -31,7 +31,7 @@ chapter = 85
 <p>That alone was impressive. Now, with a thought, he could change the direction of the strings mid-attack, allowing him to switch between opponents seamlessly during combat.</p>
 <p>But that wasn’t even the best part. With his mental strength strong enough, he could separate the strings and make them attack multiple opponents simultaneously.</p>
 <p>Then, the Elemental Infusion feature enabled him to infuse his fire element into the attack for additional damage.</p>
-<p>If he wanted to, he could abandon the Elemental Manipulation skill entirely and focus solely on this new skill. But of course, the more options, the better.</p>
+<p>If he wanted to, he could abandon the Elemental Manipulation skill entirely and focus solely on this new skill. Then again, the more options, the better.</p>
 <p>With people knowing about Li Hua’s secret, it was only a matter of time before visitors—likely enemies—started appearing. Kent needed to grow stronger so that when Li Hua began cultivating, he could fully support her.</p>
 <p>Her grandmother said she could protect herself once Li Hua started cultivating. Kent, however, wanted to ensure he was strong enough to guard her while she grew stronger.</p>
 <p>"Tower, upgrade the Teleport too."</p>
