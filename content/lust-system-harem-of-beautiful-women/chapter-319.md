@@ -1,5 +1,5 @@
 +++
-title = "Chapter 319: Parent’s Should Not Control Children Too Much [18+]"
+title = "Chapter 319: Parent’s Should Not Control Children Too Much"
 weight = 319
 [extra]
 chapter = 319

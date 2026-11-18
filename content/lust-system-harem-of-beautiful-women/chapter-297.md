@@ -1,5 +1,5 @@
 +++
-title = "Chapter 297: Aphrodisiac Incense (Male) [18+]"
+title = "Chapter 297: Aphrodisiac Incense (Male)"
 weight = 297
 [extra]
 chapter = 297

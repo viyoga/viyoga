@@ -1,5 +1,5 @@
 +++
-title = "Chapter 436: Provoking David, Deewa Acts Slutty [18+]"
+title = "Chapter 436: Provoking David, Deewa Acts Slutty"
 weight = 436
 [extra]
 chapter = 436

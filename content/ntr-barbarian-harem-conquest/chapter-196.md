@@ -1,5 +1,5 @@
 +++
-title = "Chapter 196: Unraveling Misha (1) [18+]"
+title = "Chapter 196: Unraveling Misha (1)"
 weight = 196
 [extra]
 chapter = 196

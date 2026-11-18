@@ -1,5 +1,5 @@
 +++
-title = "Chapter 21: You Won’t Be Able Experience The \" Help Me Out Stepbro...I’m Stuck.\" [18+]"
+title = "Chapter 21: You Won’t Be Able Experience The \" Help Me Out Stepbro...I’m Stuck.\""
 weight = 21
 [extra]
 chapter = 21

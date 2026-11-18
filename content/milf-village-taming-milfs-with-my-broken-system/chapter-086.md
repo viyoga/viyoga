@@ -1,5 +1,5 @@
 +++
-title = "Chapter 86: You Are The One Who Started This, Wen ( Bonus 2/2) [18+]"
+title = "Chapter 86: You Are The One Who Started This, Wen ( Bonus 2/2)"
 weight = 86
 [extra]
 chapter = 86

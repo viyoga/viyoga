@@ -1,5 +1,5 @@
 +++
-title = "Chapter 1098: 1098 Number [18+]"
+title = "Chapter 1098: 1098 Number"
 weight = 1098
 [extra]
 chapter = 1098

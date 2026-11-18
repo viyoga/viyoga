@@ -1,5 +1,5 @@
 +++
-title = "Chapter 12: The Red Witch of Greenhaven [18+]"
+title = "Chapter 12: The Red Witch of Greenhaven"
 weight = 12
 [extra]
 chapter = 12

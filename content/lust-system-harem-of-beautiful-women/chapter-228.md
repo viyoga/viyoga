@@ -1,5 +1,5 @@
 +++
-title = "Chapter 228: Luis Is Scared, Cold Shivers In Whole Body [18+]"
+title = "Chapter 228: Luis Is Scared, Cold Shivers In Whole Body"
 weight = 228
 [extra]
 chapter = 228

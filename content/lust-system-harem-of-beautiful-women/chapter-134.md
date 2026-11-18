@@ -1,5 +1,5 @@
 +++
-title = "Chapter 134: Hela And Chloe Are Sisters [18+]"
+title = "Chapter 134: Hela And Chloe Are Sisters"
 weight = 134
 [extra]
 chapter = 134

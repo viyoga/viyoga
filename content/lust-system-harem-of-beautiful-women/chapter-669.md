@@ -1,5 +1,5 @@
 +++
-title = "Chapter 669: Step Mothers??? [18+]"
+title = "Chapter 669: Step Mothers???"
 weight = 669
 [extra]
 chapter = 669

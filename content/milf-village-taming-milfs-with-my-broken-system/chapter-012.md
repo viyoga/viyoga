@@ -1,5 +1,5 @@
 +++
-title = "Chapter 12: My Apologies... Student Arielle. I Saw An Angel Right In Front Of Me, And Forgot To Speak [18+]"
+title = "Chapter 12: My Apologies... Student Arielle. I Saw An Angel Right In Front Of Me, And Forgot To Speak"
 weight = 12
 [extra]
 chapter = 12

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 404: Someone Is Following Us [18+]"
+title = "Chapter 404: Someone Is Following Us"
 weight = 404
 [extra]
 chapter = 404

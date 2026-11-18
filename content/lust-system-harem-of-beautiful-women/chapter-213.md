@@ -1,5 +1,5 @@
 +++
-title = "Chapter 213: Argue With Idiot, He Will Lower Your IQ [18+]"
+title = "Chapter 213: Argue With Idiot, He Will Lower Your IQ"
 weight = 213
 [extra]
 chapter = 213

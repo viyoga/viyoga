@@ -1,5 +1,5 @@
 +++
-title = "Chapter 389: Menstural Pain [18+]"
+title = "Chapter 389: Menstural Pain"
 weight = 389
 [extra]
 chapter = 389

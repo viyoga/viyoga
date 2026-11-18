@@ -1,5 +1,5 @@
 +++
-title = "Chapter 971: System Task: Feast Of Sisters-In-Law [18+]"
+title = "Chapter 971: System Task: Feast Of Sisters-In-Law"
 weight = 971
 [extra]
 chapter = 971

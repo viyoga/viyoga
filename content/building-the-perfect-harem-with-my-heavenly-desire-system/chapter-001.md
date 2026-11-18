@@ -1,5 +1,5 @@
 +++
-title = "Chapter 1: The Betrayal"
+title = "Chapter 1: The Betrayal [18+]"
 weight = 1
 [extra]
 chapter = 1

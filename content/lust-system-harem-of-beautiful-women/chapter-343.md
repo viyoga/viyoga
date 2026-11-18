@@ -1,5 +1,5 @@
 +++
-title = "Chapter 343: System: Human brain Is Forbidden Realm [18+]"
+title = "Chapter 343: System: Human brain Is Forbidden Realm"
 weight = 343
 [extra]
 chapter = 343

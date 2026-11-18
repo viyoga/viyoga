@@ -1,5 +1,5 @@
 +++
-title = "Chapter 18: \"S-shh D-don’t Raise Your Voice, Little Wen... My Husband Might Hear You [18+]"
+title = "Chapter 18: \"S-shh D-don’t Raise Your Voice, Little Wen... My Husband Might Hear You"
 weight = 18
 [extra]
 chapter = 18

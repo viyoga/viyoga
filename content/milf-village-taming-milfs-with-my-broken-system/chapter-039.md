@@ -1,5 +1,5 @@
 +++
-title = "Chapter 39: Too Bad...The \" Nature\" Was Completely Wild [18+]"
+title = "Chapter 39: Too Bad...The \" Nature\" Was Completely Wild"
 weight = 39
 [extra]
 chapter = 39

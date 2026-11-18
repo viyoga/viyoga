@@ -1,5 +1,5 @@
 +++
-title = "Chapter 1004: Chemical Reactions Of Cheat Ability [18+]"
+title = "Chapter 1004: Chemical Reactions Of Cheat Ability"
 weight = 1004
 [extra]
 chapter = 1004

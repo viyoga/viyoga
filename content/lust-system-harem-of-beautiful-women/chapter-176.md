@@ -1,5 +1,5 @@
 +++
-title = "Chapter 176: Stripping Naked Infront Of Yana And Lily [18+]"
+title = "Chapter 176: Stripping Naked Infront Of Yana And Lily"
 weight = 176
 [extra]
 chapter = 176

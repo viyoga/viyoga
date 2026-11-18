@@ -1,5 +1,5 @@
 +++
-title = "Chapter 142: Initializing Soul Bond process [18+]"
+title = "Chapter 142: Initializing Soul Bond process"
 weight = 142
 [extra]
 chapter = 142

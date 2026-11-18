@@ -1,5 +1,5 @@
 +++
-title = "Chapter 3: System Task [18+]"
+title = "Chapter 3: System Task"
 weight = 3
 [extra]
 chapter = 3

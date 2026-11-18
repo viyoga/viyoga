@@ -1,5 +1,5 @@
 +++
-title = "Chapter 320: Under The Table ( ͡° ͜ʖ ͡°) [18+]"
+title = "Chapter 320: Under The Table ( ͡° ͜ʖ ͡°)"
 weight = 320
 [extra]
 chapter = 320

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 177: Prison Food Tastes Just As Bad As It Looks [18+]"
+title = "Chapter 177: Prison Food Tastes Just As Bad As It Looks"
 weight = 177
 [extra]
 chapter = 177
