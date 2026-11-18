@@ -1,5 +1,5 @@
 +++
-title = "Chapter 454: Turn Choking Into Pleasure, But The Progress Is Slow As F!**"
+title = "Chapter 454: Turn Choking Into Pleasure, But The Progress Is Slow As F!** [18+]"
 weight = 454
 [extra]
 chapter = 454

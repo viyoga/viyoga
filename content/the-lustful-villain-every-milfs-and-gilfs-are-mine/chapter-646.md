@@ -1,5 +1,5 @@
 +++
-title = "Chapter 646: One Is Getting Electrocuted And One Is Getting Telekinetic Force!**"
+title = "Chapter 646: One Is Getting Electrocuted And One Is Getting Telekinetic Force!** [18+]"
 weight = 646
 [extra]
 chapter = 646

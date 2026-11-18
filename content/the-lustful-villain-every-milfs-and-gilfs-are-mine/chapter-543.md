@@ -1,5 +1,5 @@
 +++
-title = "Chapter 543: When I’m Done Impregnating Her Mother... He’s Close To Death!**"
+title = "Chapter 543: When I’m Done Impregnating Her Mother... He’s Close To Death!** [18+]"
 weight = 543
 [extra]
 chapter = 543

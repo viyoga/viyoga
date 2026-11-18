@@ -1,5 +1,5 @@
 +++
-title = "Chapter 315: The Slime’s Head Game Is Already The Peakest Pleasure You’ll Get!**"
+title = "Chapter 315: The Slime’s Head Game Is Already The Peakest Pleasure You’ll Get!** [18+]"
 weight = 315
 [extra]
 chapter = 315

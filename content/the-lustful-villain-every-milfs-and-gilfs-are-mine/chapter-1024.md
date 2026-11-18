@@ -1,5 +1,5 @@
 +++
-title = "Chapter 1024: Diana Wanted To Pee? Isn’t It A Great Idea To Do It On His Head?**"
+title = "Chapter 1024: Diana Wanted To Pee? Isn’t It A Great Idea To Do It On His Head?** [18+]"
 weight = 1024
 [extra]
 chapter = 1024

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 488: Hours and Hours Of Love-Making For Day One Until She’s Gone Insane**"
+title = "Chapter 488: Hours and Hours Of Love-Making For Day One Until She’s Gone Insane** [18+]"
 weight = 488
 [extra]
 chapter = 488

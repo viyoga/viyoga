@@ -1,5 +1,5 @@
 +++
-title = "Chapter 426: She’s Letting Out All The Love Juices Until Making A Puddle of Nectar**"
+title = "Chapter 426: She’s Letting Out All The Love Juices Until Making A Puddle of Nectar** [18+]"
 weight = 426
 [extra]
 chapter = 426

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 556: Today’s The Night That We Celebrate An Anniversary (It’s Stupid, I Know)**"
+title = "Chapter 556: Today’s The Night That We Celebrate An Anniversary (It’s Stupid, I Know)** [18+]"
 weight = 556
 [extra]
 chapter = 556

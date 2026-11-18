@@ -1,5 +1,5 @@
 +++
-title = "Chapter 331: I’ll Challenge Her With A Reward To Save Her Family Name (Part of Plan)**"
+title = "Chapter 331: I’ll Challenge Her With A Reward To Save Her Family Name (Part of Plan)** [18+]"
 weight = 331
 [extra]
 chapter = 331

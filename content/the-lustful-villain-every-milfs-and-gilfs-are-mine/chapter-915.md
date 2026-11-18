@@ -1,5 +1,5 @@
 +++
-title = "Chapter 915: She’s Really Love Me... And That’s What I Want For All My Bitches**"
+title = "Chapter 915: She’s Really Love Me... And That’s What I Want For All My Bitches** [18+]"
 weight = 915
 [extra]
 chapter = 915

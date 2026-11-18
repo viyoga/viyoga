@@ -1,5 +1,5 @@
 +++
-title = "Chapter 952: I Don’t Get Why Woman Always Loves Watching Other Woman Got Destroyed**"
+title = "Chapter 952: I Don’t Get Why Woman Always Loves Watching Other Woman Got Destroyed** [18+]"
 weight = 952
 [extra]
 chapter = 952

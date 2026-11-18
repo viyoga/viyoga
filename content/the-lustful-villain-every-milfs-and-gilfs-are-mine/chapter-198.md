@@ -1,5 +1,5 @@
 +++
-title = "Chapter 198: Both of Them Starts to Get Addicted to It (Even Fighting For It)**"
+title = "Chapter 198: Both of Them Starts to Get Addicted to It (Even Fighting For It)** [18+]"
 weight = 198
 [extra]
 chapter = 198

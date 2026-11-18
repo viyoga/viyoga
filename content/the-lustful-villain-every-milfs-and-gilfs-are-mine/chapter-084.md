@@ -1,5 +1,5 @@
 +++
-title = "Chapter 84: The Ritual Was For Me to Dominate The Goddess of Lust?! (I’M IN 0,8 SECONDS)**"
+title = "Chapter 84: The Ritual Was For Me to Dominate The Goddess of Lust?! (I’M IN 0,8 SECONDS)** [18+]"
 weight = 84
 [extra]
 chapter = 84

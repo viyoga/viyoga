@@ -1,5 +1,5 @@
 +++
-title = "Chapter 557: She Wants The Same Spot As Aisella, Talyra, And Nerith!**"
+title = "Chapter 557: She Wants The Same Spot As Aisella, Talyra, And Nerith!** [18+]"
 weight = 557
 [extra]
 chapter = 557

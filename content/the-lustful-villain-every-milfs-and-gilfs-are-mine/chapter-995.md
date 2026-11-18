@@ -1,5 +1,5 @@
 +++
-title = "Chapter 995: Her Body Is Not Made For Battle, But Only To Serve A Man’s Desire**"
+title = "Chapter 995: Her Body Is Not Made For Battle, But Only To Serve A Man’s Desire** [18+]"
 weight = 995
 [extra]
 chapter = 995

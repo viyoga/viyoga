@@ -1,5 +1,5 @@
 +++
-title = "Chapter 56: The Virgin Walls Has Been Torn Apart! (My First Virgin~! Delicious~!)**"
+title = "Chapter 56: The Virgin Walls Has Been Torn Apart! (My First Virgin~! Delicious~!)** [18+]"
 weight = 56
 [extra]
 chapter = 56

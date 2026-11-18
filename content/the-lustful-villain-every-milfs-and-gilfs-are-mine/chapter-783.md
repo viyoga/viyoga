@@ -1,5 +1,5 @@
 +++
-title = "Chapter 783: Choking A Dragon’s Neck While Electrocuting And Flaming It!**"
+title = "Chapter 783: Choking A Dragon’s Neck While Electrocuting And Flaming It!** [18+]"
 weight = 783
 [extra]
 chapter = 783

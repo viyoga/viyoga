@@ -1,5 +1,5 @@
 +++
-title = "Chapter 154: We’re Almost Naked in Cold Night! (This Archery Game is Fun and Peak!)"
+title = "Chapter 154: We’re Almost Naked in Cold Night! (This Archery Game is Fun and Peak!) [18+]"
 weight = 154
 [extra]
 chapter = 154

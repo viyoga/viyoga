@@ -1,5 +1,5 @@
 +++
-title = "Chapter 245: The Cheetah Wanted To Play! (Me Too! Just to See Those Massive Jugs!)**"
+title = "Chapter 245: The Cheetah Wanted To Play! (Me Too! Just to See Those Massive Jugs!)** [18+]"
 weight = 245
 [extra]
 chapter = 245

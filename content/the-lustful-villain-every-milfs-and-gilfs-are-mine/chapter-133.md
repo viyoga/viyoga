@@ -1,5 +1,5 @@
 +++
-title = "Chapter 133: Threesome with The Frustrated Wives (HELL YEAH~!)**"
+title = "Chapter 133: Threesome with The Frustrated Wives (HELL YEAH~!)** [18+]"
 weight = 133
 [extra]
 chapter = 133

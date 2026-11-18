@@ -1,5 +1,5 @@
 +++
-title = "Chapter 1254: The Headmaster Is Slowly Losing Her Mind And That’s Another W For Me!**"
+title = "Chapter 1254: The Headmaster Is Slowly Losing Her Mind And That’s Another W For Me!** [18+]"
 weight = 1254
 [extra]
 chapter = 1254

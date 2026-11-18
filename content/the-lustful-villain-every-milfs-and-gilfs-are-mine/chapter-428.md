@@ -1,5 +1,5 @@
 +++
-title = "Chapter 428: It’s Not Being Forceful If The Body Enjoys It More Than The Mind**"
+title = "Chapter 428: It’s Not Being Forceful If The Body Enjoys It More Than The Mind** [18+]"
 weight = 428
 [extra]
 chapter = 428

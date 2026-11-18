@@ -1,5 +1,5 @@
 +++
-title = "Chapter 649: Punishing The Demon Queen with The Mix of Pain And Pleasure!**"
+title = "Chapter 649: Punishing The Demon Queen with The Mix of Pain And Pleasure!** [18+]"
 weight = 649
 [extra]
 chapter = 649

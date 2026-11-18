@@ -1,5 +1,5 @@
 +++
-title = "Chapter 156: I’m Naked Now, and She Lost All Her Focus (Yeah, It’s a Win-Win For Sure)"
+title = "Chapter 156: I’m Naked Now, and She Lost All Her Focus (Yeah, It’s a Win-Win For Sure) [18+]"
 weight = 156
 [extra]
 chapter = 156

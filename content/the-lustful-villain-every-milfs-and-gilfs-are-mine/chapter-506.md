@@ -1,5 +1,5 @@
 +++
-title = "Chapter 506: I Came A Lot, And Now She Has To Give Lectures While Leaking!**"
+title = "Chapter 506: I Came A Lot, And Now She Has To Give Lectures While Leaking!** [18+]"
 weight = 506
 [extra]
 chapter = 506

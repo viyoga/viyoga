@@ -1,5 +1,5 @@
 +++
-title = "Chapter 864: We Were Too Loud To The Point That Lily And Diana Heard Us! (LOL!)**"
+title = "Chapter 864: We Were Too Loud To The Point That Lily And Diana Heard Us! (LOL!)** [18+]"
 weight = 864
 [extra]
 chapter = 864

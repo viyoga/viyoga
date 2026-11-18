@@ -1,5 +1,5 @@
 +++
-title = "Chapter 957: A Ghost Can’t Make Love... Heck! Even Can’t Make A Girl Squirt!**"
+title = "Chapter 957: A Ghost Can’t Make Love... Heck! Even Can’t Make A Girl Squirt!** [18+]"
 weight = 957
 [extra]
 chapter = 957

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 65: When Your Hired Bandit Becomes a Final Boss"
+title = "Chapter 65: When Your Hired Bandit Becomes a Final Boss [18+]"
 weight = 65
 [extra]
 chapter = 65

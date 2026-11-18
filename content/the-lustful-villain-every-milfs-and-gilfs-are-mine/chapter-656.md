@@ -1,5 +1,5 @@
 +++
-title = "Chapter 656: Back To Queenie Where I’m Going To Choke The Life Out Of Her!**"
+title = "Chapter 656: Back To Queenie Where I’m Going To Choke The Life Out Of Her!** [18+]"
 weight = 656
 [extra]
 chapter = 656

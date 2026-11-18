@@ -1,5 +1,5 @@
 +++
-title = "Chapter 974: The Assassin Losing Her Goddamn Mind To Be The Real Slut!**"
+title = "Chapter 974: The Assassin Losing Her Goddamn Mind To Be The Real Slut!** [18+]"
 weight = 974
 [extra]
 chapter = 974

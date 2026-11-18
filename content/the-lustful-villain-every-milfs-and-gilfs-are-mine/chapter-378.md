@@ -1,5 +1,5 @@
 +++
-title = "Chapter 378: The Druid Finally Losing It To The Gentleness And Wants To Real Thing**"
+title = "Chapter 378: The Druid Finally Losing It To The Gentleness And Wants To Real Thing** [18+]"
 weight = 378
 [extra]
 chapter = 378

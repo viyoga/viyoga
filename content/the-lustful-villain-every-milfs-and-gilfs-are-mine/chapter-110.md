@@ -1,5 +1,5 @@
 +++
-title = "Chapter 110: Even A Succubus Can Be Dominated By Me! (Even All Her Holes!)**"
+title = "Chapter 110: Even A Succubus Can Be Dominated By Me! (Even All Her Holes!)** [18+]"
 weight = 110
 [extra]
 chapter = 110

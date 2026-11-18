@@ -1,5 +1,5 @@
 +++
-title = "Chapter 1022: It’s Hella Funny Seeing Diana Make Fun Of Theo’s Limp Worm!**"
+title = "Chapter 1022: It’s Hella Funny Seeing Diana Make Fun Of Theo’s Limp Worm!** [18+]"
 weight = 1022
 [extra]
 chapter = 1022

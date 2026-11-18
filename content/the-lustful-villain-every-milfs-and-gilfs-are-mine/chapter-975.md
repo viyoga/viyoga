@@ -1,5 +1,5 @@
 +++
-title = "Chapter 975: Now’s The Perfect F-Ing Time To Reveal The Truth About Tremor!**"
+title = "Chapter 975: Now’s The Perfect F-Ing Time To Reveal The Truth About Tremor!** [18+]"
 weight = 975
 [extra]
 chapter = 975

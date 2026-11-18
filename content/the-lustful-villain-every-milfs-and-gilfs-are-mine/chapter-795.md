@@ -1,5 +1,5 @@
 +++
-title = "Chapter 795: Making A Dragon Fountain, But... With My Seed! Now Her A-Hole Next!**"
+title = "Chapter 795: Making A Dragon Fountain, But... With My Seed! Now Her A-Hole Next!** [18+]"
 weight = 795
 [extra]
 chapter = 795

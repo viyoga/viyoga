@@ -1,5 +1,5 @@
 +++
-title = "Chapter 1106: She’s Such A Masochist In Every Way That It Turns Me On By A Lot!**"
+title = "Chapter 1106: She’s Such A Masochist In Every Way That It Turns Me On By A Lot!** [18+]"
 weight = 1106
 [extra]
 chapter = 1106

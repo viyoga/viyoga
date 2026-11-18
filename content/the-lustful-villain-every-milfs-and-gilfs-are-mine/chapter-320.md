@@ -1,5 +1,5 @@
 +++
-title = "Chapter 320: The Slime Is Pregnant With A Real Child! (Congrats and Thanks For Watching)**"
+title = "Chapter 320: The Slime Is Pregnant With A Real Child! (Congrats and Thanks For Watching)** [18+]"
 weight = 320
 [extra]
 chapter = 320

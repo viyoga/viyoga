@@ -1,5 +1,5 @@
 +++
-title = "Chapter 259: The Problem’s Done with the GILF, and Then We Meet A MILF (New Problem?)"
+title = "Chapter 259: The Problem’s Done with the GILF, and Then We Meet A MILF (New Problem?) [18+]"
 weight = 259
 [extra]
 chapter = 259

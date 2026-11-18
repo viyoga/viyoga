@@ -1,5 +1,5 @@
 +++
-title = "Chapter 250: I’ll Just Stay Silent and Watch Them Argue (It’s Like Watching A Drama)"
+title = "Chapter 250: I’ll Just Stay Silent and Watch Them Argue (It’s Like Watching A Drama) [18+]"
 weight = 250
 [extra]
 chapter = 250

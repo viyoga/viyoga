@@ -1,5 +1,5 @@
 +++
-title = "Chapter 933: We Continue In The Bathrom, And Then Theo Ran To His Room**"
+title = "Chapter 933: We Continue In The Bathrom, And Then Theo Ran To His Room** [18+]"
 weight = 933
 [extra]
 chapter = 933

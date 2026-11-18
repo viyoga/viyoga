@@ -1,5 +1,5 @@
 +++
-title = "Chapter 514: I Position Her Right In Front The Fiance So She Can Badmouth Him!**"
+title = "Chapter 514: I Position Her Right In Front The Fiance So She Can Badmouth Him!** [18+]"
 weight = 514
 [extra]
 chapter = 514

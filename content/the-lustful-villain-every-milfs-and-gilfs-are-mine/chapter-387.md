@@ -1,5 +1,5 @@
 +++
-title = "Chapter 387: Our Last Session Made A Garden?! This Shit Is Starting to Get Weird**"
+title = "Chapter 387: Our Last Session Made A Garden?! This Shit Is Starting to Get Weird** [18+]"
 weight = 387
 [extra]
 chapter = 387

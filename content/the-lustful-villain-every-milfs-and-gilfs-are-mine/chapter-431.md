@@ -1,5 +1,5 @@
 +++
-title = "Chapter 431: There’s No Mercy At Having Pleasure! We’re Going To Taint Her Inside!*"
+title = "Chapter 431: There’s No Mercy At Having Pleasure! We’re Going To Taint Her Inside!* [18+]"
 weight = 431
 [extra]
 chapter = 431

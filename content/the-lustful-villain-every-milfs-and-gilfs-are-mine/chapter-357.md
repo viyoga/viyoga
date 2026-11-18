@@ -1,5 +1,5 @@
 +++
-title = "Chapter 357: Me and Talyra Picked Berries, But We Do It After She Finished Blowing Me**"
+title = "Chapter 357: Me and Talyra Picked Berries, But We Do It After She Finished Blowing Me** [18+]"
 weight = 357
 [extra]
 chapter = 357

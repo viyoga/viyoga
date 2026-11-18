@@ -1,5 +1,5 @@
 +++
-title = "Chapter 976: Iris Knew All Along...? But It’s Too Late... She’s Blinded By My Prime!**"
+title = "Chapter 976: Iris Knew All Along...? But It’s Too Late... She’s Blinded By My Prime!** [18+]"
 weight = 976
 [extra]
 chapter = 976

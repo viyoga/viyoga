@@ -1,5 +1,5 @@
 +++
-title = "Chapter 330: My Meat Rod Burns Her Inside (Thanks To The Last Session I Had!)**"
+title = "Chapter 330: My Meat Rod Burns Her Inside (Thanks To The Last Session I Had!)** [18+]"
 weight = 330
 [extra]
 chapter = 330

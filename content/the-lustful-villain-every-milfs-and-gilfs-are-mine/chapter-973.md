@@ -1,5 +1,5 @@
 +++
-title = "Chapter 973: Kissing While Mating? That's The Best Thing Ever!**"
+title = "Chapter 973: Kissing While Mating? That's The Best Thing Ever!** [18+]"
 weight = 973
 [extra]
 chapter = 973

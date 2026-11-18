@@ -1,5 +1,5 @@
 +++
-title = "Chapter 247: I Really Want to Taste Different Exotic Fantasy Woman Because of This!**"
+title = "Chapter 247: I Really Want to Taste Different Exotic Fantasy Woman Because of This!** [18+]"
 weight = 247
 [extra]
 chapter = 247

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 1244: Under The Table Is The Only Place She’s Worth For While Sucking The Meat"
+title = "Chapter 1244: Under The Table Is The Only Place She’s Worth For While Sucking The Meat [18+]"
 weight = 1244
 [extra]
 chapter = 1244

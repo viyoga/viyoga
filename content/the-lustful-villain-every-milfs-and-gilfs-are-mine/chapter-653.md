@@ -1,5 +1,5 @@
 +++
-title = "Chapter 653: It’s The Demon Queen’s Turn And How Ironic For Her To Ask For Gentleness**"
+title = "Chapter 653: It’s The Demon Queen’s Turn And How Ironic For Her To Ask For Gentleness** [18+]"
 weight = 653
 [extra]
 chapter = 653

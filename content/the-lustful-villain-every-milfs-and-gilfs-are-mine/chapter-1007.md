@@ -1,5 +1,5 @@
 +++
-title = "Chapter 1007: She Gets The Record For The Longest Squirt! And Now She’s Fully Filled**"
+title = "Chapter 1007: She Gets The Record For The Longest Squirt! And Now She’s Fully Filled** [18+]"
 weight = 1007
 [extra]
 chapter = 1007

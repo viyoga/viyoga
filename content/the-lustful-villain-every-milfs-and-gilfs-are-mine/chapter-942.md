@@ -1,5 +1,5 @@
 +++
-title = "Chapter 942: Now... She Knows The Reason Why Diana Screams Loud At Night!**"
+title = "Chapter 942: Now... She Knows The Reason Why Diana Screams Loud At Night!** [18+]"
 weight = 942
 [extra]
 chapter = 942

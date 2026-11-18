@@ -1,5 +1,5 @@
 +++
-title = "Chapter 647: Making The Orc Queen Finally Bursting Out Of Milk and Love Juices**"
+title = "Chapter 647: Making The Orc Queen Finally Bursting Out Of Milk and Love Juices** [18+]"
 weight = 647
 [extra]
 chapter = 647

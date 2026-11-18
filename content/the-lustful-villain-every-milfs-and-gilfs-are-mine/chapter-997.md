@@ -1,5 +1,5 @@
 +++
-title = "Chapter 997: I’m Unleashing A Massive Seed Inside But I Pull It All Out!**"
+title = "Chapter 997: I’m Unleashing A Massive Seed Inside But I Pull It All Out!** [18+]"
 weight = 997
 [extra]
 chapter = 997

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 355: I Know That The Druid Is Watching (Let Her Watch How Brutal I Am)**"
+title = "Chapter 355: I Know That The Druid Is Watching (Let Her Watch How Brutal I Am)** [18+]"
 weight = 355
 [extra]
 chapter = 355

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 1108: Her Menopause Got Overridden, And So... She’s Pregnant With My Child**"
+title = "Chapter 1108: Her Menopause Got Overridden, And So... She’s Pregnant With My Child** [18+]"
 weight = 1108
 [extra]
 chapter = 1108

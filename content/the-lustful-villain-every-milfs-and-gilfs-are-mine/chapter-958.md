@@ -1,5 +1,5 @@
 +++
-title = "Chapter 958: Iris Knows Her Priorities Right This Time Because... Forget The Ghost!**"
+title = "Chapter 958: Iris Knows Her Priorities Right This Time Because... Forget The Ghost!** [18+]"
 weight = 958
 [extra]
 chapter = 958

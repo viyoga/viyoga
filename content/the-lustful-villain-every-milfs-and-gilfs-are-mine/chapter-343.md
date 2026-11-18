@@ -1,5 +1,5 @@
 +++
-title = "Chapter 343: We’re Planning to Make Theo Suffer More (Sneaky Session Soon~!)**"
+title = "Chapter 343: We’re Planning to Make Theo Suffer More (Sneaky Session Soon~!)** [18+]"
 weight = 343
 [extra]
 chapter = 343

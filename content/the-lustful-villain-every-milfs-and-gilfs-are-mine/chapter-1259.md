@@ -1,5 +1,5 @@
 +++
-title = "Chapter 1259: The Headmaster Of Aethelgard Finally Gets Filled With My Seeds!**"
+title = "Chapter 1259: The Headmaster Of Aethelgard Finally Gets Filled With My Seeds!** [18+]"
 weight = 1259
 [extra]
 chapter = 1259

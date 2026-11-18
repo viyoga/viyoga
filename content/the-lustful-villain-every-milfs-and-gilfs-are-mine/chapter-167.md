@@ -1,5 +1,5 @@
 +++
-title = "Chapter 167: I’m Satisfied! Completely! And She’s Also Satisfied! (Bye-bye, Theo!)**"
+title = "Chapter 167: I’m Satisfied! Completely! And She’s Also Satisfied! (Bye-bye, Theo!)** [18+]"
 weight = 167
 [extra]
 chapter = 167

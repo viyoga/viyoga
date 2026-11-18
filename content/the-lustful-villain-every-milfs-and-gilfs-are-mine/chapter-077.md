@@ -1,5 +1,5 @@
 +++
-title = "Chapter 77: Carry All These Bad Memories to Your Grave! (She’s Completely Filled)**"
+title = "Chapter 77: Carry All These Bad Memories to Your Grave! (She’s Completely Filled)** [18+]"
 weight = 77
 [extra]
 chapter = 77

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 785: Even A Dragonkin Was Surprised Seeing My Size! (And I Predict Her First)**"
+title = "Chapter 785: Even A Dragonkin Was Surprised Seeing My Size! (And I Predict Her First)** [18+]"
 weight = 785
 [extra]
 chapter = 785

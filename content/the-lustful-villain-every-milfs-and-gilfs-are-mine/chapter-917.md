@@ -1,5 +1,5 @@
 +++
-title = "Chapter 917: Diana Was Being Loud That It Manage To Wake Theo From His Dream**"
+title = "Chapter 917: Diana Was Being Loud That It Manage To Wake Theo From His Dream** [18+]"
 weight = 917
 [extra]
 chapter = 917

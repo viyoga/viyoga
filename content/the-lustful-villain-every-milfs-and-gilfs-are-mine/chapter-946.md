@@ -1,5 +1,5 @@
 +++
-title = "Chapter 946: They’ve Been Going Out For Years, And Yet... Both Are Still Virgins!**"
+title = "Chapter 946: They’ve Been Going Out For Years, And Yet... Both Are Still Virgins!** [18+]"
 weight = 946
 [extra]
 chapter = 946

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 865: That Was The Best Breeding Ever, But Then My Head Feel Like It Explode**"
+title = "Chapter 865: That Was The Best Breeding Ever, But Then My Head Feel Like It Explode** [18+]"
 weight = 865
 [extra]
 chapter = 865

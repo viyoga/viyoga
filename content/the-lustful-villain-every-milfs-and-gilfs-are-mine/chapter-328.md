@@ -1,5 +1,5 @@
 +++
-title = "Chapter 328: Elaris Is Going To Be My First Gilf I’ll Break In This Fantasy World!**"
+title = "Chapter 328: Elaris Is Going To Be My First Gilf I’ll Break In This Fantasy World!** [18+]"
 weight = 328
 [extra]
 chapter = 328

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 1245: Having Breakfast With Lily And Diana While Their Grandma Is Sucking**"
+title = "Chapter 1245: Having Breakfast With Lily And Diana While Their Grandma Is Sucking** [18+]"
 weight = 1245
 [extra]
 chapter = 1245

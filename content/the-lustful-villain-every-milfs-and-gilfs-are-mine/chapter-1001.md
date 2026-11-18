@@ -1,5 +1,5 @@
 +++
-title = "Chapter 1001: It’s Hella Funny Seeing The Mother Was Getting Ruined While Talking**"
+title = "Chapter 1001: It’s Hella Funny Seeing The Mother Was Getting Ruined While Talking** [18+]"
 weight = 1001
 [extra]
 chapter = 1001

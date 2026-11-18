@@ -1,5 +1,5 @@
 +++
-title = "Chapter 136: One Whole Hour Making The Milf Go Crazy! (Best Shit Ever~!)**"
+title = "Chapter 136: One Whole Hour Making The Milf Go Crazy! (Best Shit Ever~!)** [18+]"
 weight = 136
 [extra]
 chapter = 136

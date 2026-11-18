@@ -1,5 +1,5 @@
 +++
-title = "Chapter 448: Don’t Worry A Single Bit Of Screaming And Moaning In This Inn!**"
+title = "Chapter 448: Don’t Worry A Single Bit Of Screaming And Moaning In This Inn!** [18+]"
 weight = 448
 [extra]
 chapter = 448

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 123: Then Comes the Second I Will Break, and That Is Lilith!**"
+title = "Chapter 123: Then Comes the Second I Will Break, and That Is Lilith!** [18+]"
 weight = 123
 [extra]
 chapter = 123

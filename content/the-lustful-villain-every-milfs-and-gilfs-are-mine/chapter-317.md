@@ -1,5 +1,5 @@
 +++
-title = "Chapter 317: Slippery, Hot, Wet, Lubricant, Slick, Smooth, You Name It. It’s All Here**"
+title = "Chapter 317: Slippery, Hot, Wet, Lubricant, Slick, Smooth, You Name It. It’s All Here** [18+]"
 weight = 317
 [extra]
 chapter = 317

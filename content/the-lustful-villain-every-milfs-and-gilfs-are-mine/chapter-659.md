@@ -1,5 +1,5 @@
 +++
-title = "Chapter 659: Now’s The Perfect Time to Break Cassandra! (After Waiting For So Long!)**"
+title = "Chapter 659: Now’s The Perfect Time to Break Cassandra! (After Waiting For So Long!)** [18+]"
 weight = 659
 [extra]
 chapter = 659

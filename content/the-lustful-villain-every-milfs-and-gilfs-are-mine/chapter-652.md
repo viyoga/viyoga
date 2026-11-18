@@ -1,5 +1,5 @@
 +++
-title = "Chapter 652: Releasing A Massive Amount of Seed Inside The Orc’s Mouth!!!**"
+title = "Chapter 652: Releasing A Massive Amount of Seed Inside The Orc’s Mouth!!!** [18+]"
 weight = 652
 [extra]
 chapter = 652

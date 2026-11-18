@@ -1,5 +1,5 @@
 +++
-title = "Chapter 651: Using A Strong Orc’s Mouth! And The Sensation Is So F-Ing Strong!**"
+title = "Chapter 651: Using A Strong Orc’s Mouth! And The Sensation Is So F-Ing Strong!** [18+]"
 weight = 651
 [extra]
 chapter = 651

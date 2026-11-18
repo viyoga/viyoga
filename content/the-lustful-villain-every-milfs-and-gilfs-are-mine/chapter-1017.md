@@ -1,5 +1,5 @@
 +++
-title = "Chapter 1017: It’s No Use... I Really Can’t Make A Woman With Menopause Pregnant**"
+title = "Chapter 1017: It’s No Use... I Really Can’t Make A Woman With Menopause Pregnant** [18+]"
 weight = 1017
 [extra]
 chapter = 1017

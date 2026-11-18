@@ -1,5 +1,5 @@
 +++
-title = "Chapter 871: Two Things Stopped The Reset, One Was A Speech, One Was Sex"
+title = "Chapter 871: Two Things Stopped The Reset, One Was A Speech, One Was Sex [18+]"
 weight = 871
 [extra]
 chapter = 871

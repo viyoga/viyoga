@@ -1,5 +1,5 @@
 +++
-title = "Chapter 342: Diana Was Not Ready, But At Least Her Other Job Make Up For It**"
+title = "Chapter 342: Diana Was Not Ready, But At Least Her Other Job Make Up For It** [18+]"
 weight = 342
 [extra]
 chapter = 342

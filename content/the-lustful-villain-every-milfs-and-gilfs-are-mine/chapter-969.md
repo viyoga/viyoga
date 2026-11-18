@@ -1,5 +1,5 @@
 +++
-title = "Chapter 969: The Ghost Can’t Even Do Single Shits While Watching Us Have Fun!**"
+title = "Chapter 969: The Ghost Can’t Even Do Single Shits While Watching Us Have Fun!** [18+]"
 weight = 969
 [extra]
 chapter = 969

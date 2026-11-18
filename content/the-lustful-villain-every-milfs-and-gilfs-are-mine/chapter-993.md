@@ -1,5 +1,5 @@
 +++
-title = "Chapter 993: I Really Hit A Jackpot Indeed! Breeding A Brawler That Has Peak Body!**"
+title = "Chapter 993: I Really Hit A Jackpot Indeed! Breeding A Brawler That Has Peak Body!** [18+]"
 weight = 993
 [extra]
 chapter = 993

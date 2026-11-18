@@ -1,5 +1,5 @@
 +++
-title = "Chapter 199: They’re Really Working Together Like A Good Team Indeed! (I’m Shocked!)**"
+title = "Chapter 199: They’re Really Working Together Like A Good Team Indeed! (I’m Shocked!)** [18+]"
 weight = 199
 [extra]
 chapter = 199

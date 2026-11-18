@@ -1,5 +1,5 @@
 +++
-title = "Chapter 914: He Can Only Dream For This To Happen While For Me...? It’s A Daily Thing**"
+title = "Chapter 914: He Can Only Dream For This To Happen While For Me...? It’s A Daily Thing** [18+]"
 weight = 914
 [extra]
 chapter = 914

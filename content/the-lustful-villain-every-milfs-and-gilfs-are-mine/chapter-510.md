@@ -1,5 +1,5 @@
 +++
-title = "Chapter 510: We Ended Up Didn’t Come In The Dungeon Because We Are Busy!**"
+title = "Chapter 510: We Ended Up Didn’t Come In The Dungeon Because We Are Busy!** [18+]"
 weight = 510
 [extra]
 chapter = 510

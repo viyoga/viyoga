@@ -1,5 +1,5 @@
 +++
-title = "Chapter 318: The White Goo Is Visible Through Her Body! (That’s How Unique It Is)**"
+title = "Chapter 318: The White Goo Is Visible Through Her Body! (That’s How Unique It Is)** [18+]"
 weight = 318
 [extra]
 chapter = 318

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 158: She Denied Everything With Perfect Composure. (She’s Close to Be Mine)"
+title = "Chapter 158: She Denied Everything With Perfect Composure. (She’s Close to Be Mine) [18+]"
 weight = 158
 [extra]
 chapter = 158

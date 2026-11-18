@@ -1,5 +1,5 @@
 +++
-title = "Chapter 270: Ruining The Hole Where Apollo Came From! (That’s F-Up!)**"
+title = "Chapter 270: Ruining The Hole Where Apollo Came From! (That’s F-Up!)** [18+]"
 weight = 270
 [extra]
 chapter = 270

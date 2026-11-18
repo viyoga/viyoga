@@ -1,5 +1,5 @@
 +++
-title = "Chapter 932: I Let Him Go Now... I Want To Focus More On Diana And He Ran Away**"
+title = "Chapter 932: I Let Him Go Now... I Want To Focus More On Diana And He Ran Away** [18+]"
 weight = 932
 [extra]
 chapter = 932

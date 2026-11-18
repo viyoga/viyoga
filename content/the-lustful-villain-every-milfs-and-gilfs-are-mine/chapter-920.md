@@ -1,5 +1,5 @@
 +++
-title = "Chapter 920: Theo Still Think All Of This Is Just A Nightmare! I’ll Make It Real Soon!**"
+title = "Chapter 920: Theo Still Think All Of This Is Just A Nightmare! I’ll Make It Real Soon!** [18+]"
 weight = 920
 [extra]
 chapter = 920

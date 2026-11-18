@@ -1,5 +1,5 @@
 +++
-title = "Chapter 72: I Let Him Watch Me Ruining His Childhood Crush (Best Feeling Ever!)**"
+title = "Chapter 72: I Let Him Watch Me Ruining His Childhood Crush (Best Feeling Ever!)** [18+]"
 weight = 72
 [extra]
 chapter = 72

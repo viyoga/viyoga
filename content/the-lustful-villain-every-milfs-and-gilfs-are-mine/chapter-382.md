@@ -1,5 +1,5 @@
 +++
-title = "Chapter 382: A Weird Chain Reaction When She Got Sprayed, A Flower Starts To Bloom**"
+title = "Chapter 382: A Weird Chain Reaction When She Got Sprayed, A Flower Starts To Bloom** [18+]"
 weight = 382
 [extra]
 chapter = 382

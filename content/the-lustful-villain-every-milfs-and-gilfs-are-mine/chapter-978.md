@@ -1,5 +1,5 @@
 +++
-title = "Chapter 978: The First Nightwing That I Impregnated Is Complete!**"
+title = "Chapter 978: The First Nightwing That I Impregnated Is Complete!** [18+]"
 weight = 978
 [extra]
 chapter = 978

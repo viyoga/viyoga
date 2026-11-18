@@ -1,5 +1,5 @@
 +++
-title = "Chapter 334: A Hole That Lets Out A Lot Of White Liquid (Like A Faucet)**"
+title = "Chapter 334: A Hole That Lets Out A Lot Of White Liquid (Like A Faucet)** [18+]"
 weight = 334
 [extra]
 chapter = 334

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 999: We’re Filling Every room With Her Slutty Bitch Stink Today!**"
+title = "Chapter 999: We’re Filling Every room With Her Slutty Bitch Stink Today!** [18+]"
 weight = 999
 [extra]
 chapter = 999

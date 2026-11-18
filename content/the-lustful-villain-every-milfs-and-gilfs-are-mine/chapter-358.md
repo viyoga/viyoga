@@ -1,5 +1,5 @@
 +++
-title = "Chapter 358: Even If She’s A Druid, The Tree Branch Can Betray Her**"
+title = "Chapter 358: Even If She’s A Druid, The Tree Branch Can Betray Her** [18+]"
 weight = 358
 [extra]
 chapter = 358

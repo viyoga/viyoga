@@ -1,5 +1,5 @@
 +++
-title = "Chapter 360: Ruining A Druid’s Mouth And She’s Crying To Get Help**"
+title = "Chapter 360: Ruining A Druid’s Mouth And She’s Crying To Get Help** [18+]"
 weight = 360
 [extra]
 chapter = 360

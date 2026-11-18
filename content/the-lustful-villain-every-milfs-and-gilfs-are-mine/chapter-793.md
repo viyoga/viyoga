@@ -1,5 +1,5 @@
 +++
-title = "Chapter 793: Imagine Choking A Dragon While Dominating Her In And Out!**"
+title = "Chapter 793: Imagine Choking A Dragon While Dominating Her In And Out!** [18+]"
 weight = 793
 [extra]
 chapter = 793

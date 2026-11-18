@@ -1,5 +1,5 @@
 +++
-title = "Chapter 496: We’re Using Alexander’s Bed As Our Love Making Session For Today!**"
+title = "Chapter 496: We’re Using Alexander’s Bed As Our Love Making Session For Today!** [18+]"
 weight = 496
 [extra]
 chapter = 496

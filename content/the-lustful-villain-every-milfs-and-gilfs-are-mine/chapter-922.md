@@ -1,5 +1,5 @@
 +++
-title = "Chapter 922: Theo Was Haunted And Feeling Exhausted For Not Having Good Sleep"
+title = "Chapter 922: Theo Was Haunted And Feeling Exhausted For Not Having Good Sleep [18+]"
 weight = 922
 [extra]
 chapter = 922

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 487: The Day One Session Made Me Think That She’s Already Devoted**"
+title = "Chapter 487: The Day One Session Made Me Think That She’s Already Devoted** [18+]"
 weight = 487
 [extra]
 chapter = 487

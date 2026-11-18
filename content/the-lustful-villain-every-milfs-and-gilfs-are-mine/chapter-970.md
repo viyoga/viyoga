@@ -1,5 +1,5 @@
 +++
-title = "Chapter 970: I Gave Her A Chance To Crawl Away... But She’s The One Riding Me Now!**"
+title = "Chapter 970: I Gave Her A Chance To Crawl Away... But She’s The One Riding Me Now!** [18+]"
 weight = 970
 [extra]
 chapter = 970

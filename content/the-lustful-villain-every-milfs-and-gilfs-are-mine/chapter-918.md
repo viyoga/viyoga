@@ -1,5 +1,5 @@
 +++
-title = "Chapter 918: Theo Tried To Stop Me By Banging The Door, But He Got Blown Away!**"
+title = "Chapter 918: Theo Tried To Stop Me By Banging The Door, But He Got Blown Away!** [18+]"
 weight = 918
 [extra]
 chapter = 918

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 558: We Go To The Guest Room, And Apollo Had Some Weird Dream! (They Leave)**"
+title = "Chapter 558: We Go To The Guest Room, And Apollo Had Some Weird Dream! (They Leave)** [18+]"
 weight = 558
 [extra]
 chapter = 558

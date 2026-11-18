@@ -1,5 +1,5 @@
 +++
-title = "Chapter 542: Both The Husband and The Son Are Sleeping Without Knowing The Conquest!**"
+title = "Chapter 542: Both The Husband and The Son Are Sleeping Without Knowing The Conquest!** [18+]"
 weight = 542
 [extra]
 chapter = 542

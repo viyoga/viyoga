@@ -1,5 +1,5 @@
 +++
-title = "Chapter 654: The Feeling of Regret Always Came At Last, Huh? There’s No Turning Back**"
+title = "Chapter 654: The Feeling of Regret Always Came At Last, Huh? There’s No Turning Back** [18+]"
 weight = 654
 [extra]
 chapter = 654

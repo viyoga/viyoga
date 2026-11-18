@@ -1,5 +1,5 @@
 +++
-title = "Chapter 447: Her Chest Isn’t Protected No More! And Damn! Huge Jugs!**"
+title = "Chapter 447: Her Chest Isn’t Protected No More! And Damn! Huge Jugs!** [18+]"
 weight = 447
 [extra]
 chapter = 447

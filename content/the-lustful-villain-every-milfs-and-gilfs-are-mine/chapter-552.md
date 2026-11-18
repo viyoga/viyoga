@@ -1,5 +1,5 @@
 +++
-title = "Chapter 552: She Manage To Drink All The Semen And Then Have To Choose Two Options!**"
+title = "Chapter 552: She Manage To Drink All The Semen And Then Have To Choose Two Options!** [18+]"
 weight = 552
 [extra]
 chapter = 552

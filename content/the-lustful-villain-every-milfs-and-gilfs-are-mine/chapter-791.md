@@ -1,5 +1,5 @@
 +++
-title = "Chapter 791: A Dragon Can’t Win Against My Meat-Sword! They Will Break As Well!**"
+title = "Chapter 791: A Dragon Can’t Win Against My Meat-Sword! They Will Break As Well!** [18+]"
 weight = 791
 [extra]
 chapter = 791

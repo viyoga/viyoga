@@ -1,5 +1,5 @@
 +++
-title = "Chapter 951: Diana Is Wearing A Bunny Outfit For Today... And Look Who’s Watching Us**"
+title = "Chapter 951: Diana Is Wearing A Bunny Outfit For Today... And Look Who’s Watching Us** [18+]"
 weight = 951
 [extra]
 chapter = 951

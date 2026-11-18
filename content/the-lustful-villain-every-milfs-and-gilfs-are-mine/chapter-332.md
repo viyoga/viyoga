@@ -1,5 +1,5 @@
 +++
-title = "Chapter 332: A GILF With A Loud Moaning And Slurping Noises!(She Wants To Win)**"
+title = "Chapter 332: A GILF With A Loud Moaning And Slurping Noises!(She Wants To Win)** [18+]"
 weight = 332
 [extra]
 chapter = 332

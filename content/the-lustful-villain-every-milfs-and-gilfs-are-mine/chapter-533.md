@@ -1,5 +1,5 @@
 +++
-title = "Chapter 533: Mireya Finally Faces The Truth That Apollo’s Mother Is My Bitch Too"
+title = "Chapter 533: Mireya Finally Faces The Truth That Apollo’s Mother Is My Bitch Too [18+]"
 weight = 533
 [extra]
 chapter = 533

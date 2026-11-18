@@ -1,5 +1,5 @@
 +++
-title = "Chapter 931: I Want Diana To Admit It Herself That She’s Officially My Bitch!**"
+title = "Chapter 931: I Want Diana To Admit It Herself That She’s Officially My Bitch!** [18+]"
 weight = 931
 [extra]
 chapter = 931

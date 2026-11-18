@@ -1,5 +1,5 @@
 +++
-title = "Chapter 370: That Simp Doesn’t Even Know Her Girl Was Getting Pounded Behind Tree**"
+title = "Chapter 370: That Simp Doesn’t Even Know Her Girl Was Getting Pounded Behind Tree** [18+]"
 weight = 370
 [extra]
 chapter = 370
