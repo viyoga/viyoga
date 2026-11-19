@@ -1,0 +1,190 @@
+#lv-guide {
+  max-width: 1080px;
+  margin: 0 auto;
+  padding: 28px 18px 90px;
+  color: var(--fg);
+}
+#lv-guide .lv-head { margin-bottom: 22px; }
+#lv-guide .lv-kicker {
+  font: 500 var(--text-xs) var(--font-mono);
+  letter-spacing: .14em;
+  text-transform: uppercase;
+  color: var(--accent);
+  margin: 0 0 8px;
+}
+#lv-guide h1 {
+  font-size: clamp(1.55rem, 4vw, 2.1rem);
+  line-height: 1.15;
+  margin: 0 0 8px;
+  color: var(--fg);
+}
+#lv-guide .lv-deck { color: var(--fg-dim); max-width: 68ch; margin: 0 0 18px; }
+#lv-guide .lv-tabs { display: flex; flex-wrap: wrap; gap: 6px; margin-bottom: 14px; }
+#lv-guide .lv-tabs button {
+  appearance: none;
+  background: var(--bg-panel);
+  color: var(--fg-dim);
+  border: 1px solid var(--border);
+  border-radius: 0;
+  padding: 9px 16px;
+  font: 500 var(--text-sm) var(--font-mono);
+  cursor: pointer;
+}
+#lv-guide .lv-tabs button:hover { border-color: var(--border-strong); color: var(--fg); }
+#lv-guide .lv-tabs button[aria-selected="true"] {
+  background: var(--accent);
+  border-color: var(--accent);
+  color: #120A04;
+  font-weight: 700;
+}
+#lv-guide .lv-jump {
+  display: flex;
+  align-items: stretch;
+  gap: 6px;
+  max-width: 460px;
+}
+#lv-guide .lv-jump button {
+  border: 1px solid var(--border);
+  background: var(--bg-panel);
+  color: var(--fg);
+  padding: 0 16px;
+  font-size: 1.1rem;
+  cursor: pointer;
+  border-radius: 0;
+}
+#lv-guide .lv-jump button:hover { border-color: var(--accent); color: var(--accent); }
+#lv-guide .lv-jump label {
+  display: flex;
+  align-items: center;
+  gap: 8px;
+  flex: 1;
+  border: 1px solid var(--border);
+  background: var(--bg-panel);
+  padding: 0 12px;
+  font: 500 var(--text-xs) var(--font-mono);
+  color: var(--fg-dim);
+  text-transform: uppercase;
+  letter-spacing: .08em;
+}
+#lv-guide .lv-jump input {
+  flex: 1;
+  min-width: 0;
+  border: 0;
+  background: transparent;
+  color: var(--fg);
+  font: 700 1.25rem var(--font-mono);
+  padding: 8px 0;
+  outline: none;
+}
+#lv-guide .lv-panel {
+  background: var(--bg-panel);
+  border: 1px solid var(--border);
+  border-radius: 0;
+}
+#lv-guide .lv-chapter-head {
+  display: flex;
+  align-items: baseline;
+  gap: 12px;
+  flex-wrap: wrap;
+  margin: 6px 0 12px;
+}
+#lv-guide .lv-chapter-head h2 {
+  margin: 0;
+  font-size: 1.4rem;
+  color: var(--accent);
+}
+#lv-guide .lv-chapter-title { color: var(--fg-dim); font-size: .95rem; }
+#lv-guide .lv-summary-box { padding: 16px 18px; margin-bottom: 14px; }
+#lv-guide .lv-label {
+  font: 700 var(--text-xs) var(--font-mono);
+  letter-spacing: .14em;
+  color: var(--fg-muted);
+  margin-bottom: 8px;
+}
+#lv-guide .lv-summary { margin: 0; color: var(--fg); line-height: 1.65; }
+#lv-guide .lv-readline { margin: 0 0 16px; font-family: var(--font-mono); font-size: .9rem; }
+#lv-guide a { color: var(--link); text-decoration: none; }
+#lv-guide a:hover { color: var(--link-hover); text-decoration: underline; }
+#lv-guide .lv-main { margin-bottom: 16px; }
+#lv-guide .lv-main > summary {
+  cursor: pointer;
+  padding: 12px 16px;
+  font-weight: 700;
+  color: var(--accent);
+}
+#lv-guide .lv-main-body { padding: 0 16px 14px; }
+#lv-guide .lv-list { list-style: none; margin: 0; padding: 0; }
+#lv-guide .lv-row { padding: 14px 16px; border-top: 1px solid var(--border); }
+#lv-guide .lv-row:first-child { border-top: 0; }
+#lv-guide .lv-row.is-new { box-shadow: inset 3px 0 0 var(--accent); background: var(--bg-panel-alt); }
+#lv-guide .lv-row-top { display: flex; align-items: baseline; flex-wrap: wrap; gap: 6px; }
+#lv-guide .lv-name { font-weight: 700; font-size: 1.02rem; }
+#lv-guide .lv-aka { color: var(--fg-muted); font-size: .82rem; }
+#lv-guide .lv-tag {
+  font: 500 .7rem var(--font-mono);
+  border: 1px solid var(--border);
+  color: var(--fg-dim);
+  padding: 1px 7px;
+  text-transform: uppercase;
+  letter-spacing: .06em;
+  margin-left: auto;
+}
+#lv-guide .lv-new {
+  font: 700 .68rem var(--font-mono);
+  color: #120A04;
+  background: var(--accent);
+  padding: 1px 6px;
+  letter-spacing: .08em;
+}
+#lv-guide .lv-bio { margin: 6px 0 6px; line-height: 1.6; }
+#lv-guide .lv-meta {
+  margin: 0;
+  color: var(--fg-muted);
+  font: 400 .8rem var(--font-mono);
+}
+#lv-guide .lv-ranges a { color: var(--accent); }
+#lv-guide .lv-empty { padding: 20px 16px; color: var(--fg-muted); margin: 0; }
+#lv-guide .lv-more { margin-top: 16px; }
+#lv-guide .lv-more > summary { cursor: pointer; padding: 12px 16px; color: var(--fg-dim); font-weight: 600; }
+#lv-guide .lv-chips { display: flex; flex-wrap: wrap; gap: 6px; padding: 0 16px; }
+#lv-guide .lv-chip {
+  appearance: none;
+  border: 1px solid var(--border);
+  background: transparent;
+  color: var(--fg);
+  padding: 4px 12px;
+  font: 500 .82rem var(--font-mono);
+  cursor: pointer;
+  border-radius: 0;
+}
+#lv-guide .lv-chip:hover { border-color: var(--accent); color: var(--accent); }
+#lv-guide .lv-chipbio { margin: 10px 16px 16px; color: var(--fg-dim); font-size: .9rem; }
+#lv-guide .lv-filters { display: flex; gap: 8px; flex-wrap: wrap; margin-bottom: 14px; }
+#lv-guide .lv-filters input,
+#lv-guide .lv-filters select {
+  flex: 1;
+  min-width: 170px;
+  padding: 10px 12px;
+  background: var(--bg-panel);
+  border: 1px solid var(--border);
+  color: var(--fg);
+  font: 400 var(--text-sm) var(--font-mono);
+  border-radius: 0;
+}
+#lv-guide .lv-filters input:focus,
+#lv-guide .lv-filters select:focus { outline: none; border-color: var(--accent); }
+#lv-guide .lv-sum-list { margin: 0; }
+#lv-guide .lv-sum-item {
+  border-bottom: 1px solid var(--border);
+  padding: 18px 0;
+}
+#lv-guide .lv-sum-item:last-child { border-bottom: 0; }
+#lv-guide .lv-sum-item h3 { margin: 0 0 8px; font-size: 1rem; color: var(--fg); }
+#lv-guide .lv-sum-item h3 a { color: var(--accent); font-family: var(--font-mono); }
+#lv-guide .lv-sum-title { color: var(--fg-dim); font-weight: 400; }
+#lv-guide .lv-sum-item .lv-summary { line-height: 1.68; }
+#lv-guide [hidden] { display: none !important; }
+@media (max-width: 560px) {
+  #lv-guide { padding: 20px 12px 70px; }
+  #lv-guide .lv-tag { margin-left: 0; }
+}
