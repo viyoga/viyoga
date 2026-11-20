@@ -5,6 +5,6 @@ render = true
 [extra]
 book_number = 23
 author = "TheOneAuthor"
-chapters = "1300 ch"
+chapters = "1365 ch"
 summary = "Rex Rexilion dies a scumbag and wakes in a fantasy world with the Desire Authority System, turning seduction and manipulation into power."
 +++
