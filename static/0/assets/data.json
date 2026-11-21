@@ -1,0 +1,318 @@
+{
+ "generated": "2026-11-21T12:54:53.355267+00:00",
+ "novels": [
+  {
+   "slug": "chapters",
+   "path": "/chapters/",
+   "title": "Crime and Punishment",
+   "author": "Fyodor Dostoevsky",
+   "chapters": "40 ch",
+   "count": 40,
+   "summary": "Pain and suffering are always inevitable for a large intelligence and a deep heart",
+   "book": 3
+  },
+  {
+   "slug": "white-nights",
+   "path": "/white-nights/",
+   "title": "White Nights",
+   "author": "Fyodor Dostoevsky",
+   "chapters": "11 ch",
+   "count": 11,
+   "summary": "It was a wonderful night, such a night as is only possible when we are young, dear reader",
+   "book": 5
+  },
+  {
+   "slug": "notes-from-underground",
+   "path": "/notes-from-underground/",
+   "title": "Notes from Underground",
+   "author": "Fyodor Dostoevsky",
+   "chapters": "21 ch",
+   "count": 21,
+   "summary": "I am a sick man.... I am a spiteful man. I am an unattractive man",
+   "book": 7
+  },
+  {
+   "slug": "metamorphosis",
+   "path": "/metamorphosis/",
+   "title": "Metamorphosis",
+   "author": "Franz Kafka",
+   "chapters": "3 ch",
+   "count": 3,
+   "summary": "One morning, when Gregor Samsa woke from troubled dreams, he found himself transformed in his bed into a horrible vermin",
+   "book": 9
+  },
+  {
+   "slug": "the-trial",
+   "path": "/the-trial/",
+   "title": "The Trial",
+   "author": "Franz Kafka",
+   "chapters": "10 ch",
+   "count": 10,
+   "summary": "Someone must have been telling lies about Josef K., he knew he had done nothing wrong but, one morning, he was arrested",
+   "book": 10
+  },
+  {
+   "slug": "lith's-slice-of-life",
+   "path": "/lith's-slice-of-life/",
+   "title": "Lith's Slice of Life",
+   "author": "Web Novel",
+   "chapters": "1,223 ch",
+   "count": 1223,
+   "summary": "“Calm down. His name is going to be Lith. Lith Evure.”",
+   "book": 13
+  },
+  {
+   "slug": "son-of-the-hero-king",
+   "path": "/son-of-the-hero-king/",
+   "title": "Son of the Hero King",
+   "author": "Hikaru Genji",
+   "chapters": "861 ch",
+   "count": 862,
+   "summary": "An ordinary boy dies and wakes reborn as the sole prince and heir of the human empire — in a world of swords, magic, demi-humans, and Goddesses.",
+   "book": 15
+  },
+  {
+   "slug": "hearthomancy-vol-1",
+   "path": "/hearthomancy-vol-1/",
+   "title": "Hearthomancy Vol. 1",
+   "author": "M.E. Thorne",
+   "chapters": "44 ch",
+   "count": 44,
+   "summary": "A Men's Fantasy Adventure",
+   "book": 16
+  },
+  {
+   "slug": "i-am-a-mage-but-with-milf-system",
+   "path": "/i-am-a-mage-but-with-milf-system/",
+   "title": "I Am A Mage But With Milf System",
+   "author": "author_210",
+   "chapters": "893 ch",
+   "count": 893,
+   "summary": "A young mage unlocks a system that turns desire into power.",
+   "book": 17
+  },
+  {
+   "slug": "the-corruption-dragon-god-lust-system",
+   "path": "/the-corruption-dragon-god-lust-system/",
+   "title": "The Corruption Dragon God: Lust System",
+   "author": "SillyDaoist",
+   "chapters": "972 ch",
+   "count": 973,
+   "summary": "After twelve chaste years, Qingyi awakens the Corruption Dragon God System and begins a path of cultivation and conquest.",
+   "book": 18
+  },
+  {
+   "slug": "the-golden-lord-sss-rank-summoning-system",
+   "path": "/the-golden-lord-sss-rank-summoning-system/",
+   "title": "The Golden Lord has a perverted SSS-rank summoning system!",
+   "author": "SillyDaoist",
+   "chapters": "466 ch",
+   "count": 466,
+   "summary": "Ethan, a discreet pervert, awakens the Great Pervert’s SSS-rank summoning system and must build a kingdom as the Emperor of Love.",
+   "book": 20
+  },
+  {
+   "slug": "ascendant-path-of-a-lustful-vampire",
+   "path": "/ascendant-path-of-a-lustful-vampire/",
+   "title": "Ascendant Path of a Lustful Vampire",
+   "author": "NatePrince",
+   "chapters": "653 ch",
+   "count": 653,
+   "summary": "After panning the death of his favorite character, Kevin wakes inside the novel as Caius Von Helsing, a vampire spawn, and embraces a new vampiric life.",
+   "book": 22
+  },
+  {
+   "slug": "creating-a-friendly-family",
+   "path": "/creating-a-friendly-family/",
+   "title": "Creating a Friendly Family",
+   "author": "Unknown",
+   "chapters": "831 ch",
+   "count": 833,
+   "summary": "After his father's death, Shiwoo's ordinary family begins to blur the line between affection and desire.",
+   "book": 24
+  },
+  {
+   "slug": "primordial-chaos-dragon-tower-harem-system",
+   "path": "/primordial-chaos-dragon-tower-harem-system/",
+   "title": "Primordial Chaos Dragon Tower: Harem System",
+   "author": "Pen_Drop",
+   "chapters": "1,965 ch",
+   "count": 1965,
+   "summary": "Kent, a disillusioned adult-film director, is reborn in a cultivation world with a harem system and a tower that turns blood, pain, and pleasure into power.",
+   "book": 26
+  },
+  {
+   "slug": "a-villains-way-of-taming-heroines",
+   "path": "/a-villains-way-of-taming-heroines/",
+   "title": "A Villain's Way of Taming Heroines",
+   "author": "POWER_",
+   "chapters": "767 ch",
+   "count": 767,
+   "summary": "Ansel of Hydral devours a mysterious Traveller, glimpses a doomed future, and sets out to tame the chosen heroines and reshape the empire.",
+   "book": 27
+  },
+  {
+   "slug": "system-distributing-villain-guide-to-conquering-heroines-hearts",
+   "path": "/system-distributing-villain-guide-to-conquering-heroines-hearts/",
+   "title": "System Distributing Villain: Guide to Conquering Heroines' Hearts!",
+   "author": "MorallyGray4Life",
+   "chapters": "121 ch",
+   "count": 121,
+   "summary": "Dante wakes inside the body of a villain with a system that guides him to conquer the heroines' hearts.",
+   "book": 28
+  },
+  {
+   "slug": "reborn-rich-the-youngest-son-of-a-japanese-conglomerate",
+   "path": "/reborn-rich-the-youngest-son-of-a-japanese-conglomerate/",
+   "title": "Reborn Rich: The Youngest Son of a Japanese Conglomerate",
+   "author": "교블린 (gyobeullin)",
+   "chapters": "1,121 ch",
+   "count": 1121,
+   "summary": "After being disappointed by a drama based on a cyberpunk game, the protagonist wakes as the youngest son of a Japanese conglomerate family.",
+   "book": 29
+  },
+  {
+   "slug": "dominator-of-the-imperial-academy",
+   "path": "/dominator-of-the-imperial-academy/",
+   "title": "Dominator Of The Imperial Academy",
+   "author": "OOkun",
+   "chapters": "117 ch",
+   "count": 118,
+   "summary": "Xavier Drakenfell enters the Imperial Academy and sets out to dominate its students, nobles, and wives while hunting hidden treasures.",
+   "book": 31
+  },
+  {
+   "slug": "strongest-necromancer-system",
+   "path": "/strongest-necromancer-system/",
+   "title": "Strongest Necromancer System",
+   "author": "Legioneer_1000",
+   "chapters": "1,186 ch",
+   "count": 1186,
+   "summary": "A seventeen-year-old diner worker awakens the Necromancer System and rises through gates, guilds, and other worlds with an undead legion.",
+   "book": 32
+  },
+  {
+   "slug": "demonic-pornstar-system",
+   "path": "/demonic-pornstar-system/",
+   "title": "Demonic Pornstar System",
+   "author": "NecroBin",
+   "chapters": "1,111 ch",
+   "count": 1111,
+   "summary": "After a banana peel kills him during the mana apocalypse, powerless Kaiden awakens the Pornstar System and begins conquering the adult industry.",
+   "book": 33
+  },
+  {
+   "slug": "primordial-villain-with-a-slave-harem",
+   "path": "/primordial-villain-with-a-slave-harem/",
+   "title": "Primordial Villain with a Slave Harem",
+   "author": "NecroBin",
+   "chapters": "2,044 ch",
+   "count": 2044,
+   "summary": "A bored office worker is reborn in the deadly world of Thalorind as a level 1 Commoner and builds power through slave collars, cruelty, and a growing harem.",
+   "book": 34
+  },
+  {
+   "slug": "evil-mcs-ntr-harem",
+   "path": "/evil-mcs-ntr-harem/",
+   "title": "Evil MC's NTR Harem",
+   "author": "Unknown",
+   "chapters": "1283 ch",
+   "count": 1283,
+   "summary": "A neglected young man is drawn into a harem of women who belong to other men, and the NTR games only pull him deeper.",
+   "book": 35
+  },
+  {
+   "slug": "building-the-perfect-harem-with-my-heavenly-desire-system",
+   "path": "/building-the-perfect-harem-with-my-heavenly-desire-system/",
+   "title": "Building The Perfect Harem With My Heavenly Desire System",
+   "author": "Unknown",
+   "chapters": "287 ch",
+   "count": 287,
+   "summary": "Betrayed and fired, Alex awakens the Heavenly Desire System and begins building the perfect harem while clawing his way to power.",
+   "book": 36
+  },
+  {
+   "slug": "ntr-barbarian-harem-conquest",
+   "path": "/ntr-barbarian-harem-conquest/",
+   "title": "NTR Barbarian Harem Conquest",
+   "author": "Unknown",
+   "chapters": "394 ch",
+   "count": 394,
+   "summary": "A top player is reborn as a barbarian in a brutal game world, where he uses his system to conquer tribes, rivals, and their women.",
+   "book": 37
+  },
+  {
+   "slug": "lust-system-harem-of-beautiful-women",
+   "path": "/lust-system-harem-of-beautiful-women/",
+   "title": "Lust System Harem Of Beautiful Women",
+   "author": "Unknown",
+   "chapters": "1011 ch",
+   "count": 1011,
+   "summary": "A quiet office worker gains a Lust System and is pulled into a dangerous web of desire, power, and beautiful women.",
+   "book": 38
+  },
+  {
+   "slug": "milf-village-taming-milfs-with-my-broken-system",
+   "path": "/milf-village-taming-milfs-with-my-broken-system/",
+   "title": "MILF Village: Taming MILFs With My Broken System",
+   "author": "Unknown",
+   "chapters": "299 ch",
+   "count": 299,
+   "summary": "Broke and jobless, Owen stumbles into a village of MILFs and must survive the outrageous tasks of his broken system.",
+   "book": 39
+  }
+ ],
+ "tools": [
+  {
+   "title": "Dictionary",
+   "path": "/dictionary/",
+   "desc": "Word lookup — 23 Wiktionary editions & fuzzy matching",
+   "kicker": "Lexicon"
+  },
+  {
+   "title": "Studio",
+   "path": "/studio/",
+   "desc": "Compress, convert & resize images, PDFs and documents — all in-tab",
+   "kicker": "Documents"
+  },
+  {
+   "title": "Walldiff",
+   "path": "/walldiff/",
+   "desc": "Wallpaper recolor — gowall engine, 35 palettes",
+   "kicker": "Palettes"
+  },
+  {
+   "title": "Typing",
+   "path": "/typing/",
+   "desc": "Typing test — time/word modes, live WPM & accuracy",
+   "kicker": "Speed Test"
+  },
+  {
+   "title": "Abeyant",
+   "path": "/abeyant/",
+   "desc": "New tab, clock, search & shortcuts",
+   "kicker": "Extension"
+  },
+  {
+   "title": "Desktop",
+   "path": "https://viyoga.github.io/web-startpages/startpage/jobkitty/",
+   "desc": "Desktop startpage — jobkitty",
+   "kicker": "Startpage",
+   "external": true
+  },
+  {
+   "title": "Mobile",
+   "path": "https://viyoga.github.io/mobile-startpages/",
+   "desc": "Mobile startpage",
+   "kicker": "Mobile App",
+   "external": true
+  },
+  {
+   "title": "Source",
+   "path": "https://github.com/viyoga",
+   "desc": "Open-source repository, dotfiles & site code",
+   "kicker": "GitHub",
+   "external": true
+  }
+ ]
+}
