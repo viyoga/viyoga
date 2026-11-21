@@ -1,5 +1,5 @@
 +++
-title = "Chapter 276: Palace of the Fallen God-Emperor"
+title = "Chapter 276: Palace of the Fallen God-Emperor 18+"
 weight = 276
 [extra]
 chapter = 276

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 324: Why does he have three legs?"
+title = "Chapter 324: Why does he have three legs? 18+"
 weight = 324
 [extra]
 chapter = 324

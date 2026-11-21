@@ -1,5 +1,5 @@
 +++
-title = "Chapter 370: First merchant fleet (01)"
+title = "Chapter 370: First merchant fleet (01) 18+"
 weight = 370
 [extra]
 chapter = 370

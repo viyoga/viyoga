@@ -1,5 +1,5 @@
 +++
-title = "Chapter 453: The Great Canals of Goldenveil"
+title = "Chapter 453: The Great Canals of Goldenveil 18+"
 weight = 453
 [extra]
 chapter = 453

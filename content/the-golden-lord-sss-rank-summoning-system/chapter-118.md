@@ -1,5 +1,5 @@
 +++
-title = "Chapter 118: Taming a Death Knight (02)"
+title = "Chapter 118: Taming a Death Knight (02) 18+"
 weight = 118
 [extra]
 chapter = 118

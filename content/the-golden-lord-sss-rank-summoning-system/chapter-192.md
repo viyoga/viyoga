@@ -1,5 +1,5 @@
 +++
-title = "Chapter 192: Ophelia’s Choice"
+title = "Chapter 192: Ophelia’s Choice 18+"
 weight = 192
 [extra]
 chapter = 192

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 406: Reunion with Faelith (02)"
+title = "Chapter 406: Reunion with Faelith (02) 18+"
 weight = 406
 [extra]
 chapter = 406

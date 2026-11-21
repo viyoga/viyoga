@@ -1,5 +1,5 @@
 +++
-title = "Chapter 169: Professional Staff Selection Card"
+title = "Chapter 169: Professional Staff Selection Card 18+"
 weight = 169
 [extra]
 chapter = 169
