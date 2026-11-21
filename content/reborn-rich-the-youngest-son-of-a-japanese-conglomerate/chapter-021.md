@@ -24,7 +24,7 @@ chapter = 21
 <p>I broke the hug and kissed her, touching her breasts with my left hand and stroking her whole body with my right hand, looking for Hanako Gokado's special erogenous points that weren't direct erogenous zones like her breasts or pussy. Surprisingly, the soft inner arm connecting the armpit was an erogenous zone; when I stroked it once, I felt her toes stretch out as if she was getting an electric shock.</p>
 <p>,Heuehe...! I, I feel weird...."</p>
 <p>,Do you feel weird? Is it good?"</p>
-<p>,Eueuhang.... I don't know, I like it... I feel heuhang~! Good. Feels good...!"</p>
+<p>,Eueuhang.... I don't know, I like it... I feel heuhang! Good. Feels good...!"</p>
 <p>Should I check the sensitivity of her nipples this time? I bit her breast like Hanako Gokado did to me earlier. Her breasts seemed to be a good erogenous zone, as she reacted immediately.</p>
 <p>,Hyaang!"</p>
 <p>It was a slightly strange moan, but there was definitely a reaction.</p>

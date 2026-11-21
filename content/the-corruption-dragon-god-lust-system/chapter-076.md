@@ -13,7 +13,7 @@ chapter = 76
 
 <p>At the same moment, another bandit appeared behind her, his sword opening a deep gash in the young woman’s delicate back.</p>
 
-<p>“Ghn~~” Elize grunted painfully before kicking backwards, throwing her aggressor away and quickly retreating.</p>
+<p>“Ghn” Elize grunted painfully before kicking backwards, throwing her aggressor away and quickly retreating.</p>
 
 <p>More than twenty corpses already lay under her feet, but the number of enemies didn’t seem to be decreasing one bit.</p>
 

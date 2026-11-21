@@ -42,19 +42,19 @@ chapter = 205
 <p>Eloise’s brows were furrowed but the fact that she would be doing something she loved helped satisfy some of the annoyance she was feeling.</p>
 <p>But before she could even begin, the Beast was already upon them.</p>
 <p>But then Aurelius was there.</p>
-<p>There was a streak of light and he had put himself between the Bullcroc’s snout and its target. He had a hand thrust forward and his best defensive spell, ~Mandala~, received the attack.</p>
-<p>~Mandala~ held far better than ~Galleon’s Gate~ had. The force behind the Bullcroc’s attack caused Aurelius to take a few steps back, still standing on the foothold of ~Freya’s Footsteps~ but ~Mandala~ wasn’t broken yet.</p>
+<p>There was a streak of light and he had put himself between the Bullcroc’s snout and its target. He had a hand thrust forward and his best defensive spell, Mandala, received the attack.</p>
+<p>Mandala held far better than Galleon’s Gate had. The force behind the Bullcroc’s attack caused Aurelius to take a few steps back, still standing on the foothold of Freya’s Footsteps but Mandala wasn’t broken yet.</p>
 <p>And then a crack appeared to show its defensive integrity was getting compromised.</p>
 <p>Aurelius’s brows were furrowed and there was a serious glint in his blue eyes as he formed seals with his free hand and then cast a spell circle that created three larger spell circles that all fired lances of light like pillars.</p>
 <p>The lances struck the Bullcroc’s scales, unable to break through or put a scratch on it as had always been the case thus far, but this time, they caused the Beast to move.</p>
 <p>As useless in attacking-pierce force as the lances were against a Four Star threat, they struck with enough pushing force to make the Bullcroc slide a couple of feet back.</p>
-<p>Aurelius didn’t follow. ~Mandala~ had reached its limit anyway so he canceled the spell before slamming his hands together.</p>
-<p>"~Eich Notchue Lomea Zarrr~" He chanted in a droning voice.</p>
+<p>Aurelius didn’t follow. Mandala had reached its limit anyway so he canceled the spell before slamming his hands together.</p>
+<p>"Eich Notchue Lomea Zarrr" He chanted in a droning voice.</p>
 <p>He didn’t form seals. They weren’t needed. For this spell he had cast, he needed to speak the language that accompanied the Arcane Symbols in their Ancientness to do it.</p>
 <p>A spell circle appeared high in the sky then and was so bright, it was as though an afternoon sun had managed to break past the cover the trees should have cast. And then the spell became a figure. It was the bust of an expressionless but quite endowed female whose hands were clasped as though in prayer.</p>
-<p>~Freya’s Benevolence~</p>
+<p>Freya’s Benevolence</p>
 <p>"He got that already, huh?" Caius said to himself as he gazed at the spell above.</p>
-<p>The ~Freya’s Benevolence~ spell was yet another one of the many spells that Aurelius had created in his past life as the Goddess of Divine Light’s right-hand man. It was—just like ~Mandala~—a spell that would always surpass whatever level Magical Might Aurelius was and was far from its true potential and glory.</p>
+<p>The Freya’s Benevolence spell was yet another one of the many spells that Aurelius had created in his past life as the Goddess of Divine Light’s right-hand man. It was—just like Mandala—a spell that would always surpass whatever level Magical Might Aurelius was and was far from its true potential and glory.</p>
 <p>The figure of the woman burst and light rays rained down, enveloping the Bullcroc in an outline of light before it was lifted off the ground.</p>
 <p>One foot...</p>
 <p>Two feet...</p>

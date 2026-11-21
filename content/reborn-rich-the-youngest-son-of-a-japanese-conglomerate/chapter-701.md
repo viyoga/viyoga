@@ -13,14 +13,14 @@ chapter = 701
 <p>She's being too proactive for a student, isn't she? If she leads the story this way, I have no choice but to follow, so I was like, 'Is that so?' and gave Ha Ju-yoon a bird kiss.</p>
 <p>*Tch*.</p>
 <p>"Like this kiss?"</p>
-<p>"Noooo.... A more explicit and sticky adult kiss, Teacher~"</p>
+<p>"Noooo.... A more explicit and sticky adult kiss, Teacher"</p>
 <p>"The teacher doesn't know what kind of kiss Ju-yoon student is talking about?"</p>
 <p>When I pretended not to know Ha Ju-yoon's explicit request, Ha Ju-yoon matched her lips to mine, put her tongue in my mouth, and started kissing explicitly on her own.</p>
 <p>"Like thiiis, *tchuuup*, *tchup*, like thiiiis.... *Tchoooch tchuup*...! Like this kiss♥"</p>
 <p>Ha Ju-yoon was trying to teach me instead, making kisses that made anyone who heard them feel explicit. Even though she's cosplaying as a student, it seems like her lewd instincts inevitably come out when she's frustrated because she's a former married woman.</p>
 <p>I kissed and caressed Ha Ju-yoon's body, and it was like her whole body was an erogenous zone, so wherever I touched, the reaction was good.</p>
 <p>Every time I touched her, she flinched or made a nasal sound like *heuung* while kissing, so it was fun to touch her.</p>
-<p>"Haa.... Teacher~! Now, *heu-eut*...! Let's move on to the next step♥"</p>
+<p>"Haa.... Teacher! Now, *heu-eut*...! Let's move on to the next step♥"</p>
 <p>The difference between Ha Ju-yoon and Han Yu-gyeong is that unlike Han Yu-gyeong, who throws away the role-playing situation with just a little stimulation, she doesn't forget her role and keeps going. Even in this, her attitude as a top actress stood out.</p>
 <p>"The next step must be here, right?"</p>
 <p>"Haaang, yees...! There, *heu-eut*! That's the neeeext...! Step♥"</p>
@@ -60,7 +60,7 @@ chapter = 701
 <p>"What are you doing?"</p>
 <p>While Ha Ju-yoon was looking up at me and continuing to do titjob, a voice came from the entrance of the room. When I turned my head, Nae Fitzgerald, who had bought a lot of things from the convenience store, was looking at us with a displeased expression.</p>
 <p>Could it be that she's angry because she came because of the contract, but I didn't care about the contract and was having sex?</p>
-<p>"Ju-yoon~! How could you do this? You were going to do it with me when Ryuta came, right?"</p>
+<p>"Ju-yoon! How could you do this? You were going to do it with me when Ryuta came, right?"</p>
 <p>That wasn't it. Looking at Nae Fitzgerald's eyes, which were already burning with lust, it seemed like she wasn't even thinking about the contract in her head.</p>
 <p>"Nae didn't come for so long, so I was just enjoying some foreplay."</p>
 <p>I had already cummed a lot, so it was a bit much to call it foreplay, but Ha Ju-yoon used her acting skills to say it with a really wronged expression.</p>

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 695: Baby, Did You Miss Me~ [18+]"
+title = "Chapter 695: Baby, Did You Miss Me [18+]"
 weight = 695
 [extra]
 chapter = 695
@@ -19,7 +19,7 @@ chapter = 695
 
 <p>At last, the unspoken barrier between mother and daughter was torn away. Even without any direct interaction, one could sense the sheer absurdity of this process, and the thrill it brought was incomparably and exceptionally intense.</p>
 
-<p>&quot;Baby, this feels so good~&quot;</p>
+<p>&quot;Baby, this feels so good&quot;</p>
 
 <p>Her body convulsed during the climax, and she stood weakly. In truth, if someone hadn’t been holding her up, she would have been completely unable to remain standing.</p>
 
@@ -29,11 +29,11 @@ chapter = 695
 
 <p>&quot;Godfather, I, I want to go to the bathroom to pee.&quot;</p>
 
-<p>&quot;Do it right here then~&quot;</p>
+<p>&quot;Do it right here then&quot;</p>
 
-<p>&quot;I can’t pee~&quot;</p>
+<p>&quot;I can’t pee&quot;</p>
 
-<p>&quot;How about I accompany you to the next room, and Godfather will hold you while you pee~&quot;</p>
+<p>&quot;How about I accompany you to the next room, and Godfather will hold you while you pee&quot;</p>
 
 <p>That utterly lewd dialogue was practically challenging human morality, reaching the level of sheer madness. It was a collision between shy, coy reluctance and unbridled shamelessness. The young little girl was completely overcome with shyness and had no intention of seduction, only a mixture of yielding and resistance.</p>
 
@@ -47,13 +47,13 @@ chapter = 695
 
 <p>The shaft of his cock, still coated with the mother’s post-orgasm love juices, had its glans pressed directly against Avery’s lips. This scene, to say nothing of her reaction, made even Blanche so furious and ashamed that she impulsively slapped Luis.</p>
 
-<p>But Avery only hesitated for a brief moment. &quot;I don’t wanna lick it~ My mouth is already sore from licking, and you still haven’t cum. Mommy, why don’t you take care of it yourself, okay~&quot;</p>
+<p>But Avery only hesitated for a brief moment. &quot;I don’t wanna lick it My mouth is already sore from licking, and you still haven’t cum. Mommy, why don’t you take care of it yourself, okay&quot;</p>
 
 <p>She really had drunk quite a bit; in the past, she would never have dared to speak such words.</p>
 
-<p>Luis laughed heartily. Blanche felt somewhat humiliated, but when she looked at her daughter Avery, she still gently took it into her mouth and began bobbing her head up and down on it~</p>
+<p>Luis laughed heartily. Blanche felt somewhat humiliated, but when she looked at her daughter Avery, she still gently took it into her mouth and began bobbing her head up and down on it</p>
 
-<p>&quot;Ugh... I have no strength left~&quot;</p>
+<p>&quot;Ugh... I have no strength left&quot;</p>
 
 <p>It didn’t take long before Avery spoke with a trembling voice, her entire body going stiff as she was clearly peeing.</p>
 
@@ -77,13 +77,13 @@ chapter = 695
 
 <p>With a murmured agreement, she left. Luis figured that having made a good start was the most important thing. Giving them ample time to mentally prepare themselves would make their training and conditioning easier later on.</p>
 
-<p>&quot;Godfather... I don’t want to be here~&quot;</p>
+<p>&quot;Godfather... I don’t want to be here&quot;</p>
 
 <p>Outside, people were talking from time to time, and there were people coming and going in the neighboring stalls. Even with the music as cover, this place just wasn’t suitable.</p>
 
 <p>What Blanche, as a mature woman, found exciting was probably more nerve-wracking and frightening than thrilling for this little girl who had just recently lost her virginity.</p>
 
-<p>&quot;Alright, Godfather will wipe you clean, good girl~&quot;</p>
+<p>&quot;Alright, Godfather will wipe you clean, good girl&quot;</p>
 
 <p>The little girl stood up shyly, taking the initiative to grab her skirt and lift it up slightly, parting her tender, pink legs just a little.</p>
 
@@ -91,9 +91,9 @@ chapter = 695
 
 <p>&quot;Baby, did you miss Godfather?&quot;</p>
 
-<p>&quot;Yes~&quot;</p>
+<p>&quot;Yes&quot;</p>
 
-<p>&quot;Such a good girl~&quot;</p>
+<p>&quot;Such a good girl&quot;</p>
 
 <p>After being affectionate with her for a while, Luis finally led her back to the small bar counter.</p>
 
@@ -115,9 +115,9 @@ chapter = 695
 
 <p>The well-behaved Avery brought over bottled water to help them rinse their mouths and wash their faces. After vomiting, they felt a bit more clear-headed. The sister-in-law panted for a moment before blurting out, &quot;Brother-in-law, I’m hungry.&quot;</p>
 
-<p>&quot;Me too~&quot;</p>
+<p>&quot;Me too&quot;</p>
 
-<p>&quot;Ah~&quot;</p>
+<p>&quot;Ah&quot;</p>
 
 <p>They hadn’t noticed it while inside the bar, but in the rush to leave just now, they also hadn’t realized that outside, thunder was already booming loudly and dark clouds had filled the sky.</p>
 

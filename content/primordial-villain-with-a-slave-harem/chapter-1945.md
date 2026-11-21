@@ -10,7 +10,7 @@ chapter = 1945
 <p>"What are we doing with these?"</p>
 <p>"Surfing. I’ll make you a wave, and you see how long you can stay on top of it."</p>
 <p>"Oh, that sounds fun!" Serika snatched up a board and hugged it against her chest. "Make mine a big one, Quin!"</p>
-<p>"On our feet?" Vex asked, pushing herself up on her board. She studied the wood beneath her, then the waves farther out. "I have to try this~"</p>
+<p>"On our feet?" Vex asked, pushing herself up on her board. She studied the wood beneath her, then the waves farther out. "I have to try this"</p>
 <p>"Let me guess." Ayame’s eyes narrowed, though the edge of her lips refused to fall into line. The delicate samurai was grinning hopelessly as she said, "You’ll come with us and show off."</p>
 <p>"Show off?" Quinlan chuckled. "I wouldn’t dare. I just want to enjoy the waves with my beloved wives."</p>
 <p>"Hmph." She reached for his arm to pull him closer. "Then you’d better teach me."</p>
@@ -64,14 +64,14 @@ chapter = 1945
 <p>On Quinlan’s other side, Ayame had already found her balance.</p>
 <p>The samurai gathered her skirt clear of her feet and leaned into her first turn, cutting across the face of the swell with an eager grin.</p>
 <p>She glanced back at him as she passed, plainly waiting to see whether he had noticed.</p>
-<p>"As expected of my acrobat of a samurai~" Quinlan mused, making Ayame pause, for his face held a lot more emotion for her person than she had expected.</p>
+<p>"As expected of my acrobat of a samurai" Quinlan mused, making Ayame pause, for his face held a lot more emotion for her person than she had expected.</p>
 <p>"Shall I make it steeper?" he offered.</p>
 <p>"...Sure! I want to see how far I can lean!"</p>
 <p>Quinlan raised the water ahead of her, and Ayame drove her board up its slope. White silk fluttered around her legs as she turned at the top, coming back down with a triumphant laugh.</p>
 <p>"Did you see that?!"</p>
 <p>"Rosie saw!!!"</p>
 <p>"I certainly did," Quinlan agreed, admiring his beautiful bride. "Again?"</p>
-<p>"Of course again~"</p>
+<p>"Of course again"</p>
 <p>Serika was already coming up behind her. His former teacher had stood on her first attempt, adjusted her feet, and begun asking what else the board could do.</p>
 <p>Now she planted one hand on its nose and swung her legs over herself, her red ponytail flying through the spray.</p>
 <p>"Why is the fire chick so good in water? This should be my domain," Ayame observed as Serika landed facing backward.</p>

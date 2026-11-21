@@ -107,7 +107,7 @@ chapter = 870
 
 <p>The flesh reacted with a tremor, wobbling slowly beneath his palm—dense and soft as warm butter—the impact spreading in small vibrations that rippled all the way across the plump cheek and even coaxed its twin into a subtle sway.</p>
 
-<p>"Mghn~~ has my husband already woken up wanting more? Akane-sama does too... but Akane-sama wants breakfast first!" she declared, and without hesitation, she slid down his body toward his already semi-erect cock.</p>
+<p>"Mghn has my husband already woken up wanting more? Akane-sama does too... but Akane-sama wants breakfast first!" she declared, and without hesitation, she slid down his body toward his already semi-erect cock.</p>
 
 <p>Her heavy breasts dragged along his skin as she went, the soft, weighty globes squishing against every ridge of muscle they crossed, leaving a warm trail in their wake.</p>
 

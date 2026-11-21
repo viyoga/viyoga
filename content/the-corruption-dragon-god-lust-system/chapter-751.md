@@ -91,7 +91,7 @@ chapter = 751
 
 <p>The pair of soft, creamy melons squashed against the young dragon’s face like two heavy pillows of warm, perfumed flesh, their plush softness molding to every curve of his cheeks, smothering him in a sweet, silky warmth.</p>
 
-<p>"Oh... my heart, you make me so proud! Fufufu~" Rouxi let out a sensual giggle, and the vibration of her laughter sent a slow tremor rolling through her chest.</p>
+<p>"Oh... my heart, you make me so proud! Fufufu" Rouxi let out a sensual giggle, and the vibration of her laughter sent a slow tremor rolling through her chest.</p>
 
 <p>With his face completely buried in the deep cleavage of Rouxi’s pale, creamy skin, Qingyi couldn’t muster a single word of response.</p>
 

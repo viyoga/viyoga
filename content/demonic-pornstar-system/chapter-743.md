@@ -77,7 +77,7 @@ chapter = 743
 <p>"I’m fine. I’ll just-"</p>
 <p>"You’ve been working for a long time and it’s the middle of the night right now..."</p>
 <p>"I’m not tired and I enjoy standing! It’s-"</p>
-<p>"Fine, have it your way~"</p>
+<p>"Fine, have it your way"</p>
 <p>Alexandra’s body lifted three inches off the carpet. Her legs dangled. Her hands flew to smooth down her skirt, and her face went from composed to deeply alarmed in the span of a heartbeat.</p>
 <p>"Nyx! This is-" She floated over the back of the couch. "This constitutes the use of awakened abilities against a non-awakened civilian! Under Association Code Section-"</p>
 <p>Nyx caught her around the waist and settled her into her lap. Alexandra’s back pressed against Nyx’s chest, and the spatial hold dissolved, leaving her sitting in the pink-haired woman’s arms with the legal argument still dying on her lips.</p>

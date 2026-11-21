@@ -5,7 +5,7 @@ weight = 1067
 chapter = 1067
 +++
 
-<p>"Ryuta~! Aunt Nae is here~?!"</p>
+<p>"Ryuta! Aunt Nae is here?!"</p>
 <p>At the sound of someone calling me, I opened my eyes. Perhaps because I was tired from treating (sexing) Fujigasaki Rinka yesterday, I seemed to have fallen asleep while lying down and playing with my phone. Aunt Nae entered the room and spoke to me, waking me up, I rubbed my eyes and sat up.</p>
 <p>"You're here?" "Yeah. I was a little late because I was doing 'work' with Arisu, you see? Did you fall asleep waiting?"</p>
 <p>Given the emphasis on 'work', it seemed she had come from doing Phantom Thief Francois-related work. Perhaps she was organizing the items obtained from this Fragment of Omniscience scramble, or reviewing this incident, checking for mistakes or successes.</p>
@@ -13,7 +13,7 @@ chapter = 1067
 <p>Since she says she doesn't want to show it, I'm curious what kind of work clothes they are. For now, I'll have to ask her to show me later.</p>
 <p>"Have you had dinner?"</p>
 <p>Glancing at the time, it was a slightly late 7:30 PM for dinner, so I asked Nae Fitzgerald. She probably hadn't eaten dinner, having just come from work.</p>
-<p>"No, we should eat together~! Seeing that Ryuta was also sleeping, you haven't eaten dinner, have you?" "Yes, I was waiting to eat with Aunt-nim~!" "Oh my, you wanted to eat Aunt-nim?"</p>
+<p>"No, we should eat together! Seeing that Ryuta was also sleeping, you haven't eaten dinner, have you?" "Yes, I was waiting to eat with Aunt-nim!" "Oh my, you wanted to eat Aunt-nim?"</p>
 <p>Nae Fitzgerald made a mischievous expression and then changed 'with Aunt-nim' to 'Aunt-nim' and asked. I grinned and nodded my Head.</p>
 <p>"Of course. You're delicious, after all." "Oh my♥ Let's go eat dinner quickly. Since Ryuta was coming today, I asked the chef to show off their skill a bit." "Yes, shall we go?"</p>
 <p>At my words, 'Shall we go?', Nae Fitzgerald linked her Arm in arm with mine.</p>
@@ -37,7 +37,7 @@ chapter = 1067
 <p>Peu-shoot! Peu-shoot!</p>
 <p>"Keo...heup!"</p>
 <p>Álvaro Ramos put bullet holes in the Bodies of two Security Guards he encountered in the Passage and quickly approached to cover their mouths. Even such small noises had to be controlled now. Despite Álvaro Ramos's efforts, noise began to be heard from outside.</p>
-<p>Wiiiiiing~!</p>
+<p>Wiiiiiing!</p>
 <p>Caught on CCTV somewhere, perhaps, a siren signaling an emergency began to wail. This was unavoidable.</p>
 <p>As the Mithril Warehouse was a major facility, CCTVs were installed everywhere, so no matter how careful they were, they were bound to be caught eventually.</p>
 <p>Tang! Tang! Tang!</p>
@@ -74,4 +74,4 @@ chapter = 1067
 <p>"We are experts, so preparation will be finished in 10 minutes."</p>
 <p>10 minutes? That'll be cutting it close. Álvaro Ramos muttered and issued a return Command to all Combatants. Now it was time for the transport team to act, so there was nothing for the Combatants to do.</p>
 <p>"This side was a success, but I wonder if Liege/Master is doing well." Álvaro Ramos watched the transport team quickly move the Mithril, and wondered about the situation on Taira Gensuke's side, who was in charge of the Attack group on Taira Ryuta's mansion. Because the Opponent was unexpectedly stronger than typical Security Guards, he thought there might be an unforeseen Threat on Taira Gensuke's side as well. Although he worried, Taira Gensuke's skill was extraordinary, so he believed he would overcome any difficulty.</p>
-<p>Gojoy-nim requested Han Yu-gyeong Chapter 43 1. Smiling at the protagonist's Words, 2. Being introduced to a friend~! 1. 2.</p>
+<p>Gojoy-nim requested Han Yu-gyeong Chapter 43 1. Smiling at the protagonist's Words, 2. Being introduced to a friend! 1. 2.</p>

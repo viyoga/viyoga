@@ -44,7 +44,7 @@ chapter = 869
 <p>As I walked, lost in various Thoughts, I soon arrived at St. Francis Girls' Academy's main gate. Having commuted this Route for the past few months, it had become second nature to my Body.</p>
 <p>Since it wasn't yet Time for Students to arrive, I passed through the quiet main gate, greeting the Security Guard as I entered.</p>
 <p>"You're working hard."</p>
-<p>"Just one more day of hardship, Yamashiro seonsaengnim~!"</p>
+<p>"Just one more day of hardship, Yamashiro seonsaengnim!"</p>
 <p>Because they were Security Guards whom I had slipped some Money each month to ask for Convenience, their Expressions towards me were always friendly. Of course, a slight regret that they wouldn't receive anything from next month remained in their Expressions, but that couldn't be helped. At that Time, I wouldn't even be a Teacher at St. Francis Girls' Academy, so there would be no Reason to slip them Money.</p>
 <p>Passing the main gate, I exchanged greetings with the Students who had arrived early at School and headed towards the special class building. Thinking that today was effectively the Last day, I felt a little sentimental.</p>
 <p>I had only been appointed since September, barely six months, yet I felt this Mood.... Was it because I had aged a year that female Hormones were coming out? No, that wasn't it. It must be because so many things had happened at St. Francis Girls' Academy.</p>
@@ -55,11 +55,11 @@ chapter = 869
 <p>Kijimoto Jurie didn't seem to have Gone to Work yet. In fact, no one would know if the Infirmary Teacher didn't come to the Graduation ceremony, so she didn't have to, but Kijimoto Jurie was very close with Naruse Shiyo, who had a weak Body, and although she didn't have an official title, she played a significant Role as the special class assistant Class Teacher, so she was close with the Students and would therefore participate in today's Graduation ceremony.</p>
 <p>I sat in the education preparation room for a moment, doing the remaining Paperwork, and soon heard the sounds of Students arriving at School. I glanced at the Clock on the desk, roughly finished the Paperwork, picked up the tablet that served as the Attendance Book, and left the education preparation room.</p>
 <p>Outside, a Filming team was waiting, perhaps to capture the Last Morning Jorye. Among the Filming team, I saw Taira Kokoro, a Beautiful Woman who looked strict. I gave a slight eye-greeting, passed the Camera, and opened the special class door.</p>
-<p>Requested by Gojoy-nim: Muko Neika's casual attire and underwear~!</p>
-<p>Casual Attire~!</p>
+<p>Requested by Gojoy-nim: Muko Neika's casual attire and underwear!</p>
+<p>Casual Attire!</p>
 <p>A cyber Suit that could be called casual attire because she does a lot of Missions haha</p>
 <p>Her real casual attire is a white T-shirt + Jeans + pistol holster haha</p>
-<p>Underwear~!</p>
+<p>Underwear!</p>
 <p>Muko Neika can't give up her holster even in her underwear haha</p>
 <p>Requested by TheDreaming-nim: Han Yu-gyeong 1. Pressing her breast against the Glass inside a Phone Call booth. 2. Holding her breast and a phone Camera Situation!</p>
 <p>1.</p>

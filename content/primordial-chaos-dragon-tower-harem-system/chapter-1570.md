@@ -31,7 +31,7 @@ chapter = 1570
 <p>I killed them all, including their guards, and hung their bodies—both him and his wives’ and all three daughters’ bodies—on the side of the road.</p>
 <p>Next, I will visit my uncle’s second wife and her children and make sure they cease to exist. Afterwards, his restaurants will know my wrath, which I will exert in full, making sure even the cleaners feel my pain.</p>
 <p>In this endeavour, I will not spare anyone linked to that bastard.</p>
-<p>~10 days later~</p>
+<p>10 days later</p>
 <p>The entire city is crying blood, and I know why, since I was the cause. Already, I have killed the bastard’s wives and their children, leaving only him and three of his sons. I have also killed his in-laws and their guards.</p>
 <p>They dared to take a planet that once belonged to my father as a gift, knowing it had been obtained through betrayal and bloodshed.</p>
 <p>None were spared, not even the next upcoming generation. They can only blame themselves for having that bastard’s blood running through them.</p>

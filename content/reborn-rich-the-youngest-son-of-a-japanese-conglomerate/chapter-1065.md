@@ -49,7 +49,7 @@ chapter = 1065
 <p>"That's even better. From your Explanation, Teacher, this wasn't originally made to enhance superpowers, but was scrapped after trying to create a System to replace VR Dive, so I don't think OmniCom will be picky about it either."</p>
 <p>Naruse Shiyo nodded as if what I said made sense.</p>
 <p>"Then connect to TG Tech in Korea and tell them to buy the OmniCom researchers and Rights."</p>
-<p>"Yes~! I'll contact them right after the Meeting."</p>
+<p>"Yes! I'll contact them right after the Meeting."</p>
 <p>Now that the Mental Amplifier Story is over, I should talk about Obsidian Pharmaceuticals again.</p>
 <p>"Has there been any Contact from Japan about which patents of Obsidian Pharmaceuticals they want?"</p>
 <p>"Yes, there's a List here."</p>
@@ -78,9 +78,9 @@ chapter = 1065
 <p>After the gift-giving Event was over, we were continuing the Meeting when the Phone rang. Looking at who it was, it was Sabu Fujigasaki Rinka. I had told them everything important, so I ended the Meeting and answered Sabu's Phone.</p>
 <p>"Yes, Sabu."</p>
 <p>-Sajo woke up...! He says he wants to see my Disciple, so will you come to the Hospital?</p>
-<p>Gojoy-nim requested Rinka Sabu, 1. Lying down exhausted after sex, 2. Putting on underwear~!</p>
+<p>Gojoy-nim requested Rinka Sabu, 1. Lying down exhausted after sex, 2. Putting on underwear!</p>
 <p>1.</p>
 <p>2.</p>
-<p>MidNightSKY-nim requested Rinka Sabu, Leeds Belly Dancer~!</p>
-<p>Rinka Sabu~!</p>
-<p>Leeds~!</p>
+<p>MidNightSKY-nim requested Rinka Sabu, Leeds Belly Dancer!</p>
+<p>Rinka Sabu!</p>
+<p>Leeds!</p>

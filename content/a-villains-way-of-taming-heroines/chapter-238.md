@@ -28,7 +28,7 @@ chapter = 238
 <p>The hulking man behind him grumbled.</p>
 <p>"Oh right, it's Tyrus," Flamelle tapped his forehead, "It's a pity that only Tyrus is here, Longinus hasn't come back..."</p>
 <p>"It's the Falcon, boss," Lawrence interjected.</p>
-<p>"Eh, Falcon? Oh~ Falcon! Falcon is the head of the wind."</p>
+<p>"Eh, Falcon? Oh Falcon! Falcon is the head of the wind."</p>
 <p>From beginning to end, Flamelle, who not only behaved in a refined and elegant manner, but also had a smooth and logical train of thought, without any signs of madness, shook his head, "Ah, I can't remember clearly anymore, never mind, as long as you guys remember."</p>
 <p>He smiled at Seraphina, "Little Seraphina, although Ans says we have plenty of time, I, like Ephesande, don't have much time left."</p>
 <p>"Although theoretically speaking, as long as I deal with Ephesande, there is basically no possibility of any accidents... but no matter how much I do, it's not as practical as you becoming stronger."</p>

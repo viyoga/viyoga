@@ -45,7 +45,7 @@ chapter = 255
 <p>The pink nipples, already damp and glistening from the leaking milk, stood fully exposed, stiffening even further in the open air.</p>
 <p>Ethan cupped both breasts in his hands, pressing them together.</p>
 <p>The soft, pliant flesh molded between his fingers, overflowing through every crease while fresh beads of milk welled up and trickled from the sensitive tips.</p>
-<p>"Hmm~ be gentle, I’m sensitive..." Alice gasped, letting out a sweet, soft moan.</p>
+<p>"Hmm be gentle, I’m sensitive..." Alice gasped, letting out a sweet, soft moan.</p>
 <p>Ethan just nodded, leaning over her. His tongue slid slowly and warmly over the nipple leaking milk, capturing a creamy, sweet drop that trickled down her rosy skin.</p>
 <p>Feeling the sweet taste spread across his taste buds, he sighed. "Ah... our future child is going to be lucky, you know?"</p>
 <p>Those words drew a sincere giggle from Alice, and her eyes sparkled with pure joy.</p>

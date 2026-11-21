@@ -5,12 +5,12 @@ weight = 1096
 chapter = 1096
 +++
 
-<p>"Investor-nim~! Don't forget our promise to go to the auction together~!"</p>
+<p>"Investor-nim! Don't forget our promise to go to the auction together!"</p>
 <p>"I haven't forgotten. Let's go together next time."</p>
 <p>Sawayanagi Seari waved her hand and said. The rest of the Seryu Military Company people also waved their hands at me and got into the vehicle, and Kurayamada Kirie also left words saying, "see you next time," and got on her bike.</p>
 <p>Because the personnel affiliated with Seryu Military Company in Tokyo and Kurayamada Kirie, affiliated with the Chungrang Dae in Kofu City, were going in different directions, they decided to part ways at the airport. The rest of the Kids living in my mansion rode in the car together towards Neo Tokyo.</p>
 <p>"Ryutaa...!"</p>
-<p>"Older Brother~! You know, this time I, Shinkaiyatsude...."</p>
+<p>"Older Brother! You know, this time I, Shinkaiyatsude...."</p>
 <p>On the way, Alik and Tsukiyo took seats on either side of me and were expressing their joy at seeing me after a long time, each in their own way.</p>
 <p>Alik was clinging to me, rubbing her soft cheek against me while saying, "Ryutaa," and Tsukiyo was chattering away, telling me even the smallest things that had happened while I was gone, as if she had so much to say.</p>
 <p>Receiving so much affection from the two, I entered the mansion in Neo Tokyo and immediately gathered the people to hold a Meeting.</p>
@@ -53,15 +53,15 @@ chapter = 1096
 <p>Ah, so this was the Report. Yes, this Report also needs to be done. Although Taira Gensuke, that Guy, was splendidly repelled, there wasn't absolutely no harm because a battle had occurred. Since it was already known that we had been attacked by Taira Gensuke, I would have to make Taira Bussan compensate for this Money. Naturally, the Perpetrator should compensate for the damage Amount, so even if it wasn't a large sum of Money, we didn't need to bear that damage Amount.</p>
 <p>"Charge Taira Bussan ten times that damage Amount.... No, about fifty times."</p>
 <p>Even ten times 1.2 million yen is only 12 million yen, so we should get fifty times. If our side claimed such harm, Taira Bussan had no Method to deal with the current The Situation. If they argued about this for no reason, I would go to Taira Danjo after Taira Jiro and say something, so they would know it's more profitable to just give what's asked.</p>
-<p>"Hmm.... I'll try charging one hundred times the damage Amount~!"</p>
+<p>"Hmm.... I'll try charging one hundred times the damage Amount!"</p>
 <p>Linling is even worse than me. Not fifty times, but a hundred times.... Still, about 120 million yen is like pocket change for Taira Bussan, so it's doable.</p>
 <p>"The next Report will be about profits, not losses!"</p>
 <p>Profits? Did we gain something? Of course, this Incident made the relationship between Taira Jiro and Taira Ichiro more hostile, but other than that, there doesn't seem to be anything specific....</p>
-<p>Linling B-cut~!</p>
+<p>Linling B-cut!</p>
 <p>After deliberating with the second Illustration, I decided on the Illustration in the main text as the Illustration hehehe.</p>
-<p>Requested by Gojoy-nim: Chapter 55 Yukiko 1. Happy Expression watching Ryuta eat well 2. Chapter 55 Illustration Remake~!</p>
+<p>Requested by Gojoy-nim: Chapter 55 Yukiko 1. Happy Expression watching Ryuta eat well 2. Chapter 55 Illustration Remake!</p>
 <p>1.</p>
 <p>2.</p>
-<p>Requested by Geomeunkkaemuk-nim: Alik in heart-patterned pajamas~!</p>
+<p>Requested by Geomeunkkaemuk-nim: Alik in heart-patterned pajamas!</p>
 <p>Ppuu!</p>
 <p>Alik came with various types of pillows, asking to Sleep together hehe.</p>

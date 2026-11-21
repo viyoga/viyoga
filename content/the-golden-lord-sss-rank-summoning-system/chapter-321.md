@@ -66,7 +66,7 @@ chapter = 321
 <p>He had met the woman on other occasions, but at that time he had just taken on the body of Amelia’s original son, and his residual memories were still not very clear.</p>
 <p>"Hello, Ethan." Ysara approached him, resting her hands on his shoulders and rising onto her tiptoes to plant a kiss on his cheek as well, leaving a golden mark among the red ones already left by Amelia.</p>
 <p>Her breasts pressed softly against his chest, warm and pillowy through the thin fabric of her dress.</p>
-<p>"You don’t even remember me anymore, do you? You know, I had to start producing milk again for you... you were so in love with my milk that Amelia had a really hard taking you to the Darkwall family, fufufu~ Fortunately, you loved her milk even more."</p>
+<p>"You don’t even remember me anymore, do you? You know, I had to start producing milk again for you... you were so in love with my milk that Amelia had a really hard taking you to the Darkwall family, fufufu Fortunately, you loved her milk even more."</p>
 <p>[Ysara’s art is already on the characters tab—check it out and vote for your favorite girl!</p>
 <p>There’s also a bunch of NSFW art of all the girls on my Discord!</p>
 <p>The art available here is heavily censored! You can access the uncensored, uncropped version on my Discord: .gg/ZMhMj7Daw</p>

@@ -20,7 +20,7 @@ chapter = 768
 <p>"So, let me guess I said, glancing back at her. “You spend a few hours upstairs sipping tea and playing the part of a rich lady, but this… this is where you really live.”</p>
 <p>Her lips curled into a predatory smile. “What can I say? A girl needs her privacy.”</p>
 <p>Her fingers traced along the edge of one of the ritual tables, her nails dragging across the surface, leaving little scratch marks.</p>
-<p>"I don’t bring just anyone down here, you know… In fact, you’re the first one who’ll get to leave. Well, as long as you behave properly~” she chuckled ominously, but then her voice suddenly turned lower. Darker. “This room is where I dream up all the nasty things I want to do… and all the fun ways I want to make my enemies scream.”</p>
+<p>"I don’t bring just anyone down here, you know… In fact, you’re the first one who’ll get to leave. Well, as long as you behave properly” she chuckled ominously, but then her voice suddenly turned lower. Darker. “This room is where I dream up all the nasty things I want to do… and all the fun ways I want to make my enemies scream.”</p>
 <p>She turned, her eyes glinting with mischief—and something else. Lust. Raw, unfiltered.</p>
 <p>"And now you’re here… alone. With me.”</p>
 <p>The temperature dropped another five degrees.</p>
@@ -31,7 +31,7 @@ chapter = 768
 <p>"You know I can give you a shower, right?”</p>
 <p>At my statement, a sultry expression replaced her wry one. She shook her head. “Nope. I need to prepare in more ways than just cleaning my body. You’ve gotta be patient, Quinnie.”</p>
 <p>"Now that’s a task I’m not very good at.”</p>
-<p>She chuckled, her sultry grin not leaving her lips as she hummed in a sensual voice, “Patience is bitter, but its fruit is sweet~”</p>
+<p>She chuckled, her sultry grin not leaving her lips as she hummed in a sensual voice, “Patience is bitter, but its fruit is sweet”</p>
 <p>My little bro twitched at her words. A traitorous, eager pulse shot straight down as if her sultry hum had flipped a switch in my monkey brain.</p>
 <p>The neurons have been activated.</p>
 <p>Gods, I was already too far gone. The anticipation was like torture. Which was rather fitting considering the surroundings and who I was dealing with.</p>

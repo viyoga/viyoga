@@ -115,4 +115,4 @@ Lith was sitting in the one of the courtyards of the Elven castle and was going 
 
 It had been just a few minutes since he sat here and tried analyzing them when…
 
-"Little cousin~"
+"Little cousin"

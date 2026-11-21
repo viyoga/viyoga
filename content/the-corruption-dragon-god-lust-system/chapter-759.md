@@ -31,7 +31,7 @@ chapter = 759
 
 <p>The quaking dissolved into a slow, obscene wobble that only stopped reverberating through her body when Rouxi grabbed her own butt with both hands.</p>
 
-<p>"Mghnn~~ you unfilial son!" she complained, her voice coming out much naughtier than she’d originally intended. "Look at the mess you made with mommy... I’m all dirty now..."</p>
+<p>"Mghnn you unfilial son!" she complained, her voice coming out much naughtier than she’d originally intended. "Look at the mess you made with mommy... I’m all dirty now..."</p>
 
 <p>She pulled, and her ass cheeks parted, connected to one another by thick strands of cum that broke little by little as they stretched, dripping slowly between her thighs.</p>
 

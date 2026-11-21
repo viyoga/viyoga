@@ -35,7 +35,7 @@ chapter = 146
 <p>"And behind me, you can clearly see the next generation of superhumans who will be taking their Superhuman Assessment test today! It is yet to be seen whether or not there will be some drama to unfold, but from what we can see so far, it appears that our lives are in good hands."</p>
 <p>"The superhumans have finally arrived on the scene, chat! Can you believe these kids are going to be entering Gates soon!? They looked like lambs going to the slaughter!"</p>
 <p>A beautiful girl wearing pink accessories and large cat ears spoke up from the side while bouncing excitedly and flashing her assets toward her phone camera.</p>
-<p>"Hey, hey, star nation! It’s your star girl here coming live to you from the SMD building nya~! The superhumans are here and they’re all so beautiful and handsome! Oh my goodness, look at that boy, if I was still sixteen, I would have gobbled him up nya~! So handsome~!"</p>
+<p>"Hey, hey, star nation! It’s your star girl here coming live to you from the SMD building nya! The superhumans are here and they’re all so beautiful and handsome! Oh my goodness, look at that boy, if I was still sixteen, I would have gobbled him up nya! So handsome!"</p>
 <p>"Look over there, it’s Henry!"</p>
 <p>"Shit, it’s really him! They said he was the highest graduating student from his set in Core City!"</p>
 <p>"His Gift is amazing! He can control water like it’s a part of him!"</p>

@@ -171,13 +171,13 @@ Fiora helped Dennis prepare better and once they were done, they left for the Me
 
 On Ralph's side, in the lust Castle…
 
-"Ralph-chwaaan~~" A happy Avelyn popped up in Ralph's room unannounced and hugged him from behind as he was wearing his pants.
+"Ralph-chwaaan" A happy Avelyn popped up in Ralph's room unannounced and hugged him from behind as he was wearing his pants.
 
-She kissed his cheek and slithering her hands around his body, said seductively, "do you want to have a quickie before the long celebrations, honey? Mommy is all ready for it!~"
+She kissed his cheek and slithering her hands around his body, said seductively, "do you want to have a quickie before the long celebrations, honey? Mommy is all ready for it!"
 
 Ralph sighed and shook his head. "We're getting late, mother. And after the celebrations, there's gonna be quite some time."
 
-"Hehehe~, so you didn't deny my advances and just delayed it. Oh how my sweet Ralph had grown up." Avelyn giggled and kissed Ralph's cheek again.
+"Hehehe, so you didn't deny my advances and just delayed it. Oh how my sweet Ralph had grown up." Avelyn giggled and kissed Ralph's cheek again.
 
 Ralph didn't bother to comment on this as whatever shouldn't have happened, had already happened between him and his mother.
 

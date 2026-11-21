@@ -55,7 +55,7 @@ chapter = 1818
 <p>"I didn’t say anything."</p>
 <p>"You were going to." She was already being seated. "Elven styling is a matter of scholarly curiosity. I’ll be documenting the experience."</p>
 <p>"Enjoy yourself, Sera."</p>
-<p>"Hehe~"</p>
+<p>"Hehe"</p>
 <p>Quinlan settled into a chair by the window with a view of the whole operation, and Kaelira sat beside him, straight-backed and quiet, her hands on her knees.</p>
 <p>"You didn’t want to join?" He nodded toward the mirrors.</p>
 <p>"I asked Anna and Beatrice last night." She touched her hair. "The twins handled it. Does it look... is it bad?"</p>

@@ -90,7 +90,7 @@ chapter = 226
 <p>"He is your uncle. He was also one of my suitors and might have become my mate. So yeah, if you want we can hide our relationship to avoid problems."</p>
 <p>Sol did not even bother giving it the slightest thought, "No way. Why should I hide?"</p>
 <p>It wasn't as if any of them were cheating or whatever. If his uncle was jealous then it was his problem to deal with.</p>
-<p>"Fufufu~! Good answer."</p>
+<p>"Fufufu! Good answer."</p>
 <p>Nent had nothing to reproach herself and she would have been saddened if Sol asked that they act like criminals.</p>
 <p>Her pupils seemingly took the shape of hearts while the amount of juice flowing down from her garden increased.</p>
 <p>"I guess it's time to increase your reward."</p>

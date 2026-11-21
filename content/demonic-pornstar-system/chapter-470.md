@@ -5,7 +5,7 @@ weight = 470
 chapter = 470
 +++
 
-<p>Kaiden grinned. "You really think they’d do that from seeing me hug my mother? No, you don’t. Stop running~"</p>
+<p>Kaiden grinned. "You really think they’d do that from seeing me hug my mother? No, you don’t. Stop running"</p>
 <p>He reached out to pull her back into the hug, only for her body to dissolve into a swirl of black smoke.</p>
 <p>The shadows rippled near Naira and Lira’s stretcher, and Vespera reformed there, back in her usual composed self. The transition from maternal awkwardness to regal poise was so smooth it looked entirely unnatural, as if turning into shadows allowed the woman to reset her heart.</p>
 <p>Dark tendrils of shadow curled beneath her fingertips, lifting the unconscious woman with gentle precision. "What about the girl?" she asked.</p>

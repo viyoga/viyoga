@@ -32,7 +32,7 @@ chapter = 398
 <p>###</p>
 <p>After finishing the Korean class, I chatted with the special class students as I took them to the special class classroom since all the special class students take the Korean class.</p>
 <p>"It's annoying to do it separately in the classroom, so let's do the closing remarks while we walk. Um, there's nothing to report today, and the midterm exams start in mid-October, so prepare well from now on. Surely our class isn't the worst in the third grade, right?"</p>
-<p>"Ah! It's already exam time even though it hasn't been long since the semester started?! I really hate school~!"</p>
+<p>"Ah! It's already exam time even though it hasn't been long since the semester started?! I really hate school!"</p>
 <p>Seizawa Shii grumbled. It didn't seem like something a student who was held back and is attending for another year should say. Or is it? Maybe she hates school because she's been going for too long?</p>
 <p>In fact, our class's grades weren't that bad. Seizawa Shii, who was grumbling, had average grades, and Oofuchi Erika, Konoe Akina, and Shido Tsubaki were in the top tier. The rest were average, and surprisingly, Minamoto Risa, the representative delinquent of the school, had top grades. Besides, the students who were held back are learning for the second time, so they might get better grades.</p>
 <p>"Ah! Sensei asked me to tell you again, but you have to come to the Date Experience Club's first task today, okay?"</p>
@@ -63,7 +63,7 @@ chapter = 398
 <p>"There's a class event, so Alik will be a little late going to the Cheongsim Hall."</p>
 <p>Actually, it's not a class event, but a club event, but since all the students in the class are participating, it can be called a class event.</p>
 <p>-I understand. If she's going to be very late, please contact me.</p>
-<p>"Okay~!"</p>
+<p>"Okay!"</p>
 <p>Shimokawabe Airen coolly gave her permission. Then that's one thing taken care of.... Next, I checked the fax. There's nothing in particular.... There's not much to do?</p>
 <p>I finished my daily tasks, such as attendance records, reports of absentees from Korean class, and checking the exam scope, in fifteen minutes and got up from my seat.</p>
 <p>The students now stock up on their favorite foods in the refrigerator in the club room, so they don't come to the education preparation room often to find something to eat. They occasionally come here to get ice cream when they're too lazy to go up to the second floor, but the frequency has decreased a lot.</p>
@@ -78,5 +78,5 @@ chapter = 398
 <p>Relieved after seeing Kijimoto Jurie's reply, I headed straight to the club room.</p>
 <p>----</p>
 <p>Ninja Girl Sakagami Rena SD!</p>
-<p>Kawai~!</p>
+<p>Kawai!</p>
 <p>Lightning Alik</p>

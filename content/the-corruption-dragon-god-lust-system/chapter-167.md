@@ -57,7 +57,7 @@ chapter = 167
 
 <p>A flurry of system notifications reached Qingyi, but he barely paid any attention to them.</p>
 
-<p>“Nghnn~~ So… savage! I like that!” Ruyan moaned, squirming in Qingyi’s arms as she moved her mouth, trying to bite him with her sharp fangs.</p>
+<p>“Nghnn So… savage! I like that!” Ruyan moaned, squirming in Qingyi’s arms as she moved her mouth, trying to bite him with her sharp fangs.</p>
 
 <p>“I can be a wild little kitten too if hubby wants me to.” She purred, her large breasts slipping out of her cleavage and revealing her light pink nipples, crowning her pale, silky skin.</p>
 
@@ -71,7 +71,7 @@ chapter = 167
 
 <p>Qingyi grabbed one of her buttocks with his left hand, massaging it hard, feeling his fingers sink into the warm, creamy skin before swinging his right.</p>
 
-<p>“Ghnn~~” A sharp, naughty moan escaped Ruyan’s lips as Qingyi’s palm hit her ass with a loud, wet smack.</p>
+<p>“Ghnn” A sharp, naughty moan escaped Ruyan’s lips as Qingyi’s palm hit her ass with a loud, wet smack.</p>
 
 <p>Shockwaves spread through the soft flesh that rippled like a rough sea before being controlled by a possessive grip.</p>
 
@@ -83,7 +83,7 @@ chapter = 167
 
 <p>She might be a crazy bitch, but a hot bitch with a fat, juicy ass was still a hot bitch with a fat, juicy ass.</p>
 
-<p>“Oghnn~~ Now I want the hubby even more… Does the hubby want to fuck my virgin little pussy?” She asked as she turned her face, revealing her obscene, lust-filled expression to Qingyi.</p>
+<p>“Oghnn Now I want the hubby even more… Does the hubby want to fuck my virgin little pussy?” She asked as she turned her face, revealing her obscene, lust-filled expression to Qingyi.</p>
 
 <p>“Ah…” The handsome young man sighed.</p>
 
@@ -113,6 +113,6 @@ chapter = 167
 
 <p>“Do you want it?” He put her on her knees, unbuttoning his pants and revealing his huge 23-centimeter cock, falling heavily between her breasts.</p>
 
-<p>“mghnn~~ so big~~” She gasped into Qingyi’s cock, her hot breath hitting the reddened glans as she gripped the huge, thick member with her small, smooth hands.</p>
+<p>“mghnn so big” She gasped into Qingyi’s cock, her hot breath hitting the reddened glans as she gripped the huge, thick member with her small, smooth hands.</p>
 
 <p>She raised her fiery eyes, meeting Qingyi’s. “Give it to me!”</p>

@@ -45,7 +45,7 @@ chapter = 238
 <p>"What do you say we go take a firsthand look at the site of the new settlement? I know you’ve already received many maps for urban planning, but it would be good to see everything with your own eyes before the final decision, don’t you think?"</p>
 <p>At his words, Elena nodded in silence, feeling Ethan’s warm hands glide over the smooth silk of her dress until they settled on the curve of her hips.</p>
 <p>To her surprise, before she could even react, he gripped her firmly and hoisted her up onto his lap in one fluid motion, the hem of her white dress fluttering against her thighs from the abrupt movement.</p>
-<p>"Ah!~"</p>
+<p>"Ah!"</p>
 <p>A sweet, high-pitched squeal slipped from Elena’s lips as one of Ethan’s hands settled firmly beneath her thighs to steady her.</p>
 <p>The other coiled around her back and glided forward along her side, the silk of her dress whispering softly beneath his palm, until it came to rest fully on one of her massive, chocolaty tits.</p>
 <p>His fingers sank eagerly into the plump flesh, the heavy, full weight of her breast spilling around his fingers as it molded into his palm and pressed snug against his chest.</p>

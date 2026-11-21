@@ -7,7 +7,7 @@ chapter = 275
 
 <p>"...That's what happened."</p>
 <p>I told Fujigasaki Rinka about buying Alik and the trainees from the slave traders. Fujigasaki Rinka listened to the story with a serious expression, nodding, and then hugged Alik, who was clinging to my arm.</p>
-<p>"Kyaa, so cute~!"</p>
+<p>"Kyaa, so cute!"</p>
 <p>"Ugh..."</p>
 <p>Fujigasaki Rinka rubbed her cheek against Alik's and hugged him tightly. Alik frowned as if uncomfortable, but still didn't push Fujigasaki Rinka away and remained still.</p>
 <p>It seemed like he was staying still even though he was uncomfortable because he knew Fujigasaki Rinka was my acquaintance.</p>

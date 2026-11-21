@@ -68,9 +68,9 @@ chapter = 952
 <p>"After Sex, Cock Cleaning is good Manners."</p>
 <p>"Haaht, haaht... Yes-hee♥ Chuup...!"</p>
 <p>Watching Asada Ei bite my cock without question, believing my Words, I checked the Time. My appointment with Asada Ei was in the Morning, so I could still do it two or three more times. I felt I could enjoy the Seolnyeo's Body a little longer.</p>
-<p>Asada Ei B-cut~!</p>
-<p>MidNightSKY-nim requested Ryuta creating a whirlwind and Alik throwing a Lightning Spear~!</p>
-<p>Ryuta first~!</p>
+<p>Asada Ei B-cut!</p>
+<p>MidNightSKY-nim requested Ryuta creating a whirlwind and Alik throwing a Lightning Spear!</p>
+<p>Ryuta first!</p>
 <p>It's not working well hehe. The whirlwind is appearing as a background instead of a Technology ㄷㄷ</p>
 <p>Alik</p>
 <p>An illustration that clearly gives the feeling of "throwing" like the last one isn't coming out hehe.</p>

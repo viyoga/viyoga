@@ -60,7 +60,7 @@ chapter = 1152
 <p>Mimi slumped forward instantly, unconscious, drained of every ounce of strength. Her little form tumbled, but Rosie caught her before she hit the ground.</p>
 <p>The dryad girl, now almost translucent, barely solid, carried her gently to the base of her small blue tree. She tucked Mimi beneath the leaves like a mother bird, patting her head softly. "Job well done, little sister," Rosie whispered with a smile.</p>
 <p>’... I am thoroughly confused,’ Quinlan muttered aloud, still collapsed in the dirt back in the battlefield.</p>
-<p>Rosie giggled. Her voice was bright and mischievous. "Rosie might not have told Daddy everything... Tehe~"</p>
+<p>Rosie giggled. Her voice was bright and mischievous. "Rosie might not have told Daddy everything... Tehe"</p>
 <p>He groaned, pushing himself upright despite the blood loss and the exhaustion. ’We are going to have a very long conversation when I get home, little miss. No more hiding things from me. You’re alright, though, correct?’</p>
 <p>Rosie’s fading outline softened into a tender smile at his worry. "Mhm! Don’t worry. This is just a little trick. Rosie left it with Mimi when she created the girl in case something like this happened."</p>
 <p>Her giggle turned bright again. "Rosie’s real self is busy right now, massaging Auntie Yoruha’s belly. She’s so fluffy and cute!"</p>

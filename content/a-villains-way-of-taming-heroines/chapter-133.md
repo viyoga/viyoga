@@ -26,7 +26,7 @@ chapter = 133
 <p>"Ansel, Ansel!" She joyfully called Ansel's name, rubbing her cheek against his, "I knew you were the best to me!"</p>
 <p>"…Seraphina, you didn't come to see me." Ansel tried to place his hand on Seraphina's head, but couldn't quite manage it, "Why is that?"</p>
 <p>"Hmm? Because there's no need."</p>
-<p>Seraphina sat up straight on Ansel, saying matter-of-factly, "After all, you'll take care of everything... Although I was a bit curious why you only came to see me now, it doesn't matter! Because you... hehe~"</p>
+<p>Seraphina sat up straight on Ansel, saying matter-of-factly, "After all, you'll take care of everything... Although I was a bit curious why you only came to see me now, it doesn't matter! Because you... hehe"</p>
 <p>The young girl was overjoyed that Ansel was "struggling" with her feelings. This joy was so pure, so beautiful.</p>
 <p>"I will definitely… take care of it."</p>
 <p>Ansel repeated Seraphina's words softly.</p>

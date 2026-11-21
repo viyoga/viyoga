@@ -95,7 +95,7 @@ While moving, Lith felt slight friction. To lube Emilia up properly, he started 
 
 Lith changed positions and put Emilia down on the bed. He took her virginity when they were equals, now it didn't matter if they were in this position or not. He moved his hips faster and bent down to bite her nipples.
 
-"Mhm~" Emilia couldn't help but let out a muffled moan as Lith bit her nipple.
+"Mhm" Emilia couldn't help but let out a muffled moan as Lith bit her nipple.
 
 Lith was gentle with Emilia and not very rough. This was sensual sex and not rough sex and he was only doing it because he didn't want to hurt her or give her a bad experience as her first time.
 
@@ -153,9 +153,9 @@ Lith didn't listen to what they were saying. He was busy pounding Emilia. It had
 
 Emilia knew how it felt to take it in the butt and now having taken in her pussy as well, she liked this one more. This feeling was so good, she was going to climax at any moment now.
 
-"Ahh~ Ahh~" Emilia moaned a bit loudly.
+"Ahh Ahh" Emilia moaned a bit loudly.
 
-A few seconds later, she extended her hands forward and said, "Ah~ husband… My husband… kiss…"
+A few seconds later, she extended her hands forward and said, "Ah husband… My husband… kiss…"
 
 Lith obliged with it and bent down to kiss her. As he did so, Emilia immediately ended up climaxing.
 

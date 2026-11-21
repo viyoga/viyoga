@@ -26,11 +26,11 @@ chapter = 503
 <p>,Oh! Ryuta-cchi!</p>
 <p>,What's up so early, Seizawa?</p>
 <p>The person in the laundromat this time was also Seizawa Shii. Seizawa Shii was wearing leggings and a light top instead of the dolphin pants she wore last time. I've been thinking about it for a while, but her body is really toned. I somehow have the image that white gyarus don't work out....</p>
-<p>,I got my clothes dirty while working part-time.... It's faster than doing it at home~! But Ryuta-cchi! I call you by your first name, so don't call me Seizawa without any affection, call me Shii-chan or Shii~☆</p>
+<p>,I got my clothes dirty while working part-time.... It's faster than doing it at home! But Ryuta-cchi! I call you by your first name, so don't call me Seizawa without any affection, call me Shii-chan or Shii☆</p>
 <p>She was working part-time? The Seizawa family is so big that they've produced a Prime Minister of Japan. Of course, I heard from Seizawa Shii that they have a strong laissez-faire attitude towards raising their children, but I didn't know that Seizawa Shii had to work part-time.</p>
 <p>,Aren't there any rules like banning part-time jobs at the academy?</p>
 <p>Since St. Francis Girls' Academy is an elite school, I wondered if there was a rule banning part-time jobs, so I asked, and Seizawa Shii burst out laughing.</p>
-<p>,Pahahaha! Ryuta-cchi is so funny~! How can a teacher ask a student something like that?</p>
+<p>,Pahahaha! Ryuta-cchi is so funny! How can a teacher ask a student something like that?</p>
 <p>Come to think of it, it's a bit funny for a teacher to ask a student about school rules. I also laugh awkwardly, Ahahaha, and put the laundry in the washing machine.</p>
 <p>,Ahahaha.... You're really funny, Ryuta-cchi! Um.... To answer your question, I don't think there was such a rule. If there was such a rule, the academy.... would have definitely said something.</p>
 <p>Seizawa Shii laughed until she had tears in her eyes and then answered my question. So part-time jobs are allowed. Judging by the fact that she said the academy would have said something, it seems that the academy also knows that Seizawa Shii is working part-time.</p>

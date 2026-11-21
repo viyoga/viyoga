@@ -24,11 +24,11 @@ chapter = 231
 <p>The problem is whether to tell this to Mimata Chieri or not... Of course, I can trust Mimata Chieri, but if I tell her that Arisu and Nae Fitzgerald are probably Phantom Thief François, she'll freak out.</p>
 <p>"Ryuta, what are you thinking about?"</p>
 <p>"I was wondering whether to tell you what I'm expecting to happen, Sunbae-nim."</p>
-<p>"Aww♥ Tell me~. If you say that and then don't tell me, I'll be so curious."</p>
+<p>"Aww♥ Tell me. If you say that and then don't tell me, I'll be so curious."</p>
 <p>Mimata Chieri snuggled up to me, acting cute as if trying to seduce me. Okay, let's tell her. I can endure a little fuss.</p>
 <p>I told Mimata Chieri about a few incidents and my thoughts, saying that Arisu and her aunt, Nae Fitzgerald, are probably Phantom Thief François.</p>
-<p>"Heeeh~? Really? Ryuta, you're amazing~! If what you say is true, then you figured out something that no one else has?! Su~goi!"</p>
-<p>Mimata Chieri reacted to my story with a typical Japanese "Heeeh~! Su~goi!" and made a fuss, but it was bearable.</p>
+<p>"Heeeh? Really? Ryuta, you're amazing! If what you say is true, then you figured out something that no one else has?! Sugoi!"</p>
+<p>Mimata Chieri reacted to my story with a typical Japanese "Heeeh! Sugoi!" and made a fuss, but it was bearable.</p>
 <p>"They're probably going to steal something today."</p>
 <p>"Hmm, then how about this? We suffered at the lab before, so after catching them both, you should violate them!"</p>
 <p>"Huh?"</p>
@@ -46,7 +46,7 @@ chapter = 231
 <p>"Let's go eat breakfast first, Sunbae."</p>
 <p>I put Mimata Chieri, who was full of lewd fantasies, under my arm and went down to the dining room. We were a little late because we were talking, and Oliver Fitzgerald, Nae Fitzgerald, and Arisu were all sitting at the table.</p>
 <p>Nae Fitzgerald's face was constantly smiling, and her skin was smooth and glossy. It must be because she sucked up so much of my yang energy early this morning.</p>
-<p>"Oh, Ryuta, come sit down. Butler~! Please give Ryuta a lot of food."</p>
+<p>"Oh, Ryuta, come sit down. Butler! Please give Ryuta a lot of food."</p>
 <p>As expected, it was worth pretending to take sleeping pills and staying erect yesterday. As soon as I sat down, Nae Fitzgerald took good care of me.</p>
 <p>Arisu, not knowing why, tilted her head and looked at her mother, wondering why she was acting like that, and Oliver Fitzgerald greeted me, asking if I slept well, then frowned and kept looking at his phone. Something must be going on at the company?</p>
 <p>"Ryuta, what are you going to do today?"</p>

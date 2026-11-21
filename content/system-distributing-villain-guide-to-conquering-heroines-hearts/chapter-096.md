@@ -29,7 +29,7 @@ chapter = 96
 <p>Emma noticed her stare and a flustered look flashed in her eyes.</p>
 <p>"What do you have to say now? Are you still going to tell me there’s nothing going on between you two?" Aria covered her mouth with her hand, her eyes curving into a smile. "Go on, wipe his mouth properly."</p>
 <p>Emma kept her expression under control and continued wiping his mouth, but the red tips of her ears gave her away.</p>
-<p>"Fufu~" Aria took the silence as her answer and glanced at Dante with some surprise.</p>
+<p>"Fufu" Aria took the silence as her answer and glanced at Dante with some surprise.</p>
 <p>"You finally grew some balls, huh."</p>
 <p>Dante nearly choked on his food and looked at her with a speechless face. ’Why does she have to compliment me like that? What kind of impression did she have of me before?’</p>
 <p>Emma instinctively shot a glare at her friend, signaling her to stop teasing him.</p>

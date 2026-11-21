@@ -75,9 +75,9 @@ chapter = 352
 
 <p>Loud, wet slaps echoed, a shockwave spreading through their bubble-like asses.</p>
 
-<p>“Nghnn~~ Husband!”</p>
+<p>“Nghnn Husband!”</p>
 
-<p>“Mghnn~~ You… shameless husband!”</p>
+<p>“Mghnn You… shameless husband!”</p>
 
 <p>Tang Biyue and Qingxue moaned in unison, their full, pink lips parting as their husband’s hands passed over their bodies, grabbing their tits and squeezing.</p>
 
@@ -93,7 +93,7 @@ chapter = 352
 
 <p>Biyue’s breasts were considerably larger than Qingxue’s and her skin, although pale, was not as pale as the skin of Qingyi’s former master.</p>
 
-<p>“Mhn~~ if you were missing us that much, you’d come and see us more often.” The poisonous beauty complained and Qingxue nodded, her cheeks blushing softly.</p>
+<p>“Mhn if you were missing us that much, you’d come and see us more often.” The poisonous beauty complained and Qingxue nodded, her cheeks blushing softly.</p>
 
 <p>“Naughty girl…” Qingyi flashed a big smile, slapping Biyue on the ass and taking her lips. “I’ve had a lot on my plate lately, my new father-in-law hasn’t given me much time to breathe.”</p>
 

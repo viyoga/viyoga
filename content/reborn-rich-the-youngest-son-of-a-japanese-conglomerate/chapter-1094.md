@@ -54,7 +54,7 @@ chapter = 1094
 <p>"I have spare leashes."</p>
 <p>As I mumbled, Kurayamada Kirie answered. No, I can understand one dog leash, but why is she carrying spares? Just because she's an Agonggan Ability User, she carries a lot of strange things.</p>
 <p>"Then, everyone has to help me pack after the walk?"</p>
-<p>"""Yes~!"""</p>
+<p>"""Yes!"""</p>
 <p>And so, I became the Owner of four Large Dogs (?), and had no Choice but to take them for a walk for a long time.</p>
 <p>Naturally, the walk, which began in the dark night, had to satisfy all four dogs, so it only ended at Dawn when the sun rose.</p>
 <p>Through the Airplane window, the Appearance of the USA's Ground receding into the distance was visible. Quite a lot had happened this time.</p>
@@ -77,9 +77,9 @@ chapter = 1094
 <p>"Then, there's nothing else I need to know while going to Japan?"</p>
 <p>"No, you can rest well on the way."</p>
 <p>Because I hadn't slept, having taken the naked body dogs for a walk until Dawn, I was quite sleepy. Hearing Naruse Shiyo's Words that I could rest well, I put on my Blindfold and fell asleep.</p>
-<p>Home Economics Teacher Drinking Water B-cut~!</p>
+<p>Home Economics Teacher Drinking Water B-cut!</p>
 <p>I thought I wouldn't be able to include it as an Illustration because only illustrations of pouring water over breasts, not drinking it, came out, but fortunately, one illustration similar to the description appeared, so I included it as an Illustration hehehe.</p>
-<p>Requested by Gojoy-nim: Chapter 54 Shinoe Misano Remake and last chapter's Suzuki Chisami Illustration angle change~!</p>
-<p>Shinoe Misano~!</p>
+<p>Requested by Gojoy-nim: Chapter 54 Shinoe Misano Remake and last chapter's Suzuki Chisami Illustration angle change!</p>
+<p>Shinoe Misano!</p>
 <p>Suzuki Chisami</p>
 <p>The Suzuki Chisami Character itself has a strong tendency to maintain a Composition that feels slightly looked down upon ㄷㄷ I tried increasing the weight for brown skin.</p>

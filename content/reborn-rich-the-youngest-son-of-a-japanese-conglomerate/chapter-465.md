@@ -53,13 +53,13 @@ chapter = 465
 <p>"It's already gotten bigger? I heard that men don't get hard easily after cumming once.... How perverted is this dick?"</p>
 <p>"The time when you don't get hard after cumming once is called a time of reflection. It seems like it's a perverted dick, just like Boss said."</p>
 <p>Both of them poked my dick with their fingers as if they were amazed that it regained its strength right away, and then Dang So-hwa got up from her seat and slowly started squatting down on top of my dick.</p>
-<p>"I'll go back to the audience seats~!"</p>
+<p>"I'll go back to the audience seats!"</p>
 <p>Yang Seol-hui goes out of the iron bars again, as if it's hard to watch from the side. Dang So-hwa didn't even pretend to hear that and started accepting my dick into her pussy.</p>
 <p>"Aheueueu...! It's been a while... Heueut! It hurts a little...! But still, it feels better than that...!"</p>
 <p>It was natural that it hurt because my dick size was so big. But because I had a mysterious sex-related trait, the pain that women received was not great. Unless I do it roughly on purpose, there aren't many injuries either.</p>
 <p>"Heueut! Heut! This is it, heueut! It's been a long time, heueut! My pussy, haheut! Feels so good, haaang...!"</p>
 <p>As expected, Dang So-hee's physical abilities were not ordinary, so her riding position was amazing. She didn't lean on me and squatted down, and her lower body was so strong that she continued to do high-speed piston movements without stopping. So, every time she spoke, her pussy and dick rubbed together, making her moan, but that was exciting in its own way.</p>
-<p>"Haeueut! Heuaat! It's weird, heueut! I'm going to cum~!"</p>
+<p>"Haeueut! Heuaat! It's weird, heueut! I'm going to cum!"</p>
 <p>No matter how much her body was trained, her sensitivity was not trained, so the high-speed piston movement only hastened her climax rather than my ejaculation. Of course, I didn't stay still and raised my waist to torment Dang So-hwa's pussy in time with the timing.</p>
 <p>"It's amazing that you defeated Boss. Now, I will take over Boss's efforts."</p>
 <p>Yang Seol-hui, who had come in at some point, pushed Dang So-hwa away and said. She said, "I will take over Boss's efforts," but looking at her hazy eyes due to excitement and the stream of vaginal fluid that had flowed down to her thighs, it seemed like she just wanted to put my dick in her pussy.</p>
@@ -67,7 +67,7 @@ chapter = 465
 <p>As Yang Seol-hui pushed, her dick was pulled out, scratching the inside of Dang So-hwa's pussy, and she trembled as she reached her climax, shooting out vaginal fluid again with a pyut pyut sound. Yang Seol-hui looked at the scene with expectant eyes at my shiny dick.</p>
 <p>"If this... comes in...!"</p>
 <p>She hesitated as if she was afraid to put it in after seeing my dick, but Dang So-hwa, who had soon come to her senses, grabbed Yang Seol-hui's pelvis and started forcing her down.</p>
-<p>"Boss, just a moment! Let me prepare myself! Bosss~! Haeueueuheung!!"</p>
+<p>"Boss, just a moment! Let me prepare myself! Bosss! Haeueueuheung!!"</p>
 <p>My dick went in with a ssuuk sound because it was already wet enough and my dick was shiny with Dang So-hwa's vaginal fluid.</p>
 <p>But can she even touch Dang So-hwa's vaginal fluid? I'm a little worried....</p>
 <p>----</p>

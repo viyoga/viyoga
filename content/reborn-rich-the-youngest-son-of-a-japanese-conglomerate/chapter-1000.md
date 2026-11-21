@@ -54,7 +54,7 @@ chapter = 1000
 <p>Seizawa Shii said they hadn't lost, but Minamoto Lisa, seeing her face steeped in a sense of defeat, judged that even if they had continued to fight, Taira Ryuta's rescue team wouldn't have won.</p>
 <p>"And when I went into the room inside, Ryuta-jji was wearing women's clothes."</p>
 <p>"Huh?"</p>
-<p>"He said he was tied up naked and put on the clothes that were there to escape.... Why would he be tied up naked? Kanna definitely fucked Ryuta-jji...! And the room reeked of sex, you know~!"</p>
+<p>"He said he was tied up naked and put on the clothes that were there to escape.... Why would he be tied up naked? Kanna definitely fucked Ryuta-jji...! And the room reeked of sex, you know!"</p>
 <p>"...!"</p>
 <p>Minamoto Lisa fell silent at Seizawa Shii's Words. Raping her nephew...! Taira Kanna's evaluation in Minamoto Lisa's mind plummeted. She had thought Kanna was a somewhat better Woman among the Taira, but an Aunt fucking her nephew...!</p>
 <p>"Clearly, Taira Kanna will keep targeting Ryuta-jji no matter what. So.... We have to join forces."</p>
@@ -107,24 +107,24 @@ chapter = 1000
 <p>Sometimes it was hard raising a child alone, but Jinmija still had no Regret.</p>
 <p>"Mom, thank you. For raising me so well by yourself."</p>
 <p>Because her Son had grown up so dependably.</p>
-<p>"What's with you suddenly~? Now do you truly understand the greatness of this Jinmija Yeosa?"</p>
+<p>"What's with you suddenly? Now do you truly understand the greatness of this Jinmija Yeosa?"</p>
 <p>Embarrassed by her Son's Words, Jinmija overreacted and praised herself. Taira Ryuta laughed heartily, watching Jinmija.</p>
 <p>"Jinmija Yeosa, just wait a little. Your Son will start a company for you, so you'll be able to do the Management you dreamed of."</p>
 <p>And then, as if embarrassed, he went into his room. Jinmija thought at the time that Taira Ryuta was just saying Words. Any child would boast about making their Parents live in luxury, after all.</p>
 <p>Still, she had a slight Expectation, and now that her Son was part of the Taira Group, she thought he might start a small company for his Mother in a few years.</p>
 <p>A few months later, Jinmija had become the Boss of a company much larger than she had imagined.</p>
-<p>Jinmija-ssi B-cut~!</p>
+<p>Jinmija-ssi B-cut!</p>
 <p>A practice Illustration that made me think, 'Ah, I need to undress her and make her a bit younger.'</p>
 <p>Jinmija Yeosa was quite something when she was young, kkeuk kkeuk.</p>
-<p>1000th Chapter Anniversary Illustrations~!</p>
+<p>1000th Chapter Anniversary Illustrations!</p>
 <p>TheDreaming-nim requested: 1. Naked Karen and Yurie having Subway sex while pressing their breasts against the glass. 2. Naked Shido Tsubaki having daytime park sex.</p>
 <p>I tried to make them feel like a continuation of a Story, kkeuk kkeuk.</p>
 <p>Gojoy-nim requested for Taira: 1. Camilla samba dance (full body) 2. Camilla's decisive underwear with a Bedroom background.</p>
 <p>1.</p>
 <p>2.</p>
 <p>IseibuI-nim requested: Nae and Arisu sitting cross-legged on a bed at night, wearing translucent Negligee and Seduction (including bare Feet).</p>
-<p>Starting with Nae~!</p>
-<p>Arisu~!</p>
+<p>Starting with Nae!</p>
+<p>Arisu!</p>
 <p>Chomise-meonji-nim requested: 1. Liz lying naked on the bed, covering her Pussy with her Legs and raising both hands towards her Head. 2. Liz wearing the Nagumo attire from Chapter 995.</p>
 <p>1.</p>
 <p>The Illustration I showed in the previous chapter was actually a requested Illustration, kkeuk kkeuk.</p>

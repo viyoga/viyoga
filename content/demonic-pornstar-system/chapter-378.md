@@ -16,7 +16,7 @@ chapter = 378
 <p>So his muscles coiled tight, every vein and cord of power in his body standing out as he decided to stop playing. With a low growl, he made his move, crushing her rebellion with raw strength.</p>
 <p>Her eyes widened when his arms locked around her, pinning her mid-roll. He leaned close to her ears and whispered with a husky voice, "You know I love you, right?"</p>
 <p>Before she could quip back, Kaiden shifted, overpowering the girl entirely. He hauled her upright like she weighed nothing.</p>
-<p>"Ahh~" Luna’s lips parted in a broken moan as her body betrayed her resistance. She couldn’t believe she was enjoying this.</p>
+<p>"Ahh" Luna’s lips parted in a broken moan as her body betrayed her resistance. She couldn’t believe she was enjoying this.</p>
 <p>Kaiden didn’t stop there. With a sudden move, he pulled her up, his strength carrying her with effortless dominance. Her back pressed against his chest as he rose to his feet, holding her off the ground as if she weighed nothing.</p>
 <p>Then, both arms hooked beneath her knee bend, yanking her legs up high while his hands wrapped behind her head, forcing her into a taut hold that left her utterly helpless. Her arms flailed for a second, but she had no leverage, no control - just his cock driving into her from below, pounding her in the air.</p>
 <p>"Ahhh! Nngh! Y-you brute! What is this position?! You watch too much rape hentai, dude!" she cried, her voice cracking into a squeal as his relentless thrusts battered her insides.</p>

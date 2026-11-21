@@ -39,7 +39,7 @@ chapter = 184
 <p>Unlike Konoe Akina, who ordered skillfully because English and Japanese were written under the Korean on the menu, Alexandra Smirnova was stuttering as she read Korean while ordering. Beef and vegetable porridge, how cute.</p>
 <p>I ordered the menu that the children told me, and I ordered seafood porridge, truffle abalone porridge, and crab porridge. Would this be enough? If not, I could buy something more at the convenience store, so I decided to order just this much. The amount we ordered was quite a lot, so the owner said it would take a while, so I told them that we would go out for a while while the food was being made.</p>
 <p>"Let's go out while the food is being prepared. People are looking at you strangely because of your clothes, so we need to buy clothes first."</p>
-<p>"Wow~!"</p>
+<p>"Wow!"</p>
 <p>There was a clothing store that I had seen while coming to the porridge shop, so I took the kids to the clothing store. It was a small clothing store without trends or famous brands, but it looked better than the large rags the kids were wearing now.</p>
 <p>"Choose some clothes that you can wear for now. I'll buy you nice clothes later when we go to a big city."</p>
 <p>Everyone was busy choosing clothes that suited them. The clothing store owner had a slightly unpleasant expression when the children wearing dirty clothes grabbed the clothes in the store, but when I showed them the thick cash that I had exchanged and only used with cards or black market points and hadn't been able to use, their expression quickly changed.</p>
@@ -70,7 +70,7 @@ chapter = 184
 <p>"Ah, I see... But how do you know so much about regeneration ability?"</p>
 <p>"Because I also have regeneration ability."</p>
 <p>I slightly cut my arm with a bit of the abyss at the tip of my fingernail. The skin tore and opened wide, then reattached with a smooth sound. I've been shot so many times that my regeneration grade has become so high that I can show this level of performance(?). The boys who saw my regeneration ability were very surprised and screamed.</p>
-<p>"Wow~! That's amazing! So you have two abilities?"</p>
+<p>"Wow! That's amazing! So you have two abilities?"</p>
 <p>"Well, yeah."</p>
 <p>Everyone only has one ability, so they seemed very amazed when I showed off my two abilities, telekinesis and regeneration. I was giving some advice to the other two when the girls came in. They all looked fresher because they had washed up.</p>
 <p>The porridge was still warm, so everyone opened the lids and started eating the porridge. I asked Alexandra Smirnova and Jung Da-rim for their names and ages, except for Konoe Akina, who I thought I knew her name like just now.</p>

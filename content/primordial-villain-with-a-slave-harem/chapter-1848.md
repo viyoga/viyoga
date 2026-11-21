@@ -59,4 +59,4 @@ chapter = 1848
 <p>A shiver took her from her scalp to the soles of her bare feet, long and slow and complete, and the grin that broke through after it was the most beautiful thing that hall had ever held.</p>
 <p>"Okay. I submit ❤️"</p>
 <p>Then, still pinned, still bare, still grinning with her hair loose on the floor and her thighs open for the man on top of her, Ayame turned her head toward the veranda doors and the snow falling past them.</p>
-<p>"You can come in now, peeping elder sister of mine~"</p>
+<p>"You can come in now, peeping elder sister of mine"</p>

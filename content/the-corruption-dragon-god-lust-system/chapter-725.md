@@ -15,7 +15,7 @@ chapter = 725
 
 <p>At the center, a vast bed draped in silk linens dominated the space, its smooth surface looking utterly inviting.</p>
 
-<p>“Ah~ I wonder if Big Sis Xue Hua will show up to have some fun with us too…” Rou’er murmured with a mischievous smile, walking over to Qingyi’s bed before flopping onto the mattress on her back.</p>
+<p>“Ah I wonder if Big Sis Xue Hua will show up to have some fun with us too…” Rou’er murmured with a mischievous smile, walking over to Qingyi’s bed before flopping onto the mattress on her back.</p>
 
 <p>The petite beauty’s body bounced lightly against the silken sheets, her delicate curves trembling delicately before she settled deep into the bedding, sprawled out with her arms thrown wide above her head.</p>
 
@@ -35,7 +35,7 @@ chapter = 725
 
 <p>The bright, reddish tip struck against her full, pink lips with a wet pop, leaving them glossed with a glistening trail of pre-cum.</p>
 
-<p>“Ah… Big brother Qingyi is already so hard, hehe~”</p>
+<p>“Ah… Big brother Qingyi is already so hard, hehe”</p>
 
 <p>Her tongue slipped out from between her lips, the soft pink tip tracing slow, teasing circles over the swollen head of his member, gathering up every drop of the salty essence that had accumulated there.</p>
 
@@ -85,7 +85,7 @@ chapter = 725
 
 <p>She took his entire length into her delicate little mouth before slowly pulling back, her drenched lips parting from the glans only to remain connected by long, viscous strands that stretched thinner and thinner until they finally snapped.</p>
 
-<p>“Nghn~~ so big~”</p>
+<p>“Nghn so big”</p>
 
 <p>Without any hesitation, and with her eyes shining with pure lust, she sank back onto his member, sucking it voraciously.</p>
 

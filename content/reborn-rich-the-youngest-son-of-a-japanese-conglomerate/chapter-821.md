@@ -94,11 +94,11 @@ chapter = 821
 <p>Urabe Konoka B-cut!</p>
 <p>The Eye Shape is different ㅎㅎ</p>
 <p>Naruse Shiyo belly dancer + breast Covering requested by Gojoy-nim!</p>
-<p>Starting with the belly dancer~!</p>
-<p>Breast Covering~!</p>
-<p>Liz, Lisa Pantyhose wearing breast Covering requested by seungj050-nim~!</p>
+<p>Starting with the belly dancer!</p>
+<p>Breast Covering!</p>
+<p>Liz, Lisa Pantyhose wearing breast Covering requested by seungj050-nim!</p>
 <p>Starting with Lisa-ttang</p>
 <p>Liz</p>
 <p>Family Teacher Liz Pantyhose breast Covering requested by AbsolutelyNonRefundable-nim...!</p>
-<p>Family Teacher~!</p>
+<p>Family Teacher!</p>
 <p>The old model doesn't listen well, so there aren't many that succeeded ㅠㅠ</p>

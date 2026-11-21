@@ -11,8 +11,8 @@ chapter = 554
 <p>Alice’s face lit up.</p>
 <p>It was the biggest smile of her life.</p>
 <p>Then she started bobbing back and forth on Kaiden’s leg with her entire upper body swaying as if she physically couldn’t contain the joy anymore. Her hands balled into tiny fists near her chest as she began softly singing under her breath, voice lilting and wobbly with happiness.</p>
-<p>"He liked it~ he said it was perfect~"</p>
-<p>Her shoulders bounced. "Perfect, perfect, perfect~!"</p>
+<p>"He liked it he said it was perfect"</p>
+<p>Her shoulders bounced. "Perfect, perfect, perfect!"</p>
 <p>It was absurdly cute. Completely unrestrained. The kind of joy that didn’t bother pretending to be dignified.</p>
 <p>Then, she gasped.</p>
 <p>"Ah!"</p>

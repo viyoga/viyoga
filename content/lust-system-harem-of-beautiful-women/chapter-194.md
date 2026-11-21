@@ -107,7 +107,7 @@ chapter = 194
 
 <p>Nancy’s breath hitched. With a proud yet slightly shy tone, she said, &quot;What would you taking care of me even mean? If Lily found out, she’d skin you alive.&quot;</p>
 
-<p>&quot;If Lily found out, she’d be overjoyed. Then I wouldn’t have to sneak out at night anymore. Her most respected elder sister, out of heartache for her, would help share her burdens in bed~.&quot;</p>
+<p>&quot;If Lily found out, she’d be overjoyed. Then I wouldn’t have to sneak out at night anymore. Her most respected elder sister, out of heartache for her, would help share her burdens in bed.&quot;</p>
 
 <p>Whispering these words hotly into her ear, and gazing at his elder sister in law’s exquisitely charming ear, Luis couldn’t resist extending his tongue to give it a lick.</p>
 

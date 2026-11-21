@@ -45,7 +45,7 @@ chapter = 928
 
 <p>She was, in every part of her, a beauty beyond compare.</p>
 
-<p>"Ah~" A sweet moan escaped her lips, and her eyelids fluttered before slowly opening. Those beautiful blue eyes, vacant and unfocused, settled on the ceiling of the luxurious apartment.</p>
+<p>"Ah" A sweet moan escaped her lips, and her eyelids fluttered before slowly opening. Those beautiful blue eyes, vacant and unfocused, settled on the ceiling of the luxurious apartment.</p>
 
 <p>Beneath that emptiness lay an immense anguish.</p>
 

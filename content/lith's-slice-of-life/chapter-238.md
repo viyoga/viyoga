@@ -11,7 +11,7 @@ Ralph shook his head and said honestly, “no, mother. Those two probably though
 
 Ralph’s mother smiled and nodded her head. She walked towards Lith and Dennis and bent down to look at their faces they were hiding between their hands.
 
-“Boys~ look at me~” She said in her melodious tone.
+“Boys look at me” She said in her melodious tone.
 
 Lith and Dennis removed their hands and made an awkward smile and said to Ralph’s mother,
 
@@ -19,7 +19,7 @@ Lith and Dennis removed their hands and made an awkward smile and said to Ralph�
 
 “hello, I am Lith.” Lith turned his awkward smile into a normal one and said calmly.
 
-“Haha~ Don’t worry, I am not going to eat you two. You can relax.” Ralph’s mother ruffled their hair and said. She stood straight and then said with a smile,
+“Haha Don’t worry, I am not going to eat you two. You can relax.” Ralph’s mother ruffled their hair and said. She stood straight and then said with a smile,
 
 “Let me introduce myself too. I am Ralph’s mother, Avelyn Asmodeus.”
 
@@ -27,13 +27,13 @@ She kept it very simple and didn’t give out much information. She was a sensib
 
 “So it’s Miss Ave–”
 
-“Just call me aunt like you did before, okay Lith-chan?~” Avelyn interrupted Lith and said ruffling his hair.
+“Just call me aunt like you did before, okay Lith-chan?” Avelyn interrupted Lith and said ruffling his hair.
 
 Lith nodded his head and said, “understood, aunt.”
 
 “Good, good.” Avelyn said with a smile. She then walked towards Emilia and standing in front of her, she said,
 
-“Long time no see, Emmy chan~”
+“Long time no see, Emmy chan”
 
 Emilia nodded her head and said with a small smile, “indeed, Avelyn.”
 
@@ -45,7 +45,7 @@ Emilia, although was surprised with the change in her attitude, she was happy fo
 
 Avelyn then said, “I could’ve talked more with you Emmy-chan but I came here while being in the middle of the work and need to go back. For how long are you going to be out of the academy?”
 
-Avelyn nodded her head and said, “I wanted to know why you’re out like this but I am running late. We’ll talk later. See you~”
+Avelyn nodded her head and said, “I wanted to know why you’re out like this but I am running late. We’ll talk later. See you”
 
 “Bye-bye.” Emilia waved her hand and said with a smile.
 
@@ -95,7 +95,7 @@ My Ralph is here, I wanna spend time with him. Robert, if there’s anything tha
 
 Avelyn was about to leave but stopped. She turned to Robert and said,
 
-“Also, one more thing, we have a few lust-crazed incubus’s right? Make sure to force them to mate with this guy as he watches his family and friends later. Ensure each and every hole is filled up, haha~”
+“Also, one more thing, we have a few lust-crazed incubus’s right? Make sure to force them to mate with this guy as he watches his family and friends later. Ensure each and every hole is filled up, haha”
 
 Avelyn left for Espat after giving her instructions, leaving Robert and the guy alone in the room.
 

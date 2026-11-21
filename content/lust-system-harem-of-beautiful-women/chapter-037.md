@@ -47,7 +47,7 @@ chapter = 37
 
 <p>Once outside, Avery became cautious. In a neighborhood like this, everyone knew each other, and she didn’t want to be seen. Standing there demurely, she looked every bit the sweet, innocent girl, blinking her big eyes playfully with a bright smile.</p>
 
-<p>&quot;Brother-in-law, let’s chat tonight~&quot;</p>
+<p>&quot;Brother-in-law, let’s chat tonight&quot;</p>
 
 <p>Avery made a seductive expression, then giggled and skipped into the neighborhood.</p>
 

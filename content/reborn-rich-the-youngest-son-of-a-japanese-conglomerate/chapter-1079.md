@@ -38,9 +38,9 @@ chapter = 1079
 <p>Due to this New Rochelle incident, we have to compensate the auction participants, but since the plan is not to give compensation to those who destroyed the ship, but rather to receive damages from them, it didn't seem like a financial loss. Listening to Eve, it seemed more than one person attacked the ship, so it was a chance to extort Money from several people.</p>
 <p>Above all, the very act of not giving the Fragment of Omniscience's successful bid money to the Obsidian Syndicate and simply swallowing it was an enormous profit for Am Sang.</p>
 <p>Of course, because of this incident, Am Sang's Trust Level dropped, and the Cruise ship was also destroyed, so it couldn't be called an outright profit.</p>
-<p>-EVE: We plan to drain all the Cruise ship's value, and since the Cruise ship's Price isn't just a few pennies, the Money held by those Families or forces isn't enough to repay it, so they said they would repay it with goods instead. Many good items are expected to arrive soon, so please look forward to the next auction~!</p>
+<p>-EVE: We plan to drain all the Cruise ship's value, and since the Cruise ship's Price isn't just a few pennies, the Money held by those Families or forces isn't enough to repay it, so they said they would repay it with goods instead. Many good items are expected to arrive soon, so please look forward to the next auction!</p>
 <p>Oh.... Since most of the New York auction participants were magic-related Families or forces, if they auction off items taken from them, it seemed I could get some decent items again. As Eve said, the next auction is highly anticipated, isn't it?</p>
-<p>-EVE: Oh, that's right, Ryuta-nim~! You said you obtained priority to purchase Obsidian Pharmaceuticals' patents?</p>
+<p>-EVE: Oh, that's right, Ryuta-nim! You said you obtained priority to purchase Obsidian Pharmaceuticals' patents?</p>
 <p>-Ryuta: Yes. Our Negotiation team should have arrived in New York by now.</p>
 <p>When we took the Airplane departing from New York, the Negotiation team organized by Lin Xiang was crossing the Pacific to New York, so they should have arrived in New York by now.</p>
 <p>That Negotiation team was to purchase patents with priority, and also participate in the remaining patent auction to purchase the patents Kijimoto Jurie, Jung Darim, and Tang So-hwa had marked.</p>
@@ -49,7 +49,7 @@ chapter = 1079
 <p>It was unfortunate for the research team, but for us, the worse the research team's Situation, the easier it was to recruit them, so it could be called Luck.</p>
 <p>Of course, it might be a bit difficult to get them to leave the USA, where they live, and come to Korea, but since we only need to bring the core personnel and a few others, not the entire research team, it seemed we just needed to offer irresistible Conditions.</p>
 <p>-Ryuta: Is the Cyberware Work going well?</p>
-<p>-EVE: Of course~! There's no Reaction in the high-Performance Market yet, but in terms of popular, everyday cyber implants, no Enterprise surpasses the growth of our Cyberware.</p>
+<p>-EVE: Of course! There's no Reaction in the high-Performance Market yet, but in terms of popular, everyday cyber implants, no Enterprise surpasses the growth of our Cyberware.</p>
 <p>From the beginning, Cyberware became famous by advertising cyber implants that felt like real Arms, so it was aiming for popularity rather than Performance.</p>
 <p>In fact, if we aimed too much for Performance, the Price would increase, and the higher the Performance, the more we would be checked by US defense contractors, so we were focusing on increasing the market share for everyday use first.</p>
 <p>-EVE: I've just roughly gathered the Information about the UK you mentioned. Shall I tell you?</p>
@@ -61,18 +61,18 @@ chapter = 1079
 <p>-Ryuta: There's no other Information, right?</p>
 <p>-EVE: No, even this current Information is what I gathered by thoroughly reviewing all the CCTV Data handed over by an Am Sang guild member in the London Police Department. We probably know the most about the culprit, aside from the one who carried out the Assassination.</p>
 <p>Ah, so Eve individually checked all the CCTV files to find the culprit. The London Police Department might not yet know who the culprit is. Of course, we don't precisely know who the culprit is either, only that he's a white man.</p>
-<p>-Ryuta: Thank you for the Information~!</p>
-<p>-EVE: You're welcome. For an Incident this big, it's good for us to grasp the Information too. See you at the next auction~!</p>
+<p>-Ryuta: Thank you for the Information!</p>
+<p>-EVE: You're welcome. For an Incident this big, it's good for us to grasp the Information too. See you at the next auction!</p>
 <p>After finishing the conversation with Eve and putting down my phone, I heard someone knocking on the door.</p>
-<p>"Come in~!"</p>
+<p>"Come in!"</p>
 <p>Kkiik.</p>
 <p>The ones who opened the door and entered at my Words to come in were the Kiyona Hori Mari Sisters. For some reason, both were wearing Maid attire.</p>
-<p>Gojoy-nim requested Shinoe Misano: 1. Tennis Attire, 2. Swinging a Racket in Tennis Attire~!</p>
+<p>Gojoy-nim requested Shinoe Misano: 1. Tennis Attire, 2. Swinging a Racket in Tennis Attire!</p>
 <p>1.</p>
 <p>2.</p>
 <p>TheDreaming-nim requested Minamoto Katsue: 1. Breast Gathering 2. Interview while sitting</p>
 <p>1.</p>
 <p>Her breasts are pretty hehe.</p>
 <p>2.</p>
-<p>Bonus(?) Image that appears when Laura crashes~!</p>
+<p>Bonus(?) Image that appears when Laura crashes!</p>
 <p>If something doesn't fit, illustrations sometimes come out like this hehe.</p>

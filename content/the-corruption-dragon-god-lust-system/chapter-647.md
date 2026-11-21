@@ -57,13 +57,13 @@ chapter = 647
 
 <p>Her cheeks puffed out as the cum came. Thick, hot spurts flooded her small mouth in a viscous rush, filling her faster than she could swallow.</p>
 
-<p>“nghnn~~ gulp~~ gulp~~ gulp~~♡” She swallowed it all. Her throat accepted every drop, delivering each warm mouthful straight to her stomach.</p>
+<p>“nghnn gulp gulp gulp♡” She swallowed it all. Her throat accepted every drop, delivering each warm mouthful straight to her stomach.</p>
 
-<p>“aghnn~~ it’s so much~!” She finally pulled free, eyes wide with surprise. A last thick spurt hit her closed lips and dripped down her chin, rolling across her collarbone and onto her flat chest.</p>
+<p>“aghnn it’s so much!” She finally pulled free, eyes wide with surprise. A last thick spurt hit her closed lips and dripped down her chin, rolling across her collarbone and onto her flat chest.</p>
 
 <p>She sat there for a moment, breathing hard, her small breasts rising and falling with each ragged breath. Then she broke into a smile.</p>
 
-<p>“Did I do well, big brother Qingyi? I’ll be a good wife, won’t I? Hehehe~~♡”</p>
+<p>“Did I do well, big brother Qingyi? I’ll be a good wife, won’t I? Hehehe♡”</p>
 
 <p>A cheerful giggle escaped her as she stuck out her tongue, licking the remaining cum from Qingyi’s cock with slow, thorough strokes.</p>
 
@@ -105,7 +105,7 @@ chapter = 647
 
 <p>Rou’er felt his stare and pulled away from the now-clean cock.</p>
 
-<p>“Hm~~ you’ll only get to fuck my pussy once we’re married, big brother Qingyi! So hurry up and get rid of that damn Tianhao! ♡” She poked his chest, drawing an honest laugh from him.</p>
+<p>“Hm you’ll only get to fuck my pussy once we’re married, big brother Qingyi! So hurry up and get rid of that damn Tianhao! ♡” She poked his chest, drawing an honest laugh from him.</p>
 
 <p>“Yes, Rou’er, he won’t make it past this year, hahaha.” Qingyi pulled her onto his lap.</p>
 

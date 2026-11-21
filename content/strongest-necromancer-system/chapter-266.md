@@ -8,7 +8,7 @@ chapter = 266
 <p>[Earth]</p>
 <p>[Outside the City of New Jersey]</p>
 <p>Inside a helicopter a few miles away from New Jersey, Riyala sat with her head bowed as they traveled quickly over the city. There was a look of sadness on Riyala’s face as she wondered just how much damage had been done to this world already. She was the reason why the dragon riders were causing so much destruction, and she knew that nothing she could say or do would be able to make up for what she had caused. The only thing she could do now was turn herself in and hope that the Sovereign would leave this world alone. Juliet was sitting beside Riyala, and the agent who had come to take her from Jason’s house was sitting opposite them with her hands folded across her chest.</p>
-<p>Ring~!</p>
+<p>Ring!</p>
 <p>The agent’s phone suddenly rang, and she told her subordinate beside her to keep an eye on the two as she picked up the phone once she saw the caller ID.</p>
 <p>"Sir."</p>
 <p>The agent answered respectfully, and on the other side of the phone, Cersai spoke up with narrowed eyes.</p>

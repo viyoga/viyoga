@@ -43,7 +43,7 @@ chapter = 555
 <p>After receiving greetings from the guards and passing through the main gate, I got out of the car and an old man who appeared to be a butler bowed to me. Following the butler's guidance, I went to the reception room where guests were entertained, and Naruse Koyou in a wheelchair, Takinogawa Yukiko in Yukiko's transformation, and Naruse Shiyo were sitting.</p>
 <p>"Benefactor, I apologize for not being able to greet you standing up."</p>
 <p>"Ah, if you're not feeling well, it can't be helped. Is Shiyo okay?"</p>
-<p>Naruse Koyou apologized to me while sitting in the wheelchair. Seeing him sitting in the wheelchair, it seemed that it would take a considerable amount of time to fully recover. Naruse Shiyo greeted me with, "Sensei~!", and Takinogawa Yukiko smiled and nodded slightly.</p>
+<p>Naruse Koyou apologized to me while sitting in the wheelchair. Seeing him sitting in the wheelchair, it seemed that it would take a considerable amount of time to fully recover. Naruse Shiyo greeted me with, "Sensei!", and Takinogawa Yukiko smiled and nodded slightly.</p>
 <p>I could tell that Naruse Shiyo had fused with the dragon due to the scales on her shoulders and the horns on her head, but she didn't have wings or a tail like Yukiko showed in the mental world at that time.</p>
 <p>"I should have noticed when I saw the Black Dragon in Naruse's form, but it seems that their assimilation rate was quite high. Now, that has become a blessing, and Shiyo is able to control her appearance well. She will probably be able to maintain her human form in two days."</p>
 <p>Takinogawa Yukiko explained, noticing that I was looking at Naruse Shiyo with a puzzled expression. Although her appearance is different now, it felt a bit strange to hear Yukiko speak to me in polite language.</p>
@@ -61,7 +61,7 @@ chapter = 555
 <p>"Everyone was worried. It's common for you to be absent, but you didn't say anything even when I sent you a Line message, and it's the first time you've been absent for several days in a row, even though there was a weekend in between."</p>
 <p>Naruse Shiyo had a complex expression that contained gratitude and joy for her friends' concern for her, and apology for causing concern at my words.</p>
 <p>"I lied and said you had surgery, but try to come to school as soon as possible."</p>
-<p>"Okay, Sensei! I'll show the kids how healthy I am~!"</p>
+<p>"Okay, Sensei! I'll show the kids how healthy I am!"</p>
 <p>While I was talking with Naruse Shiyo, all the food was prepared, and contrary to Naruse Koyou's words that there wasn't much prepared, the meal was a feast. It was a Japanese-style meal, and as expected of the Naruse family, which had been trading with the West since the modern era, they seemed to specialize in Western-style fusion cuisine arranged in a Japanese style rather than completely Japanese cuisine. The taste was quite good, so I was able to enjoy the meal.</p>
 <p>"Excuse me, but I would like to have a private conversation with Yamashiro-sensei for a moment."</p>
 <p>"It's okay. I think she'll be back tomorrow, so I'll check on Shiyo's condition."</p>

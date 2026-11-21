@@ -79,7 +79,7 @@ chapter = 672
 
 <p>The tight ring of muscle twitched against the warm, slick head of his cock.</p>
 
-<p>“Nghn~~ so it’s my ass that big brother Qingyi wants to fuck with his huge cock? Hehehe~~ ” Rou’er giggled, looking back, not the least bit embarrassed by the position she was in, held as if she were a sex toy.</p>
+<p>“Nghn so it’s my ass that big brother Qingyi wants to fuck with his huge cock? Hehehe ” Rou’er giggled, looking back, not the least bit embarrassed by the position she was in, held as if she were a sex toy.</p>
 
 <p>Quite the opposite. Her eyes sparkled, full of excitement.</p>
 
@@ -89,7 +89,7 @@ chapter = 672
 
 <p>There was resistance at first, even with the viscous love juices serving as lubricant. But that resistance was soon broken, and his member sank in mercilessly.</p>
 
-<p>“Nghnn~~ BIG BROTHER QINGYI! Opghnnn~~♡” A sweet, obscene, high-pitched moan echoed as Qingyi sank into that tight ass.</p>
+<p>“Nghnn BIG BROTHER QINGYI! Opghnnn♡” A sweet, obscene, high-pitched moan echoed as Qingyi sank into that tight ass.</p>
 
 <p>The twenty-three-centimeter cock penetrated her relentlessly, stretching her impossibly tight hole wider with every inch, until his hips struck her buttocks with a wet slap.</p>
 
@@ -97,7 +97,7 @@ chapter = 672
 
 <p>Qingyi’s lust points exploded, Rou’er anal virginity taken in one go.</p>
 
-<p>Inside her slim, delicate belly, his cock surged, pressing from within and filling her completely. The obscene outline of his shaft bulged through her taut stomach, distorting her slender midsection. “Fuck~~ it’s so big-♡” Rou’er touched the bulge in her belly with trembling fingers, her feet quaking as love juices dripped onto the soft grass in a steady stream.</p>
+<p>Inside her slim, delicate belly, his cock surged, pressing from within and filling her completely. The obscene outline of his shaft bulged through her taut stomach, distorting her slender midsection. “Fuck it’s so big-♡” Rou’er touched the bulge in her belly with trembling fingers, her feet quaking as love juices dripped onto the soft grass in a steady stream.</p>
 
 <p>Her hand massaged her own belly while her anal walls clenched around Qingyi’s cock, squeezing and pulsing as if trying to crush it in an unmatched grip.</p>
 
@@ -105,4 +105,4 @@ chapter = 672
 
 <p>“You’re a perfect onahole, you know?” Qingyi smiled, savoring the crushing tightness around his cock.</p>
 
-<p>“Nghnn~~ Rou’er doesn’t know what this is, but Rou’er likes being big brother Qingyi’s onahole, hehehe~” Rou’er gave a naughty giggle and then turned her face toward Xue Hua. “I’m sure big sister Xue Hua will like it too.”</p>
+<p>“Nghnn Rou’er doesn’t know what this is, but Rou’er likes being big brother Qingyi’s onahole, hehehe” Rou’er gave a naughty giggle and then turned her face toward Xue Hua. “I’m sure big sister Xue Hua will like it too.”</p>

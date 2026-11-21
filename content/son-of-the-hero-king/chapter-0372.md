@@ -11,7 +11,7 @@ chapter = 372
 <p>Her large breasts threatened to spill out of the micro bikini, but she made no effort to cover herself. In fact, she was basking in a sense of pride as she watched the other girls look at her body in envy.</p>
 <p>Seeing her stay calm, Sol grinned, one of his pride was doing his best so that the girls always lost themselves in pleasure.</p>
 <p>He scooped up her breasts in his hands and viewed the wonderfully distorting cleavage over her shoulder. Encouraged, he reached one hand toward Kiyohime and groped both women from behind at the same time.</p>
-<p>“Ah~”</p>
+<p>“Ah”</p>
 <p>“...”</p>
 <p>Nent did not fight the progressively growing pleasure but it was different for Kiyohime as she unconsciously tried to stop herself from showing the pleasure she was feeling. Since they were in front of their fellow ‘sisters’, she clenched her teeth to suppress the moans and kept her back straight, but she could not keep her hips from twisting and her skin from flushing with heat.</p>
 <p>Sol could feel distinctly the difference in fighting power between Nent and Kiyohime. Kiyohime was not a flat land but her hills were relatively small in size. Meanwhile, Nent was more like a mountain range with peaks that could reach the sky.</p>

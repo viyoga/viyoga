@@ -44,7 +44,7 @@ chapter = 1938
 <p>"..." Black Fang merely held her hand tighter.</p>
 <p>The Demon of Vengeance walked stiff as a plank and stared straight ahead.</p>
 <p>"Walk faster. Everyone’s staring."</p>
-<p>"You’re the one dragging your feet~"</p>
+<p>"You’re the one dragging your feet"</p>
 <p>At the foot of the altar Iris put the samurai’s hand into Quinlan’s as if handing over a sack of grain. "Before I beat her up," she told him. Then she went and found a pillar to lean on.</p>
 <p>Black Fang put her sister’s other hand into his, held it there for exactly as long as the gesture required, and looked at him once.</p>
 <p>Then the Venomborne Terror joined Iris, back against the same pillar, observant.</p>

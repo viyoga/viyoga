@@ -45,7 +45,7 @@ chapter = 312
 
 <p>“Ruxue…” He called out, searching worriedly for the sword at his waist, sighing with relief when he realized it was still there.</p>
 
-<p>“nghnn~~” A soft moan echoed in Qingyi’s chest and he lowered his face, staring at Margareth’s trembling figure, which was slowly opening her eyes.</p>
+<p>“nghnn” A soft moan echoed in Qingyi’s chest and he lowered his face, staring at Margareth’s trembling figure, which was slowly opening her eyes.</p>
 
 <p>[Margareth’s Corruption rises by 2 points, +2,000,000 lust points]</p>
 
@@ -59,7 +59,7 @@ chapter = 312
 
 <p>“Careful.” Qingyi immediately crouched down to support her, preventing her from falling, one of his hands ‘accidentally’ supporting one of her huge tits.</p>
 
-<p>“mmhn?~~ aghnn~~” A confused moan escaped Margareth’s lips, followed by a long, sharp one as she felt Qingyi squeeze, his fingers sinking into the voluptuous flesh of her breasts.</p>
+<p>“mmhn? aghnn” A confused moan escaped Margareth’s lips, followed by a long, sharp one as she felt Qingyi squeeze, his fingers sinking into the voluptuous flesh of her breasts.</p>
 
 <p>Her dress was disheveled and torn, her pink nipples partially visible through a small hole in her cleavage.</p>
 
@@ -67,7 +67,7 @@ chapter = 312
 
 <p>[Margareth’s Lust rises by 20%]</p>
 
-<p>“Q-qingyi… thank you for saving me… But can you please… oghnn~~” Her words were interrupted by another moan as Qingyi shifted, grabbing her from behind.</p>
+<p>“Q-qingyi… thank you for saving me… But can you please… oghnn” Her words were interrupted by another moan as Qingyi shifted, grabbing her from behind.</p>
 
 <p>Soon, she felt a large, throbbing bulge against her ass.</p>
 
@@ -81,7 +81,7 @@ chapter = 312
 
 <p>[Margareth’s Lust rises by 15%]</p>
 
-<p>“T-that’s not- nghnn~~ the problem…” Margareth gasped, her mature, sensual voice now totally sunk in honey, each word only making Qingyi even more excited.</p>
+<p>“T-that’s not- nghnn the problem…” Margareth gasped, her mature, sensual voice now totally sunk in honey, each word only making Qingyi even more excited.</p>
 
 <p>Looking down, she saw Qingyi’s hands on her breasts, massaging them gently, grabbing her puffy nipples under her dress, squeezing them gently. But not only that.</p>
 

@@ -47,8 +47,8 @@ chapter = 443
 <p>I looked around at the students as I entered the special class. As I looked around, it seemed that none of the students were injured. As the story came out yesterday, Konoe Akina and Kurayamata Kirie seemed to have protected them well.</p>
 <p>,I'm sorry that the homeroom teacher had to be with you when you were having a hard time. And thank you, Ms. Kurayamata, for protecting the students.'</p>
 <p>First, I apologized to the students who were surprised by yesterday's incident, and I also politely thanked Kurayamata Kirie. The children who don't know about Otagi Yuka's incident might think that I abandoned them and went outside, so I have to apologize in advance like this. I couldn't let my likeability drop by just glossing over it.</p>
-<p>,Ei~! What are you talking about, Ryuta-cchi? The bad guys are the ones who attacked!'</p>
-<p>,You went to the hospital because you were worried about giving us a cold~, Sensei!'</p>
+<p>,Ei! What are you talking about, Ryuta-cchi? The bad guys are the ones who attacked!'</p>
+<p>,You went to the hospital because you were worried about giving us a cold, Sensei!'</p>
 <p>The cool Seizawa Shii said that she was okay, and Konoe Akina subtly created public opinion. Saionji Diana also sympathized, saying that she was sorry for catching a cold, and Sakagami Rena was just sitting quietly because it would be strange if she suddenly acted up because of her usual taciturn attitude.</p>
 <p>,The first period will not be a class, but everyone will gather in the main stadium to pay tribute to the people who were sacrificed this time, so let's get ready to go out.'</p>
 <p>I led the students except for Naruse Shiyo, who was weak, to the main stadium. St. Francisco Girls' Academy was an integrated school with both middle and high schools, so the main stadium was quite large.</p>

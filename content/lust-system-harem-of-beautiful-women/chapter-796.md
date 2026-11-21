@@ -1,5 +1,5 @@
 +++
-title = "Chapter 796: Whole Family Is Lewd~~ [18+]"
+title = "Chapter 796: Whole Family Is Lewd [18+]"
 weight = 796
 [extra]
 chapter = 796
@@ -19,7 +19,7 @@ chapter = 796
 
 <p>Luis said lecherously. Eloise looked surprised. &quot;You’ve done my sister’s backdoor too???&quot;</p>
 
-<p>&quot;Yep. Next time, it’ll be your turn~&quot;</p>
+<p>&quot;Yep. Next time, it’ll be your turn&quot;</p>
 
 <p>&quot;No way! You’re such a pervert. Being a horny bastard is one thing, but why are you so twisted? If I didn’t let you, you’d still be obsessing over my ass.&quot;</p>
 
@@ -61,7 +61,7 @@ chapter = 796
 
 <p>&quot;Then you can see just how wild Auntie gets when she’s alone with me...&quot;</p>
 
-<p>&quot;Her moans are even louder than yours, Mom~...&quot;</p>
+<p>&quot;Her moans are even louder than yours, Mom...&quot;</p>
 
 <p>With all her sensitive spots teased and such dirty talk, Ruth couldn’t help but wrap one arm around her son-in-law while covering her mouth with the other.</p>
 
@@ -93,7 +93,7 @@ chapter = 796
 
 <p>The charm of these two big-breasted sisters was equally stunning. Last time, their encounter had happened in the dark. Now, with the bright lights, he could fully appreciate their bodies and alluring expressions.</p>
 
-<p>&quot;Auntie, come here~&quot;</p>
+<p>&quot;Auntie, come here&quot;</p>
 
 <p>Luis licked his lips hoarsely, his voice full of excitement.</p>
 

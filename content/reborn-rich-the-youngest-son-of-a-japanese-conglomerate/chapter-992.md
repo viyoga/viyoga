@@ -19,12 +19,12 @@ chapter = 992
 <p>"Ryuta...!"</p>
 <p>Yukiko, who was with Nagumo Sian in the CEO's Office, greeted me with a Smile. But today, the Atmosphere seemed a little different, didn't it? Before she smiled at me, she had a slightly complex, worried Expression. Is something wrong...? I'll have to ask her later.</p>
 <p>"Shall we go to my mansion then?"</p>
-<p>"Yes, I was curious how you decorated it~!"</p>
+<p>"Yes, I was curious how you decorated it!"</p>
 <p>"Ryuta's mansion.... I heard it was being built, and I was always curious."</p>
 <p>Since neither Yukiko nor Nagumo Sian had visited my mansion yet, they showed great Expectation. Yukiko lived in a house within the Talent Development Center's grounds, but Nagumo Sian, under the name of Grand-Mother, lived in a massive traditional Japanese mansion, feeling like a Daimyo of Akita Prefecture, so I wondered if my mansion would satisfy her.</p>
 <p>"Let's go down to the Entrance first. The car is ready."</p>
 <p>Tsukiyo had already gone to the Parking Lot in advance and said she would be waiting with the car parked at the main gate of the Taira Food branch Building, so we didn't need to go all the way to the underground Parking Lot.</p>
-<p>"Hello~! Ryuta Older Brother's mom~!"</p>
+<p>"Hello! Ryuta Older Brother's mom!"</p>
 <p>Ryuta Older Brother's mom, she said.... Yukiko's Title has gotten quite long. Yukiko seemed a little surprised by Tsukiyo's bright greeting, but soon smiled, said "Nice to meet you," and got into the car.</p>
 <p>Nagumo Sian and Yukiko got into the back seat, and I got into the passenger seat, heading towards the mansion. Although we were riding in a luxury sedan, it seemed better for me to sit in the passenger seat rather than three people squeezing into the back. Especially since my Size was quite large.</p>
 <p>"By the way, if it's called a mansion, it must be quite large, wouldn't it.... I heard land prices in Neo Tokyo are expensive, did you overspend to buy it?"</p>
@@ -33,7 +33,7 @@ chapter = 992
 <p>"How did you buy it so cheaply?"</p>
 <p>Yukiko also asked, seemingly curious.</p>
 <p>"The place I bought used to be a village in the past, but many people died there during an air raid in World War III, I heard. After that, rumors spread that ghosts appeared, so the land price was cheap, and even during Neo Tokyo's Development, accidents kept happening and people died, and the development company that was developing it went bankrupt, so I was able to buy it incredibly cheaply."</p>
-<p>"Ah, really~?"</p>
+<p>"Ah, really?"</p>
 <p>"Ghosts, you say.... Shall I take a look?"</p>
 <p>It was a ghost haunting Story that would have made an ordinary Woman shriek in fear, but Yukiko and Nagumo Sian seemed completely unfazed.</p>
 <p>Yukiko, a Succubus who could create various illusions, and Nagumo Sian, a Dosa who used immortal magic, did not fear ghosts because they viewed them as merely another Resource.</p>
@@ -56,10 +56,10 @@ chapter = 992
 <p>We were immediately guided to the mansion's restaurant. Because by waiting for Nagumo Sian's leaving work time, it had already become Evening.</p>
 <p>"Since guests were coming today, I paid a little more attention."</p>
 <p>The chef who came with Tosen Nobumichi had excellent Skill, so I usually enjoyed satisfying meals, but today, even more delicious dishes would be served. Tsukiyo, my Disciple and gluttonous Successor, walking beside me, also had her Eyes sparkling at Tosen Nobumichi's Words.</p>
-<p>"Junior-nim~! Sabu-nim~! Samo-nim~! Hello!"</p>
+<p>"Junior-nim! Sabu-nim! Samo-nim! Hello!"</p>
 <p>Mimata Chieri was in the restaurant. It seemed she had stopped by because her Sabu, Nagumo Sian, was coming to the mansion. Sakagami Rena, who was already staying at my mansion, also greeted Yukiko cheerfully.</p>
 <p>All the disciples of Nagumo Sian's lineage I had thought of earlier were gathered.</p>
-<p>"Ryuta-nim~!"</p>
+<p>"Ryuta-nim!"</p>
 <p>It was Linling, running towards me, cleverly saying "Ryuta-nim" instead of her usual "Jin Yong-tae-nim" in front of Yukiko and Nagumo Sian. I slipped my Arms under Linling's Armpits, then tossed her up and caught her. She quite liked this, you see.</p>
 <p>Of course, because she was an android with a mithril alloy skeleton, despite her child's Physique, Linling's weight was considerable, so not many people could toss and catch her as lightly as I could.</p>
 <p>As Linling giggled with delight, Yukiko and Nagumo Sian also looked at Linling with a motherly Smile. After Linling, Nagumo Sian, and Yukiko introduced the newcomers, we began our meal.</p>
@@ -75,8 +75,8 @@ chapter = 992
 <p>I asked Yukiko before going to wash. Thinking about it, her Expression had seemed a bit complex earlier, and I was curious what was wrong.</p>
 <p>"Later, I'll tell you later...."</p>
 <p>Her saying she'd tell me later only made me more curious. However, seeing Yukiko's Expression, it seemed she wouldn't answer if I asked again, so I nodded my Head and headed to the Shower Room to wash.</p>
-<p>Requested by Gojoy-nim, a scene from Chapter 993, Yukiko and Sian~!</p>
-<p>Starting with Yukiko~!</p>
+<p>Requested by Gojoy-nim, a scene from Chapter 993, Yukiko and Sian!</p>
+<p>Starting with Yukiko!</p>
 <p>I tried to create a scene where she had a slightly uneasy Expression, then saw Ryuta and smiled ㅎㅎ</p>
 <p>Since I couldn't think of any particular scene to create for Sian, I tried to create the attire she wore today ㅎㅎ</p>
 <p>After making it, the Kimono was too bright and colorful, and it felt like the dignity (?) of Taira Food's Boss wasn't quite captured, so I changed it a bit ㅎㅎ</p>

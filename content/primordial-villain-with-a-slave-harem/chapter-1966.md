@@ -111,7 +111,7 @@ chapter = 1966
 <p>Nessa recognized the gentle voice and the pet name.</p>
 <p>The sweet lady who had helped her with the towels was being pounded against the other side of the wall.</p>
 <p>Her first theory had been correct after all. Today must belong to the kind woman, and the others were probably bathing while the couple enjoyed a few moments alone.</p>
-<p>"Harder. I wanna hear this bitch scream~" another woman demanded from beside her. "Conduct your husbandly duties properly."</p>
+<p>"Harder. I wanna hear this bitch scream" another woman demanded from beside her. "Conduct your husbandly duties properly."</p>
 <p>"On it."</p>
 <p>The blows against the wall accelerated.</p>
 <p>"Ah! Ahh!"</p>
@@ -121,7 +121,7 @@ chapter = 1966
 <p>"Why would I ever stop?"</p>
 <p>The man sounded remarkably calm for someone driving his wife into the wall hard enough to disturb the neighbouring furniture.</p>
 <p>A third woman moaned, long and shameless, before her voice broke into a startled yelp.</p>
-<p>"Your hand! Hie~! That’s cheating!"</p>
+<p>"Your hand! Hie! That’s cheating!"</p>
 <p>Laughter mixed with the moans. Water surged over the rim of the bath and splashed across the floor next door.</p>
 <p>Nessa’s tidy little schedule died an extremely noisy death.</p>
 <p>One wife was being fucked. Another was close enough to encourage him, and a third had apparently found one of his hands. That still left his mouth and his other hand entirely unaccounted for.</p>
@@ -133,7 +133,7 @@ chapter = 1966
 <p>"Who is in that room?"</p>
 <p>"I cannot reveal such information..."</p>
 <p>Another smack struck the wall.</p>
-<p>"Fuck! Again~!"</p>
+<p>"Fuck! Again!"</p>
 <p>"It’s that deranged procession from before, isn’t it."</p>
 <p>Nessa hung the cloak and smoothed it with trembling care. Her face burned, made worse by having to discuss the neighbours’ sex life while the kind woman loudly begged her husband to keep fucking her.</p>
 <p>The wives had devised a much more efficient arrangement than the one she had imagined downstairs.</p>
@@ -150,7 +150,7 @@ chapter = 1966
 <p>He placed the nightdress at the foot of the bed. His partner rolled onto her side, pulled the spare pillow over her exposed ear, then pointed at the wardrobe.</p>
 <p>"Finish putting those away. Quietly."</p>
 <p>The demand became rather pointless when a woman shrieked through the adjoining wall.</p>
-<p>"KYAA~!"</p>
+<p>"KYAA!"</p>
 <p>*Pap. Pap. Pap. Pap.*</p>
 <p>"She’s cumming! Don’t slow down!"</p>
 <p>Nessa crouched to collect the discarded shoes. She had no reason to listen. None whatsoever.</p>
@@ -169,7 +169,7 @@ chapter = 1966
 <p>"Then why are you still here?"</p>
 <p>Nessa set the shoes beside the wardrobe and hurried toward the exit. Her hand had just reached the latch when a deep, wet thrust landed next door.</p>
 <p>*Pap!*</p>
-<p>"AHN~!"</p>
+<p>"AHN!"</p>
 <p>Marielle threw her pillow across the bed.</p>
 <p>"ENOUGH!"</p>
 <p>Andre dropped a slipper into the trunk.</p>

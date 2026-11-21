@@ -13,11 +13,11 @@ chapter = 63
 <p>One was Milia, his maid and the other was unsurprisingly Camelia. They were now sitting next to Sol, watching him as he sleeps.</p>
 <p>“Nevertheless, for him to not even wake up with two people so close to him. Perhaps Lilith isn't training him enough?"</p>
 <p>"This isn't the case. I assure you that his highness senses are incredibly sharp. It's just that he doesn't consider us as a threat and as such his sense didn't wake him up."</p>
-<p>"Fufufu~! I see. In short, he felt at ease next to us."</p>
+<p>"Fufufu! I see. In short, he felt at ease next to us."</p>
 <p>It was truly incredible to see a Maid and the one equal to the king of the country speaking as if they were on equal terms.</p>
 <p>"So, how is the investigation going on your side?"</p>
 <p>"The Eyes are doing their jobs. It shouldn't take long for us to gather enough evidence. What about the inquisition?"</p>
-<p>"Heh~Those conservatives old bastard of the inquisition didn't want to help at first. But I am very persuasive."</p>
+<p>"HehThose conservatives old bastard of the inquisition didn't want to help at first. But I am very persuasive."</p>
 <p>Milia nodded, not bothering to try to understand better.</p>
 <p>"Soon, all his highness future worries will be blown away without even the slightest resistance."</p>
 <p>Camelia nodded at those words before focusing once again on the sleeping Sol. The more she looked at him the looser her expression became. It reaches the level where she was even salivating.</p>
@@ -30,7 +30,7 @@ chapter = 63
 <p>Sol, who felt a moist sensation transmitted to his penis slowly opened his eyes. What he saw, made him wonder if he was having a wet dream.</p>
 <p>The first thing his brain registered was Camelia and Milia wearing a see-through negligee made out of a very thin material. The white fabric covered their bare skin, but it clung to their bodies, accentuating the feminine curves of their boobs and butt.</p>
 <p>The second thing it registered was the fact that they were currently sucking and licking his penis. The sensation was simply out of this world.</p>
-<p>"Fufufu~you thought you were having a wet dream, but it was us!"</p>
+<p>"Fufufuyou thought you were having a wet dream, but it was us!"</p>
 <p>Seemingly feeling the change in his breathing rhythm, Camelia, who was previously licking the shaft of his penis let go of it before asking.</p>
 <p>"Do you like it?"</p>
 <p>Closing his eyes and enjoying the situation he nodded.</p>
@@ -40,7 +40,7 @@ chapter = 63
 <p>“It is as you see it, this lowly maid and Saint Camelia are now serving you.”</p>
 <p>Slowly feeling the urge build-up, "I am about to cum."</p>
 <p>Sol calmly warned before letting go and ejaculating.</p>
-<p>"Ah~ !" "Nn!"</p>
+<p>"Ah !" "Nn!"</p>
 <p>Seeing the cloudy white liquid land on the breast and face of those two women, Sol let out a sigh of contentment.</p>
 <p>"Fufufu. Seems like your highness really appreciated it."</p>
 <p>Smiling with her cum covered face, Milia licked some of it with her tongue. Camelia meanwhile had a dazed expression while her face was growing redder and her breath rougher.</p>
@@ -60,7 +60,7 @@ chapter = 63
 <p>Camelia, seeing this exclaimed in admiration.</p>
 <p>"So this is the Milk. It's the first time I saw a woman, not pregnant lactate."</p>
 <p>The rod contained between them was overwhelmed. The pleasure of their double titjob stimulated his lust to the point he thought his lower body would melt away.</p>
-<p>“Nn~! What do you think, Sol? Does this feel good?”</p>
+<p>“Nn! What do you think, Sol? Does this feel good?”</p>
 <p>Seemingly stimulated by the act of servicing him with another woman, Camelia stared at him with melted eyes.</p>
 <p>"Of course. This is really great."</p>
 <p>He couldn't use words to describe how good he felt currently. After all that training, the pleasure was even more overwhelming.</p>

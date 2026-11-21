@@ -5,7 +5,7 @@ weight = 1
 chapter = 1
 +++
 
-<p>"Harder! Yes, just like that! Ah~!"</p>
+<p>"Harder! Yes, just like that! Ah!"</p>
 <p>Euphoric, feminine moans sounded from the speakers of a phone, accompanied by vibrant images of a man and a woman engaging in adult activities flashing on the screen.</p>
 <p>'Damn...! I wish I could earn money by humping such beautiful girls for a living...' A young man sighed inwardly as he watched the video dejectedly.</p>
 <p>He stood from his bed without averting his gaze from the screen even for a moment and went to the fridge. 'Empty. That's just lovely...' Kaiden grumbled inwardly, then went to check a cupboard in hopes of stumbling upon some snacks. However, just as he was about to reach his destination, the man slipped on something.</p>

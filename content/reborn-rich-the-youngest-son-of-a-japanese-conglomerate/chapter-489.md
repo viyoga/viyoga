@@ -23,12 +23,12 @@ chapter = 489
 <p>Kurayama Kazuma muttered quietly while looking at the map.</p>
 <p>###</p>
 <p>After finishing a somewhat strange sex session with Saionji Diana, I went down to the basement where the Am Sang branch was located, and only Eve was there. Otagi Yuka, whom I had run into when leaving the Am Sang branch to go to the love hotel, seemed to have finished her business at Am Sang and gone home.</p>
-<p>"Yuka-chan just left~!"</p>
+<p>"Yuka-chan just left!"</p>
 <p>"Ah, is that so? She was here for quite a while, huh?"</p>
 <p>Since we were in the love hotel room for quite a while, Otagi Yuka having just left meant that she had been hanging out here for quite a long time. Could it be.... Did she broadcast my live sex show from here?</p>
 <p>"I'm going now, Eve. Goodbye, Saionji-ssi too."</p>
-<p>"Yes. Be careful on your way, Teacher~!"</p>
-<p>"Come again, Ryuta-niim~!"</p>
+<p>"Yes. Be careful on your way, Teacher!"</p>
+<p>"Come again, Ryuta-niim!"</p>
 <p>I said goodbye to Saionji Diana and Eve. Saionji Diana had some business to take care of, so she said she had something to talk about with Eve, so we decided to part ways here.</p>
 <p>If they're going to make a new combat cyber implant, they'll need to talk a bit. It's also within walking distance from here to my house, so I didn't think I needed to wait and give them a ride.</p>
 <p>I was driving home in the car I had come in. It was quite late because I had sex, so it was already close to midnight. When I think about it, Saionji Diana lasted longer than I thought for a virgin. Of course, she had the help of the Holy Pillar effect, but that doesn't solve mental fatigue. She definitely had the toughness of a swordswoman.</p>
@@ -56,9 +56,9 @@ chapter = 489
 <p>"Then where should we meet?"</p>
 <p>"Meet me in front of the convenience store next to Prime Mall at 4 o'clock."</p>
 <p>When I asked where to meet, Minamoto Risa pointed to the front of the convenience store where I had met Seizawa Shii. As expected, since they're close friends, they go to similar places.</p>
-<p>"Hee~! Risa-tan, I met Ryuta-cchi there too!"</p>
+<p>"Hee! Risa-tan, I met Ryuta-cchi there too!"</p>
 <p>"Ah, really?!"</p>
-<p>"I guess friends think alike~!"</p>
+<p>"I guess friends think alike!"</p>
 <p>Seizawa Shii, who had been talking to Minamoto Risa for a while, suddenly pointed at me with her index finger while standing at the podium.</p>
 <p>"Ryuta-cchi! You have to show our Risa-tan the best date! Got it?"</p>
 <p>"I told you it's not a date."</p>
@@ -76,7 +76,7 @@ chapter = 489
 <p>The students were guessing the events based on their experience with the sports day so far. Archery, horseback riding, and fencing.... As expected, the events were different from regular schools. I heard that there were similar events like relay races, but still, unfamiliar events were coming out of the students' mouths at the sports day. Teachers also have to participate in some events, but I hope I don't have to participate in events I don't know about.</p>
 <p>"Okay, let's talk about that in the club after the closing ceremony. I'll finish now.... Everyone worked hard today!"</p>
 <p>"Yeah, Ryuta-cchi worked hard too!"</p>
-<p>"See you tomorrow, Teacher~!"</p>
+<p>"See you tomorrow, Teacher!"</p>
 <p>"Good job, Teacher!"</p>
 <p>After finishing the closing ceremony today, I went straight home. Today is a date with my target, Minamoto Risa, so I have to go as neatly as possible. It's not that I didn't put effort into meeting the other students, but I was going to pay a little more attention.</p>
 <p>I dressed up in a way that wasn't too obvious, and went to the convenience store near the Miyashi Prime Mall department store where I had promised to meet Minamoto Risa. I looked at my watch and it was 3:50. I guess I was a little excited. I usually come 5 minutes before the appointment, but I arrived 10 minutes early.</p>

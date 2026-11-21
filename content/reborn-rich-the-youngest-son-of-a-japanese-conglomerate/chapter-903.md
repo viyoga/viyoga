@@ -19,7 +19,7 @@ chapter = 903
 <p>"We should depart immediately once Sabu joins us. Please let me know when the exact Position is ascertained."</p>
 <p>As I spoke, Shimokawabe Airen, Alik, and Naruse Shiyo arrived. Alik called me, "Ryuta!" and ran to me, hugging me. I stroked Alik's Head and told Shimokawabe Airen and Naruse Shiyo that they had worked hard.</p>
 <p>And soon after, all the groups that had fought today were arriving one after another. Except for Saionji Diana, whose cyber implant Arm had been torn off, everyone was safe, but they all looked quite exhausted, as if they had fought a fierce battle.</p>
-<p>"Ugh, Ryuta-jji...! I'm sooooo tired~!"</p>
+<p>"Ugh, Ryuta-jji...! I'm sooooo tired!"</p>
 <p>Seizawa Shii swayed, came to the opposite side where Alik was holding my Arm, and leaned her Body against me. Then the old man Yoda approached Seizawa Shii.</p>
 <p>"Did you Handle Funayama Seigo well...?"</p>
 <p>"Of course, instead of old man Yoda-nim, I pulled out his tongue and killed him. I did well, didn't I?"</p>
@@ -47,7 +47,7 @@ chapter = 903
 <p>"That hurts!"</p>
 <p>"I hit you so it would hurt! You abandon your school without even telling Sabu?"</p>
 <p>Ah, so that's why she hit me. If it was about Shinkai Yatsude, honestly, I had nothing to say. As I just rubbed my Head and said nothing, Fujigasaki Rinka approached her friend, Shimokawabe Airen.</p>
-<p>"Airen~! You're not hurt, are you?"</p>
+<p>"Airen! You're not hurt, are you?"</p>
 <p>"No, I'm not hurt. You haven't changed, Rinka."</p>
 <p>Perhaps because they were friends, the two were having a natural Conversation without awkwardness. Although I was curious what they were talking about, I had no choice but to turn my attention to Athena Mannerheim, who had approached at just the right time, to talk with her.</p>
 <p>"I just received Contact."</p>
@@ -69,5 +69,5 @@ chapter = 903
 <p>MidNightSKY-nim requested: Liz-tang, blushing while thinking of Linling and Ryuta-jji smiling brightly for Children's Day!</p>
 <p>Linling first!</p>
 <p>I couldn't think of a way to express Children's Day, so I just dressed them in kindergarten uniforms haha</p>
-<p>Liz-tang~!</p>
+<p>Liz-tang!</p>
 <p>Kkiyot!</p>

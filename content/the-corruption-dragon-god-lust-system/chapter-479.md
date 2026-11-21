@@ -25,7 +25,7 @@ chapter = 479
 
 <p>Aeryn’s head lowered, her face burning a vibrant red. Did Qingyi really need to bring up those indecent things?</p>
 
-<p>“Ah…” Elize released Qingyi’s cock from her lips for a brief moment, smiling at the beauty behind him. “Just hang in there, sister Aeryn! I’m sure you’ll get used to it soon, fufufu~~”</p>
+<p>“Ah…” Elize released Qingyi’s cock from her lips for a brief moment, smiling at the beauty behind him. “Just hang in there, sister Aeryn! I’m sure you’ll get used to it soon, fufufu”</p>
 
 <p>That only made Aeryn even more embarrassed, her body trembling as she blushed even more.</p>
 
@@ -45,7 +45,7 @@ chapter = 479
 
 <p>At that moment, he felt his cock throb painfully in the tight seal of Elize’s lips. Her cheeks puffed out as a huge stream of cum invaded her mouth.</p>
 
-<p>“Gulp… gulp… aghnn~~ hubby~~ gulp…. so delicious~~ hehehe~~”</p>
+<p>“Gulp… gulp… aghnn hubby gulp…. so delicious hehehe”</p>
 
 <p>Elize’s greedy gulps echoed throughout the bathroom, and Aeryn lowered her head.</p>
 

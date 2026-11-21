@@ -109,6 +109,6 @@ chapter = 366
 
 <p>‘Can you take it, Ruxue?’ Qingyi asked mentally.</p>
 
-<p>“That’s the best steel in heaven, don’t worry about the heat, fufufu~~.” Ruxue replied, her intoxicatingly sweet laugh taking over Qingyi’s mind.</p>
+<p>“That’s the best steel in heaven, don’t worry about the heat, fufufu.” Ruxue replied, her intoxicatingly sweet laugh taking over Qingyi’s mind.</p>
 
 <p>Unfortunately, he didn’t have much time to enjoy it and soon realized that the young lion was also preparing something.</p>

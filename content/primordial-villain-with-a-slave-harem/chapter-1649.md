@@ -31,7 +31,7 @@ chapter = 1649
 <p>"Forgive me, Lord Quinlan, if you are listening."</p>
 <p>Nyxara inclined her head to Sylvaris and grinned. "I don't think either of them would think weirdly of you, though... In fact... Just think about it. Mother and daughter, sharing the same bed-"</p>
 <p>"No." Sylvaris was firmer now.</p>
-<p>"Hmm. Maybe once you age a bit more. Not even a millennium old, what a young and innocent lass~" Nyxara purred, and before the silver-haired elf could reply, moved on.</p>
+<p>"Hmm. Maybe once you age a bit more. Not even a millennium old, what a young and innocent lass" Nyxara purred, and before the silver-haired elf could reply, moved on.</p>
 <p>"Liora. Shallan."</p>
 <p>The two veterans straightened a fraction in unison.</p>
 <p>"We are happy that our Kaelira found her wish, my Lady," Liora said carefully. Shallan picked up the line without rehearsal. "But we... cannot imagine ourselves in the harem. Lord Quinlan is the most amazing man we have ever met." Another breath, shorter. "But he can also be... overbearing."</p>
@@ -44,7 +44,7 @@ chapter = 1649
 <p>"...I adore Lord Quinlan a lot," she said, the words pushed out careful and earnest. "But you are right, my Lady." Her chin dipped.</p>
 <p>She said it softly.</p>
 <p>Nyxara's expression eased.</p>
-<p>"...Who knows, sweet thing," she said, in a voice the rest of the line had not heard her use yet. "Things can change. It can change for all of you... After all, his big heart has enough space for lots and lots of loving maidens~"</p>
+<p>"...Who knows, sweet thing," she said, in a voice the rest of the line had not heard her use yet. "Things can change. It can change for all of you... After all, his big heart has enough space for lots and lots of loving maidens"</p>
 <p>Ria's eyes did not lift, but the corner of her mouth twitched once.</p>
 <p>The succubus's gaze moved on.</p>
 <p>It landed on Raika.</p>
@@ -60,7 +60,7 @@ chapter = 1649
 <p>"A few months ago, he could not have touched a strand of your hair. Now? Even if you dueled him a thousand times, you would never win."</p>
 <p>Raika's gauntleted fist tightened at her side.</p>
 <p>"...You don't know that."</p>
-<p>"That's the thing, though~ I do~ With absolute certainty~"</p>
+<p>"That's the thing, though I do With absolute certainty"</p>
 <p>Nyxara sang it, low and amused, the older edge slipping in for one syllable before it slipped back out.</p>
 <p>"..." Raika's eyes narrowed into fiery slits.</p>
 <p>Then Nyxara's gaze moved one final position.</p>

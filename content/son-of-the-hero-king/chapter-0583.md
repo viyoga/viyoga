@@ -127,7 +127,7 @@ chapter = 583
 <p>Her back was straight. Her gait was steady and her eyes held no fears, no hesitation in them.</p>
 <p>She was walking like a proud wolf, a proud knight, and a proud princess, causing all those with negative thoughts about her to simply look down in shame at the pettiness of their feelings.</p>
 <p>Truly this was a moment where she was shining brighter than anyone else. Soon, she reached the end of the hay of honor but this was not the end.</p>
-<p>Tack~!</p>
+<p>Tack!</p>
 <p>A calm sound resonated as a lotus flower made out of ice appeared floating below her feet. Soon, more and more of them appeared, each time Setsuna walked forward, bringing her higher and higher until she reached the same altitude as Kun Peng.</p>
 <p>“Great Sage, you have called.”</p>
 <p>“Ohoh. How surprising. I wonder what a wolf is doing in the air.”</p>
@@ -207,7 +207,7 @@ chapter = 583
 <p>Kun Peng was completely paralyzed by Setsuna’s domain. The only reason he could even think and speak was because of his own speed.</p>
 <p>He remembered clearly how high and mighty he had been when he came. But now…Was he truly about to lose? Like this? Without even being to show the slightest skill?</p>
 <p>He refused this. He rejected this reality. He would not go down without a fight.</p>
-<p>‘Kuh~!’</p>
+<p>‘Kuh!’</p>
 <p>His aura rose as he tried to move forward, even if to take a little step in this world where time itself was frozen.</p>
 <p>His fingers started to wriggle a little and he was sure that if he was given more time, just a little more he might have broken free.</p>
 <p>Sadly for him, the one controlling time in this place was Setsuna.</p>

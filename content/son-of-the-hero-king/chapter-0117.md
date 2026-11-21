@@ -71,7 +71,7 @@ chapter = 117
 <p>This time, Ares really began to frown.</p>
 <p>"Who does this bottle belong to?"</p>
 <p>Ares tilted his head at the sudden question, "What's the matter?"</p>
-<p>"Hahha~Nothing. I was just lost in thoughts. So, who is the original owner of this liquor?"</p>
+<p>"HahhaNothing. I was just lost in thoughts. So, who is the original owner of this liquor?"</p>
 <p>If after all this, Ares didn't begin to discern that something was seriously wrong, then he would have wasted all those years of training.</p>
 <p>His eyes widened a little before he began to break out in cold sweats.</p>
 <p>Still, he answered the question without hesitation, "Your highness shouldn't worry. This belongs to my grand uncle. It’s a very important memento that he used on important occasions, such as the birth of my cousin.”</p>

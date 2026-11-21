@@ -37,7 +37,7 @@ chapter = 1074
 <p>When I expressed my gratitude, both were happy. Rather than the Value of the Item, my liking the Gift I received seemed to be a better sight. No matter that I had saved Arisu in New Rochelle, I felt a little Sorry to just receive.</p>
 <p>"And...." "The Gift isn't over."</p>
 <p>Huh? The Gift isn't over? Is there another Gift? As I wondered, Arisu smiled and handed me a Small Box. It felt like something the Size of a single Finger was wrapped.... If it's this Size, is it something like a Key?</p>
-<p>"Can I open it?" "Yes, open it~!"</p>
+<p>"Can I open it?" "Yes, open it!"</p>
 <p>At my question, Arisu smiled and said, as if telling me to open it quickly. I opened the Box's lid. Inside the Box, a universal connection terminal, used like a USB in the current Era, was inside.</p>
 <p>"?"</p>
 <p>Naturally, in this state, because I didn't know what was inside the universal connection terminal, I looked at the two of them with a question mark floating.</p>
@@ -47,13 +47,13 @@ chapter = 1074
 <p>"You know, when Ryuta first met Phantom Thief Francois before...."</p>
 <p>Ah, I wondered what she was going to say. She was going to talk about Phantom Thief Francois. No matter that it was her own Home, because security was important, it seemed she thought it better to Whisper. Since the Phantom Thief Francois Matter was kept strictly Secret.</p>
 <p>By the way, when I first met Phantom Thief Francois.... When was that? Ah! Is she talking about meeting him at the Laboratory during the Kurotsukidoo Battle before? Fought with a Frustrating Telekinesis user before meeting him?</p>
-<p>"Laboratory?" "Uh-huh! There~! I'll give you the Data I obtained there as a Gift!"</p>
+<p>"Laboratory?" "Uh-huh! There! I'll give you the Data I obtained there as a Gift!"</p>
 <p>Clearly, that Laboratory was Taira Robotics' Secret Laboratory.... Is this really a Gift? Aren't they just trying to dump it on me?</p>
 <p>I was a little suspicious, but seeing Arisu's innocently bright Expression, I felt Sorry for being suspicious for no reason. She must have thought the Data inside would be useful to me.</p>
 <p>Seeing that there were Attackers then, it must certainly be important Data. Even at that time, "What on earth were they trying to get to dare Attack Taira's Laboratory?" I had thought, but I never imagined this Data would fall into my Hands.</p>
 <p>"Thank you. But do you know what kind of Data it is?" "No, Grandfather is scary, and.... Taira Robotics had nothing to do with our Business, so I was Satisfied with just stealing it."</p>
 <p>Hmm.... They're not really dumping a problem on me, are they? I'll know once I check the Data. I nodded my Head and put the universal connection terminal into my Embrace. I'll show this to Linling when I go to Japan.</p>
-<p>"Thank you. I'll use it well." "Yes~! Ryuta will be able to use it well!"</p>
+<p>"Thank you. I'll use it well." "Yes! Ryuta will be able to use it well!"</p>
 <p>Since I received quite a lot of Gifts today, I couldn't just wipe my mouth clean and leave. I had to give some Repayment. Originally, I had intended to repay them with Service with my Body, but because of Taira Gensuke's Attack, I had to leave, so I couldn't even do that.</p>
 <p>"You know I built a Home in Neo Tokyo, right?" "Yes, the one Gensuke just attacked?" "You said you splendidly repelled him, but is the Mansion alright?" "Probably, it'll be fine. I spent quite a lot of Money."</p>
 <p>I brought up the Story to invite them to my Mansion, but Arisu and Aunt Nae asked me, worrying if the Mansion was alright. Even if I invited them, it was a Place that had allowed an Attack because of Gensuke, so I felt a bit disgraced. Still, those in the Mansion weren't pushovers, so no part of it would have been broken or anything.</p>
@@ -66,4 +66,4 @@ chapter = 1074
 <p>Naturally, enjoyment meant Sex. At my Whisper, both looked at me with flushed Expressions.</p>
 <p>"I'll look forward to it, Ryuta!" "Ufufufu, we'll be able to enjoy ourselves after a long time, won't we?"</p>
 <p>It's unavoidable that they're disappointed about not being able to do it today, but in Japan, I intended to make the two Phantom Thief mother and daughter feel incredibly good. Even now, they are flushed with Expectation, but I'll have to make them feel even better than their Expectation.</p>
-<p>Today's changed Cover B-cut~! When creating Cover candidates, I didn't use a detailer (Face upscale), so the Faces were blurry hehe. Only the finally selected Cover combines the detailer and overall upscale hehe. Gojoy-nim requested Tetsu Kagerou's usual Attire and Underwear~! Usual Attire~! Kkyut Underwear~! I didn't know when she was in her cyber Suit, but she has an incredibly slender Waist ㄷㄷ</p>
+<p>Today's changed Cover B-cut! When creating Cover candidates, I didn't use a detailer (Face upscale), so the Faces were blurry hehe. Only the finally selected Cover combines the detailer and overall upscale hehe. Gojoy-nim requested Tetsu Kagerou's usual Attire and Underwear! Usual Attire! Kkyut Underwear! I didn't know when she was in her cyber Suit, but she has an incredibly slender Waist ㄷㄷ</p>

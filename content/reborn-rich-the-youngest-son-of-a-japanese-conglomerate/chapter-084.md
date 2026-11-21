@@ -24,9 +24,9 @@ chapter = 84
 <p>,Um, she's a senior in high school. She's working hard since it's an important time for her. So, her grades went up and I got a bonus."</p>
 <p>I see. Since Han Yu-gyeong-ssi invested an additional 20 million won in Health Miracle, it seemed like she came from a pretty well-off family.</p>
 <p>,Then are you paying for dinner?"</p>
-<p>,Huh? Isn't it obvious? Yong-tae came all the way to Seoul for me, so I have to pay~. And I already paid when I made the reservation."</p>
+<p>,Huh? Isn't it obvious? Yong-tae came all the way to Seoul for me, so I have to pay. And I already paid when I made the reservation."</p>
 <p>Han Yu-gyeong-ssi, asking with wide eyes as if it were obvious, was so cute that I kissed her without realizing it. Then, Han Yu-gyeong-ssi's face turned red and she pushed me away.</p>
-<p>,Aheung, no~! I ate doenjang jjigae. I'll give you plenty of kisses later."</p>
+<p>,Aheung, no! I ate doenjang jjigae. I'll give you plenty of kisses later."</p>
 <p>I didn't taste the doenjang when I kissed her briefly just now, but there must be something women can't tolerate. Seeing Han Yu-gyeong-ssi slightly distancing herself in case I kissed her again, I let out a dumbfounded laugh and picked up my chopsticks again.</p>
 <p>,Then I should eat quickly since I want to kiss you."</p>
 <p>,Eat slowly, or you might get indigestion."</p>
@@ -44,13 +44,13 @@ chapter = 84
 <p>,Yeah, I joha you."</p>
 <p>,Heehee...."</p>
 <p>I shouldn't let her drink any more. I finished my remaining highball in one shot and also drank the rest of Han Yu-gyeong-ssi's highball.</p>
-<p>,Aang~! That's mine~!"</p>
+<p>,Aang! That's mine!"</p>
 <p>Of course, Han Yu-gyeong-ssi whined when I drank her highball, but it was only for a moment, and when I picked up a snack and put it in her mouth, she happily accepted it. This feels like she's acting like a puppy... It's fine as long as she's cute.</p>
 <p>,Heueum....! Yong-tae smells good...."</p>
 <p>Han Yu-gyeong-ssi put her nose on my body and took a deep breath. Thanks to the permanent perfume I took before, I don't use any perfume separately now. That's because a good smell comes from my body odor itself. That's why Yukiko likes the smell of my crotch more....</p>
 <p>Slap!</p>
 <p>Han Yu-gyeong-ssi suddenly hit my arm. She pouted and glared at me.</p>
-<p>,No~!! You were thinking about another girl just now, weren't you?"</p>
+<p>,No!! You were thinking about another girl just now, weren't you?"</p>
 <p>I flinched without realizing it. How did she know? Are women psychics? Thinking that I should be careful even with my thoughts from now on, I smiled and stroked Han Yu-gyeong-ssi's hair.</p>
 <p>,No, why would I think about another girl when Yu-gyeong-ssi is right in front of me?"</p>
 <p>,Really? Heehee, I don't think about other guys either. I only have Yong-tae."</p>
@@ -68,17 +68,17 @@ chapter = 84
 <p>,Let's keep wearing it today."</p>
 <p>,Heehee♡"</p>
 <p>Han Yu-gyeong-ssi smiled with a happy expression, as if she liked my excited reaction.</p>
-<p>My dick, which was already as hard as it could be, wanted to go inside Han Yu-gyeong-ssi right away. Unlike Han Yu-gyeong-ssi, who was wearing lingerie, I completely took off my clothes and ran towards Han Yu-gyeong-ssi naked. Han Yu-gyeong-ssi playfully covered her breasts, saying, ,Kyaa, pervert~!" and I kissed Han Yu-gyeong-ssi while caressing her whole body.</p>
-<p>,Haeueung~!! Yong-tae-ya...♥"</p>
+<p>My dick, which was already as hard as it could be, wanted to go inside Han Yu-gyeong-ssi right away. Unlike Han Yu-gyeong-ssi, who was wearing lingerie, I completely took off my clothes and ran towards Han Yu-gyeong-ssi naked. Han Yu-gyeong-ssi playfully covered her breasts, saying, ,Kyaa, pervert!" and I kissed Han Yu-gyeong-ssi while caressing her whole body.</p>
+<p>,Haeueung!! Yong-tae-ya...♥"</p>
 <p>As we touched each other's bodies and rolled around, we were soon in a 69 position, looking at each other's genitals. Han Yu-gyeong-ssi looked at my dick in front of her and began to lick it with care, as if it were a precious object. I also pushed Han Yu-gyeong-ssi's panties to the side and sucked on Han Yu-gyeong-ssi's pussy, which was tightly closed in a straight line.</p>
-<p>,Heuaang!! It feels so good~!"</p>
+<p>,Heuaang!! It feels so good!"</p>
 <p>Han Yu-gyeong-ssi, who was sucking on my dick, took her mouth off my dick and groaned. But she soon started sucking on my dick madly, as if not wanting to lose.</p>
 <p>,Keueuk...! Yu-gyeong-a, it feels good."</p>
 <p>Her fellatio skills had improved considerably, as if she had practiced with something. As the saying goes, ,remarkable improvement after three days of separation"? It had been much longer than three days since I met Han Yu-gyeong-ssi last time, so of course it felt much better than before.</p>
 <p>She groans as I make moaning sounds, which makes her even more excited, and she gushes out her vaginal fluids. And she shakes her head to give me more stimulation. Her tongue attacked my weak points like a living snake, and I couldn't come to my senses because of the sucking pressure and the way she opened her throat in between to suck me deeply.</p>
 <p>Indeed.... She was the protagonist. Such skill...!</p>
 <p>I had no choice but to ejaculate in Han Yu-gyeong-ssi's mouth before long. She was working so hard and it felt so good that it would be rude not to shoot.</p>
-<p>,Aaa~."</p>
+<p>,Aaa."</p>
 <p>Han Yu-gyeong-ssi opened her mouth with a proud expression, showing me the semen in her mouth, and swallowed it down.</p>
 <p>,Did it feel good?"</p>
 <p>,Yeah. It felt like my soul was being sucked into my mouth."</p>

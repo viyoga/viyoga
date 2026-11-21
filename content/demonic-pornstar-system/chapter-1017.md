@@ -42,7 +42,7 @@ chapter = 1017
 <p>"I know. I’m hanging it on my wall."</p>
 <p>Luna glanced from the shield to the enormous carcass.</p>
 <p>"Ahh..." the gamer girl exhaled, leaning back, stretching her hip. "That was fucking amazing."</p>
-<p>"Gotta admit, this fight was indeed cool~" Nyx purred, cracking her neck.</p>
+<p>"Gotta admit, this fight was indeed cool" Nyx purred, cracking her neck.</p>
 <p>"I can’t believe the supposed ’ordinary’ dungeon was actually ordinary..." Alexandra mused under her breath.</p>
 <p>"Are you suggesting our Japanese friends are bad at scouting?" Calypso asked, grinning.</p>
 <p>"N-no!! Of course not!" Alexandra yelped, then turned toward the demoness. "How can you even suggest such a thing?"</p>
@@ -64,7 +64,7 @@ chapter = 1017
 <p>He squeezed her fingers. "So do I, my beloved moon."</p>
 <p>Above them, Alice’s halo bobbed toward the pair.</p>
 <p>"You’re welcome," she chimed pointedly.</p>
-<p>"Thanks, little sis~" Aria reached up toward the halo, and it brightened under her fingers. "You’re amazing. Sincerely."</p>
+<p>"Thanks, little sis" Aria reached up toward the halo, and it brightened under her fingers. "You’re amazing. Sincerely."</p>
 <p>"But of course. I’m Kaiden’s sister!"</p>
 <p>"That you are."</p>
 <p>They started down the service stair. At the foot of the mountain, the crowd was pressing up to the cordon to watch the Ninth return with Eclipse.</p>
@@ -88,7 +88,7 @@ chapter = 1017
 <p>"Yes! Please!"</p>
 <p>"After we eat," Kaiden reminded her, then looked around his family. "Everyone feeling up to it?"</p>
 <p>Bastet lifted her head from his shoulder. "Very much so, Master."</p>
-<p>"I’m ready whenever you are, Darling~" Calypso smiled, showing him the arm Alexandra had healed.</p>
+<p>"I’m ready whenever you are, Darling" Calypso smiled, showing him the arm Alexandra had healed.</p>
 <p>Sonoda looked from the family to the red marks scattered across her map.</p>
 <p>"My lord... How many gates were you hoping to clear today?"</p>
 <p>Kaiden grinned. "How many can your people get ready for us?"</p>

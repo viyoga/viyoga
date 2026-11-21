@@ -17,24 +17,24 @@ chapter = 1832
 <p>Quinlan then looked at his first elven lover.</p>
 <p>She had been patient all day in a smithy that wasn’t hers, tender all afternoon through a milestone that wasn’t hers, and quiet at every moment that needed her quiet, which for Sera was the expensive part. None of it had escaped him.</p>
 <p>"Sera."</p>
-<p>"Mm~?" She glanced up from her work, caught what was in his eyes, and slowed. "...Oh."</p>
+<p>"Mm?" She glanced up from her work, caught what was in his eyes, and slowed. "...Oh."</p>
 <p>"Good girls deserve a reward."</p>
-<p>The Dawnbringer lit up from somewhere well beneath the skin. Then, because she was Sera, she immediately set about ruining it. "Well, naturally~" she purred, laying a modest hand over her heart. "I am always perfect. It is a heavy burden, but somebody in this family has to... Quin?" The combing stopped. "Why are you looking at me like-"</p>
+<p>The Dawnbringer lit up from somewhere well beneath the skin. Then, because she was Sera, she immediately set about ruining it. "Well, naturally" she purred, laying a modest hand over her heart. "I am always perfect. It is a heavy burden, but somebody in this family has to... Quin?" The combing stopped. "Why are you looking at me like-"</p>
 <p>He was on her before the sentence found its ending.</p>
-<p>"Kyaa~!"</p>
+<p>"Kyaa!"</p>
 <p>The pounce took her clean off Kaelira and down into the deep moss, and the yelp Sera loosed on the way was, by any honest measure, the happiest noise the forest had heard all day.</p>
-<p>"Mercy~!" she wailed, making no attempt whatsoever to escape, arms already winding around his neck in open contradiction of everything her mouth was doing. "Mercy, dreaded primordial! I am but a helpless elven maiden, alone and defenseless in the deep woods! Whatever shall become of my poor, innocent... ah. Ahh~"</p>
+<p>"Mercy!" she wailed, making no attempt whatsoever to escape, arms already winding around his neck in open contradiction of everything her mouth was doing. "Mercy, dreaded primordial! I am but a helpless elven maiden, alone and defenseless in the deep woods! Whatever shall become of my poor, innocent... ah. Ahh"</p>
 <p>"Time to feast," the Villain of the continent decreed, straight-faced, and set about keeping his word.</p>
 <p>What followed was, by the standards of Sera’s theater, a masterpiece with a very short run.</p>
 <p>She fluttered her lashes, she pleaded her innocence, she beat two dainty protests against his chest that both ended with her fingers gripping him closer, and she held the helpless-maiden voice through an admirable amount of begging that fooled no one, least of all the maiden herself.</p>
 <p>Then he hooked her knees over his arms, folded her down into the moss, and drove into her in one long, merciless stroke, granting her petition exactly as filed: none. The performance cracked straight down the middle, the tildes losing their curl first, then the words losing their order, until there were no words left at all, just Sera, loud and unscripted, heels locked at the small of his back, being thoroughly relieved of her veteran’s composure.</p>
-<p>"Hyan~! Ah! Ahn! W-wait... don’t wait... ahn~!"</p>
+<p>"Hyan! Ah! Ahn! W-wait... don’t wait... ahn!"</p>
 <p>Kaelira watched the whole production from one arm’s length away, propped on an elbow in the wreck of her own afterglow, and forgot to blink.</p>
 <p>She had known Sera was shameless. Everyone knew Sera was shameless; the reputation traveled ahead of her like perfume.</p>
 <p>But knowing it and watching it turned out to be two different disciplines entirely, because the veteran of the family, the lecturer, the composed author of today’s tutorial, was currently begging a primordial for a mercy she had specifically arranged not to receive, and enjoying herself more honestly than Kaelira had ever seen her enjoy anything.</p>
 <p>’The tales were censored,’ the smith realized, somewhere between scandal and awe.</p>
 <p>"You weren’t like this when you were teaching," she observed aloud, flat as an inspection report.</p>
-<p>"Sh-shut up~!"</p>
+<p>"Sh-shut up!"</p>
 <p>Kaelira did not, as it happened, shut up. But watching had its limits, and Kaelira had never in her life been content to watch a craft she could learn.</p>
 <p>The smith pushed herself up on arms that still trembled faintly, crawled the arm’s length over, and settled at the head of the moss, gathering Sera’s disheveled golden head onto her bare thighs and steadying it there with both palms, exactly the way it had been done for her.</p>
 <p>"Shh." She stroked her best friend’s hair back from her damp forehead, ears blazing, voice level as a load rating. "This big sis will take care of you."</p>
@@ -44,7 +44,7 @@ chapter = 1832
 <p>They went at it for hours.</p>
 <p>The silver light between the trunks warmed toward the amber of a day winding down, the little sun over the bower burned patiently on, and nobody anywhere suggested stopping.</p>
 <p>Kaelira came back for seconds with the shameless directness of a new convert, then thirds. She rode him with her palms braced on his chest and her ears flat with concentration, adjusting her hips by degrees until she found the angle that made her vision white out, and announced it out loud, like a measurement. After that she stopped announcing anything, because the angle did the talking, and the deep forest learned exactly what a smith sounded like when her discipline finally lost an argument.</p>
-<p>"AHN~! Hyah... ah...!"</p>
+<p>"AHN! Hyah... ah...!"</p>
 <p>Roughly like that.</p>
 <p>The tutorial continued in installments just like that, Sera demonstrating and Kaelira mastering, until the geometry stopped being worth tracking: a tangle of three in a moss hollow under a private sun, two elves and the man they’d chosen, warmth below and winter miles above, the birds long since resigned to the noise.</p>
 <p>Much later, Kaelira lay in the middle of the pile, listening to two heartbeats and the enormous, patient quiet of the trees. Sera was draped over her back, boneless, one arm flung across them both, and the dusk around them smelled like spring. One foot dangled past the bower’s edge, toes drawing slow lines through the moss, still talking to the forest.</p>

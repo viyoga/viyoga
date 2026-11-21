@@ -9,7 +9,7 @@ chapter = 353
 
 <p>Her plump, full buttocks squeezed against his chest, their incomparable softness sending shivers through Qingyi’s skin.</p>
 
-<p>“Nghnn~~ Q-qingyi, N-not there oghnn~~” Biyue moaned obscenely, her thick, soft thighs closing around Qingyi’s face as she searched for support, managing only to grab his hair.</p>
+<p>“Nghnn Q-qingyi, N-not there oghnn” Biyue moaned obscenely, her thick, soft thighs closing around Qingyi’s face as she searched for support, managing only to grab his hair.</p>
 
 <p>His hands rested on her plump buttocks, his fingers sinking into the voluptuous flesh as he massaged them.</p>
 
@@ -25,15 +25,15 @@ chapter = 353
 
 <p>To her surprise, in the next moment, Qingyi removed his hands from Biyue’s ass, grabbed her hips and then started pumping his own hips.</p>
 
-<p>“Nghnn~~ M-husband!” Qingxue gave a surprised moan, followed by a high-pitched, cute squeal, her breasts bouncing as she found herself bouncing on Qingyi’s cock non-stop.</p>
+<p>“Nghnn M-husband!” Qingxue gave a surprised moan, followed by a high-pitched, cute squeal, her breasts bouncing as she found herself bouncing on Qingyi’s cock non-stop.</p>
 
 <p>In the end, she could only indulge in debauchery as he moved his hips up and down.</p>
 
 <p>The tip of Qingyi’s cock hit the walls of her womb again and again, her buttocks slapping against his thighs before her whole inner body was thrown upwards, falling onto Qingyi’s cock again.</p>
 
-<p>“Nghnn~~ oghnn~~ you~~ s-hhameless~~ husband~~ oghnn~~” Qingxue moaned, grabbing her own breasts and squeezing them.</p>
+<p>“Nghnn oghnn you s-hhameless husband oghnn” Qingxue moaned, grabbing her own breasts and squeezing them.</p>
 
-<p>“Ahn~~ mghnn~~ Q-qingyi~~ h-hubby~~” Biyue’s moans followed soon after, her voice slightly higher-pitched than Qingxue’s.</p>
+<p>“Ahn mghnn Q-qingyi h-hubby” Biyue’s moans followed soon after, her voice slightly higher-pitched than Qingxue’s.</p>
 
 <p>The position of her arms made her huge breasts squeeze against each other, rippling gently as her body shuddered.</p>
 
@@ -51,7 +51,7 @@ chapter = 353
 
 <p>“What have you two been up to lately?” He asked.</p>
 
-<p>“Hm~~ mostly poison. I’m trying to master one of my family’s secret arts and also working on producing some poisons and antidotes… for if we need them in the future,” the poisonous beauty replied.</p>
+<p>“Hm mostly poison. I’m trying to master one of my family’s secret arts and also working on producing some poisons and antidotes… for if we need them in the future,” the poisonous beauty replied.</p>
 
 <p>“That snake you killed a few days ago helped me a lot with that…”</p>
 

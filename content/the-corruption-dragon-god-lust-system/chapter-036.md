@@ -21,21 +21,21 @@ chapter = 36
 
 <p>Feixue bit her lips, her thighs trembling as she felt his cock pressing against her pussy, the sensitive skin stretching.</p>
 
-<p>“Ah… ahhhn~ Mmph!” She moaned as he began to force his way in, her hands gripping the sheets tightly as she tried to relax.</p>
+<p>“Ah… ahhhn Mmph!” She moaned as he began to force his way in, her hands gripping the sheets tightly as she tried to relax.</p>
 
 <p>Qingyi pushed a little harder, feeling the resistance of her virginity against the tip of his pulsating member.</p>
 
-<p>“Nnngh! Haaah~” Feixue arched her back as he finally broke through the barrier, tears of pain and pleasure streaming down her flushed face.</p>
+<p>“Nnngh! Haaah” Feixue arched her back as he finally broke through the barrier, tears of pain and pleasure streaming down her flushed face.</p>
 
 <p>’It’s tight…’ Qingyi gritted his teeth, feeling her warm walls squeeze his member.</p>
 
 <p>It wasn’t anywhere near as tight and hot as Feiyan, but it was enough to satisfy him.</p>
 
-<p>“Mghn~~ Oh heavens~,” she moaned, her hips moving instinctively against him.</p>
+<p>“Mghn Oh heavens,” she moaned, her hips moving instinctively against him.</p>
 
 <p>Qingyi leaned down to capture one of her nipples between his lips, sucking it gently as he continued to sink into her moist, warm interior.</p>
 
-<p>“Nghnn~” Feixue opened her mouth as he finally reached her deepest part, slamming against the walls of her womb..</p>
+<p>“Nghnn” Feixue opened her mouth as he finally reached her deepest part, slamming against the walls of her womb..</p>
 
 <p>She could feel every vein, every pulse of his cock buried deep inside her, a visible bulge appearing in her delicate belly.</p>
 
@@ -43,7 +43,7 @@ chapter = 36
 
 <p>Each thrust drew a louder moan from her lips, her small body shaking against the soft mattress.</p>
 
-<p>“Onhh… oh… Ghnn~ F-fuck~” She gasped, her legs instinctively wrapping around his waist, her heels pressing into his back.</p>
+<p>“Onhh… oh… Ghnn F-fuck” She gasped, her legs instinctively wrapping around his waist, her heels pressing into his back.</p>
 
 <p>Qingyi increased his pace, his body glistening slightly with sweat under the moonlight coming through the window.</p>
 
@@ -55,13 +55,13 @@ chapter = 36
 
 <p>Qingyi held her firmly by the hips, leaving finger marks on the delicate skin, his thrusts becoming stronger, loud claps echoing through the room as skin hit skin.</p>
 
-<p>“Heavens… f-fuck~ I’m cumming! Hnng~” Feixue let out, her whole body convulsing with intense pleasure.</p>
+<p>“Heavens… f-fuck I’m cumming! Hnng” Feixue let out, her whole body convulsing with intense pleasure.</p>
 
 <p>Qingyi felt his own climax approaching, her insides clenching him like a hot, pulsating velvet fist.</p>
 
 <p>With a low growl, he pushed all the way in, cumming inside her in powerful jets.</p>
 
-<p>“Mnngh… aaahh~” Feixue moaned as she felt the hot liquid filling her.</p>
+<p>“Mnngh… aaahh” Feixue moaned as she felt the hot liquid filling her.</p>
 
 <p>Her inner walls pulsed violently, milking every drop out of him as her pussy squirted transparent liquids around the invading member.</p>
 

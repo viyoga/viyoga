@@ -117,7 +117,7 @@ chapter = 582
 
 <p>This bastard... Yana couldn&#x27;t help but look up and roll her eyes.</p>
 
-<p>But Maria seemed quite willing. She knelt behind the man, straightened up, spread his cheeks with her little hands, and started licking his asshole, making Luis uncontrollably moan, &quot;Ohhh~&quot;.</p>
+<p>But Maria seemed quite willing. She knelt behind the man, straightened up, spread his cheeks with her little hands, and started licking his asshole, making Luis uncontrollably moan, &quot;Ohhh&quot;.</p>
 
 <p>Seeing how easily and practiced her daughter was, she had clearly done this plenty. And the way she was so engrossed showed she had been thoroughly trained.</p>
 

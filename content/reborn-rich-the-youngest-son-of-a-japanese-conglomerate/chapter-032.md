@@ -25,7 +25,7 @@ chapter = 32
 <p>,This time, you do it for me.</p>
 <p>Alright, I'll show you my skills this time. I knelt down in front of Sinoe Misano's pussy. Sinoe Misano's pussy was the first lewd-looking pussy I had ever seen in real life, having only dealt with pretty pussies until now, and as expected of a married woman, it was moderately pigmented and her labia were stretched out. As if she was already anticipating my cunnilingus, her pussy was already wet with fluid flowing from her vaginal opening.</p>
 <p>,It looks slutty.</p>
-<p>,Haaang~ Don't say things like that....</p>
+<p>,Haaang Don't say things like that....</p>
 <p>I spread my tongue wide and tasted Sinoe Misano's pussy all over. It tasted a bit salty, probably because she hadn't washed right before. After I stroked it a few times with my tongue, I could see her shaking her pelvis as she enjoyed it. This time, I licked and stimulated between the labia majora and labia minora with the tip of my tongue.</p>
 <p>,Ha! Euhng! Aahng!</p>
 <p>,Dyoayeo?</p>
@@ -43,12 +43,12 @@ chapter = 32
 <p>Ah, you fucking bitch, I realigned my glans with her vaginal opening and thrust it in.</p>
 <p>,Heuaaang! It's too big!</p>
 <p>,You slutty bitch! Did I look that delicious to you?</p>
-<p>,Euheung~! I wanted to eat you from the beginning! Ryuta-gun is so handsome, and the outline of your dick was visible even through your pants~.</p>
+<p>,Euheung! I wanted to eat you from the beginning! Ryuta-gun is so handsome, and the outline of your dick was visible even through your pants.</p>
 <p>I didn't know that. I slowly pistoned, enjoying the feeling of Sinoe Misano's pussy. As seen with the condom, the size difference with her husband was significant, so even though it was a married woman's pussy, it gripped me tightly. Having been used to her relatively small husband's dick, and with her pussy having become tighter since her husband went on an overseas business trip, it felt even tighter.</p>
 <p>Hmm.... It feels good to do it after a long time.</p>
 <p>,How about this?</p>
 <p>I pressed my butt as close to her pussy as possible and rotated my waist. My glans, embedded in her cervix, stimulated and scratched her cervix.</p>
-<p>,Haaang~! I don't know! I just like it too much!</p>
+<p>,Haaang! I don't know! I just like it too much!</p>
 <p>,You were sucking my dick deep in your throat earlier, who did you do that with? Judging by the condom, it doesn't seem like your husband.</p>
 <p>,Heuaaang! Don't ask me things like that! Haaang haaang!</p>
 <p>I asked because I wanted to see the ugly true nature of a married woman. Sinoe Misano, feeling that I was angry because I was silent, spoke with a slight sob.</p>

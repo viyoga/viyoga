@@ -53,7 +53,7 @@ chapter = 907
 
 <p>"You seem to think very highly of me, huh?"</p>
 
-<p>"Well... how could I not? You know my last few days here have been nothing but your wives telling me how amazing you are, right? They seem to be trying to brainwash me, and it’s working, fufufu~"</p>
+<p>"Well... how could I not? You know my last few days here have been nothing but your wives telling me how amazing you are, right? They seem to be trying to brainwash me, and it’s working, fufufu"</p>
 
 <p>Yuehan let out a sweet, elegant chuckle, gracefully covering her lips with her fingertips.</p>
 

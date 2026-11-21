@@ -71,7 +71,7 @@ Lucifer smiled and explained, "you're in the Werewolf Continent. I found a villa
 
 "Oh, by the way, they hate Vampires to their core, so good luck trying not to get killed. Also, you only have Dark, Death, and Destruction elemental energies for use. I've sealed your affinities for the other elements."
 
-"I am watching from a bit away, if you need any help, don't call me. Sayonara~"
+"I am watching from a bit away, if you need any help, don't call me. Sayonara"
 
 Lucifer left after saying so, making Lith further annoyed.
 

@@ -15,8 +15,8 @@ chapter = 104
 <p>"It’s good to be back inside the cave I was privileged to explored first" Kent smiled and then began thrusting his dick in. The feeling of ecstasy immediately overwhelmed Vexthra, who started singing her moans out.</p>
 <p>"I want it...rough", Vexthra said through her moan as Kent began thrusting deep into her. She perfectly crafted his dick, and now, she was having it inside her like how it was meant to be.</p>
 <p>"I will do as you say my goddess" Kent intensified his thrusting, causing Vexthra to intensify her moans.</p>
-<p>"Mmmmhhh~"</p>
-<p>"AaaaahhhHh~"</p>
+<p>"Mmmmhhh"</p>
+<p>"AaaaahhhHh"</p>
 <p>She was moaning so loud that the sound produced from their skin hitting each other was drawn.</p>
 <p>Kent was going hard like she wanted. Of course, although she asked for rough, Kent wouldn’t play dirty by using the Divine Pervert Touch skill to make her feel things.</p>
 <p>No, Kent came to spend the moment with her. The last thing he wanted was to waste it using Overpowered skills.</p>

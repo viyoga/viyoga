@@ -5,7 +5,7 @@ weight = 115
 chapter = 115
 +++
 
-<p>,Kyaa~! What?"</p>
+<p>,Kyaa! What?"</p>
 <p>Mimata Chieri, who was covering her chest and screaming slightly, seemingly surprised by the sudden psychokinetic nipple attack, asked back as if she didn't understand.</p>
 <p>,I knew there were espers... I didn't know Sunbae-nim had psychic powers."</p>
 <p>,Have you seen other espers besides me, Sunbae-nim?"</p>
@@ -30,10 +30,10 @@ chapter = 115
 <p>,Now?"</p>
 <p>Looking at the time, it was around 11:40. Is it lunchtime, so she's asking, "Now?"</p>
 <p>,Shall we have lunch together first?"</p>
-<p>,No way~!"</p>
+<p>,No way!"</p>
 <p>Mimata Chieri was puffing out her cheeks and putting her hands on her hips with a dissatisfied expression. Hmm, I have no idea why she's doing that?</p>
 <p>,Don't get angry, and explain it to me, Sunbae?"</p>
-<p>,If you pinched my chest with telekinesis, you have to take responsibility~! Do it more!"</p>
+<p>,If you pinched my chest with telekinesis, you have to take responsibility! Do it more!"</p>
 <p>Ah...! Is it time for some erotic stuff rather than food? I smiled and used telekinesis to undo Mimata Chieri's shirt buttons. Undoing buttons consumes quite a bit of mental energy, surprisingly. Now that it's come to this, it's telekinesis proficiency training today!</p>
 <p>,Shall we go to the bedroom?"</p>
 <p>I used telekinesis to undo all the buttons on Mimata Chieri's shirt, took it off, and asked her after leaving her in just her bra. Mimata Chieri was moving her lips as if she was about to say something, so I asked her, and she blushed and answered in a small voice.</p>
@@ -41,7 +41,7 @@ chapter = 115
 <p>Ah, so cute. I picked up Mimata Chieri in a princess carry, left the conference room, and headed to the bedroom. When we arrived at the bed, we took off each other's clothes. Mimata Chieri, who had quickly become naked, lay on the bed and reached out her hands to me.</p>
 <p>,Please hug me quickly, Sunbae-nim."</p>
 <p>###</p>
-<p>,Haaah~!! Unghh♥ I like it! I like it!!"</p>
+<p>,Haaah!! Unghh♥ I like it! I like it!!"</p>
 <p>There is something called a lucid dream. Sawayanagi Azuma realized that the current situation was a dream. It was impossible for her, who was still a virgin, to make such vulgar and sweet moans.</p>
 <p>It was definitely not reality that she was sticking out her tongue and drooling while accepting the man's huge thing. And if this wasn't a dream, she wouldn't be able to see herself as a third party watching.</p>
 <p>,I love you, I love you, Pussy, I love you!!"</p>

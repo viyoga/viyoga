@@ -17,9 +17,9 @@ chapter = 1268
 <p>She looked at her man with the eyes of a woman who read her lover like an open book. "You wanted to punch the door down to feel badass and masculine."</p>
 <p>"..."</p>
 <p>Ayame’s grin widened as she stood next to Quinlan and together, they watched Black Fang’s leisurely walk toward their destination, observing her sensually swaying hips.</p>
-<p>"So how’s the seduction effort going~?" the samurai purred, referencing his earlier question about sisterly bonding.</p>
+<p>"So how’s the seduction effort going?" the samurai purred, referencing his earlier question about sisterly bonding.</p>
 <p>She enjoyed his troubles far too much.</p>
-<p>"I think she is about to fall deep for your charms, any day now! Fight~! Fight~!"</p>
+<p>"I think she is about to fall deep for your charms, any day now! Fight! Fight!"</p>
 <p>"..." It was at this moment that Quinlan decided he’d dress this cheeky woman in a sexy cheerleader uniform and have her cheer for something else.</p>
 <p>How he would get her to do it was a problem for the future Quinlan to tackle.</p>
 <p>"I’ll deal with you later."</p>

@@ -37,7 +37,7 @@ Lucy said while moaning after a while. Lith didn’t respond to her and simply i
 
 Sounds of flesh smacking against each other echoed throughout Lilith’s bedroom as Lith thrust his cock harder and deeper into Lucy. This intense pounding session continued on for a few minutes and,
 
-“Ahhh… I am cumming…cum— mhmmm!~”
+“Ahhh… I am cumming…cum— mhmmm!”
 
 Lucy’s moans were interrupted in the middle when Lilith bit into her neck and sucked her blood, prolonging her orgasm even more.
 
@@ -63,7 +63,7 @@ As a result, Lith wasted no time in raising her legs to shove his cock inside. H
 
 Lith nodded his head in understanding and let his mother do as she pleased. Lilith got on top of Lith and squatted down onto his dick and had it enter deep inside her in one go.
 
-“Mhmm~”
+“Mhmm”
 
 Lilith hummed as she felt a mix of pain and pleasure due to having her narrow tunnel penetrated by Lith’s hard and long cock in one go. The pain didn’t affect her much. It was nothing to her, as all she felt was pleasure along with a slight tickle.
 
@@ -97,7 +97,7 @@ The simulations made Lilith go closer towards climaxing and her pussy walls were
 
 *Spurrtt*
 
-“Mhmmm!~”
+“Mhmmm!”
 
 Lilith climaxed saying so and her back arched, toes curled and her hips raised as she did so. Lith, however, didn’t let her run away from him like this, so he held her tightly in place and thrust his cock deep into her and shot out his load.
 

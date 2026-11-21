@@ -5,7 +5,7 @@ weight = 179
 chapter = 179
 +++
 
-<p>Growl~</p>
+<p>Growl</p>
 <p>A growl came from right on top of the male Feline and he turned around sharply while drawing his knife and pointing it at Fenrir! His breath was coming out in harsh puffs and he quickly began shuffling back to try and get away from the wolf! Fenrir towered over the feline like a mountain and just the sight of the giant wolf was enough to put a primal fear into his heart as he began to shout.</p>
 <p>"Get! Get out! Get out! Leave me alone!"</p>
 <p>ROARR!</p>

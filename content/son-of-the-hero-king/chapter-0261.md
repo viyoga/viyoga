@@ -5,7 +5,7 @@ weight = 261
 chapter = 261
 +++
 
-<p>"Darling~!!"</p>
+<p>"Darling!!"</p>
 <p>When Sol entered the room that was reserved for Skuld, like a bolt of lightning, she jumped excitedly in his arms.</p>
 <p>Looking down at her jovial appearance and the clear joy in her eyes, Sol felt his heart soften and the stress that had gradually built in him vanish a little.</p>
 <p>"Are you alright?"</p>
@@ -82,6 +82,6 @@ chapter = 261
 <p>“Then, let me help you.”</p>
 <p>Saying so, she lifted her butt and placed her hand below her in order to align Sol’s dick perfectly.</p>
 <p>Once she felt the tip touching her secret place, a shiver of pleasure went down her spine before she finally sank down and took it until the roots.</p>
-<p>“Nn~!”</p>
+<p>“Nn!”</p>
 <p>Because of her small frame, she felt a little discomfort but, the moment she was fully penetrated, all those thoughts flew out of her mind</p>
 <p>Now, for the first time, the two of them were finally united and this was only the start of a long night.</p>

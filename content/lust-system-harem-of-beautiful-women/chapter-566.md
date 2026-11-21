@@ -7,7 +7,7 @@ chapter = 566
 
 <p>By nearly one o&#x27;clock in the afternoon, the mother and daughter were finally awakened by Luis. After they each freshened up and got dressed, Luis had already finished cooking in the kitchen.</p>
 
-<p>&quot;Good afternoon, Daddy~&quot; The little girl was cute and charming, though her steps were a bit unsteady. She had slept so soundly that she had no idea when Luis had gotten up.</p>
+<p>&quot;Good afternoon, Daddy&quot; The little girl was cute and charming, though her steps were a bit unsteady. She had slept so soundly that she had no idea when Luis had gotten up.</p>
 
 <p>But there were now anti-inflammatory pills and medicated ointment on the bedside table. Such thoughtful little details made her feel incredibly happy.</p>
 

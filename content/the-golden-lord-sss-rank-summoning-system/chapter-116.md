@@ -13,7 +13,7 @@ chapter = 116
 <p>Elena lost all strength and collapsed.</p>
 <p>Luckily, Ethan was there to catch her. His hands found her waist, pulling her soft body against his chest, and she let herself sink into him without resistance.</p>
 <p>The warmth of his cum pooled inside her, a deep, satisfying heat spreading slowly through her lower belly.</p>
-<p>"nghnn~~ you really didn’t go easy on me, huh? Darling... ♡" She let out a weak, sweet giggle.</p>
+<p>"nghnn you really didn’t go easy on me, huh? Darling... ♡" She let out a weak, sweet giggle.</p>
 <p>Since reaching the third stage, Elena had never felt this exhausted. Not even when she’d gone days without sleep.</p>
 <p>She let her eyes close, and when she opened them again, she was already in the heated pool at the center of the bathroom.</p>
 <p>A pair of strong hands rested on her delicate waist, and warm water lapped gently against her skin.</p>
@@ -37,9 +37,9 @@ chapter = 116
 <p>His eyes lit up.</p>
 <p>He closed the distance in quick steps, his hand swinging down hard on the perfect ass peeking out from beneath the flowered fabric. Half his palm struck the thin cloth that barely reached the midpoint of her buttocks, while the other half landed directly on her creamy, chocolaty skin.</p>
 <p>The impact was firm, the shockwaves rippling through every generous inch of those round, perfect globes.</p>
-<p>"nghnn~~ ♡" Elena moaned at the slap, her back arching slightly.</p>
+<p>"nghnn ♡" Elena moaned at the slap, her back arching slightly.</p>
 <p>Ethan’s hand grabbed her ass firmly right after, his fingers sinking deep into the supple flesh. His free hand immediately moved up to her huge dark tits, groping them hard through the tight fabric.</p>
-<p>"fufufu~~ What’s the matter, darling, did you fall in love with mommy’s new dress?" Elena gave a teasing giggle, her face lighting up with amusement as she watched Ethan’s expression melt the moment he heard her say "mommy."</p>
+<p>"fufufu What’s the matter, darling, did you fall in love with mommy’s new dress?" Elena gave a teasing giggle, her face lighting up with amusement as she watched Ethan’s expression melt the moment he heard her say "mommy."</p>
 <p>She loved seeing him like that.</p>
 <p>Ethan sighed in defeat.</p>
 <p>He spun Elena in his arms and pulled her toward the bed, feeling the weight of her shapely, heart-shaped ass land on his lap with a soft, meaty clap. The plump cheeks spread against his thighs, warm flesh pressing flat before settling around his hardening cock.</p>
@@ -57,13 +57,13 @@ chapter = 116
 <p>Elena’s lewd moans were confined to her and Ethan. No one else.</p>
 <p>And so their relentless night went on.</p>
 <p>Only when the sun was already rising and the birds began to sing did Elena finally collapse into her man’s arms.</p>
-<p>"Are you giving in already, sweetheart? I haven’t even called you that yet, fufufu~" Elena asked, watching Ethan’s exhausted face.</p>
+<p>"Are you giving in already, sweetheart? I haven’t even called you that yet, fufufu" Elena asked, watching Ethan’s exhausted face.</p>
 <p>"And you haven’t slept yet either... I’m just taking a tactical break." He sighed wearily, his hands stroking her black hair.</p>
 <p>Elena let out a hearty laugh.</p>
 <p>With a little difficulty, she raised herself up on top of him, leaning against his chest.</p>
 <p>Her arms pressed together, squeezing her massive breasts into an obscene display, the dark flesh bulging and spilling over her forearms.</p>
 <p>She leaned forward, her lips brushing softly against his.</p>
-<p>"Okay, daddy~ ♡"</p>
+<p>"Okay, daddy ♡"</p>
 <p>Without giving Ethan even a moment to react, Elena pulled away and left.</p>
 <p>He lay there motionless for a long moment, immediately missing the weight of her body on top of him.</p>
 <p>When the bedroom door closed and he finally found himself completely alone, he sighed.</p>

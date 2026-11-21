@@ -15,7 +15,7 @@ chapter = 52
 
 <p>One thing was certain: these busty MILFS were completely unmatched.</p>
 
-<p>’ Your imagination is running completely wild, Mom. Assuming I’ve already crossed the finish line with Aunt~’ Owen mused, highly amused that his suspicion was spot on.</p>
+<p>’ Your imagination is running completely wild, Mom. Assuming I’ve already crossed the finish line with Aunt’ Owen mused, highly amused that his suspicion was spot on.</p>
 
 <p>Arielle and her delusions went overgeared and clearly overthought the situation, convincing herself that Morenne had her fair share which was precisely what made her so desperate to secure her own share of his affection.</p>
 
@@ -59,7 +59,7 @@ chapter = 52
 
 <p>&quot;M-MILF scent, is that truly a common term in your... world...?&quot; Arielle’s composure was rapidly deteriorating under the steady barrage of his bold words, his modern slang was gradually reshaping her traditional mindset.</p>
 
-<p>&quot;Absolutely, Mom. We appreciate beautiful women every single day in my world, now, enough focusing on that~&quot; Owen replied with his trademark shamelessness, treating the lewd concept as the most natural thing in the universe.</p>
+<p>&quot;Absolutely, Mom. We appreciate beautiful women every single day in my world, now, enough focusing on that&quot; Owen replied with his trademark shamelessness, treating the lewd concept as the most natural thing in the universe.</p>
 
 <p>&quot;T-then... does my scent truly please you.?&quot; Now that Owen had dismantled her excuses, she could no longer hide her curiosity.</p>
 
@@ -67,7 +67,7 @@ chapter = 52
 
 <p>&quot;Oh my... ahnn, ahnn ahnn..&quot; She gasped softly, completely caught in his playful trap.</p>
 
-<p>&quot;But I will take the bite, your unique fragrance is so addicting mom~&quot;</p>
+<p>&quot;But I will take the bite, your unique fragrance is so addicting mom&quot;</p>
 
 <p>&quot;Ahnn, then you can have them..ahnn.&quot;</p>
 
@@ -75,11 +75,11 @@ chapter = 52
 
 <p>&quot; I’m not, just a bold one.&quot;</p>
 
-<p>&quot; Then let’s savor each other like a beast mom~&quot;</p>
+<p>&quot; Then let’s savor each other like a beast mom&quot;</p>
 
 <p>&quot;N-no...we are not a beast...&quot;</p>
 
-<p>&quot;Of course, but you are like a beast though~&quot;</p>
+<p>&quot;Of course, but you are like a beast though&quot;</p>
 
 <p>Arielle was really prepared...even fighting back now.</p>
 

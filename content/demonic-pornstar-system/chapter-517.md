@@ -66,7 +66,7 @@ chapter = 517
 <p>Then both women grinned condescendingly, pinning Rupert in place.</p>
 <p>In perfect, eerie sync, they finished:</p>
 <p>"We promised we wouldn’t forget..."</p>
-<p>"Did you think we would? No chance~!"</p>
+<p>"Did you think we would? No chance!"</p>
 <p>Rupert’s knees actually shook.</p>
 <p>"Oh." It finally hit Kaiden. A faint memory resurfaced from the deepest depths of his brain’s garbage bin.</p>
 <p>Back then, when they arrived at the association building to register themselves as awakened citizens, dozens of paparazzi, well, "journalists," if we stretched the definition, waited outside like vultures. They were all hoping to catch footage of a newly awakened powerhouse. Anything above B-tier could make headlines. An A-tier was gold. An S-tier? Career-defining.</p>

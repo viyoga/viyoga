@@ -13,7 +13,7 @@ chapter = 66
 <p>Jinmija Yeosa-nim recently moved to a mansion with a bit better security. The house she lived in before wasn't bad, but I told her to go to a better place since it's unsettling for a woman to live alone. Then, she said okay and promptly moved out, that mom of mine.</p>
 <p>"I'm just saying it's better for your son to pay than to borrow from someone else and pay interest. I'm not saying I'll give you money when nothing's wrong."</p>
 <p>-Okay, I understand. I'll contact you if I don't have money, as you say. I have to go to work now, so I'll hang up.</p>
-<p>"Okay~."</p>
+<p>"Okay."</p>
 <p>After hanging up, I grabbed my phone and left the room. The time was 8:40 AM, just the right time to go to work.</p>
 <p>I headed to the office, breathing in the refreshing morning air. It was the last week of the 74th group, so there wasn't much to do. Today was the day the mock stock investment results came out, right? I thought our group would probably be in first place since I recommended Health Miracle.</p>
 <p>The time I recommended it was the chance to get on the last train cheaply for Health Miracle, so I told them to actually invest if they trusted me. Everyone in the 74th group and most of the beauties from other groups I picked out early on invested about 200,000 to 300,000 yen. One of them, a woman from a well-off family, said she invested 1 million yen. They'll all become my informants later, and since I shared Health Miracle information and they made a lot of money, their loyalty to me will increase a bit more.</p>
@@ -69,6 +69,6 @@ chapter = 66
 <p>"We received gift certificates thanks to you, Mentor-nim!!"</p>
 <p>"Thank you, Mentor-nim!"</p>
 <p>There were many eyes around, so I smiled and told them all to go back to their seats. They still didn't listen, so I said I'd have a celebration party after dinner tonight, and only then did they go back to their seats.</p>
-<p>"Don't forget your promise~!"</p>
+<p>"Don't forget your promise!"</p>
 <p>"That's right! We were lonely because you weren't at Dijuniland yesterday, Mentor-nim!"</p>
 <p>Hmm, I'm sorry, but Taira Yukiko is much more important than you guys, so it couldn't be helped. I answered inwardly and returned to my seat. I'll have to repay them for not being able to lead them at Dijuniland yesterday with my body (?).</p>

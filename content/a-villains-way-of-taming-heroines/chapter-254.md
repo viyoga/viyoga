@@ -5,7 +5,7 @@ weight = 254
 chapter = 254
 +++
 
-<p>"Miss Seri, if the black market had the same rules as a regular market, it wouldn't be called a black market~"</p>
+<p>"Miss Seri, if the black market had the same rules as a regular market, it wouldn't be called a black market"</p>
 <p>Lawrence crossed his arms, "What goods can be sold, what bargains can be picked up, it's all up to the seller and buyer. If you can't spot the problem... then you can only be slaughtered."</p>
 <p>"What kind of business is this!" Seraphina was furious, "How can such a market continue!"</p>
 <p>Thinking about how she was foolishly about to spend a hundred thousand gold coins on a fake worth two hundred... Seraphina wished she could hang the guy on the city wall.</p>

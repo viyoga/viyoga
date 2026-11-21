@@ -21,7 +21,7 @@ chapter = 10
 
 <p>[You have indecently touched a woman of much higher cultivation than yours in front of a man who desires her, +15 lust points].</p>
 
-<p>“Mhn~” A muffled, surprised moan escaped Feiyan’s lips.</p>
+<p>“Mhn” A muffled, surprised moan escaped Feiyan’s lips.</p>
 
 <p>She felt her body being taken over by Qingyi’s touch and her legs tightened slightly, an strange warmth running up her spine.</p>
 

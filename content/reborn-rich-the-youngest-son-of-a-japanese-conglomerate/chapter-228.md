@@ -6,7 +6,7 @@ chapter = 228
 +++
 
 <p>I pulled down her panties and slid my dick into Arisu's glistening pussy crack. My glans stretched Arisu's pussy wide as it went in. It had been a while, so Arisu seemed to find my dick a bit much to handle.</p>
-<p>,"Hng...! More, Ryuta♥, hng! It feels bigger, haaang~!!"</p>
+<p>,"Hng...! More, Ryuta♥, hng! It feels bigger, haaang!!"</p>
 <p>Along with her suggestive moans, Arisu's pussy throbbed, welcoming me.</p>
 <p>Hmm, comparing her to Nae Fitzgerald, Nae Fitzgerald felt like a pussy that was surprised by a dick that was different from the dicks she'd always had, so she kept pushing it out, giving me a feeling of violating her, while Arisu, it had been a while, so she was a bit tight, but since I was the only dick she'd ever had, it felt like a perfect fit for me, giving me a cozier feeling.</p>
 <p>Not that Arisu's pussy was any less stimulating, but rather, it was a tight, grade-S pussy that was perfect for me.</p>
@@ -38,7 +38,7 @@ chapter = 228
 <p>Arisu felt an incredible orgasm while I was cumming, then leaned her upper body against mine and looked for my lips. Afterplay is also important in sex, so I kissed Arisu gently and stroked her back.</p>
 <p>I kissed Arisu for a while and gave her one arm to lie down next to me. Arisu was looking at me with honey dripping from her eyes, resting on my arm, and smiling bashfully.</p>
 <p>"You didn't really plan to show me around New York, did you?"</p>
-<p>"Noo~. I just couldn't resist when I saw Ryuta...."</p>
+<p>"Noo. I just couldn't resist when I saw Ryuta...."</p>
 <p>Arisu twisted her body and answered my question. She seemed a little embarrassed that she couldn't keep her word. She confidently took me out in a car, saying she would show me around New York, but all she ended up doing was touring her pussy cave, so she had a reason to be a little embarrassed.</p>
 <p>"Was it that good? Should we do it again?"</p>
 <p>"Aih... I don't know♥"</p>

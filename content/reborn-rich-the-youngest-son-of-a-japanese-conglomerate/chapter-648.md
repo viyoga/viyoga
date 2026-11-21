@@ -18,7 +18,7 @@ chapter = 648
 <p>,If you're tired... should I give you a Red Bull or something?"</p>
 <p>Seizawa Shii, bored because there were no customers, whined to me that she was tired for no reason. Actually, she had reason to be tired. Yesterday, the strong students in the special class did all the hard work, mainly moving luggage.</p>
 <p>,Just hang in there a little longer. Today, if we sell everything, I won't place an additional order and we'll end the business, so you can enjoy the festival from then on."</p>
-<p>Minamoto Lisa said apologetically, and Seizawa Shii waved her hand with a flustered expression, saying, ,It's okay, Lisa-tan~!"</p>
+<p>Minamoto Lisa said apologetically, and Seizawa Shii waved her hand with a flustered expression, saying, ,It's okay, Lisa-tan!"</p>
 <p>,The business might end sooner than you think today."</p>
 <p>,Huh? What do you mean."</p>
 <p>,Hehe, look at that."</p>
@@ -32,7 +32,7 @@ chapter = 648
 <p>,When you say it like that, I feel like I'm doing a boyfriend-for-hire part-time job."</p>
 <p>,I'll give you a part-time fee, so go."</p>
 <p>Minamoto Lisa was telling me to quickly grab someone and go on a date, like a boss running a boyfriend-for-hire business. Just then, Kujo Kina came and said that her master and disciples had arrived, so I decided to go with her. Minamoto Lisa said that since I had guests with me, I should have fun and not be as strict as yesterday with the 30-minute limit.</p>
-<p>,Master~! I got permission from the club president, so you can go and have fun now."</p>
+<p>,Master! I got permission from the club president, so you can go and have fun now."</p>
 <p>,Greetings."</p>
 <p>In front of the special class building, there was Yoda Grandpa, a young boy, two girls, and a man about our age. Yoda Grandpa Kinui Tachio is much older than me, so I showed respect and greeted him first.</p>
 <p>,Hoo...! That guy's disciple is a teacher. I'm afraid of what will become of Japan's future!"</p>
@@ -65,7 +65,7 @@ chapter = 648
 <p>,Ah! Sunbae-nim!"</p>
 <p>A club member of The Fist, who discovered Kujo Kina, welcomed us. Even though she had to leave the club due to an unfortunate accident, they welcomed her, so it seemed that Kujo Kina's reputation wasn't bad.</p>
 <p>,I'm from The Fist, so I came to help you sell a bit today."</p>
-<p>,Thank you, Sunbae-nim~!"</p>
+<p>,Thank you, Sunbae-nim!"</p>
 <p>They seemed to be doing American-style barbecue, constantly grilling something in a sealed grill that looked like a drum can placed horizontally.</p>
 <p>It might be okay since they just have to take out the meat and cut it.</p>
 <p>,Seven barbecue platters! Enjoy!"</p>
@@ -84,5 +84,5 @@ chapter = 648
 <p>,It's nothing. Let's go."</p>
 <p>I didn't know what was bothering me. I just thought I felt it wrong and shook my head at Kujo Kina's question.</p>
 <p>_________________</p>
-<p>A new character whose name is still unknown~!</p>
+<p>A new character whose name is still unknown!</p>
 <p>I wanted to create a transparent-like pale hair texture, but I don't know if it turned out well ㅎㅎ</p>

@@ -16,7 +16,7 @@ chapter = 1002
 <p>Right there, in front of everyone. This past week had allowed the previously somewhat insecure woman, especially when she compared herself to her fellow sisters, to have her self-image bloom and her confidence rise.</p>
 <p>It was a deep kiss, long and lingering, and when she pulled back, her gorgeous eyes sparkled with impish delight.</p>
 <p>He blinked, stunned into silence.</p>
-<p>"Why do you look so surprised?" she giggled, tapping his nose with hers. "You didn’t expect me to deliver on your expectations? I turned 1,000 gold into 10,000... But I burned a lot of bridges while doing so, and I exploited every loophole I knew of. I can’t do it again, not for a very long time, so don’t expect me to be an infinite-money source, okay~?"</p>
+<p>"Why do you look so surprised?" she giggled, tapping his nose with hers. "You didn’t expect me to deliver on your expectations? I turned 1,000 gold into 10,000... But I burned a lot of bridges while doing so, and I exploited every loophole I knew of. I can’t do it again, not for a very long time, so don’t expect me to be an infinite-money source, okay?"</p>
 <p>"..."</p>
 <p>Quinlan was still speechless.</p>
 <p>Ayame coughed from pure shock.</p>

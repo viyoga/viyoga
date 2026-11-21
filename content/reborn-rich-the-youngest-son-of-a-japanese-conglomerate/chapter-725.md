@@ -5,13 +5,13 @@ weight = 725
 chapter = 725
 +++
 
-<p>"Kids, I'm here~!" I said, as if to be heard by the Female Students inside, and as I stood at the front door, everyone in the Family/Household rushed out to see me. What, not even like dogs welcoming their Master home after a long time, why are they rushing out so quickly?</p>
+<p>"Kids, I'm here!" I said, as if to be heard by the Female Students inside, and as I stood at the front door, everyone in the Family/Household rushed out to see me. What, not even like dogs welcoming their Master home after a long time, why are they rushing out so quickly?</p>
 <p>"Sensei-ssi!" "Liege-nim!" ""Sensei-nim!"" Along with the Members I expected-Otagi Yuka, Saionji Diana, and Sakagami Rena-Urabe Konoka was there. Since Urabe Konoka is a Shrine Maiden, I thought she would be busy with New Year's prayers and such, but seeing her at our Home, it seemed she was a bit free.</p>
 <p>Everyone was wearing New Year's Furisode (the most formal kimono for unmarried women), and after always seeing them in school uniforms or casual clothes, seeing them in Furisode was a refreshing change.</p>
 <p>"Why is everyone wearing Furisode?" Of course, we were wearing them and waiting to go to Hatsumode (the first shrine visit of the New Year) with Sensei!</p>
 <p>Ah, they were going for New Year's prayers? Then it made sense that Urabe Konoka was waiting here. Urabe Konoka said Shinkai Hime, the Daughter of the Abyss, wanted to see me, and it seemed that was referring to the prayer visit.</p>
 <p>"Since we're already at the front door, let's go now." Anyway, since I was already dressed in a Suit and Coat, it seemed I could go now. Nowadays, men usually wear Suits rather than Kimonos for Hatsumode, so there was no need to change Clothes, and since I hadn't taken off my Shoes yet, I could just go straight out. The Students also came to the front door, so they just needed to put on their Shoes and go out.</p>
-<p>"Shall we?" "Wait! I'll get my Handbag, Liege-nim~!" "I'll go get mine too!" "I knew this would happen, so I brought my Handbag in advance!"</p>
+<p>"Shall we?" "Wait! I'll get my Handbag, Liege-nim!" "I'll go get mine too!" "I knew this would happen, so I brought my Handbag in advance!"</p>
 <p>I thought we could just go straight out, but they were busy getting their Handbags and Wallets. Saionji Diana cleverly said she had brought her Handbag in advance and linked her Arm in mine. She's quite quick-witted, isn't she?</p>
 <p>"Sensei-nim, it's been a long time." "Yes, it has. Have you been well?"</p>
 <p>To Saionji Diana, who greeted me with sparkling Eyes through her Bangs, I also greeted her and asked how she was. Saionji Diana nodded her Head with a shy Expression, and the Students who had gone to get their Bags or Wallets looked at Saionji Diana, who was linked Arm in arm with me, with Expressions of having been outmaneuvered.</p>
@@ -22,10 +22,10 @@ chapter = 725
 <p>Even for this short path up the stairs and to the shrine, they seemed to want to walk Arm in arm together. As for me, if Women linked Arms with me on both Sides, it was warm and nice, so I stayed still.</p>
 <p>"If you go up these stairs and turn right, it's Shinkai Hime-nim's shrine." Urabe Konoka, linked Arm in arm on my left, explained the way to me in a whisper. Before, I went through the entrance used by general visitors and took a complicated route through various Passages, but there was a direct path from the employee parking lot.</p>
 <p>After climbing all the stairs, instead of going straight to Shinkai Hime Shrine, we decided to take Photos to feel a bit like we were out for fun. Since everyone was wearing splendid Furisode to do Hatsumode with me, they seemed to want to capture it in Photos.</p>
-<p>"Then each of you stand in a Place you like. I'll take your Photo." "Sensei-ssi, take mine first~!"</p>
+<p>"Then each of you stand in a Place you like. I'll take your Photo." "Sensei-ssi, take mine first!"</p>
 <p>First, we decided to take individual Photos, and Otagi Yuka's Photo was taken first. Otagi Yuka was wearing a red Furisode that matched her Hair Color, and also had a red-dyed winter fur collar attached, so she stood out immensely.</p>
 <p>"How is it?" "It suits you well. It's incredibly vibrant." Looking at Otagi Yuka's Appearance, I gave her a thumbs-up. One might think it was a bit overly splendid, but because Otagi Yuka's Appearance was also splendid, it didn't feel excessive at all.</p>
-<p>"Next, I want to take one with Sensei-ssi~!" After taking individual Photos, I took a Photo with Otagi Yuka, and the next Turn was Urabe Konoka's.</p>
+<p>"Next, I want to take one with Sensei-ssi!" After taking individual Photos, I took a Photo with Otagi Yuka, and the next Turn was Urabe Konoka's.</p>
 <p>Urabe Konoka was wearing a white-based Furisode with a red pattern, and while not as much as Otagi Yuka with her red fur collar, she had a dark brown fur collar attached, creating a different Atmosphere.</p>
 <p>"D-Does it look strange?" "Not at all. Rather, you're so incredibly pretty that the background feels overshadowed." "Ehehe..." Urabe Konoka asked, seeming a little uneasy, but at my Answer, she put both Hands to her cheeks as if Embarrassed, and laughed, "Ehehe." Indeed, Praise was the Answer for Women. And it was an Appearance that couldn't help but be praised.</p>
 <p>I also took a Photo with Urabe Konoka, and the next Turn was Sakagami Rena's. Sakagami Rena was wearing a splendid dark purple Furisode that matched her Hair Color. However, to balance the splendid Furisode, she had a normal white fur collar.</p>

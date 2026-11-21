@@ -62,7 +62,7 @@ chapter = 159
 <p>“Hahaha, Theresa, I guess you heard everything?”</p>
 <p>“Hum? About the honey trap? Hahaha. Don’t worry, this is pretty common.”</p>
 <p>The secret door opened and let out the cute and smiling Theresa.</p>
-<p>“Honestly, in any other circumstance, I would have helped you. Having one of your nieces or distant relatives entering Sol’s harem would be useful. But heh, let’s just say that my friends are not particularly fond of honey traps. Kukuku~!”</p>
+<p>“Honestly, in any other circumstance, I would have helped you. Having one of your nieces or distant relatives entering Sol’s harem would be useful. But heh, let’s just say that my friends are not particularly fond of honey traps. Kukuku!”</p>
 <p>Theresa knew that this was the understatement of the year.</p>
 <p>If a woman with sketchy motives came close to Sol, Lilith would cut her without hesitation, or Camelia would mind control her first to ascertain how dangerous she could be.</p>
 <p>‘Once bitten, twice shy.’</p>

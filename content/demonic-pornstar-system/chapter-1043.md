@@ -124,7 +124,7 @@ chapter = 1043
 <p>"Naturally. I promised them I’d never court anyone without their permission."</p>
 <p>"...Good." She looked down at their hands, relieved that he understood. There was enough uncertainty in her chest already; she wanted to be able to look his women in the eyes when they returned.</p>
 <p>Kaiden leaned a little closer.</p>
-<p>"You do realize what this means, correct? You’ll have to earn their approval~"</p>
+<p>"You do realize what this means, correct? You’ll have to earn their approval"</p>
 <p>His playful whisper brushed her ear, and Yunohana shuddered before she could stop herself.</p>
 <p>"Kaiden..."</p>
 <p>"Yes?"</p>
@@ -136,5 +136,5 @@ chapter = 1043
 <p>"She’ll be overjoyed to hear the news, I’m sure," Kaiden grinned.</p>
 <p>Yunohana’s lips trembled wryly.</p>
 <p>"Your optimism is enviable. I believe she’ll strangle me."</p>
-<p>"My adorable mother? Perish the thought~"</p>
+<p>"My adorable mother? Perish the thought"</p>
 <p>"...I’m in grave danger."</p>

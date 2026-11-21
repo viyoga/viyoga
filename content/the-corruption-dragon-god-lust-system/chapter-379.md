@@ -93,7 +93,7 @@ chapter = 379
 
 <p>“Silence!” Qianyao raised a single hand, casting an angry scowl at the elder before facing Qingyi again. “T-thank you for the compliment, young master Qingyi, I’ll take a moment to cultivate…” Without even giving the handsome young man time to reply, she went to her private suite, locking herself in.</p>
 
-<p>Her steps were shaky, her breathing rapid and her heart pounding. “Nghnn~~” She put her hand on her chest. “You… shameless… who do you think I am?”</p>
+<p>Her steps were shaky, her breathing rapid and her heart pounding. “Nghnn” She put her hand on her chest. “You… shameless… who do you think I am?”</p>
 
 <p>Still sitting in his seat, Qingyi just sipped peacefully from his wine, ignoring the stares behind his back.</p>
 

@@ -54,9 +54,9 @@ chapter = 1073
 <p>"I thought it was Nyx who was supposed to be the glutton?" Yunohana smiled with perfect innocence.</p>
 <p>Nyx began laughing before the meat reached her friend’s plate.</p>
 <p>"I’m not a glutton."</p>
-<p>"Could’ve fooled me~" The space babe purred.</p>
+<p>"Could’ve fooled me" The space babe purred.</p>
 <p>"Fatty... Watch it."</p>
-<p>"Ohh, so scary~"</p>
+<p>"Ohh, so scary"</p>
 <p>"..."</p>
 <p>The meal went on until even Luna slowed. Bastet was trying to identify the ingredients in the fish sauce with Alexandra, while Calypso helped herself to the last piece.</p>
 <p>Yunohana refilled Alexandra’s cup before the maid could rise to fetch more tea. Beside their mother, Alice was complaining that nobody had told her about the visit to America until it was already over.</p>

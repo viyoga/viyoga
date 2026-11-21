@@ -17,7 +17,7 @@ chapter = 535
 
 <p>She still remembered that young man as if she had just met him. Her body heated up whenever she remembered the feeling of his hands reaching for her breasts and squeezing them firmly. So firm and powerful…</p>
 
-<p>“Nghnn~~” She gave her breasts a gentle slap, causing a heavy ripple to spread across her plump, round, firm mountains.</p>
+<p>“Nghnn” She gave her breasts a gentle slap, causing a heavy ripple to spread across her plump, round, firm mountains.</p>
 
 <p>“Lingxue, you obscene woman… Your people are on the brink of destruction, and you’re thinking about these… shameless things…” She scolded herself.</p>
 
@@ -29,13 +29,13 @@ chapter = 535
 
 <p>Lingxue’s eyes filled with shock as the aura reached her. The space in front of her suddenly distorted, catching her off guard.</p>
 
-<p>“What- ah~~!” The sharp squeal escaped her lips as her feet slipped for a moment.</p>
+<p>“What- ah!” The sharp squeal escaped her lips as her feet slipped for a moment.</p>
 
 <p>Even with her mind unstable, an expert of her level shouldn’t fall like that. Still, it happened.</p>
 
 <p>Fortunately, before she hit the ground, a pair of large, powerful hands moved, reaching for her slender waist and pulling her up.</p>
 
-<p>“Nghnn~~” She moaned, closing her eyes instinctively. The powerful hands moved down and rested on her perfect, plump ass, firmly grasping the voluptuous, squishy flesh.</p>
+<p>“Nghnn” She moaned, closing her eyes instinctively. The powerful hands moved down and rested on her perfect, plump ass, firmly grasping the voluptuous, squishy flesh.</p>
 
 <p>Naturally, the owner of the hands was Qingyi.</p>
 
@@ -45,7 +45,7 @@ chapter = 535
 
 <p>A flood of system notifications signaling the rise of her corruption reached him, but Qingyi barely paid attention.</p>
 
-<p>“You really can’t-aghnn~~ control your hands, can you?”</p>
+<p>“You really can’t-aghnn control your hands, can you?”</p>
 
 <p>Lingxue’s eyes finally opened as Qingyi’s left hand left her ass and moved up to the top of her tits, squeezing them, his strong fingers sinking into the perfect, snowy skin of those huge milk jugs.</p>
 

@@ -77,12 +77,12 @@ chapter = 994
 <p>"Of course not. It's been a long Time since I've enjoyed Older Sister-nim's lewd body, so it wouldn't make sense to be satisfied with just once. Older Sister-nim also says no, but your lower mouth is nibbling on my cock, isn't it?"</p>
 <p>"Heueung, where did you learn such obscene Words, haaang♥"</p>
 <p>Nagumo Sian was getting excited by my lewd Words, but she was scolding me for no Reason. This won't do. I started shaking my waist again to clearly let her know who the Master of Nagumo Sian's Body is.</p>
-<p>Sian B-cuts~!</p>
-<p>MidNightSKY-nim requested Tsukiyo training in Shinkaiyatsude and Ryuta looking at it with a pleased Expression~!</p>
-<p>Tsukiyo~!</p>
+<p>Sian B-cuts!</p>
+<p>MidNightSKY-nim requested Tsukiyo training in Shinkaiyatsude and Ryuta looking at it with a pleased Expression!</p>
+<p>Tsukiyo!</p>
 <p>I'm adding one more Illustration as a Service for uploading the requested one late ㅎㅎ</p>
 <p>Ryuta</p>
 <p>TheDreaming-nim requested Alik in the Classroom 1. Pressing breasts 2. Gathering breasts</p>
 <p>1.</p>
 <p>2.</p>
-<p>Gojoy-nim requested Nagumo Sian seducing in sexy underwear~!</p>
+<p>Gojoy-nim requested Nagumo Sian seducing in sexy underwear!</p>

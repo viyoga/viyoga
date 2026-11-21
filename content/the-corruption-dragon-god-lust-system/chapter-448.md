@@ -39,7 +39,7 @@ chapter = 448
 
 <p>They were kilometers away, but it took her only a single moment to close the gap, spinning her body in the air and using the drag of her enormous wings to stop.</p>
 
-<p>“Nyan! Husbandy~~”</p>
+<p>“Nyan! Husbandy”</p>
 
 <p>A small figure leaped from Khaedryss’s back, her orange feline tail swaying in the air as her body spun.</p>
 
@@ -67,7 +67,7 @@ chapter = 448
 
 <p>Qingyi just shook his head. His hands met Linyue’s ass cheeks with a smack, sending powerful shockwaves through the soft flesh.</p>
 
-<p>“NYAN! Mghnn~~ Hubby, big sister Ruxue is being mean to me again!” Linyue complained, spinning in the air and escaping Ruxue’s Qi.</p>
+<p>“NYAN! Mghnn Hubby, big sister Ruxue is being mean to me again!” Linyue complained, spinning in the air and escaping Ruxue’s Qi.</p>
 
 <p>Despite her short height, the cat girl still managed to land gracefully and immediately stood up, clinging to Qingyi.</p>
 
@@ -83,7 +83,7 @@ chapter = 448
 
 <p>In the end, she could only give in, a sweet and embarrassed voice echoing from her lips: “Yes… hubby’s cock is delicious…”</p>
 
-<p>“Hehehe~~ it’s good that we agree on something. Come on, Elize is already starting to prepare dinner.</p>
+<p>“Hehehe it’s good that we agree on something. Come on, Elize is already starting to prepare dinner.</p>
 
 <p>Celestia’s eyes fell on Khaedryss.</p>
 

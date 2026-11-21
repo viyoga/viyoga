@@ -6,7 +6,7 @@ chapter = 649
 +++
 
 <p>,Ryuta, are you a regular at the Clear Mind Hall?</p>
-<p>It was Alik's third visit to the Clear Mind Hall during the festival, so Alik looked at me, tilting his head and asking. The first time I visited, he ran up to me, shouting, "Ryuta~!" But now, he was looking at me with eyes that seemed to say, "Why does he keep coming here?"</p>
+<p>It was Alik's third visit to the Clear Mind Hall during the festival, so Alik looked at me, tilting his head and asking. The first time I visited, he ran up to me, shouting, "Ryuta!" But now, he was looking at me with eyes that seemed to say, "Why does he keep coming here?"</p>
 <p>,No, some guests wanted to see it.</p>
 <p>,This student...? His skills seem extraordinary.</p>
 <p>Yoda-halbeom's eyes lit up when he saw Alik. As expected of a master, he seemed to recognize Alik's skills right away.</p>
@@ -14,7 +14,7 @@ chapter = 649
 <p>,Hoo...! Is that so?</p>
 <p>,Chokkomi (Tiny) Grandpa?</p>
 <p>When I introduced Alik, Alik called Yoda-halbae "Chokkomi" with an innocent expression. He probably didn't know Yoda, so he didn't call him Yoda Grandpa.</p>
-<p>,Hehehe, yes, I'm Chokkomi Grandpa~.</p>
+<p>,Hehehe, yes, I'm Chokkomi Grandpa.</p>
 <p>When I called him Yoda-halbae, he tried to joint-lock me, but when Alik called him Chokkomi, he smiled contentedly, hehehe.</p>
 <p>,I'll guide you.... Oh? Aren't you Kinu-i-nim?</p>
 <p>Nishiike Neiko, the head of the Clear Mind Hall, looked at Yoda-halbeom with a surprised expression. As expected of the head of the Clear Mind Hall, who practices Koryu martial arts, she seemed to know Yoda-halbae, who was famous in the martial arts world.</p>
@@ -22,7 +22,7 @@ chapter = 649
 <p>Yoda-halbeom's nose grew even higher. In fact, I only learned Gwonbeop from Fujigasaki Rinka, and I didn't know much about the martial arts world, so I didn't know that this Kinu-i Tatsuo-halbae was famous.</p>
 <p>He wasn't a character I saw in the game, so I looked down on him a bit, but he seemed to be quite a celebrity.</p>
 <p>,I'll show you to your seats and call the teacher.</p>
-<p>We were guided to our seats by Nishiike Neiko, and the young three disciples were excited, saying, "Wow~! Our master is famous!" as if they were happy that their master was famous.</p>
+<p>We were guided to our seats by Nishiike Neiko, and the young three disciples were excited, saying, "Wow! Our master is famous!" as if they were happy that their master was famous.</p>
 <p>Kujo Kina, who knew a bit about the Gwonbeop world, seemed to take it for granted, and Nakasone Rishin, a gloomy guy, seemed surprised by his master's fame.</p>
 <p>,Was master famous?</p>
 <p>,Well, master went around the country breaking dojangs (dojo challenges), so he couldn't help but become famous.</p>
@@ -48,7 +48,7 @@ chapter = 649
 <p>,Hehe, if he had, your master would have won. I hadn't yet perfected my Gwonbeop at that time.</p>
 <p>Yoda-halbae smoothly brushed off Shimokawabe Airen's slightly sharp words.</p>
 <p>Combining their stories, they both suffered injuries and it was a draw, but Shimokawabe Airen's master, called Haruka, seemed to have suffered more from the aftereffects.</p>
-<p>Shimokawabe Airen saved her master's face by saying that he would have won if he had used a real sword, but Yoda-halbae was like, "Yeah~ I wasn't even done perfecting my Gwonbeop at that time~," and was tea-bagging him.</p>
+<p>Shimokawabe Airen saved her master's face by saying that he would have won if he had used a real sword, but Yoda-halbae was like, "Yeah I wasn't even done perfecting my Gwonbeop at that time," and was tea-bagging him.</p>
 <p>In my opinion, Yoda-yeonggam was in the process of perfecting his Gwonbeop, so Shimokawabe Airen's master seemed to have been considerate enough not to use a real sword.</p>
 <p>After that, the match became fierce and they injured each other, and although they said it was a draw, seeing that Shimokawabe Airen's master suffered more from internal injuries, it seemed like Yoda-yeonggam won by about 55 to 45.</p>
 <p>,Ah, that friend is going to have a match with my disciple next time, so come and hang out with us then.</p>
@@ -60,12 +60,12 @@ chapter = 649
 <p>,Well, if that Ikunori (Raising Constitution) guy was here, he would have been a great opponent for that guy.... It's not a martial artist's attitude to hesitate to fight just because the opponent is strong, so don't worry about my disciple. Surely that guy won't seriously injure my disciple in front of my eyes?</p>
 <p>As expected of a man who perfected martial arts by breaking dojangs. Don't hesitate to fight just because the opponent is strong.... That's a pretty cool thing to say. Of course, it wasn't cool at all that he threatened me by saying that he would be watching during the match, like he was keeping an eye on me.</p>
 <p>,Don't worry, I won't injure him like Yoda-halbeoji did to Shimokawabe seonsaengnim's master, even if you don't threaten me like that.</p>
-<p>,What did you say~!?</p>
+<p>,What did you say!?</p>
 <p>No, why is this halbae only angry at me? Alik, who was sitting next to me, said, "Chokkomi Grandpa, don't be angry," and the atmosphere became one of just letting it go. As expected, Alik is the only one who takes my side. Alik is the best.</p>
 <p>###</p>
 <p>Kujo Kina, Yoda-sabu, and their group left to enjoy the festival again, and as time passed, I was heading to the special class building alone when I ran into that woman from before.</p>
 <p>The beauty with hair between silver and white was holding a pamphlet and heading towards the special class building. At first, I was just going to pass by, but the woman recognized me first.</p>
-<p>,Oh~! Right? The golden-haired teacher who appears on Karen MiTube!</p>
+<p>,Oh! Right? The golden-haired teacher who appears on Karen MiTube!</p>
 <p>,I have blonde hair and a tan, but I'm not a delinquent.</p>
 <p>She's talking about Karen MiTube, so she must be a Karen fan. Then, the reason she smiled at me earlier was because she recognized me from Karen MiTube?</p>
 <p>,Did you come to the festival because of the Karen photo cards?</p>
@@ -102,7 +102,7 @@ chapter = 649
 <p>,Write it to Takakusaki Athena.</p>
 <p>Ah, Takakusaki Athena.... Like Alik, her last name is Japanese and her first name is Western. I wrote "To Takakusaki Athena-ssi" and handed the photo card back to her.</p>
 <p>By the way, I felt like I had heard that last name somewhere before. Do I know someone with the same last name? But there were many people with similar last names in Japan, so I just thought I had heard it somewhere and moved on.</p>
-<p>,Thank you~! Karen isn't here, is she?</p>
+<p>,Thank you! Karen isn't here, is she?</p>
 <p>,Yes. There are too many people.</p>
 <p>As expected, she seemed to be a bigger fan of Karen than me. Takakusaki Athena, who seemed a little disappointed, bowed slightly to me and ordered a drink. Hmm.... I should go up to the second floor soon.</p>
 <p>,Then....</p>

@@ -24,17 +24,17 @@ chapter = 689
 <p>,Then, since you'll be staying in Tokyo, it's a good idea to know the location of the Am Sang Tokyo branch. You can easily get information or items that you can't get elsewhere."</p>
 <p>,Hmm.... Is that so? Well, the Minamoto Group's information team might not give me information, so the information side would be good."</p>
 <p>After having various conversations about Am Sang, we got out of the taxi and entered the Am Sang branch. Unlike Miyashi, where the branch was located in a love hotel village, the Tokyo branch was located among numerous skyscrapers, so Minamoto Risa-ssi looked around curiously.</p>
-<p>,Ryuta-nim! Risa-ssi~! Welcome!"</p>
+<p>,Ryuta-nim! Risa-ssi! Welcome!"</p>
 <p>When we entered the branch, Eve greeted us. I naturally placed the packaged Jeonsugap box on the table. I didn't want to talk about the energy weapon Jeonsugap in front of Minamoto Risa-ssi, so I just put it on the table. Eve also saw the Jeonsugap and nodded subtly, understanding my intention, and smiled.</p>
 <p>,First, please ship this Dragon Bull Shinryong figure to Miyashi's house."</p>
-<p>,Yes~! I'll charge you later."</p>
+<p>,Yes! I'll charge you later."</p>
 <p>,Is Am Sang also capable of shipping?"</p>
 <p>When I asked Eve to ship the figure I bought in Akihabara and Eve said she would, Minamoto Risa-ssi, who was listening, asked with a curious look.</p>
 <p>,Of course. We also ship items sold by Am Sang, and if customers want, they can use Am Sang's shipping. Of course, it's more expensive than shipping from other above-ground courier companies, but the advantage is that you can ship without leaving a record."</p>
 <p>,Not leaving a record.... That's quite an advantage."</p>
 <p>Of course, since Am Sang is called a merchant of the underworld, shipping without leaving a record was mostly for drugs, weapons, and money used as bribes.</p>
 <p>,Is what I said ready?"</p>
-<p>,Of course~!"</p>
+<p>,Of course!"</p>
 <p>At my words, Eve clapped her hands. Then, something was brought on the shelf of a mobile robot, which was a figure that made the ruins into a miniature. On one side was the figure of Garo-oh, a monster-human and the main villain of one chapter.</p>
 <p>,What is it?"</p>
 <p>,Um, if you plug the Caped Baldy I bought at the store earlier here...."</p>
@@ -62,7 +62,7 @@ chapter = 689
 <p>After finishing lunch and going to Akihabara, the store owner, who was waiting with an anxious expression, worried that we might just ask him to pay and not come, changed to a relieved expression and greeted us.</p>
 <p>,I was worried because you didn't come...!"</p>
 <p>,Did you think I just left? Is the payment done?"</p>
-<p>,Oh~! I wasn't worried, I was really worried if something happened to the customer. The payment is done, the price is...."</p>
+<p>,Oh! I wasn't worried, I was really worried if something happened to the customer. The payment is done, the price is...."</p>
 <p>,Here's my card, just give me the receipt."</p>
 <p>Minamoto Risa-ssi coolly handed over her card without even listening to the price. I was curious about how much it would cost to give me everything here, so I looked at the receipt that the store owner handed over, and it came out to a little over 4 million yen.</p>
 <p>It seemed that the price was that much, excluding duplicates, among the things in the entire store and the ○ne-Punch Man section. I don't know if it's expensive or cheap.</p>
@@ -108,5 +108,5 @@ chapter = 689
 <p>I swallowed hard without realizing it at Minamoto Risa-ssi's surprise attack(?).</p>
 <p>_____</p>
 <p>Risa-ttang's underwear B-cut!</p>
-<p>I liked it, but dark stockings should come out for the date outfit, but white stockings came out, so it was rejected~! Dark stockings didn't come out well because it was white underwear ㅠㅠ</p>
+<p>I liked it, but dark stockings should come out for the date outfit, but white stockings came out, so it was rejected! Dark stockings didn't come out well because it was white underwear ㅠㅠ</p>
 <p>Big-breasted Risa-ttang.</p>

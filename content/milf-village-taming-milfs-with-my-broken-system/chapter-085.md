@@ -43,27 +43,27 @@ chapter = 85
 
 <p>&quot;It’s... wet...&quot;</p>
 
-<p>&quot;What’s wet, Mom~?&quot;</p>
+<p>&quot;What’s wet, Mom?&quot;</p>
 
 <p>&quot;Eck!! N-no, there’s nothing wet! W-what are you talking about...&quot; Arielle transformed into a turtle upon hearing her son’s voice.</p>
 
 <p>*H-he is awake... My dear Wen is awake! H-how... could I face... him?!!’</p>
 
-<p>&quot;Ohh, then why did you look at my cock, Mom~?&quot; Owen whispered, sending a hot breath against her skin as it passed through the comforter...</p>
+<p>&quot;Ohh, then why did you look at my cock, Mom?&quot; Owen whispered, sending a hot breath against her skin as it passed through the comforter...</p>
 
 <p>&quot;N-no... I didn’t! T-that’s... treacherous and bad.&quot;</p>
 
-<p>&quot;So, did you forget your loud moans last night, Mom~?&quot;</p>
+<p>&quot;So, did you forget your loud moans last night, Mom?&quot;</p>
 
 <p>&quot;Y-yes! I lost... my memories!&quot;</p>
 
-<p>&quot;Then let me help you recall what happened last night, Mom~.&quot;</p>
+<p>&quot;Then let me help you recall what happened last night, Mom.&quot;</p>
 
 <p>&quot;N-no... don’t...&quot;</p>
 
 <p>Ba-dump, Ba-dump, Ba-dump...</p>
 
-<p>&quot;One shouldn’t forget one of the best memories, right, Mom~?&quot;</p>
+<p>&quot;One shouldn’t forget one of the best memories, right, Mom?&quot;</p>
 
 <p>&quot;D-don’t say that... I might fall... in love... with no return...&quot; she mumbled the last part softly.</p>
 
@@ -75,11 +75,11 @@ chapter = 85
 
 <p>&quot;...&quot;</p>
 
-<p>&quot;Then I’ll take it as a yes, Mom~.&quot;</p>
+<p>&quot;Then I’ll take it as a yes, Mom.&quot;</p>
 
 <p>&quot;N-no, it’s not...&quot;</p>
 
-<p>&quot;Trying to act cool? Then how can you explain that the lucky comforter is now soaked, Mom~?&quot;</p>
+<p>&quot;Trying to act cool? Then how can you explain that the lucky comforter is now soaked, Mom?&quot;</p>
 
 <p>&quot;W-wha!!..&quot;</p>
 
@@ -113,7 +113,7 @@ chapter = 85
 
 <p>Unfortunately, the predator had already claimed her shell, throwing her clothes far to the other side of the room.</p>
 
-<p>&quot;What’s the point of a meeting, Mom, if we can savor each other again~?..&quot; Owen’s cock was already bulging extremely hard. A morning blowjob was just not enough!</p>
+<p>&quot;What’s the point of a meeting, Mom, if we can savor each other again?..&quot; Owen’s cock was already bulging extremely hard. A morning blowjob was just not enough!</p>
 
 <p>It would be a great waste not to have a dirty little secret in the barn... so instead of going all the way to the barn, how about he plucked the pearl right here in the house?</p>
 

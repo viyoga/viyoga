@@ -14,7 +14,7 @@ chapter = 743
 <p>"I told you earlier, I have something to say to the Chairman-nim regarding the Date Experience Club."</p>
 <p>The student council building was also the building where the Disciplinary Committee was located, so the Disciplinary Committee members were guarding the entrance. The Disciplinary Committee member who heard Konoe Akina's words exchanged some words over the radio, then nodded and opened the door.</p>
 <p>"You can go in."</p>
-<p>"Yes~!"</p>
+<p>"Yes!"</p>
 <p>Konoe Akina and her party immediately took the elevator to the student council room. When they opened the door to the student council room, Taira Kanna and several student council members were doing paperwork despite it being lunchtime.</p>
 <p>"Don't these kids eat...?"</p>
 <p>"Be quiet, Yuka."</p>

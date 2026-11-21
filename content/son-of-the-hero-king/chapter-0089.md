@@ -63,9 +63,9 @@ chapter = 89
 <p class="scene-break">· · ·</p>
 <p>[Duke Hermes house]</p>
 <p>In another room belonging to the mansion, a short but mature woman was focused on a screen displaying the scene of the Duke kneeling to Sol.</p>
-<p>"Oh~? It seems like I really underestimated him. Even if I didn't meddle, he would have obtained the same result."</p>
+<p>"Oh? It seems like I really underestimated him. Even if I didn't meddle, he would have obtained the same result."</p>
 <p>A smile bloomed on her face as she said that. Feeling pretty good, she turned toward one of the maids standing beside her.</p>
 <p>This maid was different from the other in the mansion. Not only because of her long and beautiful silver-white hair, nor because of her well-toned body, but rather because of the running pattern covering her body from head to toe.</p>
-<p>'Hehehe~! Seems like I did well in bringing her. It would be shameful if I couldn't give a gift to my godson on our first meeting after all.'</p>
+<p>'Hehehe! Seems like I did well in bringing her. It would be shameful if I couldn't give a gift to my godson on our first meeting after all.'</p>
 <p>"This promise to be interesting."</p>
 <p>She couldn't wait.</p>

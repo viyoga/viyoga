@@ -61,7 +61,7 @@ chapter = 902
 
 <p>Her skin. Her heat.</p>
 
-<p>"nghnnn~~ H-hubby... filling me up so much, fufufu~," Feiyan gasped in a sensual moan, her legs going weak under the weight of her own pleasure.</p>
+<p>"nghnnn H-hubby... filling me up so much, fufufu," Feiyan gasped in a sensual moan, her legs going weak under the weight of her own pleasure.</p>
 
 <p>Qingyi’s hands rose and clamped tightly around her hips, his fingers sinking into the soft flesh until they left small reddish marks on her golden skin.</p>
 
@@ -73,13 +73,13 @@ chapter = 902
 
 <p>PLAP</p>
 
-<p>"aghn~~"</p>
+<p>"aghn"</p>
 
 <p>A loud slap echoed through the room, immediately followed by a high-pitched squeal as Qingyi’s hips slammed hard against Feiyan’s plump butt.</p>
 
 <p>The impact jolted her entire body forward, her heavy breasts leaping high before plummeting again in a weighty sway.</p>
 
-<p>"ohnnn~ hubby is really going strong in Feiyan’s fat, tight little pussy today, huh? I like it, fufufufu-ah!~...," her sweet, sensual laughter echoed through the pavilion, punctuated by another moan as Qingyi pulled his cock out once more.</p>
+<p>"ohnnn hubby is really going strong in Feiyan’s fat, tight little pussy today, huh? I like it, fufufufu-ah!...," her sweet, sensual laughter echoed through the pavilion, punctuated by another moan as Qingyi pulled his cock out once more.</p>
 
 <p>He showed that pussy as much mercy as Feiyan wanted him to show—none.</p>
 

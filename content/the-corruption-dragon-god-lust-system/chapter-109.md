@@ -115,7 +115,7 @@ chapter = 109
 
 <p>Even so, it wasn’t enough, the freezing Qi soon reaching where they were.</p>
 
-<p>“Ghn~~ mmm…” A muffled groan escaped Xia Yunfei’s lips, her body shivering as her sweat-soaked clothes intensified the cold even more.</p>
+<p>“Ghn mmm…” A muffled groan escaped Xia Yunfei’s lips, her body shivering as her sweat-soaked clothes intensified the cold even more.</p>
 
 <p>Qingyi hesitated for a moment.</p>
 

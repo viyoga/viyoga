@@ -9,15 +9,15 @@ chapter = 213
 <p>Come to think of it, when I was a mentor at the Human Resources Development Institute, I'd done it with ten people, but I'd never done it like this, holding each other and pressing pussies together. Back then, the sex situation was 10-to-1, but I had sex in a 1-on-1 fashion, one after the other.</p>
 <p>Past me, how naively did you have sex? I always have to strive and give my brain new stimulation. If I did it with ten people at the same time, there would be so many things to try, but I just passed it over smoothly... Pathetic bastard.</p>
 <p>I briefly scolded my past self and groped Yang Seol-hui's firm and soft ass, who was lying on top of Dang So-hwa below. Yang Seol-hui's ass changed shape according to my hand movements, seducing me.</p>
-<p>,Huuheung~♥ Do you like my ass?"</p>
+<p>,Huuheung♥ Do you like my ass?"</p>
 <p>As Yang Seol-hui gently shook her ass, the pussy mounds rubbing against each other created a very arousing scene.</p>
-<p>"Haaheueung~! Shue-ssi, don't shake your ass! Th-there, it's rubbing!"</p>
+<p>"Haaheueung! Shue-ssi, don't shake your ass! Th-there, it's rubbing!"</p>
 <p>"There? You mean p-ussy, Boss?"</p>
 <p>As we learned from the banana-dick debate, Dang So-hwa, who seems like she'd be uninhibited, is surprisingly demure, while Yang Seol-hui, who is usually quiet, has a daring style.</p>
 <p>While kneading Yang Seol-hui's mochi-like ass with both hands, I slightly spread her legs and inserted my dick into Dang So-hwa's hole below.</p>
 <p>"Heueut, so suddenly♥ If you put it in like that, heueut! I can't...!"</p>
 <p>Even if it's sudden, Dang So-hwa's pussy was already drooling wet, like Pavlov's dog, from days of hard sex training, so there was no problem inserting my dick.</p>
-<p>"Aahng~ Please put your d.ick in me too, Ryuta-nim♥"</p>
+<p>"Aahng Please put your d.ick in me too, Ryuta-nim♥"</p>
 <p>"Heungheut! Don't listen to Shue-ssi and haaheut, concentrate on m-my... precious place, heunghat...!"</p>
 <p>As Yang Seol-hui wiggled her ass and acted cute, Dang So-hwa, who was lying under Yang Seol-hui, tightened her pussy to prevent me from pulling out my dick. Perhaps because she had trained in the family's secret martial arts, she seemed to be able to slightly control the involuntary muscles inside her vagina.</p>
 <p>After shaking inside Dang So-hwa for about five minutes, I pulled out my dick and inserted it into Yang Seol-hui this time.</p>
@@ -29,7 +29,7 @@ chapter = 213
 <p>As I moved back and forth between the two pussies, both Clitoriss were stimulated at the same time, and both of them made loud moaning sounds.</p>
 <p>I kept rubbing between their pussy mounds, and when the vaginal fluids dried up, I took turns thrusting into each pussy once more to refill the fluids and rubbed between their pussy mounds again. After repeating that several times, I gradually felt the sensation of cumming.</p>
 <p>I pressed Yang Seol-hui tightly with my body. Naturally, the pressure of the Dang So-hwa-Yang Seol-hui pussy sandwich increased even more. Naturally, the adhesion with my dick, which was moving in and out between them, increased, and all three of us experienced increased pleasure.</p>
-<p>"Heueuaang! I like it, Ryuta-nim! It feels strange~♥"</p>
+<p>"Heueuaang! I like it, Ryuta-nim! It feels strange♥"</p>
 <p>"Heueut! I'm coming, I'm coming, I'm coming! Heung, eueheut! Hyaaheueut♥"</p>
 <p>"I'm gonna cum!"</p>
 <p>Byuut! Beut! Byuut! Byureut!</p>

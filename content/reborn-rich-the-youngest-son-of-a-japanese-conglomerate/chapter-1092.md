@@ -46,7 +46,7 @@ chapter = 1092
 <p>For the first time in her life (she probably masturbated, so it might not truly be the first time in her life), at the pleasure she felt, Maya Reed lost her mind. Not just her nipples, but even just touching her breasts had such good sensitivity, it was a pleasure to touch.</p>
 <p>"Heueung...! Boss's hand, Haaheung♥ It's hot...!"</p>
 <p>My semen is quite hot, but my other body temperature is normal.... Perhaps because I'm touching her, her heat rises, and that's how it feels. Despite Maya Reed saying it was hot, I paid no mind and continued to touch her breasts.</p>
-<p>"Haaht~! Eungheueut...! Boss, Haaht! Boss...!"</p>
+<p>"Haaht! Eungheueut...! Boss, Haaht! Boss...!"</p>
 <p>The more I kept touching, her breath gradually quickened, and her moans grew louder. At the threshold of Maya Reed's climax, I pinched Maya Reed's nipples as if twisting them.</p>
 <p>"Hieueueut!!! It's strange, it's strange♥ Bossueut!!!"</p>
 <p>Almost simultaneously with that, Maya Reed reached her climax. Twisting her entire body, the light in her eyes blurred. She was a virgin, yet she came just from her breasts; she had considerable talent.</p>
@@ -73,12 +73,12 @@ chapter = 1092
 <p>"Ma, Maya?! Kreueut...! It feels good...."</p>
 <p>Perhaps because she was a voice Ability User, freely constricting and releasing my cock with her throat pussy felt the best among all the deep throats I'd experienced so far. My waist trembled involuntarily.</p>
 <p>Of course, as Maya Reed was also a beginner, my cock poked her throat, and tears welled up in her eyes, but still, without gagging, she was properly sucking my cock deeply.</p>
-<p>Maya Reed B-cut~!</p>
+<p>Maya Reed B-cut!</p>
 <p>Ggyuus</p>
-<p>Christmas Cover Special~!</p>
-<p>Requested by Geomeunkkaemuk-nim: Han Yu-gyeong in an off-shoulder dress in a Christmas-themed room~!</p>
-<p>This year's Christmas cover winner is here~! I deliberated between #1 and #2 and decided on #2 hehe.</p>
-<p>Requested by TheDreaming-nim: Athena on a snowy park bench~!</p>
+<p>Christmas Cover Special!</p>
+<p>Requested by Geomeunkkaemuk-nim: Han Yu-gyeong in an off-shoulder dress in a Christmas-themed room!</p>
+<p>This year's Christmas cover winner is here! I deliberated between #1 and #2 and decided on #2 hehe.</p>
+<p>Requested by TheDreaming-nim: Athena on a snowy park bench!</p>
 <p>Although I also liked the Athena requested by TheDreaming-nim, the cover is important for attracting readers, so I chose Yu-gyeong, who has a bit more volume hehehe.</p>
-<p>Requested by Hwanbuljeoldaebulga-nim: Santa girl Lisa, the home economics teacher~!</p>
-<p>Unless it's made exceptionally well, it seems older models will be difficult to make into covers~! ㅠㅠ</p>
+<p>Requested by Hwanbuljeoldaebulga-nim: Santa girl Lisa, the home economics teacher!</p>
+<p>Unless it's made exceptionally well, it seems older models will be difficult to make into covers! ㅠㅠ</p>

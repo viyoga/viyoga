@@ -11,9 +11,9 @@ chapter = 782
 
 <p>His cock throbbed violently inside her, firing thick spurt after thick spurt straight into the depths of her womb, flooding her with hot, viscous cum until every last nook and cranny was filled to the brim.</p>
 
-<p>"Aghnn~~ big brother’s seed..." Rou’er moaned softly, her small hands clutching her own belly, feeling her womb swell with the absurd amount of sperm accumulating inside her.</p>
+<p>"Aghnn big brother’s seed..." Rou’er moaned softly, her small hands clutching her own belly, feeling her womb swell with the absurd amount of sperm accumulating inside her.</p>
 
-<p>"There’s so much... so sticky, hehe~" Rou’er let out a tipsy giggle before falling backward onto the bed. Her small but full breasts bounced upward with the impact.</p>
+<p>"There’s so much... so sticky, hehe" Rou’er let out a tipsy giggle before falling backward onto the bed. Her small but full breasts bounced upward with the impact.</p>
 
 <p>But of course, that wasn’t the end.</p>
 

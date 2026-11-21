@@ -56,7 +56,7 @@ chapter = 673
 <p>Taira Danjo's thoughts and his grandson's thoughts, though cheeky, were the same. Gocho Kikuhito, who oversees the information at St. Francisco Girls' Academy, was an excellent guy. He wasn't the type to make a mistake of not passing on this important information to Taira Ryuta.</p>
 <p>Then, naturally, he had no choice but to think that there was some cause for this. And it was impossible for the information team to have such mistakes or contamination.</p>
 <p>"Okay, I understand. If what you think is true, I'll give you a gift."</p>
-<p>-Instead of a gift, just reduce the remaining two of the three missions. It's hard, Grandfather~</p>
+<p>-Instead of a gift, just reduce the remaining two of the three missions. It's hard, Grandfather</p>
 <p>"I can't do that, you Bastard! You cheeky Bastard, contact your grandmother. I'm hanging up now."</p>
 <p>Taira Danjo chuckled at his grandson's words and hung up the phone with a scolding. A huge guy acting cute to his grandpa.... No one had ever acted cute to him before, so it was a refreshing feeling.</p>
 <p>Taira Danjo, who had been laughing for a moment, returned to his expressionless face and called his chief secretary, Fumimoto Takayuki.</p>

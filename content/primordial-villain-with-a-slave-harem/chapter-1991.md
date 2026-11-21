@@ -16,7 +16,7 @@ chapter = 1991
 <p>*Crunch!*</p>
 <p>Leaving the mage crumpled against the wall, the elf began walking toward Andre with a dagger in each hand. Aurora stepped away from the shielded patients to join her.</p>
 <p>"Let me join you."</p>
-<p>"Sure~"</p>
+<p>"Sure"</p>
 <p>Crimson marks blazed over both women’s wombs, shining through their clothes as they drew from their husband’s Reservoir. Seraphiel’s blades compressed into jagged dark-edged light; beside her, frost spread through the barrier Aurora wrapped around the Dawnbringer’s body.</p>
 <p>The platinum-haired woman held her staff ready, amber eyes fixed on Andre.</p>
 <p>"It was a remarkable last-ditch effort," she said. "But I’m afraid your fates have now been sealed for good."</p>
@@ -33,7 +33,7 @@ chapter = 1991
 <p>Only once the barriers held did the blonde woman step off him. She picked up Marielle’s staff and snapped it across her knee, dropping the pieces in front of its dazed owner.</p>
 <p>Aurora enclosed Andre’s abandoned sword in an empty shell of light beyond his reach. He watched her return to the patients, unable to lift his hand from the floor.</p>
 <p>"I’ll keep an eye on them," she told Seraphiel. "Go have your fun."</p>
-<p>"Love you~"</p>
+<p>"Love you"</p>
 <p>With a delighted laugh, the Dawnbringer ran down the steps, shouting joyously. "Fear not, girls, for Seraphiel Vaelorith Elysiar has entered the fray!"</p>
 <p>Aurora opened the outer barrier for her, and the elf lengthened her daggers into twin blades before leaping past Kaelira into the spiders climbing toward the terrace.</p>
 <p>From the floor, Marielle caught a blur of blonde hair beyond Aurora’s shield. A spider toppled away from the terrace with light burning through its mouth, and the elf’s laughter reached her through the ringing in her ears. Trying to follow her made the cavern tilt; Marielle shut her eyes and swallowed blood.</p>

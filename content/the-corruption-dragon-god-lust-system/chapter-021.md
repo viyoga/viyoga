@@ -109,7 +109,7 @@ chapter = 21
 
 <p>Soon, her whimpering sniffles turned into uncontrollable moans.</p>
 
-<p>“Ngh~~.” Her body arched on the bed as she gripped her own breasts tightly, the flesh spreading between her slender, delicate fingers.</p>
+<p>“Ngh.” Her body arched on the bed as she gripped her own breasts tightly, the flesh spreading between her slender, delicate fingers.</p>
 
 <p>***</p>
 

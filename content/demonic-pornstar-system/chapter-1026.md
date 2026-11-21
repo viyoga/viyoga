@@ -7,7 +7,7 @@ chapter = 1026
 
 <p>Kaiden Grey followed Yunohana into the kimono house, where the proprietress welcomed his family with her attendants lined up behind her. Calypso smiled at the young women as she ducked beneath the entrance curtain.</p>
 <p>One of the younger attendants made a tiny noise. The girl beside her caught her wrist, and both stood straighter as their employer glanced back.</p>
-<p>"Hello~"</p>
+<p>"Hello"</p>
 <p>"Hello!" they answered together.</p>
 <p>The demoness grinned. One of the girls covered her mouth, visibly struggling with having been greeted by her.</p>
 <p>Yunohana spoke to the proprietress while the family removed their shoes. Soon bolts of fabric were coming off the shelves, and the attendants spread finished display garments across a long table.</p>
@@ -32,7 +32,7 @@ chapter = 1026
 <p>"I know, I know. I was just messing with you." Luna giggled, then added, "You’re a real cutie yourself."</p>
 <p>"!!!!" The blush that followed could illuminate perfect darkness.</p>
 <p>She needed to take three audible, lengthy breaths to steady herself. "Messing with me... Lady Luna!!"</p>
-<p>"Heh~" Luna grinned. "No way~"</p>
+<p>"Heh" Luna grinned. "No way"</p>
 <p>"..." The attendant pouted cutely and retrieved a dark purple display kimono from the stack, holding it up for Luna with considerably more confidence.</p>
 <p>"This one? For you?"</p>
 <p>Silver flowers climbed the sleeves. The attendant touched the embroidery before pointing to a sketch the proprietress was making beside them. Dark clouds gathered around the drawn hem, split by branching silver lightning.</p>
@@ -68,7 +68,7 @@ chapter = 1026
 <p>She turned her wrist beneath his fingers, admiring the contrast herself.</p>
 <p>"Oh, yes. And we can have red flames climbing up. Darling, I’ll look gorgeous."</p>
 <p>"You’re making it very difficult to wait for these."</p>
-<p>"Poor you~"</p>
+<p>"Poor you"</p>
 <p>Alexandra was still holding the blue floral kimono against herself when she found its price tag.</p>
 <p>"Oh."</p>
 <p>She read it again, then carefully lowered the garment onto the table.</p>

@@ -20,7 +20,7 @@ chapter = 186
 <p>"Here's a card. I don't know how many days it will take, but think of it as a Akita tour and have fun. I'll be back within five days at the latest."</p>
 <p>I took out the card where my salary is deposited and gave it to Konoe Akina, who is the oldest and familiar with Japan. Originally, it was an account used to withdraw my salary immediately and put it into Health Miracle, but after Health Miracle skyrocketed and I sold the stocks, I was just using it as a cash card. There's about 15 million yen in it, so even if they spend a lot, it shouldn't be insufficient.</p>
 <p>"Everyone seems to be fine after eating the porridge, so eat something delicious starting tomorrow."</p>
-<p>"Wow~!"</p>
+<p>"Wow!"</p>
 <p>Everyone cheered and got excited at my words. They seemed most excited about food, probably because they had been quite hungry while in the slave trader's underground prison.</p>
 <p>I wrote my LINE address on a piece of paper and gave it to Konoe Akina, opening my mouth.</p>
 <p>"Konoe-ssi, here's my LINE address, so buy a phone tomorrow, register it here, and contact me if anything happens."</p>
@@ -73,7 +73,7 @@ chapter = 186
 <p>"Shall I call Nagumo Sian-nim?"</p>
 <p>"Yes."</p>
 <p>Mimata Chieri picked up the phone and called Nagumo Sian. As Mimata Chieri is the general manager in charge of the Eastern Front, Nagumo Sian answered the phone right away. The two were talking about the movement of Seryu Tai.</p>
-<p>"Yes, I understand. Ah! Senior? Yes~. Senior, Nagumo Sian-nim is telling me to switch."</p>
+<p>"Yes, I understand. Ah! Senior? Yes. Senior, Nagumo Sian-nim is telling me to switch."</p>
 <p>After talking for a while, Mimata Chieri handed the phone to me.</p>
 <p>"Yes, Nuna. I'm on the phone."</p>
 <p>-This fight isn't your fight, I'm sorry.</p>

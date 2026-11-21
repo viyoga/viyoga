@@ -69,15 +69,15 @@ chapter = 1013
 <p>"Yes. I'll connect right away."</p>
 <p>At my Words, Naruse Shiyo nodded her Head and began to touch her phone. She was probably going to inform Jo Seodang that we had chosen the Operation.</p>
 <p>When I first heard about the Attack from Japan, it was quite a headache, but now, I was actually looking forward to Taira Gensuke's Attack.</p>
-<p>Gojoy-nim requested Arisu looking drunk in a Hotel Room and sensually gazing at Ryuta's Muscular Figure~!</p>
-<p>Drunk Arisu~!</p>
+<p>Gojoy-nim requested Arisu looking drunk in a Hotel Room and sensually gazing at Ryuta's Muscular Figure!</p>
+<p>Drunk Arisu!</p>
 <p>The request was for a drunk Arisu leading to a Hotel, but since leading to a Hotel didn't work well and adding 'drunk' kept her holding a cup of Alcohol, I changed it to an indoor scene haha.</p>
-<p>Sensual Gaze~!</p>
+<p>Sensual Gaze!</p>
 <p>I tried to create the feeling of Licking at Ryuta's Muscles haha.</p>
-<p>TheDreaming-nim requested Matsunaga Yuzuki with Upper Body Exposure + Pantyhose, Breast gathering, and Zero Two~!</p>
-<p>Breast gathering~!</p>
-<p>Zero Two~!</p>
-<p>Chomisaemeonji-nim requested Liz enjoying Teatime and Liz doing Athletics~!</p>
-<p>Teatime~!</p>
-<p>Athleticism~!</p>
-<p>Kkiyot~!</p>
+<p>TheDreaming-nim requested Matsunaga Yuzuki with Upper Body Exposure + Pantyhose, Breast gathering, and Zero Two!</p>
+<p>Breast gathering!</p>
+<p>Zero Two!</p>
+<p>Chomisaemeonji-nim requested Liz enjoying Teatime and Liz doing Athletics!</p>
+<p>Teatime!</p>
+<p>Athleticism!</p>
+<p>Kkiyot!</p>

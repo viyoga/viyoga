@@ -32,7 +32,7 @@ chapter = 969
 <p>As expected, with a body that hadn't been trained at all, she struggled quite a bit even with small weights, but Tsukiyo's Abyss-like power seemed to also have regenerative abilities, so her recovery was quick, and it seemed that progress in physical training could be made rapidly.</p>
 <p>Although it hadn't been long since I saw Tsukiyo, I thought her Appetite was quite vigorous, and it seemed to be because of her regenerative abilities.</p>
 <p>"Do ten sets of what I just showed you, then rest today."</p>
-<p>"Ten sets? That's too many, Oppaa~!"</p>
+<p>"Ten sets? That's too many, Oppaa!"</p>
 <p>Normally, I would have her do about five sets, but since I knew she had regeneration, I had her do double the usual and came Outside. In fact, ten sets weren't too many for someone with regenerative abilities. Besides going to the Airport today, I had other schedules, so I couldn't stay with Tsukiyo continuously.</p>
 <p>While supervising Tsukiyo's exercise, I also lifted some equipment, so I took a Shower to wash off the Sweat, changed into a Suit, and then got into the vehicle I used to drive during my Talent Development Institute days, which was parked at the mansion.</p>
 <p>Today, I planned to visit the Talent Development Institute. After coming to Neo Tokyo, I had many busy things to do so I couldn't go right away, but I couldn't delay any longer. Since I didn't know what would happen if Yukiko got upset, I had to meet her today.</p>
@@ -48,7 +48,7 @@ chapter = 969
 <p>Having returned to the Talent Development Institute after a long time, I parked my car in front of Taira Yukiko's house within the Talent Development Institute, which was my old designated spot, and got out.</p>
 <p>Where should I go first? I pondered whether to go to the Director's office where Taira Yukiko was, or to Education Support Team 2 where I used to work.</p>
 <p>It didn't particularly matter where I went, but if I went to Yukiko first, she probably wouldn't let me go, so I headed to Education Support Team 2 first.</p>
-<p>"Long time no see~!"</p>
+<p>"Long time no see!"</p>
 <p>Entering the Education Support Team 2 office, I greeted them and gave the employees the gifts I had brought in advance. Since my colleagues thought I had gone on a Business Trip to the Hokkaido Branch, I had prepared Hokkaido specialty sets in advance and distributed them as gifts.</p>
 <p>There were quite a few team members I was seeing for the first time, and it seemed there were some people to fill the void left by Mimata Chieri, who had retired to take on the role of President of East Weapon, and my sudden Business Trip to the Branch.</p>
 <p>"Team Leader-nim."</p>
@@ -72,7 +72,7 @@ chapter = 969
 <p>Since it's come to this, I need to satisfy them quickly. Because I also have a schedule later.</p>
 <p>30 minutes later.</p>
 <p>"Heueuheuung...!"</p>
-<p>"Heuhaaheung...! No more~!"</p>
+<p>"Heuhaaheung...! No more!"</p>
 <p>With my cock, continuously trained by St. Francisco Female Students and various other Women, Shinoe Misano and Suzuki Chisami had no choice but to surrender quickly. If Taira Yukiko hadn't been waiting, I would have played with them a little longer, but since Taira Yukiko was waiting, I did my best to use Bedroom Arts to bring them to Climax as quickly as possible.</p>
 <p>"First, both of you, compose yourselves and put on your Clothes."</p>
 <p>"Nehee...."</p>
@@ -88,5 +88,5 @@ chapter = 969
 <p>1.</p>
 <p>2.</p>
 <p>Neosblue-nim requested SD Hanakame and SD Asada Ei</p>
-<p>Hanakame first~!</p>
-<p>Asada Ei~!</p>
+<p>Hanakame first!</p>
+<p>Asada Ei!</p>

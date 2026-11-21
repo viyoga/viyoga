@@ -39,7 +39,7 @@ chapter = 511
 
 <p>Hearing that, Qingyi just stood silently for a moment before giving Meilin’s plump ass a firm slap and throwing himself into an armchair next to her, pulling her on top of him.</p>
 
-<p>“Nghnn~~ What’s that? Are you finally going to reward me for my hard work?” Meilin flashed a smile, leaning over Qingyi.</p>
+<p>“Nghnn What’s that? Are you finally going to reward me for my hard work?” Meilin flashed a smile, leaning over Qingyi.</p>
 
 <p>She felt something big and hard growing beneath her, pressing against her plump, perfect butt.</p>
 
@@ -65,7 +65,7 @@ chapter = 511
 
 <p>Slowly, her hips began to descend onto his cock, another slap hitting her bubble-shaped buttocks.</p>
 
-<p>“Aghnn~~” She moaned.</p>
+<p>“Aghnn” She moaned.</p>
 
 <p>A powerful shockwave spread through the soft flesh of her ass, where Qingyi’s hands left a reddish mark.</p>
 
@@ -75,7 +75,7 @@ chapter = 511
 
 <p>Meilin’s eyes rolled back, her tongue slipping out of her lips, accompanied by a sweet, obscene moan.</p>
 
-<p>“Ghnn~~ Husband… so big…” Meilin purred.</p>
+<p>“Ghnn Husband… so big…” Meilin purred.</p>
 
 <p>She placed her hand on her delicate belly, so thin that she could feel the perfect outline of her husband’s cock inside her, filling her to the brim.</p>
 
@@ -87,13 +87,13 @@ chapter = 511
 
 <p>Her fat, perfectly round cheeks hit Qingyi’s thighs with a thud, powerful shockwaves spreading across the perfect, pale orbs.</p>
 
-<p>“Aghnn~~” She moaned through her nose, her entire body trembling as she picked up the rhythm of the movement.</p>
+<p>“Aghnn” She moaned through her nose, her entire body trembling as she picked up the rhythm of the movement.</p>
 
 <p>Soon, the speed at which her hips moved increased, her buttocks hitting his thighs with powerful thuds, the flesh taken over by violent and obscene ripples.</p>
 
 <p>Her attempts to keep her moans low soon began to fail, and her cherry lips became drenched in saliva as her pink tongue escaped, extending with each moan.</p>
 
-<p>“Nghnn~~ So~~ good~~ Oh fuck… Oh heavens!~~” Meilin’s voice exploded as her eyes rolled back in pleasure.</p>
+<p>“Nghnn So good Oh fuck… Oh heavens!” Meilin’s voice exploded as her eyes rolled back in pleasure.</p>
 
 <p>She only fell silent when Qingyi moved, one of his hands falling onto the milky, soft skin of her hips, while the other rose, a single finger entering her lips.</p>
 
@@ -115,7 +115,7 @@ chapter = 511
 
 <p>A first spurt of cum invaded her womb, followed by another and then another, filling her until she couldn’t take any more.</p>
 
-<p>“Hm~~” She moaned, rubbing her face against her husband’s chest.</p>
+<p>“Hm” She moaned, rubbing her face against her husband’s chest.</p>
 
 <p>“Ah… naughty girl.” Qingyi grabbed Meilin’s ass hard.</p>
 

@@ -30,7 +30,7 @@ chapter = 415
 <p>Alik's level isn't high enough to be a mid-boss yet, so he doesn't have all the characteristics, but he definitely has good ones.</p>
 <p>As I was talking with Alik, I arrived at Cheongsim Hall before I knew it. When I arrived at Cheongsim Hall, some students who had arrived earlier greeted us.</p>
 <p>Alik was greeted because he was a member of the same club, and I was greeted because I occasionally visited Cheongsim Hall.</p>
-<p>"Yamashiro seonsaengnim, hello~!"</p>
+<p>"Yamashiro seonsaengnim, hello!"</p>
 <p>The student who greeted me most cheerfully was Nishiike Neiko, the current vice-captain of Cheongsim Hall. She was the vice-captain when Saionji Diana was the captain, and she automatically became the captain when Saionji Diana lost her arms and legs in an accident and left Cheongsim Hall. According to Saionji Diana, Nishiike Neiko is a very skilled two-sword master, and she has skills comparable to Saionji Diana.</p>
 <p>Cheongsim Hall was a fairly large club with several members from each grade from middle school, so each grade had a captain, and the 3rd grade high school captain became the club captain of Cheongsim Hall. The captain of Cheongsim Hall next year will probably be the current 2nd grade high school captain.</p>
 <p>"Ryuta-gun, it's been a while."</p>

@@ -26,14 +26,14 @@ chapter = 4
 <p>’It never stops at a taste.’ She thought confidently.</p>
 <p>A drop could never be enough.</p>
 <p>Kevin stood up from his chair, grabbed Arlette’s arm, and extended his tongue to lick off the blood that was dripping down the side of it. He was tracing his way to the small slice wound when he heard a voice so close to his ear,</p>
-<p>~"Take your time."~</p>
+<p>"Take your time."</p>
 <p>He paused.</p>
 <p>The voice was definitely female but it wasn’t Arlette’s voice. She also didn’t react like she heard it.</p>
 <p>Furrowing his brows, Kevin continued but moved much more slowly this time.</p>
 <p>"Yes," Arlette said still with a smirk, "Yes, that’s it."</p>
 <p>Kevin ignored her. The strange voice from before was back,</p>
-<p>~"Good, good."~ it crooned,</p>
-<p>~"Now, you’re going to want to excite her more. It’ll taste better when you do. Trust me."~</p>
+<p>"Good, good." it crooned,</p>
+<p>"Now, you’re going to want to excite her more. It’ll taste better when you do. Trust me."</p>
 <p>Confused at the advice but feeling the urge to obey, Kevin took his left hand out of his pocket and wrapped his left arm around Arlette’s waist, pulling her closer.</p>
 <p>"Oh?" Arlette let out when his arm went around her and her eyes went wide in surprise.</p>
 <p>Kevin didn’t notice. He continued to obey the strange voice and stopped sucking blood out of Arlette’s arm. He trailed his lips along her arm and his left hand slipped from her waist toward the high rise of her ass. Feeling the silky material of her gown all the way.</p>
@@ -44,7 +44,7 @@ chapter = 4
 <p>Arlette chuckled. A sound that was a mix of surprise at his audacity and her amusement,</p>
 <p>"How far will you take it?" She asked placing a hand between them and lightly against his chest. Ready to push him away from her the instant he went too far.</p>
 <p>Caius’ lips continued their journey up Arlette’s arm and when he got to her shoulder, he felt her shudder against his body.</p>
-<p>~"You felt that, right?"~ The strange voice asked Kevin, ~"You know what it means?"~</p>
+<p>"You felt that, right?" The strange voice asked Kevin, "You know what it means?"</p>
 <p>’Of course, I know what it means,’ Kevin sniped at the voice in his thoughts, ’Think I’ve never been with a woman before?’</p>
 <p>The voice chuckled like it had heard his thoughts and then it said in a low breathy tone,</p>
 <p>"Well, now that you’ve gotten her excited, go for her neck. Her blood will flow stronger from there."</p>

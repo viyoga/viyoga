@@ -60,7 +60,7 @@ chapter = 212
 <p>Kaiden held up a finger, and the stream instantly got a new window where data was displayed.</p>
 <p>"Poll going live. First pair: Me and Nyx. You’ve got 30 seconds to vote."</p>
 <p>Nyx’s smile turned feral as she stretched her arms toward the air.</p>
-<p>"Vote wisely, girls... This body might’ve not been honed in gyms, but I’m very~ flexible."</p>
+<p>"Vote wisely, girls... This body might’ve not been honed in gyms, but I’m very flexible."</p>
 <p>The chat lost its collective mind.</p>
 <p>Viewer count surged.</p>
 <p>Donation bar ticked up like a rocket.</p>

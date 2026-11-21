@@ -25,9 +25,9 @@ chapter = 1893
 <p>"Get off- you’re all fat as fuck- what do you bitches eat?!"</p>
 <p>They didn’t listen.</p>
 <p>"Ah. I dropped the crown!" the queen of Vraven said, from inside the pile.</p>
-<p>"Wait, let me try it on~" Kitsara purred.</p>
+<p>"Wait, let me try it on" Kitsara purred.</p>
 <p>"Nooo... You shouldn’t...!"</p>
-<p>"It looks good on you~" Seraphiel giggled.</p>
+<p>"It looks good on you" Seraphiel giggled.</p>
 <p>"You try it too!"</p>
 <p>"Sure!"</p>
 <p>"Me next!" Aurora laughed.</p>

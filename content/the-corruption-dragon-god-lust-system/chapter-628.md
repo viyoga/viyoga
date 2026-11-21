@@ -41,7 +41,7 @@ chapter = 628
 
 <p>“Then it’s better to sell directly to the sect.” Qingyi flashed a bitter smile, though it only lasted until he noticed the look on her face. Ruxue was already panting and flushed, her hips swaying in a slow, sensual rhythm against the growing bulge beneath her.</p>
 
-<p>“You’ve been on that mission for so long and you already want to start cultivating. Don’t you think you should pay a little attention to your women first? Fufufu~~” She let out a sensual giggle, her lips brushing lightly against his.</p>
+<p>“You’ve been on that mission for so long and you already want to start cultivating. Don’t you think you should pay a little attention to your women first? Fufufu” She let out a sensual giggle, her lips brushing lightly against his.</p>
 
 <p>Those huge, heavy tits pressed against his chest like warm, soft pillows.</p>
 

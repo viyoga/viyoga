@@ -30,19 +30,19 @@ chapter = 1017
 <p>"Honey, how is it?"</p>
 <p>"It's new, isn't it? Such modest Clothes suit you too, Lianna."</p>
 <p>When I honestly praised her with a surprised Expression, Lianna Holden, with an Expression of success, showed me a peace sign and gave me a Wink.</p>
-<p>"Ehehe, sometimes I have to show such a gap to make your heart flutter, you know~!"</p>
+<p>"Ehehe, sometimes I have to show such a gap to make your heart flutter, you know!"</p>
 <p>As expected, it seemed like a strategic Clothes choice to show a different Appearance from her usual self. Lianna Holden, as if satisfied with my Reaction, quickly left Outside.</p>
-<p>"Teacher~! Now it's my Turn!"</p>
+<p>"Teacher! Now it's my Turn!"</p>
 <p>Next to enter noisily was Kujo Kina.</p>
 <p>"W-what?!"</p>
 <p>Seeing Kujo Kina enter my room, I couldn't help but be surprised. Kujo Kina's Attire was on a different Dimension from the Women who had come to show off their Dresses until now.</p>
 <p>"Can you enter the auction house wearing this?"</p>
 <p>Kujo Kina's Clothes, what should I say.... It doesn't seem like a Dress, you know. Well, it's not Pants either, so if you consider it a Dress, it was ancient Greek style Dress Attire. She was completely matching, even with accessories and gladius-style shoes.</p>
-<p>"Kyahaha! This is a Luxury Brand, Teacher~! If they don't let me in, I'll argue~! It's a Luxury Brand Dress, so why not? A Woman's Dress code is a Dress, you know!"</p>
+<p>"Kyahaha! This is a Luxury Brand, Teacher! If they don't let me in, I'll argue! It's a Luxury Brand Dress, so why not? A Woman's Dress code is a Dress, you know!"</p>
 <p>This is a Luxury Brand...? Well, there are Gold Ornaments here and there, and it looks expensive, but.... Since she likes it, I couldn't say anything.</p>
 <p>Still, as Kujo Kina is muscular, the Dress itself quite suited her. It was like a Greek female Warrior, I guess.... If she were only given a Spear and Shield, she would look exactly like a Greek armored infantry.</p>
 <p>"It doesn't seem to suit the auction house, but for you, Kina, it suits you."</p>
-<p>"Kyahaha! Right~?"</p>
+<p>"Kyahaha! Right?"</p>
 <p>Whatever other Evaluations, since I said it suited her, Kujo Kina laughed, greatly satisfied. Seeing her laugh heartily, she looked like an ancient Greek female General.</p>
 <p>"Then next is the Last, isn't it? It was fun, Teacher?"</p>
 <p>"Well.... It was quite enjoyable."</p>
@@ -80,7 +80,7 @@ chapter = 1017
 <p>"There's a Line there."</p>
 <p>As soon as we got off the limousine, a gigantic Cruise ship was visible. On the stairs to board the Cruise ship, employees checking identity were visible, along with People standing in a Line to participate in the auction.</p>
 <p>Still, most of the Customers were wealthy People, so perhaps they took some care, as AmSang had installed four sets of stairs so that four teams could go simultaneously.</p>
-<p>"Quickly, let's go, Teacher~!"</p>
+<p>"Quickly, let's go, Teacher!"</p>
 <p>Kujo Kina, seeing the Line, took her team members and ran. By the way, as expected, there was no Person wearing Attire like Kujo Kina's.</p>
 <p>We also quickened our Footsteps and stood in Line. Gradually, the Line shortened, and soon we could face the employee checking identity at the stairs Entrance.</p>
 <p>"Will you show me the AmSang App?"</p>
@@ -89,11 +89,11 @@ chapter = 1017
 <p>"It's Special room number 8. The onboard map has been sent to the AmSang App, so you can go by looking at the App. Have an enjoyable auction."</p>
 <p>The special room had a screen, and Outside could be seen, but it was a room with a non-transparent window where one could actually see the items listed in the auction and participate in the bidding. There were also rooms of a larger Size.</p>
 <p>Climbing the stairs, I subtly looked to the Side and saw Kujo Kina, who had argued with the employee but was finally allowed entry, drawing a V-sign and smiling at me. It seemed her claim that it was a Dress from a Luxury Brand was correct.</p>
-<p>TheDreaming-nim requested Athena's drunk Appearance at a ramen shop and her eating Instant Noodles Appearance~!</p>
-<p>Drunk Athena~!</p>
-<p>Eating Instant Noodles Athena~!</p>
+<p>TheDreaming-nim requested Athena's drunk Appearance at a ramen shop and her eating Instant Noodles Appearance!</p>
+<p>Drunk Athena!</p>
+<p>Eating Instant Noodles Athena!</p>
 <p>The chopsticks + eating Instant Noodles combo didn't come out well, so excluding the first illustration, I changed it to just placing the Instant Noodles vessel in front haha.</p>
-<p>Hwanbuljeoldaebulga-nim requested Yuka-ttang lying down while drunk~!</p>
-<p>Gojoy-nim requested Gokado Hanako's Appearance lying on the bed and Ryuta watching them fuck~!</p>
-<p>Bed~!</p>
-<p>Watching them fuck~!</p>
+<p>Hwanbuljeoldaebulga-nim requested Yuka-ttang lying down while drunk!</p>
+<p>Gojoy-nim requested Gokado Hanako's Appearance lying on the bed and Ryuta watching them fuck!</p>
+<p>Bed!</p>
+<p>Watching them fuck!</p>

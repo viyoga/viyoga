@@ -97,7 +97,7 @@ chapter = 439
 
 <p>His right hand struck her ass with a loud, wet smack. His left hand moved up to her huge tits, grabbing and squeezing them.</p>
 
-<p>“Nghnn~~ Q-Qingyi- aghnnn~~” A loud, long, obscene moan escaped Celestia’s lips as her body calmed down from the impact.</p>
+<p>“Nghnn Q-Qingyi- aghnnn” A loud, long, obscene moan escaped Celestia’s lips as her body calmed down from the impact.</p>
 
 <p>She could feel everything.</p>
 
@@ -119,7 +119,7 @@ chapter = 439
 
 <p>“Oh..” Qingyi acted like he made a mistake, removing his hand from Celestia’s chest and moving it down, now grabbing her buttocks with both hands.</p>
 
-<p>“Nghnn~~” Celestia moaned again, feeling the new pressure on her perfect butt as Qingyi greedily grabbed them.</p>
+<p>“Nghnn” Celestia moaned again, feeling the new pressure on her perfect butt as Qingyi greedily grabbed them.</p>
 
 <p>The new position forced her against his chest, her face pressed against him, while on her belly she felt pressure coming from a bulge in Qingyi’s crotch.</p>
 

@@ -73,7 +73,7 @@ chapter = 905
 
 <p>That was a star with a mind of its own!</p>
 
-<p>"Fufufufu~ You don’t need to overthink it, child. You don’t know my name, but I know yours, and I’ve been watching you since your very first step... I am the Primordial Empress of Spirits, creator of all spirits, from the most insignificant to the most powerful. That little girl by your side, Ruxue, is one of my favorite creations..."</p>
+<p>"Fufufufu You don’t need to overthink it, child. You don’t know my name, but I know yours, and I’ve been watching you since your very first step... I am the Primordial Empress of Spirits, creator of all spirits, from the most insignificant to the most powerful. That little girl by your side, Ruxue, is one of my favorite creations..."</p>
 
 <p>"Oh... so you’re not the Primordial Star of Creation?"</p>
 

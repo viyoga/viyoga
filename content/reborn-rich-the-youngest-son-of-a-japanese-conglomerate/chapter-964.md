@@ -7,7 +7,7 @@ chapter = 964
 
 <p>"Ehehehe...! I won. Ryuta-cchi, your cock, now... put it in♥"</p>
 <p>Seizawa Shii, who had won the pussy sandwich match, showed a victory peace sign with both hands and demanded my cock. When I nodded, she kicked Otagi Yuka, who was still trembling from the afterglow of climax, to the side, then patted the bed. Huh? Was she telling me to lie down?</p>
-<p>"Ryuta-cchi must be tired from thrusting your hips continuously, so I'll move on top of you~♥"</p>
+<p>"Ryuta-cchi must be tired from thrusting your hips continuously, so I'll move on top of you♥"</p>
 <p>It was probably less for my sake and more because she wanted to run wild on top of me, but since the cowgirl position wasn't bad, I lay down on the bed as Seizawa Shii suggested.</p>
 <p>"Heueung...♥ Ryuta-cchi's cock...! It's been so long, haaheung♥"</p>
 <p>Since I hadn't had celebratory sex (?) with Seizawa Shii after the battle with Anyaji, Seizawa Shii lost her mind at the sight of my cock. As I lay down, she deeply inhaled the scent of my cock, which stood proudly towards the sky, then made an orgasm face, as if she had smelled catnip, saying, 'This is it...!'</p>
@@ -71,12 +71,12 @@ chapter = 964
 <p>'Why am I doing this...? I must leave immediately...!'</p>
 <p>Contrary to her thoughts, Seiwa Rieko couldn't stop peeping. To avoid being caught, she even used her Fogification to assimilate into the darkness and watched the trio's sex scene.</p>
 <p>Seiwa Rieko couldn't leave Taira Ryuta's doorway until the blue light of dawn appeared outside the window.</p>
-<p>Gojoy-nim requested Ha Ju-yoon's Breast Covering and Tape~!</p>
-<p>First, Tape~!</p>
-<p>Breast Covering~!</p>
-<p>Hwanbuljeoldaebulga-nim requested Hotpants, Sleeveless Crop Top, Belly button piercing Lisa, and Home Economics Teacher~!</p>
-<p>Home Economics Teacher~!</p>
-<p>MidNightSKY-nim requested Han Yu-gyeong and Ha Ju-yoon's Sexy Attire~!</p>
-<p>Ha Ju-yoon~!</p>
-<p>Han Yu-gyeong~!</p>
-<p>Neosblue-nim requested Maid Alik~!</p>
+<p>Gojoy-nim requested Ha Ju-yoon's Breast Covering and Tape!</p>
+<p>First, Tape!</p>
+<p>Breast Covering!</p>
+<p>Hwanbuljeoldaebulga-nim requested Hotpants, Sleeveless Crop Top, Belly button piercing Lisa, and Home Economics Teacher!</p>
+<p>Home Economics Teacher!</p>
+<p>MidNightSKY-nim requested Han Yu-gyeong and Ha Ju-yoon's Sexy Attire!</p>
+<p>Ha Ju-yoon!</p>
+<p>Han Yu-gyeong!</p>
+<p>Neosblue-nim requested Maid Alik!</p>

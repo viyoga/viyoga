@@ -7,7 +7,7 @@ chapter = 884
 
 ?884 Honeymoon With Arya (2)**
 
-"Mhmm~…Mffhm~…"
+"Mhmm…Mffhm…"
 
 Arya let out soft moans as Lith sucked on her honeypot while having her dress still on. nobody had taken out even a single piece of cloth yet, but everything was still working somehow.
 
@@ -31,7 +31,7 @@ The velvety softness in his mouth was just asking him to ravage his wife further
 
 In no time, his tongue was inside and tasting the pink flower that no man other than Lith had access to.
 
-"Mmm… Finally~" Arya said while closing her eyes to feel the pleasure completely.
+"Mmm… Finally" Arya said while closing her eyes to feel the pleasure completely.
 
 Her hands were still on the glass wall and her bare buttocks were out in the open for Lith while her upper body was covered by the red dress.
 
@@ -61,7 +61,7 @@ Lith leaned forwards and gently planting a kiss on her neck, rubbed his free han
 
 "Relax, honey."
 
-"Mhm~~" Arya purred like a spoiled kitten in Lith's embrace. She definitely wasn't submissive like this, but made an exception for today because she was trying out new things.
+"Mhm" Arya purred like a spoiled kitten in Lith's embrace. She definitely wasn't submissive like this, but made an exception for today because she was trying out new things.
 
 Lith licked Arya's neck and firmly wrapping his hand around her waist once again, extended his fangs out and bit her.
 

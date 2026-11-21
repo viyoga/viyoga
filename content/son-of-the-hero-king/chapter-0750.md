@@ -39,7 +39,7 @@ chapter = 750
 <p>Asura did not stop either. A series of chaotic, twisting, and erratic slashes serrated out of his blades, tearing through space and time. A gleam of ecstasy flickered across Asura’s face, prompting him to burst out in a peal of joyous, raucous laughter.</p>
 <p>Stolen content alert: this content belongs on Royal Road. Report any occurrences.</p>
 <p>“CONTINUE! Hahaha!”</p>
-<p>Crack~!</p>
+<p>Crack!</p>
 <p>Space fractured like cracked glass, on the verge of breaking into millions of shards. His sword was powerful and deep, his technique mighty, yet it held no philosophy, nor any of its wielder’s unique intent.</p>
 <p>It made sense when one considered that Asura was inherently not a swordsman, merely a user of the weapon.</p>
 <p>He was nothing but a madman who happened to be able to swing a sword in well-coordinated attacks due to his inhuman battle sense. Nothing more. Nothing less.</p>

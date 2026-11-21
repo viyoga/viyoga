@@ -83,7 +83,7 @@ chapter = 1809
 <p>"...Maybe this’ll help you," she muttered, and was through the gate before anyone could see her face.</p>
 <p>The gate winked shut behind them.</p>
 <p>Quinlan sat very still. His free hand rose, slowly, to the exact spot. "I’ll be damned... Iris..."</p>
-<p>"The ice wall is melting~" Aurora giggled.</p>
+<p>"The ice wall is melting" Aurora giggled.</p>
 <p>"Focus, you two." Naomi didn’t look up from her stirring. "Young man, you still owe this copper a few more hours of you. Young lady, break time hasn’t arrived yet."</p>
 <p>"I know," the duo spoke together in perfect sync.</p>
 <p>The night wore on. The cauldron drank, the burners hissed, and Quinlan’s grin grew quieter by the hour, held up by stubbornness and soft necromantic light.</p>

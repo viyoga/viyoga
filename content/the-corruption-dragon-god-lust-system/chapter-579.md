@@ -7,7 +7,7 @@ chapter = 579
 
 <p>Qingyi moved his head back, Auranys’ nipple in his mouth following the movement until, finally, his lips parted.</p>
 
-<p>Pop “Ah~~”</p>
+<p>Pop “Ah”</p>
 
 <p>A soft pop echoed, and the huge tit snapped back against her chest, swaying for a brief moment, a jet of milk painting her already pale skin.</p>
 

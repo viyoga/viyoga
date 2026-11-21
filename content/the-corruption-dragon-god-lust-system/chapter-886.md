@@ -107,7 +107,7 @@ chapter = 886
 
 <p>Finally, Huoyue allowed herself to cry.</p>
 
-<p>"It’s all right, dear... Yuehan is here, fufufu~" Yuehan whispered, pain also welling up in her own chest.</p>
+<p>"It’s all right, dear... Yuehan is here, fufufu" Yuehan whispered, pain also welling up in her own chest.</p>
 
 <p>For Huoyue to be this hurt, a long time must have passed...</p>
 
@@ -127,7 +127,7 @@ chapter = 886
 
 <p>"Yes." Qingyi nodded. "It’s a pleasure to meet you, my future wife."</p>
 
-<p>"Fufufu~ did she tell you about that silly promise? Not so fast... first, take me to see Ruxue, and, well... tell me exactly what happened to me. How did you bring me back to life?"</p>
+<p>"Fufufu did she tell you about that silly promise? Not so fast... first, take me to see Ruxue, and, well... tell me exactly what happened to me. How did you bring me back to life?"</p>
 
 <p>[NT: Both the girl’s art is already on the characters tab!</p>
 

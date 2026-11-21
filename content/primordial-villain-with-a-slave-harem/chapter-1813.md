@@ -32,7 +32,7 @@ chapter = 1813
 <p>Kaelira sat straight-backed beside her with a diplomatic amount of attention aimed at her plate.</p>
 <p>And across from them, in full Church regalia at a villain’s breakfast table, Elisabeth Valorian was being refilled by a maid for the third time despite having announced her imminent departure twice.</p>
 <p>"Morning, ladies." Quinlan dropped into the widest chair and arranged Aurora sideways across his thigh, where she curled up against his chest with zero scientific dignity remaining and no visible intention of recovering any.</p>
-<p>"Morning, Quin~" Seraphiel’s grin was radiant. "I see you managed to work our alchemist up ’a bit’..."</p>
+<p>"Morning, Quin" Seraphiel’s grin was radiant. "I see you managed to work our alchemist up ’a bit’..."</p>
 <p>"G-good morning," Kaelira managed, ears already pink. "And to you too, Aurora..."</p>
 <p>"H-hey..." the platinum-haired beauty managed, still nestled against Quin.</p>
 <p>"Wait, is ’Daddy’s Little Girl’ Aurora returning to us?" Sera asked, eyes twinkling.</p>

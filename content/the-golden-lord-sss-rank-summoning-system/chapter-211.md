@@ -50,7 +50,7 @@ chapter = 211
 <p>When they turned toward him, Ethan was already standing right in front of them.</p>
 <p>His hands wrapped around their slender waists, fingers sinking into their creamy, sweat-slicked skin as he pulled them forcefully against him.</p>
 <p>Two pairs of huge tits crushed against his firm chest, the heavy mounds compressing from the sudden contact. Mireya’s massive globes clearly claimed more space due to their size, but Evelyn’s refused to be outdone, their deep cleavages obscenely squeezed together between their flushed bodies.</p>
-<p>"Ah~ what’s with that naughty look? You skipped training with me again and now you still want to fuck me along with Mireya?" Evelyn asked, feeling Ethan’s hands slide down to grip both of their firm asses.</p>
+<p>"Ah what’s with that naughty look? You skipped training with me again and now you still want to fuck me along with Mireya?" Evelyn asked, feeling Ethan’s hands slide down to grip both of their firm asses.</p>
 <p>Both women moaned in unison as his palms claimed two handfuls of plump, supple flesh. Mireya, hearing her apprentice’s lewd words, blushed deeply, the purple hue of her face taking on a more vivid shade.</p>
 <p>"Yes, I want to fuck both of you, my love. But first, I have a gift for you."</p>
 <p>Ethan gave each of their asses a light pat, feeling the soft, generous flesh ripple gently beneath his fingers.</p>

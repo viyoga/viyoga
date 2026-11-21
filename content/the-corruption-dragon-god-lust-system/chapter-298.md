@@ -47,15 +47,15 @@ chapter = 298
 
 <p>Who wouldn’t go crazy with an idea like that?</p>
 
-<p>“Fufufu~~ so that’s why her husband brought this little beauty here,” Feiyan blushed, realizing that it was time to finally make a fortune with her talent for alchemy.</p>
+<p>“Fufufu so that’s why her husband brought this little beauty here,” Feiyan blushed, realizing that it was time to finally make a fortune with her talent for alchemy.</p>
 
 <p>There was only one thing she loved more than fortunes, two to be exact. Teasing her sisters and her husband’s cock.</p>
 
 <p>Hugging Meilin tightly, Feiyan pulled her between her breasts, grabbing Meilin’s dress and lifting it up, revealing a plump, shapely and perfect ass, covered in skin as pure as jade.</p>
 
-<p>“Uughn~~? W-what are you doing?” Meilin asked confusedly, her face sinking between Feiyan’s huge boobs.</p>
+<p>“Uughn? W-what are you doing?” Meilin asked confusedly, her face sinking between Feiyan’s huge boobs.</p>
 
-<p>“Come on husband…” Feiyan slapped both hands on Meilin’s buttocks, watching the skin tremble between her fingers as she spread them open, revealing a plump, tight and moist pussy. “Show that ass who’s boss! Then we have to start training that little throat too, fufufu~~”</p>
+<p>“Come on husband…” Feiyan slapped both hands on Meilin’s buttocks, watching the skin tremble between her fingers as she spread them open, revealing a plump, tight and moist pussy. “Show that ass who’s boss! Then we have to start training that little throat too, fufufu”</p>
 
 <p>Meilin just closed her eyes in embarrassment, her torso leaning towards Feiyan’s tits as her buttocks rose slightly.</p>
 
@@ -65,7 +65,7 @@ chapter = 298
 
 <p>The moment he felt she was wet enough, Qingyi thrust in, his hips hitting her ass, sending shockwaves through the round, perfect orbs, her beautiful face sinking even further between Feiyan’s tits.</p>
 
-<p>“Oghnn~~ nghnn~~ Q-qingyi… Heavens…” Meilin moaned breathlessly, her hands wrapping around Feiyan’s waist, holding her tightly as Qingyi increased the speed of his thrusts, the loud claps of his waist hitting her ass spreading throughout the building.</p>
+<p>“Oghnn nghnn Q-qingyi… Heavens…” Meilin moaned breathlessly, her hands wrapping around Feiyan’s waist, holding her tightly as Qingyi increased the speed of his thrusts, the loud claps of his waist hitting her ass spreading throughout the building.</p>
 
 <p>“You really know how to make your husband happy.” Qingyi smiled, slapping Meilin’s ass as he increased the speed of his thrusts, enjoying the beautiful sight of her back arching even more, her tight pussy taking even more of his cock inside her.</p>
 
@@ -75,11 +75,11 @@ chapter = 298
 
 <p>His cock pulsed one last time, feeling the tight walls of Meilin’s pussy twitch around him before he finally came, spurting hot cum inside her.</p>
 
-<p>“Mmhn~~ I can feel… the husband’s seed filling me… ughnn~~” Meilin’s body completely lost its strength and she collapsed on top of Feiyan, her eyes closing briefly, overcome by exhaustion.</p>
+<p>“Mmhn I can feel… the husband’s seed filling me… ughnn” Meilin’s body completely lost its strength and she collapsed on top of Feiyan, her eyes closing briefly, overcome by exhaustion.</p>
 
 <p>“Ah…” Qingyi sighed, pulling them both onto his lap and taking Feiyan’s nipples into his lips, sucking voraciously.</p>
 
-<p>“Ughnn~~ gentler, hubby’s thirsty today. Huh? Hehehe,” Feiyan giggled, hugging Qingyi as she felt her milk fill his mouth.</p>
+<p>“Ughnn gentler, hubby’s thirsty today. Huh? Hehehe,” Feiyan giggled, hugging Qingyi as she felt her milk fill his mouth.</p>
 
 <p>“Yeah…” He stopped sucking, her nipples slipping out of his mouth and spurting the warm, sweet, creamy liquid all over her tanned skin.</p>
 

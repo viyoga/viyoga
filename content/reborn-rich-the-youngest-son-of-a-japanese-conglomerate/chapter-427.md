@@ -31,7 +31,7 @@ chapter = 427
 <p>However, the problem was mathematics and some subjects that required calculations, and she was only aiming to pass those subjects.</p>
 <p>,I solved all of this...!,</p>
 <p>Alik handed the problem sheet to Konoe Akina, and Konoe Akina graded the problems that Alik had solved. The subject was Japanese geography, and the score was seventy points. Since there were no calculation problems, it was well over the failing score of 40 points, which would require supplementary classes.</p>
-<p>,Seventy points. Good job, Alik~!,</p>
+<p>,Seventy points. Good job, Alik!,</p>
 <p>Konoe Akina said, gently pinching Alik's soft cheek. Alik was still close to expressionless, but she pursed her lips and her face turned slightly red. Konoe Akina, thinking that she was cute as expected, touched Alik's cheek for a while, explained the wrong problems, and then handed it over to Otagi Yuka.</p>
 <p>,Okay, Alik! This time, let's solve some Japanese classics.,</p>
 <p>,Alik doesn't like Japanese classics...,</p>

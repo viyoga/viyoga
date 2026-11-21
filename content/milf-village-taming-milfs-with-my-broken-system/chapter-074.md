@@ -67,7 +67,7 @@ chapter = 74
 
 <p>&quot;Oh my, you are a very bad Madam Thief,&quot; Owen whispered into her ear as he slowly sat down on the sofa.</p>
 
-<p>’Hoho... I can give you whatever you want, Madam Thief~’ Owen was basically on cloud nine; his mom taking the initiative to attack him was definitely the best turn of events!</p>
+<p>’Hoho... I can give you whatever you want, Madam Thief’ Owen was basically on cloud nine; his mom taking the initiative to attack him was definitely the best turn of events!</p>
 
 <p>&quot;O-of course I’m bad, you don’t have a choice, so don’t try anything funny,&quot; the Madam Thief whispered back. Yet, it didn’t end there, as she suddenly licked his ear!</p>
 

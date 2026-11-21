@@ -10,8 +10,8 @@ chapter = 830
 <p>When I opened the club room door and entered, the Date Experience Club students were still divided, playing as they pleased.</p>
 <p>Naturally, Alik, who had an additional Test tomorrow, was groaning, clutching his Head, solving Test problems his friends had picked out for him, and several Students were taking turns helping Alik study. His struggling with unsolved problems was quite cute and also a little pitiful.</p>
 <p>The rest were, as usual, doing what they wanted, mostly watching TV on a large screen or looking at their phones, while Minamoto Lisa, Oofuchi Erika, and Shido Tsubaki, who were advancing to other schools instead of St. Francis Women's University, were practicing essays or interviews.</p>
-<p>"Ah~! Ryuta-jji! Come over here~!"</p>
-<p>"Teacher! Teacher, judge who is right~!"</p>
+<p>"Ah! Ryuta-jji! Come over here!"</p>
+<p>"Teacher! Teacher, judge who is right!"</p>
 <p>"Just a moment...."</p>
 <p>Seizawa Shii, Naruse Shiyo, Kujo Kina, Otagi Yuka, and others were gathered, looking at something, and they asked me to make a judgment. But I had the more important matter of Alik's additional Test, so I decided to go to Alik first and hand him the printed exam paper.</p>
 <p>"Ryuta.... Alik, Math is hard...."</p>
@@ -58,7 +58,7 @@ chapter = 830
 <p>After all the highlight Videos ended, the four of them looked at me with a Gaze that asked, 'Who do you think will win?', so I opened my Mouth.</p>
 <p>"I think Kiyohira will win."</p>
 <p>I spoke with conviction, but my Mind was actually a bit complicated. He was both a friend and a Guy who practiced Anyaji Martial Arts, so while I wanted to see my friend become Champion, I also wished he would lose the Champion Match and not come to Japan.</p>
-<p>"Eh~! Teacher-ssi. Are you serious?"</p>
+<p>"Eh! Teacher-ssi. Are you serious?"</p>
 <p>"Even if Kiyohira is highly likely to become an Enemy, we must look at the Match objectively."</p>
 <p>At Otagi Yuka's Words, I nodded and spoke as if I was sincere.</p>
 <p>"I chose him because I'm a fan of Hunter Herrera."</p>
@@ -77,9 +77,9 @@ chapter = 830
 <p>I said, wondering, 'Was Alik interested in Martial Arts?'</p>
 <p>"Right now, Alik would find anything fun as long as it's not Math, wouldn't he?"</p>
 <p>At my Words, Kujo Kina glanced at Alik and said. His Appearance, groaning and solving Math problems with one hand supporting his forehead, certainly looked like he'd enjoy anything but Math.</p>
-<p>Gojoy-nim requested Hangari Muneo Belly Dancer, breast-covering~!</p>
-<p>Belly Dancer~!</p>
-<p>Breast-covering~!</p>
+<p>Gojoy-nim requested Hangari Muneo Belly Dancer, breast-covering!</p>
+<p>Belly Dancer!</p>
+<p>Breast-covering!</p>
 <p>Hwanbuljeoldae-bulga-nim requested Lisa-ttang in white underwear and black stockings, and the Home Ec Teacher.</p>
-<p>Starting with Lisa-ttang~!</p>
+<p>Starting with Lisa-ttang!</p>
 <p>Home Ec Teacher</p>

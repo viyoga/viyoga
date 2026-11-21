@@ -53,7 +53,7 @@ chapter = 673
 
 <p>His eyes closed, and in the next moment, he released it all.</p>
 
-<p>“Nghnn~~ Yes… big brother Qingyi, cum inside Rou’er’s ass! Aghnn~~ ♡” Rou’er moaned nonstop as her eyes rolled back.</p>
+<p>“Nghnn Yes… big brother Qingyi, cum inside Rou’er’s ass! Aghnn ♡” Rou’er moaned nonstop as her eyes rolled back.</p>
 
 <p>She felt the first gush of hot, viscous cum invade her, followed by a second and a third, each thick pulse visible against her slim belly alongside the bulge formed by the tip of Qingyi’s cock.</p>
 
@@ -65,7 +65,7 @@ chapter = 673
 
 <p>The moment her delicate feet touched the ground, Rou’er collapsed to her knees, drenched in sweat and panting. Cum dripped nonstop from her gaping anus, thick and white.</p>
 
-<p>“Nghnn~~ Big brother Qingyi filled me up so much, hehehe~~♡ Now, take care of big sister Xue Hua, she needs it too.” Rou’er turned her flushed face, her eyes falling on the gothic beauty who was masturbating erratically, unable to fight against the lust that had already reached one hundred percent.</p>
+<p>“Nghnn Big brother Qingyi filled me up so much, hehehe♡ Now, take care of big sister Xue Hua, she needs it too.” Rou’er turned her flushed face, her eyes falling on the gothic beauty who was masturbating erratically, unable to fight against the lust that had already reached one hundred percent.</p>
 
 <p>“Good girl…” Qingyi laughed.</p>
 

@@ -107,7 +107,7 @@ It could be thought of with the analogy of an elephant and an ant.
 
 An elephant would not really care about a mere ant and go about its day. That's how the relationship between cultivators and the worlds was.
 
-"Huwaa~" Dennis yawned again. "Your Highness, why talk about something like this right now? Don't we need to leave and search for caves where that ingredient and Miwa is?"
+"Huwaa" Dennis yawned again. "Your Highness, why talk about something like this right now? Don't we need to leave and search for caves where that ingredient and Miwa is?"
 
 "It's important." Lith said calmly, his eyes flashing with seriousness.
 
@@ -119,13 +119,13 @@ Dennis yawned again. "I don't really care…"
 
 Lith chuckled and smacked Dennis's head. "Stop being so rude to your Prince."
 
-"Shawr…huwaa…ryyy~"
+"Shawr…huwaa…ryyy"
 
 Another of Dennis's yawn suddenly raised some suspicion.
 
 Why was this guy yawn…
 
-"Huwaa~" Lith yawned as well.
+"Huwaa" Lith yawned as well.
 
 'Wait… What's up with the yawns?'
 

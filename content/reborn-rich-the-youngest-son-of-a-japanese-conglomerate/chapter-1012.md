@@ -98,11 +98,11 @@ chapter = 1012
 <p>"First...."</p>
 <p>Whisper listened to the mouse-faced man's Story and began to record the Information in her Notebook. While speaking the Information, the mouse-faced man thought that Famine had dispatched the two individuals to New York well.</p>
 <p>This was because he felt that the Compatibility between Behemoth, who was rough and didn't care about small matters, and Whisper, who was meticulous and thorough, was quite good.</p>
-<p>Seiwa Rieko in a cyber Suit~!</p>
-<p>Chomisaemeonji-nim requested Liz wearing only a dress shirt and only a jumper~!</p>
+<p>Seiwa Rieko in a cyber Suit!</p>
+<p>Chomisaemeonji-nim requested Liz wearing only a dress shirt and only a jumper!</p>
 <p>Dress shirt</p>
-<p>Jumper~!</p>
-<p>Gojoy-nim requested Chapter 11 Illustrations: 1. Arisu waving her Hand in the car 2. Arisu eating delicious Dakgalbi~!</p>
+<p>Jumper!</p>
+<p>Gojoy-nim requested Chapter 11 Illustrations: 1. Arisu waving her Hand in the car 2. Arisu eating delicious Dakgalbi!</p>
 <p>1.</p>
 <p>The scene of her lowering the Window and waving her Hand doesn't come out well haha.</p>
 <p>2.</p>

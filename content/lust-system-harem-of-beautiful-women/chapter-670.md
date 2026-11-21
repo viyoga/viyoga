@@ -11,7 +11,7 @@ chapter = 670
 
 <p>She also casually wiped the chair, and to make sure no scent remained, she deliberately sprinkled a bit of wine on it, a performance worthy of an Academy Award-winning actress.</p>
 
-<p>&quot;Dear, look at us, we’ve even lost our motherly affection~&quot;</p>
+<p>&quot;Dear, look at us, we’ve even lost our motherly affection&quot;</p>
 
 <p>The orgasm left Ruth glowing with renewed radiance, the enchanting charm of a woman after being nurtured simply captivating.</p>
 

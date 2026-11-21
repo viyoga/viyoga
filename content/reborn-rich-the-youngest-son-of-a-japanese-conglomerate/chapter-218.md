@@ -60,7 +60,7 @@ chapter = 218
 <p>I don't know what she's trying to show me, but I'm getting really curious now, so I really need to stop by the Tokyo branch.</p>
 <p>"Here you go."</p>
 <p>Eve-ssi sticks out her pinky finger. I looked at it for a moment, wondering what it was, and then I realized that it meant to make a pinky promise, so I reached out my hand containing the abyss and hooked my pinky with Eve-ssi's.</p>
-<p>"Heuhyat~!"</p>
+<p>"Heuhyat!"</p>
 <p>"See you next time, Eve-ssi."</p>
 <p>As expected, the unfamiliar sensation made Eve-ssi surprised and make a strange noise, "Heuhyat." I smiled slightly at the sight and got up from my seat. And when I looked at where Mimata Chieri was sitting, Mimata Chieri was muttering to herself with a glazed look in her eyes. When I listened closely, she kept muttering incomprehensible words like, "Should I buy this? But I can't give up the bed screen."</p>
 <p>What is it? What's making her like that? I looked at Eve-ssi, who was sitting in front of Mimata Chieri.</p>
@@ -68,7 +68,7 @@ chapter = 218
 <p>After hearing Eve-ssi's words, I looked at the screen that Mimata Chieri was looking at. It was a shopping cart window, and one was a silent, ultra-small reconnaissance drone, and the other was an ultra-small spy camera that didn't need a power supply for two months on a single charge.</p>
 <p>Just by looking at the products, I could guess what Mimata Chieri was going to do, so I sat down and listened to Mimata Chieri muttering. I'm probably going to be the victim of this reconnaissance drone and spycam, so I can't let her buy them.</p>
 <p>"Eve-ssi, please cancel what's in the shopping cart."</p>
-<p>"Yes~☆"</p>
+<p>"Yes☆"</p>
 <p>"Nooooo!"</p>
 <p>Ignoring Mimata Chieri's scream, I slung her over my shoulder and left the Dark Trade's New York branch. Mimata Chieri kept wriggling like a hateful 4-year-old girl, crying, "No, I have to buy it!" but I ignored her and went to where I had parked my motorcycle.</p>
 <p>Then suddenly, a murderous voice came from behind. It was a murderous voice, but it was a pretty soprano female voice. It was a beautiful, mesmerizing voice that you could tell was a beauty just by hearing it.</p>

@@ -65,10 +65,10 @@ chapter = 625
 <p>Minamoto Risa and Kujo Kina said with a grim smile, so I had no choice but to wave my hands and brush it off as a joke. One is a professional absentee and the other is a bully, so there's no need to provoke them. When I waved my hands and asked them not to be hooligans, the students laughed again.</p>
 <p>"That's all for today's announcements. If you have any suggestions or other things you want to say to the teacher, send me a line or come to the education preparation room.... See you at the end-of-day assembly."</p>
 <p>"Goodbye, Ryuta-cchi!"</p>
-<p>"See you later, Sensei~!"</p>
+<p>"See you later, Sensei!"</p>
 <p>"Ryuta, bye...!"</p>
 <p>I turned away from the students' greetings and returned to the education preparation room. I checked my smartphone to see if there were any messages, and Urabe Konoka had contacted me.</p>
 <p>-Urabe Konoka: Sensei, I'd like to apply for counseling.</p>
 <p>Hmm.... What's wrong? Is it about Simyeonui ttal? I don't know what's going on until I hear it, so I sent a line to Urabe Konoka saying that I'll see her in the counseling room during lunch break.</p>
 <p>___________________</p>
-<p>Chuseok if you give me Urabe Konoka in Hanbok~!</p>
+<p>Chuseok if you give me Urabe Konoka in Hanbok!</p>

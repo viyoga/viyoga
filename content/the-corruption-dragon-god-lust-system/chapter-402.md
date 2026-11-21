@@ -41,9 +41,9 @@ chapter = 402
 
 <p>“What do you think? The kingdom of Valemont doesn’t seem like a bad place…” Qingyi smiled.</p>
 
-<p>“Nghnn~~ I have to take care of a few things before we leave… there are a lot of accumulated documents that only I can sign. I need to take care of all this before the trip,” Meilin said, panting slightly.</p>
+<p>“Nghnn I have to take care of a few things before we leave… there are a lot of accumulated documents that only I can sign. I need to take care of all this before the trip,” Meilin said, panting slightly.</p>
 
-<p>“Hm… I would have a lot of those too, but since they replaced me, it’s no longer my problem, fufufu~~,” Margareth said, grabbing the other woman’s hands. “Come on, I’ll help you with that.”</p>
+<p>“Hm… I would have a lot of those too, but since they replaced me, it’s no longer my problem, fufufu,” Margareth said, grabbing the other woman’s hands. “Come on, I’ll help you with that.”</p>
 
 <p>Soon, the two disappeared over the horizon, leaving Qingyi alone again.</p>
 
@@ -61,7 +61,7 @@ chapter = 402
 
 <p>Suddenly, she felt something approaching from behind. A pair of powerful hands flowed to her huge, chocolatey tits, squeezing them firmly, the soft, creamy skin spilling between his fingers.</p>
 
-<p>“Aghnn~~ Be gentler, hubby… my massive boobs aren’t going to run away from you, hehehe~~,” Isabel giggled softly as Qingyi spun her around, sitting her on his lap.</p>
+<p>“Aghnn Be gentler, hubby… my massive boobs aren’t going to run away from you, hehehe,” Isabel giggled softly as Qingyi spun her around, sitting her on his lap.</p>
 
 <p>“I know.” Qingyi smiled back, planting a kiss on her lips.</p>
 

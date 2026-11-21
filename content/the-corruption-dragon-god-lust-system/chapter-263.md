@@ -5,7 +5,7 @@ weight = 263
 chapter = 263
 +++
 
-<p>“Qingyi… kinder! Aghnn~~!” Yueli gasped as she was thrown on top of her master, Qingyi’s cock slipping out of Yunfei’s pussy and immediately entering hers.</p>
+<p>“Qingyi… kinder! Aghnn!” Yueli gasped as she was thrown on top of her master, Qingyi’s cock slipping out of Yunfei’s pussy and immediately entering hers.</p>
 
 <p>The handsome young man barely had time to hear those words as he pumped his hips with full force.</p>
 
@@ -25,13 +25,13 @@ chapter = 263
 
 <p>At the same time, he increased the speed of the movement of his hips even more, his lap hitting Yueli’s plump ass with loud, wet slaps, sending shockwaves through the voluptuous flesh.</p>
 
-<p>“Oghnn~~ Fuck! Fuck! F-Fuck!” Yueli bit her lips, her body losing its strength and just receiving her husband’s huge cock, feeling that incomparable pleasure.</p>
+<p>“Oghnn Fuck! Fuck! F-Fuck!” Yueli bit her lips, her body losing its strength and just receiving her husband’s huge cock, feeling that incomparable pleasure.</p>
 
 <p>She couldn’t last more than a few minutes before she came, her pussy squirting non-stop against Qingyi, her lips opening in a lustful moan.</p>
 
 <p>The handsome young man wasted no time, his cock slipping out of Yueli’s pussy with a wet plop and immediately being buried in Ruyan’s tight pussy, which was always more excited by orgies.</p>
 
-<p>“Come on ghnn~~ hubby! Fuck that little pussy with everything you’ve got! Mmmph~~!” Ruyan gave an excited squeal as she felt Qingyi’s cock reach the depths of her womb.</p>
+<p>“Come on ghnn hubby! Fuck that little pussy with everything you’ve got! Mmmph!” Ruyan gave an excited squeal as she felt Qingyi’s cock reach the depths of her womb.</p>
 
 <p>She raised her ass, arching her back like a stretching tigress, pushing herself against Qingyi’s cock, responding to each powerful thrust.</p>
 

@@ -83,7 +83,7 @@ chapter = 578
 
 <p>“I wondered what you would taste like,” he whispered, his hands finally reaching Auranys’ breasts under her dress and then squeezing them.</p>
 
-<p>“Nghnn~~” The goddess moaned, her nails digging into his shoulders as she arched her back.</p>
+<p>“Nghnn” The goddess moaned, her nails digging into his shoulders as she arched her back.</p>
 
 <p>“When I said I would allow you to love me, I didn’t mean that—”</p>
 

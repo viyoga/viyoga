@@ -50,7 +50,7 @@ chapter = 335
 <p>Skuld wiggled her hips in excitement as she discovered the importance of clothes for sex, Sol placed his thumbs on either side of her plump labia and spread them wide.</p>
 <p>“…!”</p>
 <p>Her sexual flesh glistened stickily. Like her skin color, it was a lovely pink, though a deeper shade of it.</p>
-<p>“Ah~!”</p>
+<p>“Ah!”</p>
 <p>Skuld moaned and nearly jumped in surprise when she felt a hot breath and tongue on her intimate part.</p>
 <p>His tongue passed from her clitoris to the bottom of the valley. Her love juice had a certain sweetness to it, causing him to lick with even more ardor. [1]</p>
 <p>As he licked at her from below, the love juices dripped down into his mouth, but he did not mind and swallowed them.</p>

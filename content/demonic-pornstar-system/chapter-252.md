@@ -21,7 +21,7 @@ chapter = 252
 <p>Bastet stretched like a lazy lioness, feeling a bit strange in the clothes the girls gave her. Though the felinid would be lying if she said she hated it.</p>
 <p>"The dead don’t scare me... And thanks to my horrible performance last time, I did a lot of reflection in the hospital. I’m confident I’ll tear those freaks apart."</p>
 <p>Kaiden was about to respond, but before he could do so, Nyx twirled a lock of her pink hair and let out a sultry giggle.</p>
-<p>"There’s still one final preparation we haven’t done~"</p>
+<p>"There’s still one final preparation we haven’t done"</p>
 <p>She didn’t say it out loud, not with the ever-present threat of surveillance in the government-provided bunker.</p>
 <p>But no one needed her to explain.</p>
 <p>They all knew what she meant.</p>
@@ -35,7 +35,7 @@ chapter = 252
 <p>Aria took his left hand and instantly intertwined her fingers with his. Her touch was immensely possessive. Luna secured the right, though her touch had a flair of its own: it was electric, as if her storm magic was manifesting in this moment.</p>
 <p>Bastet also had her own way.</p>
 <p>With both hands of his already occupied, she took hold of him in the most unashamed manner imaginable, namely her fingers wrapped firmly around his cock. She led him by it as each playful tug was accompanied by a teasing stroke along the shaft. With her free hand, she gently patted the tip, encouraging a brave soldier before battle.</p>
-<p>"Come now, great warrior~ You have to slay a hungry feline monster tonight~"</p>
+<p>"Come now, great warrior You have to slay a hungry feline monster tonight"</p>
 <p>Kaiden snorted through his nose, equal parts amused and aroused. Far be it from him to ruin their fun.</p>
 <p>Behind him, Nyx didn’t even pretend to keep her hands to herself. With her usual lack of shame, she moved up behind him and let her palms settle on his rear before giving his cheeks a strong squeeze.</p>
 <p>"Mmm... so this is what you’re always grabbing..." she whispered into his ear. "I get it now. Very grabbable. I might not let go."</p>
@@ -48,7 +48,7 @@ chapter = 252
 <p>Nyx only responded with a playful wink and a kiss tossed through the air, unconcerned by the threat of electrostatic violence.</p>
 <p>Meanwhile, Bastet leaned down from above Kaiden’s face. She kissed him once, twice, three times on the forehead, then began trailing those kisses all over his cheeks and down to his lips. Her makeup, still perfect from dinner, left smudges behind on his skin, marking him.</p>
 <p>"Look at you, Master... Seeing you covered in my kisses makes me so satisfied for some odd reason. Is this how doggies feel when they mark their properties?"</p>
-<p>She then giggled to herself before leaning close to his ears and whispering, "Master, you’re not allowed to wash your face ever again~"</p>
+<p>She then giggled to herself before leaning close to his ears and whispering, "Master, you’re not allowed to wash your face ever again"</p>
 <p>All Kaiden could do was chuckle at the needy nature of his girls while he moved his lower half up and down rhythmically to dive even deeper into Aria’s depths.</p>
 <p>But then, having realized something in the heat of the moment, he opened one eye and locked gazes with Bastet. "You know... our deal was that I’d satisfy your urges every day. That was your demand to accept being subjugated."</p>
 <p>Bastet paused.</p>
@@ -58,7 +58,7 @@ chapter = 252
 <p>"I totally forgot! That’s a serious breach of contract!"</p>
 <p>But instead of making good on his words of being freed from the ’forced servitude’ she was technically a recipient of, the felinid’s voice dropped into a low, mischievous purr. "Master, you’d better prepare yourself to pay up. I’m collecting that debt even if it means wringing you completely dry."</p>
 <p>She flicked her tongue across his bottom lip before adding.</p>
-<p>"With the interest you accrued by missing so~ many~ payments~"</p>
+<p>"With the interest you accrued by missing so many payments"</p>
 <p>"She really doesn’t just watch salmon migration videos on your phone, huh?" Luna smirked, seeing the difficult situation he’d found himself in.</p>
 <p>"Hang in there, Kai!" Nyx cheered, though the hunger visible on her delicate features made it clear to all she was not going to help reduce his responsibilities.</p>
 <p>...</p>

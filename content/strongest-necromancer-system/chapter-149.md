@@ -19,7 +19,7 @@ chapter = 149
 <p>The employees in the SMD building all recognized Jason from when he came here the last time, as well as from all the online pictures and videos they had seen of him, so there was hardly anyone in the building who didn’t know him!</p>
 <p>"Boss, are you seeing this!? The women are all looking at me!"</p>
 <p>Darren whispered while leaning over to Jason with wide, disbelieving eyes, and Jason scoffed again! Darren was standing right beside Jason, so whenever a woman looked at Jason, it would look like she was also staring at Darren! Jason didn’t want to burst Darren’s bubble by telling him he was only imagining things, so he just ignored the boy and allowed him to enjoy his fake popularity for the time being.</p>
-<p>"Hehehe~ Look at those boobs."</p>
+<p>"Hehehe Look at those boobs."</p>
 <p>Darren suddenly started lagging behind the others when a particular woman with an impressive rack leaned forward to give Jason a deep stare, and Jason smacked Darren on the back of his head to snap him out of it!</p>
 <p>Smack!</p>
 <p>"Shit, boss! What was that for!?"</p>

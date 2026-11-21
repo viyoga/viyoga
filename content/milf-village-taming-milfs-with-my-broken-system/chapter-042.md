@@ -59,11 +59,11 @@ chapter = 42
 
 <p>...</p>
 
-<p>&quot;Shhh... don’t be too loud, Auntie Pam, or else your husband might realize that you’re enjoying a dirty little secret while we’re supposedly cooking~&quot; Owen whispered into her ear.</p>
+<p>&quot;Shhh... don’t be too loud, Auntie Pam, or else your husband might realize that you’re enjoying a dirty little secret while we’re supposedly cooking&quot; Owen whispered into her ear.</p>
 
 <p>&quot;B-but... it’s hot, and big...&quot;</p>
 
-<p>&quot;Of course, Auntie, so don’t make any lewd noises~&quot;</p>
+<p>&quot;Of course, Auntie, so don’t make any lewd noises&quot;</p>
 
 <p>&quot;I-it’s bad... you k-know.&quot;</p>
 
@@ -75,7 +75,7 @@ chapter = 42
 
 <p>&quot;O-okay... but don’t rub it too firmly, Wen. You know I’m completely new to this...&quot; Her voice was raspy, her breathing heavily labored as her imagination ran wild, picturing the magnificent shaft pressing against her ass.</p>
 
-<p>&quot;Heh. So you really do love these forbidden acts, Auntie Pam. How bad of you to surrender to temptation while your husband is working hard to provide for you and your daughter~&quot; Owen slid his hand down to cover hers, gently stroking the back of her hand with his thumb.</p>
+<p>&quot;Heh. So you really do love these forbidden acts, Auntie Pam. How bad of you to surrender to temptation while your husband is working hard to provide for you and your daughter&quot; Owen slid his hand down to cover hers, gently stroking the back of her hand with his thumb.</p>
 
 <p>&quot;N-no... it’s only because of what your Aunt Morenne said...&quot; She was completely caught like helpless prey in a trap, entirely vulnerable to her current predicament.</p>
 
@@ -109,4 +109,4 @@ chapter = 42
 
 <p>Even the elders had never experienced it; it had simply never occurred a single time since the village was created.</p>
 
-<p>&quot;Then why are you shifting your ass like that? I guess your body doesn’t agree with your words at all, Auntie Pam~&quot; Owen chuckled softly, feeling her subtly adjust her posture, as if her curves were instinctively trying to cradle the rigid cock pressing between her ass.</p>
+<p>&quot;Then why are you shifting your ass like that? I guess your body doesn’t agree with your words at all, Auntie Pam&quot; Owen chuckled softly, feeling her subtly adjust her posture, as if her curves were instinctively trying to cradle the rigid cock pressing between her ass.</p>

@@ -41,7 +41,7 @@ chapter = 774
 <p>At my words, Vex puffed out her cheeks adorably and whined in protest. “You’re not allowed to talk about other women when you’re with me!”</p>
 <p>I grinned savagely then slammed into her, hilting myself with one brutal thrust.</p>
 <p>Her wail of pleasure was music to my ears.</p>
-<p>"AHHHN~!!</p>
+<p>"AHHHN!!</p>
 <p>Vex’s whole body trembled as I gripped her hips and began pounding into her mercilessly. The mattress creaked, and the air was filled with the filthy sound of skin slapping against skin, along with her broken moans and cries of bliss.</p>
 <p>Her tight, wet pussy fluttered needily around me, milking me, trying to pull me deeper into her depth. Every thrust had her gasping into the sheets, hands clutching helplessly at the mattress as I rocked her body back and forth.</p>
 <p>She was so damned gorgeous like this: utterly ruined, yet so willing, so hungry for more.</p>
@@ -54,7 +54,7 @@ chapter = 774
 <p>Her body convulsed violently right before she went limp, passing out for a few heartbeats from the overwhelming pleasure that assaulted her.</p>
 <p>I grinned down at her twitching form, utterly satisfied. Carefully, I pulled her into my arms, cradling her against my chest as she slowly came back to herself, trembling and whimpering softly in the aftermath of the most powerful orgasm she’d ever experienced.</p>
 <p>I kissed the top of her head, brushing her damp hair from her forehead.</p>
-<p>"You’re mine now, little witch~” I murmured lovingly while reaching for her gushing lady flower and scooping a fingerful of her juices up, bringing it to my lips. “Body, soul, and now… even your squirts.”</p>
+<p>"You’re mine now, little witch” I murmured lovingly while reaching for her gushing lady flower and scooping a fingerful of her juices up, bringing it to my lips. “Body, soul, and now… even your squirts.”</p>
 <p>She gave a weak little whimper of embarrassment against my chest, but I could feel her smiling.</p>
 <p>The ritual was complete.</p>
 <p>The bond was sealed.</p>

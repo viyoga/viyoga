@@ -41,7 +41,7 @@ chapter = 203
 <p>She said nothing at first, only purred.</p>
 <p>She drifted past the attendants as if they weren’t even there, her eyes locked on none other than Kaiden.</p>
 <p>Then she reached him and draped herself over his chair from behind with both arms, curling around him with obsessive, languid devotion. Her fingers trailed along his collarbone, down to his chest, until her lips were just inches from his ear.</p>
-<p>"Mmm... You smell amazing today, Master~" she purred, voice sultry beyond words. "My favorite kind... Power and danger~"</p>
+<p>"Mmm... You smell amazing today, Master" she purred, voice sultry beyond words. "My favorite kind... Power and danger"</p>
 <p>Then she grabbed his hand and guided it between the teasing gap of her cleavage. He didn’t flinch.</p>
 <p>With the precision of someone who knew exactly what he was reaching for, Kaiden gripped something cold and metallic between Bastet’s pair of perky breasts.</p>
 <p>He pulled it free.</p>

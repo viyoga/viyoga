@@ -83,4 +83,4 @@ chapter = 167
 <p>An illustration that I uploaded because I liked the composition, Ha Ju-yoon Mamang's ass is so good and Yukiko Mamang's thighs are so good too hehe</p>
 <p>I Save I's request for an illustration of the aunt (entertainment CEO), Taira Kokoro, who was captured by the protagonist. If I show you the image of the aunt who has already been captured, it feels like a spoiler, so I just made an illustration that introduces Taira Kokoro hehe</p>
 <p>I made it with a slightly more sharp and luxurious feeling than the characters I have made so far ㅎㅎ</p>
-<p>Hoo Aunt~!!</p>
+<p>Hoo Aunt!!</p>

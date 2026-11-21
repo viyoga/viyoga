@@ -71,7 +71,7 @@ chapter = 322
 
 <p>His hands went up to the two beauties’ breasts, squeezing gently.</p>
 
-<p>“Mghn~~ Yes…” Meilin replied. “Both princes make a lot of threats, but honestly, we’re surrounded by supporters of the third prince.</p>
+<p>“Mghn Yes…” Meilin replied. “Both princes make a lot of threats, but honestly, we’re surrounded by supporters of the third prince.</p>
 
 <p>If we declare support for the second, we’ll be surrounded on all sides.</p>
 

@@ -7,7 +7,7 @@ chapter = 350
 
 <p>I shared ice cream with Alik and had a healing time chatting about small things. Alik went to the Cheongshim Hall, and I went to the second floor where the Date Experience-Meditation Club was.</p>
 <p>The female students were sitting around watching TV or chatting, and Minamoto Lisa was sitting cross-legged pretending to meditate to uphold the name of the 'Date Experience-Meditation Club'.</p>
-<p>Seizawa Shii was watching her from the side, saying, "Ahaha, Lisa-tan, you're so funny~!" and disturbing her meditation, while Otagi Yuka and Kujo Kina seemed to get along well, having a heated debate about martial arts.</p>
+<p>Seizawa Shii was watching her from the side, saying, "Ahaha, Lisa-tan, you're so funny!" and disturbing her meditation, while Otagi Yuka and Kujo Kina seemed to get along well, having a heated debate about martial arts.</p>
 <p>Well, this is the first time I've seen a club where students with such different tastes gather, but I guess it's because of the special situation of being a special class.</p>
 <p>"Oh, right! Sensei! You promised to spar with me!"</p>
 <p>Kujo Kina said to me when she saw me entering the club room. Did I...? Ah, when I saw the gym teacher reverse-raping a female student back then, I made a deal to carry Naruse Shiyo on my back in exchange for a sparring match. I had completely forgotten.</p>

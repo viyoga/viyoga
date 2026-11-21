@@ -25,7 +25,7 @@ chapter = 1864
 <p>Every word of it was correct, courtly, and polished to a shine. Her eyes delivered the second report: leech, usurper, gagger of elders. The face around them stayed composed. She had bitten into something sour years ago and kept it there out of principle.</p>
 <p>"Magnificent work, Elder," Quinlan beamed at her. "The duchy looks better already."</p>
 <p>The Elder took her brush back up. "The keep is honored," she pronounced at ceremonial volume, to a point on the wall above his head, and the next petition received its Denied with a fraction more wrist than the word required.</p>
-<p>"We’ll be gone from your hall soon~" Ayame promised. "One matter first."</p>
+<p>"We’ll be gone from your hall soon" Ayame promised. "One matter first."</p>
 <p>She turned.</p>
 <p>By the far wall, in servant’s gray with her sleeves tied back, the nominal leader of the Fujimori clan waited at the foot of a sorting table, binding answered petitions into bundles with string.</p>
 <p>She looked miserable, and none of it was performance: neck bowed, eyes on her string, tying knot after knot as if the work were the only thing in the keep she still had any right to touch.</p>

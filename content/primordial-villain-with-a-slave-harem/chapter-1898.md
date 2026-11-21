@@ -19,7 +19,7 @@ chapter = 1898
 <p>Quinlan signed with excellent penmanship. Well, as excellent as he could muster.</p>
 <p>The Tyrant of Commerce had entered the room with an abacus in one hand and the big ledger under her arm, taken one look at her man alone in a room with unattended state documents, and requisitioned the entire pile.</p>
 <p>Every page reached Quinlan already folded open to the right line. By the third decree, she had started praising his signature.</p>
-<p>"Lovely~ And this one."</p>
+<p>"Lovely And this one."</p>
 <p>Ayame had taken the window seat sideways, chin on her knee, watching her lover, the man taking over the entire Iskaris continent in real time, be directed like a boy guided by his mother.</p>
 <p>The petite samurai was having the time of her life watching the scene.</p>
 <p>"You didn’t read that one," she observed as Quinlan signed something.</p>
@@ -29,7 +29,7 @@ chapter = 1898
 <p>A snort escaped the samurai.</p>
 <p>Across the room, the fourteen-year-old was interrogating her third clause of the hour. But over here, the most feared man alive signed wherever a warm finger tapped.</p>
 <p>Ayame filed the comparison away, deeply fond, and kept it to herself.</p>
-<p>"Keep signing, my mighty conqueror~"</p>
+<p>"Keep signing, my mighty conqueror"</p>
 <p>Mostly kept it to herself.</p>
 <p>The boring stretch had gone quickly, all things considered.</p>
 <p>Ravenshade’s lands would sit under crown administrators until the audit finished combing them.</p>

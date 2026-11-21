@@ -11,10 +11,10 @@ chapter = 432
 <p>"Yeah, thanks for coming..."</p>
 <p>Everyone arrived with worried expressions due to the sudden incident, hugging and comforting Otagi Yuka. After letting them talk to each other for a while, I approached Eve.</p>
 <p>"Eve, is the video editing all done?"</p>
-<p>"Yes~! Would you like to see it?"</p>
+<p>"Yes! Would you like to see it?"</p>
 <p>Since the AmSang branch's unique hologram machine was installed in the warehouse as well, when I nodded, the battle that took place in the New York Museum was shown as a hologram in mid-air. It was a scene of Otagi Yuka, holding a golden sword, fighting the Death Knight and the Necromancer, Shadow Ghoul, who was supporting him from behind. Whether it was because Eve edited it well, the Phantom Thief Francois and her daughter or I didn't appear on the screen.</p>
 <p>Otagi Yuka, Konoe Akina, and Saionji Diana also became interested and watched when the screen suddenly appeared and showed Otagi Yuka fighting the Death Knight wearing black armor.</p>
-<p>"Ooh~! Yuka-chan fights well...!"</p>
+<p>"Ooh! Yuka-chan fights well...!"</p>
 <p>"Otagi-ssi, why didn't you say you were good at swordsmanship? I could spar with you."</p>
 <p>Konoe Akina and Saionji Diana said, admiring the screen. Otagi Yuka, unlike her usual outgoing self, was embarrassed by her friends' compliments. She's the type who can't stand compliments, unexpectedly.</p>
 <p>Sakagami Rena, like a ninja, was recording something on her smartphone while watching the video, and it seemed like she was writing about Otagi Yuka's combat abilities.</p>
@@ -48,7 +48,7 @@ chapter = 432
 <p>"Seizawa Shii might make fun of me..."</p>
 <p>I said there's no one who would do that, but Otagi Yuka said that Seizawa Shii might do that. Now that I think about it, Seizawa Shii might say, "Kya haha, isn't it because Konoe-chan is an idiot that she doesn't catch a cold?"</p>
 <p>"Don't worry about that, let's set up a strategy first. Eve, can you show me the satellite photo of Onuta Shrine?"</p>
-<p>"Yes~!"</p>
+<p>"Yes!"</p>
 <p>At my request, Eve showed a hologram of the satellite photo of Onusa Shrine and the surrounding terrain.</p>
 <p>Onuta Shrine was the ruins of a shrine located in the mountains east of Miyashi. There were two entrances: the west entrance that could be reached from Miyashi and the south entrance that went down the mountain path, and the surroundings were covered with forests and bushes, making it a good environment for ambushes.</p>
 <p>"We need to be careful of ambushes, right?"</p>
@@ -69,5 +69,5 @@ chapter = 432
 <p>"Okay, I'll trust Sakagami about the ambush. But we can't have no strategy at all, so let's talk to each other and come up with something simple."</p>
 <p>I nodded at Sakagami Rena's confident words. We decided to approach this matter with a bigger strategy rather than complicated tactics.</p>
 <p>----</p>
-<p>Pre-made selfie illustration of the tutor~!!</p>
+<p>Pre-made selfie illustration of the tutor!!</p>
 <p>Feeling like you're making eye contact with someone who's taking pictures of you...ㄷㄷ</p>

@@ -61,4 +61,4 @@ chapter = 500
 <p>It was a voice filled with all sorts of emotions, including affection, thirst, anxiety, and hope. I hugged Konoe Akina tightly. Konoe Akina's frail body felt even more pitiful.</p>
 <p>After that, I started to take off the clothes that Konoe Akina was wearing one by one.</p>
 <p>----</p>
-<p>The homeroom teacher is sitting upright in commemoration of Buddha's Birthday~!</p>
+<p>The homeroom teacher is sitting upright in commemoration of Buddha's Birthday!</p>

@@ -113,7 +113,7 @@ chapter = 11
 
 <p>Luis couldn’t help but swallow hard, climbing onto the bed and pulling her into his arms, fondling her D+ breasts greedily.</p>
 
-<p>&quot;Mm~, hubby, let me sleep a little longer... You fucked me senseless last night.&quot;</p>
+<p>&quot;Mm, hubby, let me sleep a little longer... You fucked me senseless last night.&quot;</p>
 
 <p>&quot;Wife, get up for lunch. I’m starving.&quot;</p>
 

@@ -25,7 +25,7 @@ chapter = 714
 <p>[Current Volume Consumed: 0.2/0.8 litres]</p>
 <p>[Current Volume Consumed: 0.3/0.8 litres]</p>
 <p>This wasn’t the first time that Hesabeth would give her blood to a Vympir. During their long friendship, Hesabeth had allowed Gillian to drink her blood whenever Gillian really needed it, and there was no other option. But for some reason, Jason’s feeding felt completely different from what Hesabeth felt whenever Gillian was feeding. Hesabeth wouldn’t deny that she felt a bit aroused whenever Gillian drank from her neck since the entire process of giving your blood to a Vympir was a very intimate one, but Hesabeth knew that Gillian’s feeding was just a matter of necessity. Gillian was everything to Hesabeth, so Hesabeth was more than happy to give herself to Gillian like that. But with Jason, it felt like something beyond the physical. There was an arousal somewhere deep inside Hesabeth’s soul that poured out the moment Jason sank his fangs into her. Hesabeth’s face grew red, and she hunched over as heat pooled in her stomach! Jason’s free hand wrapped around Hesabeth’s waist and held her close to his chest for more stability, and Hesabeth suddenly let out a loud, sultry moan that echoed across the garden!</p>
-<p>"UUUUUHHHHH~!"</p>
+<p>"UUUUUHHHHH!"</p>
 <p>Hesabeth’s hand immediately went between her legs as she felt her core shiver, and she pressed her thighs close as her arousal grew even stronger! She leaned her head to the side to place it against Jason’s own, and she spoke to Jason in a low, desperate tone.</p>
 <p>"Oh gods, Jason, that’s enough. You’ve drunk enough. Please..."</p>
 <p>[Current Volume Consumed: 0.8/0.8 litres]</p>

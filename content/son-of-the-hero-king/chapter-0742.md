@@ -38,7 +38,7 @@ chapter = 742
 <p>He knew that screaming in pain in this scenario was a death wish. But the scream just had to escape no matter how much he wanted to stifle it.</p>
 <p>Fighting against the growing pain and despair was simply too much.</p>
 <p>It was then…</p>
-<p>“Where do you think you’re running off to~”</p>
+<p>“Where do you think you’re running off to”</p>
 <p>… A woman in a fully red and gold kimono approached while humming a tune.</p>
 <p>Her hair was black as the night, and she had two fox ears twitching above her hair while nine fluffy tails danced behind her.</p>
 <p>Her eyes had hints of gold in them but the golden light flickered before getting replaced by an ordinary brown.</p>

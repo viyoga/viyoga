@@ -47,7 +47,7 @@ chapter = 754
 
 <p>He slid his hands to her hips, gripping them firmly, feeling the warm, supple flesh give way beneath the pressure of his fingers, his thumbs sinking into the soft swell at the top of those round buttocks.</p>
 
-<p>"Nghnn~~ Q-Qingyi? Are you awake, sweetheart? I..." Rouxi’s words died in her throat, because in the next moment, she felt it.</p>
+<p>"Nghnn Q-Qingyi? Are you awake, sweetheart? I..." Rouxi’s words died in her throat, because in the next moment, she felt it.</p>
 
 <p>It was Qingyi’s cock, thick, throbbing, and scorching hot, pressing against the soft, sensitive skin of her inner thighs.</p>
 
@@ -67,7 +67,7 @@ chapter = 754
 
 <p>"Nothing... it’s just that adoptive mother is so beautiful... I can’t help myself," Qingyi whispered into her ear, his fingers playing with her already hardened nipple, pinching it lightly between his thumb and index finger.</p>
 
-<p>"N-no... stop... this is wrong... oghnnn~~" A moan escaped her lips as a wave of pleasure coursed through her entire body, making her toes curl.</p>
+<p>"N-no... stop... this is wrong... oghnnn" A moan escaped her lips as a wave of pleasure coursed through her entire body, making her toes curl.</p>
 
 <p>What the hell was that? Why was it so good?</p>
 
@@ -95,7 +95,7 @@ chapter = 754
 
 <p>"Adoptive mother..." Qingyi didn’t stand still, pulling his hips back once more as he gave a light, teasing bite to Rouxi’s earlobe.</p>
 
-<p>"Nghnn~~ unfilial son... mghnn~~ Y-you can’t..."</p>
+<p>"Nghnn unfilial son... mghnn Y-you can’t..."</p>
 
 <p>"I want to have you as my wife... as more than just my mother... I want all of you, forever," he whispered, planting a slow kiss on her neck before moving his hips back until his cock slipped completely out of the warm grip of her thighs.</p>
 

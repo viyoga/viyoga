@@ -69,7 +69,7 @@ chapter = 818
 
 <p>This hack was ruthlessly effective. Whether you were online or not, it would always use AI to monitor and hold the Number One Supporter position, no need to manage it yourself.</p>
 
-<p>&quot;Wow, thank you, hubby, for the carnival! This is my first time receiving such a gift. Thank you, hubby~&quot;</p>
+<p>&quot;Wow, thank you, hubby, for the carnival! This is my first time receiving such a gift. Thank you, hubby&quot;</p>
 
 <p>On Nancy’s fan leaderboard, a few people were sporadically sending gifts. Most of the top spots were held by family members: her little sister, her wife, and her mother-in-law.</p>
 
@@ -143,7 +143,7 @@ chapter = 818
 
 <p>&quot;Not yet. I’m still busy.&quot;</p>
 
-<p>&quot;Then you should get back to work, hubby. Make sure you rest and don’t stay up too late~&quot;</p>
+<p>&quot;Then you should get back to work, hubby. Make sure you rest and don’t stay up too late&quot;</p>
 
 <p>After saying that, even Deewa herself felt strange, since when did her voice sound so coquettish? Since when did she learn to act so spoiled?</p>
 

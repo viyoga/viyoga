@@ -115,7 +115,7 @@ chapter = 405
 
 <p>The queen was trembling, while Isabel’s eyes shone brightly.</p>
 
-<p>“Oh… did you see that, mom? Isn’t my hubby amazing? That damn Belcuckold won’t stand a chance against him! Hehehe~~” Isabel giggled, her huge breasts bouncing as she ran towards Qingyi, hugging him tightly.</p>
+<p>“Oh… did you see that, mom? Isn’t my hubby amazing? That damn Belcuckold won’t stand a chance against him! Hehehe” Isabel giggled, her huge breasts bouncing as she ran towards Qingyi, hugging him tightly.</p>
 
 <p>Qingyi just smiled and shook his head. He looked at Sofia, bowing gently.</p>
 

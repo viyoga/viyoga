@@ -31,7 +31,7 @@ chapter = 1213
 <p>Aurora just rolled her eyes and returned to her work, and the light of the manacite flame once again reflected in her calm, calculating gaze.</p>
 <p>Seraphiel, the third person present, couldn’t help but giggle as she watched the foxkin’s desperation and near-vomiting state. "I wonder what Quinlan would say if you went in for a kiss."</p>
 <p>"... You’re lucky he’s busy with those two miscreants. If he heard what you just said, a spanking might’ve been on the menu."</p>
-<p>"Ooooh~ How kinky~" Sera, ever the cheeky elf, only hummed merrily while she was combing through Aurora’s platinum hair with patient, methodical strokes.</p>
+<p>"Ooooh How kinky" Sera, ever the cheeky elf, only hummed merrily while she was combing through Aurora’s platinum hair with patient, methodical strokes.</p>
 <p>The elf’s delicate fingers weaved ribbons through it, her serene smile betraying a playful undertone.</p>
 <p>"I like experimenting, stop making fun of me! By the sacrifice of the brave, do societies advance!" Kitsara protested between dry heaves.</p>
 <p>"How does licking draconic poop help society advance?" Sera mused.</p>
@@ -53,7 +53,7 @@ chapter = 1213
 <p>Kitsara couldn’t help it; she burst out laughing. "Oh, that’s rich. And I’m the one mocked for being kinky? Come on now! Having a submissive kink and being horny all day, every day is one thing, but wanting to have an incest orgy with your mother and lover is a whole different level!"</p>
 <p>Seraphiel grinned slyly at the foxkin’s words. "Incest orgy? I want no such thing. I’m a refined, graceful, and noble elf, after all." Seraphiel crossed her arms with mock indignation. "I just... want her to be happy. And to live a long life with the [Blessed Seed] in her womb. That’s all."</p>
 <p>Kitsara couldn’t help but burst out with laughter, hearing all the crap the elf was spewing.</p>
-<p>Aurora had a big smirk on her lips as she poured the final vial into the glowing potion. "Is that true, I wonder~?" she asked, her tone sing-song, teasing but suspicious.</p>
+<p>Aurora had a big smirk on her lips as she poured the final vial into the glowing potion. "Is that true, I wonder?" she asked, her tone sing-song, teasing but suspicious.</p>
 <p>Seraphiel nodded with a perfect poker face. It was hard to decide how truthful she was being.</p>
 <p>"Hey, oyakodon is nice! I bet Quin would thank your efforts with a raging boner. Don’t give up on your dreams," Kitsara said in support.</p>
 <p>Sera refused to acknowledge her words.</p>

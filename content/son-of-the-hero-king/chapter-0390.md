@@ -81,7 +81,7 @@ chapter = 390
 <p>When Sol entered the main dining room and saw all the women reunited, he gulped a little and now found one reason why a massive dinner should be a nono in the future.</p>
 <p>This might become a very explosive dinner. Too many people with headstrong personalities and a tendency toward violence were gathered in one place.</p>
 <p>But his worry did not last long as a bubbly voice he had nearly forgotten sounded a sa green light detached itself from Isis.</p>
-<p>“Yahoo! I am back! Ready to throw hands with goddesses at any moment! Hehehe~!”</p>
+<p>“Yahoo! I am back! Ready to throw hands with goddesses at any moment! Hehehe!”</p>
 <p>Sol’s eyes widened before a genuine smile formed on his face. He was happy because a good friend he was worried about had finally woken up.</p>
 <p>He was also happy because a mini-cheat code had just landed on his hand.</p>
 <p>He couldn’t help but think. What would happen if he used his power in conjunction with hers?</p>

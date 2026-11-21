@@ -16,7 +16,7 @@ chapter = 855
 <p>Her shoulders shuddered as the heat of the tip poked at her entrance, but she still looked the other way. She was practically made of pride, and she was in front of Milia, so that was hardly surprising.</p>
 <p>“Then what about you?” Sol pulled back and caressed Milia this time.</p>
 <p>The maid was clearly more honest with her feelings as she shook her hips. It had been some time since the last time they had sex, and with all the stress piling up, she desperately needed it.</p>
-<p>“Please~” She uttered, making Sol grin in a sadistic way. He was of the mind to play a prank, but it would have been too cruel.</p>
+<p>“Please” She uttered, making Sol grin in a sadistic way. He was of the mind to play a prank, but it would have been too cruel.</p>
 <p>“Well, since you were honest. You should get a prize.”</p>
 <p>Sol’s penis throbbed as he held the rod by the base with one hand while holding Satella, who was above Milia, with the other.</p>
 <p>Once well adjusted, he pressed the tip against her secret slit. He suppressed the urge to just jam it in and instead slowly moved his hips forward.</p>

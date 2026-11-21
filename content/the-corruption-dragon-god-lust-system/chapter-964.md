@@ -81,7 +81,7 @@ chapter = 964
 
 <p>"How was that? I was quick, wasn’t I?" Qingyi smiled, still holding both of them in his arms.</p>
 
-<p>"Yes." Yuehan nodded, her eyes narrowing playfully. "Lingxi hasn’t even woken up yet. To her, it’ll be as if you never left her side, fufufu~"</p>
+<p>"Yes." Yuehan nodded, her eyes narrowing playfully. "Lingxi hasn’t even woken up yet. To her, it’ll be as if you never left her side, fufufu"</p>
 
 <p>"Good."</p>
 

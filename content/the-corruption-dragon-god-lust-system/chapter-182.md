@@ -33,7 +33,7 @@ chapter = 182
 
 <p>His hands roamed over her voluptuous, naked body, flowing down to her buttocks and squeezing them hard, feeling the creamy, sweaty skin spread between his fingers.</p>
 
-<p>“Nghn~~” Qingxue opened her eyes softly, her full, pink lips curving into a sweet smile as she blushed deeply.</p>
+<p>“Nghn” Qingxue opened her eyes softly, her full, pink lips curving into a sweet smile as she blushed deeply.</p>
 
 <p>“Do you sense something new in your husband?” Qingyi asked and Qingxue’s eyes widened.</p>
 
@@ -51,7 +51,7 @@ chapter = 182
 
 <p>Those words only made the bitterness on Qingxue’s face grow even stronger.</p>
 
-<p>“You think I’m a burden- Nghnn~~” Before she could even finish her sentence, Qingxue let out a high-pitched moan as Qingyi’s hands hit her ass with a loud smack, shockwaves spreading through her voluptuous flesh.</p>
+<p>“You think I’m a burden- Nghnn” Before she could even finish her sentence, Qingxue let out a high-pitched moan as Qingyi’s hands hit her ass with a loud smack, shockwaves spreading through her voluptuous flesh.</p>
 
 <p>“You’re not a burden, not even close. It’s just that I’m enough to deal with those pigs, you should just focus on getting stronger for the Eternal River Sect selection.” Qingyi gently placed his hand on her cheek.</p>
 
@@ -69,7 +69,7 @@ chapter = 182
 
 <p>’Let me see, are Elize and Feiyan winning?’ Qingyi was unable to hide a bright smile on his face.</p>
 
-<p>“No… I am, fufufu~~” Ruxue let out a giggle, imagining Qingyi’s incredulous face when he heard that.</p>
+<p>“No… I am, fufufu” Ruxue let out a giggle, imagining Qingyi’s incredulous face when he heard that.</p>
 
 <p>“I won’t believe it until I see it.” Qingyi shook his head, tempted to enter Ruxue’s world of the mind.</p>
 

@@ -27,7 +27,7 @@ chapter = 977
 <p>"Damn right."</p>
 <p>"We’ve met as well." Aria had come to stand at Kaiden’s side, pleasant as spring. "I believe I told you something back then."</p>
 <p>"That he’s taken... I remember."</p>
-<p>"You have an excellent memory~" Aria said, and hugged Kaiden’s arm to underline the point.</p>
+<p>"You have an excellent memory" Aria said, and hugged Kaiden’s arm to underline the point.</p>
 <p>Kaiden looked the three of them over, and his grin went shameless.</p>
 <p>"Sarah I’ve met. And you’d be Lady Leia." He tilted his head at her silence. "Somehow I expected more volume."</p>
 <p>Leia offered him a small, gracious smile and nothing else, and Sarah’s sense of danger began to tick.</p>

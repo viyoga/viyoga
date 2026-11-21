@@ -51,7 +51,7 @@ Lucifer smirked and slapped Lith's butt with her tail. It was a light thing, onl
 
 Lith snorted. "I swear the moment I have my cultivation above yours, the first thing I'm doing is tying you up somewhere secluded for a few thousand years. You can't watch anime or eat or even masturbate there."
 
-"Hoh Hoh Hoh~" Lucifer covered her mouth and laughed mockingly. "That's quite the goal you have there. A good dream, I respect it. But anyway, it's too far away. Think of the present, your bootyhole's at stake. And I suppose your pride too."
+"Hoh Hoh Hoh" Lucifer covered her mouth and laughed mockingly. "That's quite the goal you have there. A good dream, I respect it. But anyway, it's too far away. Think of the present, your bootyhole's at stake. And I suppose your pride too."
 
 Lith's eyes twitched.
 

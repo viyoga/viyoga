@@ -7,7 +7,7 @@ chapter = 52
 
 <p>Jason only wanted to lure a single scout here, and making too much noise would draw multiple, so he decided to be as patient as possible.</p>
 <p>Two minutes passed, and then another three minutes passed with no movement or signs of a scout and Jason was close to giving up on his plan when he suddenly heard something in the distance.</p>
-<p>Buzzz~!</p>
+<p>Buzzz!</p>
 <p>Jason perked up as a buzzing sound increased in volume while growing closer. A sense of dread filled him, and he cursed under his breath. He didn’t think it would be like this!</p>
 <p>’The scouts can fly?’</p>
 <p>Jason watched as a large, meter-long ant appeared from the foliage! Its outer skeleton was made from a metallic silvery material that shone in the day’s sun. Its wings were beating fast as it hovered through the forest, and on its mouth were two sharp mandibles.</p>
@@ -17,7 +17,7 @@ chapter = 52
 <p>Jason immediately sent a new order to the wolf, and the wolf bared its teeth at the ant in challenge before it turned and ran! The ant quickly chased the wolf down. The wolf was moving very quickly, and Jason followed behind the two of them while telling the wolf to slow itself so that the ant would come down to attack! The ant was blazing through the forest with its wings, and it wasn’t long before the ant tried to swoop down and attack the wolf with its large mandibles!</p>
 <p>’Now!’</p>
 <p>Jason shouted from behind the ant, and the ant could barely turn in shock before it was assaulted by two large Pawn Rank III wolves! The wolves grabbed the ant by the head and wings before pulling hard in opposite directions and tearing the ant apart!</p>
-<p>SQUELCH~!</p>
+<p>SQUELCH!</p>
 <p>The ant couldn’t even let out a single screech before it fell to the forest floor and twitched in pain as it died, and Jason released a sigh as he arrived on the scene. He patted the wolves and told them they did a good job before he put his hand toward the ant.</p>
 <p>"Resurrect."</p>
 <p>A pulse of mana surged through the area as Jason’s mana grabbed hold of the ant’s soul and dragged it out from its body. The ant’s silvery skin now shone with a purple hue around it, and its wings had purple veins running down their length. The ant buzzed its wings and turned towards Jason expectantly, and he gave it a pat on the head before he turned to his system.</p>

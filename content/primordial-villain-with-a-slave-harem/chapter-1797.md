@@ -21,7 +21,7 @@ chapter = 1797
 <p>"I’m taking the biggest bath in this mansion," Kitsara announced to nobody in particular, stretching until her spine popped. Her tails swished behind her as she sauntered toward the corridor. "If anyone needs me in the meantime... Go talk to one of the more responsible girls."</p>
 <p>On her way out, she grabbed Vex by the hand and began dragging her away. "Come, Vexie. Us demon chicks need to have a strategy meeting..."</p>
 <p>"What kind...?" Vex asked, already purring with a strong suspicion.</p>
-<p>"With our new bodies, a lot of possibilities opened up, right~?"</p>
+<p>"With our new bodies, a lot of possibilities opened up, right?"</p>
 <p>A pair of red, yandere eyes lit up. "Hmm... Fine. Let’s discuss. We have to ensure everything is perfect for the first time..."</p>
 <p>Myrasyn and Isveth were glancing at Quinlan with big, hopeful eyes.</p>
 <p>"I’ll need some time to get things in order before we head out," Quinlan muttered. "It’d be my honor to host you for the night."</p>
@@ -34,8 +34,8 @@ chapter = 1797
 <p>Isveth bowed to Quinlan and hurried after the queen, both elves disappearing down the hall, all thought of politics forgotten in favor of a little girl and a very large tree.</p>
 <p>Near the doorway, Kaelira and Seraphiel had drifted into the kind of animated whisper that only two elven women planning a trip could produce.</p>
 <p>Kaelira’s violet eyes were sparkling. "The royal dwarven smithy... Their forges... If even half of what I’ve read about them is real..."</p>
-<p>"Mm, very practical." Seraphiel nodded along, blonde hair swaying. "I want to see the boutiques. The elven capital is famous for their sense of fashion... And now that we have enough money laying around..." The bombshell elf’s lips turned upwards. "It’s finally time for me to go on a splurging spree~"</p>
-<p>Then she clasped her hands together with a dreamy exhale. "And the forests... they say the scenery is out of this world... Taking Quin on a walk there... And then~"</p>
+<p>"Mm, very practical." Seraphiel nodded along, blonde hair swaying. "I want to see the boutiques. The elven capital is famous for their sense of fashion... And now that we have enough money laying around..." The bombshell elf’s lips turned upwards. "It’s finally time for me to go on a splurging spree"</p>
+<p>Then she clasped her hands together with a dreamy exhale. "And the forests... they say the scenery is out of this world... Taking Quin on a walk there... And then"</p>
 <p>"And then?"</p>
 <p>"Well..."</p>
 <p>They wandered off still detailing all they wanted to do.</p>

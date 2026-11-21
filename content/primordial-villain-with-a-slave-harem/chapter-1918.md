@@ -12,7 +12,7 @@ chapter = 1918
 <p>Sera wasn’t one to let dwarves outshine elves, so, proudly, she pitched her own people. "The elves have an unnatural affinity with nature, so we could sense how a crop is doing before blight ever shows, ensure a healthy growth, and listen to whatever complaints the crops make."</p>
 <p>"Won’t they throw a massive hissy fit if their beloved greens get harvested on repeat?" Lucille asked, almost purring, eagerly awaiting a response.</p>
 <p>The blonde elf’s lips trembled wryly. Then she straightened her spine. "It has to be Quinlan who asks for volunteers. If it’s the Holy Son, those crazies would do whatever he says."</p>
-<p>"I see~"</p>
+<p>"I see"</p>
 <p>"Humans can do the busy work, as there are too few elves to conduct this at scale and their fragile bodies and bitchy attitudes aren’t great for the hard labor part. Potentially even the beastkin’s noses could be of use, though we’ll have to run some tests on that," Aurora continued, already deep in thought.</p>
 <p>"And conquer them," Vex added, grinning.</p>
 <p>"And conquer them. Yep," Quinlan chuckled.</p>

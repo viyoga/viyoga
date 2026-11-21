@@ -55,7 +55,7 @@ chapter = 80
 <p>His sole source of happiness was that the prince was indeed a good young man. The fact that he didn't immediately accept the proposal pleased him even more.</p>
 <p>"I had already prepared to hand down all the power of the family to you and go on holidays in our duchy. Seems like I still have much to do."</p>
 <p>Deciding to lighten the atmosphere, he made a simple joke.</p>
-<p>"Hahaha~! Sorry old man. I will wring your old bones dry before letting you go."</p>
+<p>"Hahaha! Sorry old man. I will wring your old bones dry before letting you go."</p>
 <p>The two of them laughed and filled their glass before tricking again.</p>
 <p class="scene-break">· · ·</p>
 <p>The next day, Sol was woken up but a tingling sensation coming through his crotch. Feeling himself ejaculating, he opened his eyes only to see a sea of blue hair moving up and down while a pleasant sensation made his body shiver in pleasure.</p>
@@ -70,7 +70,7 @@ chapter = 80
 <p>Still, it wouldn't take long. Just a few days.</p>
 <p>"Where is Milia?"</p>
 <p>He asked as he saw her take a towel bath.</p>
-<p>"Hum~ it seems like she visited the kitchen to make sure that they would prepare a good breakfast for you."</p>
+<p>"Hum it seems like she visited the kitchen to make sure that they would prepare a good breakfast for you."</p>
 <p>"I see."</p>
 <p>Saying so, he also left the bed and followed her to the bath.</p>
 <p>Today promised to be an interesting day. After all… He had a date with a witch.</p>

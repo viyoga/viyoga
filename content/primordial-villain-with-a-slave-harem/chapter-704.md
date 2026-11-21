@@ -38,7 +38,7 @@ chapter = 704
 <p>&lt;Are you truly mad at me?&gt;</p>
 <p>I asked, getting a big smile from her. &lt;Hehe! No, I was just messing with you. I would've been rather concerned if you were down to get freaky with this current body of mine.&gt;</p>
 <p>&lt;Great.&gt;</p>
-<p>&lt;But hey, now you at least know my offer wasn't just me spouting nonsense. Just let me know the time and place, Quinnie~&gt;</p>
+<p>&lt;But hey, now you at least know my offer wasn't just me spouting nonsense. Just let me know the time and place, Quinnie&gt;</p>
 <p>I didn't need to ask what offer she was talking about, because she'd just spent 24 hours strapped to my sex dungeon for insinuating this exact same thing. &lt;Woman… Didn't you learn anything?&gt;</p>
 <p>&lt;You mean during my day-long 'punishment' session where my big, mean boyfriend taught his misbehaving little princess an important lesson? All that was good for is letting me know you'll make me feel amazing if I manage to rile you up…&gt;</p>
 <p>&lt;Haaah… Whatever shall I do with you? If Papa Vargis knew just what kind of a deviant his daughter was in reality, he would cry tears of blood. On the bright side, at least you don't seem to be nervous. You do know Darius is right, correct? This is indeed risky.&gt;</p>

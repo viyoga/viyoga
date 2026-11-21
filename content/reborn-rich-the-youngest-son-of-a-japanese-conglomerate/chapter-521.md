@@ -66,7 +66,7 @@ chapter = 521
 <p>,Tomorrow is Sports Day....,</p>
 <p>The request we received was to find the culprit before Sports Day. Then is this student council request a failure....</p>
 <p>,It can't be helped. Let's go home since it's late. We have Sports Day tomorrow, so we have to take care of our condition.,</p>
-<p>,Ah.... Is this request a failure? That's too bad~!,</p>
+<p>,Ah.... Is this request a failure? That's too bad!,</p>
 <p>,Since we tried hard, won't the student council count it as something we did?,</p>
 <p>,What kind of person is Taira Kanna? She'll never do that.,</p>
 <p>I let the students go home earlier than I had in the past few days. I feed them dinner in the club room every day, so I decided to send them home early today. The students each said they were disappointed and left the special class building while chatting with each other.</p>

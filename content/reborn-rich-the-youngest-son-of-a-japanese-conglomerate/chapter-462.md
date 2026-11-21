@@ -6,7 +6,7 @@ chapter = 462
 +++
 
 <p>,Teacher! Let's work out together next time!"</p>
-<p>,Ryuta-jji, today was fun~! I'll come play again next time☆"</p>
+<p>,Ryuta-jji, today was fun! I'll come play again next time☆"</p>
 <p>,Don't come play anymore!"</p>
 <p>Kujo Kina and Seizawa Shii left (strangely, they both seemed to like it and left wearing their maid outfits). I was left alone. Still, it's a relief that I don't have to clean up all by myself because I made them do all the cleaning as punishment.</p>
 <p>,Then, shall I check this out?"</p>

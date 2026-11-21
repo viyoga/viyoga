@@ -30,7 +30,7 @@ chapter = 670
 <p>In the worst possible manner.</p>
 <p>With a dismissive scoff, she decreed, "Hmph! Only betas let their women walk all over them! Wait, don't tell me!"</p>
 <p>Kitsara gasped and brought her hands to her mouth as if she'd just unearthed my biggest secret. "Are you into femdom?" She then puffed her chest out proudly while declaring, "You know, I could peg you if that's what your heart desires under all your macho bravado. Now that I have my second tail, I bet I could create an amazing penis a beta bitch like you would enjoy like there's no tomorrow."</p>
-<p>As if she hadn't said enough, the princess of the dogkin people hummed in a sing-song voice, "Turn around, Quinnie~ Show me the booty~ Lady Kitsara is ready~"</p>
+<p>As if she hadn't said enough, the princess of the dogkin people hummed in a sing-song voice, "Turn around, Quinnie Show me the booty Lady Kitsara is ready"</p>
 <p>Muted silence reigned over the harem bedroom, broken only by Seraphiel's awkward coughing. The silence lasted for minutes as the girls stared at Kitsara with wholly disbelieving eyes. Their brains failed to comprehend her words for the longest time, and they weren't alone.</p>
 <p>But then, at long last, I spoke up. I did not use my vocal cords to converse.</p>
 <p>&lt;Ronan, did you finish the dungeon I asked you to create?&gt;</p>

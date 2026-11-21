@@ -47,9 +47,9 @@ chapter = 82
 <p>Park Sang-beom '52: This year's end-of-semester party for the class of '53 will be held at Lime Tree at the Korea University intersection! And Han Yu-gyeong from our department says she's bringing her boyfriend, so I hope everyone can attend. There are no dues. Please indicate if you will be attending.</p>
 <p>Jo Gi-taek '53: I will attend.</p>
 <p>Choi Seong-hoon '53: I will attend!</p>
-<p>Ok Hye-min '53: Attending~~</p>
+<p>Ok Hye-min '53: Attending</p>
 <p>Lee Da-on '53: I will attend.</p>
-<p>Kim Ji-yeon '53: Wow~ No dues? I'm definitely attending 11111</p>
+<p>Kim Ji-yeon '53: Wow No dues? I'm definitely attending 11111</p>
 <p>No one knew when Park Sang-beom, from the class of '52, had joined the group chat for the class of '53, but whether it was because there was no reason to refuse a gathering with free dues in real-time, or to see the boyfriend that Han Yu-gyeong claimed to have, those who didn't have any other unavoidable prior engagements or family events all attended, showing an incredible turnout.</p>
 <p>Park Sang-beom was part of the student council, but it seemed like he was determined to gather people by making all the dues free. It was somewhat rumored that Park Sang-beom's family was a third-generation chaebol from BS Group, so everyone knew that this wasn't a big deal for him. It was laughable to Han Yu-gyeong, who was also the daughter of a chaebol family, but still.</p>
 <p>Han Yu-gyeong fell into deep thought. That thought continued until she returned to her studio apartment that night. Soon, having made a big decision, Han Yu-gyeong turned on her phone.</p>

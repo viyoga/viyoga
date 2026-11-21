@@ -37,7 +37,7 @@ chapter = 805
 <p>Deureureuk.</p>
 <p>Some Time after Uenozono Karen left, the Classroom Door suddenly opened. The Person who came in was Taira Kanna. As Taira Kanna entered the Classroom with a refreshing Smile, the soft Classroom Atmosphere became awkward again.</p>
 <p>In particular, the Students who were in the Yamashiro Ryuta rescue team showed uncomfortable Expressions, so the other Students who didn't know the Situation were looking around to see what was going on.</p>
-<p>'Yamashiro-sensei~!'</p>
+<p>'Yamashiro-sensei!'</p>
 <p>'Yeah, Student Council President, what's wrong?'</p>
 <p>There were not only our class Students but also the stylists, so I treated Taira Kanna a little stiffly.</p>
 <p>Taira Kanna, who was looking at me with a pouting Expression, puffing out her cheeks, as if she didn't like being called just Student Council President instead of her first or last name, soon recovered her original Expression and opened her Mouth to me.</p>
@@ -45,7 +45,7 @@ chapter = 805
 <p>Ah, well.... There were a lot of Reporters outside the special class building. In Korea, it was a Situation where a serial Killer who had killed more than five Times as many people as Yoo Young-chul was caught by High School Girls, not the police, so they wouldn't be able to stop the media's Interest.</p>
 <p>'The Time is from now.... We'll do it in fifteen minutes, so you have to arrive at the small Auditorium five minutes before that. Got it, Teacher?'</p>
 <p>'Okay.'</p>
-<p>'Then I'll see you in the small Auditorium~♥'</p>
+<p>'Then I'll see you in the small Auditorium♥'</p>
 <p>Taira Kanna, who gave me a slightly seductive Expression for a Moment, changed back to her usual Expression and looked around at the Students and stylists before leaving. She's a complete Fox.</p>
 <p>After Taira Kanna left, the stylists' Hands became hurried. The event starts in fifteen minutes, and they have to arrive five minutes before the event starts, so excluding the Time it takes to get to the small Auditorium, the stylists only had about 7-8 minutes.</p>
 <p>Of course, everyone is an excellent stylist hired by a prestigious Family, so they will decorate the Students without being late even with the limited Time.</p>
@@ -53,10 +53,10 @@ chapter = 805
 <p>I left the Classroom and headed to the Restroom to check if there was anything on my Face, even if I couldn't put on makeup. Anyway, I'll just be watching the Female Students put on makeup for the rest of the Time, so it would be better to do something else since it's a little boring to just do that. Hmm, it's clean. When I looked in the Mirror, a handsome man with brown Skin was smiling at me. I didn't seem to need to wash my Face or put anything on.</p>
 <p>I came out of the Restroom and did something else in the education preparation room for a while, and when it was Time, I went to the Classroom, and everyone was done with their makeup. Thanks to the Hands of the pros, everyone was prettier than usual.</p>
 <p>'Hmm, is this not our class? I thought there wouldn't be a class prettier than our special class Students.'</p>
-<p>'Ahaha~☆ Ryuta-jji, aren't you being too obvious about praising us?'</p>
+<p>'Ahaha☆ Ryuta-jji, aren't you being too obvious about praising us?'</p>
 <p>Everyone laughed at my exaggerated Reaction. They wouldn't dislike it since it was a Story about how pretty they were. When I told them that it was Time to leave, everyone got up from their seats.</p>
 <p>'Take your Bags because you can go straight Home after receiving the Award.'</p>
-<p>'""Yes~!""'</p>
+<p>'""Yes!""'</p>
 <p>I had the Students pack their things so they wouldn't have to come back to the special class after the small Auditorium. I didn't have any other appointments today, so I was going to study for the PMC certification test in the education preparation room for a while before going Home.</p>
 <p>When I came outside, there was no one there, as the Reporters seemed to have already gone to the small Auditorium. The Students were chatting and heading to the small Auditorium. I approached Saionji Diana, who was walking alone.</p>
 <p>'Did the Story with your Family go well?'</p>
@@ -75,13 +75,13 @@ chapter = 805
 <p>After the Award ceremony was over and the Yamanashi Prefecture Police Chief's speech was also over in a short Time, the Families of the special class Students and several local notables and Reporters approached, making it quite complicated.</p>
 <p>'Yamashiro-sensei, let's talk for a Moment.'</p>
 <p>I turned around because the Voice was Familiar, and it was Haino Den-ei, the vassal of the Minamoto Family who I had seen when I returned to Miyashi from the resort. It can't be that he found out my True Identity, so what's the matter that he called me for?</p>
-<p>Taira Kanna cheek puffing B-cut~!</p>
-<p>Gojoy-nim requested Jung Da-rim belly dancer breast covering~!</p>
-<p>Belly dancer~!</p>
-<p>Breast covering~!</p>
-<p>seungj050-nim requested Yukiko and Dang So-hwa wearing only sweaters with their Buttocks barely visible~!</p>
+<p>Taira Kanna cheek puffing B-cut!</p>
+<p>Gojoy-nim requested Jung Da-rim belly dancer breast covering!</p>
+<p>Belly dancer!</p>
+<p>Breast covering!</p>
+<p>seungj050-nim requested Yukiko and Dang So-hwa wearing only sweaters with their Buttocks barely visible!</p>
 <p>Yukiko</p>
 <p>Dang So-hwa</p>
-<p>MidNightSKY-nim requested Alik releasing like Geese Howard's Thunder Break~!</p>
+<p>MidNightSKY-nim requested Alik releasing like Geese Howard's Thunder Break!</p>
 <p>I tried to do the Thunder Break pose, but it turned into a frog pose....haha</p>
 <p>B-cut! Suddenly, baby Alik also appeared together ㅎㅎㅎ</p>

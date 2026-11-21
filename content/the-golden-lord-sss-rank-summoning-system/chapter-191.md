@@ -15,7 +15,7 @@ chapter = 191
 <p>She clenched her teeth and pulled Ethan toward her, her arched back aligning her breasts perfectly with his face.</p>
 <p>Ethan, naturally, didn’t refuse when that enormous pair of fragrant tits swallowed his vision. Her arms squeezed them inward from either side, crushing them against his face and forming a soft, warm prison of perfumed flesh.</p>
 <p>He grabbed Ophelia’s shapely ass and squeezed hard, his fingers sinking deep into the plump cheeks at the exact moment his cock exploded directly inside her womb.</p>
-<p>"NGHNN~~" A shrill moan escaped Ophelia’s lips, her whole body trembling.</p>
+<p>"NGHNN" A shrill moan escaped Ophelia’s lips, her whole body trembling.</p>
 <p>Her breasts jiggled against Ethan’s face like two hot, round masses of jelly, the warm globes rippling with every spasm of her orgasm.</p>
 <p>When the first gush of cum invaded her womb, she thought she was going to die. The scalding heat ignited every nerve in her body.</p>
 <p>But she soon got used to it, gush after gush of the viscous, hot liquid filling her until there was no room left for anything else.</p>

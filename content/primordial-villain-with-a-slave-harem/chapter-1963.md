@@ -62,7 +62,7 @@ chapter = 1963
 <p>Ayame squeezed his arm.</p>
 <p>"&gt; &lt;We did register as adventurers once. Before someone decided he’d rather become a criminal.&gt;</p>
 <p>"&gt; &lt;It was fun, wasn’t it?&gt;</p>
-<p>"&gt; &lt;No comment. But perhaps we could try completing a few more quests this time~&gt;</p>
+<p>"&gt; &lt;No comment. But perhaps we could try completing a few more quests this time&gt;</p>
 <p>He covered her hand with his while Narethi pointed inland again.</p>
 <p>"The Adventurer’s Guild has a branch in Sarthal. Merchants need escorts, people need creatures driven away, expeditions need fighters. You’d have plenty to choose from.</p>
 <p>"I’m not sure how it is in your distant lands, but here, the Guild is a power in its own right, recognized across most continents. Its adventurers aren’t sworn to the nation where they happen to be staying."</p>

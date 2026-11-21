@@ -83,7 +83,7 @@ chapter = 2
 
 <p>Leaving the hospital, they instinctively headed for the bus stop. Luis gulped and reached out to hold her hand, intertwining their fingers.</p>
 
-<p>Lily let out a soft &quot;ah~&quot; and instantly blushed, lowering her head. &quot;We’re an old married couple. What are you doing?&quot;</p>
+<p>Lily let out a soft &quot;ah&quot; and instantly blushed, lowering her head. &quot;We’re an old married couple. What are you doing?&quot;</p>
 
 <p>&quot;If we’re an old married couple, why are you blushing?&quot;, Luis grinned lewdly, staring at her beautiful face and exquisite figure.</p>
 

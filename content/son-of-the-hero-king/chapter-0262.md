@@ -29,7 +29,7 @@ chapter = 262
 <p>Sol didn’t need more words of encouragement. It had to be said that the exotic body of Skuld was something Sol enjoyed greatly.</p>
 <p>Her body was so supple, that it seemed that he could fold her in half with no problem. Her beautiful glistening pink skin, which he was sure Freya would die for, made him gulp in anticipation. Her hot vagina exercised a suction force of the like he had never felt and if he wasn’t careful, he was sure that she would suck every last bit of his semen in a jiffy.</p>
 <p>Taking her by the waist, Sol lifted her slowly, savoring the sensation before pushing her back in one swift movement.</p>
-<p>“Ah~!”</p>
+<p>“Ah!”</p>
 <p>Skuld let out a moan of pleasure at the sudden shock of his shaft hitting the entrance of her womb. Normally such action should have been rather painful but for her, it only brought pleasure.</p>
 <p>Letting go of all reservation, she began to move up and down by herself while sticking her small body to Sol, increasing the friction between their skins. Her dark pink nipples were hard and brought her even more pleasure.</p>
 <p>However, all of that was nothing. The moment when, like her, Sol began to nibble on her collarbones, Skuld’s eyes opened wide and her mind went blank because of the sudden explosion of pleasure that surpassed everything she had ever felt.</p>
@@ -37,7 +37,7 @@ chapter = 262
 <p>While Skuld was shaking and moaning because of the waves of pleasure that threatened to break her mind, the convulsion brought by her moist cave made Sol reach the brink and, holding her tightly by the waist, he sank down all the way to the root and released all of his white murky liquid deep in her stomach.</p>
 <p>—</p>
 <p>Once Skuld came down from the high of her orgasm, she gave out a lazy smile and proceeded to lick the sweat on Sol’s face.</p>
-<p>“Hah~Darling really filled me up.”</p>
+<p>“HahDarling really filled me up.”</p>
 <p>Chuckling lightly, she slowly pulled herself up from Sol while giving a low moan because of how sensitive she still was.</p>
 <p>Once his penis was completely out, Sol was surprised to see no residue of semen fall seep out of her. After holding back for so long, he had been quite backed up and was sure that he spilled a lot in her.</p>
 <p>As if understanding his silent question, something she seemed always able to do, Skuld give her usual gentle smile.</p>

@@ -76,9 +76,9 @@ chapter = 1031
 <p>Although it was a considerable distance, I felt as if my Eyes had met the man in Knight Armor. The man in Knight Armor said something to his Subordinates, then soon left the battlefield; judging by the direction he was moving, he probably said he would intervene in the Fragment of Omniscience battle.</p>
 <p>"Phew...! I guess I have no choice but to fight."</p>
 <p>Naruse Shiyo gathered her Weapons and stood up from her Seat. This was because the man in Knight Armor had left, and the remaining SPF Subordinates were approaching the Place where Naruse Shiyo was.</p>
-<p>Chomisaemeonji-nim requested School Uniform Liz, Archery Club Liz~!</p>
-<p>School Uniform Liz~!</p>
-<p>Archery Club Liz~!</p>
-<p>Gojoy-nim requested Shinoe Misano undressing 1. Removing Top 2. Removing Bottoms~!</p>
+<p>Chomisaemeonji-nim requested School Uniform Liz, Archery Club Liz!</p>
+<p>School Uniform Liz!</p>
+<p>Archery Club Liz!</p>
+<p>Gojoy-nim requested Shinoe Misano undressing 1. Removing Top 2. Removing Bottoms!</p>
 <p>1.</p>
 <p>2.</p>

@@ -19,8 +19,8 @@ chapter = 253
 <p>Bastet wasn’t some dainty feline scout built for agility and stealth. She was a sun-blessed goddess in the flesh, making her bountiful curves a masterpiece of divine excess.</p>
 <p>Each bounce of her large breasts beneath her had a hypnotic rhythm of its own as they swayed with every collision of their bodies.</p>
 <p>Her ass, just as decadent, was the perfect anchor. Kaiden gripped each cheek with rough hands, spreading her wider, sinking into her even deeper. The soft jiggle of her flesh under his grip only spurred him on as his hands molded her like clay with every thrust.</p>
-<p>"Nyaaa~! M-Master, please!" Bastet wailed as her face found itself mashed deeper into the pillow. Her arms were shaking, fingers gripping uselessly against the blanket as if the fabric could save her from the overwhelming pounding she was receiving.</p>
-<p>"S-stop, please! P-please, I c-can’t keep up... I don’t even know who... who even am I anymore~!?" she cried out between half-sobs and high-pitched moans. Her words came out slurred, hard to even recognize what nonsense she was speaking about.</p>
+<p>"Nyaaa! M-Master, please!" Bastet wailed as her face found itself mashed deeper into the pillow. Her arms were shaking, fingers gripping uselessly against the blanket as if the fabric could save her from the overwhelming pounding she was receiving.</p>
+<p>"S-stop, please! P-please, I c-can’t keep up... I don’t even know who... who even am I anymore!?" she cried out between half-sobs and high-pitched moans. Her words came out slurred, hard to even recognize what nonsense she was speaking about.</p>
 <p>"You don’t know who you are?"</p>
 <p>She tried to respond but only squeaked out an incoherent moan.</p>
 <p>"Well, if you’re not Bastet, the Sun-Kissed Pharaoh..." he smirked as he leaned in close to her ear, "what are you, then? A stray cat? No... not even that. You’re just a bitch in heat, aren’t you? A tanned kitten I picked up in a dungeon, not aware how deep her sheer depravity went. You’re nothing but a needy, squishy little kitten begging to be stuffed."</p>

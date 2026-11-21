@@ -6,7 +6,7 @@ chapter = 20
 +++
 
 <p>After lunch, Gokado Hanako parted ways with Taira Ryuta's group and got a little angry at Kagawa Umi. She was annoyed that Umi had made a drinking appointment without consulting her, forcing her to agree in order not to spoil the mood.</p>
-<p>"Umi-chan! You should have asked me before making a drinking appointment~!"</p>
+<p>"Umi-chan! You should have asked me before making a drinking appointment!"</p>
 <p>"Hehe, sorry, Hanako-chan. But I like that Kazuhiro-chan, okay? Can you help me out?"</p>
 <p>No matter what she said, Umi was asking her to help her meet a guy, so as a friend, Hanako couldn't stay angry any longer and agreed. Then, she called her boyfriend, Honjo Tokiatsu. Gokado Hanako, who prided herself on being reasonably chaste, couldn't possibly drink with another man without telling her boyfriend.</p>
 <p>-Hanako, what's wrong?</p>
@@ -23,15 +23,15 @@ chapter = 20
 <p>-Hoo.... Okay, I always trust Hanako.</p>
 <p>Only when she called him by his childhood nickname, Toki-chan, did Honjo Tokiatsu's mood improve a little. Hanako felt frustrated having to explain everything like this. Would he tell her to just live as a housewife if they got married?</p>
 <p>Marrying Tokiatsu, whom she had liked since kindergarten, was one of Gokado Hanako's dreams, but she didn't want to waste her smart brain, which was good enough to get into Edo University. She dreamed of becoming a confident career woman or a lawyer or prosecutor, befitting her academic background. Being a housewife was not Gokado Hanako's dream.</p>
-<p>"Thanks! I have an afternoon class now, so I'll hang up~"</p>
+<p>"Thanks! I have an afternoon class now, so I'll hang up"</p>
 <p>-Okay! Do your best. Fighting!</p>
 <p>Gokado Hanako hung up the phone and moved to the practice area. And during a break in practice, she witnessed Taira Ryuta's lewd scene. The sight was so explicit that Gokado Hanako was a little reluctant to look at Taira Ryuta's face.</p>
 <p>'I can't drink with Ryuta-gun with this feeling. I feel sorry for Umi, but should I send her alone?'</p>
 <p>Toki-chan would be very happy if I said I wasn't going to the drinking party, right? Gokado Hanako thought about how happy her boyfriend would be and called Honjo Tokiatsu, but it was not Honjo Tokiatsu who answered the phone, but a woman.</p>
-<p>-Oh my~! Hanako-chan! What's wrong?</p>
+<p>-Oh my! Hanako-chan! What's wrong?</p>
 <p>The voice belonged to Yamana Mikuni, a childhood friend just like Honjo Tokiatsu. In high school, they had fought over Honjo Tokiatsu, and Gokado Hanako had ultimately won Honjo Tokiatsu's heart, but Yamana Mikuni hovered around Honjo Tokiatsu, constantly seeking an opportunity to surpass Gokado Hanako and become his girlfriend.</p>
 <p>"Why are you answering Toki-chan's phone?"</p>
-<p>-Toki-chan went to the bathroom. We're having dinner together tonight. I got a restaurant voucher~♪</p>
+<p>-Toki-chan went to the bathroom. We're having dinner together tonight. I got a restaurant voucher♪</p>
 <p>Gokado Hanako calmed her bubbling heart. He complained about her drinking with another man, but he's having dinner with Yamani Mikuni, who still loves him, without saying a word? Gokado Hanako said goodbye to hang up the phone before her reason was cut off by anger.</p>
 <p>"Okay, you two have a good meal. I'll hang up."</p>
 <p>Gokado Hanako's expression was complicated. It was a very complicated expression, filled with betrayal towards her boyfriend, anger and wariness towards her childhood friend and rival.</p>
@@ -58,7 +58,7 @@ chapter = 20
 <p>It seems her boyfriend had dinner with a woman. Her voice was slurred and cute, but it was a voice that suppressed a slight anger.</p>
 <p>-I just came to drink with Mikuni-chan. Mikuni-chan treated me to a very fancy restaurant, and I felt bad, so I said I wanted to repay her, and she said she wanted me to buy her a drink. So we came to a nearby bar.</p>
 <p>Hmm... Judging from the fact that her boyfriend's voice also sounded a little drunk, it seemed that the woman named Mikuni was definitely trying to get with Gokado Hanako's boyfriend.</p>
-<p>"Okay. Don't drink too much~ I'm going to sleep at the dorm."</p>
+<p>"Okay. Don't drink too much I'm going to sleep at the dorm."</p>
 <p>-Okay....</p>
 <p>Gokado Hanako hung up without even hearing the answer. And she looked at me with dazed, drunken eyes, and her gaze was subtly seductive, causing dick to react without me even realizing it.</p>
 <p>"Toki-chan betrayed me, so I'm going to do the same."</p>

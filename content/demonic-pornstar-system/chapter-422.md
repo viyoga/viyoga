@@ -46,5 +46,5 @@ chapter = 422
 <p>However, Kaiden was still not conversational.</p>
 <p>The palm resting on her skull applied a slow, steady downward push. It wasn’t a violent force that she couldn’t possibly resist, but it was more than enough to make the Infernal Matriarch instantly understand the command. Her Lord was impatient; the interlude was over.</p>
 <p>Calypso’s sultry smile returned, stronger and more intense than ever, her yellow eyes glowing with renewed, eager lust. She immediately melted under his touch.</p>
-<p>"Let me get back to it then~" she sing-songed huskily.</p>
+<p>"Let me get back to it then" she sing-songed huskily.</p>
 <p>The demoness sensually lowered herself back down to her knees. Her long, demonic tongue, tipped with a slight, mesmerizing fork, flicked out. It was hot and rough in the best way as it enveloped his cock.</p>

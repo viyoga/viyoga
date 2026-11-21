@@ -97,6 +97,6 @@ chapter = 888
 
 <p>She gasped, and finally, her lips parted.</p>
 
-<p>"Nghnn~~ I-I’ll do it, you pervert... but only b-because of big sis Ruxue, and if you lied, I’ll castrate you! You scoundrel... if you wake up the master... I promise I’ll bite!" Huoyue murmured, her hands moving slowly toward Qingyi’s cock, her fingers trembling and hesitant.</p>
+<p>"Nghnn I-I’ll do it, you pervert... but only b-because of big sis Ruxue, and if you lied, I’ll castrate you! You scoundrel... if you wake up the master... I promise I’ll bite!" Huoyue murmured, her hands moving slowly toward Qingyi’s cock, her fingers trembling and hesitant.</p>
 
 <p>Without her realizing it, however, Yuehan’s eyelashes fluttered, and slowly, a paior of blue eyes opened.</p>

@@ -12,7 +12,7 @@ chapter = 756
 <p>"He can come too, of course! There’s enough sexy demonic thighs for the both of us. And if he doesn’t want to share, I’ll be happy even to rest my head in the sand..."</p>
 <p>"Sorry, Leia is really messed up," Sarah apologized.</p>
 <p>"Hey. I can hear you."</p>
-<p>"...We’ve been part of the fandom for a bit now, she’s not that bad~" Kira and Rika giggled together.</p>
+<p>"...We’ve been part of the fandom for a bit now, she’s not that bad" Kira and Rika giggled together.</p>
 <p>The twins let the laughter settle, then tilted their heads in scary perfect sync.</p>
 <p>"Okay. Fun stuff aside for a second. Can we talk work?"</p>
 <p>"...Please," Sarah said after getting over how creepy twins moving together could look.</p>

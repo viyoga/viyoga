@@ -34,4 +34,4 @@ chapter = 1054
 <p>"The free dragons do not wish to leave their nest behind. We’re managing to evacuate all the contracted dragons, but we can’t do anything about the others."</p>
 <p>Riyala’s frown deepened once she heard this! Riyala already knew that the dragons in the Flaming Forest would be an issue, and in truth, Riyala couldn’t blame them. That was their home, and they had been there for multiple generations, so there was no way they would agree to leave just because someone asked them to! Riyala told her attendants to continue keeping records of what was happening before two black wings tore out from her back and she took off towards the Flaming Forest!</p>
 <p>At the edge of the Flaming Forest, Riyala saw multiple soldiers who were being attacked by a large male dragon! The soldiers had tried to get into the forest, but the dragons immediately attacked them and chased them out to protect the females! Riyala floated down to the ground as the largest male dragon let out an earth-shattering roar, and Riyala raised her hand towards the dragon.</p>
-<p>"Shhhh~"</p>
+<p>"Shhhh"</p>

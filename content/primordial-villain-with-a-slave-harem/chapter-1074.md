@@ -18,8 +18,8 @@ chapter = 1074
 <p>Three voices rang at once.</p>
 <p>"You do?"</p>
 <p>Quinlan, Serika, and Mimi all spoke up in perfect unison.</p>
-<p>Rosie puffed her chest out proudly. "Hehe~ of course! You see, when Rosie used Daddy’s Soul Realm to make Mimi’s new body, Rosie linked Mimi to the Soul Realm itself!" She tapped her temple as if it were the cleverest thing in the world. "And since Daddy’s Soul Realm was made to carry those shiny, scary-important seeds... Mimi became the guardian of the whole place!"</p>
-<p>Her little feet kicked excitedly against Serika’s shoulder. "So that’s why the seeds popped up on Mimi’s tree! The Soul Realm trusts its guardian, and Mimi is that guardian! Hehe~!"</p>
+<p>Rosie puffed her chest out proudly. "Hehe of course! You see, when Rosie used Daddy’s Soul Realm to make Mimi’s new body, Rosie linked Mimi to the Soul Realm itself!" She tapped her temple as if it were the cleverest thing in the world. "And since Daddy’s Soul Realm was made to carry those shiny, scary-important seeds... Mimi became the guardian of the whole place!"</p>
+<p>Her little feet kicked excitedly against Serika’s shoulder. "So that’s why the seeds popped up on Mimi’s tree! The Soul Realm trusts its guardian, and Mimi is that guardian! Hehe!"</p>
 <p>Mimi blinked, stunned. Her trembling slowed just a little. "I’m... a guardian...?"</p>
 <p>Rosie nodded so hard she nearly fell off Serika’s shoulder. "Yup! Guardian Mimi!"</p>
 <p>"Guardian Mimi..." The little dryad’s lips moved uncertainly around the words. Her big eyes were wide, confusion and innocence mixing together.</p>

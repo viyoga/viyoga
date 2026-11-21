@@ -8,14 +8,14 @@ chapter = 39
 <p>Jason used both hands to grab Gina's breasts, and he watched her eyes glaze over as she bounced herself on him!</p>
 <p>Although yesterday was only the first time they had sex, they both had learned a lot about each other's bodies. Jason knew that Gina liked it when he held her breasts, and although she liked it when he was rough, she also liked being in control sometimes.</p>
 <p>Gina suddenly increased her speed as she bounced faster, and Jason grunted as he felt her tightening up on his dick! He let go of one of her breasts and put his hand around her waist to guide her and make her go even faster, and Gina's breathless voice filled the room.</p>
-<p>"Jason~! Jason~! I'm coming! Hah~ hah~ Ngggghh~!"</p>
+<p>"Jason! Jason! I'm coming! Hah hah Ngggghh!"</p>
 <p>Gina suddenly let out a cry as an intense orgasm slammed into her, and Jason grunted as he felt Gina tighten up on him! But he was not yet ready to come, so he grabbed Gina around the waist and turned her around so that she was lying on the couch with him on top of her!</p>
 <p>Jason kissed Gina softly before he suddenly began slamming his dick inside her!</p>
 <p>Slam! Slam! Slam!</p>
 <p>Gina wrapped her hand around Jason's neck and held on tight as she felt Jason slamming into her cervix over and over again! She had barely come down from her orgasm and she could already feel another one coming!</p>
 <p>Bam! Bam! Bam! Bam! Bam!</p>
 <p>Jason suddenly sped up as he felt his own orgasm getting close, and Gina whispered in his ear.</p>
-<p>"Yes, yes. Fuck me. Fuck me~ Shit, I'm coming! Ughhhh~!"</p>
+<p>"Yes, yes. Fuck me. Fuck me Shit, I'm coming! Ughhhh!"</p>
 <p>Gina cried out in ecstasy as stars filled her vision, and her mouth opened wide as she felt Jason bulge inside her before a warmth filled her stomach! Gina put her hand on Jason's back and moved her hips up to meet his own so she could milk every drop of cum!</p>
 <p>She was going to take an after-morning pill once they were done, so she wasn't worried about him getting her pregnant.</p>
 <p>Once they were done, Jason sighed as he kissed her softly, and Gina ran a hand through his hair and spoke in a low sensual voice.</p>

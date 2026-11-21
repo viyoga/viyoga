@@ -18,9 +18,9 @@ chapter = 35
 <p>"Spread your legs for me."</p>
 <p>Jason gave an order, and Gina swallowed as she slowly spread her legs and allowed Jason to lay in between them. Gina ran her hand through Jason's hair and kissed him hard when he leaned down to her. Then she released a loud groan as Jason began to penetrate her once again!</p>
 <p>This time, Jason didn't rush it like before. Instead, he went slow and made sure to savor every inch that he put into her. Gina was still warm and tight on the inside, and Jason felt his arousal rising as Gina's husky voice echoed against the walls of the room.</p>
-<p>"Ohhh~ Uh~ Yes~! Yes~! Right there. Keep going! Keep going!"</p>
+<p>"Ohhh Uh Yes! Yes! Right there. Keep going! Keep going!"</p>
 <p>Gina was already dead tired, and she was grateful that Jason wasn't going as fast as before. But since they were going to be doing it all night, Gina decided that she would enjoy it to the fullest! Gina already felt another orgasm rising from deep inside her, and she buried her face into the crook of Jason's neck and screamed as the orgasm hit her hard!</p>
-<p>"Ughhhh~!"</p>
+<p>"Ughhhh!"</p>
 <p>Bang! Bang! Bang!</p>
 <p>"CAN YOU KEEP IT DOWN!? PEOPLE ARE SLEEPING HERE!"</p>
 <p>A voice suddenly screamed from the other side of the wall, and Jason stopped in surprise when he recognized it as his neighbor's voice. Jason cursed.</p>

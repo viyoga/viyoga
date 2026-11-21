@@ -10,7 +10,7 @@ chapter = 959
 <p>Her warm red skin turned the cheap-cheerful cotton into something expensive. Her shoulders and arms were bare, muscle moving under the gleam whenever she reached for anything, and the neckline had required two separate emergency interventions and was now holding on with reinforced stitching and prayer.</p>
 <p>"But hey. I could totally fight in this," Calypso said, turning in the mirror, pleased. "The arms are free. Good rotation."</p>
 <p>"You will not be fighting in it."</p>
-<p>"You never know~ I heard shopping malls have a lot of drama!"</p>
+<p>"You never know I heard shopping malls have a lot of drama!"</p>
 <p>"Oh dear," Nyx giggled, worried what this outing had in store for her two quirky friends.</p>
 <p>Nyx’s own hands were full, because Nyx had taken personal command of the Bastet problem, and the Bastet problem was proving to be a campaign.</p>
 <p>Everything fit her. That was never going to be the problem. The problem was that Bastet stood in the middle of a growing ring of rejected garments, enduring, and every single thing Nyx put on her read as a costume.</p>

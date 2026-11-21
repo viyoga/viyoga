@@ -90,7 +90,7 @@ chapter = 228
 <p>Normally speaking, Sol had no Fate with Lucifer. His Fate should have been to learn from her only.</p>
 <p>So what would happen if Sol managed to succeed?</p>
 <p>It would mean that he had used his original Fate to create a stronger Fate and grow stronger. It would also mean that he was well on his way to becoming a complete irregular.</p>
-<p>‘Haha~I want to see the faces of those goddesses when it happens. So, please…Show me you have what it takes.’</p>
+<p>‘HahaI want to see the faces of those goddesses when it happens. So, please…Show me you have what it takes.’</p>
 <p>She was already frustrated about seeing hundreds of futures she had prepared for vanish. How would Luxuria feel after witnessing a near-infinite amount of futures carefully thought of for millennia vanish under her powerless eyes?</p>
 <p>It would be so hilarious.</p>
 <p>The world was like a chessboard and people were nothing more than a chess piece moving under the whim of superior power.</p>

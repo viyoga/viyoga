@@ -71,7 +71,7 @@ chapter = 1108
 <p>So, Gensuke, you finally received Punishment from your dad. I don't know if exile to Brazil is a big Punishment, but from the Taira Group's perspective, being overseas, excluding the USA Branch, was a considerable penalty, so in terms of status within the Taira Group, it could be called a significant Punishment.</p>
 <p>"An Apology shouldn't just be Words."</p>
 <p>Taira Ichiro continued speaking, as if the Apology wasn't over with just that.</p>
-<p>Han Yu-gyeong Hanbok Illustration Remake for Chapter 60, requested by Gojoy-nim~!</p>
+<p>Han Yu-gyeong Hanbok Illustration Remake for Chapter 60, requested by Gojoy-nim!</p>
 <p>1.</p>
 <p>I intended for sky blue like the original, but even if I input light blue, it comes out dark ㄷㄷ.</p>
 <p>2.</p>
@@ -80,4 +80,4 @@ chapter = 1108
 <p>The prompt for spreading arms doesn't work well ㄷㄷ.</p>
 <p>2.</p>
 <p>Because of Lora, the Composition became identical, so I mixed in one daytime Illustration too ㅎㅎ I used a pose lora, and it quite influences the art style ㄷㄷ.</p>
-<p>Santa Girl Chieri requested by Inoega Doegopeun-nim~!</p>
+<p>Santa Girl Chieri requested by Inoega Doegopeun-nim!</p>

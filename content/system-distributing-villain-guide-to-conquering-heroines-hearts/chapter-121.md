@@ -9,7 +9,7 @@ chapter = 121
 <p>'That much came out and it's still this HARD?'</p>
 <p>Her only experience was Victor. And calling it "experience" was being generous. The man finished before she could count to ten and had the audacity to ask if it was good. She knew for sure it was under ten because she was actually counting.</p>
 <p>'It must be because he's young.' Natasha's lips curled into a satisfied smile as she looked down at Dante, his mouth still latched onto her tit, sucking on it like he couldn't get enough.</p>
-<p>'Youth really is something else~'</p>
+<p>'Youth really is something else'</p>
 <p>His sucking had slowed down.</p>
 <p>What started as hungry and desperate had turned into something lazy, like he was half asleep on her lap with her nipple in his mouth just because it was there.</p>
 <p>She didn't rush to stop him.</p>
@@ -64,7 +64,7 @@ chapter = 121
 <p>She tried to focus on just the titjob and keep squeezing. That's all she had to do.</p>
 <p>She lasted about thirty seconds before her right hand let go of her breast and went straight between her thighs. Her fingers shoved the shorts aside and found her drenched slit.</p>
 <p>Two fingers slid in without any resistance and the moan that came out of her was so filthy it surprised even her.</p>
-<p>"Ngh~ ah~" She was on her knees fingering herself while her student's cock pumped between her chest.</p>
+<p>"Ngh ah" She was on her knees fingering herself while her student's cock pumped between her chest.</p>
 <p>Her left hand was doing all the work now, one soft mound pressed against his cock while the other just bounced around on its own, smacking against his shaft as he thrust up from below.</p>
 <p>It was a complete mess but neither of them cared anymore.</p>
 <p>'There goes her last bit of self-control.' Dante saw her hand disappear between her thighs without a shred of hesitation. Her fingers were already knuckle deep and the wet squelching from down there was competing with the sounds coming from her chest.</p>
@@ -88,5 +88,5 @@ chapter = 121
 <p>He was staring at her with a mix of surprise and shock in his eyes, like he was seeing a side of his master he didn't know existed.</p>
 <p>That was all it took.</p>
 <p>Her pussy clenched hard around her own fingers and a hot gush of liquid sprayed out of her, soaking past her fingers and drenching her shorts and the sheets underneath.</p>
-<p>'Hngh~ I'm sorry Dante... your master turned out to be such a shameless woman.</p>
+<p>'Hngh I'm sorry Dante... your master turned out to be such a shameless woman.</p>
 <p>Share to your friends</p>

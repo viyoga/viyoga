@@ -8,7 +8,7 @@ chapter = 22
 <p>I said I wouldn't let her sleep tonight, but I had to attend a written test class from tomorrow morning, so I did it one more time, hugged Hanako, and fell asleep on Hanako's bed.</p>
 <p>When I woke up, Hanako was looking at me, so I gave her a kiss and had a refreshing round of sex, then we went to the written class together.</p>
 <p>When I arrived at the classroom, Kagawa Umi and Kazuhiro were arm in arm, totally lovey-dovey. Judging by their condition, they must have gone all the way last night.</p>
-<p>"Hehe, Hyung-nim~!"</p>
+<p>"Hehe, Hyung-nim!"</p>
 <p>"Hey, I slept outside because of you."</p>
 <p>"Hahaha, sorry, sorry! But thanks to Hyung-nim, I'm dating Umi-chan."</p>
 <p>Hmm, is he trying to two-time the girl he showed me a picture of a few days ago? Well, I don't need to interfere in other people's love lives.</p>
@@ -23,12 +23,12 @@ chapter = 22
 <p>"Hehe, maybe?"</p>
 <p>"Ah, really! I told you. Did you do it? You did, you did. Or not? Ah, I don't know."</p>
 <p>I didn't tell him to make Kazuhiro curious, and I finished brushing my teeth and went to the skills class. Kazuhiro kept bothering me, saying, "Did you do it? You did. Or not?" so I slapped the back of his head once with my palm.</p>
-<p>"Ow~! Shut up."</p>
+<p>"Ow! Shut up."</p>
 <p>"That hurts, Hyung-nim! But where did you sleep yesterday?"</p>
 <p>"I slept in Hanako-san's room."</p>
-<p>When I said that with a wink, Kazuhiro, who was rubbing the back of his head because it hurt, smiled brightly and said, "You did it~!" and asked me for a high five, so I gave him a high five.</p>
+<p>When I said that with a wink, Kazuhiro, who was rubbing the back of his head because it hurt, smiled brightly and said, "You did it!" and asked me for a high five, so I gave him a high five.</p>
 <p>Clap!</p>
-<p>"Yeah~! Even if I don't get my driver's license this time, I'm getting something out of it. If I do it twice a day for five days, that's ten times, I'll make back all the money I spend on prostitutes, right?"</p>
+<p>"Yeah! Even if I don't get my driver's license this time, I'm getting something out of it. If I do it twice a day for five days, that's ten times, I'll make back all the money I spend on prostitutes, right?"</p>
 <p>"Don't think about weird things and start thinking about passing your driver's license."</p>
 <p>I said as I got into the car where Matoi Honami was waiting.</p>
 <p>###</p>
@@ -50,12 +50,12 @@ chapter = 22
 <p>The instructor dropped her off like yesterday and drove to the starting point himself. Gokado Hanako swallowed hard and headed to the secluded spot behind the building where Taira Ryuta and the female instructor had sex yesterday. And like yesterday, she began to peep at Taira Ryuta and the female instructor's car sex.</p>
 <p>"....Hngh....!"</p>
 <p>Unlike yesterday, she could hear the woman's moaning sounds, probably because the window was open. Today, they were facing each other and the woman was on top, and Gokado Hanako felt two emotions as she watched the female instructor's movements, which were moving up and down very lewdly. Jealousy and excitement coexisted.</p>
-<p>"Ah, I like this! It's so deep~!"</p>
+<p>"Ah, I like this! It's so deep!"</p>
 <p>"Do you like it that much?"</p>
 <p>"Yeah, much more than my husband! Haaah!! I like it so much, put it in more!"</p>
 <p>Is someone with a husband doing this? Gokado Hanako was shocked by the instructor's words, but she felt a sense of relief. She felt a strange sense of relief and superiority that the woman had betrayed her husband, but she was better than that. And she strongly wanted to take the dick that was piercing the female instructor's vulgar pussy and put it in her own precious hole.</p>
 <p>"Ugh...! I think I'm going to cum."</p>
-<p>"Inside, cum inside~!! I love the warm feeling so much."</p>
+<p>"Inside, cum inside!! I love the warm feeling so much."</p>
 <p>Taira Ryuta's semen was definitely warm, to the point where it felt slightly hot. When she had sex with Honjo Tokiatsu, she only twitched even when he said he was going to cum, and she didn't really feel the semen, but when something warm filled her inside, she felt so good that she automatically reached orgasm.</p>
 <p>'Ah, was yesterday a good day...?'</p>
 <p>Gokado Hanako folded her fingers and calculated her period date. It was a relief. It was a good day during the boot camp.</p>
@@ -73,13 +73,13 @@ chapter = 22
 <p>Since it was dinner time after the skills class, there was no touch at the academy after that, so the four of them decided to eat out instead of eating at the academy. They had already made a reservation to prevent wasting time wondering where to eat.</p>
 <p>I had used too much protein yesterday and today, so I decided to eat meat to replenish my protein. So I went to a yakiniku restaurant. Everyone said okay when I said I would pay and followed me.</p>
 <p>"Five servings of ribs, two servings of beef tongue, two servings of loin, four bowls of rice, one sundubu jjigae, please. Ah! And one green grape Chamisul, please."</p>
-<p>"Yes~!"</p>
+<p>"Yes!"</p>
 <p>The yakiniku restaurant had a lot of Korean side dishes, so I ordered sundubu jjigae and saw green grape Chamisul on the menu, so I ordered one.</p>
 <p>"Order more if you want to eat something else."</p>
 <p>"I'm going to eat a lot of meat for the first time in a while? It feels like it's been a long time since I came to a yakiniku restaurant with Hyung-nim."</p>
-<p>When we were in school, Kazuhiro and I didn't have much money, so we often went to all-you-can-eat restaurants. Kazuhiro had a nostalgic look in his eyes as if he was filled with memories, then he said, "Ah~!" and opened his mouth with a slightly apologetic expression towards me.</p>
+<p>When we were in school, Kazuhiro and I didn't have much money, so we often went to all-you-can-eat restaurants. Kazuhiro had a nostalgic look in his eyes as if he was filled with memories, then he said, "Ah!" and opened his mouth with a slightly apologetic expression towards me.</p>
 <p>"Hyung-nim, I'm sorry, but can you switch rooms with Umi-chan?"</p>
 <p>As expected, a womanizer. He means he wants to have sex every day during the boot camp. I glanced at Kagawa Umi, who was blushing slightly, and nodded.</p>
 <p>"Okay. This Hyung-nim has to support your love life."</p>
-<p>"Kya~! Hyung-nim is the best!"</p>
+<p>"Kya! Hyung-nim is the best!"</p>
 <p>It's more comfortable for me to be right next to Hanako's room anyway. Judging by the serious expression on her face as she talked on the phone outside the restaurant, it seemed like she would easily give in again today. I have to completely make her my onahole for the remaining four days. I have to widen Hanako's tight pussy to my size so that she won't feel anything even if her boyfriend puts his dick in it.</p>

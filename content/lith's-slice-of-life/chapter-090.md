@@ -61,7 +61,7 @@ Lith gave Lucy’s ass hard spanks as he knew she liked it while they had anal s
 
 *SPRRUTTT*
 
-“Ahhhhhh~”
+“Ahhhhhh”
 
 “Ugh..”
 

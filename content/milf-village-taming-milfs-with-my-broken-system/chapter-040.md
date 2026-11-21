@@ -51,7 +51,7 @@ chapter = 40
 
 <p>The couple had simply been enjoying a morning stroll and decided to tidy up the shoreline on a whim...it’s not bad from time to time.</p>
 
-<p>&quot;Follow us, Wen~&quot; Pamela murmured, gently tugging at his arm as if dropping a subtle hint for something more.</p>
+<p>&quot;Follow us, Wen&quot; Pamela murmured, gently tugging at his arm as if dropping a subtle hint for something more.</p>
 
 <p>Ding!</p>
 
@@ -69,7 +69,7 @@ chapter = 40
 
 <p>’I have no idea what this system is plotting, but this penalty is just as ridiculous as the last one. It’s truly a mocking, playful system that loves to tease me. His system is just unique...even to the whole universe.</p>
 
-<p>&quot;Fortunately, you didn’t even need to give me a quest for this~’ Owen mused, trailing closely behind the pair.</p>
+<p>&quot;Fortunately, you didn’t even need to give me a quest for this’ Owen mused, trailing closely behind the pair.</p>
 
 <p>His gaze locked onto the sway of Pamela’s generous ass beneath her heavy overalls.</p>
 

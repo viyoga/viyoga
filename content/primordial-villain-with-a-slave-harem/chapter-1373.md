@@ -7,7 +7,7 @@ chapter = 1373
 
 <p>Ayame smirked at her. "Because you stopped before finishing the sentence." She turned slowly as her horrible grin deepened across her face and her eyes locked onto Iris. It was sharp. Deliberate. Infuratingly so. "So, dearest Iris. Explain the logistics of your waste management skills to me."</p>
 <p>Iris's temperature dropped instantly. Her spine straightened. The air around her felt thinner. "I will kill you."</p>
-<p>"Oh~" Ayame giggled softly, utterly unfazed. "Terrifying~"</p>
+<p>"Oh" Ayame giggled softly, utterly unfazed. "Terrifying"</p>
 <p>Ria sputtered, trying to interject, when Iris snapped back, voice flat and venomous. "Shut your trap, you damned midget. Are we certain you're truly Miss Black Fang's and Kaede's sister? I wouldn't be shocked to learn that you're Thorga's long-lost sibling instead. You were probably also dropped on your head as a baby, by the way."</p>
 <p>Then, just for good measure, the raven-haired, slightly unhinged woman with a foul mouth - at least when it came to interacting with the world's most annoying woman - spat, "You dumb slut."</p>
 <p>The elves stationed along the hill, who were acutely listening in, making use of their station to glean some information about this truly strange group, froze.</p>

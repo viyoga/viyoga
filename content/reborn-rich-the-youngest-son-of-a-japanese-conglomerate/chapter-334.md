@@ -10,7 +10,7 @@ chapter = 334
 <p>After returning home, I talked to Eve about Saionji Diana's surgery. Fortunately, the cyber implant transplant surgery went well, and even more fortunately, it was compatible with superpowers even after being lightened and changed to a custom model.</p>
 <p>Eve saw that and became quite interested in the combination of superpowers and cyber implants, so she offered Saionji Diana-ssi a part-time job, and Saionji Diana-ssi accepted. And she even asked if it would be helpful to me, not because of the money... It seemed that the cyber implant had made a big impression on Saionji Diana-ssi. She's probably thinking of repaying my kindness.</p>
 <p>,"Okay. You'll provide AS if the cyber implant breaks down, right?"</p>
-<p>-Ei~! What do you take me for! Of course, I'll fix it up like new again!</p>
+<p>-Ei! What do you take me for! Of course, I'll fix it up like new again!</p>
 <p>Well, I guess she'll take care of it. As long as she doesn't break everything and pretend she doesn't know.</p>
 <p>,"Okay. Then I'll stop by soon."</p>
 <p>I remembered that Eve said she had something to say about business, so I said I would stop by soon.</p>

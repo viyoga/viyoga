@@ -19,7 +19,7 @@ chapter = 95
 <p>But Katerina Ford as a single unit was capable of boosting a single superhuman’s ability up to 300% of their regular power! And when you add in her innate talent to the fact that she possessed an absurdly huge pool of mana that she could constantly draw power from, it was no surprise that everyone in the world saw her as one of the Five Rulers and a woman who could decide the tide of battle all on her own if she wanted!</p>
 <p>"I have brought the Vice-captain for your seven o’clock meeting, Madam Katerina."</p>
 <p>The woman who had been leading Tobias to the meeting room bowed towards Katerina respectfully while introducing him, and Katerina smiled at the woman kindly. Katerina raised her hand towards the woman and spread her mana out in a small wave before activating her gift.</p>
-<p>"Mmh~"</p>
+<p>"Mmh"</p>
 <p>The woman groaned excitedly, and she could barely contain the intense shiver that passed through her body as she felt Katerina’s power sink into her body and increase her strength! The woman felt power course through her for a few seconds, and when her shivers finally reduced in intensity, she released a sigh and bowed even deeper in thanks.</p>
 <p>"Thank you for your kindness, my Goddess."</p>
 <p>This was something that Katerina did whenever one of her retainers did anything for her. Katerina’s abilities allowed her to boost the power of any superhuman by a significant amount, and as the leader of the BloodRaven guild, she was in charge of boosting the power of every single guild member to ensure they were capable of handling any gate that they dived into.</p>

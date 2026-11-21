@@ -121,7 +121,7 @@ Shaking his head again, Lith went for another round with Luna and after half an 
 
 Lith finally went to his wives and not even a step into the room, he heard a cute shout.
 
-"Darlinggggg!~"
+"Darlinggggg!"
 
 Alexandra jumped on Lith and hugging him tight, started kissing him everywhere on his face.
 

@@ -14,7 +14,7 @@ chapter = 856
 <p>She stayed exactly where she was after that, cheek pressed against him, nuzzling, thoroughly content.</p>
 <p>"Look at this shameless bitch," Luna said.</p>
 <p>"Very bold..." Aria mused.</p>
-<p>"My Blondie Bestie is amazing~" Nyx sang.</p>
+<p>"My Blondie Bestie is amazing" Nyx sang.</p>
 <p>Alexandra turned pink to the very tips of her ears. She did not stop nuzzling.</p>
 <p>For once, no kitten hiss came from Alice’s direction. The little sister watched the scene with her arms crossed and decreed, "Brother’s headpats are the best. Watch out, or you’ll be hopelessly addicted as well."</p>
 <p>"...I think I’m already in danger," Alexandra muttered into his chest.</p>

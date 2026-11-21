@@ -7,11 +7,11 @@ chapter = 607
 
 <p>"Seari, do you have a preferred position when we do it?"</p>
 <p>At my question, Sawayanagi Seari pondered for a moment, then clapped her hands as if something had occurred to her.</p>
-<p>"Ryuta-nim, please do it from behind~!"</p>
+<p>"Ryuta-nim, please do it from behind!"</p>
 <p>Sawayanagi Seari took a position on all fours and wiggled her butt. As expected of an Ero Elf, her butt-wiggling seductiveness was extraordinary. Though slender, she had wide hips and long legs, giving her a Western-style, well-proportioned figure, and lying on all fours accentuated her feminine lines even more.</p>
 <p>"I'll do as you wish."</p>
 <p>I grabbed Sawayanagi Seari's slender waist. Seeing her like this, it was clear she had a thin waist and wide hips, the kind of Coke bottle figure guys go crazy for. Instead of inserting my hard-on right away, I rubbed her pussy all over, almost like a smegma, stimulating Sawayanagi Seari.</p>
-<p>"Hyaaang~! Ryuta-niim, it feels so good!"</p>
+<p>"Hyaaang! Ryuta-niim, it feels so good!"</p>
 <p>Sawayanagi Seari let out a seductive moan, unabashedly expressing her pleasure.</p>
 <p>Perhaps because I rubbed her pussy, juices dripped down and covered my dick. Compared to Sawayanagi Azuma, with whom I'd just had sex, her juices felt a bit thinner.</p>
 <p>I brought my juice-soaked dick to her opening, and Sawayanagi Seari herself twisted her waist, slowly swallowing my dick into her pussy.</p>
@@ -19,7 +19,7 @@ chapter = 607
 <p>As my dick slowly entered, expanding her pussy and scraping the inside of her vagina, Sawaanagi Seari moaned and arched her back like a bow. Before I knew it, my dick reached her cervix, pressing and stimulating it, causing her vagina to twitch once more, reaching a light climax.</p>
 <p>"I'll start moving slowly."</p>
 <p>I gripped Sawayanagi Seari's thin waist and slowly pulled my dick out, then thrust it in rapidly.</p>
-<p>"Hats! Ryuta-niim~! Heueung~!"</p>
+<p>"Hats! Ryuta-niim! Heueung!"</p>
 <p>With each thrust, I watched Sawayanagi Seari's breasts move, barely concealed by her slender frame, and my excitement gradually intensified.</p>
 <p>"Hahheueung, Ryuta-niim! Heuaahang♥ Ryuta-nim's dick feels so good, haeueheung, so full...! Ung, heueut!"</p>
 <p>As I gently rubbed her cervix, stimulating the inside of Sawayanagi Seari's vagina with my dick, I suddenly felt a sensation on my anus.</p>
@@ -27,7 +27,7 @@ chapter = 607
 <p>Surprised, I turned around to see Kiyona Mari licking my anus. Her older sister, Kiyona Hori, opened her mouth while rubbing her huge breasts against my back.</p>
 <p>"If Ryuta-ssi cums quickly, our turn will come sooner, right?"</p>
 <p>Ah, it seemed they were trying to stimulate me to cum quickly so they could have sex with me next. Of course, it felt good to have Kiyona Hori rubbing her breasts against my back, but especially having Kiyona Mari, who was usually so tsundere, licking my anus was quite arousing.</p>
-<p>"Haa...! More, heueheung! Inside me, hyaeut! It's getting harder~!! Haeueheung! I love it♥"</p>
+<p>"Haa...! More, heueheung! Inside me, hyaeut! It's getting harder!! Haeueheung! I love it♥"</p>
 <p>Of course my dick would get harder with the added stimulation of two women's foreplay. Sawayanagi Seari's sensitive pussy felt the difference and moaned even more.</p>
 <p>"Heueut, I think I'm gonna cum! Ryuta-nim, Ryuta-niim♥"</p>
 <p>"Seari, hold on a little longer. We'll make sure you and Ryuta-ssi cum together."</p>
@@ -40,7 +40,7 @@ chapter = 607
 <p>"It's hot, hats! I can feel it filling me up♥, heueueung!"</p>
 <p>Thanks to the Kiyona sisters' help, I was able to inject a tremendous amount of Semen into Sawayanagi Seari. My vision turned white, and my thighs trembled with pleasure. A languid, pleasant sensation of all my strength draining away.</p>
 <p>When I pulled out my dick, I saw Semen dripping down. Unable to resist the sight of the Semen, Otagi Yuka approached and began to suck Sawayanagi Seari's pussy.</p>
-<p>"Haaaeue, andwaee~! My baby batter, heueung, don't take it away~!"</p>
+<p>"Haaaeue, andwaee! My baby batter, heueung, don't take it away!"</p>
 <p>Sawayanagi Seari whined, but Otagi Yuka had already sucked up all the Semen and licked her lips with her bright red tongue. Then, she winked at me.</p>
 <p>Feeling slightly drained, I lay down, and as expected, Sawayanagi Seari was carried away by the others who had been watching the sex.</p>
 <p>Kiyona Mari, who had been licking my anus, went out for a moment to brush her teeth, and Kiyona Hori approached me, spread her large breasts, placed my shrunken dick between them, and began to handjob me.</p>
@@ -65,7 +65,7 @@ chapter = 607
 <p>"We learned from the Sunbae(?). We realized that stimulating the teacher is faster than waiting for our turn."</p>
 <p>It seemed they were doing exactly what Kiyona Hori and Kiyona Mari had just done. Konoe Akina looked at me with heart-filled eyes and sucked on my nipples, while Saionji Diana, Sakagami Rena, and Otagi Yuka each took charge of a part and gave me foreplay.</p>
 <p>Naturally, my cumming was hastened by the added stimulation. Feeling my dick getting hotter and harder, the two of them looked excited but also disappointed as they opened their mouths.</p>
-<p>"No way...! I want to do it more. Heueut, not just rubbing, inside, haheung♥ put it inside~♥"</p>
+<p>"No way...! I want to do it more. Heueut, not just rubbing, inside, haheung♥ put it inside♥"</p>
 <p>"Hats, there are two of us, hats! So naturally, there will be two shots, right? Ung heueut...!"</p>
 <p>I pulled my dick out from between the pussy sandwich and inserted it into Kiyona Hori's pussy below. Since she had made me feel good with a handjob, I was planning to give her the gift of an orgasm before her younger sister.</p>
 <p>Peoeok! Peoeok! Peoeok!</p>

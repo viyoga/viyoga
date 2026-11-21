@@ -60,7 +60,7 @@ chapter = 563
 <p>At Shimokawabe Airen's words, Naruse Shiyo used her excellent physical abilities to swing the wooden stick. With a threatening whoong! sound, the wooden stick was swung, but the opponent easily dodged it and struck her shoulder with a sword. Naruse Shiyo jumped up and dodged the sword.</p>
 <p>But since she couldn't move her body easily while in the air, she was hit by the opponent's second attack.</p>
 <p>,Ouch...!</p>
-<p>Even if it was a wooden sword, it still hurt. Naruse Shiyo glared at her opponent with slightly teary eyes, and then used a thrust this time. Perhaps because of her tremendous strength and agility physical stats, Naruse Shiyo's wooden stick was fired with a paang~! sound of air bursting.</p>
+<p>Even if it was a wooden sword, it still hurt. Naruse Shiyo glared at her opponent with slightly teary eyes, and then used a thrust this time. Perhaps because of her tremendous strength and agility physical stats, Naruse Shiyo's wooden stick was fired with a paang! sound of air bursting.</p>
 <p>But what good is it if the attack is fast? Naruse Shiyo's preparation movements were too big, so the opponent was able to see through them all.</p>
 <p>In the end, Naruse Shiyo was thoroughly beaten by the second-year club president, and the sparring session ended. Of course, thanks to her Dragon Blood Regeneration trait, she didn't seem to feel any pain, but she kept huffing and puffing because she was upset about being beaten by a junior, and soon she became depressed.</p>
 <p>,I'm too weak to help you, sensei.... I was going to get rid of everyone who was bothering you....</p>

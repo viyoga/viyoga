@@ -1,5 +1,5 @@
 +++
-title = "Chapter 525: Brother-In-Law~~ So Embarrassing~~"
+title = "Chapter 525: Brother-In-Law So Embarrassing"
 weight = 525
 [extra]
 chapter = 525
@@ -19,7 +19,7 @@ chapter = 525
 
 <p>However, her slender arms were hardly enough to hide those enormous mounds. Although they certainly couldn&#x27;t compare to her mother-in-law&#x27;s in sheer size, such full, firm breasts on her petite, youthful frame created an incredibly powerful visual impact.</p>
 
-<p>&quot;Be good, let your brother-in-law kiss you properly~&quot;</p>
+<p>&quot;Be good, let your brother-in-law kiss you properly&quot;</p>
 
 <p>Luis kissed her arms, gazing at his shame-faced, flustered sister-in-law. Her face still held the rosy flush of alcohol, and the more he looked, the more aroused he became.</p>
 
@@ -39,7 +39,7 @@ chapter = 525
 
 <p>&quot;Brother-in-law... don&#x27;t suck, it&#x27;s not like I have any milk.&quot;</p>
 
-<p>&quot;It smells so good~ Le&#x27;er&#x27;s tits are so delicious to eat.&quot;</p>
+<p>&quot;It smells so good Le&#x27;er&#x27;s tits are so delicious to eat.&quot;</p>
 
 <p>His sister-in-law naturally had that sweet, babyish voice; usually, just seeing her pout or act cute was enough to get Luis hard.</p>
 
@@ -83,7 +83,7 @@ chapter = 525
 
 <p>Leah peeked at him, too ashamed to even utter a word about her brother-in-law&#x27;s actions.</p>
 
-<p>&quot;Be good, Le&#x27;er, let your brother-in-law have a good look at you~&quot;</p>
+<p>&quot;Be good, Le&#x27;er, let your brother-in-law have a good look at you&quot;</p>
 
 <p>&quot;No... don&#x27;t look, brother-in-law...&quot;</p>
 
@@ -99,7 +99,7 @@ chapter = 525
 
 <p>He kissed her until she relaxed, whispering sweet nothings to soothe her tension until her body naturally loosened up. Then his kisses fell like rain upon her delicate, jade-like body.</p>
 
-<p>&quot;Brother-in-law... be gentle~&quot;</p>
+<p>&quot;Brother-in-law... be gentle&quot;</p>
 
 <p>Her full, large breasts were marked with hickeys—little red dots, a childish thing, marks of conquest and a strange kind of romance a young girl might like.</p>
 

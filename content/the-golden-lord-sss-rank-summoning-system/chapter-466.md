@@ -18,7 +18,7 @@ chapter = 466
 <p>Vampires—especially purebloods and nobles—withstood the passage of time far better than ordinary humans. Their minds would remain untouched even if they spent fifty, perhaps a hundred years training inside the portal.</p>
 <p>It would be expensive. But Ethan was confident that, in a few months, he would have a unit trained to the level of a force with decades of experience in its specialty.</p>
 <p>When he finished explaining what he expected from the Night Corps, Carmilla’s eyes sparkled, and a giggle escaped her lips.</p>
-<p>“Hm~~… Oh, I know precisely who would be suited to lead such a force!” she said, her voice bright with excitement.</p>
+<p>“Hm… Oh, I know precisely who would be suited to lead such a force!” she said, her voice bright with excitement.</p>
 <p>“I have four great houses of ancient vampires in my service… There were twelve once, but I have already seen to the extermination of eight of them. Traitors, every last one.” She shrugged, as if speaking of the weather.</p>
 <p>“Among the most loyal is the Nightwing family. None surpass them in shadow magic, and their heir is rather young and positively brimming with ambition. Ambitions which, naturally, can hardly be realized in a decrepit empire crumbling to pieces.”</p>
 <p>She downed the entire glass of wine in a single gulp, and a slight shiver ran through her body, from her shoulders down to her fingertips.</p>

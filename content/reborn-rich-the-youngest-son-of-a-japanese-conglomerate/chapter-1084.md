@@ -70,5 +70,5 @@ chapter = 1084
 <p>Goishihara Shoji asked directly when I didn't show any particular Reaction to the storm metaphor. It certainly feels similar to the information Grandmother gave me.</p>
 <p>He was said to be a very direct and even rough man, like Taira Saburo's sword, but I thought it was unexpected that he subtly revealed that he wouldn't go under me while using the storm metaphor, but perhaps he didn't speak directly because I was the son of his Liege/Master.</p>
 <p>In the end, when I didn't show any Reaction, he seemed a bit frustrated and directly asked me my intentions. I smiled at that Question and opened my mouth.</p>
-<p>Camila Outdoor Play walk requested by chea yun-nim~!</p>
+<p>Camila Outdoor Play walk requested by chea yun-nim!</p>
 <p>The pussy kept showing, so I put panties on from the second Illustration hehe.</p>

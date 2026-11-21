@@ -9,7 +9,7 @@ chapter = 569
 <p>,Ryuta-cchi, how do we look?</p>
 <p>Seizawa Shii and Minamoto Risa seemed to have gotten their uniforms together; they were both wearing light beige shirts with brown skirts and brown ties, which suited them quite well. They both looked a bit intimidating because they were gyaru, but that actually made it even better.</p>
 <p>"It suits you well? You both look like uniform models."</p>
-<p>"Aww~! Ryuta-cchi, aren't you just saying that to be nice?"</p>
+<p>"Aww! Ryuta-cchi, aren't you just saying that to be nice?"</p>
 <p>"No, anyone can get the clothes if they have money, but you both have good figures, so the clothes look good on you."</p>
 <p>They both have great figures, so they would look good in anything, but they looked even better in the form-fitting style of Korean school uniforms.</p>
 <p>"Pervert...."</p>
@@ -30,7 +30,7 @@ chapter = 569
 <p>Kijimoto Jurie matched the same uniform with Naruse Shiyo, who she was personally close to, and Shimokawabe Airen was wearing the same uniform as her student, Alik.</p>
 <p>Kijimoto Jurie was wearing a dark navy skirt and a summer-style top. It was a little funny to see Naruse Shiyo looking at Kijimoto Jurie in her uniform from afar and nodding with a satisfied expression.</p>
 <p>"You two look like sisters since you're wearing them together."</p>
-<p>"Ehehe...! He said we look like sisters, seonsaengnim~!"</p>
+<p>"Ehehe...! He said we look like sisters, seonsaengnim!"</p>
 <p>Satisfied with my words, Naruse Shiyo linked arms with Kijimoto Jurie and entered the amusement park.</p>
 <p>Shimokawabe Airen was wearing a beige skirt and a white shirt with a black tie, but she wasn't wearing the exact same thing as Naruse Shiyo and Kijimoto Jurie. Alik was wearing a black jacket, but Shimokawabe Airen wasn't wearing a jacket because she was a little hot. Also, Alik was wearing bare legs, while Shimokawabe Airen was wearing black stockings.</p>
 <p>,Ryuta, do Alik and Moka-sabu look pretty...?</p>
@@ -55,7 +55,7 @@ chapter = 569
 <p>Squeak.</p>
 <p>"Have a good day."</p>
 <p>The taxi stopped, and I paid the taxi fare and got out. I came to the Vanguard building in Gangnam because I was supposed to meet Han Yu-gyeong in front of Vanguard's headquarters. As soon as I got out, I saw Han Yu-gyeong, a black-haired, black-eyed beauty, waving at me.</p>
-<p>"Yong-tae-ya~!"</p>
+<p>"Yong-tae-ya!"</p>
 <p>"Yu-gyeong-a...!"</p>
 <p>We hadn't seen each other in a long time, so we hugged each other with joy. I could feel people passing by staring at us, but we didn't care and hugged each other tightly. Well, we weren't kissing or having sex in the middle of the street, just hugging, so no one could say anything.</p>
 <p>"Did you have dinner?"</p>
@@ -78,6 +78,6 @@ chapter = 569
 <p>"Is that so?"</p>
 <p>Han Yu-gyeong tilted her head slightly at my words. It was then. With a loud Kwaaang! sound, the door burst open.</p>
 <p>------------</p>
-<p>Minamoto Risa's school uniform~!</p>
-<p>Alik's school uniform~!</p>
-<p>Home room teacher's school uniform~!</p>
+<p>Minamoto Risa's school uniform!</p>
+<p>Alik's school uniform!</p>
+<p>Home room teacher's school uniform!</p>

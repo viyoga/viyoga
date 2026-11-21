@@ -49,7 +49,7 @@ chapter = 34
 <p>Joy and excitement flashed on her face as she tried to sit up, but,</p>
 <p>*Clang*</p>
 <p>The sound of chains resonated in her ears as she remarked that her body was completely bound. From head to toe. It didn't help that the way the bounding was done was rather indecent.</p>
-<p>"[He succeeded] hehe~! Interesting. Seems like you have many things to tell me. Don't you, Camelia?"</p>
+<p>"[He succeeded] hehe! Interesting. Seems like you have many things to tell me. Don't you, Camelia?"</p>
 <p>Camelia flushed a little before understanding something,</p>
 <p>"You read my thoughts?"</p>
 <p>Sol nodded before sighing, "You know, I have found it weird. You aren't reckless and you should know that I would never let you pay such a price."</p>
@@ -82,7 +82,7 @@ chapter = 34
 <p>This was one of the reasons he trained so much before even obtaining mana. He wanted to become strong. He wanted to become reliable. He wished to bring security to all those who took care of him for as long as he could remember.</p>
 <p>But this night made him aware of how small he really was. Goddesses aside, he was just a newly awakened while all the women around him were already powerhouses in their own rights.</p>
 <p>*Sigh*</p>
-<p>"Well, raging and whining is useless. What is done, is done. But," His previously distraught smile changed into a naughty one, "bad girls need to be punished~! I hope you are ready to be spanked."</p>
+<p>"Well, raging and whining is useless. What is done, is done. But," His previously distraught smile changed into a naughty one, "bad girls need to be punished! I hope you are ready to be spanked."</p>
 <p>Camelia was briefly stunned by the sudden change in track before remembering that she was still bound in a rather indecent way with only her underwear on.</p>
 <p>She could recognize the kind of rope he used. It was entirely made out of mana.</p>
 <p>Camelia became speechless as she couldn't decide whether she should be impressed with the fact that he could already materialize and give form to his mana less than 24 hours after awakening or the fact that he used it in such a way.</p>

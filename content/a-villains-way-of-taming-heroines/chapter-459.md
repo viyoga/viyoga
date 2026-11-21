@@ -56,7 +56,7 @@ chapter = 459
 <p>"An inconsequential girl."</p>
 <p>"What does she look like?"</p>
 <p>"She pales in comparison to you, Mother."</p>
-<p>"I didn't ask you to compare her to me! Who could possibly surpass me~hm!"</p>
+<p>"I didn't ask you to compare her to me! Who could possibly surpass mehm!"</p>
 <p>Annelisa lifted her damp skirt casually and sat at the edge of the flower field by the manor entrance, her hands cupping her cheeks, surrounded by blooms. She saw right through her son's flattery:</p>
 <p>"Even such compliments won't make the dance end any sooner."</p>
 <p>"I was merely telling the truth."</p>

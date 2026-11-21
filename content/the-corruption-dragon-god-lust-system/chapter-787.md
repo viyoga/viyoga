@@ -83,7 +83,7 @@ chapter = 787
 
 <p>Xueyao and Linyue simply watched, awestruck and somewhat dazed, while their new little sister tore through the world before her, the punch devastating the forest for dozens of kilometers, rending the ground into a colossal scar, annihilating hundreds of beasts in a single instant, and making the earth tremble as if an earthquake had awakened from the depths.</p>
 
-<p>"Nyan... you’re so powerful, little sister Yunxi!" Linyue declared, her eyes sparkling with admiration. "Well... it would be nice if you left the bodies a little more intact so we could extract resources from them, but that’s okay, Nyan~" The cat girl spoke with a mischievous giggle, one hand covering her lips.</p>
+<p>"Nyan... you’re so powerful, little sister Yunxi!" Linyue declared, her eyes sparkling with admiration. "Well... it would be nice if you left the bodies a little more intact so we could extract resources from them, but that’s okay, Nyan" The cat girl spoke with a mischievous giggle, one hand covering her lips.</p>
 
 <p>Yunxi was stronger and older than her, but Linyue had become Qingyi’s wife first, so in the hierarchy, Yunxi was the little sister.</p>
 

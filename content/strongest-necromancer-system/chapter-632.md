@@ -7,9 +7,9 @@ chapter = 632
 
 <p>It was obvious that the prisoners did not know how they had gotten here, but there was still an intensity behind their eyes that showed just how dangerous they were! There were so many different types of creatures, and Jason listened as they began to mutter quietly to themselves.</p>
 <p>"Huh? Where am I? Am I free?" a tall black-skinned creature with long horns spoke with a hiss.</p>
-<p>"Growwwll~! Bring me something to eat right now!" a green short goblin with large arms and an even larger stomach.</p>
+<p>"Growwwll! Bring me something to eat right now!" a green short goblin with large arms and an even larger stomach.</p>
 <p>"Blood! I need blood! I want to make you all bleed!" a humanoid creature with blood red eyes, a bald head, and long fangs peeking from its mouth.</p>
-<p>"Yawnn~ I’ve been asleep for a long time, haven’t I? I think I need to stretch my legs for a bit." A humanoid female that was completely naked and had hair that was made from literal fire.</p>
+<p>"Yawnn I’ve been asleep for a long time, haven’t I? I think I need to stretch my legs for a bit." A humanoid female that was completely naked and had hair that was made from literal fire.</p>
 <p>"Who’s that over there. A Machina bastard. I’m going to kill him." a reptilian creature with green skin and a long tongue that slicked across the floor as he glared at Destro.</p>
 <p>"Hehehe. So I’m not the only one who was captured. You fools will regret the day you put me in a cage." A round, hairy creature that looked like an armadillo.</p>
 <p>All these creatures and even more silent ones felt their restraints breaking off, and they came down from their large cylindrical prisons and looked around with narrowed eyes as they enjoyed their first moment of freedom in centuries. There were black collars attached to their necks, and they each had on the same black and white striped outfit, as well as a number tattooed on their shoulders. The creatures that were being released at this moment were not regular monsters. They were criminals, killers, murderers, and conquerors. Each of them had once been a rampaging monster that was chased down across the Primordial Expanse just like Jason, but after being branded as a Black Enigma, they had been captured by the Machina and imprisoned as punishment for their crimes. But now, they had a chance to alter their fate.</p>

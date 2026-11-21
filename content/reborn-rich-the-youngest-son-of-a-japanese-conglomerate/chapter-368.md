@@ -5,7 +5,7 @@ weight = 368
 chapter = 368
 +++
 
-<p>"Ahaam~! I'm tired."</p>
+<p>"Ahaam! I'm tired."</p>
 <p>Tuesday and Wednesday's last classes were second foreign language classes, which for me was Korean class, so I was quite tired. It was nice that there were no classes on Wednesday because of the picnic, but picnics are for the students to enjoy, not for me, so I don't know yet whether I'll be tired or enjoy it.</p>
 <p>Anyway, I'll see them again in a few hours, and the kids aren't concentrating because of the upcoming picnic, so I finished the after-school briefing roughly and went outside.</p>
 <p>Kijimoto Jurie-ssi also opened the door of the infirmary and came out as I was leaving the classroom, and she greeted me. I doubt she was waiting for me; she probably just ran into me on her way to the bathroom.</p>
@@ -19,12 +19,12 @@ chapter = 368
 <p>For some reason, seeing her breasts pressed against her arms made me want to do yas, so I said to Kijimoto Jurie-ssi. Kijimoto Jurie-ssi, hearing my words, blushed deeply and lowered her head.</p>
 <p>"...Okay♥"</p>
 <p>She's not refusing after all. She was quite active the first time too, so this woman might have a pretty strong desire.</p>
-<p>"Ryuta-cchi, what are you talking about~?"</p>
+<p>"Ryuta-cchi, what are you talking about?"</p>
 <p>When the atmosphere became strange, Seizawa Shii came out with her bag and asked me.</p>
 <p>"Oh, I was asking the infirmary teacher if she got the message about the picnic."</p>
-<p>"Really? Ei~ would we forget something like that? Jurie-chan is practically our assistant homeroom teacher~!"</p>
+<p>"Really? Ei would we forget something like that? Jurie-chan is practically our assistant homeroom teacher!"</p>
 <p>Jurie-chan, huh.... She's still giving nicknames as she pleases. When I heard about it, the previous homeroom teacher was fired for sexual assault, and Kijimoto Jurie-ssi was acting as the homeroom teacher before summer vacation started, so she must be quite close to the students.</p>
-<p>"Then see you later at the playground~."</p>
+<p>"Then see you later at the playground."</p>
 <p>"Ye, yes...!"</p>
 <p>I couldn't exactly say to Kijimoto Jurie-ssi in front of Seizawa Shii that I'd give her a good pounding if she came to my room, so I gave her an appropriate greeting and returned to the teacher's office.</p>
 <p>As planned, the classes going on a picnic tomorrow would be doing club activities, but our class, which was leaving today, didn't have club activities. Everyone had to go home first, pack their bags, change their clothes, and then gather. So I didn't need to go up to the second floor. I could just pack my bag and leave.</p>
@@ -66,7 +66,7 @@ chapter = 368
 <p>"It takes about three hours by car, but it won't even take an hour by helicopter."</p>
 <p>"Will we arrive around dinner time?"</p>
 <p>We left on the helicopter while it was still bright and arrived at the landing site in Shimoda City when the sky was starting to turn red. We got off the helicopter and walked to the port for a while.</p>
-<p>"Wow~!"</p>
+<p>"Wow!"</p>
 <p>Of course, Minamoto Risa wouldn't have lied, but it was natural to be surprised because there was really a cruise ship docked there. The docked cruise ship was a luxury cruise ship with a capacity of 100 guests, so it wasn't a large cruise for a large number of people, but it looked quite luxurious.</p>
 <p>It was a suitable size cruise for a small number of VIPs, and it was huge for the fourteen of us, including our 3rd grade special class and Kijimoto Jurie.</p>
 <p>"Thank you for visiting our luxury cruise Marine Star! Please give your luggage to the staff."</p>
@@ -77,8 +77,8 @@ chapter = 368
 <p>I just left my luggage in the room and headed to the banquet hall, guided by the staff. The banquet hall had tables around a circular stage. It's really like a dinner show layout. The only difference was that there was a window made of glass on the wall, so you could see the sea.</p>
 <p>When I sat down, the students who came soon after sat down at their respective seats. The tables were for about 4 people, but there were no chairs on the stage side, so 3 people were sitting at each table. It seemed like they had arranged the seats with some sense.</p>
 <p>The seating arrangement consisted of two seats for the teachers and four tables with three students at each. When we sat down, the Monopoly uncle who had greeted us earlier went on stage.</p>
-<p>"Alright~! Everyone's here! Marine Star, let's set sail~!"</p>
-<p>Bbuuu~!</p>
+<p>"Alright! Everyone's here! Marine Star, let's set sail!"</p>
+<p>Bbuuu!</p>
 <p>The cruise slowly departed as the ship's horn sounded. It was the beginning of the picnic.</p>
 <p>----</p>
 <p>Kujo Kina</p>

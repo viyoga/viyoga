@@ -31,20 +31,20 @@ chapter = 2002
 <p>"Come here." Sera caught her around the waist before she could pass her chair, turned her, and drew her onto her lap.</p>
 <p>"Ehh?!"</p>
 <p>Void found herself facing the table with her back against Seraphiel’s chest. An arm rested snugly around her waist while the elf raised her free hand toward the approaching tanker.</p>
-<p>"Sorry~ Void is under my protection now."</p>
+<p>"Sorry Void is under my protection now."</p>
 <p>Bronnya stopped with her hands still outstretched.</p>
 <p>For a moment, she stared at the two of them. Then she threw her head back and burst into laughter.</p>
 <p>"Bahahahaha! Alright, alright! She’s all yours!"</p>
 <p>As Bronnya retreated laughing to her own chair, Scar resumed her seat beside Sera. Void watched those enormous hands withdraw, then turned her bewildered face toward the beautiful elf holding her.</p>
 <p>"Ehhh...?"</p>
 <p>Sera smiled down at her.</p>
-<p>"I’m no Serika, but I did learn from her. I could rub those shoulders for you, if you’ll have me~"</p>
+<p>"I’m no Serika, but I did learn from her. I could rub those shoulders for you, if you’ll have me"</p>
 <p>Jallen sighed from across the table.</p>
 <p>"She’s being pampered again."</p>
 <p>Void’s eyes lit up.</p>
 <p>"Yes!! Please!!"</p>
 <p>Sera barely had time to loosen her embrace before the mage tugged her robe down off her shoulders. Still seated on the elf’s lap, Void leaned forward to offer her bare neck, all trace of hesitation gone.</p>
-<p>"Hehe~ You’re ready, then?"</p>
+<p>"Hehe You’re ready, then?"</p>
 <p>"Very."</p>
 <p>Giggling, Seraphiel placed her hands on the exposed shoulders and began to knead. Her thumbs worked outward from the base of Void’s neck, easing into the muscle with firm, careful pressure.</p>
 <p>"Ohh..."</p>
@@ -53,7 +53,7 @@ chapter = 2002
 <p>"Mm... Yes..."</p>
 <p>Sera let her rest back against her, adjusting her hands to keep working along the sides of her neck. A small, helplessly pleased sound escaped Void when the elf’s fingers found a particularly tender spot.</p>
 <p>"Mmm... Please keep doing that..."</p>
-<p>"Gladly~"</p>
+<p>"Gladly"</p>
 <p>Sera loved how readily the woman relaxed against her. She’d only offered a massage, and now Void was trusting her with every bit of her weight, making those sweet little sounds whenever her fingers found the right place.</p>
 <p>Behind Quinlan, Serika caught Sera’s delighted glance and grinned back at her. "I thought you only took my lessons to further seduce Quin. Consider me pleasantly surprised." Her own hands kept moving, and he settled more comfortably beneath them while Bronnya wiped at her eyes.</p>
 <p>"I did only take those lessons for that exact reason," the blonde beauty smirked. "But I might as well use it on my weary friend, right?"</p>

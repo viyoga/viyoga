@@ -25,7 +25,7 @@ chapter = 214
 
 <p>As he imagined, her level of corruption was already high enough for him to make a move.</p>
 
-<p>“Y-you s-shameless junior, how dare you?- nghnnn~~” Biyue’s words were interrupted by a lustful moan as Qingyi’s hands went up to her boobs.</p>
+<p>“Y-you s-shameless junior, how dare you?- nghnnn” Biyue’s words were interrupted by a lustful moan as Qingyi’s hands went up to her boobs.</p>
 
 <p>Her voluptuous body lost its strength, her Qi stopped responding and she sank into his arms.</p>
 
@@ -33,7 +33,7 @@ chapter = 214
 
 <p>A shiver ran down Biyue’s spine and her already flushed face fell completely apart.</p>
 
-<p>“You’re a pleasure demon, you won’t- nghnn~~ get away with it… I will-” Qingyi didn’t let Biyue finish those words as he pulled her dress down, her huge breasts bursting out of her cleavage.</p>
+<p>“You’re a pleasure demon, you won’t- nghnn get away with it… I will-” Qingyi didn’t let Biyue finish those words as he pulled her dress down, her huge breasts bursting out of her cleavage.</p>
 
 <p>“Senior, you’re so beautiful…” He whispered in her ear, feeling her arch her back and press her plump, juicy ass against his lap, grinding herself against his cock, seeking as much contact as possible.</p>
 
@@ -79,7 +79,7 @@ chapter = 214
 
 <p>Qingyi gave her no respite, sinking even deeper into that plump pussy, feeling the softness on his tongue and the sweet nectar of her, delighting in every obscene moan as he massaged her clit.</p>
 
-<p>“S-something’s coming! Mmmhh~~” She moaned, her fingers clutching desperately at the bed sheets, her eyes wide and her rosy, full lips drenched in saliva as she cummed non-stop.</p>
+<p>“S-something’s coming! Mmmhh” She moaned, her fingers clutching desperately at the bed sheets, her eyes wide and her rosy, full lips drenched in saliva as she cummed non-stop.</p>
 
 <p>[You have partially satisfied the centuries-guarded desire of a cultivation expert far superior to yours, +150,000 lust points!]</p>
 

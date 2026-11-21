@@ -93,7 +93,7 @@ chapter = 538
 
 <p>“What is it?” the handsome young man asked, but Ruxue did not answer, only laughing as she picked Nianxue up in her arms.</p>
 
-<p>“I’m leaving, I’ll wait for you in the World of the Mind~~” With a gentle push, Ruxue disappeared, leaving Qingyi alone behind.</p>
+<p>“I’m leaving, I’ll wait for you in the World of the Mind” With a gentle push, Ruxue disappeared, leaving Qingyi alone behind.</p>
 
 <p>“Ah… I hope I don’t regret this…” Qingyi sighed.</p>
 

@@ -9,16 +9,16 @@ chapter = 34
 <p>A wet 'squelching' sound echoed through the room as Jason began moving slowly. One of Gina's hands was holding him around the shoulder, and the other one was on his lower back as she tried to match his pace with her hips.</p>
 <p>The pain had slowly changed into raw pleasure and Gina could feel an electric current pass through her body every time Jason entered her! Gina always thought that she would have to hold back her strength whenever she and Jason finally had sex, and she thanked every god out there that Jason had gotten his powers tonight!</p>
 <p>Gina didn't know if she could hold back from using her full strength with Jason penetrating her like this! She was holding onto Jason's shoulder with enough force to kill any regular man!</p>
-<p>"Hah~ Hah~ faster. Faster, Jason. Please! Ugh!!"</p>
+<p>"Hah Hah faster. Faster, Jason. Please! Ugh!!"</p>
 <p>Gina spoke up breathlessly when she couldn't take the slow pace anymore, and the look that Jason gave her at that moment actually put the fear of god into her heart! Gina knew that she had just given Jason the freedom to do exactly what he wanted!</p>
 <p>Jason reached back and grabbed one of Gina's legs so that he would have more space to move, and Gina felt all the muscles in his body tighten before he slammed into her with force!</p>
 <p>Bam! Bam! Bam! Bam! Bam! Bam! Bam!</p>
 <p>Gina cursed and held on tight as Jason suddenly began to move like a beast! Every move made her entire body shake, and he was slamming into her cervix over and over again!</p>
 <p>Gina's breaths came out in hard puffs, and she felt her head growing light and dizzy as Jason suddenly increased his pace!</p>
 <p>Bam! Bam! Bam! Bam! Bam!</p>
-<p>"Yes! Yes! Shit! I'm coming! Jason, I'm coming! Please don't stop! Don't stop~!"</p>
+<p>"Yes! Yes! Shit! I'm coming! Jason, I'm coming! Please don't stop! Don't stop!"</p>
 <p>Gina whispered into Jason's ear as she felt a flood growing from inside her body! Her toes curled and she sunk her nails into Jason's back with a scream as an orgasm suddenly slammed into her with extraordinary force!</p>
-<p>"Ughhhhhhh~!!"</p>
+<p>"Ughhhhhhh!!"</p>
 <p>Gina felt like her soul was leaving her body! She was definitely dying!</p>
 <p>Gina's entire body was shaking and there were stars at the edge of her vision as she came hard! She felt Jason still moving inside her as her orgasm only grew more intense with each thrust! Jason reached down and kissed her, and Gina realized in shock that she had been screaming all this time!</p>
 <p>Jason put his tongue into Gina's mouth and tangled it with her own as he continued to move inside her! Gina had clamped down on him like a vice once she started cumming, and Jason felt his own orgasm reaching its peak! He sped up his movements and he heard Gina scream into his mouth as another orgasm hit her!</p>
@@ -38,14 +38,14 @@ chapter = 34
 <p>Jason grabbed Gina by the waist and Gina turned around to see what he was doing. Jason had worked hard all his life and his body was well built with muscles in all the right places, so when she saw him kneeling like that behind her, Gina couldn't help but think he was some sort of Greek god!</p>
 <p>Jason aligned himself with Gina and Gina suddenly moaned as she felt Jason sliding into her! Her hand tightened against the sheet and her back arched downwards as Jason slowly put all of himself deep inside until he slapped their hips together!</p>
 <p>Slap!</p>
-<p>"Ugh~! Oh god. You're going to kill me, Jason."</p>
+<p>"Ugh! Oh god. You're going to kill me, Jason."</p>
 <p>Gina grabbed the sheet with all her strength and it began to tear at the seams as she felt Jason lean down to cover her body with his own before he started to move!</p>
 <p>Slap! Slap! Slap! Slap!</p>
 <p>Gina cried out in pleasure as she buried her face into the bed! Jason put one hand on the wall in front of him and put his other hand on Gina's lower back to make it bend inwards as he began drilling her down into the bed like a machine!</p>
 <p>Slap! Slap! Slap! Slap!</p>
 <p>"Shit! Shit! Jason! Jason! Fuck me, Jason!"</p>
 <p>Jason took in the sight of Gina's large ass slapping against his hips and her red hair scattered all over the bed as she tried to withstand the intensity of his movement, and he felt his arousal growing even further! Jason increased his speed and Gina felt her life flashing before her eyes as her toes curled!</p>
-<p>"Oh gooooooood yes~!"</p>
+<p>"Oh gooooooood yes!"</p>
 <p>Ripppp!!!</p>
 <p>The bedsheet tore into pieces as an orgasm hit Gina hard, and Gina grabbed fistfuls of her hair to try and find any form of leverage to hold onto! Her mouth opened wide and she could barely see anything through the white light in front of her!</p>
 <p>Jason was still moving with enough intensity to demolish her hips, and she was going to die if she didn't have something to hold onto!</p>

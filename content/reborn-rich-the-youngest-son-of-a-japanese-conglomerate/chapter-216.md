@@ -33,7 +33,7 @@ chapter = 216
 <p>,You probably don't know the location of the drawing room, so I'll guide you."</p>
 <p>Guided by the maid, I headed to the drawing room where everyone was waiting. The drawing room, being a room for entertaining guests, had a slightly more extravagant interior than the other rooms.</p>
 <p>On the table in the drawing room, there was a three-tiered tier tray with sweet cakes and cookies, like the ones you see in movies, TV shows, and British dramas. Black tea was in a white porcelain teapot, and there was also a small bowl filled with cream for making milk tea.</p>
-<p>,Welcome~!"</p>
+<p>,Welcome!"</p>
 <p>Nae Fitzgerald-nim, still cheerful, waved at me. Arisu and Mimata Chieri didn't seem to have arrived yet. I sat down in the chair opposite Nae Fitzgerald-nim.</p>
 <p>,Is this the first time since the funeral?"</p>
 <p>Nae Fitzgerald-nim opened her mouth as she poured me black tea. There seemed to be some meaning in the words,Is this the first time?" Because of those words, a slight suspicion arose in my mind. It was the question about Phantom Thief Francois. Phantom Thief Francois travels around the world stealing things, and it felt like the Fitzgerald mother and daughter were protecting each other's alibis. Also, when I saw Phantom Thief Francois in the secret lab, she felt quite familiar.</p>
@@ -41,11 +41,11 @@ chapter = 216
 <p>The word "maybe" was quite meaningful. The meaning of my "maybe" was that I saw someone, but I don't know if it was you. If what I thought was right, she would have shown some sign, but Nae Fitzgerald-nim showed no reaction at all. Since she showed no reaction at all, it didn't seem like it, but I'll have to check for sure later.</p>
 <p>,Since the only time I went to Japan recently was for the funeral, this must be the second time we've met."</p>
 <p>I looked at Nae Fitzgerald-nim with a calm expression and added cream to my black tea. As we smiled at each other and a strange atmosphere flowed, Arisu and Mimata Chieri entered the drawing room.</p>
-<p>,Sorry I'm late~! I was showing Chieri my room."</p>
+<p>,Sorry I'm late! I was showing Chieri my room."</p>
 <p>Arisu sat down next to me, cutely sticking out her tongue slightly. Of course, the opposite side was Mimata Chieri's seat.</p>
 <p>,What were you talking about?"</p>
 <p>,Just talking about how it's the first time we've seen each other since the funeral."</p>
-<p>,Aww, Mom~! Why bring up the funeral on a good day like this?"</p>
+<p>,Aww, Mom! Why bring up the funeral on a good day like this?"</p>
 <p>,Ryuta looks so much like Saburo that it reminded me. I'm sorry."</p>
 <p>Arisu scolded Nae Fitzgerald-nim, but Arisu had no choice but to remain silent at the Talulah-level excuse that it was because she was reminded of her dead younger brother.</p>
 <p>,When is Uncle coming back?"</p>

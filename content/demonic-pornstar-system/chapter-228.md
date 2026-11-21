@@ -19,9 +19,9 @@ chapter = 228
 <p>Kaiden, Diaz, and Vaelira converged at the center beneath a fractured crystal chandelier.</p>
 <p>Diaz spoke first. "Let’s agree to keep things simple. I take point. You follow orders. I know this place best."</p>
 <p>Vaelira raised a perfectly arched brow, lips already curling into a smirk as her mana camera buzzed behind her, recording every word for her ever-hungry viewers.</p>
-<p>"Oh my~ Big, tall, silver rogue boy wants to play general?" she cooed. "You’ve seen one small area of the dungeon, darling. Let’s not pretend you’re some dungeon messiah because you tiptoed past a few ghouls."</p>
+<p>"Oh my Big, tall, silver rogue boy wants to play general?" she cooed. "You’ve seen one small area of the dungeon, darling. Let’s not pretend you’re some dungeon messiah because you tiptoed past a few ghouls."</p>
 <p>Diaz’s eyes turned colder, but he didn’t react to the demeaning names Vaelira used on him. "I’m level 25. I’ve been on over twenty clears, while this is only the second undertaking for you newbies. This shouldn’t even be a conversation to be had."</p>
-<p>"Wow~" Vaelira gasped with a great deal of theatrical mockery. "So shiny. So accomplished. But remind me... where’s your team now? Oh, that’s right. They’re buried in your previous dungeon clear’s dirt."</p>
+<p>"Wow" Vaelira gasped with a great deal of theatrical mockery. "So shiny. So accomplished. But remind me... where’s your team now? Oh, that’s right. They’re buried in your previous dungeon clear’s dirt."</p>
 <p>Diaz’s face remained unreadable.</p>
 <p>She leaned closer with her camera angling just right to catch the glint in her eye. "You’re a rogue, Diaz. And we both know no one wants a rogue to lead. You’re a slippery man, good at vanishing when things get ugly. That’s how you survived your twenty clears, I bet. And that’s fine with me, I’m not faulting your cowardice. But don’t you dare expect me and Kaiden to hand over leadership of our precious comrades to someone who’s designed to run the moment things go sideways."</p>
 <p>Diaz opened his mouth to retort, but...</p>

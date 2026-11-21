@@ -57,7 +57,7 @@ chapter = 901
 <p>A few tenths of a second might not seem like much, but at that Level, even if Nakanoin Rina's Skill was far lower than the Anyaji Guardian's, they could fight on par. And with Muko Neika's covering fire, a Situation where they couldn't lose even if they wanted to was unfolding.</p>
 <p>Still, perhaps due to the reputation of being an Anyaji Guardian, he did his best even in a constantly losing Situation. Since there were only two Opponents, he had Hope that if he could somehow deal with these two, he could survive. Perhaps because of this, he moved his Fists and Feet even more desperately, blocking Nakanoin Rina's Jitte and trying his best not to enter Muko Neika's firing range.</p>
 <p>"You cowardly bastards!"</p>
-<p>"It doesn't seem as cowardly as kidnapping and Brainwashing children-im~!"</p>
+<p>"It doesn't seem as cowardly as kidnapping and Brainwashing children-im!"</p>
 <p>Pyut!</p>
 <p>Muko Neika fired a shot while simultaneously rebutting the Opponent's accusation of cowardice. Nakanoin Rina ducked her Upper Body perfectly, allowing the Bullet to strike the Anyaji Guardian's Body.</p>
 <p>He had deliberately placed Nakanoin Rina between Muko Neika and himself to avoid being shot, but since this had happened several times during their previous battles, the two, with excellent Breathing, were able to thrust Bullets into the Anyaji Guardian's Body.</p>
@@ -74,7 +74,7 @@ chapter = 901
 <p>1st Place!</p>
 <p>Nagumo Sian! I never expected Mama to take 1st place, but she's an overwhelming winner haha</p>
 <p>2nd Place!</p>
-<p>Lizhael-im~! I expected Liz to be in the rankings haha</p>
+<p>Lizhael-im! I expected Liz to be in the rankings haha</p>
 <p>3rd Place!</p>
 <p>3rd place is Nae Fitzgerald! I thought it was unexpected, but actually, the 3rd place cutoff was 11 votes, so one person consistently voted, and another added one vote, making her 3rd haha</p>
 <p>Joint 4th place is Minamoto Lisa and Mimata Chieri haha It's a shame, if both had just one more vote, they could have been 3rd haha</p>
@@ -87,6 +87,6 @@ chapter = 901
 <p>For 1st to 3rd place, I've uploaded Illustrations in the Fan Art section on the Novelpia main screen haha</p>
 <p>You can download them on a computer, and also on your phone by accessing through a browser instead of the App haha If you wish, you can download Illustrations of your beloved characters!</p>
 <p>I've created both horizontally long (desktop wallpaper size) and vertically long Illustrations for your convenient Usage!! Thank you to all the Readers-nim who participated in the vote! And thank you to the Readers-nim who supported me for 900 chapters, even if you didn't vote!</p>
-<p>Requested by MidNightSKY-nim: Arisu and Nae gazing at the night sky~!</p>
-<p>Arisu first~!</p>
-<p>Nae~!</p>
+<p>Requested by MidNightSKY-nim: Arisu and Nae gazing at the night sky!</p>
+<p>Arisu first!</p>
+<p>Nae!</p>

@@ -31,7 +31,7 @@ chapter = 92
 <p>Yukiko, who was eating Jua-gwa well, suddenly saw me wearing glasses and widened her eyes. I was wearing the Glasses of Ruins and looking at Yukiko's stats, so it was natural for Yukiko to be surprised.</p>
 <p>"I was going to ask if they suit me."</p>
 <p>"Hmm... It's better not to wear them. Ryuta-gun's charm is his manly appearance..."</p>
-<p>Compared to Han Yu-gyeong's comment that I looked cute~! when I wore glasses, Yukiko gave me an objective evaluation. Hmm, Yukiko likes manly things.</p>
+<p>Compared to Han Yu-gyeong's comment that I looked cute! when I wore glasses, Yukiko gave me an objective evaluation. Hmm, Yukiko likes manly things.</p>
 <p>"You definitely look younger because you ate the fruit I gave you."</p>
 <p>"Really?"</p>
 <p>At my words, she got excited like a child and got up from her seat to look in the mirror. She touched her face here and there and nodded as if satisfied.</p>
@@ -46,7 +46,7 @@ chapter = 92
 <p>Knock knock knock!</p>
 <p>"Director, how would you like breakfast?"</p>
 <p>The housekeeper knocked on the door from outside and asked. We were startled and fell apart.</p>
-<p>"I ate the fruit that Ryuta gave me, so I'm full for breakfast~!"</p>
+<p>"I ate the fruit that Ryuta gave me, so I'm full for breakfast!"</p>
 <p>"Yes, the clothes you will wear today are hung in front of the door."</p>
 <p>We heard the sound of the housekeeper's footsteps moving away. We looked at each other's faces and laughed once.</p>
 <p>"I'll get ready for work too."</p>
@@ -65,7 +65,7 @@ chapter = 92
 <p>Still, because it was a large company, we traveled by plane. If I had driven or taken the train, it would have taken quite a long time for a round trip, but because it was a plane, I was able to save quite a bit of time. As soon as I received the documents, I called a hotel near the branch. There weren't many hotels with rooms available right away for tomorrow.</p>
 <p>I called several places and was barely able to secure a room. She could have just booked it yesterday... Still, when I asked why there were no rooms even on weekdays, they said that there was a local festival, so the hotels were full. I was lucky to have found a room.</p>
 <p>Looking at the list of things to do that Suzuki Chisami gave me, I had to rent a car in addition to accommodation, so there was a lot to do.</p>
-<p>"Hello~! Am I a little late?"</p>
+<p>"Hello! Am I a little late?"</p>
 <p>After roughly finishing the business trip preparations for an hour, Shinoe Misano entered the office around 10 a.m. According to Shinoe Misano, there was a team leader-level meeting from the morning, so she went straight to the conference room instead of the office. I approached Shinoe Misano and gave her the seaweed gift.</p>
 <p>"Oh, thank you, Taira-gun. I have something to say about this business trip, so can we talk separately for a moment?"</p>
 <p>"Yes."</p>

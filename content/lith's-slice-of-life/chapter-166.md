@@ -25,7 +25,7 @@ He raised Lucy’s leg up, causing her labias to be a bit separated and giving h
 
 Lucy felt Lith’s dick slowly penetrate her pussy. She could tell he was putting it slowly so as not to hurt her, and she was comforted by the fact that he was so meticulous. However, she felt that going this slowly was a waste of time, so she lowered her hips and took Lith’s shaft into her all at once.
 
-“Mhmm~”
+“Mhmm”
 
 Lucy moaned as she felt a mix of pain and pleasure due to having it fully inside her.
 
@@ -45,7 +45,7 @@ Lilith and Lith both chuckled as they watched Lucy’s reaction. They both had a
 
 To confirm his guess further, Lith, who was fucking Lucy’s pussy from behind, spanked her ass with moderate strength.
 
-“Oomff~”
+“Oomff”
 
 Lucy released a muffled moan while her body jerked in surprise and her insides tightened up due to it, making Lith amazed by the pleasure he felt due to it tightening.
 

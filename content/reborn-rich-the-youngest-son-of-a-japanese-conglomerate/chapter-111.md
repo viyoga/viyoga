@@ -12,7 +12,7 @@ chapter = 111
 <p>But soon, the phone rang, creating a crack in that time that no one had disturbed until then. Taira Kokoro frowned and looked at her smartphone. Taira Ryuta.... Her cheeky nephew. As soon as she told him to call her Kokoro-ssi because she didn't want to hear the word aunt, he immediately called her that. Ichiro's son and Jiro's son were all very polite to her, so it was a new feeling.</p>
 <p>It had been a long time since she had been called Kokoro-ssi by a child. Usually, she heard the words president or CEO a lot.</p>
 <p>Taira Kokoro smiled slightly and answered the phone.</p>
-<p>,Oh my, nephew~. What's wrong?</p>
+<p>,Oh my, nephew. What's wrong?</p>
 <p>-I'm calling to tell you that the matter has been resolved well. However....</p>
 <p>It seemed that the Minamoto-related matter that her nephew was working on had been handled well. She lent him a little bit of power, and he succeeded right away, so he seemed quite capable. If she used him well, she might be able to use him as a long-term pawn...? But she was bothered by the word 'however' that Taira Ryuta had just said. It must mean that he called her because of that word 'however'.</p>
 <p>,However?</p>

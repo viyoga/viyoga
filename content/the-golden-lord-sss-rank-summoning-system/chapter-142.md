@@ -26,7 +26,7 @@ chapter = 142
 <p>Her other hand held a piece of paper covered in her own neat handwriting, which she was carefully reviewing.</p>
 <p>She was so absorbed in her work that she only noticed Ethan’s presence when his hands slid past her waist and scooped up beneath her huge breasts from below, lifting and squeezing them firmly.</p>
 <p>Elena shuddered, a soft sigh spilling past her lips as Ethan’s strong fingers sank deep into the plush, pillowy flesh.</p>
-<p>"What’s the matter, sweetheart? Did you lose something in my breasts? Fufufu~~"</p>
+<p>"What’s the matter, sweetheart? Did you lose something in my breasts? Fufufu"</p>
 <p>Elena let out a playful little giggle, one that cut short the instant Ethan’s lips brushed her neck in a slow kiss followed by an lick.</p>
 <p>Even she could not help the heat that rose to her cheeks, and a cute little squeal escaped her throat.</p>
 <p>"Do you have the layouts for Goldenveil’s future ready yet?" he asked, settling onto the bench and pulling Elena onto his lap.</p>

@@ -53,11 +53,11 @@ chapter = 348
 
 <p>His other hand flowed to her ass, slapping it loudly, watching the shockwaves spreading through her voluptuousness. The ripples that took over her flesh were quickly brought under control by a firm grip.</p>
 
-<p>“Nghnn~~ Nyan!” Linyue moaned, pulling back briefly, her lips connected to Qingyi’s cock by thick strands of saliva.</p>
+<p>“Nghnn Nyan!” Linyue moaned, pulling back briefly, her lips connected to Qingyi’s cock by thick strands of saliva.</p>
 
 <p>Without relenting, she sank down again, trying to swallow even more, feeling Qingyi’s cock pulsing hard inside her lips.</p>
 
-<p>“Gulk~~” She choked as the tip reached the depths of her throat and descended even further, creating an elongated bulge in her delicate neck.</p>
+<p>“Gulk” She choked as the tip reached the depths of her throat and descended even further, creating an elongated bulge in her delicate neck.</p>
 
 <p>Naturally, it was difficult to breathe with such a size inside her, but for a cultivator of her level, it didn’t really matter.</p>
 
@@ -65,7 +65,7 @@ chapter = 348
 
 <p>She pulled back just enough for the tip to almost escape her mouth, her cheeks inflating the next moment, an explosion of hot, viscous cum taking over her mouth.</p>
 
-<p>“Gulp~~ gulp~~ gulp~~ Nyan~~” Linyue swallowed Qingyi’s fat gushes of cum eagerly before pulling back, panting heavily, her pink tongue escaping her lips.</p>
+<p>“Gulp gulp gulp Nyan” Linyue swallowed Qingyi’s fat gushes of cum eagerly before pulling back, panting heavily, her pink tongue escaping her lips.</p>
 
 <p>“Good girl.” Qingyi patted her on the ass before picking her up and carrying her into the bathroom, her clothes falling to the floor.</p>
 

@@ -33,7 +33,7 @@ chapter = 75
 
 <p>&quot;Ahhnn... ahnn... ahnn... don’t twist them like that... ahnn...&quot;</p>
 
-<p>&quot;Ohh, look, Madam Robber. It’s getting soaked as you produce your sweet nectar~&quot; Owen could feel it. She wasn’t wearing a bra at all.</p>
+<p>&quot;Ohh, look, Madam Robber. It’s getting soaked as you produce your sweet nectar&quot; Owen could feel it. She wasn’t wearing a bra at all.</p>
 
 <p>The Madam Robber was so well-prepared that she had removed everything underneath her housewife blouse.</p>
 
@@ -53,7 +53,7 @@ chapter = 75
 
 <p>&quot;Slurp... slurp... d-don’t make a move. You are my hostage... slurp... slurp...&quot; Arielle was basically clinging to him like a leech, marking his neck with her bites.</p>
 
-<p>&quot;Hoh... so does that mean you will do all the work, Madam Robber~?&quot;</p>
+<p>&quot;Hoh... so does that mean you will do all the work, Madam Robber?&quot;</p>
 
 <p>&quot;Slurp... y-you just need to stay still. Slurp...&quot;</p>
 
@@ -61,7 +61,7 @@ chapter = 75
 
 <p>&quot;I-I’m not... your mom. I’m the Madam Robber, ahnnn!&quot;</p>
 
-<p>&quot;Then... why are you wearing my mom’s clothes~?&quot;</p>
+<p>&quot;Then... why are you wearing my mom’s clothes?&quot;</p>
 
 <p>Owen twisted her nipples harder, forcing her to moan out loud.</p>
 
@@ -77,13 +77,13 @@ chapter = 75
 
 <p>Owen didn’t hesitate and loosened the tie that kept her blouse from falling apart, brushing the fabric away to uncover her bare shoulders.</p>
 
-<p>&quot;If you want to savor me, Mom, oops, I mean Madam Thief, you need to work hard~&quot; Owen could see the clear fluid welling up on her erect nipples.</p>
+<p>&quot;If you want to savor me, Mom, oops, I mean Madam Thief, you need to work hard&quot; Owen could see the clear fluid welling up on her erect nipples.</p>
 
 <p>The teasing he gave her had actually caused those tasty juices to flow from the inactive volcanoes!</p>
 
 <p>&quot;Ahhnn... ahnn... I-I’m not a pervert, and I’m not your mom! Ahnn... ahnn!&quot;</p>
 
-<p>&quot;Still acting tough... then let’s see how much you can hold back, Madam Robber~&quot;</p>
+<p>&quot;Still acting tough... then let’s see how much you can hold back, Madam Robber&quot;</p>
 
 <p>Suck... suck... suck...</p>
 
@@ -99,7 +99,7 @@ chapter = 75
 
 <p>&quot;Nghnn... I-I’m so sensitive... d-don’t!&quot; Her whimpering voice only made Owen want to push her further!</p>
 
-<p>&quot;Slurp... slurp... You don’t need to distract yourself, Mom... do your own thing~&quot; Owen wanted her to work harder. She was the bold one who had initiated the attack in the first place!</p>
+<p>&quot;Slurp... slurp... You don’t need to distract yourself, Mom... do your own thing&quot; Owen wanted her to work harder. She was the bold one who had initiated the attack in the first place!</p>
 
 <p>&quot;Ahnn... ahnn...&quot; Arielle refused to lose her edge, so she made an even bolder move.</p>
 

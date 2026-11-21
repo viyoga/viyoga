@@ -38,7 +38,7 @@ chapter = 623
 <p>So that's why Minamoto Lisa Kept Taking Prince's Pictures</p>
 <p>They Say They're Selling Photo Cards with the Club Anthology WWWWWW</p>
 <p>Prince Was Wondering Why They Were Taking His Pictures, But When He Heard They Were Releasing Photo Cards, He Was Worried It Would Be a Burden for the Buyers.</p>
-<p>No~ We Have Money Even If We Don't Have Anything Else WWWWW It Was So Cute How He Was Worrying About Useless Things WW</p>
+<p>No We Have Money Even If We Don't Have Anything Else WWWWW It Was So Cute How He Was Worrying About Useless Things WW</p>
 <p>└So How Much Is the Anthology?</p>
 <p>└Not Decided Yet!</p>
 <p>└Another Attention Seeker. Are They Really Going to Sell Sensei's Photo Cards in the Club Anthology WWWW But It Would Be Nice If They Really Did.</p>
@@ -46,7 +46,7 @@ chapter = 623
 <p>└We Should Make It Sell Out in an Hour So He Doesn't Have to Worry.</p>
 <p>└We Have Money to Burn, So We Could Buy 100 Club Anthologies WW</p>
 <p>└Roughly a Picture of the Japanese Prime Minister Giving a Thumbs Up.</p>
-<p>└Yeah~ I'm Going to Make It Sell Out. No One Here Can Buy It~ I'm the Only One Who Will See Prince's Photo Cards.</p>
+<p>└Yeah I'm Going to Make It Sell Out. No One Here Can Buy It I'm the Only One Who Will See Prince's Photo Cards.</p>
 <p>└STFU. Minamoto Lisa Will Probably Figure Out All Our Thoughts and Print a Ton of Books.</p>
 <p>└But Sneak Peek Fan, Is the Photo Quality Good? If It's Just Random Photos, I Wouldn't Really Want to Buy It</p>
 <p>└Minamoto Lisa Took Over 6,000 Pictures with a Camera Worth Over 1 Million Yen. How Could There Not Be Good Ones?</p>
@@ -85,7 +85,7 @@ chapter = 623
 <p>└●D-Cup Miko: Yes.</p>
 <p>└●Fire Mari: Die, big boobs!</p>
 <p>└●D-Cup Miko: Huh?</p>
-<p>●Sarada Joa: If this rumor is true, I hope the festival comes soon! I'm looking forward to it~</p>
+<p>●Sarada Joa: If this rumor is true, I hope the festival comes soon! I'm looking forward to it</p>
 <p>,Photo cards.... You've had a cheeky thought, Lisa."</p>
 <p>After reading all the posts, Taira Kanna immediately figured out who had started this. The pattern of manipulating public opinion from behind the scenes and hiding herself was similar to the movements of the Minamoto Group.</p>
 <p>There isn't a company without a viral team, but the Minamoto family is known to use it the best, so Minamoto Lisa seemed to have a talent for manipulating public opinion as well.</p>

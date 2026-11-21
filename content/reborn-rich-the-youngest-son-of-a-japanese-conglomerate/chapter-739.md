@@ -12,13 +12,13 @@ chapter = 739
 <p>-Han Yu-gyeong: Dante Lee Aster? Since middle names aren't usually mentioned, Dante Aster? Hmm.... Does it suit you? Saying it out loud, it sounds pretty good?😘</p>
 <p>Han Yu-gyeong seemed to have said my American name out loud, so her reply was a bit slower than usual. But it seemed she didn't dislike the name.</p>
 <p>-Jin Yong-tae: I'm glad Yu-gyeong thinks it's okay❤️ Did you resolve the former president of Shingang Life Insurance's issue well?</p>
-<p>-Han Yu-gyeong: Yep~! I recovered all the money the former president embezzled and got some information too.</p>
+<p>-Han Yu-gyeong: Yep! I recovered all the money the former president embezzled and got some information too.</p>
 <p>From the story that she recovered the embezzled funds right away, it seemed she used violence rather than legal measures to get it back. It would take a lot of time to recover the money through legal measures after all.</p>
 <p>I decided not to ask if the former president was safe. I didn't have the hobby of ruining the mood by asking about something I already guessed.</p>
 <p>As I was chatting with Han Yu-gyeong on KakaoTalk and finishing dinner, I heard the sound of the front door opening. It was Sakagami Rena and Naruse Shiyo. Seeing two of the Seo leaders of Joseodang come, it seemed they came for information work.</p>
 <p>"Did you eat dinner? I just finished eating."</p>
 <p>"We ate too, Jugun-nim."</p>
-<p>"We solved it at a convenience store, Sensei~!"</p>
+<p>"We solved it at a convenience store, Sensei!"</p>
 <p>Even though they're young ladies from prestigious families, they're eating dinner at a convenience store... It seemed like juggling academics and information team work was a bit tough. I feel sorry for no reason.</p>
 <p>"I'm sorry."</p>
 <p>"For what?"</p>
@@ -53,7 +53,7 @@ chapter = 739
 <p>For some reason, I felt like it would be important, so I asked them to investigate the Special Task Force as well as Takakusaki Athena. Sakagami Rena nodded reliably as usual, and Naruse Shiyo resolved to be active this time.</p>
 <p>###</p>
 <p>The place that Taira Kanna reserved was a place that cooked fresh seafood, which was rare in Miyashi. After looking it up on the internet in advance, it was a place that served not only sashimi and sushi, but also clear fish soup cooked in the traditional Japanese style and neatly grilled fish.</p>
-<p>"Eat as much as you want, Oraboni. I already know that Oraboni is a big eater~♪"</p>
+<p>"Eat as much as you want, Oraboni. I already know that Oraboni is a big eater♪"</p>
 <p>Taira Kanna, who was sitting across from me, looked very happy. Did something good happen?</p>
 <p>She had her usual appearance of Taira Kanna, with her navy blue side ponytail, seemingly affectionate but slightly empty eyes when you look closely, and a smile that also seemed affectionate but somewhat doll-like, but still, something was different from usual.</p>
 <p>Somehow, she felt a bit excited? There was a feeling that I couldn't express in words.</p>
@@ -65,11 +65,11 @@ chapter = 739
 <p>The door opened quietly, and the servers brought the food. As expected of a high-end restaurant, you can hardly hear the sound of the door opening. The servers are also very quiet.</p>
 <p>I picked up the fried shrimp in front of me and took a bite. Paasak! The batter crumbled with a sound, and I felt the chewy and sweet shrimp inside.</p>
 <p>Hmm... As expected of a restaurant reserved by the Taira family's young lady, it was very delicious. I should bring the kids here next time.</p>
-<p>"Ah~! Try this too."</p>
+<p>"Ah! Try this too."</p>
 <p>Taira Kanna took a piece of octopus leg, scallop, and crab meat from the seafood hot pot all at once, placed it on a renge (a Japanese spoon), and brought it to my mouth. We're not close enough to feed each other like this.</p>
 <p>Still, seeing her treat me so well, it seemed like she cherished me because she was the younger sister of my father, Taira Saburo. It must be the feeling of taking good care of a newly born nephew.</p>
 <p>"I'll enjoy it."</p>
-<p>I opened my mouth according to Taira Kanna's "Ah~!" and ate the ingredients from the seafood hot pot. Hmm, it's delicious. The seafood with the deep broth filled my mouth.</p>
+<p>I opened my mouth according to Taira Kanna's "Ah!" and ate the ingredients from the seafood hot pot. Hmm, it's delicious. The seafood with the deep broth filled my mouth.</p>
 <p>"Oh, the hot pot is delicious too."</p>
 <p>"Hehe...! Eat a lot."</p>
 <p>Taira Kanna's lips were gradually rising, as if she was happy to see me eating well. I ate the seafood tempura, seafood hot pot, and crab gratin as Taira Kanna said.</p>
@@ -84,8 +84,8 @@ chapter = 739
 <p>Taira Kanna's voice gradually scattered in my ears, and then I lost consciousness.</p>
 <p>____________</p>
 <p>Taira Kanna B-cut!</p>
-<p>It's scary~!</p>
+<p>It's scary!</p>
 <p>Belly dancer Lisa-ttang, requested by RefundAbsolutelyImpossible-nim, as a home tutor!</p>
-<p>Lisa-ttang, who looks like a harem dancer, looks better with tanned skin~!!</p>
-<p>Home tutor belly dancer~!</p>
+<p>Lisa-ttang, who looks like a harem dancer, looks better with tanned skin!!</p>
+<p>Home tutor belly dancer!</p>
 <p>I tried to create the feeling of a home tutor with a new model ㅎㅎ Personally, I like it, but what do you think?</p>

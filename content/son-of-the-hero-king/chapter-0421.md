@@ -16,7 +16,7 @@ chapter = 421
 <p>Pandora was so surprised that she bit down in surprise. But this did not stop Sol from continuing to kiss her.</p>
 <p>‘Blood.’</p>
 <p>Pandora's first kiss tasted like blood. But her mind could not focus on this.</p>
-<p>‘Ah~!’</p>
+<p>‘Ah!’</p>
 <p>She shivered as she felt her body heating up considerably. Succubi were higher ranked than Vampires. Any body fluid could be used to absorb the life force they needed. But blood and semen were without a doubt the greatest source.</p>
 <p>She had sucked the blood of her enemies sometimes since it was the best way for her to become stronger without requiring more sexual means but she had never in her life tasted something so heavenly.</p>
 <p>Only a few drops of blood were gulped down before the wound closed but it felt like she had absorbed more energy than she would have after sucking the blood of more than ten Duke ranks.</p>
@@ -61,7 +61,7 @@ chapter = 421
 <p>Confused by the unknown sensation, she tried to escape again, but he only continued teasing her breasts and slowly moving those three fingers to gently rub her labia.</p>
 <p>“Heh, I will. So now, cum for me please.”</p>
 <p>He bit her earlobe and pinched her nipple and clitoris simultaneously.</p>
-<p>“Nn~! Ahh~!!”</p>
+<p>“Nn! Ahh!!”</p>
 <p>Pandora gasped her screamed her orgasm out. She forced herself to bite her lip as her entire body trembled and sweat soaked the curve of her spine. But there was nothing she could do to stop that pleasure that was clouding her mind.</p>
 <p>“Well. I guess I won the first round, dear succubus queen.”</p>
 <p>Pandora shuddered slightly as she began to wonder who was supposed to be the sex demon exactly in this room.</p>

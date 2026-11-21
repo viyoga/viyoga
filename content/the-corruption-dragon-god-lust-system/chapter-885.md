@@ -87,7 +87,7 @@ chapter = 885
 
 <p>The neckline of her dress gaped wider with the sudden lurch, and her arms shot forward just in time to catch him, offering her massive tits as the perfect cushion for his fall.</p>
 
-<p>"Nghnn~" she moaned softly, feeling Qingyi’s face sink between her enormous pale mountains.</p>
+<p>"Nghnn" she moaned softly, feeling Qingyi’s face sink between her enormous pale mountains.</p>
 
 <p>The soft flesh parted around him, molding to the contours of his face swallowing his features in a warm, milky embrace.</p>
 

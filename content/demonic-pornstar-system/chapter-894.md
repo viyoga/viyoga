@@ -47,7 +47,7 @@ chapter = 894
 <p>Kaiden smirked, far too proud of his space babe’s display.</p>
 <p>The examiner caught his expression and visibly had to resist saying something she’d regret.</p>
 <p>"Miss... Cosmos," she said instead, voice carefully controlled. "Thank you for your cooperation. We’ll need to... convene to determine the appropriate classification for your reading. I apologize for the lack of immediate clarity."</p>
-<p>"Take your time~" Nyx smiled brightly, all sweetness, and turned away from the pedestal.</p>
+<p>"Take your time" Nyx smiled brightly, all sweetness, and turned away from the pedestal.</p>
 <p>She walked to Luna and leaned down until her lips were beside the shorter girl’s ear.</p>
 <p>"If you get a worse reading than me, I’ll-"</p>
 <p>Nyx wasn’t permitted to finish her ominous whisper. "That," Luna hissed, "will never happen."</p>

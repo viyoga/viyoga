@@ -35,7 +35,7 @@ chapter = 484
 <p>Kaiden rubbed his temples.</p>
 <p>Out of context, this scene was insane.</p>
 <p>And then...</p>
-<p>"Everyone~ Snacks are ready!"</p>
+<p>"Everyone Snacks are ready!"</p>
 <p>Alexandra burst into the room in her full abyssal maid outfit, sporting frills, black gloves, a choker, stockings, the whole cursed aesthetic she insisted on wearing to fit their new home’s theme. What made it even more curious was that she was no official maid one bit; she had no training, and wasn’t even hired as a maid... She was just their friend they wanted to help and watch heal.</p>
 <p>But as the upstanding woman that she was, Alexandra couldn’t stomach being a freeloader. She understood that they were filthy rich and housing her would cost nothing, but it was not just about cost. Her friends risked their lives day in and out, the blonde couldn’t accept sitting in their home, sipping tea and watching shows ’to heal,’ while they did all that.</p>
 <p>Furthermore... Alexandra never admitted it to anyone, nor would she ever, but she’d always wanted to wear maid uniforms ever since she was a little girl. She found them very cute. The frills were very much her style. That’s why she ordered them at first. But the more she wore them, the more she liked the actual job. It felt good to be useful, even if in this small, humble manner.</p>

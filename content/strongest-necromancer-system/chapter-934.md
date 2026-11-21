@@ -28,13 +28,13 @@ chapter = 934
 <p>....</p>
 <p>[Later that Night]</p>
 <p>After dinner and some more conversation, the entire family had finally retired to get some sleep. Thankfully, Jason had more than enough rooms in his mansion to house everybody, so there was no issue with everyone getting their own bedroom!</p>
-<p>"Uh~! Uh~! Uh~! You’re so deep."</p>
+<p>"Uh! Uh! Uh! You’re so deep."</p>
 <p>In Jason and Gina’s bedroom, the sound of Gina’s low moans echoed softly off the walls. Jason was lying on his back on the bed with one hand behind his head, and his other hand was on Gina’s waist and guiding her as she slowly rode him like a cowgirl. They were both naked, and Jason couldn’t keep his eyes from following the swaying of Gina’s breasts as she moved!</p>
 <p>Squelch! Squelch! Squelch!</p>
 <p>Gina’s mouth was slightly open in pleasure as she enjoyed the feeling of Jason sliding inside her, and Jason could feel her tightening against him every time she moved! Jason slid his hand back to grab Gina’s ass, and he squeezed it as he began to guide her to go even faster.</p>
-<p>"Baby, I’m close~ I’m close~!"</p>
+<p>"Baby, I’m close I’m close!"</p>
 <p>Gina gasped as she felt Jason hitting the right spot over and over again, and she pressed her hands against Jason’s chest as she began to move even faster! Gina felt electricity travel through her entire body as a weightless feeling spread through her brain, and in the next moment, she came hard!</p>
-<p>"Oooooohhh~!"</p>
+<p>"Oooooohhh!"</p>
 <p>Gina’s entire body shook from pleasure as her orgasm made her see stars, and Jason grunted as he felt Gina squeezing even tighter around him! Jason reached up and grabbed Gina’s breasts in his hand before he slammed up into her and came!</p>
 <p>"Ngh!"</p>
 <p>Jason let out a growl as he emptied everything into Gina, and he finally fell back to the bed a few seconds later with a satisfied smile as he looked up at Gina. Gina was breathing heavily with a cloudy look in her eyes, but she had a silly smile on her face, and Jason laughed as he reached up and cleaned the line of drool that fell from the side of her mouth. Gina finally seemed to snap back to reality when Jason did this, and she blushed before pouting when Jason laughed even more!</p>

@@ -25,7 +25,7 @@ chapter = 73
 
 <p>He didn’t give Yueli time to answer, his lips taking hers as his hands lifted the pure white dress, finally revealing her wet, virgin pussy.</p>
 
-<p>“Mmhh~~ Are you a pleasure demon?” She spoke between gasping breaths, raising her hand before dropping it on Qingyi’s chest in a weak punch.</p>
+<p>“Mmhh Are you a pleasure demon?” She spoke between gasping breaths, raising her hand before dropping it on Qingyi’s chest in a weak punch.</p>
 
 <p>“What if I am one?” Qingyi asked.</p>
 
@@ -53,7 +53,7 @@ chapter = 73
 
 <p>Thin, delicate fingers grasped his shoulders and the tightness of her legs around his hips intensified, pulling him against her and making the first inch of his cock slide into her plump, virgin pussy.</p>
 
-<p>“Ahnnn~~” she moaned, her nails sinking into Qingyi’s skin as she raised her eyes in pleasure.</p>
+<p>“Ahnnn” she moaned, her nails sinking into Qingyi’s skin as she raised her eyes in pleasure.</p>
 
 <p>“Really?” She asked.</p>
 
@@ -81,7 +81,7 @@ chapter = 73
 
 <p>His lap hit her ass with a loud smack, the thrust making her bounce on his hips. His cock came halfway out before sinking into her fat, juicy pussy again.</p>
 
-<p>“Hnngg~~ Aaaah~~” She arched her back, the pain of her broken virginity quickly being replaced by intense pleasure.</p>
+<p>“Hnngg Aaaah” She arched her back, the pain of her broken virginity quickly being replaced by intense pleasure.</p>
 
 <p>Her clothes were already soaked with sweat, her breasts glistening faintly in the rays of sunlight coming through the treetops.</p>
 

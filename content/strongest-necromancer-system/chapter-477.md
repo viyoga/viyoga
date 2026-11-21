@@ -10,21 +10,21 @@ chapter = 477
 <p>"Get on your hands and knees."</p>
 <p>Riyala’s cheeks grew hotter when she heard the order from Jason, and Riyala felt a little embarrassed when she realised what position Jason wanted to take her from! Riyala still remembered this position from the first time that they had sex, and she knew that this was the position where Jason had dominated her the most! Riyala had felt completely helpless when Jason was taking her from behind, and when Jason grabbed her hands and held them with his superior strength, Riyala almost felt like a rabbit that Jason was about to devour! Riyala didn’t even think twice before she slowly rose from the bed and turned around so that her ass was facing Jason!</p>
 <p>Jason grabbed Riyala by the waist, and he pressed his thumbs into her lower back in a way that forced Riyala to bend her back down and press her face into the bed like a cat! Riyala turned around to look at Jason with lidded eyes, and she suddenly closed her eyes and moaned as Jason sank a finger inside her slowly. Jason pumped his finger inside Riyala, and Riyala widened her legs and moved back slowly to meet his finger each time! Jason’s finger was absolutely drenched in Riyala’s juices, and each movement from Jason made a wet ’squelching’ sound that echoed through the room!</p>
-<p>"Jason~"</p>
+<p>"Jason"</p>
 <p>Riyala called out to Jason with a pleading tone, and Jason leaned down and hummed curiously.</p>
 <p>"What is it?"</p>
 <p>Jason asked this calmly, and Riyala spoke with a soft moan.</p>
 <p>"More... please."</p>
 <p>Jason’s grin widened, and he pressed his finger into a particularly sensitive spot that made Riyala groan deeply! Jason kept his finger right there and spoke with a sadistic curiosity.</p>
 <p>"More of what? You’ll have to be more specific, Riyala."</p>
-<p>"I... I want more. Not your fing—moan~ Not your finger! I want you to fuck me!"</p>
+<p>"I... I want more. Not your fing—moan Not your finger! I want you to fuck me!"</p>
 <p>Riyala’s eyes were closed tight and she felt an intense embarrassment fill her body from what she had just said! But the intense heat in her belly from Jason’s finger erased every bit of shame from her mind! Riyala desperately wanted Jason to go deeper inside her! Jason’s finger wasn’t enough! There was a part of Riyala that was itching, and Jason’s finger just couldn’t reach it! It was driving her insane!</p>
 <p>Jason’s sadistic smile only grew when he heard Riyala’s declaration, and he pulled his finger out of her! Jason put his sticky finger inside Riyala’s mouth and watched as she licked her juices off it with a desperation born from pure lust! Riyala’s hot tongue cleaned all her juices off Jason’s finger, and once she was done, Jason growled confidently!</p>
 <p>"Good girl."</p>
 <p>Riyala felt something inside her shiver from Jason’s dominant tone and there was a sense of fulfillment that she gained from being praised like this! Jason aligned himself with Riyala’s core, and Riyala’s mouth opened into a wide ’o’ as she felt Jason slowly sliding inside her! Riyala’s hands clenched around the bedsheets as she felt her entire body getting split apart, and Jason grabbed her waist with both hands before he suddenly slammed everything into her!</p>
 <p>SLAM!</p>
 <p>"UGH!!!"</p>
-<p>Rip~!</p>
+<p>Rip!</p>
 <p>Riyala’s hands suddenly ripped the sheets apart, and her back curved down even more from the force of Jason slamming into her!</p>
 <p>Slam! Slam! Slam! Slam! Slam! Slam!</p>
 <p>Jason suddenly started to move, and he watched as Riyala’s ass shook every time he thrust into her! Jason ran his hand along the scales on Riyala’s back, and he pressed her deeper into the bed as he suddenly started to slam down into her like a fucking piston!</p>

@@ -15,7 +15,7 @@ chapter = 1882
 <p>"Leave!" Lilyanna’s decree bent the air of her own dimension, and the dimension answered her, folding plane over plane to cut every road the corruption tried to take.</p>
 <p>The stain pulsed, delighted, and crawled a finger-width toward her eye.</p>
 <p>Pain drove up through her cheekbone and into her skull. At the far edges of her domain, her radiance guttered like candles in a draft. She clamped her authority down over the crawling blight and held it still by sheer will.</p>
-<p>"Such a stubborn little girl~"</p>
+<p>"Such a stubborn little girl"</p>
 <p>The pressure doubled. Molten gold light seeped up between the tiles of her innermost sanctum, and the smell of scorched offerings filled a hall that had only ever smelled of dawn.</p>
 <p>"You bleed for him on your own floor, and he has never once said thank you. Give me the boy, Little One. I would treat you both so much better..."</p>
 <p>"You will not have him!"</p>
@@ -27,7 +27,7 @@ chapter = 1882
 <p>"This is MY house!"</p>
 <p>Her dimension rang like a struck bell.</p>
 <p>The corruption tore out of the anchor, shrieking backward down its own thread, and Sel’Ashra went with it, cackling into the dark between worlds.</p>
-<p>"Kekekeke! Almost got you that time, Little One~ Almost... almost..."</p>
+<p>"Kekekeke! Almost got you that time, Little One Almost... almost..."</p>
 <p>The laughter frayed into distance and was gone.</p>
 <p>Silence settled over the domain. The planes crept back into alignment, and the scorched tiles of the sanctum paled, one by one, back to silver.</p>
 <p>Lilyanna stood in the middle of it, bent forward, heaving.</p>

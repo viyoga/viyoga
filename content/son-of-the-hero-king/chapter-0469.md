@@ -66,7 +66,7 @@ chapter = 469
 <p>"Unhand those innocent costumes you criminal!"</p>
 <p>He stopped as he saw Milia looking at him with a smile at the corner of her mouth and Medea covering her face in utter embarrassment.</p>
 <p>Sol coughed slightly before silently looking at the sky and mourned by himself…</p>
-<p>“The ways of heaven are broad and multiple. It seems like the path of non-indulgence is not the road I must take. Ahem~ Now then, about those costumes…"</p>
+<p>“The ways of heaven are broad and multiple. It seems like the path of non-indulgence is not the road I must take. Ahem Now then, about those costumes…"</p>
 <p>| Like this, a new day full of adventure began for Sol and his group.</p>
 <p>(AN: For those who forgot, Acht is the dwarf that fought Lilin and Nuwa. Neun is the wolf that raised Setsuna when she was young and stole the Divine Weapon of Lustburg after beating her. She was also Setsuna’s teacher.)</p>
 <p>(AN: I have sad news(for me mostly). WN did a new update that basically took away all the links made in non-exclusive stories. This isn’t just something like censoring but outright erasing them all. You can go to my main page on WN with Son of the Hero King and take a look. So yeah, it's a little complicated. Anyways I am trying to test something to see how the new regulation can be avoided. Let’s see if this works.</p>

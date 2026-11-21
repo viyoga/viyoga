@@ -10,7 +10,7 @@ chapter = 2032
 <p>She smiled at them.</p>
 <p>"Working hard?"</p>
 <p>"Yes, Captain."</p>
-<p>"Wonderful. Keep it up~"</p>
+<p>"Wonderful. Keep it up"</p>
 <p>Their boots continued down the paving while she lowered her arms, watching them go with a thoughtful hum.</p>
 <p>"Hmm..."</p>
 <p>She ought to be doing that too. Working. There were ships at the harbor, men awaiting their assignments, and probably someone somewhere doing something they shouldn’t.</p>
@@ -60,13 +60,13 @@ chapter = 2032
 <p>The bread-carrying woman had begun edging closer to her friend when Veshara turned back toward them.</p>
 <p>"Ladies, could you tell me which agency your sister meant?"</p>
 <p>"The one up that way, Captain. With the green sign. They’d already left to look at a place along the next street."</p>
-<p>"How helpful of you. Thank you~"</p>
+<p>"How helpful of you. Thank you"</p>
 <p>Veshara set off in the direction she’d been shown, her copper tail swinging happily behind her. After a few steps, a pleased little laugh escaped her, and she skipped over a gap in the paving with the carefree delight of a maiden on her way to meet someone special.</p>
 <p>...</p>
 <p>Quinlan waited beside the front door of the first house while their property agent tried another key.</p>
 <p>His women were discussing where they’d sit on the balcony above the entrance. Kitsara had already made her choice.</p>
 <p>"On Hubby’s lap, presumably," Vex muttered.</p>
-<p>"You know me so well~"</p>
+<p>"You know me so well"</p>
 <p>"It must have been very difficult to guess," Ayame sighed.</p>
 <p>The agent glanced back at them, caught the red glow of his helmet, and promptly returned to the lock.</p>
 <p>"My apologies. The owner keeps all the keys together."</p>

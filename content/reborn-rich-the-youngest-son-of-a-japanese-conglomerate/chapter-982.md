@@ -59,6 +59,6 @@ chapter = 982
 <p>I, too, gave a smooth greeting. I, too, received applause in my own way, and because I was sitting among the non-factional people, the people from each Successor group, who thought I wasn't their rival, applauded me well.</p>
 <p>"Let's end the Competition."</p>
 <p>As the new affiliate company Presidents' greetings ended, Taira Danjo ended the Competition as he had said in advance. As the Competition ended, I finally felt like something had begun. Before the Competition, I was just an ordinary employee of the Taira Group, but now I had become the Boss of an affiliate company.</p>
-<p>Gojoy-nim requested Taira Kisa's casual clothes and underwear~!</p>
+<p>Gojoy-nim requested Taira Kisa's casual clothes and underwear!</p>
 <p>Casual clothes</p>
-<p>Underwear~!</p>
+<p>Underwear!</p>

@@ -5,7 +5,7 @@ weight = 47
 chapter = 47
 +++
 
-<p>’Take everything my future MILF! You are hungry right?! Then don’t waste a single drop...on today onwards you are mine now Auntie Pam~’ Owen closed his eyes while raising his head</p>
+<p>’Take everything my future MILF! You are hungry right?! Then don’t waste a single drop...on today onwards you are mine now Auntie Pam’ Owen closed his eyes while raising his head</p>
 
 <p>Owen doesn’t have any better words to say to her love juices as it’s like a dam that broke and let loose!</p>
 
@@ -15,7 +15,7 @@ chapter = 47
 
 <p>He is really working hard work man, helping another MILF who is need.</p>
 
-<p>’Hoh...I think you won’t be walking up for the time being Auntie Pam~&quot; Owen mused, as he pulled his cock to the already wasted busty MILF with full of milky white cum all over her body.</p>
+<p>’Hoh...I think you won’t be walking up for the time being Auntie Pam&quot; Owen mused, as he pulled his cock to the already wasted busty MILF with full of milky white cum all over her body.</p>
 
 <p>He gently leaned her limp body against the kitchen island, leaving her spread wide legs, trembling and twitching uncontrollably from the intense shockwaves of pleasure she received.</p>
 
@@ -77,29 +77,29 @@ chapter = 47
 
 <p>As he did yesterday, Owen knocked on the door.</p>
 
-<p>&quot;Coming~!&quot; Arielle’s voice echoed...making Owen smile as her voice is really making him into a complete fool.</p>
+<p>&quot;Coming!&quot; Arielle’s voice echoed...making Owen smile as her voice is really making him into a complete fool.</p>
 
 <p>Creakk....</p>
 
 <p>&quot; Hupp!! I know it’s you my dear Wen!&quot; She jumped down to his chest, as it was her instinct to hug her son.</p>
 
-<p>&quot; It’s always my mom, heh did something happen today~&quot;</p>
+<p>&quot; It’s always my mom, heh did something happen today&quot;</p>
 
 <p>&quot;I-it’s a normal day, a beautiful one...&quot; She said with a slight flushed red in her face... clearly thinking something.</p>
 
-<p>&quot;Is that so~?&quot; Owen squinted his eyes, he could smell... something fishy.</p>
+<p>&quot;Is that so?&quot; Owen squinted his eyes, he could smell... something fishy.</p>
 
 <p>Of course not her godly fragrance.</p>
 
-<p>&quot;D-don’t look at me like that, don’t you love your mom anymore, my dear Wen~?&quot;</p>
+<p>&quot;D-don’t look at me like that, don’t you love your mom anymore, my dear Wen?&quot;</p>
 
-<p>&quot; Ohh...of course I love you, mom.. I’m thinking that I’m your adoptive son because you didn’t try to search for me this morning~!&quot; Owen simply played along, he still didn’t forget the nice spanking she had just received.</p>
+<p>&quot; Ohh...of course I love you, mom.. I’m thinking that I’m your adoptive son because you didn’t try to search for me this morning!&quot; Owen simply played along, he still didn’t forget the nice spanking she had just received.</p>
 
 <p>That was really a good spanking for the start of a graceful and bountiful day.</p>
 
 <p>Maybe it’s good luck... because he was really lucky today.</p>
 
-<p>&quot;Oh my...are you angry that I’d didn’t search for you, you are really my cute little boy~&quot; She leaned her cheek to his chest, savoring the perks of being a mother.</p>
+<p>&quot;Oh my...are you angry that I’d didn’t search for you, you are really my cute little boy&quot; She leaned her cheek to his chest, savoring the perks of being a mother.</p>
 
 <p>Just a normal afternoon of a mother and son...</p>
 

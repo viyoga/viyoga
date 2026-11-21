@@ -31,5 +31,5 @@ chapter = 178
 <p>Fenrir swiped its paw across the air and slammed it into the male feline with enough force to throw him clear across the clearing! The male feline slammed into the ground in the middle of the fog and he coughed in pain as he felt blood leaking from a large wound on his side! He quickly tried to use the shadow to escape, but he was shocked when he felt the skill fail! He tried it again and again, and each time he failed, he felt more fear creep into his bones! What in the world was going on here? Were they under attack from some demon!?</p>
 <p>’Is it one of our previous targets? They could have sent someone to take us out as revenge! But we were careful! We made sure no one could track us down to this dimension!’</p>
 <p>The male feline opened his mouth to yell for anyone who was close by, but his voice barely got past two meters in front of him before it fizzled and died out without reaching anyone! He couldn’t hear anything even with his enhanced senses and he couldn’t see anything past the fog! This wasn’t just some random attacker! This was someone who knew what they were doing! A monster who made sure they created an inescapable environment!</p>
-<p>Growl~</p>
+<p>Growl</p>
 <p>A growl came from right on top of the male feline and he turned around sharply while drawing his knife and pointing it at Fenrir!</p>

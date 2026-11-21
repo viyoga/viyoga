@@ -39,7 +39,7 @@ chapter = 467
 <p>"Is everything okay?" Bastet asked with warmth in her tone. If one wasn’t aware previously, they would’ve never been able to guess that a few hours ago, this gorgeous woman with the tenderest of smiles was busy torturing Elise, the old woman, showing utterly zero remorse on her face while she did so.</p>
 <p>Naira blinked before her tear-stained face lit up in recognition. Her eyes immediately darted to the tail and its smooth fur. Instinctively, she reached for it.</p>
 <p>But Bastet’s tail snapped out of reach in a smooth motion, out of her grasp.</p>
-<p>"Hey now~ I might’ve allowed you to touch my tail once," Bastet said with mock severity, placing a hand on her hip, "but that doesn’t mean you can reach for it whenever you feel like it, young lady. Only my lover can."</p>
+<p>"Hey now I might’ve allowed you to touch my tail once," Bastet said with mock severity, placing a hand on her hip, "but that doesn’t mean you can reach for it whenever you feel like it, young lady. Only my lover can."</p>
 <p>Her grin widened as she added, "I am not a pet kitten, but the majestic desert queen, Bastet."</p>
 <p>Despite herself, Naira let out a small laugh, which was half sob, half relief. The tension that had been crushing her chest eased a little. She wiped her cheeks, still clutching her mother’s hand as if to make sure she wouldn’t vanish.</p>
 <p>Looking around, she realized the whole camp had turned its attention to the newcomers. Even the exhausted guild members had paused for a heartbeat.</p>

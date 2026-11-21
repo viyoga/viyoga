@@ -41,7 +41,7 @@ chapter = 32
 <p>'He's huge!'</p>
 <p>Gina felt a heat pooling at the base of her stomach as Jason's musk began to drive her crazy, and just thinking about Jason entering her with something this large made her even more aroused!</p>
 <p>Gina put both hands on the base of Jason's member to make sure she didn't take in more than she could, and then he began to move!</p>
-<p>Slurp~! Slurp~!</p>
+<p>Slurp! Slurp!</p>
 <p>The sound of wet slurping filled the room as Gina put on her best performance for Jason. She was totally new to this, but that didn't mean she was innocent, so she was able to imitate the things she had seen and heard to make sure Jason enjoyed himself and she slowly moved one hand from Jason's member to his balls and slowly massage it as she tried to take even more of him!</p>
 <p>Jason grunted from above her when he felt her scratch her teeth against his member, and he told her to go slower.</p>
 <p>"You don't need to rush. Slow down."</p>

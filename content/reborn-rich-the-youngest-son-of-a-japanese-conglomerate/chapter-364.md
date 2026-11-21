@@ -46,7 +46,7 @@ chapter = 364
 <p>"Sensei...! More than that, the Iron Claw was so cool!"</p>
 <p>Maybe because she's weak, Naruse Shiyo seemed to be a pro wrestling mania. Instead of thanking me for helping, she said the Iron Claw was cool.... If you look closely, she's not normal either.</p>
 <p>"Thank you. It was a little cool, Sensei."</p>
-<p>"Ooh~! Lisa-chan, you're so cute when you're embarrassed~☆"</p>
+<p>"Ooh! Lisa-chan, you're so cute when you're embarrassed☆"</p>
 <p>Minamoto Lisa blushed slightly and thanked me, and Seizawa Shii burst into laughter, breaking the atmosphere. Minamoto Lisa blushed even more and shouted, "Stop it!"</p>
 <p>"Um...."</p>
 <p>Finally, Urabe Konoka tugged at my sleeve. Wondering what it was, I moved closer, and Urabe Konoka whispered in my ear.</p>

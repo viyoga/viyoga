@@ -15,7 +15,7 @@ It surprised Agalea to know she was going to be groped by someone of the opposit
 
 But then…
 
-"Foo~" Lith blew hot air in Agalea's ear and made her shiver in surprise.
+"Foo" Lith blew hot air in Agalea's ear and made her shiver in surprise.
 
 "N-Nephew!?" Agalea looked at him with visible surprise.
 

@@ -56,7 +56,7 @@ chapter = 2033
 <p>"Stop messing with Blossom!!"</p>
 <p>"Huh? But I’m innocent."</p>
 <p>"Kitsara is anything but! She needs to be spanked!"</p>
-<p>"Oh, bad girl education? I’m ready whenever my lord husband is~" Kitsara purred, shaking her butt.</p>
+<p>"Oh, bad girl education? I’m ready whenever my lord husband is" Kitsara purred, shaking her butt.</p>
 <p>"!!!" Blossom jolted, unable to believe this bitch could accept being labeled a bad girl - an utter travesty - so readily.</p>
 <p>Leaving the women to have fun in the garden, the agent took Quinlan through the rooms adjoining it and upstairs to the bedchambers.</p>
 <p>From the largest room, Quinlan could watch his wives discussing flowers in the garden.</p>

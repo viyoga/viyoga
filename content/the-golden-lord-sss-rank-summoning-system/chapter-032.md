@@ -15,7 +15,7 @@ chapter = 32
 <p>Today was the twentieth, the day when, finally, the first wave of new citizens would arrive in Goldenveil.</p>
 <p>Turning his face slightly, Ethan released his hand and slapped Evelyn’s butt.</p>
 <p>His palm landed on that full, juicy ass with a wet smack, his fingers immediately closing around her soft skin.</p>
-<p>"Ughnn~~ don’t you know how to wake a woman gently?" Evelyn grunted, opening her mouth and planting an irritated bite on his chest.</p>
+<p>"Ughnn don’t you know how to wake a woman gently?" Evelyn grunted, opening her mouth and planting an irritated bite on his chest.</p>
 <p>Ethan closed his eyes, fighting the pain.</p>
 <p>"We have important things to do, let’s go," he said, massaging his sore chest as he carefully freed himself from Alice’s arms without waking her.</p>
 <p>Evelyn grunted sleepily, but eventually forced herself to stand up.</p>

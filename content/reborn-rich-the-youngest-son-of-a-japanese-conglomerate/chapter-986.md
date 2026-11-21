@@ -67,13 +67,13 @@ chapter = 986
 <p>"What do you mean by that?"</p>
 <p>"It's the Problem with Taira Food distribution. Because of my Taira Bussan, he can't oppose my side, and since he trades Mithril with Jiro, that Guy, they won't fight. Also, since Taira Food distribution supplies to Kokoro's department store, it's not a Relationship worth fighting over either. And he won't be able to fight Kanna's side for Justification either... Ryuta, that Guy, will only watch the Successor War and won't gain any Advantage. Rather, Taira Food distribution, which he was put in charge of, has become his Shackles."</p>
 <p>Having heard his Father's Explanation, Taira Gensuke smiled with Satisfaction and nodded his Head. If his Father's Words were true, Taira Ryuta, in charge of Taira Food distribution, caught in the middle, would have no choice but to watch his Father ascend to the Taira Throne.</p>
-<p>Taira Kanna and Taira Kokoro's surprised Appearance at the family meal, requested by Gojoy-nim~!</p>
+<p>Taira Kanna and Taira Kokoro's surprised Appearance at the family meal, requested by Gojoy-nim!</p>
 <p>Starting with Kanna</p>
 <p>Kanna wasn't surprised because she knew ㅎㅎ</p>
-<p>Kokoro~!</p>
+<p>Kokoro!</p>
 <p>Kokoro was truly surprised ㅎㅎ</p>
-<p>Linxiang and Linling showing Aegyo, requested by MidNightSKY-nim~!</p>
-<p>Linling~!</p>
-<p>I will only accept changing Expressions this Time~! You can request for several consecutive days, so please keep to the request count~!</p>
-<p>Secretary Chieri under the CEO's Office desk, requested by Inoega Doegopeun-nim~!</p>
-<p>Bonus~!</p>
+<p>Linxiang and Linling showing Aegyo, requested by MidNightSKY-nim!</p>
+<p>Linling!</p>
+<p>I will only accept changing Expressions this Time! You can request for several consecutive days, so please keep to the request count!</p>
+<p>Secretary Chieri under the CEO's Office desk, requested by Inoega Doegopeun-nim!</p>
+<p>Bonus!</p>

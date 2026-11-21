@@ -5,7 +5,7 @@ weight = 923
 chapter = 923
 +++
 
-<p>"Nnnghh~!"</p>
+<p>"Nnnghh!"</p>
 <p>A mini orgasm shot through Riyala’s body as the sensations became too much for her, and Riyala let out harsh breaths as she slowly pulled back from Jason’s embrace. Riyala leaned down and kissed Jason hard before she pulled away from him and began to crawl back while keeping her eyes on his. Jason watched Riyala moving, and his eyes were fixed on the way her breasts swung under her hypnotically! Riyala reached for Jason’s trousers and began to pull them back, and Riyala knelt between Jason in a way that made her ass shoot up and her back curve inwards as she finally freed Jason’s member!</p>
 <p>It was still impossible for Riyala to hide the awe on her face whenever she saw how large Jason was! Riyala could feel wetness running down her legs as she thought about putting this inside of her! Riyala wrapped a hand around Jason’s member, and Jason let out a pleased sigh as Riyala brought her tongue out and ran it over the length! Jason put his hand in Riyala’s hair and caressed it softly, and Riyala looked up at Jason with lustful eyes as she slowly moved her mouth over his member and engulfed him!</p>
 <p>"Fuck."</p>
@@ -19,7 +19,7 @@ chapter = 923
 <p>Jason’s member rubbed against Riyala’s crotch, and Jason felt a grin spread on his face as he realised that Riyala wasn’t wearing any underwear!</p>
 <p>"You fucking pervert."</p>
 <p>Riyala’s blush deepened as she smiled, and she wasted no time as she reached for Jason’s member and aligned it with her entrance! Jason’s hands gripped Riyala’s ass tightly, and Riyala gasped in ecstasy as Jason began to slowly impale her on his member.</p>
-<p>"Ohhhh~!"</p>
+<p>"Ohhhh!"</p>
 <p>It had been a while since they last had sex, and Riyala felt like Jason was splitting her apart right now! Jason moved agonizingly slowly to make sure Riyala felt every single inch that entered her, but all of a sudden, Jason brought Riyala down and thrust upwards at the same time!</p>
 <p>SLAP!</p>
 <p>"UGH! YES!"</p>
@@ -34,7 +34,7 @@ chapter = 923
 <p>"Mmh! Mmh! Mmh! Mmh! Oh, yes! Yes, right there! Oh, gods, yes!"</p>
 <p>Riyala cried out in pleasure as her orgasm hit her hard and she began to vibrate like a fucking cellphone! Jason didn’t stop moving as he felt Riyala’s core getting wetter, and he held her in place to make sure she didn’t fall over! Riyala’s hands pressed against Jason’s chest, and she held on for dear life as she felt her eyes rolling to the back of her head! It took a full minute for Riyala to come down from her orgasm, and once she did, she felt all her strength leave her body immediately! Riyala would have fallen over at that moment if not for Jason’s hands holding her in place, and Riyala let out a cute cry as Jason suddenly turned them over so he was the one on top!</p>
 <p>Jason lay down between Riyala’s legs, and he kissed her deeply!</p>
-<p>"Mmmh~"</p>
+<p>"Mmmh"</p>
 <p>Riyala moaned into Jason’s mouth as she wrapped her hands around his neck, but Riyala’s eyes snapped open in shock as Jason suddenly thrust into her again!</p>
 <p>BAM!</p>
 <p>"MMMHHH!"</p>

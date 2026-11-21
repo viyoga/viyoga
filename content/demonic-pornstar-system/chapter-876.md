@@ -30,7 +30,7 @@ chapter = 876
 <p>Grace’s eyes twinkled with slyness as she grinned at Kaiden. "Should we expect the arrival of the Fifth Valkyrie anytime soon, Kaiden?"</p>
 <p>"MISS GRACE!" The scribe’s voice erupted at a volume no one in the tent would have believed her capable of producing, and the ledger she’d been clutching flew out of her arms. "I would never- that’s not- he’s-"</p>
 <p>Kaiden chuckled. "A fifth? Someone’s hoping for a slip of the tongue, perhaps?"</p>
-<p>"I wouldn’t dare~" Grace mused with zero shame at being caught.</p>
+<p>"I wouldn’t dare" Grace mused with zero shame at being caught.</p>
 <p>Kaiden liked this woman’s antics.</p>
 <p>"I won’t comment on such a possibility."</p>
 <p>He glanced at the scribe, whose composure had long since left the building. "But what I’ll say is that even if it existed... While Miss Scribe is certainly a very beautiful young lady..."</p>

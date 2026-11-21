@@ -27,7 +27,7 @@ chapter = 122
 <p>...</p>
 <p>[The World of Givani]</p>
 <p>[One Dimensional Leap Away from Earth]</p>
-<p>Sniff~ Sniff~ Sniff~</p>
+<p>Sniff Sniff Sniff</p>
 <p>A large dog-type Magical Beast with six legs and blackened eye-less sockets sniffed along the ground as it moved through an empty wasteland slowly! It had black skin and a large build that made it look like a large wolf rather than a dog! The dog was known as a Magic Hounds and they were a special breed of Magical Beast that were known for their extraordinary sensory abilities. This sensory ability allowed them to track down any trace of mana that they had locked on to even across Dimensions!</p>
 <p>Behind the dog, a small group of masked men followed along at a sedate pace while keeping an eye out for any signs of a Dimensional Tear that they could move through. This small group of masked men were members of the Phantoms and they had already begun their search for the missing Radagan Princess. Before starting the search, the leader of the Phantoms, Alpha, had gone to Radagan and spoken to the current King of the Dragonborn in order to ask him for a piece of cloth or an artefact that had once belonged to the princess. Materials that once belonged to magic-wielders would always have traces of that person’s mana on them.</p>
 <p>The Magic Hounds were capable of tracking magical signatures, but before they could do that they needed to have something that had been drenched in the mana of the person being tracked! Once they had that scent, there was nothing that would stop them from finding you! Even if they had to move across more than five Dimensions just to reach you, they would be able to do it!</p>

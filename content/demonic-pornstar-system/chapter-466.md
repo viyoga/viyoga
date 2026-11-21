@@ -25,7 +25,7 @@ chapter = 466
 <p>Calypso nodded with all the calm confidence of a woman with zero shame, accompanied by the dreamy look of a woman madly in love. "Yes. Your brother displayed his supremacy before me, so I kneeled, and let him grab my horns and—"</p>
 <p>"Kmhm!" Aria coughed loudly into her fist. "Keep the details child-friendly."</p>
 <p>Bastet didn’t look up from braiding her hair. "Human child friendly, you down-bad demoness. That means no graphic copulation commentary."</p>
-<p>Calypso sighed. "So boring...~" But she continued anyway. "Anyhow. I accepted your brother as my superior, and he was kind enough to accept me as his lover in return."</p>
+<p>Calypso sighed. "So boring..." But she continued anyway. "Anyhow. I accepted your brother as my superior, and he was kind enough to accept me as his lover in return."</p>
 <p>Alice stared.</p>
 <p>Then her entire body trembled.</p>
 <p>Her eye twitched.</p>

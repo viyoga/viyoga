@@ -9,9 +9,9 @@ chapter = 395
 <p>Tuesday morning, standing at the teacher's desk after a long time, I looked at the students. It was nice to see their faces after so long, and I was quite happy. The students seemed happy to see me too, each smiling at me.</p>
 <p>Let's see, who's absent today... Naruse Shiyo and Uenozono Karen are absent today. I can understand Uenozono Karen, being an idol, but if Naruse Shiyo is attending St. Francis Academy, the Naruse family can't be that poor, so why don't they get her treated? It seems like having surgery and resting a bit more would be better than being in constant pain and resting intermittently.</p>
 <p>I heard that bio-remodeling technology has advanced so much these days that it can cure even incurable diseases. I should discuss this with Kijimoto Jurie.</p>
-<p>"Ryuta-cchi~! How can you take a vacation during the semester!!"</p>
-<p>"That's right! Unlike other jobs, teachers have vacations! If you have something to do, take care of it during vacation~!"</p>
-<p>"Woo~! Woo~!"</p>
+<p>"Ryuta-cchi! How can you take a vacation during the semester!!"</p>
+<p>"That's right! Unlike other jobs, teachers have vacations! If you have something to do, take care of it during vacation!"</p>
+<p>"Woo! Woo!"</p>
 <p>"Ryuta, I missed you."</p>
 <p>The female students of the prestigious St. Francis Girls' Academy each answered my question, "How have you been?" Most of them were complaining about me taking a vacation on a weekday during the semester. Only Alik honestly said that he missed me.</p>
 <p>As expected... Alik is the only one. I should get him something delicious later.</p>
@@ -19,10 +19,10 @@ chapter = 395
 <p>There was actually a World Korean Language Education Seminar held in Seoul while I was away. I used that as an excuse to go to Korea. Of course, I didn't attend the seminar, but I told Han Yu-gyeong to have a staff member attend in my name. So, on paper and online, it would look like I attended. No matter how closely they investigated, there would be nothing to find.</p>
 <p>"Nothing particularly special happened."</p>
 <p>Minamoto Risa, the class president, answered my question. Well, what special things would happen in school life, but this is a special class, so I have to ask. Still, except for Kujo Kina and Shido Tsubaki, everyone else is in this special class because they're not feeling well or don't have enough attendance days, so they're all nice and wouldn't deliberately cause trouble. Kujo Kina caused trouble because she was cursed, and Shido Tsubaki did it because of her passion for reporting as the head of the newspaper club. Kujo Kina has had her curse lifted, and Shido Tsubaki is no longer the head of the newspaper club, so the chances of them causing trouble are low.</p>
-<p>"Okay~! I prepared gifts, so take one each."</p>
+<p>"Okay! I prepared gifts, so take one each."</p>
 <p>I gave all the students a gift set with a mask pack, banana milk, and yakgwa (Korean honey cookies) individually packaged. Of course, the reaction was good. Korean-related items are always popular with middle and high school girls.</p>
-<p>"Wow~! Ryuta-cchi is the best!"</p>
-<p>"I don't care about the gifts, let's spar one more time~!!"</p>
+<p>"Wow! Ryuta-cchi is the best!"</p>
+<p>"I don't care about the gifts, let's spar one more time!!"</p>
 <p>"Thank you for the food, sensei!"</p>
 <p>"There's nothing special to announce today, so study hard today too...."</p>
 <p>Just as I was about to finish the morning assembly, Konoe Akina raised her hand. She seemed to have something to say.</p>
@@ -31,16 +31,16 @@ chapter = 395
 <p>Ah...! I was the club advisor. By the way, it seemed like the meditation part was completely gone from the Date Experience-Meditation Club. I glanced at Minamoto Risa and she looked slightly dissatisfied.</p>
 <p>I nodded at Konoe Akina's words.</p>
 <p>"Okay. I might forget, so remind me at the end of the day."</p>
-<p>"Yes~♥"</p>
+<p>"Yes♥"</p>
 <p>"Ahaha! Ryuta-cchi, is that something you'd forget? You're such an old man?"</p>
 <p>Konoe Akina answered with a gentle smile, and Seizawa Shii started teasing me, calling me an old man. I'm actually the same age as you. Do I look that old...?</p>
 <p>After finishing the morning assembly, I went straight to the nurse's office. It was to ask Kijimoto Jurie about Naruse Shiyo's exact illness.</p>
 <p>"Hello."</p>
-<p>"Yes~! Did your business go well?"</p>
+<p>"Yes! Did your business go well?"</p>
 <p>As I entered the nurse's office, Kijimoto Jurie, wearing a white coat, jumped up from her seat to greet me.</p>
 <p>"I went for sightseeing as well. Here, a travel gift."</p>
 <p>I answered Kijimoto Jurie's question and gave her the prepared gift. It was similar to the students' gifts, but a bit more formal. Kijimoto Jurie was very happy to receive the gift.</p>
-<p>"Thank you~!"</p>
+<p>"Thank you!"</p>
 <p>"It's nothing expensive. It's a Korean yakgwa and banana milk set, and a mask pack."</p>
 <p>At my words, Kijimoto Jurie opened the package and took out the yakgwa with the banana milk.</p>
 <p>"Would you like some?"</p>
@@ -76,7 +76,7 @@ chapter = 395
 <p>"Haa... Haa.... I can't take it anymore, Yamashiro-sensei. You have to take responsibility for making me like this."</p>
 <p>Now Kijimoto Jurie's expression was completely horny. She stood there looking at me with a pleading expression. She was wearing a tight sweater, so her breasts looked overwhelming from below.</p>
 <p>"How should I take responsibility?"</p>
-<p>"Heeuung...! Don't be mean~♥ Touch... my body♥"</p>
+<p>"Heeuung...! Don't be mean♥ Touch... my body♥"</p>
 <p>When I spoke with a slightly mischievous expression, Kijimoto Jurie swayed her body and seduced me.</p>
 <p>"Then please show me some sincerity first."</p>
 <p>When I said that, sinking into the chair, Kijimoto Jurie knelt between my legs with a blissful expression.</p>

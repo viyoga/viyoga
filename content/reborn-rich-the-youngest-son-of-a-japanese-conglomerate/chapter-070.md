@@ -7,7 +7,7 @@ chapter = 70
 
 <p>I effortlessly princess-carried Yukiko-ssi and went up to the second floor. Into the master bedroom on the second floor, Yukiko's room. Come to think of it, I've been in this house for quite a while, but this is my first time entering Yukiko's room.</p>
 <p>Opening the door revealed a room much larger than mine. The bed is huge too. It was wide enough for four people to lie down comfortably. I tossed Yukiko-ssi onto the bed.</p>
-<p>"Kyaa~!"</p>
+<p>"Kyaa!"</p>
 <p>Yukiko-ssi giggled with a small cry. Yukiko-ssi lay on the bed as is, seducing me with her bewitching eyes. There was no way I could resist Yukiko-ssi's seduction now.</p>
 <p>I went straight onto the bed and kissed Yukiko-ssi's forehead. Then I kissed between her eyebrows, her nose, and down to her lips, giving her a deep, adult kiss using my tongue.</p>
 <p>"Has any man ever been on this bed before?"</p>
@@ -83,7 +83,7 @@ chapter = 70
 <p>Yukiko-ssi, who had dried her hair and put on a suit, kissed my forehead. By the way, she looks sexy in a suit too.</p>
 <p>"I don't know what your appointment is, but your prior engagements are important, so don't worry about me and have a good weekend."</p>
 <p>"Tell me anytime if you need my strength. Yukiko-ssi, you know my strength, right?"</p>
-<p>When I showed off my muscles while naked, Yukiko-ssi said, "Hey, what are you doing~!" while staring intently at my muscular body. She's still young, but liking muscles makes an ajumma an ajumma.</p>
+<p>When I showed off my muscles while naked, Yukiko-ssi said, "Hey, what are you doing!" while staring intently at my muscular body. She's still young, but liking muscles makes an ajumma an ajumma.</p>
 <p>"Then.... I'm staying out tonight."</p>
-<p>"Okay, see you Monday evening~!"</p>
+<p>"Okay, see you Monday evening!"</p>
 <p>Yukiko-ssi kissed me on the lips this time and left. It's only 7 o'clock, so should I sleep a little more? Ah, come to think of it, the sofa will be a mess, so I should clean that up before I sleep.</p>

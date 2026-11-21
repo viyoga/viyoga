@@ -5,7 +5,7 @@ weight = 544
 chapter = 544
 +++
 
-"Hm Hm Hm HmHm… Hmm mhm~..."
+"Hm Hm Hm HmHm… Hmm mhm..."
 
 Lucy was humming the song she was listening to and was enjoying herself. She really loved classical music and if there weren't any people around, she definitely would've been lightly dancing as well.
 

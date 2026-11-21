@@ -74,12 +74,12 @@ chapter = 909
 <p>In this fight, a basic Attack seemed more effective than Shimokawabe Airen's unique space-cleaving Aura.</p>
 <p>-Do you think such trivial Attacks can reach me? Until now, I merely allowed them to hit me to gauge your Capabilities and to give you Despair.</p>
 <p>It just let itself be hit until now? What a ridiculous thing to say. No matter that it had become an Outer God named Endless Despair, it wouldn't be able to evade all Attacks. We hadn't yet shown all our Capabilities. And seeing it say it wouldn't let itself be hit anymore, it seemed the Effect of Mithril was indeed certain.</p>
-<p>Gojoy-nim requested Nagumo Sian running in Tape attire and Nagumo Sian stretching~~!</p>
-<p>Starting with the treadmill~!</p>
+<p>Gojoy-nim requested Nagumo Sian running in Tape attire and Nagumo Sian stretching!</p>
+<p>Starting with the treadmill!</p>
 <p>Running looks a bit awkward haha.</p>
-<p>Stretching~!</p>
+<p>Stretching!</p>
 <p>Neosblue-nim requested a ninja doing a somersault, but since somersaults didn't come out well, I made it feel like just doing acrobatics haha.</p>
-<p>MidNightSKY-nim requested an awkward Lisa in sexy lingerie trying to Seduce, and a skilled Liz~!</p>
-<p>Lisa-tang~!</p>
+<p>MidNightSKY-nim requested an awkward Lisa in sexy lingerie trying to Seduce, and a skilled Liz!</p>
+<p>Lisa-tang!</p>
 <p>Awkward, shy haha.</p>
-<p>Liz~!</p>
+<p>Liz!</p>

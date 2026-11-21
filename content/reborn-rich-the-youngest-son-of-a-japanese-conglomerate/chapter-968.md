@@ -47,9 +47,9 @@ chapter = 968
 <p>While stroking Tsukiyo's and Alik's Heads, I suddenly became curious and asked. The Question arose: Eve and Lara Sinclair only use one body, so why use two?</p>
 <p>"I also wanted to remain in the Appearance I had when I first met Jin Yongtae-nim, but there are many inconveniences with a small body. Especially, the part that can connect to the core via satellite communication is quite large, so it cannot be attached to a small body. So, if I go outside the core's range, I just become a pretty Doll. There's also the Battery Problem. And there was the Problem of a child not being able to come to Japan alone...."</p>
 <p>The adult Linling stopped speaking midway, then spun around once in front of me.</p>
-<p>"That's how I made the adult version of Linling~!"</p>
+<p>"That's how I made the adult version of Linling!"</p>
 <p>Aha, so that's how it is. Still, it wasn't an Answer to my Question of 'why' two android bodies were made. It was an Answer to why the adult Linling was born.</p>
-<p>I was about to ask further, but Linling's Story was quick. It seemed 'That's how I made the adult version of Linling~!' wasn't the end of her Answer.</p>
+<p>I was about to ask further, but Linling's Story was quick. It seemed 'That's how I made the adult version of Linling!' wasn't the end of her Answer.</p>
 <p>"After creating the adult body, I can now continuously Assist Jin Yongtae-nim by his Side, but I felt that leaving Jin Yongtae-nim's Home unattended, I needed another body that could move directly and manage the house efficiently. So, if I was going to manage the house within the core's range anyway, a satellite communication Device wasn't necessary, allowing for miniaturization, which is why I made another one in the Appearance of the child with Memories of Jin Yongtae-nim."</p>
 <p>I had intended to take Linling around as a secretary, so if the house would be empty, she made another android body to manage the house. That was a reasonable Story.</p>
 <p>"So that's how it was. Since there's no need to stay here anymore, shall we go up now? Shall I introduce Linling to everyone? I'll tell Linling's True Identity to the People I completely trust, but for now, let's explain them as Sisters to the working People."</p>
@@ -67,9 +67,9 @@ chapter = 968
 <p>"Nice to meet you, Linxiang."</p>
 <p>"Nice to meet you too, Jin Yongtae-nim."</p>
 <p>Linxiang smiled and answered with a Handshake.</p>
-<p>Gojoy-nim requested Nae's Tape attire and Breast Covering~!</p>
+<p>Gojoy-nim requested Nae's Tape attire and Breast Covering!</p>
 <p>Tape matching the Eye Color hehe.</p>
-<p>Breast Covering~!</p>
-<p>MidNightSKY-nim requested Ryuta firing a maximum output Genesis Chaos Beam, and Tsukiyo happily eating delicious food~!</p>
-<p>Ryuta~!</p>
+<p>Breast Covering!</p>
+<p>MidNightSKY-nim requested Ryuta firing a maximum output Genesis Chaos Beam, and Tsukiyo happily eating delicious food!</p>
+<p>Ryuta!</p>
 <p>Tsukiyo.</p>

@@ -12,7 +12,7 @@ chapter = 1071
 <p>Feng opened her mouth once again, eager to flaunt some insider knowledge, only to freeze. She realized, with dawning shock, that she had no clue herself. Her brows furrowed. She turned to Quinlan.</p>
 <p>The princess mirrored her, violet eyes narrowing. Both girls now stared at him like inquisitors demanding confession.</p>
 <p>Quinlan chuckled dryly, rubbing the back of his neck. "That... is a story for another time."</p>
-<p>"Ehehe~!" Rosie’s grin went nuclear. Her leafy crown wiggled with mischief as she leaned closer, voice sing-songy. "Actually, Daddy released his see—"</p>
+<p>"Ehehe!" Rosie’s grin went nuclear. Her leafy crown wiggled with mischief as she leaned closer, voice sing-songy. "Actually, Daddy released his see—"</p>
 <p>Before she could say another word, Quinlan’s hand slapped over her little mouth with lightning speed.</p>
 <p>"Mmmpfh!!" Rosie’s muffled protests came out in a jumble of squeaks and growls, her tiny hands grabbing at his wrist with all her might. But Quinlan didn’t budge, keeping his palm firmly sealed against her lips.</p>
 <p>"Suspicious..." Feng muttered, eyes narrowing.</p>

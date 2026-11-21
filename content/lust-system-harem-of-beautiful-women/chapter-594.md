@@ -7,7 +7,7 @@ chapter = 594
 
 <p>Luis finally managed to calm her down. Seeing that there were only two blind boxes left now, Luis needed to figure out a way to earn more rewards.</p>
 
-<p>&quot;So, dinner, huh? Well, I might just consider giving you this chance~&quot;</p>
+<p>&quot;So, dinner, huh? Well, I might just consider giving you this chance&quot;</p>
 
 <p>On the phone, his sister-in-law Leah said with a hint of playful arrogance, before adding a sour note: &quot;But I&#x27;m definitely not eating alone with you, and don&#x27;t even think about secretly taking Avery out. If we go, the three of us go together.&quot;</p>
 

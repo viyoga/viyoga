@@ -21,13 +21,13 @@ chapter = 424
 <p>"I never said I wouldn't go."</p>
 <p>When it was time for morning assembly, I got up and spoke to Kurayamda Kirie, and she followed. Kurayamda Kirie had a sulky expression on her face and her cheeks were slightly flushed whenever she looked at my face.</p>
 <p>"Did you have a good study session yesterday?"</p>
-<p>"Anii~! Kina-na-chan is so bad at math...! I suffered, so stroke me, Ryuta-cchi!"</p>
+<p>"Anii! Kina-na-chan is so bad at math...! I suffered, so stroke me, Ryuta-cchi!"</p>
 <p>"Alik, you worked hard...!"</p>
 <p>"It's hard, it's hard!"</p>
 <p>Everyone had a lot to say about yesterday, and my question turned the class into a marketplace again. But from what I heard, it didn't seem like they just chatted at the cafe during the study session.</p>
 <p>"There's nothing really to report today, so study hard today... Ah, Kurayamda-sensei came safely today, so don't worry too much."</p>
 <p>"Kiri-Kiri-chan, are you okay?"</p>
-<p>"Vice homeroom teacher, I was worried about you~!"</p>
+<p>"Vice homeroom teacher, I was worried about you!"</p>
 <p>My kids were so kind. They were worried about Kurayamda Kirie, whom they had only met for two days. Of course, Konoe Akina, Otagi Yuka, and Saionji Diana, who knew that Kurayamda Kirie was from a different faction, didn't say anything and remained quiet.</p>
 <p>After finishing morning assembly and returning to the teachers' lounge, Kurayamda Kirie suddenly opened her mouth.</p>
 <p>"Yamashiro-sensei has to follow my orders again today."</p>
@@ -42,7 +42,7 @@ chapter = 424
 <p>"Okay. I'll see how well you do."</p>
 <p>Cheolkeok!</p>
 <p>The door to the gym opened and closed. Kurayamda Kirie smiled confidently at my words that I wouldn't move.</p>
-<p>"Heuhyaaaaaaang~!! Noooo♥ Stop it...!"</p>
+<p>"Heuhyaaaaaaang!! Noooo♥ Stop it...!"</p>
 <p>Kurayamda Kirie lost the battle of the flesh again today, following yesterday. I didn't move much today as Kurayamda Kirie said, but she self-destructed on her own. Why did she become more sensitive?</p>
 <p>###</p>
 <p>After school, dinner.</p>

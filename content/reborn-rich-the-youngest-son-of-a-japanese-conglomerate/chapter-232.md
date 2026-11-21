@@ -31,7 +31,7 @@ chapter = 232
 <p>,"There! Now you can take it as you please. You can break the glass or take the whole glass case, whatever you want."</p>
 <p>At the blonde thief's words, Otagi Yuka shattered the glass case. With nothing blocking her from the golden sword, it flew through the air like a magnet and landed in Otagi Yuka's hand. It was a considerably large greatsword, but even though Otagi Yuka held it with one hand, it felt so perfectly suited that she didn't feel its weight. Anyone could see that it was so natural that it really looked like Otagi Yuka was the owner of this golden sword.</p>
 <p>,"Looks like she really is the owner. Let's go get the rest of our stuff then."</p>
-<p>,"Okay~! If you don't have anything else to steal, go back. We'll take our share and leave...!"</p>
+<p>,"Okay! If you don't have anything else to steal, go back. We'll take our share and leave...!"</p>
 <p>Kwaaaang!!</p>
 <p>While they were talking, a huge explosion was heard from the first floor. All three of them were surprised and looked at each other's faces. Eve's voice was heard from the communicator attached to Otagi Yuka's ear.</p>
 <p>-It's Kurotsuki-doo! He's been avoiding battles at night until now, but seeing him come to find Yuka like this, it seems like he's obtained some new weapon too.</p>

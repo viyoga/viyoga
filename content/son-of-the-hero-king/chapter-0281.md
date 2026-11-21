@@ -26,7 +26,7 @@ chapter = 281
 <p>.”...I see that I am not the only one wanting this.”</p>
 <p>The smile he sported on his face was akin to that of a villain as he adjusted his tip against her slit as if he would put it in right away but did nothing of the sort.</p>
 <p>Pressing his glans at the narrow entrance, Sol let out a low groan. It was slippery with the lustful liquid spilling happily. His erection was incredibly hard, as if wanting to pierce her right away rashly, and pressed against Isis.</p>
-<p>“Nn~!…”</p>
+<p>“Nn!…”</p>
 <p>Isis was surprised by the loud erotic moan that leaked out of her mouth without her realizing it.</p>
 <p>“Isis...”</p>
 <p>Sol clenched his teeth and called out Isis's name. The deep desire hidden in that low growl made her moisten further. Enthralled as she was by the atmosphere, Isis moved her groin closer, so he lifted her thighs, and put them on his shoulder as he faced her.</p>
@@ -75,7 +75,7 @@ chapter = 281
 <p>In this position, Sol resumed kissing her more hungrily and she answered likewise. As if devouring each other, as if wishing to meld into each other.</p>
 <p>The two of them moved in unison while feeling the rapidly approaching climaxes. Isis became urgent. Every time he hammered her, sparks splashed high like hammering a hot iron, raising the heat under her belly.</p>
 <p>She twisted her whole body and bit her lips at the sound of wet flesh. By the time her toes were about to cramp, what she had been holding back and enduring with all her might eventually burst and poured out.</p>
-<p>“Hah~!”</p>
+<p>“Hah!”</p>
 <p>Her whole body convulsed as if she had a seizure. The limbs trembled, and the water spurted vigorously from below. It was orgasm after orgasm.</p>
 <p>Sol grabbed her tightly, his muscles clenched, and he continued to thrust into her heavily and he felt like he was about to explode and spend himself in her. Which he did with a low grunt.</p>
 <p>It was like lightning struck her. Her vision grew black, full of sparkles, and she couldn’t breathe. Muscles in her body contracted and spasmed repeatedly.</p>

@@ -47,7 +47,7 @@ chapter = 134
 <p>Just below, his cock sank between her wide, soft cheeks, the thick shaft squeezed firmly between those plush mounds of ass, her flesh molding around him on both sides.</p>
 <p>"Ah..." he gasped against her breasts, lifting her onto his cock until the tip aligned with the darkened lips of her vulva.</p>
 <p>He leaned forward, held her ass in place, and thrust his hips.</p>
-<p>"Nghnnn~~ E-ethan! Aghnn~~"</p>
+<p>"Nghnnn E-ethan! Aghnn"</p>
 <p>A long, obscene moan echoed as the twenty centimeters of cock entered Elena’s pussy in one go.</p>
 <p>His hips struck her ass with a firm impact, and the plump, round flesh rippled from the collision, shockwaves rolling through each cheek, the fat quivering under the grip of his hands.</p>
 <p>She grabbed his head tightly. Her arms squeezed her breasts together into incomparably full orbs, the heavy dark flesh bulging and overflowing between her arms, her hands pulling his face deep into those two large, soft, round mounds until he nearly disappeared between them.</p>

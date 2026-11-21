@@ -75,17 +75,17 @@ chapter = 363
 
 <p>He returned to his room, where he lay down on the bed, pulling Linyue to his chest.</p>
 
-<p>“Hehehe nyan… not there, hubby~~ nyan~~” Linyue murmured, her eyes closed as she squirmed slightly.</p>
+<p>“Hehehe nyan… not there, hubby nyan” Linyue murmured, her eyes closed as she squirmed slightly.</p>
 
 <p>“Ah… this girl, what the hell is she dreaming about?” Qingyi wondered, giving her a soft laugh and a slap on the ass.</p>
 
-<p>“Nyan! Nghnn~~” Linyue gave a high-pitched, cute squeal, clutching her fiery ass and opening her beautiful green eyes. Qingyi’s possessive grip controlled the shockwaves that spread through the round, perfect orbs.</p>
+<p>“Nyan! Nghnn” Linyue gave a high-pitched, cute squeal, clutching her fiery ass and opening her beautiful green eyes. Qingyi’s possessive grip controlled the shockwaves that spread through the round, perfect orbs.</p>
 
 <p>“Hm… bad hubby, nyan!” She declared, sinking her sharp fangs into Qingyi’s arms, her nails leaving deep marks on his pale skin.</p>
 
 <p>“Hey, no, have mercy on your husband!” Qingyi shouted with a playful tone as Linyue scratched him, stopping only when he sealed her lips.</p>
 
-<p>“Nghnn~~ nyan~~” Linyue moaned as she felt Qingyi’s tongue invade her lips, entwining with hers in a slow, gentle dance, exploring every bit of the sweet, soft mouth.</p>
+<p>“Nghnn nyan” Linyue moaned as she felt Qingyi’s tongue invade her lips, entwining with hers in a slow, gentle dance, exploring every bit of the sweet, soft mouth.</p>
 
 <p>With a smooth movement, he pulled his face back, observing Linyue’s flushed face.</p>
 

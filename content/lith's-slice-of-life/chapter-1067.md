@@ -89,7 +89,7 @@ Lizbeth nodded her head. "Yes. If God can be better than me, I'll gladly accept 
 
 As soon as Lith said that, a pretty silver-haired lady in regal black gothic robes appeared out of thin air.
 
-She waved at Lizbeth and said, "hello~"
+She waved at Lizbeth and said, "hello"
 
 Lizbeth froze in her spot as she watched her.
 
@@ -111,7 +111,7 @@ Lizbeth hadn't seen Lith clearly before as she looked up to him as God, but with
 
 It was so surprising to see that her God was such a handsome man!
 
-Noticing this, Lilith said with visible surprise, "My, my~… did your crush change?"
+Noticing this, Lilith said with visible surprise, "My, my… did your crush change?"
 
 Lilith looked at Lith and shook her head. "If you keep stealing everyone's attention like this, mama won't have any admirers anymore."
 

@@ -19,23 +19,23 @@ chapter = 326
 <p>And the sounds that followed the execution of said attacks were so powerful that Caius was sure his eardrum would have been shattered if not for him being empowered as he currently was.</p>
 <p>Spell casting from below wasn’t going to cut it so Caius knew he had to get into the air as well. His shifted form would be frankly useless if all he planned on doing was casting spells at a distance. But of course that had never been the plan. He just needed an opening for...</p>
 <p>A streak of light cut off Caius’s thoughts and he watched Aurelius return to the fray.</p>
-<p>Aether’s apostle called on his Goddess’s might—at least what he was allowed to call upon at the moment—and cast ~Freya’s Benevolence.</p>
+<p>Aether’s apostle called on his Goddess’s might—at least what he was allowed to call upon at the moment—and cast Freya’s Benevolence.</p>
 <p>A woman made of light appeared in the air and rained down rays of light that were meant to bypass the physical boundaries and attack something within. But they reflected off the shell of defense Belron had on.</p>
 <p>Aurelius didn’t allow himself to be disheartened. He got back in close combat with the Fiend, mixing in the occasional attacking magic spells, all of which Belron continued to shrug off.</p>
 <p>Or so it appeared.</p>
 <p>But Caius knew better.</p>
 <p>"That should be good enough," he said and then bent down, tensing as every muscle in his body—those he had become aware of with the Von Helsing Regimen—allowed him to spring about ten feet into the air. He was just in range of Belron and now had a cloud of darkness at his feet, keeping him afloat.</p>
 <p>He stretched out his hand and a spell circle appeared. It was a mysterious combination of tree colors; Green, Red, and Purple. Evidence of three elements included within; Wind, Fire, and Dark Magic.</p>
-<p>~Dark Erratic Flame~</p>
-<p>With a proper balance of wind swirling, fire blazing and Darkness empowering, a Dark flame flickered erratically with the same tell-tale inbuilt instability as the previous iteration; ~Erratic Fireball~.</p>
+<p>Dark Erratic Flame</p>
+<p>With a proper balance of wind swirling, fire blazing and Darkness empowering, a Dark flame flickered erratically with the same tell-tale inbuilt instability as the previous iteration; Erratic Fireball.</p>
 <p>The three separate spells Caius had used to create this unstable amalgamation were all at the Fourth Circle and what was born from that, easily surpassed the Fourth Circle. Going even further with Nyx’s backing.</p>
 <p>But Caius’s wasn’t done.</p>
-<p>With one hand to keep the ~Dark Erratic Flame~ in check, he retrieved a weapon from his Storage Ring; A Dagger with a tear-drop shaped blade and a crystal handle.</p>
+<p>With one hand to keep the Dark Erratic Flame in check, he retrieved a weapon from his Storage Ring; A Dagger with a tear-drop shaped blade and a crystal handle.</p>
 <p>It was the *Winter’s Tear* he had won from Baler weeks ago.</p>
 <p>There had been no way it wouldn’t be useful but Caius had to admit he never planned to use it here.</p>
 <p>But he had to.</p>
 <p>It had just the power and natural opposition to what he had already made to increase the instability.</p>
-<p>With that, Caius unleashed the Fifth Circle chilling energy within the Crystal handle of the dagger, controlling it to merge with the ~Dark Erratic Flame~.</p>
+<p>With that, Caius unleashed the Fifth Circle chilling energy within the Crystal handle of the dagger, controlling it to merge with the Dark Erratic Flame.</p>
 <p>The ice repelled the fire but Caius forced the symbiosis. Doing this on a whim would have been impossible and even deadly but he was empowered with Divine Energy.</p>
 <p>He could handle this much.</p>
 <p>He hoped.</p>
@@ -46,7 +46,7 @@ chapter = 326
 <p>"Are you mad?" Aurelius asked with wide eyes as he watched Caius try to contain the unstable coalition of Elemental Magic in his hands.</p>
 <p>"Probably," Caius admitted mostly to himself but insisted, "If you want to live, do it!"</p>
 <p>Aurelius looked from Caius to Belron and back and then groaned as he stretched his spear, conjuring a spell circle marked with Divine Scripts that went on to merge with the unstable creation.</p>
-<p>"~Warding~..." Caius whispered the name of Aurelius’s Light Magic spell.</p>
+<p>"Warding..." Caius whispered the name of Aurelius’s Light Magic spell.</p>
 <p>It wasn’t a particularly powerful spell. It didn’t attack. It didn’t defend. It was only for warding off ’evil energies’ which in this case would be demonic energy. Still, because it was weak, Belron wouldn’t even need his Demonic layer to defend against it.</p>
 <p>But Caius thought it was perfect.</p>
 <p>The goal here was synergy. It wasn’t about the most powerful spell but making them ’work together’.</p>
@@ -57,7 +57,7 @@ chapter = 326
 <p>The forbidden nature was exactly why it needed to be done. The sheer impossible nature of it was what would do it. Caius just had to live long enough to make the attack.</p>
 <p>"Delia!" He yelled then, "Hold it down!"</p>
 <p>Delia sprang to obey. Belron aimed attacks at her to stop. It aimed attacks at Caius as well but Caius didn’t care. The attacks didn’t matter. Nothing else did besides what he had in his hands.</p>
-<p>Still connected to the ~Warding~ spell he had added into the mix, Aurelius wasn’t all that sure what Caius was trying to accomplish. He just knew he was right to think he was mad.</p>
+<p>Still connected to the Warding spell he had added into the mix, Aurelius wasn’t all that sure what Caius was trying to accomplish. He just knew he was right to think he was mad.</p>
 <p>Still, he went in, swinging his spear at the attacks Belron aimed at Caius and deflecting or completely decimating them.</p>
 <p>Caius completed the synergy. Using his Divine energy as the binding factor.</p>
 <p>Nyx was vehemently against it. Against her power touching a spell born of her sisters. He wasn’t connected to her but Caius was sure it was the same for Aether, the Goddess of Divine Light.</p>

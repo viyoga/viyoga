@@ -131,7 +131,7 @@ Lith then chuckled evilly and slithering his hands on her abdomen, then squishin
 
 Sylvia's heart sank. The Prince was planning to defile her body? Was he just like every other perverted man out there?
 
-To Sylvia's dismay, Lith placed his chin on her head and chuckled evilly again. Squishing her love handles again, he replied to his own question, "Hehe~… I'll torture you with the worst kind of torture out there—tickling torture!"
+To Sylvia's dismay, Lith placed his chin on her head and chuckled evilly again. Squishing her love handles again, he replied to his own question, "Hehe… I'll torture you with the worst kind of torture out there—tickling torture!"
 
 '…'
 
@@ -159,7 +159,7 @@ Sylvia's apathetic face turned into that of a worrisome look, coupled with a hin
 
 She had such mixed emotions that she didn't know what to say or do.
 
-"Hm-mhm-hmm-hmm-mhmm~!" Lith hummed a melody and swayed side to side while gluing his face with Sylvia's.
+"Hm-mhm-hmm-hmm-mhmm!" Lith hummed a melody and swayed side to side while gluing his face with Sylvia's.
 
 Bombarded with so many new things, Sylvia was at an utter loss.
 

@@ -40,7 +40,7 @@ chapter = 132
 <p>A woman whose destiny should have to simply have a simple life like most of her brethren, never to do anything of importance.</p>
 <p>A rank D with basically no other redeeming features aside from her erotic body.</p>
 <p>Such a woman had reached a level that even A rank magical beings might never reach in their whole lives.</p>
-<p>‘Hahaha~! We were fucking right! The genesis theory was without a doubt the right way! Sister, can you see this!?’</p>
+<p>‘Hahaha! We were fucking right! The genesis theory was without a doubt the right way! Sister, can you see this!?’</p>
 <p>At first, he had been somewhat disheartened because even after observing the crown’s shadow by using Berthold’s body, he never really managed to get a confirmation since Milia was happier playing the maid than fighting.</p>
 <p>As for the rest of the crown’s shadow, while more powerful than normal, were also not particularly impressive either, aside perhaps Ketia whose power was unstable.</p>
 <p>But now, all his doubts vanished.</p>
@@ -139,7 +139,7 @@ chapter = 132
 <p>She had already understood that this man was most likely a necromancer and that the body in front of them was just a fake.</p>
 <p>Sol added on the side, “Indeed. Now that Camelia activated the holy territory, it should mean that everything is about to end.”</p>
 <p>Even though he didn’t know what was happening, with the roof and a part of the wall blasted open, the golden dome covering the city visible was enough explanation.</p>
-<p>“Ah~! Hahaha~! I admit that we really got done in this operation. The prince was stronger than we thought. The witch had escaped the confinement. The saint did not fall. The maid hides quite deeply and the queen was a fucking beast.”</p>
+<p>“Ah! Hahaha! I admit that we really got done in this operation. The prince was stronger than we thought. The witch had escaped the confinement. The saint did not fall. The maid hides quite deeply and the queen was a fucking beast.”</p>
 <p>Drei continued to laugh out loud, “This was without a doubt a near-complete fiasco.”</p>
 <p>Sol narrowed his eyes, “As I thought, your main goal was never to capture or kill me, right?”</p>
 <p>“Heh, do you think I am the kind of stupid villain that will expose all our plans and allows you to make more preparation for the future?”</p>

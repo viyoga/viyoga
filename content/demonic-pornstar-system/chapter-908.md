@@ -66,7 +66,7 @@ chapter = 908
 <p>Kaiden glanced at the notification. So did Aria, Luna, Nyx, and everyone else who got one. The same message, hitting every member of the winning rookie team simultaneously: an incoming Chronos transfer from the Association’s competition fund.</p>
 <p>One million Chronos per surviving member, wired directly to personal accounts, bypassing guild coffers entirely. A hundred million dollars per person.</p>
 <p>"Ooh, the competition money just came in. What impeccable timing," Luna grinned, refreshing her balance with visible satisfaction.</p>
-<p>"Grace sure works fast~" Nyx murmured, but she was already reading something else.</p>
+<p>"Grace sure works fast" Nyx murmured, but she was already reading something else.</p>
 <p>"We were so happy the money was for individual awakened and not the guild itself, but now..." Bastet muttered. "I wouldn’t have complained if all twenty million arrived in Eclipse’s coffers instead."</p>
 <p>"Greed is a cardinal sin, kitty," Calypso laughed.</p>
 <p>"Says the demon whose lover wields the cardinal sins..." the tanned beauty scoffed, getting a headpat in response from the red-skinned woman.</p>
@@ -87,7 +87,7 @@ chapter = 908
 <p>"I’ll draft the agreements," Nyx said, returning to her laptop. "Shadow Mommy, do you think this is enough?"</p>
 <p>"Enough to sustain us for a short while? Yes. Enough to make the money problem go away? No."</p>
 <p>"...Just how expensive is running a guild?!" Alexandra gasped. "We’re talking about billions of dollars here!"</p>
-<p>"Welcome to the world of the awakened, Blondie Bestie~" Nyx purred just as Kaiden’s phone rang.</p>
+<p>"Welcome to the world of the awakened, Blondie Bestie" Nyx purred just as Kaiden’s phone rang.</p>
 <p>He glanced at the caller ID and picked up. "Diaz."</p>
 <p>Diaz’s voice was unhurried on the other end. "Got a million Chronos sitting around doing nothing. It’s yours if you need it."</p>
 <p>"You sure?"</p>

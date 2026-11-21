@@ -19,7 +19,7 @@ chapter = 1975
 <p>Lucille stamped her foot.</p>
 <p>"Darling! You promised me that!"</p>
 <p>Quinlan faced his wife. Her green eyes shone with indignation as she caught his arm, pulling him closer.</p>
-<p>"&gt; "How cruel..." she whimpered, then inwardly purred, &lt;Giving away my lovely present~ How dare you~&gt;</p>
+<p>"&gt; "How cruel..." she whimpered, then inwardly purred, &lt;Giving away my lovely present How dare you&gt;</p>
 <p>Quinlan was glad for Synchra’s coverage of his lips in this moment.</p>
 <p>"It’s only until the quest is over, sweetheart."</p>
 <p>"Then why does she get to wear it?"</p>

@@ -67,7 +67,7 @@ chapter = 686
 <p>-It's not difficult to investigate. I might have to leave because I'm busy with work too, but are you sure you're coming on Christmas, Yongtae?</p>
 <p>,Yeah. We decided to spend Christmas together. I'm sorry I can't spend Christmas Eve together.</p>
 <p>I was going to spend Christmas Eve with Minamoto Risa, so I couldn't spend it with Han Yu-gyeong. Instead, I was able to spend Christmas Day together, so I decided to go to Korea on a Christmas Eve night flight or a Christmas morning flight.</p>
-<p>-Yeah~♥ I miss Yongtae. I'm looking forward to our Christmas date!</p>
+<p>-Yeah♥ I miss Yongtae. I'm looking forward to our Christmas date!</p>
 <p>,Yeah, I'm really looking forward to it. Actually, I don't need a special date schedule, I only need Yu-gyeong, so don't prepare too much.</p>
 <p>It had become like an unwritten rule that Han Yu-gyeong makes the date course when I go to Korea, and I make the date course when Han Yu-gyeong comes to Japan, so Han Yu-gyeong will make this Christmas date.</p>
 <p>,I'll be in Korea until a few days before school starts, so I can see you for a long time this time.</p>

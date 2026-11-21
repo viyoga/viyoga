@@ -42,12 +42,12 @@ chapter = 250
 <p>She shoved her chair back with a screech and stumbled sideways... collapsing into Tessa’s lap like a broken child who had finally reached her breaking point.</p>
 <p>"I hate this! I hate this! I hate this!" she chanted, voice breaking as the sobs overtook her. "Everyone’s so cruel and calculating. Everyone’s playing games, making threats, and manipulating. I just want to craft cool stuff and live in peace, but nooo! The guild—this goddamn guild—is all I have left of my dad, so I can’t let the execs run it to the ground for short-term profits!"</p>
 <p>Tessa blinked, momentarily stunned, but instinct quickly kicked in. She let out a motherly giggle and began gently stroking Talia’s hair.</p>
-<p>"There, there~ It’s going to be okay..." she cooed with uncharacteristic warmth. "You’re strong. You’re so, so strong, Talia. Things will work out. You know they will."</p>
+<p>"There, there It’s going to be okay..." she cooed with uncharacteristic warmth. "You’re strong. You’re so, so strong, Talia. Things will work out. You know they will."</p>
 <p>"Will they?! I’m being outplayed by a bunch of kids who weren’t even awakened two months ago!" Talia shrieked into her shoulder, tears soaking through the woman’s elegant blouse.</p>
 <p>Tessa smiled nervously, glancing at the others for help that wasn’t going to come.</p>
 <p>"They’re not normal kids..."</p>
 <p>"That’s right!" Talia snapped, lifting her head just long enough to send Aria a glare. "They say I’m surrounded by sharks, but if the shareholders are sharks, then what are they?! The freaking megalodon?!"</p>
-<p>"There, there~" Tessa murmured again, stroking her hair even firmer now with a shaky hand. "I’m here for you. Let it all out..."</p>
+<p>"There, there" Tessa murmured again, stroking her hair even firmer now with a shaky hand. "I’m here for you. Let it all out..."</p>
 <p>But Talia suddenly stopped her sobs.</p>
 <p>She pulled back just enough to look up at Tessa with wide, glassy eyes. These were eyes filled with hurt.</p>
 <p>And accusation. A crippling amount at that.</p>

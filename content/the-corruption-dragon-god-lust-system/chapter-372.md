@@ -9,13 +9,13 @@ chapter = 372
 
 <p>He watched that beauty choke on the colossus of flesh, her eyes watering, soft chokes escaping from her tight throat.</p>
 
-<p>“Ah… nghnn~~” Meilin pulled back, her cherry lips connected to the reddish tip of Qingyi’s cock by long strands of saliva.</p>
+<p>“Ah… nghnn” Meilin pulled back, her cherry lips connected to the reddish tip of Qingyi’s cock by long strands of saliva.</p>
 
 <p>She raised her beautiful dark eyes, catching her breath before sinking onto Qingyi’s cock again, sucking voraciously.</p>
 
 <p>Wild locks of hair fell across her face as her head moved non-stop.</p>
 
-<p>“Hm~~ Feiyan taught her that well, didn’t she?” Ruxue giggled, lying down on Qingyi’s right side, her huge, pale tits gripped by his hand, a soft moan escaping her lips with every little squeeze.</p>
+<p>“Hm Feiyan taught her that well, didn’t she?” Ruxue giggled, lying down on Qingyi’s right side, her huge, pale tits gripped by his hand, a soft moan escaping her lips with every little squeeze.</p>
 
 <p>“Yes, hahaha,” Qingyi smiled, watching Meilin suck faster and faster. Ruxue’s words made her blush even more.</p>
 
@@ -23,7 +23,7 @@ chapter = 372
 
 <p>Her eyes widened and her cheeks bulged as Qingyi’s cock released thick, fat jets of cum inside her.</p>
 
-<p>“Gulp… gulk~~ gulp… aghn~~” Each pulse of Qingyi’s cock was answered by a greedy gulp, the throat of the Gold King’s daughter working ceaselessly to swallow all of his seed.</p>
+<p>“Gulp… gulk gulp… aghn” Each pulse of Qingyi’s cock was answered by a greedy gulp, the throat of the Gold King’s daughter working ceaselessly to swallow all of his seed.</p>
 
 <p>When she finally finished, she sat on Qingyi’s thighs, his semi-erect cock aligned with her slim belly.</p>
 
@@ -35,7 +35,7 @@ chapter = 372
 
 <p>She should have been ashamed, but when she saw Qingyi’s deep smile and received a firm slap and a possessive grip on her buttocks, she just moaned debauchedly.</p>
 
-<p>“Nghnn~~ when are we going back? I’ve left a trustworthy manager to look after the Burning Red Pavilion, but we still have a lot of funds from outstanding contracts to collect…</p>
+<p>“Nghnn when are we going back? I’ve left a trustworthy manager to look after the Burning Red Pavilion, but we still have a lot of funds from outstanding contracts to collect…</p>
 
 <p>it’s too much money,” Meilin asked, leaning over Qingyi’s powerful chest, her eyes closing shyly.</p>
 
@@ -89,18 +89,18 @@ chapter = 372
 
 <p>“What are you thinking, silly girl?” She heard a masculine voice full of love approaching from behind, accompanied by strong, powerful hands, running over her slender hips and up to her large tits, squeezing them gently.</p>
 
-<p>“Ikhn~~” A cute, high-pitched squeal escaped Xueyao’s lips as she felt Qingyi’s cock press against her ass, sliding between her thighs.</p>
+<p>“Ikhn” A cute, high-pitched squeal escaped Xueyao’s lips as she felt Qingyi’s cock press against her ass, sliding between her thighs.</p>
 
 <p>The reddened tip immediately sank into the full, fat lips of her pussy.</p>
 
 <p>She pressed her legs together, blushing as she looked down, watching that long fat, throbbing rod of flesh emerge from between her thick, soft thighs.</p>
 
-<p>“N-nothing… Xueyao was just… thinking- Oghn~~” She exhaled heavily as Qingyi moved his hips, pulling his cock back and lining it up with her pussy, leaning her over the jade bars of that balcony.</p>
+<p>“N-nothing… Xueyao was just… thinking- Oghn” She exhaled heavily as Qingyi moved his hips, pulling his cock back and lining it up with her pussy, leaning her over the jade bars of that balcony.</p>
 
 <p>“About what?” he asked, giving her a brief moment before thrusting in.</p>
 
 <p>His hips thrust forward hard, the lips of Xueyao’s vulva squeezing around his cock, his hips hitting her buttocks with a loud pop.</p>
 
-<p>“Nghnn~~ H-hubby! Mercy on Xueyao’s little pussy, nghnn~~” she moaned, her whole body shuddering, a violent shockwave spreading through her ass.</p>
+<p>“Nghnn H-hubby! Mercy on Xueyao’s little pussy, nghnn” she moaned, her whole body shuddering, a violent shockwave spreading through her ass.</p>
 
 <p>The sensation of his cock filling her completely was simply overwhelming.</p>

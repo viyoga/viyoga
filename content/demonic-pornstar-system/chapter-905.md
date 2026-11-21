@@ -14,7 +14,7 @@ chapter = 905
 <p>"No. You don’t exist, shut up."</p>
 <p>"Wait, what?"</p>
 <p>Luna ignored the amused grin of the pink-haired beauty and pointed toward the ceiling of the car. "I didn’t want to say it in there, knowing the fuckers were listening in. But I now must say my piece."</p>
-<p>"Go for it~" Bastet purred, lounging in her chair with both legs drawn up, comfortable, letting the city blur past.</p>
+<p>"Go for it" Bastet purred, lounging in her chair with both legs drawn up, comfortable, letting the city blur past.</p>
 <p>"Okay, so..." Luna cleared her throat. "The Claimant was a fucking mountain range. A mountain range. We watched that bastard jump and turn the sky into falling stone, and that was the biggest thing humanity had ever seen."</p>
 <p>"Yes," Kaiden said.</p>
 <p>"That thing made the Claimant look like a pet rock."</p>

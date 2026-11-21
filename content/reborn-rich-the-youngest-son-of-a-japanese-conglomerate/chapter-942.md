@@ -29,7 +29,7 @@ chapter = 942
 <p>Konoe Akina snuggled into me even more, her Voice filled with Aegyo. As she did, Konoe Akina's large breasts were pressed against my body, making the sensation even better.</p>
 <p>"I can hear Ryuta-nim's heart beating...!"</p>
 <p>"I can feel Akina's breasts being pressed."</p>
-<p>"Aww~! What is that...!"</p>
+<p>"Aww! What is that...!"</p>
 <p>We didn't immediately engage in Sexual Act, but snuggled together and had a small conversation for a while. Then, as our Eyes met, as if it were a promise, we both simultaneously extended our Lips and kissed.</p>
 <p>Jju-eup! Chup! Jjeubeub...! Chup!</p>
 <p>While kissing, Konoe Akina lowered her Hand and grabbed my cock, which was pressing against her belly, and moved it to her groin. Then, without inserting it into her pussy, she placed it between her pussy and thigh as if doing Sumata, and began to move her waist, rubbing my cock against her pussy and thigh.</p>
@@ -74,6 +74,6 @@ chapter = 942
 <p>"From now on, count one number each time you Climax. Got it?"</p>
 <p>"One, two...! Three! It's too strong! Teacher-niim...!"</p>
 <p>Konoe Akina's cries as she counted numbers echoed in the Room. And so, I tormented Konoe Akina until Dawn.</p>
-<p>SD Alik and SD Shii double peace maid, requested by I Save I-nim~!</p>
-<p>Starting with Alik~!</p>
-<p>Shii~!</p>
+<p>SD Alik and SD Shii double peace maid, requested by I Save I-nim!</p>
+<p>Starting with Alik!</p>
+<p>Shii!</p>

@@ -12,7 +12,7 @@ chapter = 261
 <p>The pillowy flesh molded around the contours of his torso, conforming to every line of his body as if made from the purest, warmest marshmallow.</p>
 <p>The sensation was divine. Like embracing two warm silk pillows, with her puffy nipples pressing into his chest through the thin, pure fabric of her white dress.</p>
 <p>The milky, creamy skin of her exposed cleavage glowed softly in the light, exuding a delicate floral scent that washed over his senses and clouded his thoughts.</p>
-<p>"Oh~!" A gasp of surprise escaped Arwen’s pink lips, followed by a sweet, crystalline laugh that hummed softly against his chest.</p>
+<p>"Oh!" A gasp of surprise escaped Arwen’s pink lips, followed by a sweet, crystalline laugh that hummed softly against his chest.</p>
 <p>[Arwen’s Opinion increased by 1 point]</p>
 <p>[Arwen’s Loyalty increased by 1 point]</p>
 <p>"My future husband... are you?" Her emerald eyes sparkled with amusement as she gazed up at him from beneath her long, fluttering lashes. "I don’t recall humans from this world being so receptive to other races..."</p>

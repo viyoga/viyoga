@@ -81,8 +81,8 @@ chapter = 735
 <p>-That's right. I think so too. We need to increase the surveillance personnel a little more.</p>
 <p>Jeils Fuller nodded as if agreeing with Diana Reach's claim and concluded that they would increase the surveillance personnel.</p>
 <p>______________</p>
-<p>This is Sinoe Misano's suit, underwear, and nude version illustration requested by Gojoy-nim~!</p>
-<p>First, the suit~!</p>
-<p>Underwear version~!</p>
-<p>Nude~!</p>
+<p>This is Sinoe Misano's suit, underwear, and nude version illustration requested by Gojoy-nim!</p>
+<p>First, the suit!</p>
+<p>Underwear version!</p>
+<p>Nude!</p>
 <p>Kiyooot!</p>

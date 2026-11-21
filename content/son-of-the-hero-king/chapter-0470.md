@@ -33,7 +33,7 @@ chapter = 470
 <p>Sol wasn’t naive enough to believe that just because he shared a bed with a woman it would mean that she would fall for him.</p>
 <p>But if there was one thing he knew, it was that he was quite possessive. Perhaps even more than he believed in the past and this feeling of possessiveness was growing by the day.</p>
 <p>“I like your frankness.”</p>
-<p>She nodded and looked up, “Well, unlike Medea and many others witches, I do not have a sad or heavy past I think. Fufufu~”</p>
+<p>She nodded and looked up, “Well, unlike Medea and many others witches, I do not have a sad or heavy past I think. Fufufu”</p>
 <p>Most of the witches chose to become a witch because they had no other options left for them in life. They all lived a life where they could only change or die.</p>
 <p>Kali, Medea, and Freya were all orphans who had been taken by Ambrosia one after another.</p>
 <p>But Persephone was a bit different than everyone else…</p>
@@ -59,7 +59,7 @@ chapter = 470
 <p>She chuckled. She was bored indeed. That was all. Nothing more, nothing less.</p>
 <p>“Mother heard about me and was quite curious. I guess she wanted to test making someone with talent a witch. To see if anything would be different.”</p>
 <p>“So… You accepted to sell your soul… Because you were bored?”</p>
-<p>“Fufufu~ When you say it like this it sounds quite stupid, doesn’t it?”</p>
+<p>“Fufufu When you say it like this it sounds quite stupid, doesn’t it?”</p>
 <p>She chuckled but there was no doubt nor regret in her life.</p>
 <p>“I hated it you know. I hated my life. A life where everything was already planned from the day I was born to the day of my death. I knew exactly what I would do the next day, what I would eat, who I would meet, and where I would go. The man who would become my husband, the day where I would give birth myself, and how many children I would have.”</p>
 <p>Mirth left her eyes as she continued in a cold lifeless tone, “A life where nothing exciting happens. A story that was so boring that even those who love calm stories would become bored by it. I hated it. Despised it. And loathed it with every fiber of my being. So… When Mother Ambrosia came up with a proposal, a way for me to finally write a new exciting story… I jumped in with no hesitation whatsoever.”</p>
@@ -79,7 +79,7 @@ chapter = 470
 <p>Sol looked at the smile on Persephone’s face and decided then and there to be very careful not to piss her off.</p>
 <p>“So, I hope my story was entertaining?”</p>
 <p>“It was. I —”</p>
-<p>Kyaaa~!</p>
+<p>Kyaaa!</p>
 <p>The shrill scream of a woman filled the forest and startled the birds as they flew away in a hurry.</p>
 <p>Sol's eyes shone with stars as he stood up in an instant, “We can discuss this later. No one does a thing. Medea, I am talking to you. No spell, no swords, or shadow. Nothing! I will take care of it this time.”</p>
 <p>Sol could smell it. The smell of a true adventure finally waved at him.</p>

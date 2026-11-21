@@ -17,9 +17,9 @@ chapter = 669
 <p>"I don't enjoy it that much either, but sometimes I crave it."</p>
 <p>"Really? I should try it sometime."</p>
 <p>Seizawa Shii and I had a light chat about drinks, and when the food came out, we ate in silence. The restaurant was quite good, which explained why Seizawa Shii was a regular.</p>
-<p>"Ah~! I'm moderately full. Ryuta-cchi, did you enjoy your meal?"</p>
+<p>"Ah! I'm moderately full. Ryuta-cchi, did you enjoy your meal?"</p>
 <p>"Yeah, this place is good. By the way, you used to tease me for being a glutton, but you deserve the glutton title too, you know?"</p>
-<p>"Aww~ Today is an exception. I skipped dinner and moved my body a lot, so I couldn't help it."</p>
+<p>"Aww Today is an exception. I skipped dinner and moved my body a lot, so I couldn't help it."</p>
 <p>"Okay. Should I order you something else?"</p>
 <p>"Then, for the finale... pudding!"</p>
 <p>Right, you have to make sure to get dessert for a high school girl. After ordering two puddings, we started the conversation we had been putting off.</p>
@@ -68,11 +68,11 @@ chapter = 669
 <p>So, socially, there was an atmosphere where one man dating multiple women wasn't a big problem, but unlike in Japan, marriage in chaebol families was mostly one-on-one. Since it was a combination of companies with money thicker than blood, there was no room for polygamy to intervene.</p>
 <p>"Then... I should go to the Amasang branch tomorrow."</p>
 <p>"Should I go with you?"</p>
-<p>"Ryuta-cchi, do you think I'm a child? I can go alone~!"</p>
+<p>"Ryuta-cchi, do you think I'm a child? I can go alone!"</p>
 <p>That was just like the independent Seizawa Shii. Seeing her living alone doing Odd Jobs since middle school, almost without any support from her family, was impressive.</p>
 <p>If I remember what Seizawa Shii told me before, she said that if she received support from her family, she would have to live as her family told her to, so she didn't receive support.</p>
 <p>"You're so admirable doing it alone."</p>
-<p>"Aww~ What is it~!"</p>
+<p>"Aww What is it!"</p>
 <p>She smiled and glared at me as I stroked her head, seemingly not disliking it. It was a bit of a shame that the atmosphere changed from soft and mushy to a mukbang atmosphere of eating soft and mushy pudding when the server brought the pudding.</p>
 <p>###</p>
 <p>-Kakan and Shiratsu are dead?</p>

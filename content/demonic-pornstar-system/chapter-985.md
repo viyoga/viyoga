@@ -79,7 +79,7 @@ chapter = 985
 <p>Kaiden looked at his first three over his cup, and the tea went down warmer than it should have. For once, the grin arrived second.</p>
 <p>"I remember thinking the miso was a splurge," he said.</p>
 <p>"Oh my god, don’t you two fucking start," Luna muttered, and ate on with sudden focus, ears pink.</p>
-<p>Aria leaned across the table with a nigiri in her fingers, no soy sauce, and lifted it to Kaiden’s mouth. "Say aaa~"</p>
+<p>Aria leaned across the table with a nigiri in her fingers, no soy sauce, and lifted it to Kaiden’s mouth. "Say aaa"</p>
 <p>He said aaa.</p>
 <p>"Only normies eat sushi with their hands," Luna recited, on schedule, the same tease she had fired at that original table.</p>
 <p>The master looked up from his counter and spoke his first full sentence of the evening. "The lady eats correctly."</p>

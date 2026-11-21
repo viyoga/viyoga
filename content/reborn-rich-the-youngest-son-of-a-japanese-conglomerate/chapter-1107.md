@@ -7,11 +7,11 @@ chapter = 1107
 
 <p>and chapter check contains erotic please surroundings this your</p>
 <p>After finishing the conversation with Taira Danjo Grandfather, as I came out of the conference room, Taira Yukiko, Linxiang, Nagumo Sian, and the phantom thief mother and daughter were together with an unexpected guest.</p>
-<p>"Teacher-nim~!"</p>
+<p>"Teacher-nim!"</p>
 <p>Konoe Akina ran and hugged me as soon as she saw me. It seemed she was quite happy to see me after a long time. Ah, she was the Head of Family of the Konoe Family. It seemed she participated in Taira Kitsumasa's funeral in her capacity as Konoe Head of Family.</p>
 <p>"Long time no see, Konoe. I thought you weren't coming since there was no word."</p>
 <p>As it was a Tairaga funeral, many guests from various prestigious families came to offer condolences, so I thought she would send a representative, but I never imagined Konoe Akina herself, the Head of Family, would come.</p>
-<p>"I came because I missed Teacher-nim~!"</p>
+<p>"I came because I missed Teacher-nim!"</p>
 <p>From what I heard, she said she was spending very busy time with university classes and Head of Family classes, so seeing her appear in person at Taira Kitsumasa's funeral, with whom she had no particular acquaintance, it seemed she really made time to see me.</p>
 <p>"Alright. Everyone has exchanged greetings, right?"</p>
 <p>Since most were meeting Konoe Akina for the first time, I asked. Judging by the fact that they were together waiting for me, it seemed they had already made Introductions and had some conversation, and when I asked, everyone nodded their Heads.</p>
@@ -70,9 +70,9 @@ chapter = 1107
 <p>"I like it too, Teacher-nim...!"</p>
 <p>"Certainly, if we eat a meal at the restaurant, the surrounding Gaze would be bothersome."</p>
 <p>Everyone agreed to my Proposal, so I called a servant and requested meal Preparation.</p>
-<p>Konoe Akina B-cut~!</p>
+<p>Konoe Akina B-cut!</p>
 <p>It was a funeral, but she wore unconventional fashion, so it was a bit difficult hehe.</p>
-<p>Chapter 58 Illustration Remake requested by Gojoy-nim~!</p>
+<p>Chapter 58 Illustration Remake requested by Gojoy-nim!</p>
 <p>1.</p>
 <p>2.</p>
-<p>Illustrations made with older models are not the concept that the models came out early or late, but rather a Feeling of different generations, so no matter how similar an Illustration you want, I cannot make it exactly the same~!</p>
+<p>Illustrations made with older models are not the concept that the models came out early or late, but rather a Feeling of different generations, so no matter how similar an Illustration you want, I cannot make it exactly the same!</p>

@@ -61,7 +61,7 @@ chapter = 629
 <p>,Did you have a delicious lunch, sensei-nim?"</p>
 <p>Their reactions are completely different. Minamoto Risa had a look on her face that said, "Don't tell me you did something lewd?" and Konoe Akina was looking at me with her usual kind expression.</p>
 <p>,The answer to Konoe's question is yes, I went to the school cafeteria for lunch again today. To answer Minamoto's question, if I came out of the counseling room, I obviously came out after counseling. What else would I be doing?"</p>
-<p>,I ate a packed lunch, sensei-nim~!"</p>
+<p>,I ate a packed lunch, sensei-nim!"</p>
 <p>,Ah.... That's right."</p>
 <p>I answered their questions in turn. Konoe Akina's reaction passed, and Minamoto Risa had a look on her face that said, "Oh, I see."</p>
 <p>,Did you guys come up here because of club activities?"</p>
@@ -71,7 +71,7 @@ chapter = 629
 <p>Ah, I see. I didn't know I had to report to the student council every month.</p>
 <p>,Okay, good luck. Are you picking out photos again today?"</p>
 <p>,Yeah. If we're a little strict, we'll probably finish picking out photos today."</p>
-<p>,Sensei-nim, you have to participate like yesterday~!"</p>
+<p>,Sensei-nim, you have to participate like yesterday!"</p>
 <p>It was fortunate that the annoying photo picking was ending today, but it was annoying that I had to participate again today. I nodded and told them to have a good time, then went down to the first floor with Urabe Konoka.</p>
 <p>,Are you going straight to the classroom?"</p>
 <p>,No, I'm going to stop by the bathroom first."</p>

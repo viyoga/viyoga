@@ -60,7 +60,7 @@ chapter = 1909
 <p>...</p>
 <p>The hymn came back slowly, from far below first, climbing tier by tier, and this time there was celebration in it. The forges burned brighter, and somewhere down the corridor, dwarves were already singing.</p>
 <p>"Three down," Serika said, rolling her shoulder, thoroughly satisfied with the night.</p>
-<p>"One more to go~" Kitsara chirped, five tails swaying.</p>
+<p>"One more to go" Kitsara chirped, five tails swaying.</p>
 <p>The tails stopped mid-sway.</p>
 <p>"Wait." The Slutty Foxy’s ears went flat. "We have to conquer my people!!"</p>
 <p>"Yeah," Quinlan hummed. "I have something quite special in mind."</p>

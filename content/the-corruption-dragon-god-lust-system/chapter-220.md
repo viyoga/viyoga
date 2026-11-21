@@ -5,11 +5,11 @@ weight = 220
 chapter = 220
 +++
 
-<p>“Ughnn~~ oghnn~~ aghnn~~” Tang Biyue’s gasping moans echoed, followed by the loud claps of her plump bubble butt hitting Qingyi’s lap, each impact sending shockwaves through the voluptuous flesh that bounced back before coming back at him.</p>
+<p>“Ughnn oghnn aghnn” Tang Biyue’s gasping moans echoed, followed by the loud claps of her plump bubble butt hitting Qingyi’s lap, each impact sending shockwaves through the voluptuous flesh that bounced back before coming back at him.</p>
 
 <p>She was already losing her mind, her eyes rolling back as a firm slap from Qingyi hit her ass, leaving a red mark on the pale, soft skin.</p>
 
-<p>“Mmm~~ heavens~~” she moaned as another orgasm hit her, Qingyi’s seed invading her womb and filling her to the brim one last time.</p>
+<p>“Mmm heavens” she moaned as another orgasm hit her, Qingyi’s seed invading her womb and filling her to the brim one last time.</p>
 
 <p>Her body shuddered and she lost her strength, collapsing onto the couch.</p>
 

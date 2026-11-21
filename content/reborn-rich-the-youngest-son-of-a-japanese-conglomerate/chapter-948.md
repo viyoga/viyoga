@@ -47,7 +47,7 @@ chapter = 948
 <p>"-What are you two fighting about?"</p>
 <p>This time, it was a hologram of Eve that appeared. Eve, whose android Main body was in Japan, often appeared as a hologram when she showed up at the Laboratory. Of course, she spent more time quietly doing her Work in cyberspace.</p>
 <p>"It's nothing, Eve."</p>
-<p>"-It is something, you know~!"</p>
+<p>"-It is something, you know!"</p>
 <p>Eve smiled as she watched the two bickering, but on another front, she was performing countless Calculations. The two bickering in front of her Eyes were probably doing the same.</p>
 <p>"-From what I've heard, Lara's Words are correct. You need to cultivate patience, Linling. It's not even a week, just two or three days, right?"</p>
 <p>Eve, who had already received and checked the conversation Data of the two, delivered her verdict. It was a reasonable verdict, but Linling's Expression, upon hearing it, instead turned to one of shock.</p>
@@ -57,7 +57,7 @@ chapter = 948
 <p>"Yes, if you compare it to a human, it's similar to a Blood Vessel in the Brain suddenly bursting. Do you want to suddenly become paralyzed and a burden while helping Yong-tae because of a defect, Linling? Of course, it would be negative, right?"</p>
 <p>Eve and Lara Sinclair had known each other for a long time, so they had great chemistry. Linling, seeing that, felt an unprogrammed Emotion of Frustrating rising within her, but since their Words weren't wrong, she had no choice but to endure.</p>
 <p>"-I get it, so stop it...!"</p>
-<p>Linling also knew there was nothing she could do, so all she could do was scream loudly. Linling, who had been huffing for a while, said, I'm going to pack my Luggage~! and disappeared. She had disconnected the hologram connection.</p>
+<p>Linling also knew there was nothing she could do, so all she could do was scream loudly. Linling, who had been huffing for a while, said, I'm going to pack my Luggage! and disappeared. She had disconnected the hologram connection.</p>
 <p>"-Even if Linling is cute, don't torment her too much, Lara."</p>
 <p>"What about you, then?"</p>
 <p>At Eve's Words, Lara Sinclair chuckled and retorted. At Lara's Words, Eve also smiled and replied, That's true.</p>
@@ -66,6 +66,6 @@ chapter = 948
 <p>Because Lara Sinclair's creator and Father, Caiden Sinclair, had failed in Business in the USA, re-entering the USA held a special meaning for Lara Sinclair.</p>
 <p>"Negative. Since our energy Guns have already swept the USA Market, Cyberware doesn't matter. My Goal remains to work harder so that TG Tech's Guns can become the standard issue Guns of the USA."</p>
 <p>As expected, perhaps because it wasn't a Gun business, Lara Sinclair didn't seem to have much Interest in Cyberware, the company she had established in the USA this time. Eve was satisfied with Lara Sinclair's Attitude.</p>
-<p>Linling B-cut~!</p>
-<p>MidNightSKY-nim requested when the original Alik and the current Alik meet~!</p>
-<p>The bigger one is the original Alexandra haha. That's because she underwent gaejo~! The last image, their Height is similar, but I uploaded it because I liked them pressing their breasts together haha.</p>
+<p>Linling B-cut!</p>
+<p>MidNightSKY-nim requested when the original Alik and the current Alik meet!</p>
+<p>The bigger one is the original Alexandra haha. That's because she underwent gaejo! The last image, their Height is similar, but I uploaded it because I liked them pressing their breasts together haha.</p>

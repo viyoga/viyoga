@@ -49,7 +49,7 @@ Lith was very turned on from this scene. He gave her one final look and laid bes
 
 Lilith looked at her kids do their thing from the side and she only smiled at their actions. This was a common occurrence for her. She used her free hand and made Lucy spread her legs upwards, giving Lith a nice comfortable position. She bent her head and sucked on Lucy’s lower lip.
 
-“Mhm~”
+“Mhm”
 
 Lucy moaned in pleasure as Lith reached deep inside her in one go. Lucy never got tired of this feeling. She backed her head off from her mother’s sucking and cupped her mother’s face and kissed her hungrily. This time, it was her who took the initiative to start a hot and passionate kiss. Lith kept thrusting his hips back and forth and also kneaded Lucy’s breast. Milk sprayed out onto his mother’s clothes but Lilith didn’t care about it.
 
@@ -63,7 +63,7 @@ Lilith bit onto one of Lucy’s nipple and pinched and twisted the other one. Sh
 
 Lith did as Lucy requested and kept going. After two minutes,
 
-“Ahh…Dear…I am cumming…cum- ohhhh~”
+“Ahh…Dear…I am cumming…cum- ohhhh”
 
 Lith bit onto her neck and started sucking her blood, prolonging her orgasm even more. Lucy moaned even more loudly and her body started squirming in pleasure.
 

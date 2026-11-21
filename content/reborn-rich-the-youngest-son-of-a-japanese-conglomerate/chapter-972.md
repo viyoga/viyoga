@@ -89,7 +89,7 @@ chapter = 972
 <p>"Let's go through the window."</p>
 <p>I held Yukiko and floated up with my psychokinetic flight ability. Yukiko also had wings and could fly, but she remained quietly in my arms with a happy expression.</p>
 <p>I opened the window to Yukiko's room on the second floor, went inside, and we immediately entered the Shower Room together. Naturally, I enjoyed Yukiko's pussy in the Shower Room as well. Since it had been so long, the shower sex wasn't the end, and even after the shower, we continued to make love.</p>
-<p>B-cut~!</p>
+<p>B-cut!</p>
 <p>Light practice.</p>
 <p>When I tried the doggy style posture, Yukiko's hairstyle kept appearing like this, making it hard to find a pleasing image, so it took a bit longer ㄷㄷ I guess I should refrain from doggy style in Succubus mode hehe.</p>
 <p>Gojoy-nim requested Yukiko 1. Seduction while taking off outer clothes, 2. Seduction while taking off underwear.</p>

@@ -13,7 +13,7 @@ chapter = 674
 
 <p>*Pop*</p>
 
-<p>“Aghn~~ what the hell did you do to me? I order you to, nghnnn~~” Xue Hua released his cock and, before she even had time to complain, let out a sweet, high-pitched squeal.</p>
+<p>“Aghn what the hell did you do to me? I order you to, nghnnn” Xue Hua released his cock and, before she even had time to complain, let out a sweet, high-pitched squeal.</p>
 
 <p>Qingyi’s strong hands closed around her waist and he sat down on the soft grass, pulling her onto his lap in one fluid motion.</p>
 
@@ -27,7 +27,7 @@ chapter = 674
 
 <p>He grabbed her right tit and squeezed, watching his fingers sink into the pale, milky flesh. His lips closed around the small, pink nipple on the left, tongue flicking across the stiffening bud.</p>
 
-<p>“mnhn~~ s-stop… you… pervert… sex demon, aghn~~”</p>
+<p>“mnhn s-stop… you… pervert… sex demon, aghn”</p>
 
 <p>Xue Hua moaned at the flood of sensations she wasn’t used to. Her whole body trembled as Qingyi’s tongue swirled around her nipple before his lips sealed tight, sucking sweetly, drawing the stiff bud deeper into the wet heat of his mouth.</p>
 

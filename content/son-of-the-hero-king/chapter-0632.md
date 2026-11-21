@@ -37,7 +37,7 @@ chapter = 632
 <p>“Let’s end this dark story.”</p>
 <p>The Wolf despite its lack of intelligence seemed to understand the intent behind his words and howled at the sky. Clearly, while he was afraid of Sol’s power, his instinct and desire to live overpowered his fear.</p>
 <p>As the howl went on, mana particles gathered in such high quantities that they became visible. The Wolf swallowed the condensed ball of light and then…</p>
-<p>Whoosh~!</p>
+<p>Whoosh!</p>
 <p>A beam of pure light was launched towards Sol at staggering speeds. The distance between Sol and Lupus was less than 20 meters, and at such distance, the attack might as well have been made point-blank.</p>
 <p>This was an attack fast enough that few people should have been able to respond to it and yet,</p>
 <p>?Boundaries of Spacetime -:: Slow?</p>

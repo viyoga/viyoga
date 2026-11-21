@@ -34,7 +34,7 @@ chapter = 203
 <p>Over the past few centuries, ever since the loss of her daughter and husband, she had isolated herself almost completely. Having something so pleasant to drink right after emerging from twenty years of seclusion was, in its own small way, a relief.</p>
 <p>She poured a glass for David and another for herself, the emerald liquid swirling softly as it filled each cup.</p>
 <p>"It was nothing of great importance, Your Majesty," David replied, accepting the glass with a discreet nod. "Just a degenerate brat, unable to control his own hands..."</p>
-<p>"Oh... really? You’ll just have to watch out for his mother, I suppose, fufufu~~" Ysara laughed gracefully, raising the glass to her lips.</p>
+<p>"Oh... really? You’ll just have to watch out for his mother, I suppose, fufufu" Ysara laughed gracefully, raising the glass to her lips.</p>
 <p>"That’s something I already know how to handle." David shook his head. "Now, why did you summon me here, Your Majesty?"</p>
 <p>Ysara didn’t answer the question right away, savoring the wine and letting the taste linger on her palate for a long moment.</p>
 <p>With a soft sigh, she set the goblet aside.</p>

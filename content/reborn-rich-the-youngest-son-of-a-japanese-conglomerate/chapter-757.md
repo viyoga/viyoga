@@ -21,9 +21,9 @@ chapter = 757
 <p>"Did you work hard in school today?"</p>
 <p>Opening the door and entering the special class Classroom, the Students were sitting quietly. They seemed eager to finish homeroom quickly and go up to the club room to plan next week's ski resort Travel.</p>
 <p>"Today's announcements are to Study hard because there's a Test the week after next.... Other than that, there's nothing special. So, Karen can leave right away, and shall the rest of us go up to the club room?"</p>
-<p>Everyone except Uenozono Karen, who couldn't go to the ski resort due to her Entertainment Industry schedule, went up to the club room with a "Wa~!", and I bid a "See you next week" to a slightly regretful Uenozono Karen and left the Classroom.</p>
+<p>Everyone except Uenozono Karen, who couldn't go to the ski resort due to her Entertainment Industry schedule, went up to the club room with a "Wa!", and I bid a "See you next week" to a slightly regretful Uenozono Karen and left the Classroom.</p>
 <p>"You. What are you doing this Weekend?"</p>
-<p>Not all the Students went up with a "Wa~!"; Minamoto Lisa was slowly packing her Bag and waiting for me, and as we went up to the second floor together, she asked me about my Weekend schedule.</p>
+<p>Not all the Students went up with a "Wa!"; Minamoto Lisa was slowly packing her Bag and waiting for me, and as we went up to the second floor together, she asked me about my Weekend schedule.</p>
 <p>"Hmm.... Nothing special? Just some certification Study?"</p>
 <p>"Then, spend one day of the Weekend on a Date with me."</p>
 <p>To say 'Date with me'-it was a Date application befitting a Young Lady of the Minamoto family. I nodded my Head at Minamoto Lisa's Words.</p>
@@ -39,14 +39,14 @@ chapter = 757
 <p>"It seems you want to Date me as soon as possible?"</p>
 <p>"Huh? I guess so."</p>
 <p>Minamoto Lisa, who seemed to have misunderstood something in my Answer, wore a deeply satisfied Smile, her Face slightly flushed, and quickened her steps, entering the club room before me.</p>
-<p>"Why are you so late, Ryuta-jji~?!"</p>
+<p>"Why are you so late, Ryuta-jji?!"</p>
 <p>No, I think I was about a minute late, is that late? When I made a bewildered Expression, Seizawa Shii laughed, "Peuheuh." It seemed she just asked if I was late to tease me.</p>
 <p>"Yes, Sorry for being late. But is there really a schedule to decide? We already decided where to go."</p>
 <p>Originally, Seizawa Shii had recommended an overseas location like Jungfraujoch in Switzerland, but when the ski resort was decided, it was right after the Cyber Zombie incident, a time when Trauma about overseas Travel was severe, so we chose a ski resort within Japan. And as a Result, the ski resort in Shiga Kogen, Nagano, was chosen. Honestly, wasn't that enough?</p>
-<p>"If we only ski, it'll be boring, so there are Hot Springs nearby, and we need to visit good restaurants, so we have to plan the schedule well~!"</p>
+<p>"If we only ski, it'll be boring, so there are Hot Springs nearby, and we need to visit good restaurants, so we have to plan the schedule well!"</p>
 <p>Seizawa Shii said, as if stifled. Indeed.... It's practically a 3-night, 4-day schedule, and if we only ski that whole time, it'll quickly get boring. It seemed she was suggesting we include Hot Springs or other activities in between.</p>
 <p>"Alright, first, let's all investigate what's in the vicinity."</p>
-<p>"Now you're acting like a proper Advisor Teacher~! You're cool, Ryuta-jji!"</p>
+<p>"Now you're acting like a proper Advisor Teacher! You're cool, Ryuta-jji!"</p>
 <p>When I sat down and stated the things to do, Seizawa Shii said with a satisfied Smile. In truth, I only had the title of Advisor Teacher, and since I mostly let the Students do what they wanted, I rarely took an active role. Konoe Akina, the Club President, Minamoto Lisa, the Vice President, and Shido Tsubaki, the Secretary, were the ones leading the club, and since the three of them led the Students so well, there was no need for me to step in.</p>
 <p>"Anyway, after investigating what's there, you'll list them in your preferred order and then decide where to go, so my involvement ends here."</p>
 <p>"Indeed.... It would be more satisfying for us to choose ourselves rather than going to a Place Ryuta-jji recommends...."</p>
@@ -57,7 +57,7 @@ chapter = 757
 <p>"Alik will have strawberry, Ryuta will have chocolate, it's delicious if we share...!"</p>
 <p>She even picked my menu. I didn't particularly love chocolate flavor, but I didn't dislike it either, so I nodded my Head.</p>
 <p>"Okay, let's share."</p>
-<p>"Yes. When Alik says 'Ah~', Ryuta eats. Ryuta also says 'Ah~' and feeds Alik."</p>
+<p>"Yes. When Alik says 'Ah', Ryuta eats. Ryuta also says 'Ah' and feeds Alik."</p>
 <p>It seemed she meant for us to feed each other. Alik offering me ice cream and Alik taking a bite of the ice cream I offered, both would be cute....</p>
 <p>"By the way, do we not have to go to the Cheongsim Hall today?"</p>
 <p>It suddenly occurred to me that Alik and Naruse Shiyo visited the Cheongsim Hall every day, so I wondered if they didn't have to go today and asked.</p>
@@ -75,8 +75,8 @@ chapter = 757
 <p>-Sakagami Rena: Understood, Liege/Master. Then I'll just change Clothes and go to your Home.</p>
 <p>Seeing Sakagami Rena's Message, I nodded my Head, then left the club room and headed towards the education preparation room.</p>
 <p>The Information about the unknown power Takakusaki Athena used and Takakusaki Gengo's Secret Mission was quite intriguing. I don't know what the newly arrived Information is yet, but I hope it can satisfy my curiosity.</p>
-<p>MidNightSKY-nim requested Taira Kanna, who was corrupted/darkened~!</p>
-<p>Hwanbuljeoldae-bulga-nim requested Leopard Bikini Home Economics Teacher, Kkan-Yuka~!</p>
-<p>Starting with the Home Economics Teacher~!</p>
-<p>Kkan-Yuka~!</p>
-<p>Kkiyoo-oot~!</p>
+<p>MidNightSKY-nim requested Taira Kanna, who was corrupted/darkened!</p>
+<p>Hwanbuljeoldae-bulga-nim requested Leopard Bikini Home Economics Teacher, Kkan-Yuka!</p>
+<p>Starting with the Home Economics Teacher!</p>
+<p>Kkan-Yuka!</p>
+<p>Kkiyoo-oot!</p>

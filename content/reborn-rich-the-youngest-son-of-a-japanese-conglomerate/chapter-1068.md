@@ -72,10 +72,10 @@ chapter = 1068
 <p>Kaiho Kyoichi tried to say save me, but it was already too late. This was because the Miko's fist, which had gathered the mysterious Aura of navy blue and purple color, did not allow him to finish saying save me.</p>
 <p>"This side is all taken care of. I hope Konoka's side is also taken care of well...."</p>
 <p>The Miko who was protecting the shrine, Hanakame, muttered as he looked at the siche of Kaiho Kyoichi, who had lost his Head.</p>
-<p>TheDreaming-nim requested Teacher Kajung 1. Covering her groin at the airport 2. Emphasizing her breast posture in the airplane~!</p>
+<p>TheDreaming-nim requested Teacher Kajung 1. Covering her groin at the airport 2. Emphasizing her breast posture in the airplane!</p>
 <p>1.</p>
 <p>2.</p>
 <p>I don't know if Teacher Kajung and Phone Ga Laura have bad compatibility, but her Face is getting smudged ㄷㄷ</p>
-<p>Gojoy-nim requested Yukiko 1. Talking in the car 2. Crying in the car~!</p>
+<p>Gojoy-nim requested Yukiko 1. Talking in the car 2. Crying in the car!</p>
 <p>1.</p>
 <p>2.</p>

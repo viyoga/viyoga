@@ -47,7 +47,7 @@ chapter = 568
 
 <p>Whether it was the other members of the Leon family or the Taiga family wanting to pull any tricks in the future, they would have to tread carefully.</p>
 
-<p>Nina smiled seductively and said with a playful pout, &quot;Whatever you want for repayment, I wouldn&#x27;t refuse. It&#x27;s just that you never come to see me~&quot;</p>
+<p>Nina smiled seductively and said with a playful pout, &quot;Whatever you want for repayment, I wouldn&#x27;t refuse. It&#x27;s just that you never come to see me&quot;</p>
 
 <p>When she acted coy like this, her voice was so cloyingly sweet it could make a person&#x27;s bones melt. If there was anything slightly off, it was that her pronunciation still carried that foreigner&#x27;s sluggish and peculiar accent.</p>
 
@@ -73,7 +73,7 @@ chapter = 568
 
 <p>So Luis was just going with the flow, using a gift from someone else to gain extra favor for himself.</p>
 
-<p>However, Luis still wore a mischievous grin as he said, &quot;Being so good to me? I might just be moved to death~&quot;</p>
+<p>However, Luis still wore a mischievous grin as he said, &quot;Being so good to me? I might just be moved to death&quot;</p>
 
 <p>Nina naturally knew the bastard was teasing her. She blushed, rolled her eyes, and said, &quot;Oh, stop pretending, okay? I just want Bella to accept you faster.&quot;</p>
 

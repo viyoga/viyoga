@@ -103,7 +103,7 @@ chapter = 466
 
 <p>Nancy’s tone was aggressively demanding.</p>
 
-<p>Luis hesitated slightly, worried they might start arguing. To his surprise, Deewa snatched the phone right out of his hand. While continuing to give him head, she let out a moan. &quot;Nancy~ You’re not here to catch your little sister’s man cheating, are you?&quot;</p>
+<p>Luis hesitated slightly, worried they might start arguing. To his surprise, Deewa snatched the phone right out of his hand. While continuing to give him head, she let out a moan. &quot;Nancy You’re not here to catch your little sister’s man cheating, are you?&quot;</p>
 
 <p>&quot;Hmph. I can’t be bothered with you two... you pair of shameless dogs.&quot;</p>
 

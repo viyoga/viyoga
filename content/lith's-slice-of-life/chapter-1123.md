@@ -67,7 +67,7 @@ Lan blinked in befuddlement while Yi and Yan did not question and went on top of
 
 After saying so, without giving her a chance to prepare herself, Lith pierced her tight asshole with his iron hard dick in one powerful thrust.
 
-"Ahhhhhh~"
+"Ahhhhhh"
 
 Luna felt pain, but couldn't be more ecstatic. She was in literal euphoria with the rough treatment and immediately had an orgasm.
 

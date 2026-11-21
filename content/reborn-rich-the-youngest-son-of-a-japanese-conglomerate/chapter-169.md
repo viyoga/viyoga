@@ -50,8 +50,8 @@ chapter = 169
 <p>"But how can Mister Jin defeat Enhanced Humans with his bare Hands? Is Mister Jin also an Enhanced Human?" Dickson asked me as he moved the Corpses. I shook my Head and spoke.</p>
 <p>"No, my Teacher is Fujigasaki Rinka. I should be able to defeat these kinds of gangsters."</p>
 <p>"Ooh! Rinka! Mister Jin is Master Rinka's Disciple...!" As an American, Dickson seemed to know Fujigasaki Rinka even better. His Appearance also suggested he liked martial arts, so he seemed to understand the meaning of being Fujigasaki Rinka's Disciple.</p>
-<p>"Now, I'll show you a magic show~!" Once all the Corpses were gathered in one Place, I told Han Yu-gyeong and Dickson, then activated a Magic Circle and offered them as tribute to Simyeonui ttal. A black mouth emerged from the Ground and swallowed all the Corpses, astonishing Dickson and Han Yu-gyeong.</p>
-<p>"Jjajan~!"</p>
+<p>"Now, I'll show you a magic show!" Once all the Corpses were gathered in one Place, I told Han Yu-gyeong and Dickson, then activated a Magic Circle and offered them as tribute to Simyeonui ttal. A black mouth emerged from the Ground and swallowed all the Corpses, astonishing Dickson and Han Yu-gyeong.</p>
+<p>"Jjajan!"</p>
 <p>"I've seen Superhumans even during the War, but Mister Jin is also a Superhuman...! What an amazing day...!"</p>
 <p>"It's a Secret, so don't tell anyone." When I put my Index Finger to my lips and told Dickson, Dickson nodded his Head with a Serious Expression. I could trust someone like Dickson. He would continue to be Han Yu-gyeong's Gyeonghowon and wouldn't go to other factions to talk about me.</p>
 <p>"Are you alright?" After all the Corpses were dealt with, I Yeon-ju and the Vanguard agents, who had heard the Gunshot, rushed over. They seemed very surprised, perhaps because the area in front of the main gate was completely bloody.</p>

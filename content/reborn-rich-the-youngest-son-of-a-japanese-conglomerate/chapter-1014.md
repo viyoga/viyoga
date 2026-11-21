@@ -68,9 +68,9 @@ chapter = 1014
 <p>"Ah, Sleep Gas...!"</p>
 <p>This had never happened before, but it seemed that he had stuck his Face out of Curiosity and smelled the Sleep Gas. Sakagami Rena shook her Head with an Absurd Expression and headed to where the vehicle she had been riding was.</p>
 <p>Since Hamutaro was a ferret of Bloodline specially made by the Sakagami Family for generations, Hamutaro would not be harmed by the Sleep Gas, but she thought that she should go to an animal hospital just in case, so she ran urgently.</p>
-<p>Arisu sending erotic gazes in her underwear, requested by Gojoy-nim, and Han Yu-gyeong recalling her first meeting with Ryuta~!</p>
-<p>Arisu~!</p>
-<p>Han Yu-gyeong~!</p>
+<p>Arisu sending erotic gazes in her underwear, requested by Gojoy-nim, and Han Yu-gyeong recalling her first meeting with Ryuta!</p>
+<p>Arisu!</p>
+<p>Han Yu-gyeong!</p>
 <p>I made it with the feeling of recalling with her Chin propped up, but the Atmosphere doesn't come out well ㄷㄷ</p>
-<p>Bonus cut from making Liz's naked body shirt a few days ago~!</p>
+<p>Bonus cut from making Liz's naked body shirt a few days ago!</p>
 <p>T-shirt Silhouette hehe. I didn't upload it because it didn't match the Request, but I liked it, so I'm uploading it today when there aren't many Requests hehe.</p>

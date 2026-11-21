@@ -90,7 +90,7 @@ chapter = 680
 <p>It was quite a welcome home, even though it had only been a few hours. I put my phone in my pocket and went inside the house.</p>
 <p>___________</p>
 <p>I changed the cover after a long time hehe</p>
-<p>Recently, I've noticed covers that are made of several scenes as GIFs, so I tried it myself, but I don't know if it'll be okay. Instead of GIFs, I'll upload them one by one here~!</p>
+<p>Recently, I've noticed covers that are made of several scenes as GIFs, so I tried it myself, but I don't know if it'll be okay. Instead of GIFs, I'll upload them one by one here!</p>
 <p>Minamoto Risa without a tan.</p>
 <p>Chun Harin in sexy lingerie. A little disappointing is that it's supposed to be purple eyes, but it came out red ddd</p>
-<p>TG Tech gun model Arisu~!</p>
+<p>TG Tech gun model Arisu!</p>

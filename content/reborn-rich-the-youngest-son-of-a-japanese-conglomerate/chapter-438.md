@@ -6,7 +6,7 @@ chapter = 438
 +++
 
 <p>"Class is over."</p>
-<p>"Wah~! I'm hungry~!!"</p>
+<p>"Wah! I'm hungry!!"</p>
 <p>"What's for lunch today?!" After the last class before lunch break ended, the Students of the special class all stood up with a rush. Because the special class still didn't have a very good reputation among the Teachers, the Teacher of the calligraphy class just now, as soon as class ended, immediately left the Classroom even before the Students could stand up. Tang!</p>
 <p>""Kyaaak!"" At the sudden Gunshot, Oofuchi Erika and Naruse Shiyo, especially the faint-hearted in the class, screamed. The remaining Students Flinched, but they didn't Scream. Konoe Akina, who knew the Possibility of an Attack, stood up from her Seat and decided to calm her classmates.</p>
 <p>"Since a sound was heard from Outside, let's not go out first and wait inside. Our school's Security Guards aren't bad, so it will be resolved soon." At Konoe Akina's Words, the murmuring Classroom gradually began to calm down. Minamoto Risa, the Class president, and Shido Tsubaki made a Phone Call to find out what was happening.</p>

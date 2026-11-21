@@ -37,7 +37,7 @@ Lith's hand was at the bottom, touching the soft forbidden fruit. He rubbed his 
 
 Lith slapped Lilith's pussy and bit her lower lip. "You need to be punished too for kissing my maid and not your husband first."
 
-"Mmm~"
+"Mmm"
 
 Lilith wrapped her arms around Lith's wide back and moaned in agreement. She definitely deserved some punishment for such a scandal! Watching her agree, Lith stopped what he was doing and brought his face down towards her breasts. Two pink pearls were swaying atop supple heavenly mountains. He blew cold air on one of the nipples, making a tingle run down her body. She moaned and tried to cover her tits, but Lith held her hands and pinned them above her head.
 
@@ -77,7 +77,7 @@ After a few minutes of playing with her, Lith flipped her around and put her on 
 
 Squeezing her plump ass tightly, he spread them and thrust his shaft into her dripping wet vagina, right away hitting her sweet spots.
 
-"Ohhhh~!" Lilith moaned and fell on Lith's chest. She felt new levels of pleasure along with a sense of satisfaction. The satisfaction of knowing her boy knew all her weak spots and could hit them with one single try!
+"Ohhhh!" Lilith moaned and fell on Lith's chest. She felt new levels of pleasure along with a sense of satisfaction. The satisfaction of knowing her boy knew all her weak spots and could hit them with one single try!
 
 Pah! Pah! Pah!
 
@@ -107,7 +107,7 @@ Luna gulped nervously after saying so. Although the task was really easy, it fel
 
 PAH!
 
-"Ohhh~"
+"Ohhh"
 
 Lith spanked Lilith's ass and shoved his shaft back into her dripping honeypot. He looked his mother in the eyes and said, "If you let her loosen you, you're going to be punished. The punishment would be worse than Luna's. Consider it a special family offer made just for you."
 

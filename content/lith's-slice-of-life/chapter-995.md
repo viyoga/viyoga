@@ -175,7 +175,7 @@ The corner of Lilith's lips curved up. 'Quick to find out, as always.'
 
 Lith licked his lips and continued with a questioning gaze, "Why does it have a familiar sweet taste? You don't taste this kind of sweet anywhere, mom."
 
-Lilith took a sip of her tea again. "Hmm… I wonder why too~…"
+Lilith took a sip of her tea again. "Hmm… I wonder why too…"
 
 Instead of asking her again, Lith turned to look at Qingyue. Her face slightly reddened and she tried to avert her gaze.
 

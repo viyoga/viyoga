@@ -99,6 +99,6 @@ chapter = 704
 <p>But everyone's eyes started to light up at Lara Sinclair's words, which gave them hope that they could survive.</p>
 <p>______</p>
 <p>Lara Sinclair!</p>
-<p>The old model for making Lara Sinclair was unstable, so I made a new model~!!</p>
+<p>The old model for making Lara Sinclair was unstable, so I made a new model!!</p>
 <p>For some reason, when I practice with the new model, I want to dress her in a swimsuit hehe.</p>
 <p>IF Story: Lara Sinclair infiltrates a casino to help TG Tech, which is in financial trouble hehehe.</p>

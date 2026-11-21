@@ -82,7 +82,7 @@ chapter = 2020
 <p>She gathered the black silk around her hips and lifted it to her waist.</p>
 <p>The panties beneath were plain, black, and...</p>
 <p>Quinlan looked.</p>
-<p>"Wait, you’re wet, aren’t you~"</p>
+<p>"Wait, you’re wet, aren’t you"</p>
 <p>Black Fang hooked both thumbs beneath the waistband. Two sharp pulls tore the sides apart, and she gathered the damp garment into her fist while looking down at him with the perfect expression of an unhinged assassin about to make her kill.</p>
 <p>"Why is it that you’re always so composed in public, but when you’re alone with me, you can’t stop speaking nonsense?"</p>
 <p>Quinlan opened his mouth to reply, but before he could utter a single word more, she pushed the balled panties between his lips.</p>

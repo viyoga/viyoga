@@ -99,7 +99,7 @@ chapter = 716
 
 <p>She’d always been naughty, and their first real interaction had been Qingyi spanking her butt.</p>
 
-<p>“Ah~ hubby spanked me so hard that day!” she exclaimed, jumping up from her bed with an excited hop.</p>
+<p>“Ah hubby spanked me so hard that day!” she exclaimed, jumping up from her bed with an excited hop.</p>
 
 <p>A big smile played on her blood-red lips, and a mischievous gleam shone in her eyes of the same color.</p>
 

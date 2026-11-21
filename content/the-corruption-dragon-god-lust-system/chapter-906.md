@@ -87,7 +87,7 @@ chapter = 906
 
 <p>He finally released them after a moment of savoring those sweet gasps, taking a step back with a mischievous smile on his lips.</p>
 
-<p>"Nghnn~~ you naughty husband! Couldn’t you see we were having a moment?" Ruxue complained, turning around suddenly.</p>
+<p>"Nghnn you naughty husband! Couldn’t you see we were having a moment?" Ruxue complained, turning around suddenly.</p>
 
 <p>Her full breasts bounced violently with the movement, colliding against each other with a soft, muffled clap before rebounding into place.</p>
 

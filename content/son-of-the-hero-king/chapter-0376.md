@@ -13,7 +13,7 @@ chapter = 376
 <p>He slid the bikini bottom aside to take a look at her marvelous pussy. It had a lovely color and texture to it. It was of a pure pink color. The exterior glistened with leaking strings of love nectar, splattering all around her pussy lips in a sticky show of her arousal. This was explicit proof that…despite the hard shell she usually put up around her, she was still a sexual being, at the end of the day.</p>
 <p>She also had carnal needs, even though she was too shy and proud to show it openly.</p>
 <p>“Heh. It’s twitching in the lewdest way Kiyo.”</p>
-<p>“Kuh~”</p>
+<p>“Kuh”</p>
 <p>His indecent commentary made her clench her teeth in utter humiliation but she did not retaliate in the slightest nor did she even try to escape from his depraved clasps. Sol loved this scene immensely. Words weren't enough to describe the glee and high he felt right now. There was just this side to him… He just loved watching this straight-laced woman fight and lose against her pleasures as she fully surrendered her everything to him.</p>
 <p>He pushed the throbbing, sensitive head against the soft opening of her tight and pure arousal and felt his member slowly sinking into the pleasant warmth of her most secretive place.</p>
 <p>Her beautiful curved back quivered from pleasure and her beautiful blue hair spilled down across her cheeks.</p>
@@ -39,7 +39,7 @@ chapter = 376
 <p>This position placed her full weight on it, so it had to be a powerful momentum that would hit her deepest depths to make her feel the most amount of pleasure.</p>
 <p>He would pull her body down so far her legs had to spread wide and he would thrust up into her at the same time. He took her arms to make sure all of his thrusting force entered her.</p>
 <p>Her body trembled in his grasp and she cried out, finally unable to stop herself.</p>
-<p>“Sol~ ”</p>
+<p>“Sol ”</p>
 <p>His name being muttered with her oh-so-sweet voice made him feel like he was the king of the world. As if he had just won an important prize in the most prestigious tournament of the century.</p>
 <p>With the three phoenixes’ caresses driving him mad, Sol let his lust take over and roughly thrust his hips with no technique whatsoever.</p>
 <p>He had done his best to last as long as possible, but he finally reached climax and his manhood exploded inside the vagina of the Dragon Queen.</p>

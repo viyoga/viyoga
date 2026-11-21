@@ -107,7 +107,7 @@ chapter = 705
 
 <p>“I’m sorry about your palace, adoptive mother. I didn’t think the heavens would react so violently to my advancement.”</p>
 
-<p>“It’s all right, dear. I also destroyed the celestial fairy’s old palace in my advance to the realm of the Stellar Sovereign, fufufu~♡” Rouxi spoke with a melodious giggle, leaving the bed and trying to hide the dampness glistening between her legs.</p>
+<p>“It’s all right, dear. I also destroyed the celestial fairy’s old palace in my advance to the realm of the Stellar Sovereign, fufufu♡” Rouxi spoke with a melodious giggle, leaving the bed and trying to hide the dampness glistening between her legs.</p>
 
 <p>Ever since that contact with Qingyi, her body had felt strange, hot.</p>
 

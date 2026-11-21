@@ -7,7 +7,7 @@ chapter = 33
 
 <p>She was literally performing the deed entirely of her own free will... although Owen used the ’Wish’ thingy, it was her own volition to squat down.</p>
 
-<p>&quot;Then I guess it’s settled. How about we keep maintaining this little dirty secret of ours Aunt, I know you are incredibly pent up, so this will remain strictly between us okay~&quot; Owen shamelessly proposed the arrangement...</p>
+<p>&quot;Then I guess it’s settled. How about we keep maintaining this little dirty secret of ours Aunt, I know you are incredibly pent up, so this will remain strictly between us okay&quot; Owen shamelessly proposed the arrangement...</p>
 
 <p>It’s the greatest proposal ever recorded in history.</p>
 
@@ -75,7 +75,7 @@ chapter = 33
 
 <p>&quot;Cough... cough... As long as it makes you happy, Little Wen.&quot; She smiled up at him, having successfully swallowed every bit of his release, savoring the taste as if it were a rich, warm tea to start her day.</p>
 
-<p>&quot;Hehe... I don’t think I’m quite satisfied yet, Auntie. As you can see, I’m still rock-hard~&quot; Owen pointed out his throbbing buddy, which was still slick with a few remaining drops of fluid.</p>
+<p>&quot;Hehe... I don’t think I’m quite satisfied yet, Auntie. As you can see, I’m still rock-hard&quot; Owen pointed out his throbbing buddy, which was still slick with a few remaining drops of fluid.</p>
 
 <p>’W-what...it’s really incredible...even though the thick load Little Wen release was so much, yet it’s still so hard, just like yesterday...’ her thoughts were basically hijacked by the &quot;Wakong&quot; staff that’s right in front of her face.</p>
 
@@ -83,7 +83,7 @@ chapter = 33
 
 <p>&quot;Fufu... then I suppose I have no choice...&quot; Morenne leaned back down, slurping up the stray moisture and licking along the underside of his erect cock.</p>
 
-<p>&quot;Clean my balls, Auntie... don’t stop until everything is completely spotless, okay~&quot; Owen was deeply satisfied with her total submission.</p>
+<p>&quot;Clean my balls, Auntie... don’t stop until everything is completely spotless, okay&quot; Owen was deeply satisfied with her total submission.</p>
 
 <p>’ I think I won’t be able to live if I can’t get another blowjob like this. Argh...it’s just too good!’</p>
 
@@ -95,6 +95,6 @@ chapter = 33
 
 <p>Talk no jutsu really works...now he is believing the guy with orange hair for the first time.</p>
 
-<p>&quot;Okayyy~ Lick... lick... lick...&quot; She took his lower part, the balls into her mouth, suckling gently until her cheeks caved in.</p>
+<p>&quot;Okayyy Lick... lick... lick...&quot; She took his lower part, the balls into her mouth, suckling gently until her cheeks caved in.</p>
 
 <p>The full display of a hungry MILF in the Village.</p>

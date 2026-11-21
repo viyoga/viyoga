@@ -24,7 +24,7 @@ chapter = 198
 <p>Bastet finally chimed in as she tilted her head thoughtfully. "I don’t know much about human familial customs, but I’m pretty sure it’s not standard practice for the mother to have to pry her daughter off her son while she’s screeching about rather dying than being separated ever again."</p>
 <p>Kaiden gave her a flat look.</p>
 <p>"Thanks for the insight, Professor Bastet."</p>
-<p>She gave him a feline grin. "I just voiced an innocent observation of mine, Master~"</p>
+<p>She gave him a feline grin. "I just voiced an innocent observation of mine, Master"</p>
 <p>He looked to the rest: Nyx’s amused smirk, Luna’s mischievous glint, Aria’s concerned brows, Bastet’s smug neutrality.</p>
 <p>None of them looked ready to drop the subject.</p>
 <p>They weren’t judging him. But they weren’t pretending this was normal either. Kaiden sighed the third time, heavier than ever before.</p>

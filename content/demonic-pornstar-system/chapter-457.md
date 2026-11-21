@@ -66,7 +66,7 @@ chapter = 457
 <p>Then Bastet stepped forward. The Solar Empress lifted one hand.</p>
 <p>*WHOOMPH!* A spear of condensed sunlight tore through the cannon.</p>
 <p>Then came Calypso.</p>
-<p>The demoness licked her lips, saying, "I much prefer fighting living beings who will cry and bleed when I slash them up, but it is what it is, I suppose... I won’t ruin my debut by being a whiny woman~" she purred, gripping her massive axe.</p>
+<p>The demoness licked her lips, saying, "I much prefer fighting living beings who will cry and bleed when I slash them up, but it is what it is, I suppose... I won’t ruin my debut by being a whiny woman" she purred, gripping her massive axe.</p>
 <p>She lunged.</p>
 <p>Her axe struck a golem’s knee. Metal shrieked, yet it held. It swung a fist at her.</p>
 <p>She didn’t dodge.</p>

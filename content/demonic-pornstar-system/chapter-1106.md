@@ -79,7 +79,7 @@ chapter = 1106
 <p>"Get your hands off me!"</p>
 <p>Edmund tried to retreat toward the bus, but a third fighter caught his upper arm and steered him after the others. Vespera watched in silence as they were marched toward the guardpost by the perimeter gate.</p>
 <p>Bastet lifted her hands beside her cheeks as the silver-haired man passed, curling her fingers into little paws. Her ears tipped forward.</p>
-<p>"Goodbye, nya~"</p>
+<p>"Goodbye, nya"</p>
 <p>A father waiting with his daughter burst out laughing. The man who had called her an overgrown alley cat turned crimson as others joined in. He tried to stop, but the fighter holding his arm kept him walking.</p>
 <p>Calypso jumped back to Kaiden’s side while the staff resumed admitting the waiting families to reception. Bastet followed, landing with a chime of anklets before stretching out along the roof’s edge with her head across his lap.</p>
 <p>"Thank you for protecting me from those cruel people, Master..."</p>

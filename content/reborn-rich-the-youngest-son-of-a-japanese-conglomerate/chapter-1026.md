@@ -16,7 +16,7 @@ chapter = 1026
 <p>600 people went north? If you add the 200 people Kujo Kina's team just dealt with, they mobilized a whopping 800 Combatants. Indeed, with other underworld organizations almost shattered now, the only organization that could mobilize this many people was the Obsidian Syndicate.</p>
 <p>"I'll have to check this with AmSang."</p>
 <p>With an Expression as if she had caught a clue, Kujo Kina picked up the phone. Because the AmSang App had a chat feature that could connect directly with Eve, Kujo Kina immediately informed Eve of the current Situation via chat.</p>
-<p>Buuuuung~!</p>
+<p>Buuuuung!</p>
 <p>As soon as Kujo Kina informed her of the Situation, the phone rang. It seemed Eve, wanting to hear more details about the Situation, had made the Phone Call. Kujo Kina muttered, 'She's certainly in a hurry, isn't she?' and then answered the phone.</p>
 <p>-Kujo-ssi, it's Eve. I'd like to hear a bit more about the current Situation.</p>
 <p>"The content I sent in the Text Message is everything, so there's not much more to tell in detail, is there? When Teacher's team and our team arrived at the port, nearly 200 people attacked, and we dealt with them, and when we interrogated the Guys who survived, only the name Obsidian Syndicate came out."</p>
@@ -85,11 +85,11 @@ chapter = 1026
 <p>2.</p>
 <p>Actually, the requested Intimate Posture had a similar structure to breast-covering, so I tried to modify it a bit, but the one-hand breast emphasis Intimate Posture didn't come out well haha.</p>
 <p>Gojoy-nim requested: Mimata Chieri Chapter 26 introducing the company while walking around Chapter 27 having a meal together in the company restaurant</p>
-<p>26~!</p>
+<p>26!</p>
 <p>I made it with the feeling of explaining, pointing here and there, saying 'this is here and that is there' haha.</p>
 <p>However, the prompt for pointing has over a 90% probability of pointing straight ahead, so if I receive a similar Request next time, I'll have to make it in a different way haha. I did a lot of Gacha haha.</p>
-<p>27~!</p>
+<p>27!</p>
 <p>Kyuut</p>
-<p>Chomisaemeonji-nim requested: Liz playing in the water in the Great River, Liz Dancing~!</p>
-<p>Playing in the water~!</p>
-<p>Dancing~!</p>
+<p>Chomisaemeonji-nim requested: Liz playing in the water in the Great River, Liz Dancing!</p>
+<p>Playing in the water!</p>
+<p>Dancing!</p>

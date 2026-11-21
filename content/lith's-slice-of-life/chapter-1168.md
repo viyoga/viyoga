@@ -51,7 +51,7 @@ He felt her panties covering her most delicate place and parted them to the side
 
 Using his middle two fingers, he skillfully parted the lewd sect master's pussy and caressed her sensitive clit, making her tremble.
 
-"Mhm~" Qingshan let out a soft moan.
+"Mhm" Qingshan let out a soft moan.
 
 Keith was unfazed by this and was busy watching a vendor push a cart of cabbages and selling it to loud women with extremely high bargaining skills.
 

@@ -8,7 +8,7 @@ chapter = 769
 <p>She circled me, the click of her heels echoing off the stone, each step deliberate. Slow. Torturously so.</p>
 <p>Her fingers grazed my skin again, trailing along my shoulder, my chest, down my side. Never lingering, never satisfying. Every touch was a tease, a promise left unfulfilled.</p>
 <p>A low hum vibrated in her throat as she walked around me, and the mana in the air shifted: no longer just heavy with anticipation, but now electric. Charged. Hungry.</p>
-<p>"I wonder~” she mused aloud, her voice a low purr, how long you can last~”</p>
+<p>"I wonder” she mused aloud, her voice a low purr, how long you can last”</p>
 <p>I opened my mouth to answer, to let her know who was the boss, but quickly closed it again. My brain was currently being overloaded with a myriad of horny and conflicting thoughts, I knew if I were to speak now, I would stutter, giving Vex even more ammunition to keep the momentum of the situation in her grasp.</p>
 <p>She didn’t give me the time to recollect myself.</p>
 <p>I froze when I felt it.</p>
@@ -31,7 +31,7 @@ chapter = 769
 <p>I barely had time to think, barely had time to breathe, before she switched sides with motions that were fluid as a shadow, her breasts hiding behind the corset intimately brushing against my chest as she moved to my other ear. Ꞧἁ𝐍ƟᛒÊṧ</p>
 <p>"You look so adorable, Quinnie… Like a puppy who does his best to be on his best behavior despite a delicious, aromatic meal being placed in front of him, loyally waiting for its master’s permission to begin feeding Vex whispered again, her breath hot and sweet and wrong in all the best ways, before she began grinding against me — slow, deliberate, sensual motions that made my cock throb so hard it hurt.</p>
 <p>The friction was maddening, dragging another broken breath from my lips, though it might be better described as a strangled growl that was caught in my throat.</p>
-<p>Then, like she was rewarding me for being her good pup, she patted my head and purred, “What a good boy~”</p>
+<p>Then, like she was rewarding me for being her good pup, she patted my head and purred, “What a good boy”</p>
 <p>I huffed a shaky breath, fighting the wild urge to flip her onto her back and rail her into the stone floor. Somehow, somehow, I managed to keep my hands locked in place. Barely.</p>
 <p>Why did I not make my move?</p>
 <p>First, the atmosphere made everything hard on my brain; all the blood in my body was rushing toward my lower half, which demanded all the fuel it could get.</p>
@@ -42,6 +42,6 @@ chapter = 769
 <p>"I was playing into your hand, Quinnie, letting you dictate the pace. Letting you think you were the big bad wolf taking the poor, helpless sheep called Vex home</p>
 <p>She chuckled darkly, leaning in closer just enough for her breath to fan across my lips.</p>
 <p>"But now that we’re home, now that we’re in my domain she sighed, letting a fulfilled breath leave her lips. “Ah, Control… How awesome it is to have you back on my side.”</p>
-<p>Her smile widened into something downright carnal. “Hubby~ your eyes are locked onto me like you couldn’t tear them away even if your life depended on it~”</p>
+<p>Her smile widened into something downright carnal. “Hubby your eyes are locked onto me like you couldn’t tear them away even if your life depended on it”</p>
 <p>My cock twitched so violently at her words that even she couldn’t keep ignoring it. Vex’s gaze flicked downward. Her smile turned downright predatory.</p>
-<p>"My~ my~” she said with a mock gasp, hand brushing teasingly along my stomach. “It looks like you’re about to explode~”</p>
+<p>"My my” she said with a mock gasp, hand brushing teasingly along my stomach. “It looks like you’re about to explode”</p>

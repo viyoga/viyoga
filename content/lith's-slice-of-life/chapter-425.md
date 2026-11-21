@@ -103,7 +103,7 @@ Lith didn't want his wife to be seen like a villain. Everything happening here w
 
 Arya looked at Lith and saw him smile at her. He leaned forward and gently kissed her forehead.
 
-Arya's face became bright like a cherry blossom again and she said, "I'll murder him~"
+Arya's face became bright like a cherry blossom again and she said, "I'll murder him"
 
 "Yes, yes. Good luck." Lith nodded and agreed with whatever Arya had planned for his assassin.
 

@@ -88,15 +88,15 @@ chapter = 1060
 <p>Fujigasaki Rinka's Face rapidly turned pale, and then she started vomiting Blood. It seemed that even without using the Abyss, moving itself was too much for her.</p>
 <p>"Sabu!"</p>
 <p>I hurriedly ran to Fujigasaki Rinka and picked Sabu up.</p>
-<p>Gojoy-nim requested Han Yu-gyeong having a Conversation Inside the car and Han Yu-gyeong opening the hotel door~!</p>
-<p>Inside the car~!</p>
+<p>Gojoy-nim requested Han Yu-gyeong having a Conversation Inside the car and Han Yu-gyeong opening the hotel door!</p>
+<p>Inside the car!</p>
 <p>When I put in a shoe prompt, she somehow puts her Feet on the Sheet to show the shoes lol.</p>
-<p>Opening the hotel door~!</p>
-<p>MidNightSKY-nim requested phantom thief Mother and daughter wearing erotically modified phantom thief costumes~!</p>
-<p>Arisu~!</p>
+<p>Opening the hotel door!</p>
+<p>MidNightSKY-nim requested phantom thief Mother and daughter wearing erotically modified phantom thief costumes!</p>
+<p>Arisu!</p>
 <p>Nae</p>
 <p>When erotically modifying the cyber Suit, I couldn't think of anything other than Cleavage, so I only made Cleavage hehe.</p>
-<p>TheDreaming-nim requested Herta Vogel at the observatory 1. Arm tied state 2. With limbs tied, breasts shaking~!</p>
+<p>TheDreaming-nim requested Herta Vogel at the observatory 1. Arm tied state 2. With limbs tied, breasts shaking!</p>
 <p>1.</p>
 <p>2.</p>
 <p>Why is the color of the rope tying her limbs like this haha.</p>

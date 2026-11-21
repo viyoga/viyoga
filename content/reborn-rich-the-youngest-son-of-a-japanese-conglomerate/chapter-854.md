@@ -18,13 +18,13 @@ chapter = 854
 <p>After finishing counseling, I spent Time with the Students in the club room, and when it was Time, I returned Home. In front of the Home, two Delivery Boxes from Am-sang had arrived.</p>
 <p>After taking the Boxes inside and washing up, I waited for Urabe Konoka and Konoe Akina, and soon after, both of them came to my Home together. Seeing that both were in casual Clothes, it seemed they had stopped by their Homes and come straight here.</p>
 <p>"You're here?"</p>
-<p>"Yes~!"</p>
-<p>"You said you'd give us Gifts, so we came quickly~!"</p>
+<p>"Yes!"</p>
+<p>"You said you'd give us Gifts, so we came quickly!"</p>
 <p>After telling the two Students to sit down, I took out orange juice and brought it over. After pouring a Glass of juice for each of them, I brought the Boxes.</p>
 <p>"I'll give them to you one by one."</p>
 <p>I decided to give them one by one, also to check the Item Info Window. Actually, since the Gifts weren't going to run away no matter how they were given, both Female Students smiled and nodded their Heads.</p>
 <p>"I just received them by Delivery today, so I couldn't wrap them separately."</p>
-<p>"No~! We're happy just to receive the Gifts!"</p>
+<p>"No! We're happy just to receive the Gifts!"</p>
 <p>I took the larger of the two Boxes and handed it to Urabe Konoka. As expected of an Am-sang Order, it didn't explicitly state what was delivered, but since a Bow is larger than Glasses, I assumed the big Box was for Urabe Konoka.</p>
 <p>Jiiik.</p>
 <p>When I peeled off the Box Tape, a black synthetic Plastic Box was inside. The Box had B&amp;C, the symbol of Bow &amp; Cross Co., embossed on it. When I took out and opened the Box, it was designed for assembling a Bow.</p>
@@ -41,7 +41,7 @@ chapter = 854
 <p>I was worried it might be a fake, but seeing it properly displayed in the Item Description Window, it seemed to be genuine. The Grade was quite high, and the options weren't bad, but there was one thing I was worried about.</p>
 <p>The Strength Limit was 10, and I was worried if Urabe Konoka would actually be able to draw the Bowstring. Of course, there was a motor auxiliary Device to help draw the Bow, but the problem was that she needed to be strong enough even with that included.</p>
 <p>"Can you draw the Bowstring?"</p>
-<p>"Yes~!"</p>
+<p>"Yes!"</p>
 <p>To my Question, Urabe Konoka easily drew the Bowstring as if it were not difficult. A whirring sound was heard as the auxiliary motor helped pull the Bowstring, and the Bow bent. She pulls it easier than I thought?</p>
 <p>Hmm.... Indeed, as a Shrine Maiden responsible for Lizhael's descent, Urabe Konoka's physical Body Abilities must have greatly developed since she was Simyeonui ttal to withstand the powerful Divinity of an Outer God.</p>
 <p>"Thank you, Teacher-nim! It's clearly a really good Bow, isn't it?"</p>
@@ -89,10 +89,10 @@ chapter = 854
 <p>"It's Time to repay you for the Gifts, Teacher-nim♥"</p>
 <p>"I'll make you feel good♥"</p>
 <p>Both looked at me with lewd Eyes and slowly approached me. With this kind of Reaction, giving Gifts is truly rewarding. I smiled, anticipating the Service Urabe Konoka and Konoe Akina would provide me.</p>
-<p>Konoe Akina B-cut~!</p>
+<p>Konoe Akina B-cut!</p>
 <p>After deliberating between white Clothes and black Clothes, I went with black Clothes hehe.</p>
 <p>Practice image of whether Glasses suit her or not without setting the Clothes hehehe.</p>
-<p>Mimata Chieri with her Breasts and Pussy covered by sunglasses in a Hotel corridor, as requested by TheDreaming-nim~!</p>
+<p>Mimata Chieri with her Breasts and Pussy covered by sunglasses in a Hotel corridor, as requested by TheDreaming-nim!</p>
 <p>Hehe.</p>
-<p>Suddenly taking off the sunglasses~!</p>
+<p>Suddenly taking off the sunglasses!</p>
 <p>Kkiyot</p>

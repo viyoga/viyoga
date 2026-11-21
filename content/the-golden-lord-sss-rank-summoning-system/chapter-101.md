@@ -34,7 +34,7 @@ chapter = 101
 <p>While Ron approached Goldenveil, Ethan was in his office, supposedly discussing plans for the future with a dark-skinned beauty.</p>
 <p>In his lap, he felt the plush weight of two shapely, round cheeks, a perfect ass nestled snugly against his hips, her warm curves molding against him.</p>
 <p>His hands were on her enormous breasts, palms sinking deep into the heavy, luscious mounds while his fingers teased one of her darkened nipples. His lips took the other, sucking with a gentle pressure that made her writhe.</p>
-<p>"Ah~~ you really never get tired of them, do you? My perverted lord... fufufu~~" Elena gave an elegant giggle, pulling Ethan harder against her chest, her delicate fingers tangling in his golden hair.</p>
+<p>"Ah you really never get tired of them, do you? My perverted lord... fufufu" Elena gave an elegant giggle, pulling Ethan harder against her chest, her delicate fingers tangling in his golden hair.</p>
 <p>They were supposed to be discussing Goldenveil’s future, but as soon as they found themselves alone in the office, Ethan wasted no time burying his face in her huge tits.</p>
 <p>Well, she felt a little guilty about that too.</p>
 <p>He was a strong, virile young man. Apparently, not even his two beautiful wives were capable of fully satisfying him.</p>
@@ -66,7 +66,7 @@ chapter = 101
 <p>As a result, the population became stronger, healthier, and, of course, more eager to work.</p>
 <p>Population growth was also going very well.</p>
 <p>Ethan hoped that before winter, he would reach a thousand inhabitants and establish his barony.</p>
-<p>"Hm~~" Elena shifted in his lap, leaning against his shoulders. Her breasts pressed against his face for a brief moment, the soft, warm mass spreading across his skin before she leaned back.</p>
+<p>"Hm" Elena shifted in his lap, leaning against his shoulders. Her breasts pressed against his face for a brief moment, the soft, warm mass spreading across his skin before she leaned back.</p>
 <p>His hands naturally fell onto Elena’s full, round buttocks. His fingers sank into the supple curves, the plump flesh overflowing his grip as he admired her beauty.</p>
 <p>A warm palm slid beneath her dress, gliding across her smooth, creamy skin.</p>
 <p>Elena gasped.</p>

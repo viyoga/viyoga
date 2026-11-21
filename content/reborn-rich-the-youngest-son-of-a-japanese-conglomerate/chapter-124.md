@@ -81,9 +81,9 @@ chapter = 124
 <p>###</p>
 <p>As I came out of the house, escorted by Suzuki Chisami, whose face was glowing, Mimata Chieri was sitting in my car with dead eyes. She was sitting with her skirt open without wearing panties, and the smell of a woman was a complete mess, as if she had masturbated here twenty times. I need to get the interior cleaned?</p>
 <p>"Sunbae-nim?"</p>
-<p>"Heueut~!!"</p>
+<p>"Heueut!!"</p>
 <p>When I touched her, she shot a water gun, pyut pyut. How much did she do...? After a while, Mimata Chieri, who had regained her senses, looked at me with a slightly sulky face.</p>
-<p>"No way~!! Even if I told you to, how could you stay that long? And Suzuki Chisami-ssi...! Please do the same for me today as you did for Suzuki Chisami-ssi!"</p>
+<p>"No way!! Even if I told you to, how could you stay that long? And Suzuki Chisami-ssi...! Please do the same for me today as you did for Suzuki Chisami-ssi!"</p>
 <p>"That's not too difficult.... First, let's get the interior cleaned...."</p>
 <p>"That's...! I'm sorry...."</p>
 <p>I drove the car to get the interior cleaned and took Mimata Chieri to a love hotel. I need to completely imprint the horror of my dick on her today.</p>

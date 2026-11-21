@@ -41,13 +41,13 @@ chapter = 280
 
 <p>Powerful hands flowed over her hips and down to her ass, gripping it tightly while a tongue voraciously invaded her mouth.</p>
 
-<p>“Nghnn~~” She moaned, closing her eyes, clumsily responding to that kiss, feeling her body burn with even more intensity than before.</p>
+<p>“Nghnn” She moaned, closing her eyes, clumsily responding to that kiss, feeling her body burn with even more intensity than before.</p>
 
 <p>“Ah… abusing a sleeping man, what a naughty woman you are, huh?” Qingyi smiled, his lips parting from Isabel’s, feeling the sweet taste of her saliva and the weight of her tits against his chest.</p>
 
 <p>“Uh… that… is…” Isabel hastily raised her torso, her huge breasts swaying heavily before being controlled by Qingyi’s possessive grip.</p>
 
-<p>“Mghnn~~” She moaned, closing her eyes as she blushed even more, feeling Qingyi’s hands slide across the immensity of her chocolatey tits, using the sweat as a natural lubricant, grabbing and squeezing every bit of her, playing with her puffy nipples on his fingertips.</p>
+<p>“Mghnn” She moaned, closing her eyes as she blushed even more, feeling Qingyi’s hands slide across the immensity of her chocolatey tits, using the sweat as a natural lubricant, grabbing and squeezing every bit of her, playing with her puffy nipples on his fingertips.</p>
 
 <p>It felt good… better than anything she’d ever felt in her entire life, her own touch incomparable to what she was feeling from his touch.</p>
 
@@ -61,7 +61,7 @@ chapter = 280
 
 <p>A loud, wet slap echoed as her ass hit his hips, a mixture of pain and incomparable pleasure taking over her body, every bit of her pussy completely filled by Qingyi’s cock, her virginity taken.</p>
 
-<p>“Y-you better be nghnn~~ p-ready to be smothered by my huge tits!” She shouted, grabbing hold of Qingyi’s shoulders and pulling him against her, making him sit up, sinking his face between her twin chocolatey mountains.</p>
+<p>“Y-you better be nghnn p-ready to be smothered by my huge tits!” She shouted, grabbing hold of Qingyi’s shoulders and pulling him against her, making him sit up, sinking his face between her twin chocolatey mountains.</p>
 
 <p>Using her arms, she squeezed them against him, only his long black hair visible between the deep, obscene valley created by them.</p>
 
@@ -69,17 +69,17 @@ chapter = 280
 
 <p>His arms wrapped around Isabel’s slim, delicate waist, slapping her ass hard, feeling the voluptuous flesh tremble in his grip as she lifted her hips, preparing to sit on his cock again.</p>
 
-<p>“Oghnn~~ nghnn~~ aghnn~~”</p>
+<p>“Oghnn nghnn aghnn”</p>
 
 <p>Gasping moans echoed, following the dry, loud slaps of her ass hitting Qingyi, her huge breasts taken over by violent undulations, held in place by the firm grip of her arms, which sank into the soft, delicate skin of incomparable size.</p>
 
-<p>“Goddess of light and justice… forgive this sinner… but this cock is soooo good! Ughnn~~” Isabel gasped, losing control of her emotions, humping Qingyi’s cock even harder.</p>
+<p>“Goddess of light and justice… forgive this sinner… but this cock is soooo good! Ughnn” Isabel gasped, losing control of her emotions, humping Qingyi’s cock even harder.</p>
 
 <p>She felt her pussy milking his cock while her voluptuous ass burned with possessive slaps and grabs.</p>
 
 <p>Qingyi, below her, had to admit the same about that fat, tight pussy, superior to any he’d ever fucked in his life, his cock crushed by wet walls as he spanked the walls of her womb.</p>
 
-<p>“Shit… shit… OH YEAH… something’s coming! ARGHNN~~”</p>
+<p>“Shit… shit… OH YEAH… something’s coming! ARGHNN”</p>
 
 <p>A loud, obscene moan escaped Isabel’s lips, her whole body shuddering as a sea of strange sensations overtook her body, the first orgasm of her life exploding, her pussy squirting non-stop.</p>
 

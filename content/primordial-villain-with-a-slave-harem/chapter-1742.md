@@ -29,7 +29,7 @@ chapter = 1742
 <p>"...Since when?"</p>
 <p>"Hie?!"</p>
 <p>Black Fang nearly one-shot the queen on the spot with emotional damage.</p>
-<p>"I'll handle all your questions, ladies~" Seraphiel slid between the two with a grin that said she was more than ready to begin slinging gossip that would traverse the entire elven race within hours.</p>
+<p>"I'll handle all your questions, ladies" Seraphiel slid between the two with a grin that said she was more than ready to begin slinging gossip that would traverse the entire elven race within hours.</p>
 <p>The Dawnbringer escorted the now happily yapping queen back to the elven ranks and the rest of them converged on the blonde elf in a heartbeat.</p>
 <p>"Ohh, the Holy Son's elf wife!"</p>
 <p>"It's really her! Tell us everything, sister!"</p>

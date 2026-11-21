@@ -46,7 +46,7 @@ chapter = 158
 <p>,Ah! That's right. There's something.... Look at this.</p>
 <p>At Han Yu-gyeong's question, Ha Ju-yoon turned on her smartphone and showed her an article. The title of the article was JBS's Jun, Arrested and Investigated on Drug Charges! And in the photo, there was a photo of a man who looked like JBS's Jun, who had a moderately handsome face.</p>
 <p>JBS seems to be the name of an idol group, and Jun seems to be an idol belonging to that JBS, but what does this Jun guy being arrested for drugs have to do with Ha Ju-yoon? When Han Yu-gyeong and I sent her looks asking for more explanation, Ha Ju-yoon clapped her hands, saying, Ah, that's right!</p>
-<p>,Ah! I didn't explain the whole story. I had a music video shoot with him today, but it was canceled because of this. So, I had some time left over. And since I was nearby, I came to see my daughter's face~!</p>
+<p>,Ah! I didn't explain the whole story. I had a music video shoot with him today, but it was canceled because of this. So, I had some time left over. And since I was nearby, I came to see my daughter's face!</p>
 <p>Ah, I see.... Certainly, the drug problem was getting more and more serious. It was said that drugs were becoming more prevalent because security was deteriorating worldwide.</p>
 <p>,But what kind of story is it that Mom and JBS's Jun are filming together?</p>
 <p>,Ah, they said they were filming a story about the forbidden love between a boy and a teacher, and Jun was recently trying to challenge himself in acting, so the director decided to take advantage of his fame and paired him with me, who is still good at acting.</p>
@@ -85,6 +85,6 @@ chapter = 158
 <p>,I thought I should definitely tell you this, so I came back. Make sure to use condoms....! Oh my!!</p>
 <p>While saying oh my, Ha Ju-yoon's gaze remained on my *jaji* until the end. Her eyes widened a lot, as if my size was quite impressive.</p>
 <p>,Ah! Mom!!</p>
-<p>,I'm sorry~! I'm really going now.</p>
-<p>,Ah, really~! Why are you doing this?</p>
+<p>,I'm sorry! I'm really going now.</p>
+<p>,Ah, really! Why are you doing this?</p>
 <p>Han Yu-gyeong seemed a little annoyed, watching Ha Ju-yoon disappear while looking at my *jaji* until the end while closing the door. But I can't help it. It was natural to be surprised when you saw my thing for the first time. Besides, since Ha Ju-yoon is a married woman who knows everything, she seemed to have seen my *jaji* impressively.</p>

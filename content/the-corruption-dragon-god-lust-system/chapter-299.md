@@ -103,7 +103,7 @@ chapter = 299
 
 <p>“Oh… hubby!” Isabel was the first to notice Qingyi’s presence, throwing herself into his arms and pulling him into the firm grip of her massive chocolatey tits.</p>
 
-<p>“We were just talking about you, hehehe~~” She giggled, observing Qingyi’s face between her breasts.</p>
+<p>“We were just talking about you, hehehe” She giggled, observing Qingyi’s face between her breasts.</p>
 
 <p>The handsome young man just smiled, steadying his hands on Isabel’s ass as he led her towards the great purple palace on the horizon.</p>
 

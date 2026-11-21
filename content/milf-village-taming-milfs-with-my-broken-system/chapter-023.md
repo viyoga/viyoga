@@ -5,9 +5,9 @@ weight = 23
 chapter = 23
 +++
 
-<p>&quot;I promise... I’m your honest boy, after all, Mom ~&quot; she whispered, nodding gently.</p>
+<p>&quot;I promise... I’m your honest boy, after all, Mom &quot; she whispered, nodding gently.</p>
 
-<p>’Hehe... let’s see how much longer you can hold back your moans, Mom~’ Owen smiled wickedly, already imagining her desperate voice, as he slowly made his way.</p>
+<p>’Hehe... let’s see how much longer you can hold back your moans, Mom’ Owen smiled wickedly, already imagining her desperate voice, as he slowly made his way.</p>
 
 <p>Owen...a certified shameless man at boot. No one will claim that number one spot as long as he exists... though only his own story.</p>
 
@@ -15,7 +15,7 @@ chapter = 23
 
 <p>Arielle regretted what she said, only to take a few minutes, a few minutes, which was just too short!</p>
 
-<p>&quot;I will come by after I take a bath, Mom... so be prepared~&quot; Owen entered his room, deeply satisfied with making even more progress.</p>
+<p>&quot;I will come by after I take a bath, Mom... so be prepared&quot; Owen entered his room, deeply satisfied with making even more progress.</p>
 
 <p>As for Arielle, she couldn’t forget the look on Owen’s face.</p>
 
@@ -45,9 +45,9 @@ chapter = 23
 
 <p>[ Arielle - Family: 57/100]</p>
 
-<p>[ Note: Arielle wanted to get a massage, using your three limbs!!!..(⁠~⁠‾⁠▿⁠‾⁠)⁠~ ]</p>
+<p>[ Note: Arielle wanted to get a massage, using your three limbs!!!..(⁠⁠‾⁠▿⁠‾⁠)⁠ ]</p>
 
-<p>’Hoho... what a slutty mom. I guess I don’t have a choice~’ Owen smirked as he read the system note.</p>
+<p>’Hoho... what a slutty mom. I guess I don’t have a choice’ Owen smirked as he read the system note.</p>
 
 <p>The system never stopped surprising him...time and time again.</p>
 
@@ -61,7 +61,7 @@ chapter = 23
 
 <p>&quot;I’m here, Mom...&quot; Owen knocked on the door of Arielle’s room with renewed vigor.</p>
 
-<p>&quot;Coming~&quot; Her voice alone was enough to melt him, causing his cock to turn rock-solid once again.</p>
+<p>&quot;Coming&quot; Her voice alone was enough to melt him, causing his cock to turn rock-solid once again.</p>
 
 <p>’Heh.., I wonder what Father would do if he found out his &quot;son&quot; was massaging his wife.’ Owen was finally embracing the villain role.</p>
 
@@ -73,7 +73,7 @@ chapter = 23
 
 <p>Arielle was standing there wearing nothing but a white towel, barely covering her assets which were bulging like crazy.</p>
 
-<p>&quot;Oh my... don’t look at me like that~&quot; She shifted her weight, acting shy about showing off her fair silky smooth skin and her voluptuous body that’s showing a top-tier MILF.</p>
+<p>&quot;Oh my... don’t look at me like that&quot; She shifted her weight, acting shy about showing off her fair silky smooth skin and her voluptuous body that’s showing a top-tier MILF.</p>
 
 <p>Arielle really loves long housewife clothes and dresses, as she wanted to hide her body...so showing her everything to her son is completely new.</p>
 
@@ -99,7 +99,7 @@ chapter = 23
 
 <p>She had already prepared everything necessary, as if she wanted the massage to happen without any further delay.</p>
 
-<p>&quot;Okay... but don’t do anything bad. I’m calling your dad, so don’t act spoiled, okay~?&quot; She turned her head, looking up at Owen’s innocent smile.</p>
+<p>&quot;Okay... but don’t do anything bad. I’m calling your dad, so don’t act spoiled, okay?&quot; She turned her head, looking up at Owen’s innocent smile.</p>
 
 <p>&quot;Hehe... of course, Mom. I’m just here to remove those tensed muscles of yours.&quot; Owen poured some oil onto his palms, rubbing them together to warm it up.</p>
 
@@ -113,7 +113,7 @@ chapter = 23
 
 <p>&quot;Now, I’m going to pull down the towel on your back, Mom.&quot; Owen positioned himself like a man who wanted to take her from behind, his knees firmly planted to give him a solid sense of balance.</p>
 
-<p>&quot;Move it gently, okay~&quot; She could feel the touch of Owen’s hands as he carefully stripped away the towel covering her upper body.</p>
+<p>&quot;Move it gently, okay&quot; She could feel the touch of Owen’s hands as he carefully stripped away the towel covering her upper body.</p>
 
 <p>Too bad, though... she had covered her lower half with a completely separate towel!</p>
 

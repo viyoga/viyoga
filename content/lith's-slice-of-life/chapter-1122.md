@@ -69,7 +69,7 @@ PAH!
 
 Squelch… Squelch…
 
-"Mhmmm~"
+"Mhmmm"
 
 Luna moaned and bounced harder on Lith's shaft.
 

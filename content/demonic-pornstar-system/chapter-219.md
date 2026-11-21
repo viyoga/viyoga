@@ -38,7 +38,7 @@ chapter = 219
 <p>But it was Sasha who stepped forward with the actual venom.</p>
 <p>"Must’ve been too much for their fragile little hearts," she said, glancing at Kaiden’s trio with false sympathy. "Now that they have some cash, they no longer want to show their bodies off on camera. No longer desperate for money like starved dogs."</p>
 <p>Vaelira, for her part, said nothing. Not yet. She simply raised her hand slowly and tapped one polished nail against her temple, noting every detail, every response, every opening.</p>
-<p>"Master~" Bastet’s sultry voice purred as she stretched her arms behind her head, ears twitching lazily. Her tail flicked once, like a whip through the air. "Why are these people dressed for combat in their own guild building...?"</p>
+<p>"Master" Bastet’s sultry voice purred as she stretched her arms behind her head, ears twitching lazily. Her tail flicked once, like a whip through the air. "Why are these people dressed for combat in their own guild building...?"</p>
 <p>She blinked up at Kaiden innocently, her voice lilting in a way that was far too soft, far too sweet to be sincere.</p>
 <p>"Are there monsters lurking here?"</p>
 <p>The way she said the word ’monsters’ carried just enough weight to echo.</p>
@@ -46,7 +46,7 @@ chapter = 219
 <p>Luna did for him.</p>
 <p>"Oh, they’re just being cautious," she said with a smug little smirk. "Someone must’ve left quite the impression last time... Someone very dangerous. Knowing that that certain someone was coming, they probably felt the need to get ready. Just in case."</p>
 <p>A beat of silence passed.</p>
-<p>Then Bastet tilted her head with a glimmer in her eye. "Hmm? Whoever could you be talking about?~ They sound like a very scary enemy!"</p>
+<p>Then Bastet tilted her head with a glimmer in her eye. "Hmm? Whoever could you be talking about? They sound like a very scary enemy!"</p>
 <p>She purred the words while her hips swayed with each step she took forward. But everyone knew who Luna meant.</p>
 <p>Her.</p>
 <p>Bastet, the Sun-Kissed Pharaoh. The boss monster. The apex predator who nearly slaughtered all of them before being tamed by Kaiden. The memory was no doubt seared into the minds of those standing before them now.</p>

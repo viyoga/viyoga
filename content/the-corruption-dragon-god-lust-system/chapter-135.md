@@ -109,7 +109,7 @@ chapter = 135
 
 <p>Just then, she felt something press against her shapely, round ass. It was big, hard and throbbing.</p>
 
-<p>“Nghnn~” A sound she never thought she would be capable of making escaped her lips and her jade-white skin was filled with a red fervor as she realized the situation.</p>
+<p>“Nghnn” A sound she never thought she would be capable of making escaped her lips and her jade-white skin was filled with a red fervor as she realized the situation.</p>
 
 <p>She was sitting directly on top of Qingyi, her legs wide open and her butt pressed against the young man’s crotch.</p>
 

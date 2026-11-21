@@ -65,7 +65,7 @@ chapter = 826
 
 <p>His lips parted and enveloped one of the pink nipples, his tongue sliding around the stiff tip before he began to suck thirstily.</p>
 
-<p>"Mghnn~~" Qianyao moaned, clinging to Qingyi’s black horns as if they were her only anchor.</p>
+<p>"Mghnn" Qianyao moaned, clinging to Qingyi’s black horns as if they were her only anchor.</p>
 
 <p>It didn’t take long for the sweet, creamy nectar from her breasts to flood his lips—hot and delicious, sliding down his tongue.</p>
 

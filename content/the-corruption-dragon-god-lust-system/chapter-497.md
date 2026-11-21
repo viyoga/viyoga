@@ -117,7 +117,7 @@ chapter = 497
 
 <p>Behind her, his hands clung to her back and her long black hair, decorated with long, sharp horns.</p>
 
-<p>“Nghnn~~”</p>
+<p>“Nghnn”</p>
 
 <p>Qingyi heard a pained moan in his arms, feeling his own clothes being torn from his body, the incomparable softness of that perfect obsidian skin pressing directly against his body.</p>
 

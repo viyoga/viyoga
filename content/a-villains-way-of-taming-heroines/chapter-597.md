@@ -43,7 +43,7 @@ chapter = 597
 <p>Looking at her sister's bright eyes, Marlina softly replied, "Everything is arranged. Once we handle the remaining two groups, it will be done."</p>
 <p>"Yay!" Seraphina clung to Marlina's arm, snuggling affectionately, "Hehe... I knew Marli could be relied upon!"</p>
 <p>"Please call me Margarete, Miss Fenrir."</p>
-<p>"Hehehe, it's alright, I'm just speaking to you… quietly~"</p>
+<p>"Hehehe, it's alright, I'm just speaking to you… quietly"</p>
 <p>Marlina glanced at Seraphina, whose face was brimming with happiness, and suddenly said, "Miss Fenrir, shouldn't you check on them?"</p>
 <p>"Check on them? No need. Marli said we shouldn't let them get undue advantages because of my presence; they need to work and live for themselves."</p>
 <p>Seraphina cheerfully replied, "I think Marli is right! Though they suffered... they must learn to survive on their own. After all, I will eventually leave, and besides..."</p>

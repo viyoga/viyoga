@@ -6,7 +6,7 @@ chapter = 254
 +++
 
 <p>Bastet then dragged him downward, aligning the tip of his cock with her entrance once more.</p>
-<p>"This bitch~" she purred, cheeks still red, "is very much in heat, Master~"</p>
+<p>"This bitch" she purred, cheeks still red, "is very much in heat, Master"</p>
 <p>"This slut is such a switch..." Luna chuckled from the side. "Normally she’s all feline grace and all that jazz, but then she gets horny and this happens."</p>
 <p>Bastet was not at all in a state of mind to respond to the switch allegations. Instead, she just continued her statement with a cloudy expression that made it clear she was halfway to heaven right now. "... So you must fill her womb up. I want kittens, Master. A whole litter. You’re not allowed to pull out until there’s no space left inside me."</p>
 <p>Kaiden, for the first time in a long while, faltered.</p>
@@ -16,12 +16,12 @@ chapter = 254
 <p>He gripped her by the ankles, then pressed her legs downward, folding her in half, pinning her thighs against her shoulders, which in turn made her hips lift high, presenting everything sacred of the woman to him on a silver platter. "Kya! M-Master, this pose is..." Bastet gasped, but then she stopped herself. Instead of speaking, the felinid elected to just bite her lower lip and await the proceedings with anticipation.</p>
 <p>That was when he drove himself in.</p>
 <p>One thrust. Deep.</p>
-<p>"Ahhhhnnggg~~~"</p>
+<p>"Ahhhhnnggg"</p>
 <p>Her voice instantly broke into a cry that echoed through the chamber. In this pose, he reached deeper into her than the woman ever thought possible, even with her master’s immense size.</p>
 <p>Again. Again.</p>
 <p>Her entire body trembled, jerked, shuddered, froze up, and came apart all at once with each motion. Her lips opened to voice half-formed mewls. Her eyes had lost focus, overwhelmed by pleasure that drowned all thought.</p>
 <p>Kaiden’s body moved with fierce rhythm, not at all treating his woman as if she were a fragile princess, just like how Bastet preferred. His chest was slick with sweat as he leaned into her, letting their foreheads touch. The angle was merciless.</p>
-<p>"Ahhh~! Haaah! Nnnyaahhh♥"</p>
+<p>"Ahhh! Haaah! Nnnyaahhh♥"</p>
 <p>Bastet’s moans rose in pitch, turning breathy and musical, laced with pure ecstasy. Her entire body shook beneath him.</p>
 <p>Each thrust pushed her closer to madness, with her long nails digging into his skin and her breasts jiggling in rhythm.</p>
 <p>"GO KAI-KAI, GO KAI-KAI, STUFF THE HORNY BITCH FULL!"</p>
@@ -39,7 +39,7 @@ chapter = 254
 <p>"You’re about to finally pay off your debts, my guy." Luna stuck her tongue out playfully.</p>
 <p>Nyx twirled her pink hair and nodded sagely. "Mhm. It’s only fair we cheer our boyfriend on when he’s so close to being debt-free. It’s a big milestone! Trust me, if anyone should know, then it’s us three."</p>
 <p>Kaiden didn’t find much logic in their words. Or rather, their previous actions seemed to be very contradictory. "If you’re so determined to help me clear my debt, then why were all three of you stealing my ’precious fluids’ earlier tonight?"</p>
-<p>He thrust harder into Bastet for emphasis. The Ra-Blessed Felinid shrieked and bit down on his shoulder with a great deal of force while her legs tried to wrap around him despite being pinned back. "M-m-moooooore~!"</p>
+<p>He thrust harder into Bastet for emphasis. The Ra-Blessed Felinid shrieked and bit down on his shoulder with a great deal of force while her legs tried to wrap around him despite being pinned back. "M-m-moooooore!"</p>
 <p>Luna burst into laughter, hearing Kaiden’s accusatory tone. "Hehehe... I wanted to see how you’d handle the role of harem king on Nightmare Mode. Your ego was getting a bit too big for your own good. It was time to show you that we can more than keep up before you start getting ideas!"</p>
 <p>"Besides," Nyx chimed in with fake innocence, "you can’t just ignore your original trio of harem girls. If you keep giving all your energy to the new hotness, we’ll end up as tragic side characters. Forgotten, abandoned for the ripe new girl."</p>
 <p>Kaiden was already dismissing such thoughts with his eyes, but before he could retort with proper words, Aria leaned forward in bed. Her silver eyes glowed just a bit too brightly for Kaiden to feel totally at ease.</p>

@@ -83,7 +83,7 @@ chapter = 653
 
 <p>The instant the thread of Qi brushed against his defenses, the very defenses she had expected to slice through with ease, Xue Hao froze. Her eyes flew wide, and the fragile thread of Qi snapped in that same breath.</p>
 
-<p>“Ah~~” Her legs, moments before relaxed, clamped shut, and her lips parted around a short, sweet moan, low enough that only she and Qingyi could hear it.</p>
+<p>“Ah” Her legs, moments before relaxed, clamped shut, and her lips parted around a short, sweet moan, low enough that only she and Qingyi could hear it.</p>
 
 <p>Her back arched in a helpless curve, and her firm, heavy, flawlessly shaped tits lurched beneath her robes, the full, plush globes shuddering once against the silk before settling into a slow, hypnotic sway.</p>
 

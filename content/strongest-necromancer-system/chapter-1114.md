@@ -13,12 +13,12 @@ chapter = 1114
 <p>"Since we’re going to be resting, why don’t we do it together? Let me sleep in your room tonight."</p>
 <p>"No."</p>
 <p>Sicario’s answer was immediate, and Enkidu pouted cutely and kicked her legs dramatically while floating around Sicario!</p>
-<p>"Come on~ Why not~? We used to sleep together all the time back then."</p>
+<p>"Come on Why not? We used to sleep together all the time back then."</p>
 <p>Since Sicario had taken care of Enkidu when she was just a little girl, there were many times when Enkidu wouldn’t be able to sleep, and Sicario would allow her to crawl into his bed and sleep with him. It had been cute back then, but as Enkidu grew up, she had become more and more aggressive with her obvious interest in Sicario, and every time Sicario allowed Enkidu to stay in bed with him, Enkidu would immediately try to get into his pants! Sicario realised very quickly that he couldn’t sleep with this girl anymore, and he began to forbid her from coming into his room!</p>
 <p>Sicario answered with a no-nonsense tone.</p>
 <p>"I only slept with you cause you used to be a cute little kid. But you’re not a kid anymore, and I don’t trust you not to touch me in my sleep. Go to your own room."</p>
 <p>Enkidu deflated sadly.</p>
-<p>"Awwn~"</p>
+<p>"Awwn"</p>
 <p>....</p>
 <p>[The Ninth Domain]</p>
 <p>[An Unknown Location]</p>

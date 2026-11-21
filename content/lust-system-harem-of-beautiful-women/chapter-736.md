@@ -25,7 +25,7 @@ chapter = 736
 
 <p>Grabbing her phone, she casually closed the door behind her. Chloe dialed her sister’s number.</p>
 
-<p>Hela’s life was very routine. She picked up immediately and said with a laugh, &quot;Chloe, you were really living it up last night~&quot;</p>
+<p>Hela’s life was very routine. She picked up immediately and said with a laugh, &quot;Chloe, you were really living it up last night&quot;</p>
 
 <p>She had also come for dinner the previous evening but left afterward to take care of her own affairs.</p>
 
@@ -55,7 +55,7 @@ chapter = 736
 
 <p>&quot;You two are really something... How can you be so natural about this?!&quot; Chloe scolded playfully.</p>
 
-<p>&quot;Hehe, isn’t this great? The three of us can have some fun in the water together, like mandarin ducks~&quot;</p>
+<p>&quot;Hehe, isn’t this great? The three of us can have some fun in the water together, like mandarin ducks&quot;</p>
 
 <p>&quot;Don’t be naughty and grope around, you little minx... Let’s just rinse off quickly... First, give me a breast massage to express the milk...&quot;</p>
 

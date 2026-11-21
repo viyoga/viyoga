@@ -75,10 +75,10 @@ chapter = 524
 <p>,I understand. The sports day is tomorrow... no, today, so let's go home and sleep quickly."</p>
 <p>It was past midnight, so it was the day of the sports day. I hope the sports day goes by normally. Surely nothing will happen, right?</p>
 <p>,My lord, can't you show me the pineapple flavor too?"</p>
-<p>,No way~! It's a taste that only my sensitive tongue can feel!"</p>
+<p>,No way! It's a taste that only my sensitive tongue can feel!"</p>
 <p>The two were bickering over my semen as I went home. I was already tired before the sports day even started.</p>
 <p>------------------</p>
-<p>Here are the tanning line Suzuki Chisami, Minamoto Risa, and Kujo Kina requested by I Save I-nim~!</p>
+<p>Here are the tanning line Suzuki Chisami, Minamoto Risa, and Kujo Kina requested by I Save I-nim!</p>
 <p>Kujo Kina. What are you wearing that has a hole in your chest?</p>
 <p>Suzuki Chisami. She seems to be wearing strange clothes too, haha.</p>
 <p>Minamoto Risa. Lisa has a normal bikini line, haha.</p>

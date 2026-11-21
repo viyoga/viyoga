@@ -23,7 +23,7 @@ chapter = 726
 <p>Heriet and Gerael both giggled, and they thanked Gina with one more hug before Gina watched as they took off from the ground and flew away while waving goodbye! Gina picked up the box of food again, and she stared at it with a motherly smile on her face as she headed off to the garden. There were two guards standing on either side of the entrance, and they both bowed to Gina as she passed them. Gina gave them a bow and a greeting in return as she took off her shoes and vanished into the garden. Once she was gone, the guard on the left sniffled and used a hand to rub his eye, and the guard on the right turned to look at him with a deadpan expression.</p>
 <p>"Oh come on, don’t tell me you’re actually crying right now."</p>
 <p>The guard on the left sniffled.</p>
-<p>"Sniffle~ Hah, you don’t have any daughters, so you wouldn’t get it. That was... that was so beautiful."</p>
+<p>"Sniffle Hah, you don’t have any daughters, so you wouldn’t get it. That was... that was so beautiful."</p>
 <p>The guard on the right just rolled his eyes and turned away. He was surrounded by crybabies.</p>
 <p>....</p>
 <p>[With Jason and Hesabeth]</p>

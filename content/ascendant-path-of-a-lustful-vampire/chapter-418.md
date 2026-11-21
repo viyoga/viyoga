@@ -20,7 +20,7 @@ chapter = 418
 <p>Speaking of the fight…</p>
 <p>After Alexia had pushed the bulb of water away, she continued her upward climb. However, right as she made to strike out another attack, multiple spell circles appeared around her, all primed with magical energy before firing malevolent bulbs of water at her.</p>
 <p>Gritting her teeth, Alexia took on a stance as a blue-black aura spread from her form as her Von Helsing Arts shifted from the red bloody hue it had been thus far. This color felt more personal and seemed as though Alexia was shifting into a whole new gear of might.</p>
-<p>~Von Helsing Arts— Ever-shifting Lotus Wind~</p>
+<p>Von Helsing Arts— Ever-shifting Lotus Wind</p>
 <p>Blue-black slashes spilled out. More than enough to barrage each of the bulbs. But the slashes didn't cut the bulbs, but instead, they became infused into them, becoming a part of them and seizing control of the magic that conjured them.</p>
 <p>The bulbs of water took the form of lotus flowers glowing a radiant blue-black color and carrying the chaotic flow of torrential winds that Alexia sent charging at Brogan with a swing of her sword.</p>
 <p>Brogan frowned as he thrust his hand forward to cast a shielding spell that the lotus flowers struck and shattered before slamming into the vampire's body to send him sliding back in the air while he tried to keep from groaning in pain or spurting out blood.</p>

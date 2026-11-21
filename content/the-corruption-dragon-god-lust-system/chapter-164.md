@@ -41,7 +41,7 @@ chapter = 164
 
 <p>No longer sensing anyone’s presence, he wrapped his right arm around her waist, his hand going up to her breasts and squeezing until he heard a sweet, embarrassed moan.</p>
 
-<p>“Nghnn~~ shameless disciple…” Qingxue shuddered in Qingyi’s arms.</p>
+<p>“Nghnn shameless disciple…” Qingxue shuddered in Qingyi’s arms.</p>
 
 <p>She tried to resist and push him away, but in the end, she just lowered her blushing face in defeat.</p>
 

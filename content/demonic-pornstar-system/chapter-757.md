@@ -42,7 +42,7 @@ chapter = 757
 <p>’Big. Slow. Armored to hell. Six eyes means good peripheral vision, so flanking won’t be free. Charges when threatened.’</p>
 <p>Twenty-two levels above them.</p>
 <p>Luna crouched beside him, her eyes locked on the thing, and Kaiden could feel the grin forming before he saw it. "That’s a big boy. Does it make you feel small, Kai?"</p>
-<p>She blew him a kiss. "It’s okay, size isn’t everything~"</p>
+<p>She blew him a kiss. "It’s okay, size isn’t everything"</p>
 <p>"You always have such a unique way of ensuring you get a firm spanking at the end of the day." Calypso’s tail swished behind her. She was already gripping her axe. "Darling, let me go first?"</p>
 <p>"You’ll get your turn." Kaiden refused to acknowledge Luna’s comment as he closed the overlay - that would come later tonight - and called upon his partner in crime. The Blood Monarch’s Gauntlet pulsed once, hungry, and the crimson liquid climbed his forearm and stretched outward, elongating, hardening, until a greatsword heavier than most people could lift settled into his grip.</p>
 <p>He looked at Aria. She stood at the edge of the ridge with the wind pulling at her silver hair, her fingers already loose at her sides, moonlight pooling between, waiting to be shaped.</p>

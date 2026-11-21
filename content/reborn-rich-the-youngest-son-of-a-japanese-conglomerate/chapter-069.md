@@ -31,7 +31,7 @@ chapter = 69
 <p>"This time, I'll do it for you."</p>
 <p>With a bewitching look and smile like a succubus, she sat me on the sofa this time. She grabbed my proudly hardened dick and began to lick it while looking up at me.</p>
 <p>"Euheuk!!"</p>
-<p>Pleasure came to the point where I moaned involuntarily and my toes curled. It was the best fellatio I had ever experienced. When I moaned, Yukiko made a devilish expression as if she was about to say, "Weakness found~☆," and sucked my dick even harder. While I was losing my mind to pleasure, Yukiko also seemed to be getting excited, and a small spring formed with her vaginal fluid dripping onto the floor.</p>
+<p>Pleasure came to the point where I moaned involuntarily and my toes curled. It was the best fellatio I had ever experienced. When I moaned, Yukiko made a devilish expression as if she was about to say, "Weakness found☆," and sucked my dick even harder. While I was losing my mind to pleasure, Yukiko also seemed to be getting excited, and a small spring formed with her vaginal fluid dripping onto the floor.</p>
 <p>"Uueok...!"</p>
 <p>Even while gagging, Yukiko put my massive dick deep into her throat and stayed still. When I looked to see what she was doing, she buried her nose deep in my lower abdomen, smelling my scent, and lowered one hand to touch her pussy and masturbate.</p>
 <p>I guess she has a scent fetish. Could it be... that Yukiko took my underwear that often disappeared? After smelling my scent for a while, Yukiko shook her head up and down again and started fellating my dick at high speed.</p>
@@ -66,7 +66,7 @@ chapter = 69
 <p>We exchanged passionate kisses, exchanging fluids from each other's bodies up and down. Above, we shared each other's saliva, and below, Cowper's fluid and vaginal fluid mixed.</p>
 <p>I kept shaking my waist. The pleasure I felt from my dick gradually made me unable to see anything in front of me, and as my dick swelled in anticipation of ejaculation, Yukiko spread her legs wide and pressed my buttocks with both hands, leading my tip to her deepest part.</p>
 <p>"Heueu!! I'm cumming!"</p>
-<p>"Haeuang~! Aaaang!! Put it in, put Ryuta's semen in my pussy...!"</p>
+<p>"Haeuang! Aaaang!! Put it in, put Ryuta's semen in my pussy...!"</p>
 <p>When Yukiko pressed my buttocks and my dick pushed the cervix to the maximum, my dick expanded to the maximum and ejaculated semen. The ejaculation earlier felt like my back was about to break, but this time it felt like my soul was leaving with each gush.</p>
 <p>Ulkeok ulkeok!</p>
 <p>"Haaaaaa!!! I'm going too♡ Haa....Aang♥"</p>

@@ -5,7 +5,7 @@ weight = 445
 chapter = 445
 +++
 
-<p>an before but check erotic illustration is no panties please slight so surroundings there with your After finishing the physical comfort for Daigo Terue, I came out and walked the darkening night road. Oofuchi Erika was also having a study group with other Students until late at night, so fortunately, while having Sex with Daigo Terue, Oofuchi Erika didn't burst in saying, 'I'm back~!'</p>
+<p>an before but check erotic illustration is no panties please slight so surroundings there with your After finishing the physical comfort for Daigo Terue, I came out and walked the darkening night road. Oofuchi Erika was also having a study group with other Students until late at night, so fortunately, while having Sex with Daigo Terue, Oofuchi Erika didn't burst in saying, 'I'm back!'</p>
 <p>After summer passed, as I was hit by the cool wind and slowly walked the night road, I suddenly saw my Home. As I slowly approached, between the dark shadows, I saw someone leaning against the wall, and upon closer inspection, it was Otagi Yuka. It seemed she was waiting for me... What's the matter?</p>
 <p>"Teacher-ssi."</p>
 <p>Otagi Yuka also seemed to have found me, and called out to me. Since she was a Vampire with bright night vision, she immediately spotted me and was waving her Hand in greeting.</p>

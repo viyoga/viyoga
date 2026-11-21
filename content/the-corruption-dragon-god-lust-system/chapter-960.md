@@ -71,7 +71,7 @@ chapter = 960
 
 <p>When their lips finally parted, her tongue still followed his for a second, reluctant, a thin thread of saliva stretching between their mouths before snapping.</p>
 
-<p>"Nghnn~~ You know it’s going to take a while, don’t you? The last great war lasted seventy years..." She rested her forehead against his chest, her voice muffled.</p>
+<p>"Nghnn You know it’s going to take a while, don’t you? The last great war lasted seventy years..." She rested her forehead against his chest, her voice muffled.</p>
 
 <p>"I know why you’re leaving the Heaven-Defying Thunder Sword with me. But I’m worried about Lingxi... What if you’re gone too long? She’d suffer terribly without her father."</p>
 

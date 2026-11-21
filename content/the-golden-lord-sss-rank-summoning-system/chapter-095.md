@@ -34,7 +34,7 @@ chapter = 95
 <p>Elena studied the wine with curiosity.</p>
 <p>It was rich in Mana and Aura, with healing effects and a subtly enchanting scent that rose to her nostrils even before she touched the glass to her lips.</p>
 <p>When the wine finally met her tongue, her eyes widened.</p>
-<p>"Ah~~" She gasped, drinking in greedy gulps, feeling the liquid slide down her throat, sweet and with a smooth yet intense alcohol.</p>
+<p>"Ah" She gasped, drinking in greedy gulps, feeling the liquid slide down her throat, sweet and with a smooth yet intense alcohol.</p>
 <p>"It’s... delicious," Elena finally said, looking at Ethan expectantly. "Is there more?"</p>
 <p>"Just two bottles; this is the second to last. Old John will be making more soon."</p>
 <p>Hearing that, Elena was a little disappointed.</p>

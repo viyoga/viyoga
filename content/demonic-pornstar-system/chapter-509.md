@@ -63,7 +63,7 @@ chapter = 509
 <p>Sarah folded over her desk, laughing so hard she probably activated every noise complaint system in a 5-block radius. "I can’t... Leia, you’re actually insane, you fucking menace!"</p>
 <p>The dildo-wielding gremlin laughed like a goblin queen. "Says the bitch who parted her lips moments ago! Don’t think we missed that!"</p>
 <p>"It was just a joke..."</p>
-<p>"Sure, sure~"</p>
+<p>"Sure, sure"</p>
 <p>...</p>
 <p>Emilia, after several minutes of shrieking, eventually sagged back on her couch like a defeated cleric. Her sheer indignation slipped off her face, revealing a tiny, reluctant smile creeping through her frazzled state.</p>
 <p>"You two..." she muttered, voice soft and shamefully fond. "You’re such... weirdos."</p>

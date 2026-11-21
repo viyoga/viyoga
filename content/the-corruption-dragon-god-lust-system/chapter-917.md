@@ -73,7 +73,7 @@ chapter = 917
 
 <p>A sting lingered on his palm. Beneath the white of her pantyhose, her skin began to take on a pinkish hue.</p>
 
-<p>"Aghn~!" The impact wrung a high-pitched squeal from her lips, which parted for a moment before she bit down on the pillow to stifle the rest.</p>
+<p>"Aghn!" The impact wrung a high-pitched squeal from her lips, which parted for a moment before she bit down on the pillow to stifle the rest.</p>
 
 <p>Her toes curled against the sheet, and her hips gave a small, helpless twitch.</p>
 

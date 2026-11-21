@@ -7,9 +7,9 @@ chapter = 53
 
 <p>Jason quickly decided on that course of action. It wasn’t perfect, but it was the best plan he could come up with at that moment.</p>
 <p>Jason moved to bring back the wolf that he sacrificed, and it reformed with a swirling purple light while consuming some of his mana. Jason then looked at how much mana he had left and he nodded in satisfaction when he saw that he had more than four hundred MP.</p>
-<p>Buzz~!</p>
-<p>Buzz~!</p>
-<p>Buzz~!</p>
+<p>Buzz!</p>
+<p>Buzz!</p>
+<p>Buzz!</p>
 <p>Jason’s head suddenly shot to the side as he heard the sound of flying ants heading in his direction! He immediately realized that they must’ve heard the fight between the ant and the wolves, and he cursed!</p>
 <p>He ordered his subordinates into the Alternate Dimension before he moved to hide beside a tree. Three large ants appeared in the space where Jason had just been and they flew towards the corpse of the ant that was still there. They looked from one to the other curiously as they wondered what had killed their brother.</p>
 <p>The ants had heard a fight happening here, so they expected to see their brother killing another creature. They knew that their brother wasn’t stupid, so he wouldn’t attack a creature that he wasn’t sure he could handle.</p>

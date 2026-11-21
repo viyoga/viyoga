@@ -60,7 +60,7 @@ chapter = 210
 <p>,Hold on a little, I'm gonna cum too."</p>
 <p>My choice was to go together. Since I had tremendous stamina anyway, it didn't matter much even if we climaxed together. Each and every ejaculation was not that precious. Of course, I didn't want to ejaculate as soon as I inserted it, like premature ejaculation.</p>
 <p>And if Yang Seol-hui-ssi receives my hot white homosexual treatment fluid in her uterus at the moment of climax, the sensation would be imprinted in her head like a brand, and I thought I could properly teach her that this is the pleasure of having sex with a man.</p>
-<p>Byuut~! Byueut~! Byuut~!</p>
+<p>Byuut! Byueut! Byuut!</p>
 <p>,Ah...! Ah...! Ah...! My lower abdomen is hot♥"</p>
 <p>Yang Seol-hui-ssi's pussy, which had reached its climax, was munching on my dick, sucking in the semen. When I pulled out my dick, the semen mixed with virgin blood and turned pink, flowing down.</p>
 <p>Yang Seol-hui-ssi was lying down with a languid expression, as if she was satisfied, but when I held my dick to her face, she looked at me with pure eyes, asking what she should do.</p>
@@ -83,4 +83,4 @@ chapter = 210
 <p>,Heung! Don't pretend to be a good person...eueok, don't do that♥ Do you think I'd get excited watching that? Anyway, heueut! I thought you would...keut! Come to attack me, hyaat, so I prepared in advance, haang..."</p>
 <p>If you make that many moans, no one will believe those words, right? It seemed that the second patient was a liar with a histrionic personality. This time, I need to use the meat syringe attached to my groin to make her a good girl who honestly begs for pleasure with the lie removal fluid.</p>
 <p>-----Unused Yang Seol-hui (Yang Xuexi) illustration collection</p>
-<p>Seol-hui-chan kawaii~!</p>
+<p>Seol-hui-chan kawaii!</p>

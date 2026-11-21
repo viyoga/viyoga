@@ -76,8 +76,8 @@ chapter = 258
 <p>-MoonFanatic: #AriaSupremacy</p>
 <p>-KittenOverlord: Her Lunar Arc is a sleeper agent lmaooooooo</p>
 <p>Aria lowered her staff slowly.</p>
-<p>Bastet, watching from behind, clapped softly. "My, my~ Using their own tricks against them. How clever~"</p>
+<p>Bastet, watching from behind, clapped softly. "My, my Using their own tricks against them. How clever"</p>
 <p>Aria offered a half-smile. "I’ll smoke the rats out. You guys just wait a moment."</p>
 <p>Kaiden smirked.</p>
 <p>The Handmaidens were already murmuring in retreat, unsure how to defend against something that had slipped past their rules entirely.</p>
-<p>"Come out, maidens..." Aria whispered, with a rare sadistic glint finding its way to her eyes. "We just want to talk~"</p>
+<p>"Come out, maidens..." Aria whispered, with a rare sadistic glint finding its way to her eyes. "We just want to talk"</p>

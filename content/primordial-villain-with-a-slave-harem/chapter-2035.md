@@ -13,10 +13,10 @@ chapter = 2035
 <p>"Kitsara!!!"</p>
 <p>The dogkin’s outraged cry snapped her attention toward the wall. Kitsara came racing around the herb beds with Blossom still at her heels.</p>
 <p>"Bad girls don’t get to run from their punishment!!"</p>
-<p>"Then you’ll have to chase someone else, for I am the bestest of girls~"</p>
+<p>"Then you’ll have to chase someone else, for I am the bestest of girls"</p>
 <p>"[Phantom Parade]!"</p>
 <p>Kitsara’s copies scattered across the lawn, each blowing their pursuer a kiss.</p>
-<p>"Use that wonderful nose of yours to sniff me out, pupster~"</p>
+<p>"Use that wonderful nose of yours to sniff me out, pupster"</p>
 <p>Blossom stopped chasing the images. She closed her eyes, drew one breath through her nose, and turned toward the bench beside Aurora’s pots.</p>
 <p>"[Umbral Step]!"</p>
 <p>The dogkin vanished through a blur of void magic. Kitsara had barely looked over her shoulder when Blossom appeared beside her and caught her around the waist, hauling her away from the path to the house.</p>
@@ -55,7 +55,7 @@ chapter = 2035
 <p>Through the glass, he watched Sera kneel beside her flower bed.</p>
 <p>"&gt; &lt;How much longer would you like us to keep this up? I don’t mind pretending to be a crazy gal, but blessing the seeds over and over again is too much even for me.&gt;</p>
 <p>"&gt; &lt;Can you manage another large burst?&gt;</p>
-<p>"&gt; &lt;For you? Of course~&gt;</p>
+<p>"&gt; &lt;For you? Of course&gt;</p>
 <p>Once the last cart cleared his gate, Quinlan closed it and led Brokk into the central room. With a palm against the floor, he drove his earth magic into the foundations, thickening the footings and extending new pillars down into the rock.</p>
 <p>"[Skyshatter]!"</p>
 <p>Ayame’s shout reached him as his own expenditure rose. Healing light flooded the garden again, accompanied by a roar from Serika’s furnace.</p>
@@ -106,6 +106,6 @@ chapter = 2035
 <p>The murderous glare in her blue eyes sent Serika into a fit of laughter. She came over to slip an arm around Ayame’s shoulders, drawing the fuming samurai against her side.</p>
 <p>"Come on. Let the boys have some fun."</p>
 <p>"You’re encouraging them!"</p>
-<p>"A little~"</p>
+<p>"A little"</p>
 <p>Ayame let herself be steered toward the garden, though she kept looking back at Quinlan with enough bite to make his grin quite difficult to maintain.</p>
 <p>"Pervert... Hmph..."</p>

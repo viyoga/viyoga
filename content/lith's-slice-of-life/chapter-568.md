@@ -79,13 +79,13 @@ PAH!
 
 PAH! PAH! PAH!
 
-"Ahhh!~"
+"Ahhh!"
 
 Due to moaning so much, Luna's tongue was out now, and she was making what people called an ahegao face.
 
 'I love His Highness so much!' Luna's clouded mind was having nothing but Lith's thoughts all over.
 
-"Ahhh!~ More! Give me more, Your Highness!" Luna moaned loudly.
+"Ahhh! More! Give me more, Your Highness!" Luna moaned loudly.
 
 Lith chuckled. Of course. If he didn't give what his maid asked, then he wouldn't be a good Prince, would he?
 

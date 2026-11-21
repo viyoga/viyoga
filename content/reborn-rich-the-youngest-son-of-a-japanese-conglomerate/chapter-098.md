@@ -93,5 +93,5 @@ chapter = 98
 <p>There was shilgonnyak, burdock, green onions, chicken, etc. in the chicken broth, and of course, Kiritanpo, which Akita Prefecture boasts, was also cut and put in. Hmm...! It was delicious to eat Kiritanpo with hot soy sauce-based chicken broth. Kiritanpo is like grilled garaetteok in Korea, but the texture was softer.</p>
 <p>I enjoyed the Kiritanpo nabe to my heart's content, bought beer and snacks at the convenience store, and came into the hotel, and Suzuki Chisami was leaning on the bed in her underwear, looking at me.</p>
 <p>"How about some post-meal exercise, Ryuta-nim?"</p>
-<p>"Sounds good~!"</p>
+<p>"Sounds good!"</p>
 <p>I was already taking off my pants while saying 'Sounds good'. From today until tomorrow morning, I have to completely imprint myself on Suzuki Chisami's hateful body.</p>

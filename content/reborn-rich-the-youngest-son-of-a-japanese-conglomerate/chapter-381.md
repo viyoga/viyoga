@@ -6,7 +6,7 @@ chapter = 381
 +++
 
 <p>,As Yu-gyeong said, this brown color looks a bit better."</p>
-<p>,Right? Right? I told you this one looks better on Yong-tae~!"</p>
+<p>,Right? Right? I told you this one looks better on Yong-tae!"</p>
 <p>I, who had dyed my hair a darker brown than my skin tone, was listening to the conversation between the hairdresser and Han Yu-gyeong. No, to my eyes, both browns looked similar... The two of them debated over similar shades of brown for over an hour.</p>
 <p>What's even scarier is that Han Yu-gyeong orchestrated my hair dyeing and styling while getting her own makeup and hair done. Thanks to that, I became more sophisticated, but I was quite exhausted.</p>
 <p>,Now, just put on your clothes and attend the charity dinner show."</p>
@@ -23,7 +23,7 @@ chapter = 381
 <p>And naturally, upon seeing a bum they had never seen before arm-in-arm with the goddess-like Han Yu-gyeong, curiosity and attention focused on me, but I ignored those gazes and handed out my business card.</p>
 <p>,I'm Jin Yong-tae, running a small company called TG Investment Company."</p>
 <p>Of course, as you can tell from the name, TG Investment Company was a company co-run by me and Han Yu-gyeong, just like TG Tech. The name was under my name, but rather, Han Yu-gyeong was aggressively acquiring several companies using the name of TG Investment Company.</p>
-<p>,Ah~! So you're the ones who recently acquired several lucrative companies. There were rumors that it was a foreign company because no one had ever seen the owner in person, but you're Korean. And I'm surprised that you're so young."</p>
+<p>,Ah! So you're the ones who recently acquired several lucrative companies. There were rumors that it was a foreign company because no one had ever seen the owner in person, but you're Korean. And I'm surprised that you're so young."</p>
 <p>The man who received the business card carefully looked at it, then nodded and offered a handshake. The other people waiting in line behind him nodded, saying, "Ah... TG Investment Company."</p>
 <p>,But who is that over there...?"</p>
 <p>Mega Corp's youngest son employs quite realistic graphics, so even though it was our first time meeting in reality, I could naturally tell who this man was. I had seen him quite a bit in the game.</p>
@@ -49,7 +49,7 @@ chapter = 381
 <p>,Ah, thank you. Thank you for saying I look good with the best woman."</p>
 <p>,Yong-tae-ya..."</p>
 <p>Han Yu-gyeong looked at me as if she was touched by my words. Han Yu-yeon, seeing me and Han Yu-gyeong lost in our own world without paying any attention to her in front of us, opened her mouth as if she was slightly annoyed.</p>
-<p>,I'd like to hear your stories, but I'm in the front seat over there. I'll go now. Yu-gyeong-a, bye~."</p>
+<p>,I'd like to hear your stories, but I'm in the front seat over there. I'll go now. Yu-gyeong-a, bye."</p>
 <p>It seemed like the people from the bigger companies were in the front seats, and she said that to mean that she was different from us and went forward.</p>
 <p>,I'm sorry."</p>
 <p>,For what?"</p>

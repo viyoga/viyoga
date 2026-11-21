@@ -43,13 +43,13 @@ chapter = 1647
 <p>Then Lyra, Ria, Shallan, Liora, Orianna, and Raika crossed the threshold one after the other, and the seam closed behind them.</p>
 <p>A meter above the moss, Quinlan's awareness drifted a hair past his own chest, curious about what his succubus wanted from the women.</p>
 <p>A low purr arrived at the back of his thoughts, just for him.</p>
-<p>&lt;No peeking~&gt;</p>
+<p>&lt;No peeking&gt;</p>
 <p>A pause.</p>
 <p>&lt;Let me talk to the ladies in private, please. Woman to women.&gt;</p>
 <p>His mouth tilted up at the corner inside the trance.</p>
 <p>'...Fine.'</p>
 <p>He mentally shrugged in her direction a second time and let his attention slide back to the eleven bodies on the moss.</p>
-<p>"Keep it up, girls~" he sang and was answered by a fresh chorus of curses and whimpers.</p>
+<p>"Keep it up, girls" he sang and was answered by a fresh chorus of curses and whimpers.</p>
 <p>...</p>
 <p>The soul realm answered them as they crossed.</p>
 <p>The seven women stepped out of the seam onto soft black soil that gave the way old loam gives at the foot of a sacred tree. The air came in through their lungs warm and heavy, like breathing inside a temple at twilight, and it carried the faint sweet undertone of crushed petals turning slowly toward decay.</p>

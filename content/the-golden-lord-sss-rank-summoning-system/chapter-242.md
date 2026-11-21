@@ -23,7 +23,7 @@ chapter = 242
 <p>Its owner was David Darkwall, a powerful fourth-stage warrior and current leader of the Darkwall family.</p>
 <p>Sitting stiffly in a carved wooden chair, he kept his eyes steady as he raised a goblet of wine to his lips.</p>
 <p>He swallowed the greenish liquid in a long gulp, the sweet heat sliding down his throat and blooming warm in his chest.</p>
-<p>"Hm... you don’t seem the least bit uncomfortable with this delay, Lord David. You’ve already exhausted all my reserves of green fairy wine, fufufu~"</p>
+<p>"Hm... you don’t seem the least bit uncomfortable with this delay, Lord David. You’ve already exhausted all my reserves of green fairy wine, fufufu"</p>
 <p>A sweet, resonant female voice joined David’s, carrying a feigned complaint.</p>
 <p>The owner of that voice was a woman with hair as white as freshly fallen snow, pale skin, and serene eyes.</p>
 <p>Her voluptuous figure was wrapped in an elegant black dress that hugged every curve of her body, the silken fabric clinging to her ample bust and slender waist before flowing down over wide, generous hips.</p>

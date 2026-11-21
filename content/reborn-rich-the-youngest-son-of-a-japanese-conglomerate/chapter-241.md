@@ -8,7 +8,7 @@ chapter = 241
 <p>The auction venue was in one of the skyscrapers in the middle of New York. I thought an underground auction would be held in back alleys or slums, but it's quite bold to do it in the middle of New York, huh?</p>
 <p>Of course, plus-rank people who can participate in auctions are likely to be high-ranking members of society or have considerable wealth, so it wouldn't be good for the underground if they were harmed in a slum with poor security. That's why they're doing it in the middle of the city.</p>
 <p>When we entered the building, an unexpected person greeted us.</p>
-<p>,Hello~! Long time no see~!,</p>
+<p>,Hello! Long time no see!,</p>
 <p>Eve greeted us at the information desk. Two of them, in fact. Eve A was wearing a purple tailored jacket, and Eve B was wearing a white suit with a dark tie. Both of them were wearing round-rimmed glasses today, making them look a bit more intellectual.</p>
 <p>Since the underground offline branch had several Eves taking care of customers at the same time, there could be several of them here as holograms.</p>
 <p>,First of all, I'd like to thank Ryuta-nim for saving Yuka.,</p>
@@ -31,9 +31,9 @@ chapter = 241
 <p>There was another door on the remaining wall without a screen or glass wall, and when I asked Arisu, she said it was a bathroom and shower room. Since one companion can come along and it's a closed space, many things must happen. The bathroom or shower room is there to clean up after that.</p>
 <p>Since we came almost right before the start time, the auction soon began. The stage outside the glass wall lit up, and Eve, wearing a white suit, black shirt, and pink tie, appeared like a ghost.</p>
 <p>Eve's appearance was also visible on the screen, and Eve was shown closer on the screen.</p>
-<p>,Hello~! It's been a while since the New York auction! I'm Eve, who everyone knows☆,</p>
+<p>,Hello! It's been a while since the New York auction! I'm Eve, who everyone knows☆,</p>
 <p>Even though it was a stage, the audience was watching from inside the glass wall or on the screen, so there were no cheers or reactions to Eve's greeting.</p>
-<p>,Before we start, we'll have a brief advertisement from our partner!~,</p>
+<p>,Before we start, we'll have a brief advertisement from our partner!,</p>
 <p>The lights on the stage went out again, and an advertisement appeared on the screen. But the advertisement was... somehow strange.</p>
 <p>-The streets are getting scarier. Will we really be able to go home alive?</p>
 <p>A scene showing the slums appeared, and a man's voice heightened the sense of crisis.</p>

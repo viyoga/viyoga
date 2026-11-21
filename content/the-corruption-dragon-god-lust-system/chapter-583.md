@@ -117,13 +117,13 @@ chapter = 583
 
 <p>His lips parted, and then he sank his tongue into that soft, perfect, tight pussy, reaching her clitoris.</p>
 
-<p>“Y-your tongue… N-not there, you… nghnn~~ pervert!” Auranys shuddered, overcome with confusion and pleasure.</p>
+<p>“Y-your tongue… N-not there, you… nghnn pervert!” Auranys shuddered, overcome with confusion and pleasure.</p>
 
 <p>“Ah… I’m sorry, love… but this divine little pussy is too delicious…”</p>
 
 <p>Qingyi smiled before sinking in again, reveling in her moans of pleasure.</p>
 
-<p>“Nghnn~~ fuck~~ so aghnn~~” Auranys clung to Qingyi’s horns, her legs shaking violently as he used his tongue to masturbate her.</p>
+<p>“Nghnn fuck so aghnn” Auranys clung to Qingyi’s horns, her legs shaking violently as he used his tongue to masturbate her.</p>
 
 <p>In her entire life, she never believed that such intense pleasure could be real.</p>
 

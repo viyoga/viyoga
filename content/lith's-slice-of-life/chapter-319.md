@@ -75,7 +75,7 @@ Emilia felt full on the inside and it was something she had never felt before. S
 
 Lith soon slowly started pulling his shaft out and Emilia shivered as she felt that. He took half of it out and soon shoved it back in.
 
-"Mhm~" Emilia couldn't help but let out a moan as Lith's thing hit her deep inside.
+"Mhm" Emilia couldn't help but let out a moan as Lith's thing hit her deep inside.
 
 Lith felt great tightness around him and this was bound to happen since he didn't loosen her up beforehand and directly shoved it in. But, it wasn't a bad feeling and it felt really good.
 
@@ -85,7 +85,7 @@ Arya and Alexandra were looking at the two while resting. Since they had long li
 
 Lith increased his pace and while doing so, he moved his hands and grabbed Emilia's big boobs. He kneaded them to his wishes and played with her nipples as his hips slapped onto Emilia's plump butt and the sound of flesh slapping resonated throughout the room.
 
-"Ahh~ Ah– Omf… Mffhm…" Emilia put her hand on her mouth and tried to suppress her moans. Her eyes were closed but she knew Alexandra and Arya were still here.
+"Ahh Ah– Omf… Mffhm…" Emilia put her hand on her mouth and tried to suppress her moans. Her eyes were closed but she knew Alexandra and Arya were still here.
 
 Lith grabbed her hand and lowering it, he whispered gently in her ears, "let them out, it's natural. Your moans are soothing melodies for me, don't suppress them."
 
@@ -155,11 +155,11 @@ A few more minutes passed and finally Emilia couldn't hold in any longer and was
 
 Lith stopped fingering Alexandra and Arya and focused completely on Emilia. He held her hips and rammed his shaft as fast and hard he could inside her asshole.
 
-"Ahhh~ Ahhh~ Tha-at's the spot… harder…"
+"Ahhh Ahhh Tha-at's the spot… harder…"
 
 Emilia didn't know what she was saying in between her moans as he mind was on cloude nine right now.
 
-"Yes! Yes… Ahhh~ Ahhh~"
+"Yes! Yes… Ahhh Ahhh"
 
 Clap! Clap!
 
@@ -169,7 +169,7 @@ Clap! Clap!
 
 Spurrrt!
 
-"Ohhhhh~"
+"Ohhhhh"
 
 Emilia's mind turned blank as she had her first orgasm. She fell down on the bed with her tongue out of her mouth while her love juices gushed out of her pussy like a waterfall.
 

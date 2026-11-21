@@ -43,7 +43,7 @@ chapter = 593
 <p>The tale has been stolen; if detected on Amazon, report the violation.</p>
 <p>Sol simply smirked, “I do not doubt that Sun Wukong is a very dangerous powerhouse. Perhaps one of the highest-ranked ones in the Mortal World and even in the Astral World, few can be his equal. But Wratharis isn’t the only one with a heavy hitter.”</p>
 <p>He laughed, “If you are asking whether Wukong can actually defeat our Queen, my answer will be simple.”</p>
-<p>He leaned forward with a boyish grin as he uttered those words, “Nah~ She will win.”</p>
+<p>He leaned forward with a boyish grin as he uttered those words, “Nah She will win.”</p>
 <p class="scene-break">· · ·</p>
 <p>If Sol had to be honest. He was not as sure of Lilith’s victory as he was making it seem.</p>
 <p>From the information he received Sun Wukong was like Lilith. At a level that of Demigod but since they had yet to create their Territories, they were not true demigod yet.</p>

@@ -81,13 +81,13 @@ Ralph did a slight nod and the two went back to gathering the ingredients while 
 
 Royal Castle, Nightingale.
 
-"Hm~ hm~ hm~ hm~" Lilith hummed while writing a few things on an old parchment.
+"Hm hm hm hm" Lilith hummed while writing a few things on an old parchment.
 
 Her personal maid, the black-haired Luo Qingyue, stood behind her, looking at a tablet screen and typing a few things on it.
 
 Lilith was in a relatively good mood today for reasons unknown while Qingyue maintained her usual professional calm look.
 
-"Okay, all done~" Lilith said after a while.
+"Okay, all done" Lilith said after a while.
 
 Qingyue turned her head up and asked, "Any instructions, Madam?"
 
@@ -137,7 +137,7 @@ Lucifer rubbed her temples. "Too much mumbo-jumbo. Can you make it stop?"
 
 "What—"
 
-"hello~!" A sweet resounded in the two's ears and turning around, Lucifer saw the blonde curvy Elf Queen walk inside the pavilion.
+"hello!" A sweet resounded in the two's ears and turning around, Lucifer saw the blonde curvy Elf Queen walk inside the pavilion.
 
 Right after her, the purple-haired Dragon Empress, Mayzin walked in.
 
@@ -155,11 +155,11 @@ Lilith did a slight nod of acknowledgement and said, "It has been. Get seated, w
 
 "Yeah, no. Stay aw—"
 
-"Mayzin-chan~"
+"Mayzin-chan"
 
 It was too late for the Dragon Empress. She could not dodge the onslaught of the vile Demon Queen and ended up getting embraced by her.
 
-Lucifer wrapped her arms around Mayzin's waist like a normal hug and said softly, "I missed you~."
+Lucifer wrapped her arms around Mayzin's waist like a normal hug and said softly, "I missed you."
 
 The words seemed heartfelt and made Mayzin wonder, 'What? I thought she was going to harass me… Guess I'm just overthinking…'
 
@@ -171,11 +171,11 @@ Did the sun rise in the west? Did the Vampire Continent's eternal night end? The
 
 "You seem really—"
 
-"Agalea-chan~" Lucifer cut off Agalea's words and went to hug her.
+"Agalea-chan" Lucifer cut off Agalea's words and went to hug her.
 
 Naturally, since Lucifer had been good, Agalea didn't put up any resistance and let Lucifer hug her.
 
-Lucifer rubbed her face on Agalea's and said, "Yaa~, been so long since we saw each other, didn't we?"
+Lucifer rubbed her face on Agalea's and said, "Yaa, been so long since we saw each other, didn't we?"
 
 Now something was definitely wrong!
 

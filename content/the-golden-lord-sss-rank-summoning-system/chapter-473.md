@@ -8,7 +8,7 @@ chapter = 473
 <p>Ethan liked Elena’s idea much more than the idea of building an entirely new city.</p>
 <p>That way, the main center of government would be present on both riverbanks, and it would also make it much easier for Goldenveil to expand throughout that entire region.</p>
 <p>With a sigh, he removed his hand from Elena’s ass, wrapping his arms around her waist and pulling her close.</p>
-<p>"Agh~~ hubby!" Elena laughed as her body sank into the warm, pleasant water, small waves lapping against the edge of the tub and splashing onto the stone floor.</p>
+<p>"Agh hubby!" Elena laughed as her body sank into the warm, pleasant water, small waves lapping against the edge of the tub and splashing onto the stone floor.</p>
 <p>Her fat tits, like two warm mountains covered in chocolate, settled on Ethan’s chest—heavy and soft—sliding slightly down his wet skin until they found their place.</p>
 <p>Her hard nipples brushed against him along the way, and her delicate hands slowly traced up his arms, resting on his broad, firm shoulders.</p>
 <p>"Do you want me to start working today?" she asked with a loving expression, her chin resting on his chest, her dark eyes lifted to meet his.</p>
@@ -43,7 +43,7 @@ chapter = 473
 <p>Without hesitation, he thrust forward, his cock slipping into that perfect, tight pussy, which hugged his shaft on both sides as if it were a glove made specifically for him—slippery and hot, sucking every centimeter inside until nothing was left outside.</p>
 <p>Clap</p>
 <p>His pelvis struck her ass and thighs with a loud smack, her plump buttocks flattening against him and trembling for an instant, the impact running down her thick thighs in a brief shudder until it faded.</p>
-<p>"Aghnn~~" Elena moaned, her head sinking into the pillow, her toes curling in the air behind his shoulders.</p>
+<p>"Aghnn" Elena moaned, her head sinking into the pillow, her toes curling in the air behind his shoulders.</p>
 <p>Her breasts slipped out of her grasp for a moment—large and heavy—bouncing against her face and tapping her chin but she quickly cupped them again, holding them in place with trembling arms.</p>
 <p>Ethan wrapped his arms tightly around Elena’s thighs, which were pressed together, feeling their softness against his chest and the scent of soap and warm skin that still lingered from the bath.</p>
 <p>Slowly, he let his cock slide out of her, the wet walls clinging to him as if they didn’t want to let go, before thrusting all the way back in at once.</p>

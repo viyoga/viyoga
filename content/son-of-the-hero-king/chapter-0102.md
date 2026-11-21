@@ -9,7 +9,7 @@ chapter = 102
 <p>"So, aside from this, do you have any other failsafe?"</p>
 <p>The spell she was speaking about seemed good and all, but it didn't seem like this was the only thing she prepared.</p>
 <p>Thinking about the sudden coming of Theresa, he added, "Is Theresa part of the plan?"</p>
-<p>"Fufufu~Indeed. Though, the rest will be a little surprise."</p>
+<p>"FufufuIndeed. Though, the rest will be a little surprise."</p>
 <p>Camelia knew how much of a fan he was about the four-direction witches, so meeting Persephone should be quite a shock in a good way.</p>
 <p>Thinking about the four witches, she frowned a little as she remembered the fourth one.</p>
 <p>Learning about something like that suddenly could be bad, so she opened her mouth,</p>
@@ -26,12 +26,12 @@ chapter = 102
 <p>The girl mimicked the action of barfing as an answer.</p>
 <p>"I would never eat anything from those hands filled with death after what happened last time. Who knows what if some rotten flesh or maggots wouldn't be in my drink."</p>
 <p>She shivered as she remembered the first time she had accepted a drink from that man.</p>
-<p>"Hahaha~This was just an accident, an accident. Trust me."</p>
+<p>"HahahaThis was just an accident, an accident. Trust me."</p>
 <p>"Humph"</p>
 <p>The man continued to grin, unfazed by her actions.</p>
 <p>Finally, unable to take the silence, she asked,</p>
 <p>"When will your true body arrive? Or do you plan to use this marionette during our fight?"</p>
-<p>"Haha~No way, it's the queen of swords we are talking about, you know? If I don't go at her with my will firm and decisive, I will be immediately cut down by her."</p>
+<p>"HahaNo way, it's the queen of swords we are talking about, you know? If I don't go at her with my will firm and decisive, I will be immediately cut down by her."</p>
 <p>The girl grunted but inwardly acquiesced. Even for her, Lilith was a very tricky opponent.</p>
 <p>"So, necromancer, do you think it was truly wise to contact the duchess? Even though she accepted, I feel like this is fishy. Perhaps they already know about us infiltrating the capital."</p>
 <p>The bartender, or rather the zombie acting as a bartender didn't seem particularly worried.</p>

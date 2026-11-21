@@ -23,8 +23,8 @@ chapter = 266
 <p>Arwen took just a sip.</p>
 <p>As a fourth-stage awakened mage, a wine of that caliber shouldn’t have had any effect on her.</p>
 <p>And yet, a subtle shiver coursed through her body, making the huge swell of her chest tremble lightly beneath her dress.</p>
-<p>"Ah~" A sharp sigh escaped her parted lips as the liquid slid warmly down her throat, and the mana she had spent nourishing the Tree of Life began to replenish at an astonishing speed.</p>
-<p>"Hm~" She took a second sip, slower this time, savoring it before pulling the glass away from her lips and setting it elegantly on the table.</p>
+<p>"Ah" A sharp sigh escaped her parted lips as the liquid slid warmly down her throat, and the mana she had spent nourishing the Tree of Life began to replenish at an astonishing speed.</p>
+<p>"Hm" She took a second sip, slower this time, savoring it before pulling the glass away from her lips and setting it elegantly on the table.</p>
 <p>"This wine is truly incredible..." she murmured, an enchanted sigh slipping past her lips.</p>
 <p>"I can offer you a hundred bottles as a wedding gift, if you’d like..." Ethan teased, sitting beside her and earning a soft, melodious chuckle from the elf.</p>
 <p>She turned toward him slowly, her eyes half-closed and full of interest.</p>

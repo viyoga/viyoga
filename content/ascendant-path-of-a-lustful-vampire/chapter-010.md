@@ -17,7 +17,7 @@ chapter = 10
 <p>Wispy Feet.</p>
 <p>A Second Circle wind spell that created two Spell circles beneath his feet and boosted his speed just enough to allow him to leap to the side and avoid the water ball that went on to slam against a training dummy.</p>
 <p>Kaya turned her foot slightly. It seemed like a simple move but when she made a gesture to swing her arm upward and a green spell circle appeared, Caius knew she was casting and the result of the cast was almost instantaneous as a thick vine grew and wrapped around his foot before he could ride the Wispy Feet spell to safety.</p>
-<p>Cancelling his concentration on Wispy Feet, Caius recast ~Wind Blade~ and swung at the vine. It didn’t cut as easily as the last vines he cut and when he finally made it through, a large blue spell circle appeared and a gigantic fist made of water landed an uppercut that sent him into the air.</p>
+<p>Cancelling his concentration on Wispy Feet, Caius recast Wind Blade and swung at the vine. It didn’t cut as easily as the last vines he cut and when he finally made it through, a large blue spell circle appeared and a gigantic fist made of water landed an uppercut that sent him into the air.</p>
 <p>*BAM!*</p>
 <p>"Nghh!" Caius groaned until his eyes went wide as he realized the fist hadn’t dematerialized. It just unfurled into a hand that wrapped around him. It was so large that it covered his entire upper body and slammed him into the ground.</p>
 <p>*BANG!*</p>
@@ -36,7 +36,7 @@ chapter = 10
 <p>The wind blasted Caius full in the face and he tried to look past it at the construct Kaya had created to defend herself only to sense a vine stabbing at him which forced him to make another hard lean to the side.</p>
 <p>Alas, another vine was waiting for him on that side and wrapped around his midsection to begin pulling him toward Kaya.</p>
 <p>Wind blade.</p>
-<p>Caius sliced through the vine but many more were coming at him with the source of course being Kaya who was now sealed up in a protective chamber of Vines in the shape of an irregular sphere. That sphere was the construct that defended her from Caius’ ~Cutting Gale~ spell.</p>
+<p>Caius sliced through the vine but many more were coming at him with the source of course being Kaya who was now sealed up in a protective chamber of Vines in the shape of an irregular sphere. That sphere was the construct that defended her from Caius’ Cutting Gale spell.</p>
 <p>*Bam!*</p>
 <p>A vine slapped Caius in the stomach and sent him sliding away. It was meant to distract him so he could be grabbed again but he grounded himself just in time to dodge the others coming at him.</p>
 <p>Fireball.</p>

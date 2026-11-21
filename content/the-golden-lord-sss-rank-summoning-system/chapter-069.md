@@ -52,7 +52,7 @@ chapter = 69
 <p>The meal Alice had prepared had already gone cold, so she hurried to light the fire, which took no effort at all with her magic.</p>
 <p>While she warmed the food, Ethan sat himself into one of the kitchen chairs, and Evelyn stopped in front of him.</p>
 <p>"Evelyn? What are you doing?" Alice asked, turning just in time to see the other woman crouching between Ethan’s spread legs, her heels digging into the soft, plump flesh of that huge, perfect Bubble Butt.</p>
-<p>"What do you think? Fufufu~~" Evelyn let out a low, mature giggle. "Didn’t you even notice how hard our man already is?"</p>
+<p>"What do you think? Fufufu" Evelyn let out a low, mature giggle. "Didn’t you even notice how hard our man already is?"</p>
 <p>She grabbed the bulge in Ethan’s pants and squeezed, slow and firm, savoring the way his expression melted into pleasure.</p>
 <p>That naughty hubby of theirs.</p>
 <p>The entire walk back from the barracks, his eyes had never once left the sway of their asses, tracing every shift and bounce.</p>

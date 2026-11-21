@@ -62,7 +62,7 @@ chapter = 309
 <p>,In a position to help?</p>
 <p>When I said that while receiving the note, Taira Kanna smiled slightly and opened her mouth.</p>
 <p>,I'm the Chairman of the St. Francisco Girls' Academy High School Student Council.</p>
-<p>Ah~ Well, a female student from the Taira family is attending, so it's a bit much for another student to become the Chairman. Even if there's a female student from the rival Minamoto Group, she's a delinquent who's not interested, so she wouldn't have run in the Chairman election.</p>
+<p>Ah Well, a female student from the Taira family is attending, so it's a bit much for another student to become the Chairman. Even if there's a female student from the rival Minamoto Group, she's a delinquent who's not interested, so she wouldn't have run in the Chairman election.</p>
 <p>,Well, here's the student roster. Originally, it should have been given before the semester started, but the special class is special. Sensei understands, right?</p>
 <p>Ah, that's the student roster I've been looking for. The book that Taira Kanna brought in seemed to be the student roster. I nodded and looked at the student roster.</p>
 <p>,I've also written down some special notes, so it will be easier to adapt.</p>

@@ -13,7 +13,7 @@ chapter = 221
 <p>I received the gun from Mimata Chieri and showed it to Eve, who scanned the mechanical wolf and the gun once.</p>
 <p>,Hmm, the gun is in my database. EL-0001, a prototype with only one unit in the world. The steel puppy isn't in the database. Where did you get it?</p>
 <p>,I went to the abandoned factory of Energy-Link Industrial Company and caught it attacking me.</p>
-<p>,Ah~ So that's what happened. As a special perk for Diamond members, I'll ship what you bought today for free, and I'll do it together. Please put it up here.</p>
+<p>,Ah So that's what happened. As a special perk for Diamond members, I'll ship what you bought today for free, and I'll do it together. Please put it up here.</p>
 <p>Eve pointed to the serving robot that had stopped Otagi Yuka and I from fighting earlier. Of course, since it's a hologram, I can't receive the items directly, so I'll need the help of a robot like this.</p>
 <p>,I'll put them up.</p>
 <p>I placed the quite heavy steel wolf, EL1, and the battery pack on the serving robot. As soon as I put all the items on, the serving robot seemed to have some kind of sensor, as it widened its eyes and looked at me with a surprised expression.</p>
@@ -39,7 +39,7 @@ chapter = 221
 <p>,There's not much activity now, but it has quite a few patents, so it won't be cheap.</p>
 <p>Even if it's not cheap, I think I can buy it with my assets, or I can buy it with Han Yu-gyeong and then set up a company in Korea to help Han Yu-gyeong...</p>
 <p>,Let's worry about the money after we find out the price. First of all, since we've decided to partner, you can check the AI of the steel wolf.</p>
-<p>,Wow~ Thank you! Before that, I'll send you a temporary contract through the Amhang app.</p>
+<p>,Wow Thank you! Before that, I'll send you a temporary contract through the Amhang app.</p>
 <p>Soon, a document flew in from the Amhang app with a beep. I showed the document to Mimata Chieri to review it. Mimata Chieri quickly read the document and nodded.</p>
 <p>,It doesn't seem to be a problem. It's a temporary contract, so it doesn't seem to have much content yet.</p>
 <p>I nodded at Mimata Chieri's words in secretary mode, and we left Eve and went outside the Amhang New York branch again. There was nothing else to do at Amhang anyway, and it was dinner time, so I was hungry, so I came out right away.</p>
@@ -82,7 +82,7 @@ chapter = 221
 <p>It's not very useful to me, who has the Sense of a Master, but I thought I should give it to Jinmija Yeosa. Since it's malice, it will be useful not only for her life but also for her business. Even scammers who come to ruin her business have malice, so the music box will definitely ring.</p>
 <p>The last liquor called the Elixir of Strength was something I had never seen before either. I'm a little curious whether it will be a dud or a hit.</p>
 <p>◆Elixir of Strength "Rare Elixir"</p>
-<p>An elixir that randomly increases strength by 0~2 when a person with less than 12 strength drinks it all and sobers up. It's just a liquor with no ability if you don't get drunk.</p>
+<p>An elixir that randomly increases strength by 02 when a person with less than 12 strength drinks it all and sobers up. It's just a liquor with no ability if you don't get drunk.</p>
 <p>This was also a useless elixir for me. I can't even get addicted anymore because of my trait, so how can I get drunk? Besides, my strength is exactly 12. Even if I drink it and get drunk, my strength won't increase. Thinking about it, the trait Body Wrapped in the Abyss is quite bad. I don't get drunk even if I drink alcohol, so what's the point of drinking soju...? I don't usually drink alcohol often, but there are times when I crave it.</p>
 <p>As I was sighing while looking at the Elixir of Strength, I heard a knock, and Mimata Chieri peeked in.</p>
 <p>Oh, she came into the room wearing a baby doll that felt like something that the upper class in early modern Europe or America would wear. Mimata Chieri opened her mouth with a slightly flushed face.</p>

@@ -13,7 +13,7 @@ chapter = 772
 <p>Exhilaration.</p>
 <p>Pure, unfiltered happiness.</p>
 <p>She loved seeing me squirm, loved seeing the result of her actions on me. Her fingers gripped the base of my cock tightly, stroking and squeezing in time with the wet, lewd movements of her mouth.</p>
-<p>"Mmmm~</p>
+<p>"Mmmm</p>
 <p>Her satisfied moan sounded, intermixing with the slutty noises of her throat.</p>
 <p>*Schlick!* *Schlurp!* *Schluuuurp!*</p>
 <p>I couldn’t take my eyes off of her for a single second. I wasn’t given the choice. My brain simply didn’t permit it. I wasn’t allowed to miss how her cheeks flushed deeper, how strands of her hair stuck adorably to her glistening cheeks, how she whimpered softly around me whenever she attempted to take me deeper than ever before, and how her triumphant moans filled the air once she managed to do so.</p>

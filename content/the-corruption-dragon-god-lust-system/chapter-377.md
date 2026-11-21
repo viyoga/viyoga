@@ -105,7 +105,7 @@ chapter = 377
 
 <p>She was about to swallow it all again when she felt Qingyi’s hands grabbing her head, his legs trembling with pleasure.</p>
 
-<p>“Oghn~~!!!” Ruxue’s eyes widened as Qingyi shoved it all in at once, her throat desperately clutching at the member, struggling to milk it dry.</p>
+<p>“Oghn!!!” Ruxue’s eyes widened as Qingyi shoved it all in at once, her throat desperately clutching at the member, struggling to milk it dry.</p>
 
 <p>her purple eyes watered, her hands resting on Qingyi’s thighs as he moved his hips without stopping, fucking her mouth as if it were her fat, tight pussy.</p>
 
@@ -117,4 +117,4 @@ chapter = 377
 
 <p>“Ah… good girl…” He pulled back, his cock slipping out of her lips and spurting another gush of hot cum onto Ruxue’s face.</p>
 
-<p>“Gulp~~ Ah~~” Ruxue gulped, flashing a sensual smile across her cum-covered face. “You really were thirsty, huh? Feiyan would love to be fucked like that, hahaha.”</p>
+<p>“Gulp Ah” Ruxue gulped, flashing a sensual smile across her cum-covered face. “You really were thirsty, huh? Feiyan would love to be fucked like that, hahaha.”</p>

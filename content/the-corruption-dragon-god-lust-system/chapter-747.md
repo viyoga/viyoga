@@ -101,7 +101,7 @@ chapter = 747
 
 <p>She then gazed up at him with sparkling eyes.</p>
 
-<p>"I knew Big Brother Qingyi was going to make that bastard regret being born, hehe~ that filthy cuckold Feng Wuji deserved it for all his arrogance!"</p>
+<p>"I knew Big Brother Qingyi was going to make that bastard regret being born, hehe that filthy cuckold Feng Wuji deserved it for all his arrogance!"</p>
 
 <p>Upon hearing this, Qingyi simply held her by the hips, his fingers sinking lightly into the firm, plush flesh before stealing a brief kiss from her lips and turning his attention back to the arena.</p>
 

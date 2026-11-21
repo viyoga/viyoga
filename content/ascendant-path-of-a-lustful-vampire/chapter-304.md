@@ -14,8 +14,8 @@ chapter = 304
 <p>Aurelius’s blue eyes went wide as the uneasy feeling that had gripped him since he instinctively led his team here, grew even more unsettling.</p>
 <p>And then the Beast raised its head and roared, shooting a beam of its own. A beam of that Hellish Aura.</p>
 <p>Aurelius took that seriously, thrusting his hand forward to cast his best defensive spell.</p>
-<p>Following the enlightenment he gained thanks to Caius’s help, ~Mandala~ had gotten even stronger as Aurelius had received yet another piece of power from that strange source he never truly fully understood.</p>
-<p>And sure enough, ~Mandala~ resisted the beam. It resisted so well that there was hardly any force to push Aurelius farther back than a single step where another foothold of ~Freya’s Footsteps~ awaited.</p>
+<p>Following the enlightenment he gained thanks to Caius’s help, Mandala had gotten even stronger as Aurelius had received yet another piece of power from that strange source he never truly fully understood.</p>
+<p>And sure enough, Mandala resisted the beam. It resisted so well that there was hardly any force to push Aurelius farther back than a single step where another foothold of Freya’s Footsteps awaited.</p>
 <p>As its beam was resisted, the beast let out a mighty roar. Its pincers were apart as though to give more room for its disgusting mouth to spew out spittle.</p>
 <p>The roar was loud but its effect was more than sound. Caius felt something within him react. Something within his blood; His Divine Seed.</p>
 <p>Whatever energy had been imbued into the Centipede was rousing the sliver of divinity within him to respond. But not to respond and fight but rather to respond and flee. This—the energy in that beast—was well past the station of Caius’s Divine energy.</p>
@@ -31,8 +31,8 @@ chapter = 304
 <p>With that, Delia tightened her grip on her Warhammer and a spell circle appeared behind her back. It was a stormy grey and crackled with lightning. It was also a Fourth Circle Augmentation spell.</p>
 <p>Delia Kragsten’s magical prowess had advanced.</p>
 <p>Imbued with the might granted to her by the spell circle behind her to boost her speed and ferocity, she moved, vanishing from sight due to her incredible speed.</p>
-<p>The Beast had fired another beam at Aurelius who resisted with ~Mandala</p>
-<p>~ that still hadn’t been broken through but was starting to cause him strain.</p>
+<p>The Beast had fired another beam at Aurelius who resisted with Mandala</p>
+<p> that still hadn’t been broken through but was starting to cause him strain.</p>
 <p>And then, the Centipede became aware of something. It shut off the beam and swiveled its head sideways only for Delia to appear on the other side, already swinging her Warhammer to strike it in the head.</p>
 <p>*BANG!*</p>
 <p>The sound of impact was intense.</p>
@@ -40,20 +40,20 @@ chapter = 304
 <p>*SKREEEEEE!!!*</p>
 <p>Shrieking in pain, the Beast’s head was knocked aside but before it hit the ground. It was clacking its pincers together and twisting its body in an almost serpentine manner of fluidity. Whatever attack it planned to make though, it never got to make as Delia stayed in the air and swung the Warhammer a second time for a strike even more impactful than the first.</p>
 <p>*BANG!*</p>
-<p>At the same time, a Fourth Circle spell circle appeared above the Centipede’s head. It was the deep purple of Dark magic, and it unleashed a wave of overwhelming might that demanded submission. All of that energy was directed at the Centipede but Delia was still struck by an otherworldliness to the spell. As was Aurelius who had now canceled his ~Mandala~ spell but remained on his footholds of light.</p>
+<p>At the same time, a Fourth Circle spell circle appeared above the Centipede’s head. It was the deep purple of Dark magic, and it unleashed a wave of overwhelming might that demanded submission. All of that energy was directed at the Centipede but Delia was still struck by an otherworldliness to the spell. As was Aurelius who had now canceled his Mandala spell but remained on his footholds of light.</p>
 <p>Following the overwhelming feeling that had borne down on the Clacking Centipede, smoke billowed out of the spell circle above and it took the shape of a clawed hand that reached down and wrapped around the Centipede’s head to better keep its grip as it struck it to the ground, so hard that the ground shook ever so slightly.</p>
-<p>~Dark Grip~</p>
-<p>As he controlled the spell circle he had conjured which had spawned the larger one that unleashed the smoky hand, Caius brought the name of the spell to mind. ~Dark Grip~ was the next evolution of his Third Circle ~Black Hand~ spell. The upgrade kept all the aspects of what came before but now possessed the added capability to grip as well as packed a substantially greater punch.</p>
+<p>Dark Grip</p>
+<p>As he controlled the spell circle he had conjured which had spawned the larger one that unleashed the smoky hand, Caius brought the name of the spell to mind. Dark Grip was the next evolution of his Third Circle Black Hand spell. The upgrade kept all the aspects of what came before but now possessed the added capability to grip as well as packed a substantially greater punch.</p>
 <p>The said ’punch’ had stripped a good section of the Beast’s Aura which meant it was more susceptible to attacks.</p>
 <p>Aurelius acted first and cast a spell circle. This time he opted for a Fourth Circle spell that spawned into appearance with a more subtle glow than the third circle attacking spell he had cast earlier. But the energy that came off it however, identified the spell as the powerhouse that it was.</p>
-<p>~Seraphim Blade~</p>
+<p>Seraphim Blade</p>
 <p>A sword blade with no handle or hilt, composed entirely of light was sent out by an energetic throw of Aurelius’s hand and the blade went flying at the Beast.</p>
 <p>It connected. Without the protection of the Hellish Aura, there was no real obstruction and the blade dug so deep that it exited the other end and stabbed into the ground beneath the Centipede.</p>
 <p>It shrieked. And clacked its pincers together in agitation.</p>
-<p>Caius groaned. He let his sword drop from his hand so it stabbed into the soft grassy ground just so he could use both his hands to control the spell circle that made sure the Beast didn’t break free of the hold of the smoky hand of ~Dark Grip~.</p>
+<p>Caius groaned. He let his sword drop from his hand so it stabbed into the soft grassy ground just so he could use both his hands to control the spell circle that made sure the Beast didn’t break free of the hold of the smoky hand of Dark Grip.</p>
 <p>"Delia, now!" he called to the Storm Mage who watched the Centipede’s tail trash all about as it tried to break free and tear out the blade that had cut through its insides. One section of its insides anyway.</p>
 <p>Delia said nothing. She just acted, raising her weapon to bring it down, fast as lightning into the Beast and finish the job.</p>
-<p>Alas, before her attack could hit, and despite the incredible speed that backed it, the Beast trashed even harder, shrieked even louder. Clacked its pincers even harder together. The horns of hellish Aura on its head swelled and the Aura on parts of its body that the landing force of ~Dark Grip~ hadn’t stripped away, bubbled until the Beast’s body was completely coated again.</p>
+<p>Alas, before her attack could hit, and despite the incredible speed that backed it, the Beast trashed even harder, shrieked even louder. Clacked its pincers even harder together. The horns of hellish Aura on its head swelled and the Aura on parts of its body that the landing force of Dark Grip hadn’t stripped away, bubbled until the Beast’s body was completely coated again.</p>
 <p>"Ah!" Caius cried. For some reason, the Aura took hold of his connection with the smoky hand to send him a feedback. A painful feedback.</p>
 <p>It caused Caius’s connection to slip and the Dark hand of his spell dissipated. The centipede slammed its head against the ground then and in the fraction of a fraction of a second, it had dug itself a hole and crawled to get off the surface.</p>
 <p>*THUD!*</p>

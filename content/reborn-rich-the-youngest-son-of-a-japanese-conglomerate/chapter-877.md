@@ -24,7 +24,7 @@ chapter = 877
 <p>According to Information heard through Kyoshiro and Athena, the Spies placed in Anyaji, today, the day after Graduation, they would divide their forces into several branches and Attack Kinui Tachio and the special class that was present during Anyaji's Attack on Kinui Tachio's Dojang.</p>
 <p>Of course, it was a scheme by Taira Ryuta's side to provoke an Attack, but Anyaji's side didn't know that.</p>
 <p>"Everyone finished cleaning their Swords, right?"</p>
-<p>"Yeah~!"</p>
+<p>"Yeah!"</p>
 <p>"Alik, finished cleaning."</p>
 <p>Today's battle was the day the Swords received from Ichimonji Harugoro would make their Actual combat Debut. So, everyone had swung their Swords for several days, gotten used to them, and kept them cleaned so they could cut down Enemies at any time.</p>
 <p>"Since we've received the Letter of Challenge, let's depart now."</p>
@@ -64,16 +64,16 @@ chapter = 877
 <p>"Oh, is that so? Thank you."</p>
 <p>Seizawa Shii, after hanging the Talisman around her Neck, put it inside her cyber Suit. "It'll be safe if I put it in my Cleavage," she muttered, and tucked the Talisman between her Cleavage.</p>
 <p>"Since we're all prepared, let's go."</p>
-<p>"Yeah~☆ Let's go smash Funayama Seigo's Head!"</p>
+<p>"Yeah☆ Let's go smash Funayama Seigo's Head!"</p>
 <p>The two, having finished their Preparation, departed towards the Place Funayama Seigo had mentioned.</p>
-<p>Gojoy-nim requested adult version Linling breast-covering, belly dancer~!</p>
-<p>Starting with belly dance~!</p>
-<p>breast-covering~!</p>
-<p>MidNightSKY-nim requested adult Linling breast-lifting, child Linling Aegyo~!</p>
-<p>Adult Linling breast-lifting~!</p>
-<p>Child Linling Aegyo~!</p>
+<p>Gojoy-nim requested adult version Linling breast-covering, belly dancer!</p>
+<p>Starting with belly dance!</p>
+<p>breast-covering!</p>
+<p>MidNightSKY-nim requested adult Linling breast-lifting, child Linling Aegyo!</p>
+<p>Adult Linling breast-lifting!</p>
+<p>Child Linling Aegyo!</p>
 <p>Is this not it, Master-nim? Ah, you want me to smile?</p>
-<p>Kkyung~!</p>
+<p>Kkyung!</p>
 <p>TheDreaming-nim requested in a night Park 1. Taira Kanna covering her groin and Attacking with a rapier 2. Taira Kanna kicking while tied up.</p>
 <p>1.</p>
 <p>2.</p>

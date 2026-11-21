@@ -37,7 +37,7 @@ chapter = 107
 <p>"I will definitely include it."</p>
 <p>-Good. What do you need?</p>
 <p>"The target's mistress is Sawasu Amika. She belongs to Hirashita Planning."</p>
-<p>-A mistress? Really! Even though I keep telling her not to lower her own value like that. She never listens~! Amika is pretty, so why is she meeting a married man! I've repeatedly told her not to meet adulterous men or old men.</p>
+<p>-A mistress? Really! Even though I keep telling her not to lower her own value like that. She never listens! Amika is pretty, so why is she meeting a married man! I've repeatedly told her not to meet adulterous men or old men.</p>
 <p>When I searched for Sawasu Amika after Taira Kokoro said she was pretty, I found that she was quite a beauty. She was a beauty who seemed like she would appear in a historical drama. She was pretty, but it meant that she wasn't a trendy style these days. That's probably why she's in that subsidiary agency rather than Taira Entertainment itself.</p>
 <p>"When you fall in love, you don't see the other person's conditions."</p>
 <p>-Hahaha. Cute, nephew? Have you been in love a lot?</p>
@@ -54,13 +54,13 @@ chapter = 107
 <p>"I probably won't be able to come in for a few days starting tomorrow. Four days at most?"</p>
 <p>"Huh? What's going on? If you want to use your vacation days, you can just use them. You don't need to tell me, do you?"</p>
 <p>"It's not a vacation. I have a mission from headquarters."</p>
-<p>People with the Taira surname who work at the Taira Group often receive separate missions, so Shinoe Misano nodded, saying, "Ah~!" People at the Taira Group were usually very considerate when someone said they had a mission from headquarters. For reference, Mimata Chieri took a few days of sick leave under the guise of Yukiko's car accident.</p>
+<p>People with the Taira surname who work at the Taira Group often receive separate missions, so Shinoe Misano nodded, saying, "Ah!" People at the Taira Group were usually very considerate when someone said they had a mission from headquarters. For reference, Mimata Chieri took a few days of sick leave under the guise of Yukiko's car accident.</p>
 <p>"It's a headquarters matter. Then I'll process it as a business trip."</p>
 <p>"Thank you."</p>
 <p>"If you're grateful, one more time?"</p>
 <p>Shinoe Misano, who had been facing me just now, now turned her ass back and spread her pussy. Hmm...! Shaking her ass at a strange man so casually! I guess I'll have to punish her with my rod.</p>
 <p>###</p>
-<p>"Sunbae-nim~! Ah, should I call you Team Leader-nim now?"</p>
+<p>"Sunbae-nim! Ah, should I call you Team Leader-nim now?"</p>
 <p>Even though I had discovered her identity, Mimata Chieri's bright appearance remained unchanged. Mimata Chieri had completely recovered from her injuries in just three days. It wasn't something I, who possessed regeneration, should say, but it was an amazing recovery. She brought four operatives with her to handle this matter, and they were all wearing strange cyberpunk-esque masks or helmets, so I couldn't tell who was who.</p>
 <p>These guys were probably the Mumentai (Faceless Squad), the execution squad of the Taira Group that was rumored like an urban legend.</p>
 <p>"Call me whatever you're comfortable with. This is the last mission we'll be doing together anyway, right?"</p>
@@ -72,7 +72,7 @@ chapter = 107
 <p>"Do you happen to have a military supply procurement engineer qualification?"</p>
 <p>"Yes, I do. How did you know?"</p>
 <p>"Then do you have an advanced private military company manager qualification?"</p>
-<p>"Yes~!"</p>
+<p>"Yes!"</p>
 <p>Hmm.... There were a few more qualifications, but I didn't ask any further. The qualifications I had just asked about were only necessary for someone who would become the owner of a PMC. It seemed like Mimata Chieri would become my secretary. It might not be the case, but I just had a feeling.</p>
 <p>"Then I'll explain what we're going to do."</p>
 <p>"..."</p>

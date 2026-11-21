@@ -41,12 +41,12 @@ chapter = 1016
 <p>"There seemed to be quite a few People like us. It felt like there were quite a few People who seemed to have come to buy Clothes to match the dress code."</p>
 <p>To my question, Kujo Kina Answered. Hmm.... Certainly, if they came after suddenly hearing the rumor that the Shard of Omniscience was in New York, they might not have been able to prepare Clothes. It wasn't strange to see them at the department store to purchase Clothes like us.</p>
 <p>"Were there any recognizable People?"</p>
-<p>"Ei~ Teacher-nim. How would I know? Instead, I took Photos, pretending to take pictures of us trying on Clothes. We can just entrust those Photos to Teacher-nim's Information team, right?"</p>
+<p>"Ei Teacher-nim. How would I know? Instead, I took Photos, pretending to take pictures of us trying on Clothes. We can just entrust those Photos to Teacher-nim's Information team, right?"</p>
 <p>Kujo Kina, surprisingly competent...? We received the Photos Kujo Kina had taken and began to check if they were indeed recognizable People.</p>
 <p>"By the way, what about the Clothes?"</p>
 <p>"I left them for alteration. They'll arrive before Evening meal."</p>
 <p>While checking the Photos, when I asked about the Clothes, they said they had left them for alteration, presumably to fit them perfectly to the Body.</p>
-<p>"Oh, right, Azuma-ssi and Class Teacher-nim, come this way~! Because we need to measure your Body Size and send it!"</p>
+<p>"Oh, right, Azuma-ssi and Class Teacher-nim, come this way! Because we need to measure your Body Size and send it!"</p>
 <p>Sawayanagi Azuma and Kurayamada Kirie couldn't go to the department store because they were formulating the Operation, so it seemed they had to measure their dimensions here and send them to the alteration place.</p>
 <p>"I don't know if all the People photographed here are auction attendees, as Kina suspected. Most who attend the auction belong to secret Factions, so I don't know their Faces. However, there are some known Characters, and this Middle East man here is the Chairman of the Arab Alchemist Association Alliance. His name is grand, but it's an insignificant organization. However, they have a lot of Money."</p>
 <p>Naruse Shiyo said, pointing to the Photo of the Middle East man wearing a Keffiyeh. No matter how much they operate in the shadows, even if they are Sorcerers or Magicians belonging to a secret society, if they are about a Chairman of an alliance, their Face becomes known, I see.</p>
@@ -62,12 +62,12 @@ chapter = 1016
 <p>Since I'm part of the auction team, I only needed to wear a Suit. If a battle breaks out, I can just transformation into Black Knight with my Bracelet, so unlike others, I didn't have much to prepare.</p>
 <p>Ttok-ttok!</p>
 <p>As I was putting on Clothes, someone knocked on the door. When I Answered "Yes," the door opened a little, and Kujo Kina poked only her Face out.</p>
-<p>"Teacher-nim~! Look at our Clothes~! I'll send them one by one, so I'd like you to Evaluation how they are."</p>
+<p>"Teacher-nim! Look at our Clothes! I'll send them one by one, so I'd like you to Evaluation how they are."</p>
 <p>Ah, are they going to have a Fashion show or something? Even without that, I was curious what Clothes they bought at the department store. I looked at the door with Eyes full of Expectation.</p>
-<p>Requested by Hwanbuljeoldaebulga-nim: The original Illustration of Lisa Class Teacher-nim, drunk on Alcohol, lying down and sensually gazing~!</p>
-<p>Lisa-ttang~!</p>
-<p>Class Teacher-nim~!</p>
-<p>Requested by Gojoy-nim: Chapter 18 Gokado Hanako image, surprised by seeing the protagonist's Sex, and Chapter 19 Gokado Hanako in a Seduction Appearance on the bed~!</p>
-<p>Chapter 18~!</p>
-<p>Chapter 19~!</p>
+<p>Requested by Hwanbuljeoldaebulga-nim: The original Illustration of Lisa Class Teacher-nim, drunk on Alcohol, lying down and sensually gazing!</p>
+<p>Lisa-ttang!</p>
+<p>Class Teacher-nim!</p>
+<p>Requested by Gojoy-nim: Chapter 18 Gokado Hanako image, surprised by seeing the protagonist's Sex, and Chapter 19 Gokado Hanako in a Seduction Appearance on the bed!</p>
+<p>Chapter 18!</p>
+<p>Chapter 19!</p>
 <p>In fact, in the novel's narration, she was sitting like the last one, but lying down is Sex-y, so I mainly made images of her lying down haha.</p>

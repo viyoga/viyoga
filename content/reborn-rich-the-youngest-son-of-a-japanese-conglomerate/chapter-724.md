@@ -29,7 +29,7 @@ chapter = 724
 <p>"You must be tired because of me, so take it easy and rest."</p>
 <p>"No, I actually feel energized every time I'm with Ryuta.... I actually feel better."</p>
 <p>Thanks to the stamina recovery ability of the Holy Pillar, Han Yu-gyeong didn't seem too tired. That's a relief. I talked with Han Yu-gyeong for a short time and then parted ways when it was time for my flight.</p>
-<p>"Heeing~ I always hate saying goodbye...."</p>
+<p>"Heeing I always hate saying goodbye...."</p>
 <p>"We'll be able to be together someday."</p>
 <p>I comforted the sad Han Yu-gyeong for a while, then gave her one last hug and boarded the plane. In fact, Fujikawa Airport, the closest airport to Miyashi, didn't have many passengers.</p>
 <p>Of course, there were many passengers during peak season near Mount Fuji, which could be considered a tourist destination, but now it wasn't peak season, so it seemed that only people with travel plans in that area were on board.</p>
@@ -39,7 +39,7 @@ chapter = 724
 <p>"I just wanted to try it on, hehe. It took quite a while to find this outfit yesterday, you know?"</p>
 <p>Ah, she thought she would meet me on the plane, so she tried to find a stewardess outfit? Seeing this, Eve was quite the eccentric.</p>
 <p>"So, the reason you didn't reply to my message was...?"</p>
-<p>"I wanted to surprise you~!"</p>
+<p>"I wanted to surprise you!"</p>
 <p>I chuckled at Eve's answer and sat down in my seat. Eve also sat down, right next to me. Of course, it was first class, so the seats themselves were quite far apart.</p>
 <p>"You didn't arrange for a car to pick you up in Miyashi, did you?"</p>
 <p>"No. I came from Tokyo when I came to Korea. I was going to take a taxi."</p>
@@ -57,7 +57,7 @@ chapter = 724
 <p>"Well.... I'm not going to meet them anyway, so I don't care. Let's get off now, Eve."</p>
 <p>"Shall we?"</p>
 <p>Eve seemed to be happy with my answer. We got off the plane and headed to the parking lot. The car Eve prepared was an ordinary sedan, and it seemed that Eve would be driving herself. Since she's an AI android, she must be a good driver.</p>
-<p>"I'll take you home comfortably, Ryuta-nim~!"</p>
+<p>"I'll take you home comfortably, Ryuta-nim!"</p>
 <p>"Thank you, Eve."</p>
 <p>I greeted Eve and got into the car. Soon, the car started smoothly and headed to Miyashi.</p>
 <p>"Is Linling's body being made well?"</p>
@@ -67,7 +67,7 @@ chapter = 724
 <p>"So, Ryuta-nim, please invest in this project. We need money to develop the technology."</p>
 <p>Even though the three of them are AI androids, it seems that they need money to develop the technology.</p>
 <p>"The developed technology can also be used for TG Tech, right?"</p>
-<p>"Of course~! If you invest in the android side, you can apply it to the power suit you're trying to make now, so it won't just be a waste of money."</p>
+<p>"Of course! If you invest in the android side, you can apply it to the power suit you're trying to make now, so it won't just be a waste of money."</p>
 <p>Whether it's a power suit or an android body, the only difference is whether a person or artificial intelligence is inside, so there would be many compatible technologies.</p>
 <p>"Okay. Take some from the Amsang points that I haven't exchanged yet."</p>
 <p>"I'll only take about 25 percent of the bounty I got from catching Gao Xiang this time."</p>
@@ -82,7 +82,7 @@ chapter = 724
 <p>"We're already here. You've worked hard in Korea and China, so go in and rest, Ryuta-nim."</p>
 <p>"I can't tell Eve to rest. She definitely won't have time to rest."</p>
 <p>We arrived in front of my house. Eve has Amsang work spread all over the world in addition to our TG Tech work, so she won't have time to rest.</p>
-<p>"I'm distributing resources appropriately, so don't worry. I'll be going now~!"</p>
+<p>"I'm distributing resources appropriately, so don't worry. I'll be going now!"</p>
 <p>"Okay, thank you for the ride."</p>
 <p>I sent Eve off and took my luggage and returned to my house, which I hadn't been to in a while. It was only a house I had been in for a few months, but somehow I had become a little attached to it. I felt like I had returned.</p>
 <p>When I opened the door, there were a few pairs of shoes. Knowing that I was coming home, some of the troublemakers from St. Francisco Girls' Academy were already waiting at my house.</p>

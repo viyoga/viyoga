@@ -24,7 +24,7 @@ chapter = 763
 <p>"You worked hard today, Master. Let me feed you."</p>
 <p>He opened his mouth. The sashimi was cold and perfect.</p>
 <p>Calypso claimed his right, her tail curling around his leg, a fork already loaded with a chunk of Ironback steak dripping with butter.</p>
-<p>"Darling~ Try this one. It’s the best cut on the table."</p>
+<p>"Darling Try this one. It’s the best cut on the table."</p>
 <p>Both thighs claimed, both monster girls feeding him like it was their sacred duty.</p>
 <p>Across the table, two pairs of eyes locked onto the scene.</p>
 <p>Aria’s smile hadn’t moved, but moonlight pooled between her fingers.</p>
@@ -35,11 +35,11 @@ chapter = 763
 <p>At the end of the table, a different kind of war was happening.</p>
 <p>Luna’s chopsticks blurred toward Nyx’s plate. They slowed halfway there, the air thickening around her wrist like invisible syrup. Luna pushed through it, but the delay was enough. Nyx’s plate slid six inches to the left without anyone touching it, and the chopsticks snapped shut on empty table.</p>
 <p>"Fatty!"</p>
-<p>"Too slow~"</p>
+<p>"Too slow"</p>
 <p>Like a warrior preparing for a brutal duel, Luna grabbed a second set of chopsticks.</p>
 <p>"Dual wielding? Really?"</p>
 <p>"I can bring out my Stormblade if you want. Just say the word!"</p>
-<p>Nyx giggled at that. "What a sore loser~"</p>
+<p>Nyx giggled at that. "What a sore loser"</p>
 <p>Luna’s eyes narrowed into fiery slits and her left hand came around faster, aiming for the Emberfang rib, but the plate was already drifting again. Every grab met empty air where food had been a half-second earlier.</p>
 <p>While Luna overextended, Nyx calmly lifted a piece of steak off Luna’s unguarded plate with a flick of spatial force, sending it in a lazy arc toward her own.</p>
 <p>Luna cursed and snatched it out of the air before it landed.</p>

@@ -74,7 +74,7 @@ chapter = 602
 <p>Even in the meantime, Ogre's fingers dug into Kiruoni's chest, and already two knuckles of her fingers had entered. Ogre began to feel something throbbing at the tip of her fingers.</p>
 <p>"Is this the heart?"</p>
 <p>"Plea, please... Sa, save...!"</p>
-<p>"You didn't save me even when I begged you to save me. I got an advance payment, so I have to kill you. I'm sorry, but die~☆"</p>
+<p>"You didn't save me even when I begged you to save me. I got an advance payment, so I have to kill you. I'm sorry, but die☆"</p>
 <p>Ogre didn't even listen to Kiruoni's words asking to be saved and crushed his heart to death. Then, she pulled out her hand and wiped the blood-stained hand on Kiruoni's hem.</p>
 <p>"Are you alive over there?"</p>
 <p>"...Yes."</p>
@@ -82,11 +82,11 @@ chapter = 602
 <p>"I saved you, so please don't talk about my appearance if possible."</p>
 <p>"I understand. Th, thank you for saving me... Heueuk, heuk...! Heuk."</p>
 <p>The surviving woman began to cry. It was impossible to know whether she was crying because she was alive, or because the situation just now was scary, or because Ogre, who she was talking to now, was scary.</p>
-<p>"It's quite noisy, so the police will be here soon. Well, I'll be going~! Bye~☆"</p>
+<p>"It's quite noisy, so the police will be here soon. Well, I'll be going! Bye☆"</p>
 <p>Ogre greeted the surviving woman brightly and came out of the secret space. She went to the window she came in through and climbed up to the roof on the rope. Then, she sent a text message to someone saying that the mission was complete. Seeing the money coming in right away, she smiled refreshingly and looked at the moon floating high in the sky.</p>
 <p>"I did a good job."</p>
 <p>Ogre, who was muttering for a moment, discovered Kiruoni's blood on her Gothic Lolita dress reflected in the moonlight.</p>
-<p>"Ah~! I have to go to the laundromat again. I hope I don't meet Ryuta-jji this time either?"</p>
+<p>"Ah! I have to go to the laundromat again. I hope I don't meet Ryuta-jji this time either?"</p>
 <p>Ogre, who was grumbling for a moment, quietly disappeared, melting into the darkness.</p>
 <p>___________________</p>
 <p>Ogre (Gothic Lolita version) B-cut!</p>

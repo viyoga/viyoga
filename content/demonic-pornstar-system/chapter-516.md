@@ -44,7 +44,7 @@ chapter = 516
 <p>Nyx was in agreement. "If a fight started here, they’d probably take out both parties before they even hit the ground."</p>
 <p>Calypso giggled. "Oh, they’d be fun to provoke. Shame this isn’t the place for it."</p>
 <p>Kaiden shot her a look.</p>
-<p>She winked. "Just kidding, of course, Darling~ I’m not dumb nor suicidal..."</p>
+<p>She winked. "Just kidding, of course, Darling I’m not dumb nor suicidal..."</p>
 <p>If the presence of the Peacekeepers wasn’t enough of a deterrent force, well, they weren’t the only eyes watching.</p>
 <p>Hundreds of cameras lined the temporary structures, perched on poles, built into tents, attached to armor, mounted on rails. Drones swarmed overhead, recording every moment as if the entire basin were one giant gaming lobby waiting for highlights. On the cliffsides, media teams camped on higher vantage points, lenses aimed downward like a forest of mechanical stalks.</p>
 <p>Some crews were filming news updates.</p>

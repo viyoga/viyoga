@@ -24,7 +24,7 @@ chapter = 197
 <p>Alice shuddered as Ethan’s cock throbbed inside her, pulsing out wave after wave of thick cum, filling her until there was no room left for anything else.</p>
 <p>She placed a trembling hand on her own belly as their bodies parted by a single centimeter, the wet sound of their union still echoing softly between them.</p>
 <p>She could feel the cum inside her, hot and thick, filling her completely.</p>
-<p>"Mghn~ Ethan... you should be more careful when you fill my little pussy with cum... what if I lost control and let you accidentally impregnate me? Huh? It’s not the right time yet, is it?" Alice’s sweet, lewd voice echoed through the bathroom.</p>
+<p>"Mghn Ethan... you should be more careful when you fill my little pussy with cum... what if I lost control and let you accidentally impregnate me? Huh? It’s not the right time yet, is it?" Alice’s sweet, lewd voice echoed through the bathroom.</p>
 <p>It took her a full second, dazed with pleasure, to realize the obscene words tumbling out of her mouth, her eyes widening as her cheeks flushed a bright red.</p>
 <p>"Hahaha, I’ll be more careful, love." Ethan laughed at her reaction, leaning over her and stealing a soft kiss from her lips.</p>
 <p>"Let’s have breakfast now; the girls must be waiting for us."</p>

@@ -28,7 +28,7 @@ chapter = 517
 <p>At the same time, his penis grew even larger and filled with pleasure, so he lost the ability to resist and succumbed to the woman before him while enveloped by overwhelming and mind-numbing pleasure.</p>
 <p>Why fight back when you could simply enjoy?</p>
 <p>His cock grew larger inside of her before spewing all its white liquid again and again.</p>
-<p>“Nn~!”</p>
+<p>“Nn!”</p>
 <p>Persephone trembled and her toes curled as she received the powerful heat of his cum inside her while the incredible life energy of Sol spread through all her body as if to overwhelm her.</p>
 <p>“Ugh…”</p>
 <p>She was lost for words, unable to formulate any thoughts nor keep her composure as she was being creampied.</p>

@@ -43,9 +43,9 @@ chapter = 554
 <p>St. Francisco Girls' Academy's festival was uniquely held around the same time as Christmas, so it was called the Holy Day Festival. It was an event that had existed since St. Francisco Girls' Academy was a Christian mission school and had been going on for over a hundred years, continuing the tradition.</p>
 <p>As expected of a festival held by daughters of prestigious families, the quality was quite high with all the money poured into it. So I wondered if a collection of writings would sell compared to club activities like cafes, simple restaurants, or haunted houses, but seeing Minamoto Risa's confident expression, it seemed like she had a solution.</p>
 <p>What I did here was to look over the contents of the collection written by the students. Most of the date experiences of the Date Experience Club were with me, so it was a review process to check if anything was different from my memory.</p>
-<p>"Sensei-nim~! Please look at this~!"</p>
+<p>"Sensei-nim! Please look at this!"</p>
 <p>Konoe Akina, who was waiting her turn, showed me her handwritten date experience. Most of the students showed me their date experiences, reminiscing about their feelings at the time and being happy.</p>
-<p>Looking at it now, my role was to add to the students' happy feelings by saying, "That's how it was back then~," raising their morale. I didn't mind doing anything if the students were happy, but... was this really necessary?</p>
+<p>Looking at it now, my role was to add to the students' happy feelings by saying, "That's how it was back then," raising their morale. I didn't mind doing anything if the students were happy, but... was this really necessary?</p>
 <p>As I was talking with the club students, the clubroom door slid open and Taira Kanna and a few student council members came in. Taira Kanna saw me sitting down, made her eyes into crescent moons, smiled, and greeted me.</p>
 <p>"Hello, Yamashiro-sensei."</p>
 <p>"Yeah, what's up, student council president?</p>
@@ -59,7 +59,7 @@ chapter = 554
 <p>I signed another paper that Taira Kanna handed me. It was a paper that said "Prize Money Receipt," and the prize money was one, ten, hundred, thousand, ten thousand... one million yen? Student council president, you said it was a small amount? Of course, from Taira Kanna's point of view as the daughter of the Tairaga family, one million yen wouldn't be a large sum.</p>
 <p>"I have your signature, ora... no, Yamashiro-sensei. Please stop by the student council room from time to time."</p>
 <p>She was about to say "older brother," wasn't she? Taira Kanna gave a faint smile, glanced at the students, turned around, and left the clubroom. As soon as Taira Kanna left, all the students rushed towards me, who was holding the prize money envelope.</p>
-<p>"How much is the prize money, Ryuta-cchi? Let's fill our clubroom with something with the prize money~☆"</p>
+<p>"How much is the prize money, Ryuta-cchi? Let's fill our clubroom with something with the prize money☆"</p>
 <p>"I'd like a high-end antique dressing table."</p>
 <p>"Rather than that...!"</p>
 <p>"I'd like to increase the cooking utensils?"</p>

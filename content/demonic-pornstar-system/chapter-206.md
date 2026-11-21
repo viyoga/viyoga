@@ -28,10 +28,10 @@ chapter = 206
 <p>He smirked, glancing at the Ra-Blessed Felinid nuzzling against him. "Besides... the world’s still buzzing about the boss monster subjugation. That’ll stay on the front page. In comparison, I think this is just some background noise. But even if it isn’t, all we can do is move forward."</p>
 <p>Their steps echoed along the tram platform.</p>
 <p>Bastet was the one who broke the silence, her voice a velvety purr against Kaiden’s shoulder.</p>
-<p>"Mmm~ Master," she cooed, nuzzling into him, her long nails tracing down the fabric of his shirt, "Speaking of my subjugation... how do you feel about subjugating me... again~? I’ve been well-behaved lately... but I can’t promise I’ll stay that way forever~"</p>
+<p>"Mmm Master," she cooed, nuzzling into him, her long nails tracing down the fabric of his shirt, "Speaking of my subjugation... how do you feel about subjugating me... again? I’ve been well-behaved lately... but I can’t promise I’ll stay that way forever"</p>
 <p>Kaiden laughed hearing what the seemingly always horny felinid had just said. He appreciated her honesty. Bastet was a woman who didn’t like repressing her desires; she was a go-getter type of girl.</p>
 <p>"After we get back from the Ashborn place," he said, brushing his knuckles along her jawline, "I’m all yours. All four of yours."</p>
-<p>Bastet’s tail flicked behind her in clear satisfaction, her golden eyes glimmering. "I can’t wait~" she purred. Then she turned her head. Not toward Kaiden, but toward Aria.</p>
+<p>Bastet’s tail flicked behind her in clear satisfaction, her golden eyes glimmering. "I can’t wait" she purred. Then she turned her head. Not toward Kaiden, but toward Aria.</p>
 <p>This was a first.</p>
 <p>Bastet’s tone softened—not sultry, not mocking—just calm.</p>
 <p>"You worry too much," she said to the Moon Valkyrie. "This little data deletion thing or whatever it was... It’s going to make him even more desirable."</p>

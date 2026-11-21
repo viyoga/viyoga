@@ -29,8 +29,8 @@ chapter = 168
 <p>Two sisters, side by side, their asses raised in the air, full pale orbs partially revealed beneath the hems of their sexy uniform skirts.</p>
 <p>He let out a low sigh, approaching them with slow steps.</p>
 <p>Neither wore panties. Love juices trickled down the pale, soft lips of their virgin pussies, the pink interior still hidden and untouched.</p>
-<p>"Nghnn~"</p>
-<p>"Mghn~ M-my L-lord!"</p>
+<p>"Nghnn"</p>
+<p>"Mghn M-my L-lord!"</p>
 <p>Both sisters moaned in unison the instant Ethan’s hands moved.</p>
 <p>His left hand seized Mia’s voluptuous, full ass, fingers sinking deep into the warm, pliant flesh.</p>
 <p>The soft mound squished around his digits, then slowly pushed back as he eased his grip, only to surrender again as he squeezed harder.</p>
@@ -41,12 +41,12 @@ chapter = 168
 <p>What kind of man wouldn’t go mad with pleasure?</p>
 <p>It didn’t matter that they weren’t comparable to a woman like Alice. They were his, and his alone.</p>
 <p>"Are you ready for this?" he asked, the middle fingers of each hand sinking into the plump lips of both pussies, drawing gasping, ragged sighs.</p>
-<p>"Y-yes... my Lord... Mia is already ready for Lord’s big cock~♡" the older sister replied, her voice thick with desire.</p>
-<p>"L-Lia too!~♡" the younger one repeated with a squeal, flushed and trembling from head to toe.</p>
+<p>"Y-yes... my Lord... Mia is already ready for Lord’s big cock♡" the older sister replied, her voice thick with desire.</p>
+<p>"L-Lia too!♡" the younger one repeated with a squeal, flushed and trembling from head to toe.</p>
 <p>Ethan smiled at those words, starting with Mia, on his left. His free hand remained on the younger sister’s pussy, caressing it gently.</p>
 <p>He gave Mia’s ass a firm slap—the plump flesh flattening beneath his palm before rippling in heavy waves—and freed his cock.</p>
 <p>Big, thick, and throbbing, the member sank between her buttocks, hot and heavy against her quivering skin.</p>
-<p>"M-my lord? I-isn’t it a little nghnn~~ too big?" Mia asked, feeling the true weight of Ethan’s cock for the first time.</p>
+<p>"M-my lord? I-isn’t it a little nghnn too big?" Mia asked, feeling the true weight of Ethan’s cock for the first time.</p>
 <p>She’d heard Evelyn talk about the size, but feeling it pressing against her right now...</p>
 <p>Ethan didn’t answer. He simply grabbed the base of his own member, aligning it with the wet entrance of Mia’s pussy.</p>
 <p>She was the only one in the group who was a second-stage Awakened, which meant her body was far more resilient than that of a non-Awakened woman.</p>
@@ -58,9 +58,9 @@ chapter = 168
 <p>Her pleasure-stricken face sank into the pillow.</p>
 <p>One of her hands reached for her flat stomach, feeling his cock pressing against the thin skin beneath, a clear, obscene bulge stretching her abdomen.</p>
 <p>He pulled his hips back and the bulge disappeared, only to reappear with even greater intensity when he thrust forward with full force once more.</p>
-<p>"AGHNN~~ L-lord... oghnn~~ SO BIG~ fufufu~~♡" Mia’s eyes widened.</p>
+<p>"AGHNN L-lord... oghnn SO BIG fufufu♡" Mia’s eyes widened.</p>
 <p>Her face left the grip of the pillow and lifted, a long, obscene moan escaping her lips along with her tongue, which hung out of her mouth.</p>
-<p>"S-sister nghnn~~" Lia blinked in shock, her moist eyes widening, but she barely had time to take in her sister’s lustful face.</p>
+<p>"S-sister nghnn" Lia blinked in shock, her moist eyes widening, but she barely had time to take in her sister’s lustful face.</p>
 <p>A second of Ethan’s fingers sank into her pussy, drawing a sharp, wet squeal, her smaller breasts jiggling against the sheets as her body jerked from the sudden intrusion.</p>
 <p>Soon, both sisters found themselves lost in the same obscene state, the loud slaps of Ethan’s hips against Mia’s ass gained even more force, each collision sending shockwaves coursing through her plump cheeks.</p>
 <p>The older sister’s obscene, moans merged with the younger one’s, forming an indecent symphony.</p>

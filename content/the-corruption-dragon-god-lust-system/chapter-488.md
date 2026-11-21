@@ -73,13 +73,13 @@ chapter = 488
 
 <p>Suddenly, she woke up, feeling a powerful hand flow toward one of her huge tits, grabbing it and squeezing it firmly.</p>
 
-<p>“Uh? Nghnn~~ hubby~~” Feiyan moaned.</p>
+<p>“Uh? Nghnn hubby” Feiyan moaned.</p>
 
 <p>Her beautiful brown eyes focused on Qingyi as her body writhed slightly. The bikini top slipped off her tits, revealing patches of pale, shiny skin and puffy, pink nipples.</p>
 
 <p>“What’s wrong? Didn’t you miss me?” Qingyi laughed, leaning over Feiyan before planting a kiss on her lips and pulling her onto his lap.</p>
 
-<p>“I always miss my hubby, fufufu~~”</p>
+<p>“I always miss my hubby, fufufu”</p>
 
 <p>Feiyan spun around on Qingyi’s body, pulling his face into the deep valley of her breasts. Her buttocks hit the bulge in his pants as she swayed her hips in a smooth, sensual grind.</p>
 
@@ -95,11 +95,11 @@ chapter = 488
 
 <p>He moved one of his hands down slightly, pulling the thong that sank between the fat, pale lips of her vulva before sticking his thumb into the hot, wet valley.</p>
 
-<p>“Aghnnn~~” Feiyan moaned, her whole body trembling as she leaned on Qingyi’s shoulders, her fingers digging into his skin.</p>
+<p>“Aghnnn” Feiyan moaned, her whole body trembling as she leaned on Qingyi’s shoulders, her fingers digging into his skin.</p>
 
 <p>Her body shivered with excitement as her plump, red lips parted in a sensual smile.</p>
 
-<p>“Hubby noticed, right? I’ve made great progress recently, fufufu~~” Feiyan purred.</p>
+<p>“Hubby noticed, right? I’ve made great progress recently, fufufu” Feiyan purred.</p>
 
 <p>Her words prompted Qingyi to open her status screen.</p>
 

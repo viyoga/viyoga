@@ -105,7 +105,7 @@ chapter = 468
 
 <p>“I know, darling,” Qingyi replied, lowering his head and pressing his lips against hers.</p>
 
-<p>“Nghnn~~”</p>
+<p>“Nghnn”</p>
 
 <p>Ruxue moaned as a powerful slap smacked against her buttocks. Her lips were sealed by Qingyi’s, his tongue swirling around hers. “Your hubby is a shameless and greedy bastard, I know that,” he murmured as he parted his lips, feeling Ruxue’s panting breath hit his face.</p>
 

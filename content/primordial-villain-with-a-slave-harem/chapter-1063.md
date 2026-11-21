@@ -44,7 +44,7 @@ chapter = 1063
 <p>Yoruha, in her humanoid form now, hands tucked lazily behind her head, lips curled into a condescending smirk.</p>
 <p>Lilith froze. Her battle grin faltered. ’That wasn’t her ultimate technique?’ It hadn’t even been serious. No real attacks came for her life.</p>
 <p>Just a cruel distraction, meant to buy time.</p>
-<p>"That man," Yoruha declared. "Is mine. I suggest you find another hobby. Perhaps killing each other with Black Fang? Now that would be a very productive usage of your lives. I hope to never see either of you ever again, bye-bye~"</p>
+<p>"That man," Yoruha declared. "Is mine. I suggest you find another hobby. Perhaps killing each other with Black Fang? Now that would be a very productive usage of your lives. I hope to never see either of you ever again, bye-bye"</p>
 <p>Lilith’s fury surged, her blade slicing clean through Yoruha’s throat, only for the fox’s body to scatter like smoke. An illusion.</p>
 <p>Yoruha appeared again, hands at her neck, feigning a dramatic choke as blood spilled from her neck. Yet she had no trouble speaking at all. "So feisty. Perhaps what you girls need is a firm man in your lives. I would know, I see him conquering one crazy chick after another and turning them into loving little wives."</p>
 <p>And with that, she lifted two fingers in a cheeky V-sign, tails swaying as her body shimmered into nothingness. "Now, if you don’t mind, I have a tremendous amount of sleep to catch up on."</p>

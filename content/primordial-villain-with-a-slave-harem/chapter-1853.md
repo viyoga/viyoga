@@ -10,17 +10,17 @@ chapter = 1853
 <p>"...Sister!" Ayame’s voice came out a breathless gasp, full of relief.</p>
 <p>Then her eyes wandered. "Your hand..."</p>
 <p>The hand withdrew.</p>
-<p>"It was shaking~"</p>
+<p>"It was shaking"</p>
 <p>The tilde was back, because of course it was.</p>
 <p>The venom could strip her composure, her dignity, her motor function, and every gram of her bratty front, but it could not reach the part of Ayame that found cracks in her elder sister’s armor.</p>
 <p>"I am conducting remedial correction."</p>
-<p>"Shaking~"</p>
+<p>"Shaking"</p>
 <p>Black Fang’s eyes narrowed.</p>
 <p>Quinlan stopped.</p>
 <p>His hips stilled, his hands gentled in her hair, and for one merciful heartbeat the venom had nothing new to work with.</p>
 <p>Ayame lay gasping in his arms, every nerve still ringing, and the reprieve felt so total that her brain began tentatively accepting applications for rehire.</p>
 <p>Then he looked down at her, and his expression was far too familiar.</p>
-<p>"A cheeky brat to the end, I see~" he purred, full of affection. He loved this woman.</p>
+<p>"A cheeky brat to the end, I see" he purred, full of affection. He loved this woman.</p>
 <p>But Ayame knew that tone. At least, when used on her in the bedroom, it could only mean one thing...</p>
 <p>Her eyes went wide. "Wait-"</p>
 <p>He buried himself to the root, launching Ayame clean off the floorboards, and held.</p>
@@ -73,7 +73,7 @@ chapter = 1853
 <p>Quinlan then took the last step, pushing through her hand until her palm bent against his chest and his fingers found her chin and tilted it up.</p>
 <p>"I don’t believe you."</p>
 <p>He turned her head to the side in his palm while her eyes remained closely locked onto his.</p>
-<p>"You’re a liar, Black Fang~"</p>
+<p>"You’re a liar, Black Fang"</p>
 <p>The temperature fell out of the room.</p>
 <p>Black Fang’s aura hit the hall like a door slamming, pure dread and menace flooding the air between them.</p>
 <p>The brazier’s flames leaned sideways and dimmed. Her bent arm straightened against his chest, her palm locking flat, and the violet in her eyes went thin and bright as venom in a needle.</p>

@@ -11,7 +11,7 @@ chapter = 348
 <p>Oofuchi Erika immediately drops the "I'm not going to school, you know?" without even introducing herself. She really proves the importance of school life. Being cooped up at home for three years of high school makes it difficult for her to deal with people. In short, she lacks social skills.</p>
 <p>"Can I ask why? Even if the Director-nim is your guardian, if this matter goes to the board of directors, you, who haven't attended school for three years, will inevitably be expelled."</p>
 <p>"Then I can just take the High School Graduation Equivalency Exam."</p>
-<p>Oofuchi Erika looks at me confidently with an expression that says, "Yeah, even if I get expelled, I can just take the GED~". Hmm, as a social Sunbae, I need to teach this naive girl about the cold side of society.</p>
+<p>Oofuchi Erika looks at me confidently with an expression that says, "Yeah, even if I get expelled, I can just take the GED". Hmm, as a social Sunbae, I need to teach this naive girl about the cold side of society.</p>
 <p>I've heard that you're smart. If you had taken the High School Graduation Equivalency Exam in your first year of high school and entered another university, you would have been welcomed as a prodigy. But now, with only six months until graduation, even if you, who were expelled just before graduating, take the High School Graduation Equivalency Exam and the University Entrance Center Exam, you'll definitely fail the interview.</p>
 <p>Oofuchi Erika asks back with an expression of disbelief at my words. I can see that childish rebellious spirit.</p>
 <p>"Because I was expelled six months before graduation?"</p>
@@ -58,7 +58,7 @@ chapter = 348
 <p>"Yeah, give me your LINE ID. If anything happens, you can talk to me on LINE."</p>
 <p>I said, handing my phone to Oofuchi Erika. I have a lot to do, including inviting her to the club group chat.</p>
 <p>Oofuchi Erika, whose face is flushed as if it's her first time giving out her LINE ID like this, is adding a friend. It's a little cute. Now that I'm done with work, I really have to go.</p>
-<p>"Be sure to come tomorrow~!"</p>
+<p>"Be sure to come tomorrow!"</p>
 <p>"Y-yes.... Teacher-nim."</p>
 <p>I waved my hand, closed the door, and came out. Daigo Terue was waiting for me in front.</p>
 <p>"Did the consultation go well?"</p>
@@ -86,6 +86,6 @@ chapter = 348
 <p>Yamashiro Ryuta had already become a father in Oofuchi Erika's heart.</p>
 <p>----</p>
 <p>Oofuchi Erika's uniform look!</p>
-<p>A home teacher wearing an oversized T-shirt requested by Altenia-nim~!</p>
+<p>A home teacher wearing an oversized T-shirt requested by Altenia-nim!</p>
 <p>It's not oversized, but I like it ㅎㅎ</p>
 <p>Somehow, setting up an oversized shirt makes the chest look bigger ㅎㅎㅎ</p>

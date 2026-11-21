@@ -30,7 +30,7 @@ chapter = 979
 <p>"Haha, it's all thanks to the Group's Help."</p>
 <p>Although he gave a humble Answer to Grandfather Taira Danjo's Praise, Taira Gensuke had a very proud Expression.</p>
 <p>"Next quarter, I will increase the Budget for the South American Branch."</p>
-<p>"Thank you, Grandfather~!"</p>
+<p>"Thank you, Grandfather!"</p>
 <p>As expected, when it came to the Grandson's Faction, the Rewards were a bit stingier. For the Son's Faction, affiliate companies were given as Rewards, but for the Grandson's Faction, it was merely an increase in Budget. Of course, it's natural since what they bear and what they achieve differ according to their generational rank.</p>
 <p>"Next up is...."</p>
 <p>After Taira Gensuke, there were Taira Ichiro's Daughters, Taira Akane and Taira Reiko, but Taira Akane was helping her Mother with her Travel agency Work, and Taira Reiko was still a University Student. Taira Danjo offered simple words of encouragement to his two Granddaughters, then looked at Taira Kokoro's Daughter, Taira Kisa.</p>
@@ -39,7 +39,7 @@ chapter = 979
 <p>"I'm happy that Grandfather, the top entrepreneur in Japan, praised me. This year, I think I'll be competing with Mother. I'm thinking of entering the perfume and Cosmetics Business."</p>
 <p>She intends to expand beyond the Clothing brand. If Taira Kisa has ambitions for the Taira Group like her Mother Taira Kokoro, she seems quite smart. Because she can increase her own Faction outside and use the surname 'Taira' to enter the Group at any time. If she has no ambition for the Taira Group, then she simply inherited her Mother's excellent Business acumen.</p>
 <p>"Alright. Do well in your competition. After the Meal, come find this old man, and I'll give you some Allowance."</p>
-<p>"Wow~! Grandfather is the best!"</p>
+<p>"Wow! Grandfather is the best!"</p>
 <p>In fact, Taira Kisa was considerably older than his Daughter Taira Kanna, but because Taira Kanna had a somewhat indifferent feeling except when dealing with me, Taira Danjo pleasantly accepted his Granddaughter's Aegyo.</p>
 <p>"Akio, are you studying Photography diligently?"</p>
 <p>Taira Akio, Taira Kisa's younger sibling, was a free Soul. He majored in Photography and traveled the World taking Photos, using studying abroad as an Excuse. Perhaps because his Family was Taira, allowing him to live leisurely taking Photos, he seemed to have no worries.</p>
@@ -64,16 +64,16 @@ chapter = 979
 <p>At Taira Danjo's Words, I rose from my Seat, greeted Taira Danjo, and also greeted my Uncles and Aunts who were looking at me with surprised Expressions. Still, since it was my first step in the Taira Group, I had to show at least minimal Etiquette.</p>
 <p>"I was fortunate enough to receive a great Responsibility and Reward from Grandfather. Please take good care of me. Please Help your ignorant Nephew."</p>
 <p>Taira Food distribution was a company connected not only to Nagumo Sian, who supported me, but also to Taira Ichiro, who was in charge of Taira Bussan, and Taira Kokoro, who was in charge of Taira Department Store, so I had to make a good impression on my Uncles and Aunts first. Of course, it would be difficult to achieve any significant results with Taira Food distribution, but at the very least, I would have to maintain the status quo to avoid being cursed by Grandfather Taira Danjo. Growth can be achieved outside Taira. Within the Taira Group, I decided to aim for maintaining the status quo for a while to avoid being checked.</p>
-<p>Taira Kisa B-cut~!</p>
+<p>Taira Kisa B-cut!</p>
 <p>I tried to make her look similar to Kokoro but with a younger Feeling, but I'm not sure if it turned out well, haha.</p>
-<p>MidNightSKY-nim requested Ryuta with a Ramgak-style kick, and Tsukiyo in a Bikini showing Aegyo~!</p>
-<p>Starting with Ryuta~!</p>
-<p>Tsukiyo~!</p>
-<p>TheDreaming-nim requested Remake Illustrations of Chapter 245, 246 Simyeonui ttal~!</p>
+<p>MidNightSKY-nim requested Ryuta with a Ramgak-style kick, and Tsukiyo in a Bikini showing Aegyo!</p>
+<p>Starting with Ryuta!</p>
+<p>Tsukiyo!</p>
+<p>TheDreaming-nim requested Remake Illustrations of Chapter 245, 246 Simyeonui ttal!</p>
 <p>245</p>
 <p>246</p>
 <p>When I uploaded it, I realized I had omitted the requested viewfinder or phone camera...! I usually check the Pose and Attire first, then add things like viewfinders or phone cameras at the end, but Simyeonui ttal's Nipples came out navy blue, and I forgot while changing them to Pink ㅠㅠ I don't have Time, so I'm uploading it as is ㅠㅠ</p>
-<p>Gojoy-nim requested Taira Camilla's Casual Clothes, Underwear~!</p>
+<p>Gojoy-nim requested Taira Camilla's Casual Clothes, Underwear!</p>
 <p>Casual Clothes</p>
 <p>She often wears the Brazil national team Uniform, haha.</p>
-<p>Underwear~!</p>
+<p>Underwear!</p>

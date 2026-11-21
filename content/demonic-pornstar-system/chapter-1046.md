@@ -9,7 +9,7 @@ chapter = 1046
 <p>Yunohana stood frozen beside the sitting room’s low table, her hand still caught between Aria’s. She had permission to date Kaiden, provided she never tried to take him away from the woman smiling inches from her face.</p>
 <p>The death threat had been appallingly convincing.</p>
 <p>"I would never dream of it," the shrine maiden assured her with breathless urgency.</p>
-<p>"Wonderful~"</p>
+<p>"Wonderful"</p>
 <p>Aria squeezed her hand, beaming again.</p>
 <p>Behind them, Luna leaned against Nyx and wheezed.</p>
 <p>"You should’ve seen your face, Miss Milf."</p>

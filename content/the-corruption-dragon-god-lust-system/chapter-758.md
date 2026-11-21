@@ -51,13 +51,13 @@ chapter = 758
 
 <p>For a brief moment, the handsome young man tried to resist the temptation, but his resistance crumbled in the blink of an eye, his dragon already hard as stone between his legs, throbbing with desire.</p>
 
-<p>"Nghn~~ Q-Qingyi, what are you doing?" Rouxi gasped, feeling the thick, throbbing member press firmly against the wet cleft between her buttocks.</p>
+<p>"Nghn Q-Qingyi, what are you doing?" Rouxi gasped, feeling the thick, throbbing member press firmly against the wet cleft between her buttocks.</p>
 
 <p>Her full, water-soaked orbs closed around his cock immediately, swallowing every inch of that twenty-three-centimeter member between folds of soft, scorching flesh.</p>
 
 <p>Qingyi didn’t answer. He simply grabbed her buttocks with both hands, his strong fingers sinking into the creamy skin as he squeezed those fleshy orbs tighter around his throbbing cock.</p>
 
-<p>"Aghnn~~ we can’t, sweetheart... there’s someone waiting outside, it must be for you to receive your reward..."</p>
+<p>"Aghnn we can’t, sweetheart... there’s someone waiting outside, it must be for you to receive your reward..."</p>
 
 <p>"Hm... they can wait," Qingyi smiled, before continuing in a teasing tone. "Just a quickie... if you’re truly my ’mommy,’ you shouldn’t have a problem with your dear son using your ass like this, right?"</p>
 
@@ -79,7 +79,7 @@ chapter = 758
 
 <p>With a wide smile on his face, he pulled his hips back once more and, without hesitating for even a second, thrust everything back in, falling into a relentless rhythm, fucking his adoptive mother’s ass without any mercy.</p>
 
-<p>"Uh~ ah~ nghnn~~ Q-Qingyi..." Rouxi gasped between moans, her eyes welling up with pure embarrassment.</p>
+<p>"Uh ah nghnn Q-Qingyi..." Rouxi gasped between moans, her eyes welling up with pure embarrassment.</p>
 
 <p>How could that boy have such absurd lust?</p>
 

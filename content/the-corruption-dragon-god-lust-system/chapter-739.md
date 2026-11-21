@@ -19,7 +19,7 @@ chapter = 739
 
 <p>It had been quite some time since he’d had a real conversation with his wives.</p>
 
-<p>“Hm~ it’s going well…” Feiyan replied, channeling her Qi and releasing a faint thread that revealed her cultivation at the beginning of the Celestial Ascension Realm.</p>
+<p>“Hm it’s going well…” Feiyan replied, channeling her Qi and releasing a faint thread that revealed her cultivation at the beginning of the Celestial Ascension Realm.</p>
 
 <p>It was an extraordinarily powerful foundation, fueled especially by the absurd density of Qi in the Mind World.</p>
 

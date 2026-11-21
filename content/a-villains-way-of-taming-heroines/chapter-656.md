@@ -50,7 +50,7 @@ chapter = 656
 <p>The high-pitched voice of the announcer interrupted Seraphina's thoughts.</p>
 <p>"Oh, is it starting?"</p>
 <p>The girl slowly stood up, leisurely stretching her body. Her graceful figure was hidden under a stylish coat, but the surging power within her frame couldn't be concealed by mere clothing.</p>
-<p>"Mmm~" She half-closed her eyes, a lazy, languid moan escaping her nose. "I'll put these messy thoughts aside for now; Ansel is still waiting for me."</p>
+<p>"Mmm" She half-closed her eyes, a lazy, languid moan escaping her nose. "I'll put these messy thoughts aside for now; Ansel is still waiting for me."</p>
 <p>After a fleeting moment of showing her girlish side for her beloved, Seraphina Marlowe opened her eyes, transforming into a beast ready to feast.</p>
 <p>She cast aside her distractions and returned to her primal essence.</p>
 <p>The restless beast king, long confined by the sturdy barriers, yearned for a fierce battle and the possibility of further progress.</p>

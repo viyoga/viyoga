@@ -10,7 +10,7 @@ chapter = 536
 <p>Right now, she was in her blissful ignorance, singing happily.</p>
 <p>Having her cheeks pinched instead of her head patted, Calypso purred instantly.</p>
 <p>The sound was low, pleased, and far too eager for someone who could barely remain conscious. Her body practically melted at the touch, eyes half-lidded as her demonic tail twitched behind her.</p>
-<p>"Darling~ right here, right now?" she murmured breathlessly. "You want to take me when I can barely move? Well... I can’t protest. I’m helpless, so go ahead. Do your worst~"</p>
+<p>"Darling right here, right now?" she murmured breathlessly. "You want to take me when I can barely move? Well... I can’t protest. I’m helpless, so go ahead. Do your worst"</p>
 <p>The words sounded like resistance.</p>
 <p>Her tone, posture, and entire being absolutely did not.</p>
 <p>Kaiden sighed, long and slow, rubbing his temples with one hand. "Whatever shall I do with my perverted demoness..."</p>

@@ -35,7 +35,7 @@ chapter = 162
 <p>She was rather curious. Back then, just sitting on Mars laps was enough for him to become as red as an apple.</p>
 <p>Messing with him and fleeing from the jealous Blaze had always been one of the best ways to pass time for her.</p>
 <p>“It’s just that I have passed the level of blushing just because of seeing some bare skin. But I must admit, you are certainly beautiful. I am surprised your skin stays so smooth despite working in a forge like this.”</p>
-<p>“Hehehe~! What a smooth talker.”</p>
+<p>“Hehehe! What a smooth talker.”</p>
 <p>Theresa was surprised to feel her cheeks warm up a little.</p>
 <p>There were no women who disliked compliments.</p>
 <p>Even more so when it came from a handsome and confident man.</p>
@@ -62,12 +62,12 @@ chapter = 162
 <p>But this impression of her had been completely swept off.</p>
 <p>“*Ahem* *Ahem* Praise me more.”</p>
 <p>“...And you completely destroyed the good image I just had.”</p>
-<p>“Hahaha~!”</p>
+<p>“Hahaha!”</p>
 <p>Laughing quite loudly and in a rather unladylike way, Theresa indicated both Sol and Nuwa to follow her.</p>
 <p>“We need to talk about more important things. But, first thing first–”</p>
 <p>She sniffed herself and frowned, “I really need a good bath.”</p>
 <p class="scene-break">· · ·</p>
-<p>“Hah~! I really needed it. I really like smithing and all, but this isn’t easy sometimes.”</p>
+<p>“Hah! I really needed it. I really like smithing and all, but this isn’t easy sometimes.”</p>
 <p>Now draped in another white robe, though this time, one that wasn’t see-through, Theresa filled her glass with alcohol and downed it in one swing.</p>
 <p>Walking across the room, she took her seat on Sol’s lap as if it was the most natural thing to do and leaned down contentedly.</p>
 <p>Swinging her legs, she turned toward Nuwa and asked,</p>
@@ -76,7 +76,7 @@ chapter = 162
 <p>She tilted her head while a frown gradually marred her face, directing her gaze at Sol. She asked tentatively, as if afraid of the possible answer, “Is Lilin my friend?”</p>
 <p>Sol answered with a faint smile, “I believe you are. But you should ask her yourself later.”</p>
 <p>“Understood.”</p>
-<p>“Oh~!” Nuwa cowed, “My little girl is grown up now. She is even making friends. Umu~! As I thought, you need some near-death experience from time to time to get experience and forge friendship.”</p>
+<p>“Oh!” Nuwa cowed, “My little girl is grown up now. She is even making friends. Umu! As I thought, you need some near-death experience from time to time to get experience and forge friendship.”</p>
 <p>“Got it,” Nuwa answered while clenching her hand.</p>
 <p>Watching those two acting like that, Sol could only show a wry smile.</p>
 <p>“Could we talk about the important matters first?”</p>

@@ -141,7 +141,7 @@ Positioning his shaft right at the entrance of his mother's warm canals, Lith br
 
 Shoving his cock deep inside his mother's tight cunt in one go, Lith said, "I'm home, mom."
 
-"Ahh~… Welcome back, baby." Lilith moaned and went for another kiss as her insides got stretched by her son's big stick.
+"Ahh… Welcome back, baby." Lilith moaned and went for another kiss as her insides got stretched by her son's big stick.
 
 This was what the authentic greeting of theirs was. Whenever Lith came back from anywhere after a few hours, days, or even years… He was supposed to say his greetings, which was 'I'm back'.
 
@@ -163,6 +163,6 @@ Lilith giggled. "Of course! And I also wanted to see how awkward you'll feel."
 
 "So that was the real reason, huh?" Lith squinted his eyes and said.
 
-"Oops, you caught mama, hehe~" Lilith stuck out her tongue and made a cute 'oops' face.
+"Oops, you caught mama, hehe" Lilith stuck out her tongue and made a cute 'oops' face.
 
 Lith felt annoyed and thought, 'Seriously, it was all for this? No… That's definitely not the only reason. I have a feeling that…'

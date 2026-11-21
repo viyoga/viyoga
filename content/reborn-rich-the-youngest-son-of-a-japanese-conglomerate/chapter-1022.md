@@ -12,7 +12,7 @@ chapter = 1022
 <p>In fact, Telepathy-related Items, though not as rare as those of time or space, were still uncommon, so they might not appear in this auction.</p>
 <p>As the auction order continuously flowed, and I purchased a few more Items, a slightly unusual Item appeared.</p>
 <p>It was an Item that felt like a Machine worn on the Head, probably....</p>
-<p>-This is a prototype Mind amplifier that was being manufactured by a certain Enterprise~! It's research that was halted a few months ago, and it seems that Item was leaked! The starting Price will be 100,000 Points!</p>
+<p>-This is a prototype Mind amplifier that was being manufactured by a certain Enterprise! It's research that was halted a few months ago, and it seems that Item was leaked! The starting Price will be 100,000 Points!</p>
 <p>With Eve's Explanation, the auction began. It wasn't a strange Item, as such prototypes or leaked technology under Development often came up for auction at AmSang.</p>
 <p>However, such Items were an all-or-nothing Gamble, and usually such leaks occurred when a Project was halted or canceled, as Eve just explained, or when research funding was cut.</p>
 <p>For that Reason, leaked technology usually lacked marketability, had severe Side Effects, or often, better technology was developed faster, so even if purchased, it often resulted in a loss. An Enterprise isn't stupid, that's why they halted the Project. But sometimes Jackpot technology might be dormant, so it was often purchased with a feeling of gambling.</p>
@@ -64,19 +64,19 @@ chapter = 1022
 <p>Kissing the three in Turn and teasing them a little with my tongue, only then did they seem to come to their senses, all widening their Eyes and looking at me.</p>
 <p>Fortunate. If they hadn't come to their senses like this, I was thinking of making them come to their senses with Sex. With a Battle ahead, I could avoid wasting Virility.</p>
 <p>Of course, the three who received kisses were making Expressions of slight regret because things didn't progress further.</p>
-<p>-The auction for the Fragment of Omniscience will start from 3,000,000 Points! The bidding increment is 200,000 Points! Everyone, please bid~!</p>
+<p>-The auction for the Fragment of Omniscience will start from 3,000,000 Points! The bidding increment is 200,000 Points! Everyone, please bid!</p>
 <p>Unlike other Items starting from 100,000, it was a starting Price of a different Dimension. Of course, if someone were to sell that book for 3,000,000 Dollars, all the Magicians in the World would line up.</p>
 <p>I wouldn't buy it, but in this auction that would be talked about for ages, wanting to place the meaning of having participated, I pressed the bid button.</p>
 <p>I pressed it quite immediately, but the Price had already surpassed 5,000,000 Points.</p>
-<p>-Having surpassed 5,000,000 Points, we will raise the bid by 500,000 Points per increment~!</p>
+<p>-Having surpassed 5,000,000 Points, we will raise the bid by 500,000 Points per increment!</p>
 <p>If it's 500,000 Points per increment, every time the button is pressed, it means the Price goes up by 700 million Korean Won? It's surprisingly astonishing.</p>
 <p>Separately from my astonishment, the Price of the Fragment of Omniscience rose steeply. In fact, Magicians were a wealthy lot, but I didn't know it would be this much. Of course, various secret organizations or even governments of various countries were aiming for it, so the Price must be rising steeply.</p>
 <p>It instantly hit 8,000,000, and instantly hit 10,000,000 Points. Even after hitting 10,000,000, the speed at which the Price rose remained unchanged. Just by looking at the numbers changing, one could feel the Madness.</p>
 <p>"The Surroundings...! Are going crazy!"</p>
 <p>Lianna Holden, who could use Telepathy, her Face turned pale. When I asked what was wrong, Lianna Holden said that even though she wasn't using her Telepathy Ability, from both rooms next to us, desires were pouring into Lianna Holden's Mind. Those desires felt like they had surpassed a certain Limit. Everyone, with uneasy Expressions, looked at the Fragment of Omniscience, which had already surpassed 30,000,000 Points.</p>
-<p>Requested by MidNightSKY-nim: Pouting Shii and Tsundere Lisa~!</p>
-<p>Shii~!</p>
-<p>Lisa-ttang~!</p>
+<p>Requested by MidNightSKY-nim: Pouting Shii and Tsundere Lisa!</p>
+<p>Shii!</p>
+<p>Lisa-ttang!</p>
 <p>Requested by Gojoy-nim: Chapter 24 Taira Yukiko 1. Scene welcoming the protagonist and 2. Scene sitting at the Dining table for a meal</p>
 <p>1.</p>
 <p>2.</p>
@@ -84,7 +84,7 @@ chapter = 1022
 <p>1.</p>
 <p>2.</p>
 <p>The ryokan doesn't give off the right feeling haha.</p>
-<p>Requested by Chomisaemeonji-nim: Drunken Liz, Liz wrapped in tentacles~!</p>
-<p>Drunken Liz~!</p>
-<p>Tentacle Liz~!</p>
+<p>Requested by Chomisaemeonji-nim: Drunken Liz, Liz wrapped in tentacles!</p>
+<p>Drunken Liz!</p>
+<p>Tentacle Liz!</p>
 <p>Actually, tentacles as pretty(?) as on the Cover don't come out well haha.</p>

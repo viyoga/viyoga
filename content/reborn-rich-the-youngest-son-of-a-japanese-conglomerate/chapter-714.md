@@ -60,6 +60,6 @@ chapter = 714
 <p>______</p>
 <p>Han Yu-gyeong's crop top + armpit pics requested by RefundAbsolutelyNotPossible-nim!</p>
 <p>To show off the armpits, it has to be a sleeveless shirt, so the crop top feeling doesn't come out well hehehe</p>
-<p>Bonus bikini armpit flex~!</p>
+<p>Bonus bikini armpit flex!</p>
 <p>Bring the cooked rice!!</p>
-<p>Leeian-nim's requested adult version of Linling will appear in the main story someday hehe. To make an adult version, I have to think about the prompt and the art style, so please wait a little bit~! The adult version is more difficult than the SD version TTT Instead, I'll give you a cute Linling SD version~~!</p>
+<p>Leeian-nim's requested adult version of Linling will appear in the main story someday hehe. To make an adult version, I have to think about the prompt and the art style, so please wait a little bit! The adult version is more difficult than the SD version TTT Instead, I'll give you a cute Linling SD version!</p>

@@ -18,7 +18,7 @@ chapter = 264
 <p>This tree, however, had a truly complete and intelligent ego!</p>
 <p>A slight vibration rippled through the leaves, and Arwen smiled. "This is a very interesting tree... comparable to the lineage of the first tree in the history of the elves, the one that was burned by the green skins in the past..."</p>
 <p>She paused for a brief moment, then giggled.</p>
-<p>"Fufufu~ she’s been watching you ever since you acquired her, and she thinks you’re quite worthy of being her daddy..."</p>
+<p>"Fufufu she’s been watching you ever since you acquired her, and she thinks you’re quite worthy of being her daddy..."</p>
 <p>"Daddy?" Ethan blinked, confusion washing over his face.</p>
 <p>"Well, I’m her mother... do you wish to abandon your offspring now?" Arwen’s green eyes narrowed, and she shifted on Ethan’s lap.</p>
 <p>Her delicate fingers slid up to rest on his shoulders, while her full, soft breasts mashed against his chest, the warm mounds flattening into pillowy cushions against the young lord’s firm torso.</p>

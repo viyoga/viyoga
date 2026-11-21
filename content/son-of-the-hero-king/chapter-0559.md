@@ -27,9 +27,9 @@ chapter = 559
 <p>The man jumped out of his skin and turned around while swinging his spear at full strength.</p>
 <p>Even though he was acting so pathetically, he was still an experienced adventurer. In fact, he was sure that he would have reached the Silver rank by now if those bastards didn’t refuse his advancement because of some bullshit reasons like him leaving his comrade alone during a dungeon exploration.</p>
 <p>He expected his spear to do some damage but</p>
-<p>Clang~!</p>
+<p>Clang!</p>
 <p>His hands trembled and he nearly let go of his spear because of the reactive force while the sounds of metal clashing reached him.</p>
-<p>“Huh~”</p>
+<p>“Huh”</p>
 <p>Dumbfounded, he finally opened his eyes and gazed in the direction of the one he attacked.</p>
 <p>“What in the…”</p>
 <p>There in front of him was a young dark-skinned woman with beautiful silver hair wearing a maid's attire. He easily recognized her, after all, there were only a few maids from the Tower of Babel who came and they were all extremely beautiful and fuelled the raunchy discussion of many soldiers while they were drunk.</p>
@@ -40,7 +40,7 @@ chapter = 559
 <p>This would mean that she literally stopped the spear with the strength of her flesh.</p>
 <p>‘No…’</p>
 <p>Could this even be considered blocked? From her nonchalant expression, this was clearly just something that was completely something she did care about in the slightest.</p>
-<p>Gulp~!</p>
+<p>Gulp!</p>
 <p>His throat moved as he suddenly felt parched,</p>
 <p>“Your spear?”</p>
 <p>Her voice was calm, clearly distant, and he realized in a hurry that his spear was still placed against the neck of the girl.</p>

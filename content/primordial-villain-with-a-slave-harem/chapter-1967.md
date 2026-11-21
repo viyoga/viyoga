@@ -95,7 +95,7 @@ chapter = 1967
 <p>Another wife laughed. "Come on, you’re better than this! Let the poor man answer the door properly at least!"</p>
 <p>The man shook his head and turned.</p>
 <p>"Girls, you’re bothering the neighbours. Get the mouth gags out."</p>
-<p>"Ooohhh~ Punishment time~" the horny voice purred, far too excited.</p>
+<p>"Ooohhh Punishment time" the horny voice purred, far too excited.</p>
 <p>Nessa’s thighs tightened again. He said it with the same casual ease he might have used to answer a request for another towel.</p>
 <p>"That is not what I meant!" Marielle shouted. "You cannot gag them and keep doing it!"</p>
 <p>The robed man didn’t bother responding.</p>
@@ -112,10 +112,10 @@ chapter = 1967
 <p>"Then pay for it!"</p>
 <p>"With what?"</p>
 <p>"Open this door! I am not finished!"</p>
-<p>"But I am about to be~!" the horny woman cried from inside.</p>
+<p>"But I am about to be!" the horny woman cried from inside.</p>
 <p>Wet skin slapped once.</p>
 <p>*Pap!*</p>
-<p>"AHN~!"</p>
+<p>"AHN!"</p>
 <p>Marielle screamed and drove her foot toward the door. Andre dropped the slipper, caught her around the waist, and lifted her from the floor before her boot reached the wood.</p>
 <p>"Put me down!"</p>
 <p>"When you stop trying to destroy the first inn we entered in Sarthal."</p>

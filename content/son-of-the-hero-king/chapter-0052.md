@@ -23,7 +23,7 @@ chapter = 52
 <p>The ruckus in her room continued, with his acute hearing he could even hear her cursing.</p>
 <p>'Just how full of bazaar her bedroom is?'</p>
 <p>He waited like that for 5 minutes before the door slowly opened to a Milia wearing her nightgown. Her breathing rough and her face a little pale as if she had done some great sacrifice.</p>
-<p>"Haha~! Your highness. What brings you to this poor maid room at this time of the night?"</p>
+<p>"Haha! Your highness. What brings you to this poor maid room at this time of the night?"</p>
 <p>"..." He opened his mouth to ask, before finally closing it. "Forget it. I am not interested in what you are doing in your room."</p>
 <p>He could practically see relief oozing from Milia at those words. This made him even more curious, but his instincts were screaming at him to let the matter be and he liked to believe in his newly acquired instinct.</p>
 <p>"Well, discussing in the hallway is slightly problematic. Let's go back to my room then."</p>

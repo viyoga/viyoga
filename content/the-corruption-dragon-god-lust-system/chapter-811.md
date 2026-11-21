@@ -83,7 +83,7 @@ chapter = 811
 
 <p>Yunxi, Xue Hua, and her father blinked in momentary confusion, but the strange sensation was quickly brushed aside as their attention returned to the scene before them.</p>
 
-<p>"Long Qingyi... why don’t you take this time to cultivate a bit? I have a lot to discuss with my daughter, and, well... with her sisters too, fufufu~~" Feiyue said, then gestured toward her husband. "Come now, take Qingyi to a cultivation room. He needs to be well-rested for tomorrow."</p>
+<p>"Long Qingyi... why don’t you take this time to cultivate a bit? I have a lot to discuss with my daughter, and, well... with her sisters too, fufufu" Feiyue said, then gestured toward her husband. "Come now, take Qingyi to a cultivation room. He needs to be well-rested for tomorrow."</p>
 
 <p>The Grand Elder didn’t hesitate, leading the young man to his personal cultivation room, where Qingyi could finally have a moment to himself.</p>
 

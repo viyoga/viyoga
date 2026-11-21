@@ -38,7 +38,7 @@ chapter = 961
 <p>"I’m not in denial!" Iris snapped instantly. "I’m perfectly aware of my feelings. I respect him. But that’s it."</p>
 <p>"Mmmhmm." Yoruha cupped her chin like an ancient sage.</p>
 <p>"Yoruha."</p>
-<p>"Okay, okay~" she chimed, tails flicking lazily. "I’ll stop. For now."</p>
+<p>"Okay, okay" she chimed, tails flicking lazily. "I’ll stop. For now."</p>
 <p>Feng sighed, dropping her chin into her hands. "...It’s hopeless, isn’t it? I’m just... a side character in his life. Surrounded by all those incredible women... Look, even his cat turned into an ethereal beauty."</p>
 <p>For a few seconds, none of them said anything. The breeze rustled through the tree’s magical leaves, carrying the scent of the forest with it.</p>
 <p>Then, out of nowhere, Iris broke the silence. Her tone was firm, blunt.</p>

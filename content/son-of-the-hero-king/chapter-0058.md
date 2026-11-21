@@ -21,8 +21,8 @@ chapter = 58
 <p>In another VIP room, a brown-haired woman with incredibly voluptuous form could be seen cheering in a rather unbecoming way. Though she didn't seem to care about the look she was receiving from the people who were sharing the room with her.</p>
 <p>"Aunt Camelia please! Stop it."</p>
 <p>A blonde-haired young girl begged on the side with a red face. She knew that her aunt loved Sol. She also knew that their relationship wasn't just platonic. Still, there were limits to some things.</p>
-<p>"Hehe~!" Giving a cute laugh, Camelia took back her place.</p>
-<p>Crossings her legs, she calmed down as she continued, "This is just the first step. Fufufu~! Soon, no one will compare my Sol to his idiot of a father."</p>
+<p>"Hehe!" Giving a cute laugh, Camelia took back her place.</p>
+<p>Crossings her legs, she calmed down as she continued, "This is just the first step. Fufufu! Soon, no one will compare my Sol to his idiot of a father."</p>
 <p>Saying so, she snapped her finger, and a slim black-haired woman who stood at the back came and kneeled in front of her.</p>
 <p>"Sigh, Elsmere, Elsmere. You were one of my favorites. I even planned to ask Luxuria to make you the next supreme daughter once I decided to retire. So why? Sigh, no need to answer."</p>
 <p>The woman named Elsmere kneeled down in silence with a vacant expression. Camelia, completely uncaring, began to think once again of the dashing figure of her Sol.</p>

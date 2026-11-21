@@ -5,7 +5,7 @@ weight = 515
 chapter = 515
 +++
 
-<p>Kurayamada Kirie, having finished her beastification, returned to her usual self. When she had wolf ears, she was all, 'Heeung~ K-dick is the best!' but once she released the beastification, she was back to her usual calm and glaring demeanor. That doesn't mean the conditioning I'd done until now was useless; it just seemed like she no longer had any complaints about my bloodline. It's just that she wasn't all dazed anymore, but her thinking was completely different from before.</p>
+<p>Kurayamada Kirie, having finished her beastification, returned to her usual self. When she had wolf ears, she was all, 'Heeung K-dick is the best!' but once she released the beastification, she was back to her usual calm and glaring demeanor. That doesn't mean the conditioning I'd done until now was useless; it just seemed like she no longer had any complaints about my bloodline. It's just that she wasn't all dazed anymore, but her thinking was completely different from before.</p>
 <p>Anyway, it was quite a tough weekend. Starting with Daigo Terue, then Sakagami Rena, and finally Kurayamada Kirie, I spent 80 percent of my time from Friday night to Sunday night having sex. Even for me, this kind of forced march was quite tiring. An ordinary guy would have been completely dehydrated and dried up like a dried squid.</p>
 <p>So, after having sex yesterday, I had a late dinner and fell straight to sleep while hugging Kurayamada Kirie, and ended up waking up later than usual. If Kurayamada Kirie hadn't woken me up, I would have been late.</p>
 <p>"I'm going to prioritize getting my certification from now on, so you should focus on your missions."</p>
@@ -19,14 +19,14 @@ chapter = 515
 <p>The other one was a filming cooperation fax, and it seemed like Uenozono Karen's agency was going to film a short video about the sports day. They said they were filming material to use for the self-produced vlog of the idol Serief, which Uenozono Karen belongs to. So, it seems like Uenozono Karen won't be absent on the sports day.</p>
 <p>Since she's a high school idol, she's probably trying to emphasize the fresh feeling of being a high school student a little more before she graduates. Still, Daigo Terue is amazing. To allow this. Serief is on the Taira Entertainment side, so they might have solved it with money, or they might have negotiated under the name of a mid-sports day performance. St. Francisco Girls' Academy is no ordinary school, so it seems like there are celebrity performances even during sports days.</p>
 <p>I roughly stuck the fax in the attendance book and headed to the special class. I opened the classroom door with a *deureureuk*, and I could feel a lively atmosphere. I greeted the students.</p>
-<p>"Good morning~!"</p>
+<p>"Good morning!"</p>
 <p>"Ryuta-cchi, you look a little tired today? Did you watch AV?"</p>
 <p>As expected, Seizawa Shii was the first to speak to me. I guess it shows that I'm tired. It was closer to recreating an AV scene than watching AV, but I can't say that kind of thing to a high school girl yet.</p>
 <p>"I missed you, Sensei!"</p>
 <p>"Good morning!"</p>
 <p>I receive cheerful greetings and stand in front of the teacher's desk. By the way, the one who said she missed me was Konoe Akina. She was still looking at me with a lovestruck girl's expression. I'm glad she doesn't seem to have any problems with her eyesight.</p>
 <p>"You know that the sports day is this Friday, right? I got a fax saying that parents will be attending, so behave yourselves."</p>
-<p>"Ehh~! Behave ourselves! This isn't the 2030s... Isn't that too old-fashioned?"</p>
+<p>"Ehh! Behave ourselves! This isn't the 2030s... Isn't that too old-fashioned?"</p>
 <p>I don't know how someone from the 2020s would react if I said the 2030s were old-fashioned...</p>
 <p>"Well, it's not every day, so just be reasonably well-behaved on Friday."</p>
 <p>I didn't really intend to touch on the students' clothes or attitude much. Most people have almost zero expectations for the special class at St. Francisco Girls' Academy, so if they're reasonably well-behaved, they might get the impression that they're surprisingly okay? It'll be like a kind Fatty. If they're just normal, there will be a contrasting effect that makes them look really kind when they do a small good deed after doing bad things.</p>

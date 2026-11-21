@@ -5,7 +5,7 @@ weight = 1571
 chapter = 1571
 +++
 
-<p>~45 pages later~</p>
+<p>45 pages later</p>
 <p>Kent’s entire body gives off an aura of evil, the kind that seems to originate from deep within the soul. Before he started reading the memory diary, he had the aura of a dragon bathed in blood and Chaos Qi.</p>
 <p>Now, however, he is likened to the incarnation of evil.</p>
 <p>But that is not the chilling part. The most disturbing part is the smile on his face. It wasn’t an arrogant smile or the smile of someone having a good day.</p>

@@ -7,11 +7,11 @@ chapter = 941
 
 <p>Vex moaned into the kiss, releasing a deep, pleased sound of agreement to Auroras words, evidencing that despite the way in which her lips clung to Quinlans like she was trying to permanently fuse their souls, she was listening.</p>
 <p>Her voice echoed across their minds a moment later, sultry and playful as ever, though delivered via the eerie clarity of the [Masters Link] spell, given to all his [Subjugated] people, who now counted Vex the Hexblade in its ranks.</p>
-<p>&lt;Test test~ Can my sisters and future sisters hear me?&gt;</p>
+<p>&lt;Test test Can my sisters and future sisters hear me?&gt;</p>
 <p>The girls flinched involuntarily as her voice entered their minds.</p>
 <p>&lt;Cool! What an amazing spell this is! Now I no longer have to keep that damned communication artifact on me.&gt;</p>
 <p>&lt;What about accepting the calls of other Consortium members...? Youre a Veil Walker, Vex, with a ton of responsibilities on your shoulders.&gt; Ayame said, but found herself thoroughly ignored because Vex revealed quite the shocker.</p>
-<p>&lt;Im level 63, stats just a tiny bit higher than my precious hubbys who is busy kneading my butt as if he expects it to turn into a tasty cake thanks to his diligent efforts~&gt;</p>
+<p>&lt;Im level 63, stats just a tiny bit higher than my precious hubbys who is busy kneading my butt as if he expects it to turn into a tasty cake thanks to his diligent efforts&gt;</p>
 <p>There was a pause, just long enough for her to swirl her tongue around Quinlans as their kiss never ceased for a single moment.</p>
 <p>&lt;So using me as the measurement stick... thatd put our smug primordial lover somewhere around level 56, give or take.&gt;</p>
 <p>"..." None of the girls could offer a proper response to the revelation of Quinlans strongest woman.</p>
@@ -24,7 +24,7 @@ chapter = 941
 <p>And activated his new Harbinger of Aeons classs ability, [Elemental Stance: Flame].</p>
 <p>The shift was instant.</p>
 <p>A crackling sound filled the air. His aura burst outward in a controlled ignition with embers dancing along the length of his skin. Red-orange trails wrapped his limbs that looked like coiling dragons, heat blooming around him but not burning; no. This was a fire of command, not destruction.</p>
-<p>Vexs smile widened mid-kiss, face flushed from heat. Heat that could be felt on her outer skin, but also deep inside her chest. Blossom, who clung to his back with her tail wagging, let out a pleased "Mrrr~" and rubbed her cheek into the crook of his neck.</p>
+<p>Vexs smile widened mid-kiss, face flushed from heat. Heat that could be felt on her outer skin, but also deep inside her chest. Blossom, who clung to his back with her tail wagging, let out a pleased "Mrrr" and rubbed her cheek into the crook of his neck.</p>
 <p>Instead of feeling threatened by the arrival of fire on their skin, the two women felt safer than ever in his embrace.</p>
 <p>Cradled not by flame, but by a man who had bent flame to his will and now wore it as easily as a robe.</p>
 <p>A small flash updated his system window for all to see.</p>

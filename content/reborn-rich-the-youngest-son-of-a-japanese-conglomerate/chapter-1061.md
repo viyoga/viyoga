@@ -8,7 +8,7 @@ chapter = 1061
 <p>"W-what, what are you doing all of a sudden, you bastard...!"</p>
 <p>As I suddenly picked her up, Fujigasaki Rinka struggled slightly.</p>
 <p>"I need to treat Sabu."</p>
-<p>"What? I hate hospitals~!"</p>
+<p>"What? I hate hospitals!"</p>
 <p>Sabu, who was throwing a tantrum like an elementary school student, saying she hated hospitals, struggled very weakly, perhaps because she was in pain.</p>
 <p>If she had been in her normal state, she would have thrashed violently like a Live Fish just caught while being held, or put me in a joint lock to escape, demanding how dare I hold my Sabu. Seeing her only struggle weakly made me realize she was truly in pain. It felt like seeing my Father weakened, and my heart ached.</p>
 <p>"Everyone, rest. I'll go for Sabu's treatment. I might return tomorrow."</p>
@@ -85,4 +85,4 @@ chapter = 1061
 <p>"Yes, it's a promise...!"</p>
 <p>She was going to let me do it anyway.... It seemed that by Sabu's standards, promise sex was better than treatment purpose sex. In the end, if we had sex, both of us would receive treatment, but I didn't know what the difference between these two types of sex was.</p>
 <p>Having received Fujigasaki Rinka's permission, I didn't even think of hiding my Erect cock and slowly approached Sabu.</p>
-<p>Rinka-tan B-cut~!</p>
+<p>Rinka-tan B-cut!</p>

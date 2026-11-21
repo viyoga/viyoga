@@ -57,7 +57,7 @@ chapter = 891
 <p>"Miss Grace." He shook her hand and smiled the smile she’d learned to distrust on principle. "Quite loud place you’ve got here..."</p>
 <p>"It is a big event," she grinned. "And your Guild Regent signed off on it, so did your media personnel. Thought you knew what you were walking into."</p>
 <p>"I knew they’d make a scene, but this..." Kaiden shook his head.</p>
-<p>"Aware or not, you’ve risen far past superstardom, reaching much greater heights, Mister Grey~" Grace mused, then her eyes moved past him to the formation of women, monsters, and one very proud teenager who had arranged themselves behind him without a word from anyone, without a gap in the line. The corner of her mouth twitched.</p>
+<p>"Aware or not, you’ve risen far past superstardom, reaching much greater heights, Mister Grey" Grace mused, then her eyes moved past him to the formation of women, monsters, and one very proud teenager who had arranged themselves behind him without a word from anyone, without a gap in the line. The corner of her mouth twitched.</p>
 <p>"Shall we?" She gestured toward the stage.</p>
 <p>The stage held a long table, two chairs, a microphone stand, and understated authority bought at enormous expense to look simple. Centered between the chairs, a leather-bound folder that probably cost more than Kaiden’s first apartment held the document.</p>
 <p>Behind the table, standing at the podium with the presidential seal mounted on its face, was the man himself.</p>

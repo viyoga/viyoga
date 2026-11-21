@@ -15,7 +15,7 @@ chapter = 1333
 <p>Those thoughts were something the girl would take with herself to the grave, she decreed inwardly. Many of the more observant girls were grinning at her slyly.</p>
 <p>"I'm glad to have you," Quinlan said.</p>
 <p>Hearing his words of acceptance, heat climbed up Ria's neck and settled in her face. She looked away at once with her lips pressed tight, ears burning as Felicity squinted at her with open suspicion.</p>
-<p>"Is everything okay~?" Feng purred.</p>
+<p>"Is everything okay?" Feng purred.</p>
 <p>"…Good," Ria muttered. "Good. Yeah. I'm… good."</p>
 <p>Her grip lingered a moment longer than necessary before she finally let go.</p>
 <p>Quinlan turned next with his attention settling on Felicity.</p>

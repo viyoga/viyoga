@@ -79,7 +79,7 @@ chapter = 682
 <p>'My homeroom teacher's lunch is more fun and delicious....'</p>
 <p>In the stiff atmosphere, Minamoto Risa couldn't properly taste the delicacies in front of her. She envied Yamashiro Ryuta and her classmates, who were probably having a fun lunch.</p>
 <p>______</p>
-<p>New character Minamoto Akari~!</p>
+<p>New character Minamoto Akari!</p>
 <p>I clearly wrote that it was medium breasts, not large breasts, but the breasts came out huge, lol.</p>
 <p>So I wondered what it would be like to take it off, so I put her in a bikini, hehe.</p>
 <p>Oh shit! Holy...! Nice, hehe.</p>

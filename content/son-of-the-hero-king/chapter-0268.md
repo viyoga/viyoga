@@ -27,7 +27,7 @@ chapter = 268
 <p>He lowered himself onto her and locked lips. He sucked on her small soft lips, taunting her with his tongue. He squeezed and massaged her breasts with his hand.</p>
 <p>An idea suddenly struck his mind and he sharpened one of his nails before proceeding to slowly cut the top of her bodysuit around her chest, making an opening for her small but enticing breasts to poop out.</p>
 <p>The beautiful pink cheery seemed to be beckoning him and Sol did not hesitate, latching onto them like a beast while releasing a low growl.</p>
-<p>“Ah~!”</p>
+<p>“Ah!”</p>
 <p>Kiyohime arched her back at the sudden pleasure and hugged Sol tightly, while he continued to sink in her until the root.</p>
 <p>Feeling his pelvis against her, made Kiyohime understand that they were finally one and this simple thought, managed to set her off.</p>
 <p>This time it was Sol’s turn to grunt when he felt her vagina constrict around his shaft as if trying to squeeze him out of everything he was worth.</p>

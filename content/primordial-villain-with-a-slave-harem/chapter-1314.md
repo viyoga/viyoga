@@ -28,7 +28,7 @@ chapter = 1314
 <p>Iris stared right back. Raven-black hair, messy from the fight and beating she got afterward. Her expression was flat, refusing to crack.</p>
 <p>"Iris Dearest, are you not happy to see me?" Quinlan mused with a playful voice. "Not even a greeting?"</p>
 <p>She gave no answer.</p>
-<p>"You were in quite the predicament~" he added, tone mockingly thoughtful. "If I recall correctly, a kidnapped princess is required to greet her knight in shining armor with a kiss on the cheek after he slays the big bad dragon~"</p>
+<p>"You were in quite the predicament" he added, tone mockingly thoughtful. "If I recall correctly, a kidnapped princess is required to greet her knight in shining armor with a kiss on the cheek after he slays the big bad dragon"</p>
 <p>Iris deadpanned at him with even more intensity. Clearly, she knew something like this was coming, hence her expressionless face. In reality, she was just bracing for the inevitable.</p>
 <p>Her features immediately softened.</p>
 <p>It didn't crumble like Felicity's. It didn't tint like Lyra's. It shifted with subtle, quiet warmth that hit harder because she was extremely non-expressive.</p>

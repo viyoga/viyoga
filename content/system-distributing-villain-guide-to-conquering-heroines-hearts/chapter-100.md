@@ -10,7 +10,7 @@ chapter = 100
 <p>Ba-thump!</p>
 <p>She stared into his eyes, searching for any sign that he was lying. Any trace of the old Dante who would say something warm and then disappear the next day. Any hint that this was just another one of his whims.</p>
 <p>She found nothing but him looking back at her with a certainty she had never seen on his face before.</p>
-<p>She dropped her gaze and muttered under her breath. "You better keep those words, idiot~"</p>
+<p>She dropped her gaze and muttered under her breath. "You better keep those words, idiot"</p>
 <p>Dante wanted to say more but held himself back. He had said enough. The rest, he would prove with his actions.</p>
 <p>They stepped onto the dance floor and the golden spotlight found them immediately.</p>
 <p>Emma placed her hand on his shoulder and felt his settle on her waist. Their free hands found each other and their fingers intertwined.</p>

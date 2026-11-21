@@ -11,11 +11,11 @@ chapter = 831
 <p>Alik rose from his seat with a solemn Expression. He looked like a general going to war, but what Alik had brought was a student tablet for the Test. He didn't seem to be this nervous even when a battle broke out. I stroked Alik's Head to give him strength.</p>
 <p>"Alik, do well."</p>
 <p>"Yeah.... Ryuta, if Alik does well, let's eat Pizza for lunch."</p>
-<p>"Pizza, that's nothing. If you just pass the additional Test, I can buy you ten plates~!"</p>
+<p>"Pizza, that's nothing. If you just pass the additional Test, I can buy you ten plates!"</p>
 <p>"Yeah...!"</p>
 <p>I made a Pizza promise with Alik and rose from my seat to escort him to the Entrance of the special class building.</p>
-<p>"Alik, do well~☆"</p>
-<p>"You can do it~!"</p>
+<p>"Alik, do well☆"</p>
+<p>"You can do it!"</p>
 <p>"We have to graduate together, so let's do our best!"</p>
 <p>Receiving a shower of Support from his friends, as he exited the Classroom, passed through the corridor, and opened the Entrance door, Alik's Sabu, the Home Ec Teacher Shimokawabe Airen, was standing there, and she also seemed to be standing there to Support Alik.</p>
 <p>"Ah, Shimokawabe-sensei."</p>
@@ -87,12 +87,12 @@ chapter = 831
 <p>"That's right. I also have aspects that resemble Sabu."</p>
 <p>As I talked with Shimokawabe Airen for a while, Alik was visible in the distance. Had that much Time already passed? Talking on the phone with Sabu and then with Shimokawabe Airen, it felt like a lot of Time had passed without me realizing it.</p>
 <p>If one wasn't close to Alik, he might have appeared with a normal, expressionless face, but to me, he looked like he was approaching with a triumphant Expression, like Grand Prince Suyang from some Movie.</p>
-<p>"Phew~ He must have done well."</p>
+<p>"Phew He must have done well."</p>
 <p>"Yes, he seems to have passed."</p>
 <p>Seeing her let out a Sigh of Relief after seeing Alik's Expression, Shimokawabe Airen also seemed to grasp Alik's Expression, perhaps because she was Alik's Sabu.</p>
 <p>"Ryuta, Moka Sabu..... Alik passed...!"</p>
 <p>Alik, who had approached us, immediately informed us of his additional Test passing news. I smiled and stroked his Head, saying he did well. Alik closed his Eyes as if enjoying my stroking, just like a Cat.</p>
 <p>In the end, the Great Alik Graduation Operation was a success. Although I had to use my Body for lobbying to make Alik graduate and one Person became jellyfish food, the success of the Operation was important.</p>
-<p>Requested by JungChucky-nim~! SD Alik disappointed holding an Exam Paper and happy SD Alik~!!</p>
+<p>Requested by JungChucky-nim! SD Alik disappointed holding an Exam Paper and happy SD Alik!!</p>
 <p>Failing Grade!</p>
 <p>Pass!</p>

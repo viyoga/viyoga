@@ -25,7 +25,7 @@ chapter = 336
 <p>Her saliva made all sorts of naughty, sloppy sounds as her tongue stroked, poked, pushed, and licked the head. Soon, she swallowed the tip inside her heated mouth.</p>
 <p>A warm, shuddering breath left the saliva-filled space and her red tongue wriggled within like it had a mind of its own.</p>
 <p>———</p>
-<p>“Kh~”</p>
+<p>“Kh”</p>
 <p>It took all of Sol’s willpower to avoid moaning as he watched her do her best to bring him pleasure.</p>
 <p>He was supposed to be getting back at her, so he was a little annoyed that she had suddenly taken over like this. At the same time, it felt highly arousing for him, it was a refreshing feeling as it had been quite some time since Sol didn’t have to take the lead in sex. All in all, he was relishing the moment.</p>
 <p>Without warning, she took the head inside her mouth. Her upper lip stickily stimulated the ridge of the head and her lower lips rubbed at the circumference with its soft touch.</p>

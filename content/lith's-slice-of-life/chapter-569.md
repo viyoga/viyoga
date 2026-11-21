@@ -79,7 +79,7 @@ Lilith chuckled and rested her chin on her hand, waiting for Hecate to return. S
 
 *
 
-"Ahh… harder… Your Highness… Ahhh!~"
+"Ahh… harder… Your Highness… Ahhh!"
 
 Luna was having the time of her life. She was in sex heaven, with Lith holding her hands behind her and ramming his hips onto her with as much intensity as he could.
 

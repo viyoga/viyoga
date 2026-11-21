@@ -49,7 +49,7 @@ chapter = 809
 <p>However, even with its beauty, there was a hidden, fatal Destructive Power. Even though it was just a straight punch, the surrounding atmosphere rippled, and a massive Pressure could be felt.</p>
 <p>"Hap!"</p>
 <p>Kirie also seemed to feel the Threat, and she swung her Sword like Crazy, making an Effort to block my blow, but with a kakakang! sound, only her Sword was ground down.</p>
-<p>Huuuuung~!</p>
+<p>Huuuuung!</p>
 <p>When I withdrew my Power and stopped my fist right in front of Kirie's nose, her Head was whipped back by the strong Wind.</p>
 <p>"My Sword is like this, and it seems you held back considerably.... I lost."</p>
 <p>Kirie held up her Sword, which was now half its original length, and declared her Defeat. Perhaps because the Skill gap was so wide, she didn't even show an Expression of regret.</p>
@@ -89,13 +89,13 @@ chapter = 809
 <p>It seemed she used one floor of the Chūōōkamitai Main Building as her Home.</p>
 <p>Kirie, having entered her Home, instantly stripped off her Clothes. Now In Underwear, Kirie looked at me and opened her Mouth.</p>
 <p>"What are you doing? Hurry and take off your Clothes."</p>
-<p>Requested by Chijeuppang-nim: Rabbit Pajamas Alik, Bunny Girl Alik~!</p>
-<p>Bunny Girl Alik~!</p>
-<p>Requested by Hwanbuljeoldaebulga-nim: Tied Shirt + Cleavage + Suit Skirt + Armpit + Black Stockings Home Economics Teacher~!</p>
+<p>Requested by Chijeuppang-nim: Rabbit Pajamas Alik, Bunny Girl Alik!</p>
+<p>Bunny Girl Alik!</p>
+<p>Requested by Hwanbuljeoldaebulga-nim: Tied Shirt + Cleavage + Suit Skirt + Armpit + Black Stockings Home Economics Teacher!</p>
 <p>The tied Shirt didn't come out well, haha</p>
 <p>Requested by seungj050-nim: Kirie Footjob Intimate Posture, Spanking.</p>
 <p>Footjob</p>
-<p>Spanking~!</p>
+<p>Spanking!</p>
 <p>Requested by Gojoy-nim: Lara Sinclair's usual Attire and Underwear Attire</p>
 <p>Usual</p>
 <p>Underwear</p>

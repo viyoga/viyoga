@@ -17,9 +17,9 @@ chapter = 253
 <p>"Normie? Isn't that a really old word? Oh, more importantly, Master, what's going on?"</p>
 <p>"The American government might be waiting for you at LA Airport, so go to Tijuana International Airport and take a flight. This Master has prepared everything, so don't worry. I've prepared the plane ticket and everything."</p>
 <p>Seeing Mimata Chieri standing behind Fujigasaki Rinka with a slightly sleepy expression as she spoke triumphantly, it seemed she had woken Mimata Chieri up first.</p>
-<p>"Haaahm~! So, Master has prepared everything, so I should leave now?"</p>
+<p>"Haaahm! So, Master has prepared everything, so I should leave now?"</p>
 <p>"That's right."</p>
-<p>"Heueung...♥ Ryutaa~ What's going on?"</p>
+<p>"Heueung...♥ Ryutaa What's going on?"</p>
 <p>Arisu also woke up from the commotion and asked me while rubbing her eyes. Hmm, quite cute, isn't she? A blonde beauty waking up and rubbing her eyes like a cat is quite my type.</p>
 <p>"Master says she has prepared something, so we should leave now?"</p>
 <p>"I'll go to the airport too. We have to bring the car back anyway."</p>
@@ -37,7 +37,7 @@ chapter = 253
 <p>Ah, right, there was such a thing. Then, Mimata Chieri can drive there, and Arisu can drive back.</p>
 <p>"Sunbae-nim, how long will it take to get to Tijuana International Airport?"</p>
 <p>"The navigation says it will take about 2 hours and 50 minutes?"</p>
-<p>"I'm coming too~."</p>
+<p>"I'm coming too."</p>
 <p>While Mimata Chieri and I were talking about how long it would take, Arisu sat next to me, and the car started.</p>
 <p>Arisu was sitting there wearing a dress with a white top and a black skirt. When she felt my gaze, she smiled shyly and slightly lifted the skirt of her dress. Arisu's healthy and shapely thighs were revealed and then disappeared again as she lowered the skirt.</p>
 <p>"Hehe...♥ Do you want to see more?"</p>

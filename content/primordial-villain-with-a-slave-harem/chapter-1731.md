@@ -43,7 +43,7 @@ chapter = 1731
 <p>He willed it to fire, pushed every scrap of intent the ritual had left him into the cascade, commanding the cells to ignite, to chain, to reach critical mass and burn.</p>
 <p>But the ice absorbed the attempt without the faintest flicker reaching the surface.</p>
 <p>"My soldiers..." His voice came out thin and shaking, consonants dissolving before they formed. "Even if I don't die, they see me. They'll send word to the guards and they'll execute Black F-"</p>
-<p>"Hehe~"</p>
+<p>"Hehe"</p>
 <p>A feminine giggle reached him from somewhere past the villain's shoulder, musical and utterly delighted.</p>
 <p>Ragnar's eye moved and found a blonde elf hovering beside the Primordial Villain with her arms crossed and her hair catching the winter wind. She looked down at him the way someone looks at a beetle pinned to a board, and the mockery in those blue eyes was so thorough and so entertained that dread settled in the base of Ragnar's spine before his brain could name it.</p>
 <p>If Black Fang was his leverage, if his soldiers sending word would trigger her execution...</p>

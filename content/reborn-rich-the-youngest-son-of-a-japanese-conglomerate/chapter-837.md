@@ -21,13 +21,13 @@ chapter = 837
 <p>Alik, who had already requested Pizza earlier, approached me and asked about the lunch Menu.</p>
 <p>"The Kids probably ordered for me too, didn't they?"</p>
 <p>As always, thinking that the Students would have ordered for themselves and for me, I didn't place a separate Order.</p>
-<p>"No, Ryuta-jji~☆ This Time, since it's a Reward from a Bet, if we ordered too much, we'd feel Sorry, so we didn't Order for Ryuta-jji~!"</p>
+<p>"No, Ryuta-jji☆ This Time, since it's a Reward from a Bet, if we ordered too much, we'd feel Sorry, so we didn't Order for Ryuta-jji!"</p>
 <p>As if she had heard my Words, Seizawa Shii spoke with a slightly awkward Expression. I had told the Students off before for ordering too much, but now that they hadn't ordered for me, I felt a little disappointed. Indeed, a Person's Mind was like a reed.</p>
 <p>"Then for me, when the Kids who haven't ordered yet place their orders, add one portion each."</p>
 <p>However, choosing lunch myself was a bit troublesome, so I entrusted my Menu choice to the Students again. Alik looked around, then whispered into my Sensitive Ear.</p>
 <p>"Ryuta, Alik ordered a whole Pizza for Ryuta."</p>
 <p>So it was Alik who had ordered Pizza for me to eat before. I had wondered who eats a whole large Pizza in one sitting, but it seemed Alik also thought of me as a glutton.</p>
-<p>-Ahh! Kita! Amazing~! He swept in like a Storm, instantly KO'd the former UMC Unlimited Class Champion Hunter Herrera, and seized the throne!! What's even more surprising is that in the short Time of Round 2, he didn't allow a single direct hit!</p>
+<p>-Ahh! Kita! Amazing! He swept in like a Storm, instantly KO'd the former UMC Unlimited Class Champion Hunter Herrera, and seized the throne!! What's even more surprising is that in the short Time of Round 2, he didn't allow a single direct hit!</p>
 <p>On an old LCD TV, the UMC Unlimited Class Championship Match was being broadcast. Two Men were watching the Scene where Kiyohira had just defeated the former Champion and taken the throne.</p>
 <p>"Did you watch well, Bernardo?"</p>
 <p>The Man with raised eyebrows, Takakusaki Gengo, said, looking at the Latin Man who was still watching the TV.</p>
@@ -72,11 +72,11 @@ chapter = 837
 <p>"Because I requested it. You, who have killed countless people, might not know, but you killed my family."</p>
 <p>"Wait...! What did you say?! I-I'll give you any Money! Spare me, please spare me!!!"</p>
 <p>Looking at Miguel Oliveira, who was piteously begging for Mercy, Bernardo smiled and raised his Fist. He intended to beat this miserable Man to death, just as his family had suffered.</p>
-<p>Requested by Hwanbuljeoldae-bulga-nim: Lisa, Home Ec Teacher See-Through top black Panties black Stockings~!</p>
-<p>Starting with Lisa-ttang~</p>
+<p>Requested by Hwanbuljeoldae-bulga-nim: Lisa, Home Ec Teacher See-Through top black Panties black Stockings!</p>
+<p>Starting with Lisa-ttang</p>
 <p>I entered "black Panties" for Lisa-ttang's exclusive model, but it didn't come out, haha.</p>
 <p>Home Ec Teacher</p>
 <p>Requested by seungj050-nim: Liz, Home Ec Teacher wearing Stockings in a Footjob Intimate Posture.</p>
-<p>Starting with Liz~!</p>
-<p>Home Ec Teacher~!</p>
-<p>Kkiyot~! When I made the Liz model wear Stockings, the number of Toes came out as six each, so I'm only uploading two, haha.</p>
+<p>Starting with Liz!</p>
+<p>Home Ec Teacher!</p>
+<p>Kkiyot! When I made the Liz model wear Stockings, the number of Toes came out as six each, so I'm only uploading two, haha.</p>

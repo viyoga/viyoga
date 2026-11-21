@@ -27,7 +27,7 @@ chapter = 763
 
 <p>Her pink nipples brushed lightly against her husband’s skin as the heavenly softness of her breasts flattened between their bodies.</p>
 
-<p>"I’m just surprised that someone actually got that woman pregnant... Not even the immortal golden dragon emperor should have that much courage, fufufu~" Auranys gave a sweet little laugh, bringing her slender fingers to her lips.</p>
+<p>"I’m just surprised that someone actually got that woman pregnant... Not even the immortal golden dragon emperor should have that much courage, fufufu" Auranys gave a sweet little laugh, bringing her slender fingers to her lips.</p>
 
 <p>She would never admit it out loud, but just like the ancestor of the Myriad Beasts Sect, she, too, felt a flicker of excitement at the reappearance of an old acquaintance from the past—even if that relationship had been forged through blood and death.</p>
 
@@ -35,7 +35,7 @@ chapter = 763
 
 <p>"Hm... she seems to have been a very vicious person," Qingyi murmured, letting his hand glide down Auranys’s back until it came to rest on her ass.</p>
 
-<p>"ah~ the war was vicious; both sides lost a lot, and it all only ended with the near-extermination of both of us... They were just a little luckier."</p>
+<p>"ah the war was vicious; both sides lost a lot, and it all only ended with the near-extermination of both of us... They were just a little luckier."</p>
 
 <p>Auranys let out a soft sigh and leaned over him once more.</p>
 

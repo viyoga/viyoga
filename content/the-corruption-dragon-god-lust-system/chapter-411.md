@@ -75,7 +75,7 @@ chapter = 411
 
 <p>“Ah… did you miss your husband?” Qingyi smiled, patting Isabel’s butt with one hand while the other flowed down to her long silver hair.</p>
 
-<p>“I always miss smothering my hubby with my huge tits, hehehe~~” Isabel exclaimed, hugging Qingyi a little tighter, pressing her breasts against his face and muffling his voice.</p>
+<p>“I always miss smothering my hubby with my huge tits, hehehe” Isabel exclaimed, hugging Qingyi a little tighter, pressing her breasts against his face and muffling his voice.</p>
 
 <p>With a defeated sigh, Qingyi simply allowed Isabel to wrap her legs around his waist. Using his Qi senses to guide himself, he went to their bedroom, where he threw her onto the bed.</p>
 
@@ -97,7 +97,7 @@ chapter = 411
 
 <p>Her huge tits pressed against his chest while her fat, shapely ass nestled in his lap.</p>
 
-<p>“Nghnn~~ when will father want husband to march?” Isabel asked, leaning a little more against Qingyi, resting the weight of her huge breasts against his chest, feeling his hands run over her curves.</p>
+<p>“Nghnn when will father want husband to march?” Isabel asked, leaning a little more against Qingyi, resting the weight of her huge breasts against his chest, feeling his hands run over her curves.</p>
 
 <p>“I don’t know,” Qingyi shook his head, patting Isabel’s ass. “The rebel armies are standing still, and for now, as long as they don’t move, we won’t move either.”</p>
 

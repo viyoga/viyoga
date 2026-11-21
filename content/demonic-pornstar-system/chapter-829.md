@@ -40,7 +40,7 @@ chapter = 829
 <p>Bastet’s tail curled behind her. Calypso’s coiled around the felinid’s thigh and held.</p>
 <p>"I’ll admit... You hit hard out there, Choco Kitty," Calypso murmured, golden eyes close and fond. "That eruption on the third wave pinned the entire left flank."</p>
 <p>Bastet’s ears twitched forward. Her amber eyes held the demoness’s from inches away, their bodies so flush the warmth between them was respect earned in the Mire, plain and unambiguous. "I know, I’m always amazing. But, for once, you weren’t bad either... Your axe work on the armored column was impressive," she decreed while staring deep into her fellow Subjugated Monster Girl’s eyes.</p>
-<p>"We make a good team~" Calypso beamed up at her.</p>
+<p>"We make a good team" Calypso beamed up at her.</p>
 <p>"...Perhaps." The admission arrived quietly.</p>
 <p>Two monster girls who’d spent months squabbling over who loved their man harder lay pressed together with nothing between them but genuine warmth, holding position while Kaiden lined up behind them.</p>
 <p>His hands found Bastet’s plump behind. Both palms sinking into the tanned, perfect curve of her rear, fingers gripping firm enough to dimple the flesh, her soft skin molding around his grip as he spread her open and lined himself up.</p>
@@ -48,19 +48,19 @@ chapter = 829
 <p>He sank into Calypso in one stroke that made the demoness gasp, hot breath reaching the felinid, then pulled out and buried himself in Bastet with the next.</p>
 <p>"Mas... ahn!!"</p>
 <p>He alternated with each pump, one hand still gripping Bastet’s ass while the other braced against Calypso’s hip, his fingers leaving red marks on tanned skin as he drove into one slick pussy and then the other.</p>
-<p>Their bodies rocked together as their breasts mashed and their moans braided between their lips. "Harder, Darling~" and "M-Master... don’t stop..." layered over each other like harmonics as the wet slap of his hips against their stacked bodies filled the room.</p>
+<p>Their bodies rocked together as their breasts mashed and their moans braided between their lips. "Harder, Darling" and "M-Master... don’t stop..." layered over each other like harmonics as the wet slap of his hips against their stacked bodies filled the room.</p>
 <p>Then something happened that neither of them planned.</p>
 <p>Bastet’s tail, curling and uncurling behind her with each thrust, brushed against Calypso’s.</p>
 <p>The demoness’s tail twitched toward it on instinct, coiled once, and the two lengths wound around each other in a slow, tight spiral, demonic tail braiding through tawny fur until the boundary between them disappeared and a single intertwined tail rose behind Bastet’s back like it had always belonged there.</p>
 <p>Both girls felt it at the same time.</p>
 <p>They looked at each other, amber meeting gold from inches away, and the giggles that broke from them were so sudden and so genuine that Kaiden’s rhythm faltered for the first time all night.</p>
-<p>"Pfft..." Calypso bit her lip, her golden eyes crinkling. "We made a demon-kitty tail~"</p>
+<p>"Pfft..." Calypso bit her lip, her golden eyes crinkling. "We made a demon-kitty tail"</p>
 <p>"It’s hideous," Bastet declared, and giggled again, her composure cracking into something so girlish it didn’t belong on the Manifestation of Dominion’s face. "But if we’re already here, we might as well make use of it, no...?"</p>
 <p>"I’m game!" Calypso cheered, and their combined tail curled downward between Bastet’s legs, found Kaiden’s cock on the next outstroke, and coiled around his shaft in a firm, wet grip that made his breath catch.</p>
 <p>He pushed forward and the intertwined tail guided him into Calypso’s dripping pussy, squeezing the base of his cock as her walls took him to the hilt.</p>
 <p>He pulled back, the tail redirected, and the next thrust sank into Bastet’s soaking cunt with a force that made the felinid’s back arch and her ears snap upright.</p>
 <p>They were steering him.</p>
-<p>"Darling~" Calypso purred, her hips rolling up to meet the strokes the tail fed her. "Let us take care of you for a bit~"</p>
+<p>"Darling" Calypso purred, her hips rolling up to meet the strokes the tail fed her. "Let us take care of you for a bit"</p>
 <p>"Master," Bastet breathed, her tanned thighs spreading wider on top of the demoness, "just keep moving. We’ll handle the rest."</p>
 <p>The combined tail worked him between them with a rhythm of its own, squeezing and releasing as it directed his cock from one dripping hole to the other with each pump.</p>
 <p>Calypso’s slick heat swallowed him on one thrust, Bastet’s tight warmth gripped him on the next, and the girls controlled which pussy took him by flexing the coiled tail around his shaft, their hips tilting in alternation so that his cock slid out of one and straight into the other in a wet, seamless exchange that left all three of them dripping.</p>

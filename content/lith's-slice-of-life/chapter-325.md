@@ -7,7 +7,7 @@ chapter = 325
 
 space fluctuated near Lith and two beautiful silver-haired ladies wearing exquisite robes appeared out.
 
-"Hi~ Did somebody miss mama~?" Lilith, wearing a black dress said as soon as she teleported out.
+"Hi Did somebody miss mama?" Lilith, wearing a black dress said as soon as she teleported out.
 
 "Mom…" Lucy saw there being other people in the room apart from Lith and said to Lilith with a slightly embarrassed face.
 

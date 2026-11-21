@@ -6,7 +6,7 @@ chapter = 1006
 +++
 
 <p>"Hap!"</p>
-<p>"Eurya~!"</p>
+<p>"Eurya!"</p>
 <p>After the Meeting ended, there was quite a lot of time before going out on patrol, so I decided to watch Seizawa Shii and Kujo Kina, among others, Training.</p>
 <p>The Training ground was in the building's Underground, originally a Gym and a Training room called the Superpower Room used by Federal Superpower Management Department employees, but now the Gym was being used as a Fist Technique Training ground.</p>
 <p>"Ah, ah, hello."</p>
@@ -66,16 +66,16 @@ chapter = 1006
 <p>"I will take the lead, Sabu-nim...!"</p>
 <p>Genba Kiyohira and Musashi Takuro began to walk towards the abandoned Factory used by the human trafficking Organization in front of the alley.</p>
 <p>MidNightSKY-nim requested Ryuta, who broke the Back mountain while Training and is troubled, and Linxiang Singing in the recording studio.</p>
-<p>Starting with Ryuta~!</p>
-<p>Linxiang~!</p>
+<p>Starting with Ryuta!</p>
+<p>Linxiang!</p>
 <p>Gojoy-nim requested Nae and Arisu at Saburo's funeral.</p>
 <p>Nae</p>
-<p>This is her sad Appearance because her younger sibling Saburo, who she found quite cute, died~!</p>
+<p>This is her sad Appearance because her younger sibling Saburo, who she found quite cute, died!</p>
 <p>Arisu</p>
 <p>A happy Feeling meeting Ryuta, who saved her in the past hehe</p>
-<p>TheDreaming-nim requested Lianna Holden wearing a padded jacket + bloomer, Tearful face and normal Expression~!</p>
+<p>TheDreaming-nim requested Lianna Holden wearing a padded jacket + bloomer, Tearful face and normal Expression!</p>
 <p>Tearful face</p>
-<p>Normal Expression~!</p>
-<p>Chomisaemeonji-nim requested Liz wearing Hanbok, Underboob Hanbok Liz~!</p>
+<p>Normal Expression!</p>
+<p>Chomisaemeonji-nim requested Liz wearing Hanbok, Underboob Hanbok Liz!</p>
 <p>Hanbok</p>
-<p>Underboob~!</p>
+<p>Underboob!</p>

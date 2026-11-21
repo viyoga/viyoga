@@ -5,7 +5,7 @@ weight = 890
 chapter = 890
 +++
 
-?"Ahh… Ahhh… faster… ngghh~"
+?"Ahh… Ahhh… faster… ngghh"
 
 In a dimly lit room, a black-haired demon milf was on her knees, her round, full and smooth ass was protruding in the air while a handsome silver-haired man was right behind her, pounding her silly.
 

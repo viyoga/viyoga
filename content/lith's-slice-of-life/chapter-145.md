@@ -43,7 +43,7 @@ Though it had progressed, it still wasn’t at the level where they could be con
 
 “You can hang up now, my girlfriend. See you.” Lith replied with the same sarcasm.
 
-“See ya~” Arya’s melodious voice rang in Lith’s ears for one last time and she hung up the phone.
+“See ya” Arya’s melodious voice rang in Lith’s ears for one last time and she hung up the phone.
 
 “Alright. Time to visit Scelestus now. I wonder where it is.” Lith muttered to himself after the call ended.
 

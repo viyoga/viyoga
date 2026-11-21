@@ -97,7 +97,7 @@ chapter = 68
 
 <p>“Ah… I thought you didn’t have much contact with men here.”</p>
 
-<p>“We don’t, but we still have a lot of books, fufufu~~” Elize’s sweet, sensual laughter spread through the hot springs, drawing a smile from Qingyi.</p>
+<p>“We don’t, but we still have a lot of books, fufufu” Elize’s sweet, sensual laughter spread through the hot springs, drawing a smile from Qingyi.</p>
 
 <p>“Ah!” She let out a high-pitched squeal as he grabbed her tightly, giving her plump, juicy ass a firm slap.</p>
 
@@ -105,9 +105,9 @@ chapter = 68
 
 <p>“Naughty girl… Did your husband give you permission to cover up such perfection?” He smiled, grabbing her huge breasts with both hands before squeezing them, taking both pink nipples into his mouth.</p>
 
-<p>“Q-Qingyi… we’d better go… mmmh~~ soon, the girls must be worried…” She shuddered, but couldn’t stop herself from grabbing his head and pulling him even harder against her breasts.</p>
+<p>“Q-Qingyi… we’d better go… mmmh soon, the girls must be worried…” She shuddered, but couldn’t stop herself from grabbing his head and pulling him even harder against her breasts.</p>
 
-<p>“Hnnngh~!” Elize moaned, unable to contain the sounds escaping her lips.</p>
+<p>“Hnnngh!” Elize moaned, unable to contain the sounds escaping her lips.</p>
 
 <p>Qingyi’s tongue curled around the pink nipples, sucking lightly until he felt a sweet, creamy liquid invade his mouth, the rich Qi dissolving in his throat.</p>
 

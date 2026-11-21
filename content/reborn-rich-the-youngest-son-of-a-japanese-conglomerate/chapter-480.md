@@ -26,7 +26,7 @@ chapter = 480
 <p>,I'm, I'm sorry! Am I late?"</p>
 <p>,No, you're not late. It's still 2 minutes before the appointment."</p>
 <p>,You're late, Konoka, Alik and Ryuta waited a lot."</p>
-<p>,I'm sorry, Alik~!"</p>
+<p>,I'm sorry, Alik!"</p>
 <p>I said it was okay because she wasn't late for the appointment, but Alik, who wanted to play with me soon, put her hands on her hips and puffed out her cheeks and said something to Urabe Konoka. She did that before, so Alik puffs out her cheeks when she's angry.</p>
 <p>Alik, who was quickly appeased by Urabe Konoka's apology, grabbed my and Urabe Konoka's hands with both hands and started pulling us. She seemed to want to go on a date very much as she pulled us urgently.</p>
 <p>Well, Alik isn't a member of the Date Experience Club, which all her classmates have joined, and because of her usual innocent appearance, her classmates don't talk about men or dates in front of Alik, so her curiosity must have grown.</p>
@@ -40,12 +40,12 @@ chapter = 480
 <p>Mama must be referring to Alik's adoptive mother, Egawa Shiho. Surprisingly, Egawa Shiho seems to know a lot about these couple stores.</p>
 <p>,It's my first time here, but it's quite pretty."</p>
 <p>,Alik, did I choose well...?"</p>
-<p>,Yeah, Alik is great~!"</p>
+<p>,Yeah, Alik is great!"</p>
 <p>Even though they were the same age, Urabe Konoka acted like a much older sister or aunt. Urabe Konoka smiled kindly and stroked Alik's hair.</p>
 <p>,Your drinks are here!"</p>
 <p>While we were having a friendly conversation, the clerk came and brought the couple Tropical Smoothie, the green tea Frappuccino, and the desserts that Urabe Konoka had ordered separately.</p>
 <p>The couple Tropical Smoothie was a tall, long glass with layers of various smoothies stacked on top of each other, with heart-shaped straws that couples could use to drink together.</p>
-<p>,Ryuta, put the straw in your mouth~...."</p>
+<p>,Ryuta, put the straw in your mouth...."</p>
 <p>,Should I?"</p>
 <p>As Alik requested, I put the straw in my mouth and Alik also put the straw in her mouth. We were so close that our noses were touching. We sucked on the Tropical Smoothie together, and as I kept looking at Alik, her face gradually turned red.</p>
 <p>,Stop drinking now, Ryuta...."</p>

@@ -33,7 +33,7 @@ The older sister in question, Arya, jumped down from the rock and walked towards
 
 Arya's figure was tall and Alexandra seemed a head shorter in comparison. As she closed the distance between the two, Alexandra seemed like a youngling in front of mama bear.
 
-Arya stopped when she was in front and gazed Alexandra up and down. "Heh~… You've changed so much I didn't recognize you at first glance."
+Arya stopped when she was in front and gazed Alexandra up and down. "Heh… You've changed so much I didn't recognize you at first glance."
 
 "You saw me five years ago, there's barely any change." Alexandra said in a flat tone.
 
@@ -43,7 +43,7 @@ The relationship between the two was like an actual pair of sisters by now and l
 
 Alexandra sighed in a tired tone and shaking her head, asked, "Are you done? If yes, leave me alone, I've got things to do."
 
-Arya wrapped her arm around Alexandra's shoulder and pulling her cheek, said, "Slow down, cultivator. Do you want to go past your big sis in one day or what? Hehehe~"
+Arya wrapped her arm around Alexandra's shoulder and pulling her cheek, said, "Slow down, cultivator. Do you want to go past your big sis in one day or what? Hehehe"
 
 Alexandra knitted her brows and tried to break out of Arya's hold, but couldn't do so and failed miserably.
 
@@ -135,7 +135,7 @@ The faster she did that, the stronger she would be in less time.
 
 Telling her more about the heavenly secret would land Arya into the territory of bad cause and effect, which was a massive threat to herself and her loved ones.
 
-Smiling, Arya walked up to Alexandra and hugged her tightly. "Good luck on your adventures, if you want to come home, summon me. Bye, choooooo~~"
+Smiling, Arya walked up to Alexandra and hugged her tightly. "Good luck on your adventures, if you want to come home, summon me. Bye, choooooo"
 
 "UGH! GO AWAY!" Alexandra yelled and tried to push Arya away, not letting her kiss her cheek.
 

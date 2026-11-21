@@ -17,7 +17,7 @@ chapter = 346
 
 <p>At first she resisted a little, but soon gave in with a soft purr, clinging to his arm that gripped her boob, her nails leaving deep marks on Qingyi’s pale skin.</p>
 
-<p>“Nyan… nghnn~~” She moaned softly, her feline ears twitching gently. “You’re lucky I didn’t manage to capture you. I’m sure Father would give me the victory if I had a pleasure demon as prey!”</p>
+<p>“Nyan… nghnn” She moaned softly, her feline ears twitching gently. “You’re lucky I didn’t manage to capture you. I’m sure Father would give me the victory if I had a pleasure demon as prey!”</p>
 
 <p>“Ah… would you really condemn your future husband to such a horrible death?” Qingyi asked, placing a soft kiss on her lips.</p>
 

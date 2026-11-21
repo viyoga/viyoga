@@ -16,7 +16,7 @@ chapter = 247
 <p>As long as Ansel could be more tolerant of Ravenna's capriciousness, or if Ravenna could rein in her temper... Hendrik would be more than grateful.</p>
 <p>Before long, he brought Ansel to the lounge, not intending to discuss the Tower of Babel with him any further. He tactfully left space for Ansel and Seraphina, respectfully departing after leaving a message, "Please feel free to command me at any time."</p>
 <p>"Finally, it's over!"</p>
-<p>Seraphina exhaled, throwing herself onto the soft sofa and rolling around a bit, then waved at Ansel, "Ansel, Ansel~ come sit for a while, I'm tired."</p>
+<p>Seraphina exhaled, throwing herself onto the soft sofa and rolling around a bit, then waved at Ansel, "Ansel, Ansel come sit for a while, I'm tired."</p>
 <p>"You were more tired last night than you are now," Ansel sat next to Seraphina, watching the girl wriggle her body and rest her head on his thigh, "How come you're tired already?"</p>
 <p>"Can they be the same?" Wolf girl blushed, "Wandering around here, looking at those iron lumps is not interesting, it's boring to death."</p>
 <p>"So doing 'that kind of thing' is interesting?"</p>

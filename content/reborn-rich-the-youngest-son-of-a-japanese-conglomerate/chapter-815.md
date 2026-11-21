@@ -77,10 +77,10 @@ chapter = 815
 <p>Today's B-cuts!</p>
 <p>Daigo Terue trying to enter the room.</p>
 <p>Eliminated due to being too bright, strange composition, different from description, etc. hehe</p>
-<p>Daigo Terue lying down~!</p>
-<p>Erika lying down~!</p>
-<p>End of B-cuts~!</p>
-<p>Gojoy-nim requested Erika's underwear, breast covering~!</p>
+<p>Daigo Terue lying down!</p>
+<p>Erika lying down!</p>
+<p>End of B-cuts!</p>
+<p>Gojoy-nim requested Erika's underwear, breast covering!</p>
 <p>Starting with underwear</p>
-<p>Breast covering~!</p>
-<p>Bonus naked body shot~!</p>
+<p>Breast covering!</p>
+<p>Bonus naked body shot!</p>

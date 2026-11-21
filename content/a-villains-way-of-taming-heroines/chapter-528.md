@@ -35,7 +35,7 @@ chapter = 528
 <p>The girl, saying this with a cheerful smile, hugged Ansel, "So Ansel must still prefer straightforward girls like me, right?"</p>
 <p>Ansel looked at Seraphina, who was pressing her soft body against him, and smiled helplessly, "You are too straightforward, Seri."</p>
 <p>Feeling Ansel's hand encircle her waist, Seraphina, though not long acquainted with the days of formal battle with Ansel, had experienced enough frequent and prolonged encounters to be considered a seasoned "warrior". Understanding the unspoken implication in Ansel's words, her face flushed slightly, but she still cooed softly:</p>
-<p>"Just tell me if you like me~..."</p>
+<p>"Just tell me if you like me..."</p>
 <p>As the girl clung to him, a black feather suddenly drifted down from the sky.</p>
 <p>Ansel reached out and caught the feather, raising an eyebrow.</p>
 <p>Seraphina, holding him, let out a soft "huh" and leaned forward slightly to sniff the feather.</p>

@@ -28,12 +28,12 @@ chapter = 98
 <p>The next moment, Emma was looking at Dante who was in deep thought when a blue screen appeared in front of her.</p>
 <p>[Task 4: Spoil Him Rotten!]</p>
 <p>[Description: Your man just ran out of money. Are you going to let him sit there looking pathetic? Open your wallet and crush that blonde mutt while you’re at it.]</p>
-<p>’Is that why he looks like that?’ Emma glanced at him again and sure enough, he had the face of a man who just hit his limit. ’Hmph~ he should have just let me handle it from the start.’</p>
+<p>’Is that why he looks like that?’ Emma glanced at him again and sure enough, he had the face of a man who just hit his limit. ’Hmph he should have just let me handle it from the start.’</p>
 <p>He would have had more money if he had accepted the ’bonuses’ she kept offering him over the years. But he was too stubborn and refused everything.</p>
 <p>’It was a fight he was never going to win. That blonde bastard definitely has more money than brain cells.’</p>
 <p>It was then Dante noticed her looking at him. He seemed to think about it for a second before turning to her.</p>
 <p>"Emma, can you help me?"</p>
-<p>"I can, but..." She paused with a sly smile. She was going to help him regardless but she wasn’t about to let a chance like this slip through her fingers. "It’s not going to be free~"</p>
+<p>"I can, but..." She paused with a sly smile. She was going to help him regardless but she wasn’t about to let a chance like this slip through her fingers. "It’s not going to be free"</p>
 <p>’Haa... she is a businesswoman down to her bones.’ Dante sighed internally. He thought she would just take the paddle and go, but of course she had to turn it into a negotiation.</p>
 <p>To be fair though, he would have done the exact same thing if he were in her shoes.</p>
 <p>"You’re both out of your minds. He wants to go past 64 million for a metal ball and you want to help him do it?" Aria massaged her temples. "I’m starting to see why you two like each other."</p>

@@ -34,4 +34,4 @@ chapter = 894
 <p>"Let's go, Kyoken!"</p>
 <p>"I'll slice you up!" At Kenju's Words, Kyoken snorted like an excited Bull and began to Charge straight in. Kenju also ran alongside Kyoken, as if not to be outdone by him. -Katori Kensatsu Shinto Style (Katori Sword Killing Shinto Style) Mad Dog Sprint.</p>
 <p>-Katori Kensatsu Shinto Style (Katori Sword Killing Shinto School) Sword Beast Charge. Both were similar forms of Stab, but their combined Attack was so exquisite that if one was blocked, the other Attack was unavoidable. Shimokawabe Airen watched the two attacks with half-closed Eyes.</p>
-<p>Alik's Iaijutsu B-cut! Requested by DoubleBarrelShotgun-nim, Reverse Bunny Yandere Kanna~! Requested by Gojoy-nim, School Nurse Belly Dancer, Tape~! Belly Dancer~! Tape~!</p>
+<p>Alik's Iaijutsu B-cut! Requested by DoubleBarrelShotgun-nim, Reverse Bunny Yandere Kanna! Requested by Gojoy-nim, School Nurse Belly Dancer, Tape! Belly Dancer! Tape!</p>

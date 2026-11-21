@@ -20,7 +20,7 @@ chapter = 537
 <p>Some of those events happened hundreds of years ago, while some others only happened 50 or so years ago.</p>
 <p>But in the end, they were all the proof of a profound pain and tragedy.</p>
 <p>The fact that, even hundreds of years later, some of them still seemed traumatized by the actions of people who would not even be alive nowadays spoke volumes of what happened to them.</p>
-<p>“Fuck!” Bang~!</p>
+<p>“Fuck!” Bang!</p>
 <p>Someone hit the table with her fist and stood up, pure rage etched on her face.</p>
 <p>“Bastard! I have been listening quietly but fuck. Are you here to mock us to our faces? Was banishing us not enough for your fucking royal family?”</p>
 <p>Sol looked at her.</p>

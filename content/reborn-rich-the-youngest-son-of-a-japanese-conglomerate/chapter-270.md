@@ -48,7 +48,7 @@ chapter = 270
 <p>Thinking about it, it might be an incredibly god-like trait? There are countless traits and items in TMC and the MegaCorp Youngest Son series, but there weren't many items that increased breast size. Of course, you can make them bigger with surgery, but still, something natural is good, right?</p>
 <p>"The newly created trait is Star Energy Storage, and I think my breasts got bigger because of this trait...."</p>
 <p>I explained Star Energy Storage to Han Yu-gyeong. Han Yu-gyeong listened to my story and clapped her hands as if she understood now.</p>
-<p>"Ah~! I thought my breasts got bigger because I gained weight. My breasts have gotten bigger recently, so I had to change all my bras. I was afraid of how much weight I had gained, so I didn't weigh myself, but since I had to change my bras, I thought I must have gained weight...."</p>
+<p>"Ah! I thought my breasts got bigger because I gained weight. My breasts have gotten bigger recently, so I had to change all my bras. I was afraid of how much weight I had gained, so I didn't weigh myself, but since I had to change my bras, I thought I must have gained weight...."</p>
 <p>Even a very pretty woman like Han Yu-gyeong cares a lot about her weight. Well, she takes care of herself that much, so she might care more.</p>
 <p>"Are you relieved?"</p>
 <p>"Yeah, hehe. But did my level go up?"</p>
@@ -95,7 +95,7 @@ chapter = 270
 <p>"It's our Nero's favorite brand."</p>
 <p>Following the shadow panther, it's the light puppy's favorite brand.... I should buy stock in that company later. It's amazing. Nero watched the puppy eating his snack like crazy and continued to growl, but when Han Yu-gyeong put food in another bowl, he started eating wagu wagu together as if he couldn't lose.</p>
 <p>"Woof!"</p>
-<p>"Aww~! How cute! Your name is now White Bear! Got it?"</p>
+<p>"Aww! How cute! Your name is now White Bear! Got it?"</p>
 <p>"Woof! Woof!"</p>
 <p>The Star White Dog, who had eaten all the food poured into a full bowl, wagged its tail and barked at Han Yu-gyeong. I carefully looked at the puppy again, just in case.</p>
 <p>◆Star White Dog Name: White Bear Age:?? Gender:♀</p>

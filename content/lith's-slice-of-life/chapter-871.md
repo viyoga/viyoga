@@ -13,7 +13,7 @@ A gentle voice that Lith had been craving to hear for so many years resounded in
 
 Lith's vision went hazy, but he was all smiles and basked in the familiar mild rosy smell and warmth.
 
-"Mama missed you soooooo much!~~"
+"Mama missed you soooooo much!"
 
 Lith heard his mother's words full of longing as she hugged him tightly and swayed side to side.
 
@@ -71,7 +71,7 @@ The soft, velvety texture of Lilith's pussy that Lith felt made his dragon roar 
 
 Lith ignored it and continued to indulge in the forbidden ecstasy, tasting the thing he had missed for so many years.
 
-"Mhmm~~" Lilith moaned in happiness and pleasure. Her physique was suppressed and due to not getting Lith's touch in a long while, she was extra sensitive at present.
+"Mhmm" Lilith moaned in happiness and pleasure. Her physique was suppressed and due to not getting Lith's touch in a long while, she was extra sensitive at present.
 
 Sticky juices flowed into Lith's mouth and the sweet, mild rosy flavor acted as an aphrodisiac, invigorating Lith's whole body.
 

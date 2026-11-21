@@ -135,7 +135,7 @@ chapter = 171
 
 <p>Luis immediately brought a bowl of clear conch and fish maw soup from the kitchen and scolded mockingly, &quot;Wife, the adults are talking. Don’t interrupt.&quot;</p>
 
-<p>&quot;Okay, I know~&quot; The couple exchanged a secret chuckle.</p>
+<p>&quot;Okay, I know&quot; The couple exchanged a secret chuckle.</p>
 
 <p>Luis appeared to be stopping her, but in reality, he was rewarding her!</p>
 

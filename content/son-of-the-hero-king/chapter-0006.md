@@ -19,7 +19,7 @@ chapter = 6
 <p>The way he was now, in this new life of his, he could be said to be many things — a rapist, and a tyrant, both surely weren't among them, and he did not think that anything was exciting about having a quick shag with an unwilling partner.</p>
 <p>"What brought this question? This is rather sudden and unprecedented."</p>
 <p>The maid began to giggle at his statements as one of them, a catgirl, voiced out a response with an impish smile hanging on her luscious pink lips.</p>
-<p>"We always wanted to do it, Nya~!..."</p>
+<p>"We always wanted to do it, Nya!..."</p>
 <p>"We just thought that your highness wasn't interested in lowly beings like us." Another one, with the pointed ears and the dark skin of a dark elf, continued while licking her dark ruby-colored lips.</p>
 <p>"But yesterday…"</p>
 <p>"All the maids heard the sweet moans coming from your room and..."</p>
@@ -45,7 +45,7 @@ chapter = 6
 <p>"Ahh… T-the sex is so indecent it almost seems like two animals are copulating with wanton abandon!"</p>
 <p>"If my insides got stirred by such a thing, my stomach would likely tear… How delightful!!!"</p>
 <p>Sol didn't pay attention to their murmurs, solely focusing on the unceasing moans of the dark beauty under him.</p>
-<p>"Ah~! Please more!! I-It’s reaching, it’s hitting me so deeply!"</p>
+<p>"Ah! Please more!! I-It’s reaching, it’s hitting me so deeply!"</p>
 <p>Cornering her intensely as he pumped smoothly from behind, he made her shiver and tremble as she experienced a violent surge of pleasure along with her first-ever internal orgasm, the dark elf’s vagina was convulsing erratically as he finally spurted his thick semen right into the deepest depths of her core.</p>
 <p>All the girls synchronously swallowed their saliva as they eyed him with a mix of curiosity, fear, and…desire, as he pulled his still hard and throbbing penis out of the fainted tanned nude body. A mixture of blood and semen immediately began to flow out of her still quivering snatch, her body probably still being rocked by the throes of her repeated orgasms.</p>
 <p>He sported a rather confident grin as he asked them the question, they all were excruciatingly waiting for.</p>
@@ -67,14 +67,14 @@ chapter = 6
 <p>The girls were essentially latching their sensitive flesh against his body to masturbate.</p>
 <p>Their juices had already started overflowing as they waited for Sol to stick his manhood inside each of them in turn.</p>
 <p>They produced plenty of love juices, so they quickly smeared his entire body with their shameful nectar. He almost felt like all of the bathwater had been replaced with the girls’ love juices already.</p>
-<p>“A-ahn~! Yes! amazing! ”</p>
+<p>“A-ahn! Yes! amazing! ”</p>
 <p>The girls’ voices echoed through the bath. They were likely aroused by this perverted group masturbation session.</p>
 <p>They seemed to be enjoying themselves even more than normal as each one’s pleasure amplified all the others’ pleasure. It was difficult to believe that those girls were all virgins just a few moments ago.</p>
 <p>'Ahh, I feel like my entire body is wrapped in their wet flesh… It’s like I’m inside a giant pussy…'</p>
 <p>Though disgusted at his own imagination, it was indeed the only way to describe his current state. His naked body was entirely surrounded by the girls’ bodies. He was soaking in feminine flesh more than the bath.</p>
 <p>In that world of utter perversion and unending depravity, his entire body twitched as he felt pleasure from all sides and nerves.</p>
 <p>His penis throbbed violently — a milky liquid erupted from the tip as he filled the cat girl, that was straddling him, with his copious spunk.</p>
-<p>"Nyaa~! A-Amazingg~!! This is, this is sex…? Having sex with a human male feels this good!"</p>
+<p>"Nyaa! A-Amazingg!! This is, this is sex…? Having sex with a human male feels this good!"</p>
 <p>The girls watched in utter fascination as their friend twitched and moaned like a deranged mess, her eyes rolling up the sockets of her skull, a sign of her immense pleasure, before one of them yanked her out and hastily replaced her with herself.</p>
 <p>The cycle continued like that again and again in endless loops.</p>
 <p>In the end, the girls could only beg for Sol to stop.</p>

@@ -55,7 +55,7 @@ Lith put Emilia down and went towards Arya.
 
 Reaching close to her, he immediately turned her around and made her butt stick out. Lith then inserted his shaft into Arya's fuckhole and started pounding her intensely.
 
-"Ah… so intense… Mhm~..." Arya moaned as she felt Lith thrust deep into her again and again.
+"Ah… so intense… Mhm..." Arya moaned as she felt Lith thrust deep into her again and again.
 
 Lith turned Arya's face to the side and kissed her while fucking her from behind.
 

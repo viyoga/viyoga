@@ -68,9 +68,9 @@ chapter = 962
 <p>As I was watching the News, laughing with Tears streaming down my Face, the door to my room creaked open. Who was it? I looked, and Seizawa Shii and Otagi Yuka were entering my room.</p>
 <p>"We.... are going to the USA tomorrow...."</p>
 <p>Otagi Yuka, blushing, spoke about going to the USA tomorrow, and seeing her Appearance, Seizawa Shii, perhaps feeling impatient, opened her Mouth.</p>
-<p>"So, since we won't be able to do it with Ryuta-cchi for a while, we want you to fully charge us with Ryuta-cchi's essence tonight~☆"</p>
+<p>"So, since we won't be able to do it with Ryuta-cchi for a while, we want you to fully charge us with Ryuta-cchi's essence tonight☆"</p>
 <p>Aha...! That's right. Since the two of them would be going to the USA tomorrow and I wouldn't see them for a while, I would have to charge those two Women with my milk.</p>
-<p>Gojoy-nim requested Han Yu-gyeong's Breast Covering~!</p>
-<p>I Save I-nim requested Jinmija Yeosa's Micro Bikini, Reverse Bunny Girl~!</p>
-<p>Micro Bikini~!</p>
-<p>Reverse Bunny Girl~!</p>
+<p>Gojoy-nim requested Han Yu-gyeong's Breast Covering!</p>
+<p>I Save I-nim requested Jinmija Yeosa's Micro Bikini, Reverse Bunny Girl!</p>
+<p>Micro Bikini!</p>
+<p>Reverse Bunny Girl!</p>

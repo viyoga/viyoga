@@ -67,7 +67,7 @@ chapter = 317
 
 <p>The moment he came again, covering Meilin and Rongyan’s asses with his cum, he advanced on Xueyao, sinking his cock into her fat, tight pussy.</p>
 
-<p>“Nghnn~~ Let’s make puppies, husband!” Xueyao smiled, embracing Qingyi and kissing him passionately, her fluffy white tail wrapping around his waist as he fucked her non-stop.</p>
+<p>“Nghnn Let’s make puppies, husband!” Xueyao smiled, embracing Qingyi and kissing him passionately, her fluffy white tail wrapping around his waist as he fucked her non-stop.</p>
 
 <p>And so went the night in the burning red pavilion, obscene moans spreading through the empty courtyards as Qingyi received his birthday gift.</p>
 

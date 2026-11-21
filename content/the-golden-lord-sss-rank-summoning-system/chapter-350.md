@@ -8,7 +8,7 @@ chapter = 350
 <p>[Nt: Yes, just one Chapter of Golden Lord today. I had to go to another city to sign some documents for the guy whose car my dad hit this morning, and I ended up getting home a little late.</p>
 <p>Everything will be back to normal tomorrow]</p>
 <p>***</p>
-<p>"Nghnn~"</p>
+<p>"Nghnn"</p>
 <p>A sweet, sleepy moan drifted through the quiet dawn, echoing softly off the walls of one of the many houses in Goldenveil.</p>
 <p>A pair of dark eyes opened slowly, still heavy with sleep, framed by long, tousled black hair spread across the pillow like spilled ink.</p>
 <p>Delicate features, strikingly different from those of the Western continent, emerged into the soft morning light.</p>

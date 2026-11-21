@@ -44,7 +44,7 @@ chapter = 12
 <p>Ethan barely paid attention to the notifications. His gaze moved to Alice.</p>
 <p>His hands slid down to her hips and, with a quick movement, pulled her onto his lap.</p>
 <p>His face immediately sank into the neckline of her dress, deep, warm, fragrant, and soft.</p>
-<p>"Ethan!~ We can’t... not here~" Alice gasped, her fingers sinking into his golden hair as she pressed him against her.</p>
+<p>"Ethan! We can’t... not here" Alice gasped, her fingers sinking into his golden hair as she pressed him against her.</p>
 <p>"I know." He smiled, lifting his face slightly. "I just needed that..."</p>
 <p>"And besides, this is my office now. Who’s going to stop me?" he declared.</p>
 <p>So this was how her father felt, huh?</p>

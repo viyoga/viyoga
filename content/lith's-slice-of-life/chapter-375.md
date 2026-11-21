@@ -25,7 +25,7 @@ Lith then looked at his mother, only to see her nod and give her approval.
 
 Without waiting further, Lith penetrated Luna's slippery wet canal and reached her deepest recesses in one single thrust.
 
-"Ahhh~"
+"Ahhh"
 
 A moan couldn't help but slip out of Luna's mouth as her flower was finally plucked. A tear dropped from Luna's eyes and it wasn't due to pain but out of sheer happiness. She had finally become Lith's by body and mind both.
 
@@ -79,7 +79,7 @@ Lith continued to ram his dick into her pussy and the position had now changed t
 
 Pah! Pah!
 
-"Ahh~" Luna moaned in pleasure as Lith spanked her ass.
+"Ahh" Luna moaned in pleasure as Lith spanked her ass.
 
 Having such a beautiful butt in front of him, Lith couldn't help but spank it. Now, judging from how Luna moaned, Lith could very well make out that she liked it.
 

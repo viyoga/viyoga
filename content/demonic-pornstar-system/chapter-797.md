@@ -9,7 +9,7 @@ chapter = 797
 <p>"Dual-wielding, are we now, Kai?! Can’t wait to see the replay!"</p>
 <p>Luna’s Stormblade carved a strider on the diagonal as she flickered through, and she was gone again before the body fell, lightning jumping two ranks deeper into the horde.</p>
 <p>Calypso landed beside him on the next beat, bouncing on the balls of her bare feet like a cheerleader who’d just spotted her boyfriend in the crowd, tail whipping a happy curl behind her demonic curves.</p>
-<p>"Darling~❤️ You’re making it hard to focus over here!"</p>
+<p>"Darling❤️ You’re making it hard to focus over here!"</p>
 <p>Her red eyes lit up with full adoring force, lips puckered into a perfect bow.</p>
 <p>Then her face broke open into the Manifestation of Carnage.</p>
 <p>"I might not have two axes like my badass husband, but..."</p>

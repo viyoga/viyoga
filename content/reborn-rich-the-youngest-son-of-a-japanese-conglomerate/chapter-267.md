@@ -24,7 +24,7 @@ chapter = 267
 <p>I drove along the Tokyo Bay Aqua-Line with the sea on both sides, and arrived at the Haneda Airport parking lot around 5:50 PM. I arrived just in time.</p>
 <p>I went to the arrival hall and fiddled with my phone for a bit, and soon it was about time for Han Yu-gyeong to come out, so I saw the doors of the arrival hall open and people started coming out. It was easy to recognize Han Yu-gyeong among them. All I had to do was find the prettiest woman.</p>
 <p>As expected, I could find Han Yu-gyeong right away. Han Yu-gyeong was wearing a simple white shirt and a black pleated skirt. It was a simple outfit, but she looked very pretty.</p>
-<p>"Yu-gyeong-a~!"</p>
+<p>"Yu-gyeong-a!"</p>
 <p>"Yong-tae-ya!"</p>
 <p>When I waved my hand, Han Yu-gyeong also shouted as she ran towards me. I ran and hugged Han Yu-gyeong, who was running to hug me, and spun her around. Maybe it's because I'm strong, but she was still light.</p>
 <p>"Still light, huh?"</p>
@@ -68,7 +68,7 @@ chapter = 267
 <p>"Is that so...?"</p>
 <p>"How about you, Yu-gyeong? Are there any talks coming from your family?"</p>
 <p>I asked Han Yu-gyeong. If the Shin-gang Group was going to attach someone to Han Yu-gyeong, I was going to go to Korea. I'll secretly assassinate them.</p>
-<p>"Eii~! I'm only 20 years old now. There hasn't been any talk about that kind of thing."</p>
+<p>"Eii! I'm only 20 years old now. There hasn't been any talk about that kind of thing."</p>
 <p>"Ah, is that so? That's a relief then."</p>
 <p>In my game memories, there are marriage events starting from the age of 22. It seemed okay until then. By that time, I would have established myself to some extent, so I wasn't too worried because I would be a pretty good match for Han Yu-gyeong.</p>
 <p>Rather, I'm worried that there won't be too many women by then.</p>

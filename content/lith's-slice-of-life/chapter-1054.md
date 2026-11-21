@@ -59,7 +59,7 @@ Saying so, Lith immediately vanished from his spot, leaving the two wide-eyed yo
 
 Aline and Maria's heart throbbed so hard that it seemed it would leap out at any moment. The two trembled and looked up, but found Lith to have gone.
 
-"Aaaahhhhhh~!"
+"Aaaahhhhhh!"
 
 Aline held her face and moaned as her eyes turned red and a similar hue blush spread throughout her face and body.
 

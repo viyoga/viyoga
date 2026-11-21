@@ -43,7 +43,7 @@ She could not believe that a mere rock had an active deity within it!
 
 Lith would've asked the same thing honestly. It was like an inbuilt reflex they had after so many years of training.
 
-"Ha ha~…" The deity found the situation amusing.
+"Ha ha…" The deity found the situation amusing.
 
 He thought these two would ask him for some treasure or some secrets, having impressed him, but the situation was quite different and exceeded his expectations.
 
@@ -67,7 +67,7 @@ Lith nodded and didn't ask further. nobody helped anybody for free and this deit
 
 "Do you know anything about our companions and where they might be?"
 
-"Heh heh~… little one, have you not heard of the legend of this world and the riddles?" The deity didn't answer straight this time.
+"Heh heh… little one, have you not heard of the legend of this world and the riddles?" The deity didn't answer straight this time.
 
 Lith expected this much. "Yes. What about them?"
 

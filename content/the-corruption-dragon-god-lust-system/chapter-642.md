@@ -35,7 +35,7 @@ chapter = 642
 
 <p>Perhaps it was worth asking the system for his date of birth, so his wives could at least prepare birthday celebrations for him.</p>
 
-<p>“They aren’t ready yet, I’ll gather them all! Fufufu~~” Ruxue replied inside his mind, her sweet and sensual laughter echoing softly. He simply sighed.</p>
+<p>“They aren’t ready yet, I’ll gather them all! Fufufu” Ruxue replied inside his mind, her sweet and sensual laughter echoing softly. He simply sighed.</p>
 
 <p>“System, do you have any dual cultivation techniques? And a suitable bed for that?” Qingyi asked.</p>
 
@@ -101,7 +101,7 @@ chapter = 642
 
 <p>The impact sent her tits crashing against his lap in a heavy, fleshy collision, the vast mounds rippling outward in a wide, obscene wave before slowly pulling back into shape.</p>
 
-<p>Seeing the look of pleasure wash over his face, Isabel began moving with more vigor, palms pressing inward from both sides as she lifted and dropped the heavy masses over his shaft in a relentless rhythm. “Nghnn~~ Does hubby like fucking Isabel’s huge tits?” she asked with a breathless moan, laughing when she saw him nod. “Well… hubby has to be ready to fuck them for all eternity!~♡” She picked up speed with that declaration.</p>
+<p>Seeing the look of pleasure wash over his face, Isabel began moving with more vigor, palms pressing inward from both sides as she lifted and dropped the heavy masses over his shaft in a relentless rhythm. “Nghnn Does hubby like fucking Isabel’s huge tits?” she asked with a breathless moan, laughing when she saw him nod. “Well… hubby has to be ready to fuck them for all eternity!♡” She picked up speed with that declaration.</p>
 
 <p>Loud, wet slaps filled the cockpit in rapid succession, her breasts bouncing and crashing against his lap with every downward stroke, the plush flesh shuddering with each impact, rippling from the point of contact all the way to the outer curves of her chest.</p>
 
@@ -111,7 +111,7 @@ chapter = 642
 
 <p>He didn’t hold back, and it didn’t take long for those enormous tits to push him right to the edge.</p>
 
-<p>“Nghnn~~ Yeah! Cum on my tits, hubby!♡” Isabel cried out, feeling his cock throb and swell between her breasts.</p>
+<p>“Nghnn Yeah! Cum on my tits, hubby!♡” Isabel cried out, feeling his cock throb and swell between her breasts.</p>
 
 <p>With a deep throb, he erupted.</p>
 

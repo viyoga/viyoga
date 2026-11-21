@@ -76,7 +76,7 @@ chapter = 40
 <p>"I see. So you want to flush them out by making them think you really lost your blessing."</p>
 <p>Sol entered deep in thoughts when something occurred to him.</p>
 <p>"Did you already take all that into account when you decided to do this bet?"</p>
-<p>"Te-he~!"</p>
+<p>"Te-he!"</p>
 <p>Sol stared at Camelia with renewed respect. He had never looked down on her, but he had to admit that the Camelia who acted as if everything was on the palm of her hand was rather hot.</p>
 <p>"I guess I can reward you a little tonight. Yesterday we didn't finish our spanking session, right?"</p>
 <p>Camelia's face immediately grew hot and her breathing a little rushed, but just as she was about to pounce on Sol.</p>

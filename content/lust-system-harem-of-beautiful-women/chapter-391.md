@@ -99,7 +99,7 @@ chapter = 391
 
 <p>After she had pleasured him for a while, Luis picked up his phone to check it, then said apologetically, &quot;Chloe, I still have some matters to attend to, so I need to head out now.&quot;</p>
 
-<p>&quot;Just wait a little longer. Let me make you feel good before you go~&quot;</p>
+<p>&quot;Just wait a little longer. Let me make you feel good before you go&quot;</p>
 
 <p>After saying this, Chloe took his cock into her mouth again, sucking even faster. Her coquettish tone was utterly clingy and seductive, what man could resist such delicately charming, alluring grace?</p>
 

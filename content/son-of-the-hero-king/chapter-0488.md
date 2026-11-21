@@ -39,7 +39,7 @@ chapter = 488
 <p>"Begone!"</p>
 <p>Setsuna howled, and thunder roared all around her, moving out of her body and relentlessly evaporating the two poor constructs into nothingness.</p>
 <p>"Princess. Your mastery of lightning has certainly increased by a lot, the same with the way you use the sword. It's a beautiful growth. But if that's all you have learned in the time since we last saw each other on that night, I would be sorely disappointed, you know..."</p>
-<p>Awooo~!</p>
+<p>Awooo!</p>
 <p>The wind started to stir, giving the impression that thousands of wolves were howling together and creating a hurricane of ever-surging pressure.</p>
 <p>"Princess... Do you know why I love nature so much?"</p>
 <p>Setsuna did not answer her, even as she watched the aura around Neun constantly swell to greater and greater heights.</p>

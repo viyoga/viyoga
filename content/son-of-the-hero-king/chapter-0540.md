@@ -12,10 +12,10 @@ chapter = 540
 <p>“Well…When you say it like this I do like quite the pervert.”</p>
 <p>“You bet.”</p>
 <p>“Haha…”</p>
-<p>“Don’t haha me. Sigh~ I swear sometimes I feel like I am dealing with a kid.”</p>
+<p>“Don’t haha me. Sigh I swear sometimes I feel like I am dealing with a kid.”</p>
 <p>“I am a kid you know? Well, technically I was not that long ago anyway. Wait…Does that make you a cradle robber?”</p>
 <p>Medea’s smile twitched a little when she felt a second arrow log deep in her chest. The worst was that she could not deny his words. In terms of age, she was more than 100 times older than him.</p>
-<p>“Fufufu~You should stop bullying our dear Medea.”</p>
+<p>“FufufuYou should stop bullying our dear Medea.”</p>
 <p>Coming back after having a good laugh, Persephone took place next to Mede and crossed her beautiful sexy legs while facing Sol.</p>
 <p>Since he was kneeling, he was at the perfect angle to gaze at the unknown darkness that hide between her legs.</p>
 <p>“You like?”</p>

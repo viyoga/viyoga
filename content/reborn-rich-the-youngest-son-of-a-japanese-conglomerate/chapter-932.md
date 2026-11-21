@@ -8,7 +8,7 @@ chapter = 932
 <p>"...She has these Traits. So..."</p>
 <p>As I explained Seizawa Shii's Stats, Skills, and Traits, everyone's mouths hung open. It seemed those listening were surprised, probably because she was so heavily invested in Strength. Otagi Yuka, who heard my Story, looked at Seizawa Shii with an incredulous Expression.</p>
 <p>"What kind of Platinum Blonde Hair female animal gorilla is she? No wonder she's so stupidly strong..."</p>
-<p>"What? A female animal gorilla? Yukacchi! Your Words are too harsh~!"</p>
+<p>"What? A female animal gorilla? Yukacchi! Your Words are too harsh!"</p>
 <p>At Otagi Yuka's Words, Seizawa Shii, as if provoked, hit the desk with a pang and stood up from her Seat. Still, seeing that the desk she hit with her Palm didn't shatter, it seemed she wasn't truly angry.</p>
 <p>The two had a staring contest for a while, then soon sat back down. Seizawa Shii and Otagi Yuka bickered like this, but they didn't seem to genuinely dislike each other. Of course, if I had said that, they would probably have been disgusted with each other.</p>
 <p>In fact, the word 'gorilla' wasn't entirely appropriate. This was because Seizawa Shii, with her Strength Stat already exceeding 19, had reached a Level where she could easily crush a gorilla's Hand if she shook it. It seemed the nickname 'Ogre' fit her perfectly.</p>
@@ -23,7 +23,7 @@ chapter = 932
 <p>"Ah! How about learning from our Sabu? She also gave me mental Training, saying my Body was sufficiently prepared. I definitely felt the difference."</p>
 <p>Naruse Shiyo, hearing the Story, raised her Hand brightly and spoke. Since Naruse Shiyo had sufficient physical Abilities due to her Dragon transformation, Shimokawabe Airen seemed to have recognized that and focused her on mental Training.</p>
 <p>"Teacher Gajeong? Shall we? Then, Shiyoppi, could you ask together?"</p>
-<p>"Good~! Sabu-nim will like it too."</p>
+<p>"Good! Sabu-nim will like it too."</p>
 <p>Seeing her say that Sabu-nim would like it, it seemed Shimokawabe Airen enjoyed teaching. I didn't know that.</p>
 <p>"Now that the Status Window explanations are all done... what should we do?"</p>
 <p>In fact, today's plan at the Joseodang Safe House was just the meeting and Status Window explanations. The next schedule was visiting those still in the Hospital and going to Urabe Shrine to see Urabe Konoka and Hanakame, who had helped with this incident, but I asked in case there was anything else.</p>
@@ -64,8 +64,8 @@ chapter = 932
 <p>Although she was Finnish, Athena Mannerheim, who had spent two-thirds of her Lifetime in Japan, was more comfortable in Japan than in Finland. And because she had 60 People to take Responsibility for, she had to return to Japan immediately.</p>
 <p>Athena Mannerheim left Words promising to visit her Parents' Grave again and headed back to Ivalo Airport.</p>
 <p>Falling asleep on the Airplane back to Japan, Athena Mannerheim was able to get a good night's Sleep without Nightmares for the first Time in a long Time.</p>
-<p>Ryuta performing Dragon-Tiger Dance and a proud Alik, requested by MidNightSKY-nim~!</p>
+<p>Ryuta performing Dragon-Tiger Dance and a proud Alik, requested by MidNightSKY-nim!</p>
 <p>Ryuta performing Dragon-Tiger Dance!</p>
 <p>I've gathered some flashy Attacks haha.</p>
-<p>A proud Alik~!</p>
+<p>A proud Alik!</p>
 <p>Alik showing his pride with a peace sign haha.</p>

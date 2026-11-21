@@ -52,9 +52,9 @@ chapter = 685
 <p>Asada Ei gave a straightforward answer that she wanted to become closer to me, like a soldier. Hmm... I certainly haven't done any special friendship activities with Asada Ei. I appointed her as an executive of Joseodang after meeting her twice, and I haven't met her separately since then.</p>
 <p>It could be said that she has a high level of loyalty because she owes me a debt, but her intimacy is not high. Then I should definitely fix it. Both intimacy and loyalty should be high.</p>
 <p>"Sure. Shall we go to a cafe right away?"</p>
-<p>"Oh...! Sensei~"</p>
+<p>"Oh...! Sensei"</p>
 <p>"If Rena were here, she would have said, 'You are indeed a hero, my lord!'"</p>
-<p>When I said let's go to a cafe, Otagi Yuka and Saionji Diana next to me said to me with a feeling of, "Oh~ You're popular~?" Ei... There's no way she'd like me and want to get closer to me after only meeting me for a short time, right?</p>
+<p>When I said let's go to a cafe, Otagi Yuka and Saionji Diana next to me said to me with a feeling of, "Oh You're popular?" Ei... There's no way she'd like me and want to get closer to me after only meeting me for a short time, right?</p>
 <p>I glanced at Asada Ei while listening to the teasing students, and she still had the same cold expression. As expected, she didn't show any signs of liking me at all.</p>
 <p>"Alik wants to go to the cafe too...! Alik wants to eat parfait."</p>
 <p>"Shiyo wants to go to the cafe with you too! It's definitely not because I don't want to leave Sensei alone with a girl one-on-one!"</p>
@@ -70,6 +70,6 @@ chapter = 685
 <p>When the Joseodang agents disappeared with their luggage, Asada Ei's cold attitude, which she had shown until now, was nowhere to be seen, and she showed a mix of tension and excitement, as if she were a student with few friends inviting a classmate.</p>
 <p>Perhaps because she was a snow woman, she couldn't go outside, so she missed the warmth of people. She even looked up places like this cafe in advance. You shouldn't easily sympathize with people, but I couldn't help but feel sorry for her.</p>
 <p>__________</p>
-<p>There were quite a few people who said they didn't know Vivian Taylor, so I remade it in the old illustration style~!</p>
+<p>There were quite a few people who said they didn't know Vivian Taylor, so I remade it in the old illustration style!</p>
 <p>The model was unstable, so I changed it to a new model to create the illustration, but it seems like you recognized it even less ㅠㅠ</p>
 <p>To explain, Vivian Taylor is the one who will become the owner of Mother Mars, one of the five major megacorps in the future United States. Vivian Taylor's main stage is Mars, as the name Mother Mars suggests.</p>

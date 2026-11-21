@@ -67,10 +67,10 @@ chapter = 955
 <p>The Appearance Inside the House was bloody. What was presumed to have been a human (probably Ogata Koji) was cut into Powder by something sharp, scattered like ground meat spilled in the Middle of the living room. A girl was sitting on the sofa, as if admiring the Scene, and she slowly turned her Head to the Side, looking at Kahei Jingoro and Seido Omina. And she opened her mouth.</p>
 <p>"I've been waiting. Come in quickly."</p>
 <p>Her Way of Speaking was cheerful, as if to a friend who was late for an appointment.</p>
-<p>Gojoy-nim requested Yang Seol-hui's casual Clothes and underwear Attire~!</p>
-<p>Casual Clothes~!</p>
+<p>Gojoy-nim requested Yang Seol-hui's casual Clothes and underwear Attire!</p>
+<p>Casual Clothes!</p>
 <p>The casual Clothes have an Office Lady vibe hehe.</p>
-<p>Underwear~!</p>
+<p>Underwear!</p>
 <p>TheDreaming-nim requested Kokoro at the Noriteo at Night 1. Groin covering 2. Running</p>
 <p>1.</p>
 <p>2.</p>

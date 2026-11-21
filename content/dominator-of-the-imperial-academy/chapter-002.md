@@ -41,6 +41,6 @@ chapter = 2
 <p>Then he slowly fondled her breasts with both hands, pinching her nipples and kneading her tits in a circular motion as if giving her breasts a massage.</p>
 <p>Saliva pooled in his mouth as his lips parted, only to end up on her nipples, erect now due to continuous pinching and kneading. Instinctively he sucked.</p>
 <p>"Aah, young master, a little gentle," moaned Fiona as Xavier’s tongue circled her nipple in his mouth, suckling on each of her tits one by one.</p>
-<p>"Ah~, ahh~," slow moans escaping Fiona’s mouth as her eyes fell on a huge bulge in Xavier’s pants. She had heard about it among other maids; she had read about it in books.</p>
+<p>"Ah, ahh," slow moans escaping Fiona’s mouth as her eyes fell on a huge bulge in Xavier’s pants. She had heard about it among other maids; she had read about it in books.</p>
 <p>"Young master, forgive me if I am being presumptuous, but are you possibly aroused right now?"</p>
 <p>Fiona’s uncensored art is available on my discord: https://discord.gg/46RzQWVvsR</p>

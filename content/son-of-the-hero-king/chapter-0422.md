@@ -64,19 +64,19 @@ chapter = 422
 <p>After that initial blast, more and more cloudy liquid entered her mouth each time the penis throbbed.</p>
 <p>‘I won! Now I can…’</p>
 <p>The moment she began gulping the semen that spread in her mouth,</p>
-<p>‘Ah~....’</p>
+<p>‘Ah....’</p>
 <p>Pandora realized she had made a mistake.</p>
 <p>Succubus could take energy from any body fluid, unlike vampires. This was a fact.</p>
 <p>But it didn’t change that they were sex demons and the greatest efficacy came from absorbing the seed of their targets.</p>
 <p>A few droplets of blood had been enough for Pandora to feel a small orgasm.</p>
 <p>What would she feel as she drank this copious amount of semen?</p>
-<p>“Ah~!”</p>
+<p>“Ah!”</p>
 <p>Her eyes rolled in their sockets and shone with a golden luster while her pupils took the shape of hearts. Her face melted in ecstasy as she felt like she was being given the most delicious dish in the entire world or like she was a junky receiving the highest quality of drugs ever created.</p>
 <p>She literally felt like she was about to ascend to the afterlife as the amount of pleasure she was currently receiving was simply out of this world.</p>
 <p>At this very moment, Pandora realized that there was no going back for her. Even though she had never even entertained the idea of having a mate, she knew that now even if she did, she would never be satisfied with anything else than this.</p>
 <p>Like someone who had not eaten food in years, she licked up the semen dripping from his penis and even used a finger to scoop up what was dripping from the corner of her mouth to bring it right back into her mouth.</p>
 <p>The ground became soaked as she reached the best orgasm in her life and she was on the verge of fainting. But—</p>
-<p>‘Wake up~ This isn’t the end.’</p>
+<p>‘Wake up This isn’t the end.’</p>
 <p>Pandora shuddered powerlessly as she felt her legs being spread apart.</p>
 <p>‘Please. Don’t do this. Don’t break me further.’</p>
 <p>This was what she thought as she belatedly realized that she was in fact the one spreading her own legs for Sol to fuck her while begging him to copulate.</p>

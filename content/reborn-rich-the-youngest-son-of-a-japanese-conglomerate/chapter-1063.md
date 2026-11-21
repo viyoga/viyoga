@@ -72,14 +72,14 @@ chapter = 1063
 <p>Byuut! Byuuut! Byuuut!!</p>
 <p>"Haaaaaang!!! Hot, Heueut! cum...! Haaht! fill me up insideee♥"</p>
 <p>As I began to Ejaculate, Sabu also reached Climax simultaneously. She felt so good that she stuck out her tongue and rolled her Eyes back, her Body trembling, truly feeling the Climax.</p>
-<p>Sex B-cut~!</p>
+<p>Sex B-cut!</p>
 <p>Young Ryuta, as Sabu imagined him hehe</p>
 <p>He was a handsome Little One even when he was young hehe</p>
 <p>Bonus</p>
-<p>Ryuta around 9th grade to 10th grade~!</p>
-<p>MidNightSKY-nim requested Rinka-sabu whose Face turned red thinking of her Disciple, and Ryuta surprised when the river split from a punch~!</p>
-<p>Sabu~!</p>
-<p>Ryuta~!</p>
+<p>Ryuta around 9th grade to 10th grade!</p>
+<p>MidNightSKY-nim requested Rinka-sabu whose Face turned red thinking of her Disciple, and Ryuta surprised when the river split from a punch!</p>
+<p>Sabu!</p>
+<p>Ryuta!</p>
 <p>Gojoy-nim requested Chapter 42, Simyeonui ttal's first Appearance. Han Yu-gyeong secretly watching the Situation</p>
 <p>Simyeonui ttal.</p>
-<p>Han Yu-gyeong~!</p>
+<p>Han Yu-gyeong!</p>

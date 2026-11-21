@@ -40,9 +40,9 @@ chapter = 247
 <p>In simpler words, by making the spell erratic, Caius had created something that could bypass protective spells, ensuring that it didn’t have to lose its energy while trying to break through shields and could instead just go right through them.</p>
 <p>Suddenly, her intrigued and wondering expression changed into one of surprise that edged close to shock as she raised her eyes from her observation of the flame column and its interaction with her water shield and instead looked into Caius’s handsome face.</p>
 <p>He had a strained expression of effort but he met her gaze with an almost cocky smile as he brought the name of this spell to mind;</p>
-<p>~Erratic Fireball!~</p>
+<p>Erratic Fireball!</p>
 <p>This was his best spell creation work thus far and he was very proud of it. He also hadn’t planned for it to get field testing so soon as it had actually been one of the cards he was preparing for a coming attack/battle.</p>
-<p>The benefits and risks of combining Elements were something he had learned about from reading the original story and he had first put it into effect with the creation of his ~Hellsong Stomp~ spell which had been the combination of a Second Circle Wind spell ~Wispy Feet~ and Third Circle Fire spell ~Hellsong Dash~.</p>
+<p>The benefits and risks of combining Elements were something he had learned about from reading the original story and he had first put it into effect with the creation of his Hellsong Stomp spell which had been the combination of a Second Circle Wind spell Wispy Feet and Third Circle Fire spell Hellsong Dash.</p>
 <p>At the time, the most notable obstacle Caius had taken note of was the fact that the two spells were of different Circles which made handling their combinations complicated.</p>
 <p>What he had noted during the process though was that the elements of Fire and Wind were practically eager to mix.</p>
 <p>Or so he had thought.</p>

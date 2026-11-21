@@ -14,7 +14,7 @@ chapter = 504
 <p>Thus began a myriad of transformations.</p>
 <p>"What?" Marlina stared in astonishment at Seraphina, who was packing her bags. "Seri, you're going back?"</p>
 <p>"Yep."</p>
-<p>Seraphina, stuffing snacks into her backpack, wore an expression of inevitability: "I've spent enough time with Mom and Dad! They can't wait for me to return to Ansel's side, so I'll head back first, hehe~"</p>
+<p>Seraphina, stuffing snacks into her backpack, wore an expression of inevitability: "I've spent enough time with Mom and Dad! They can't wait for me to return to Ansel's side, so I'll head back first, hehe"</p>
 <p>"And besides..."</p>
 <p>She firmly fastened the buckle of her backpack and whispered conspiratorially:</p>
 <p>"Marli, don't you think... Ansel is deliberately sending us away?"</p>

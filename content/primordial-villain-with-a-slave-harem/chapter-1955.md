@@ -90,7 +90,7 @@ chapter = 1955
 <p>"...It’s hard to heal someone like me-"</p>
 <p>"The patient shouldn’t decide how difficult the procedure is."</p>
 <p>"...Okay."</p>
-<p>"Good~"</p>
+<p>"Good"</p>
 <p>The elf passed Narethi and knelt beside her defender, tracing a shining pattern above his wound as she murmured, "[Healing Light]."</p>
 <p>Narethi watched the dark blood slow beneath Seraphiel’s hands. These people had found them out here and decided they were worth saving. She had spent the last moments of her life expecting nobody to come.</p>
 <p>"Captain?" Kaelira asked softly. "I can reinforce the patch. Could your carpenter get it into place?"</p>

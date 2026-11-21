@@ -23,10 +23,10 @@ chapter = 359
 <p>If the replaced part was good, she would just leave it as is, and if she replaced it and the ability didn't activate, she would replace it with a part that did activate, and if it broke down, it would be repaired unconditionally, so it was a part-time job that only had benefits for Saionji Diana without any drawbacks. The part-time pay was also quite good, so recently, she raised her phone plan, which used to be the cheapest, by two levels.</p>
 <p>,"Only this company's parts are compatible with the A8 area that I experimented with today. I need to check this company's circuits. It may not be intentional, but I need to find out why the superpowers are compatible."</p>
 <p>Eve told Saionji Diana about the parts and returned the arm parts to their original state. This was because most of the parts she had replaced today were not compatible with her superpowers.</p>
-<p>,"Thank you for your hard work~! I'll deposit your part-time pay right away."</p>
+<p>,"Thank you for your hard work! I'll deposit your part-time pay right away."</p>
 <p>As she said that, her phone rang. It was probably the part-time pay she got from Eve. At first, she had been surprised that the pay came right after she spoke, but now that she knew Eve was an android, it didn't surprise her anymore.</p>
 <p>,"Thank you."</p>
-<p>,"What are you thanking me for, Saionji-ssi is providing us with data and receiving fair part-time pay, so it's a win-win for both of us~!"</p>
+<p>,"What are you thanking me for, Saionji-ssi is providing us with data and receiving fair part-time pay, so it's a win-win for both of us!"</p>
 <p>Saionji Diana smiled slightly at Eve's words and got up from her seat.</p>
 <p>,"The next part-time job.... I don't think I can come this week because of the picnic, so it will probably be next week."</p>
 <p>,"Yes, I'll check my schedule for next week and contact you."</p>

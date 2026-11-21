@@ -37,7 +37,7 @@ chapter = 196
 <p>Sawayanagi Azuma took out her phone and sent a Line message to someone in Seryutai, and Mimata Chieri came close to me and started asking about what happened this morning.</p>
 <p>,Sunbae-nim, how was it?</p>
 <p>,How was what?</p>
-<p>,Aww~ You know.</p>
+<p>,Aww You know.</p>
 <p>Of course, I know. Mimata Chieri was asking how the sex with Nagumo Sian was. She was truly an incorrigible netorare woman. It was a bit uncomfortable to talk about it because of the place, so I started a different conversation.</p>
 <p>,I don't know? More than that, Sunbae, you said you wanted to learn martial arts before, right?</p>
 <p>,Yes, I can cover long and medium ranges with sniping and shooting, but close combat is impossible.</p>

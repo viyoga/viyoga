@@ -77,11 +77,11 @@ chapter = 1030
 <p>TheDreaming-nim requested Oofuchi Erika in the park. 1. Night alley 2. Day alley</p>
 <p>1.</p>
 <p>2.</p>
-<p>Gojoy-nim requested Chapter 30: Shinoe Misano 1. Waking up and 2. Grabbing the protagonist's sleeve~!</p>
+<p>Gojoy-nim requested Chapter 30: Shinoe Misano 1. Waking up and 2. Grabbing the protagonist's sleeve!</p>
 <p>1.</p>
 <p>My Pussy kept showing through the pantyhose, so I'm only uploading 2 images ㄷㄷ</p>
 <p>2.</p>
-<p>Grabbing the sleeve didn't work, so I modified it to holding Hands~!</p>
-<p>Chomisaemeonji-nim requested Liz 1. Waterbomb attire 2. Naked, covered only by Entwined Sheets~!</p>
+<p>Grabbing the sleeve didn't work, so I modified it to holding Hands!</p>
+<p>Chomisaemeonji-nim requested Liz 1. Waterbomb attire 2. Naked, covered only by Entwined Sheets!</p>
 <p>1.</p>
 <p>2.</p>

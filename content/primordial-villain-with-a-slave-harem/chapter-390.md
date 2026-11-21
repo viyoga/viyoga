@@ -9,7 +9,7 @@ chapter = 390
 <p>"Grrr…" Ayame growled, but then swiftly changed her approach as she looked at me with droopy, pleading eyes. She knew very well that I didn't care about her threats, so she swiftly realized that begging me with teary eyes had a much higher chance of success.</p>
 <p>Not this time, my adorable lover. Today, we are going all the way.</p>
 <p>Once I was satisfied with caressing her pits with my tongue, I resumed where I left off as I lay a barrage of kisses starting at her ribs, solar plexus, sternum, upper abdomen, and then came the navel where I paused for a brief moment before diving in, fervently licking her belly button clean.</p>
-<p>"Ah~! This is no longer pleasuring but torturing!!!" Ayame yelled her acute observations, though I paid her no heed at all. Since all her limbs were restrained, she devised a new plan to make herself orgasm, which was to desperately rub her coochie against me.</p>
+<p>"Ah! This is no longer pleasuring but torturing!!!" Ayame yelled her acute observations, though I paid her no heed at all. Since all her limbs were restrained, she devised a new plan to make herself orgasm, which was to desperately rub her coochie against me.</p>
 <p>Unluckily for her, I was just about done with her upper body. "Blossom, Lucille, please hold her hands for me."</p>
 <p>Explore more at empire</p>
 <p>"Sure."</p>
@@ -36,4 +36,4 @@ chapter = 390
 <p>However, she was still incredibly tight, tighter than anything I had ever felt before. I couldn't help but grunt strainedly from the sheer pressure enveloping my lance from all directions. It was so incredibly stimulating.</p>
 <p>"Ah!" Ayame yelped more and more the deeper I went. It was a slow, exploratory descent on my part as I savored every single little fraction of an inch she could take, and it wasn't long before I felt welcomed by her hymen, which I tore apart with the next gentle push.</p>
 <p>"You've been officially conquered, my beloved Ayame." I announced, but my words fell on deaf ears.</p>
-<p>"Hhhngg~!" She moaned while convulsing her body involuntarily, experiencing the first of many orgasms that would come from this act of ours. "Kiss… Kiss me…" Ayame begged while heavily panting, after which she invitingly reached her arms toward my face where she quipped my two cheeks, tugging me toward her lips.</p>
+<p>"Hhhngg!" She moaned while convulsing her body involuntarily, experiencing the first of many orgasms that would come from this act of ours. "Kiss… Kiss me…" Ayame begged while heavily panting, after which she invitingly reached her arms toward my face where she quipped my two cheeks, tugging me toward her lips.</p>

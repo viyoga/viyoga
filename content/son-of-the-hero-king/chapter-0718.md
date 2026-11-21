@@ -21,7 +21,7 @@ chapter = 718
 <p>This text was taken from Royal Road. Help the author by reading the original version there.</p>
 <p>He placed his hand on her thin stomach and slowly slid his hand down toward her vulva.</p>
 <p>Realizing where his hand was headed, her eyes widened and she lifted her upper body a bit. She tried to reach out and grab his arm, but it was already too late. His fingers passed her thin golden bush and arrived at her small crevice.</p>
-<p>“Nh~!” A tremor immediately ran through her body and she released a muffled moan.</p>
+<p>“Nh!” A tremor immediately ran through her body and she released a muffled moan.</p>
 <p>In a thousand years, the only thing that touched that place had been her own hands, and that too had become incredibly rare in recent times. The fact that someone else was doing what she used to do to herself – and a man at that – caused her entire body to heat up. It was further compounded by her knowledge of Sol’s identity as a Dragon and soon she found herself losing her senses under his masterful fingers.</p>
 <p>Each time his middle finger moved up and down the slit, her voice left her with a sigh. She closed her legs out of embarrassment, but that did nothing to stop his finger and Sol was able to feel a sticky liquid flowing from her crotch.</p>
 <p>He gradually changed the movements of his middle finger, moving it side to side as well as up and down. He loosened up her labia while pushing them open little by little. He also made sure to stimulate her clitoris with the lightest of touches from time to time.</p>

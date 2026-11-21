@@ -73,7 +73,7 @@ chapter = 1056
 <p>"Ah.... Thank you, Dante-ssi."</p>
 <p>"After resting here for a bit, we can go to LA together. Because we also have things to do in LA."</p>
 <p>Thus, the interview ended, with both Maya Reed and I satisfied.</p>
-<p>Maya Reed B-cut~!</p>
-<p>Gojoy-nim requested 1. Gokado Hanako in Heat/Rut at the restaurant, 2. Gokado Hanako looking at her phone~!</p>
+<p>Maya Reed B-cut!</p>
+<p>Gojoy-nim requested 1. Gokado Hanako in Heat/Rut at the restaurant, 2. Gokado Hanako looking at her phone!</p>
 <p>1.</p>
 <p>2.</p>

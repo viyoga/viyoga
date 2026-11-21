@@ -23,7 +23,7 @@ chapter = 214
 <p>– JoyStickJunkie: So cute!</p>
 <p>[45s mark – Chat-triggered RNG challenge activated]</p>
 <p>One-Legged Stance Activated!</p>
-<p>Bonus points for balance and... poise~</p>
+<p>Bonus points for balance and... poise</p>
 <p>Luna groaned dramatically. "Oh, come on! Which one of you haters is behind this nonsense?!"</p>
 <p>Still, the Storm Valkyrie did not back down. Not with so many people watching, solely focused on whether she’d succeed or fail pathetically. They wanted to laugh at her, which was not something she’d permit. She slowly lifted one leg up, carefully extending it behind her, extending her arms wide to the sides to help counterbalance.</p>
 <p>Her core screamed like never before. Even with her added levels, this was just far too much.</p>

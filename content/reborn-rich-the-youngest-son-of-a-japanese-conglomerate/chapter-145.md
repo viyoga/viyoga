@@ -53,8 +53,8 @@ chapter = 145
 <p>"Uh... I'm Sawayanagi Shigeru. Thank you for saving Azuma."</p>
 <p>Sawayanagi Shigeru was a unique Ability User, a so-called Speedster Ability User. He could move at incredible speed for a short period, but his Energy source was Fat, so he needed a large meal intake. The Speedster Ability was an Ability that could be used incredibly deceptively depending on how it was used, so it was a Character mainly favored by Masters.</p>
 <p>The last person to come out was a Caucasian Beautiful Woman with purple Hair, and she had a remarkably voluptuous Figure. Hmm, quite an amazing Figure. Not Yukiko-level, though.</p>
-<p>"Hello! Nice to meet you~! I'm Iyana Holden! Please take good care of me, handsome Honey!!"</p>
-<p>After greeting, she made jjok sounds on my cheek and forehead, giving me many kisses. When Arisu exclaimed, "What are you doing~!", only then did she stop. When a Pretty person showered me with kisses, it felt good.</p>
+<p>"Hello! Nice to meet you! I'm Iyana Holden! Please take good care of me, handsome Honey!!"</p>
+<p>After greeting, she made jjok sounds on my cheek and forehead, giving me many kisses. When Arisu exclaimed, "What are you doing!", only then did she stop. When a Pretty person showered me with kisses, it felt good.</p>
 <p>Iyana Holden was the last remaining Superhuman of Seiryutai, a Telepathy Ability User. She played the Role of an operator with her Telepathy Ability, which was quite an ambiguous Ability since there were also walkie-talkies, but because it was transmitted directly into the Mind, there was no risk of being detected by the Enemy due to sound, and information could be easily transmitted even in areas where electronic equipment couldn't be carried.</p>
 <p>In the game, despite her ambiguous Performance, she was quite popular precisely because of her unconventional Attire during combat. Because she fought wearing Clothes almost like bikini armor, she received the full support of male users.</p>
 <p>Also, when she became a high-Level telepathist, she could create a mental shield, so her defense wasn't that weak. But now it wasn't a combat Situation, but casual clothes. What a shame.</p>

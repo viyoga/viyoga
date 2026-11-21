@@ -47,7 +47,7 @@ chapter = 16
 <p>Could Seri have... been treated that way by Lord Hydral? No, no, no, impossible. Not only is Ansel not such a person, but he would also never be attracted to Seri.</p>
 <p>While pondering, Marlina thought, 'You should worry about yourself, Marlina.'</p>
 <p>A blush crept onto her face at this thought.</p>
-<p>Unaware of her sister's unusual behavior, Seraphina, immersed in her displeasure, would have loved to level up on the spot, attain nobility, blow up those nobles who looked down on her, and then give Ansel another chance. I might even consider taking him as a subordinate ~</p>
+<p>Unaware of her sister's unusual behavior, Seraphina, immersed in her displeasure, would have loved to level up on the spot, attain nobility, blow up those nobles who looked down on her, and then give Ansel another chance. I might even consider taking him as a subordinate </p>
 <p>The two sisters fell into their own peculiar fantasies until a knock on the door interrupted them.</p>
 <p>"Seraphina, I'm here for you."</p>
 <p>"Ah!" The platinum-haired girl shrieked as she jumped up. "What for?!"</p>

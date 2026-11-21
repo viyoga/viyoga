@@ -9,7 +9,7 @@ chapter = 876
 <p>Woowoong!</p>
 <p>"Eve, sorry, could you press the call button?"</p>
 <p>Because Saionji Diana was disengaging her everyday skin-colored cyber implants to equip her combat cyber suit, she was currently suspended in empty space.</p>
-<p>"Understood~!"</p>
+<p>"Understood!"</p>
 <p>At Saionji Diana's request, Eve pressed the call button along with the one-hand call.</p>
 <p>"Yuka, what's wrong? Did any new Information come in?"</p>
 <p>Because Otagi Yuka's name appeared on the phone screen, Saionji Diana immediately called Otagi Yuka's name and asked what was wrong.</p>
@@ -40,7 +40,7 @@ chapter = 876
 <p>This was because there was almost no delay between the Sensation felt at her Fingertips, the thought 'I must wield the Sword', and the Rhythmic Motion.</p>
 <p>"This should be enough. It's good."</p>
 <p>"Fortunate. There's still plenty of time left, so...."</p>
-<p>Woowoong~!</p>
+<p>Woowoong!</p>
 <p>When all preparations were complete, the phone rang again. It was Otagi Yuka. Had the previous matter ended? Saionji Diana immediately answered the phone to ask.</p>
 <p>"Yeah, Yuka. Is the Work finished?"</p>
 <p>-Yeah, fortunately, it didn't take that long. We can meet at that Place as promised.</p>
@@ -51,7 +51,7 @@ chapter = 876
 <p>"If Yuka-ssi hadn't participated, I would have stepped in, so Diana didn't need to Worry."</p>
 <p>At Eve's Words, who had accurately Guessed Saionji Diana's true feelings, Saionji Diana opened her Mouth with a touched Expression.</p>
 <p>"Were you really going to come with me?"</p>
-<p>"Yeah! We're friends. I can't let you go to a dangerous Place alone~!"</p>
+<p>"Yeah! We're friends. I can't let you go to a dangerous Place alone!"</p>
 <p>Although Eve was an AI android, Saionji Diana thought she was more reliable than any other friend.</p>
 <p>"What are you going to do now?"</p>
 <p>Otagi Yuka asked Seiwa Rieko. She asked because she wanted to respect Seiwa Rieko's free Will, no matter that she had saved someone who was dying, even if she was a Vassal under her.</p>
@@ -94,17 +94,17 @@ chapter = 876
 <p>"Yeah, there are some guys that need to be beaten to death, you see."</p>
 <p>Saionji Diana Combat Version B-cut!</p>
 <p>Kkiyot!</p>
-<p>Requested by Gojoy-nim: Adult Version Linling Casual Clothes + Underwear~!</p>
-<p>Underwear~!</p>
+<p>Requested by Gojoy-nim: Adult Version Linling Casual Clothes + Underwear!</p>
+<p>Underwear!</p>
 <p>The Adult Version of Linling isn't 100 percent to the writer's liking, so I'm thinking of a rework hehe.</p>
-<p>Requested by ISaveI-nim: Jiangshi Cosplay Rieko~! Mummy Cosplay Alik~!</p>
-<p>Jiangshi Rieko~!</p>
-<p>Mummy Alik~!</p>
-<p>"Kyao~!"</p>
+<p>Requested by ISaveI-nim: Jiangshi Cosplay Rieko! Mummy Cosplay Alik!</p>
+<p>Jiangshi Rieko!</p>
+<p>Mummy Alik!</p>
+<p>"Kyao!"</p>
 <p>Requested by TheDreaming-nim: Kujo Kina in Tape-Adhered Underwear 1. Standing with an earnest Expression 2. Lifting her breasts with a sorrowful Expression.</p>
 <p>1.</p>
 <p>2.</p>
-<p>Requested by Hwanbuljeoldaebulga-nim: Off-Shoulder Black Stockings Santa Girl Home Teacher Lisa~!</p>
-<p>Starting with Lisa~!</p>
-<p>Home Teacher~!</p>
-<p>Kkiyot~!</p>
+<p>Requested by Hwanbuljeoldaebulga-nim: Off-Shoulder Black Stockings Santa Girl Home Teacher Lisa!</p>
+<p>Starting with Lisa!</p>
+<p>Home Teacher!</p>
+<p>Kkiyot!</p>

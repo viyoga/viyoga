@@ -105,7 +105,7 @@ chapter = 542
 
 <p>Halfway there, he encountered Elize, who was coming from the direction of Nianxue’s room.</p>
 
-<p>“Husband! You’re back earlier than I expected, hehehe~~”</p>
+<p>“Husband! You’re back earlier than I expected, hehehe”</p>
 
 <p>A big smile spread across Elize’s face as she threw herself into Qingyi’s arms. The handsome young man smiled back, holding her by the hips and planting a kiss on her lips.</p>
 

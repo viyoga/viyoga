@@ -47,7 +47,7 @@ chapter = 878
 <p>Luna and Bastet had claimed a supply crate as their arena, legs swinging over the edge, handhelds locked in a death grip.</p>
 <p>Luna was a near-pro gamer who’d spent years demolishing strangers online before her awakened reflexes made it unfair, and Bastet was a queen who had decided a few days ago that she would learn to use the strange human technology better than even humans knew how to use.</p>
 <p>Calypso sat next to Bastet with a roasted monster thigh the size of her forearm, eating steadily as she watched their screens with lazy interest.</p>
-<p>"GG~" Luna’s fingers blurred and Bastet’s character hit the ground before the animation finished. "You walked right into my trap, kitty." Her legs kicked against the crate in triumph.</p>
+<p>"GG" Luna’s fingers blurred and Bastet’s character hit the ground before the animation finished. "You walked right into my trap, kitty." Her legs kicked against the crate in triumph.</p>
 <p>Bastet’s tongue poked between her lips, the feline tell of total concentration, and her tail lashed once behind her. She didn’t respond.</p>
 <p>Her thumbs moved in silence, reading the replay, memorizing the timing, and when the next round started she launched a counter that ripped through Luna’s opener and dropped her to half health in two seconds flat.</p>
 <p>Luna’s smile dropped. "Impressive... You learn fast."</p>

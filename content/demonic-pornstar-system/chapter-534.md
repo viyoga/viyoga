@@ -15,7 +15,7 @@ chapter = 534
 <p>&lt;Hmm, hmm... I suppose the girls need my help... Big brother, how about you turn them into stay-at-home lovers and only go to war with me at your side? I’m all you need...&gt;</p>
 <p>Kaiden’s eyelid twitched.</p>
 <p>’Alice.’</p>
-<p>&lt;Just kidding~&gt;</p>
+<p>&lt;Just kidding&gt;</p>
 <p>But the effect was immediate.</p>
 <p>Kaiden felt the air shift. A hum vibrated above his skull before the dark halo on his head began to thicken, its edges sharpening into a ring of focused energy. Shadows curled around it like threads being pulled tight, and a wave of pressure bled outward, enough to make the nearest monsters hesitate mid-charge.</p>
 <p>The halo ignited.</p>

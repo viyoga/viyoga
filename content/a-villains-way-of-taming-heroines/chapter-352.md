@@ -28,7 +28,7 @@ chapter = 352
 <p>"And so... keep your little puppet in check, Ansel."</p>
 <p>Evora's mouth twisted into a smirk, "I now have a reason to reduce her to ashes without regard for your feelings, you know?"</p>
 <p>"This time, I'm overlooking her arrogant death wish out of the little affection between us and the favors you've done for me in the past."</p>
-<p>"But should your little puppet make even the slightest move that displeases me... boom~"</p>
+<p>"But should your little puppet make even the slightest move that displeases me... boom"</p>
 <p>With a gleeful expression, she mimicked an explosive gesture, "She'll turn into beautiful sparks."</p>
 <p>Ansel merely smiled, "You shouldn't repeatedly underestimate Ravenna's value to me, Evora."</p>
 <p>"Whether she's important or not… or just perfectly positioned."</p>

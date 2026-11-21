@@ -5,7 +5,7 @@ weight = 789
 chapter = 789
 +++
 
-<p>"Hmmm~~ can you smell that?" Xueyao’s sweet voice echoed through the temple corridors as she returned from the hunt, the other girls following close behind.</p>
+<p>"Hmmm can you smell that?" Xueyao’s sweet voice echoed through the temple corridors as she returned from the hunt, the other girls following close behind.</p>
 
 <p>She lifted her face, her keen nose picking up every nuance of that tempting scent lingering in the air.</p>
 
@@ -29,7 +29,7 @@ chapter = 789
 
 <p>"Did Big Brother Qingyi prepare this?" Xueyao asked, turning to Elize, who, after hours in the kitchen alongside Qingyi, looked like the happiest woman in the world, her cheeks still flushed from the oven’s heat.</p>
 
-<p>"Yes, well... we made it, hehe~" Elize replied with a sweet giggle, her eyes sparkling as she noticed the proud expression on Qingyi’s face.</p>
+<p>"Yes, well... we made it, hehe" Elize replied with a sweet giggle, her eyes sparkling as she noticed the proud expression on Qingyi’s face.</p>
 
 <p>He had come to understand, to some extent, why she loved cooking so much.</p>
 

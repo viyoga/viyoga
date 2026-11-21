@@ -11,7 +11,7 @@ chapter = 258
 <p>He also learned that the Beast had an affinity with the Dark Element.</p>
 <p>He felt a sort of affinity with that and it added to how much he didn’t feel this blood was all that much of a downgrade from the Wyvern Blood.</p>
 <p>It was a shame though that as much as he learned from his experiments with the blood, he ran out before he could successfully refine a Trait Acquisition Potion so he spent the rest of the night at the desk in his room, poring through the Arcane Codex and adding to his Self-composed Grimoire as he continued to create more spells.</p>
-<p>Following his creation of ~Erratic Fireball~, Caius was on a spree of Elemental combinations with the other Basic Elements trying to perfect what he had started before he then tried combining Dark Element with other Elements.</p>
+<p>Following his creation of Erratic Fireball, Caius was on a spree of Elemental combinations with the other Basic Elements trying to perfect what he had started before he then tried combining Dark Element with other Elements.</p>
 <p>There is a reason Light and Dark are the most universally accepted ’Unique’ Elements despite there technically being others. And it’s because both Light and Dark are too closely governed by the Divine of the two Goddesses that preside over them.</p>
 <p>In other words, if it’s already difficult and even dangerous to combine the Basic Elements, then it’s all the more so for combining either Light or Dark with any other Elements.</p>
 <p>Of course, it still can be done.</p>

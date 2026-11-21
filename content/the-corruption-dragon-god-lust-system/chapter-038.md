@@ -47,11 +47,11 @@ chapter = 38
 
 <p>Moving his hot, throbbing member, he pressed it against her wet entrance. Her plump lips parted like a flower, revealing the pink interior as he slowly penetrated her.</p>
 
-<p>“Ghnn~” Feiyan moaned as she felt his cock hit the walls of her womb, her pussy squeezing him as if trying to milk him dry.</p>
+<p>“Ghnn” Feiyan moaned as she felt his cock hit the walls of her womb, her pussy squeezing him as if trying to milk him dry.</p>
 
 <p>Qingyi moved his hands down her ass, passing over her wide hips and sinking into her delicate waist as he began to move.</p>
 
-<p>“Ah~~ mmmghn~~ ” Feiyan’s long, delicate fingers clung to the wooden wall, searching for support as Qingyi increased the pace of his thrusts.</p>
+<p>“Ah mmmghn ” Feiyan’s long, delicate fingers clung to the wooden wall, searching for support as Qingyi increased the pace of his thrusts.</p>
 
 <p>With each thrust, her round ass rippled like water in the wind, sending tremors through her plump flesh every time his hips met her buttocks. The wet sound of their bodies meeting echoed softly through the room.</p>
 
@@ -61,7 +61,7 @@ chapter = 38
 
 <p>“Do you know how much you made your husband suffer while he waited for you?” He asked, moving his hips even harder</p>
 
-<p>“Ghn~ Master didn’t let me come… Ahhh~” Feiyan bit her lips, speaking between gasps for air. Her face fell as her body was overcome by waves of pleasure.</p>
+<p>“Ghn Master didn’t let me come… Ahhh” Feiyan bit her lips, speaking between gasps for air. Her face fell as her body was overcome by waves of pleasure.</p>
 
 <p>Qingyi’s cock went even deeper, rising in her belly like a huge, throbbing bulge with each thrust of his hips against her ass.</p>
 
@@ -69,7 +69,7 @@ chapter = 38
 
 <p>He only stopped fucking her when he felt his orgasm, releasing large pulses of hot cum into her womb.</p>
 
-<p>“Hnngh~ Mmmmph~” Feiyan moaned.</p>
+<p>“Hnngh Mmmmph” Feiyan moaned.</p>
 
 <p>His cock slipped out of her fat cleft with a wet smack, still spurting cum. The white, viscous, hot liquid ran down her bronze, fat ass, creating sticky trails that glistened.</p>
 

@@ -5,7 +5,7 @@ weight = 166
 chapter = 166
 +++
 
-<p>"AaaahhH~"</p>
+<p>"AaaahhH"</p>
 <p>Saintess Selene moaned hard as her dam burst out, spraying her love juice On Kent’s face, bathing him. He also held her trembling waist as he dug deeper, cleaning her cave as she cum.</p>
 <p>The past 20 minutes were Kent and his master having the best time of their lives. Kent was doing all he could to make her enjoy every last second of it.</p>
 <p>And he did a great job making her cum three times in just 20 minutes. Her entire body was shuddering and became sensitive to the touch.</p>

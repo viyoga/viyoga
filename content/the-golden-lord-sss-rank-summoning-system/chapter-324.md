@@ -18,7 +18,7 @@ chapter = 324
 <p>"Are you...?" Amelia asked, barely holding back the urge to widen her eyes upon realizing the woman before her was a high elf.</p>
 <p>"Arwen."</p>
 <p>"Are you Ethan’s wife?"</p>
-<p>"Yes... your son is truly a stud, you know? Fufufu~" Arwen replied with an amused chuckle. "Not only did he find a way to bring me back to life, but he also took my purity pretty quickly..."</p>
+<p>"Yes... your son is truly a stud, you know? Fufufu" Arwen replied with an amused chuckle. "Not only did he find a way to bring me back to life, but he also took my purity pretty quickly..."</p>
 <p>At that moment, Ysara and Amelia exchanged glances.</p>
 <p>Amelia, as a mage, had access to the vast book collections of the Blue Tower, including several volumes on the general history of the Ancestral Age.</p>
 <p>Ysara, for her part, possessed collections nearly as extensive, and naturally, during her centuries of isolation, she had devoured countless ancient tomes.</p>
@@ -27,7 +27,7 @@ chapter = 324
 <p>"In the meantime, I’ll go get things ready to—"</p>
 <p>"You’re coming with us! It’s been so long since Mommy gave you a bath!" Amelia cut him off, pulling Ethan into a tight hug, her soft arms wrapping around him with fierce possessiveness.</p>
 <p>She just wanted to stay glued to him as much as possible, for as long as possible.</p>
-<p>"Oh... perfect!" Arwen’s eyes sparkled. "Come on, girls, I’ll prepare the water, fufufu~"</p>
+<p>"Oh... perfect!" Arwen’s eyes sparkled. "Come on, girls, I’ll prepare the water, fufufu"</p>
 <p>In the end, Ethan could only follow his mother and Ysara, along with more than a hundred other women, to the palace of his harem.</p>
 <p>Naturally, it didn’t take long for Amelia and Ysara to realize what that place was; their eyes widened for a brief moment.</p>
 <p>Their little Ethan really never ceased to shock them.</p>
@@ -53,7 +53,7 @@ chapter = 324
 <p>With their legs slightly parted, their plump cameltoes lay bare, shaped by the tight lips of their vulvas. Every millimeter of swollen flesh pressed firmly against its twin, the nearly invisible slit between the pale lips sealed together in a soft, glistening kiss.</p>
 <p>It wasn’t appropriate, but neither woman even stopped to think about it.</p>
 <p>Soon, a pair of white knee-highs and a black pantyhose lay forgotten on the floor.</p>
-<p>"Hmm~ perfect!" Amelia stood up. Her nipples, every bit as puffy as her plump pussy, brushed against Ethan’s firm chest as she leaned into him.</p>
+<p>"Hmm perfect!" Amelia stood up. Her nipples, every bit as puffy as her plump pussy, brushed against Ethan’s firm chest as she leaned into him.</p>
 <p>The pink tips sank slightly into the dense muscle, and her two heavy breasts flattened deliciously against his body.</p>
 <p>"What are you waiting for? Let’s take a shower and relax a little!" She ordered the others around before turning to Ethan "Son, you’ve got something to drink for us, don’t you?" Amelia asked, completely ignoring the shiver that ran through Ethan’s half-sisters and stepmothers.</p>
 <p>It didn’t take long for the others to give in as well.</p>
@@ -65,7 +65,7 @@ chapter = 324
 <p>It was of a much higher quality than what the royal family usually bought.</p>
 <p>"It’s made locally in Goldenveil. I’ve heard it’s become quite famous across the rest of the continent, hasn’t it?"</p>
 <p>"Famous? This wine is the very essence of perfection! The pinnacle of the pinnacle!" Ysara passed the bottle to Amelia and then, without the slightest concern that she was completely naked, threw herself into Ethan’s arms.</p>
-<p>"Fufufu~ I knew that little boy who loved my milk so much would one day become something great..." Ysara planted a kiss just shy of Ethan’s lips, her breasts pillowing firmly against his powerful chest.</p>
+<p>"Fufufu I knew that little boy who loved my milk so much would one day become something great..." Ysara planted a kiss just shy of Ethan’s lips, her breasts pillowing firmly against his powerful chest.</p>
 <p>"Ah... how could it be otherwise? Having been breastfed by both of us." Ysara chuckled softly, pulling Amelia into the embrace as well. "Have a drink, my friend, and don’t you dare suppress the alcohol! I want to get drunk by your side tonight!"</p>
 <p>Amelia just shook her head, a resigned smile playing at the corner of her lips.</p>
 <p>Her friend was truly an incorrigible alcoholic.</p>

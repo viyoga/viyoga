@@ -20,7 +20,7 @@ chapter = 666
 <p>"Ryuta-jji, your lips are delicious...♥"</p>
 <p>Seizawa Shii said to me with hazy eyes. It was the first time I'd heard someone say my lips were delicious.</p>
 <p>"Really? What do they taste like?"</p>
-<p>"Obviously, they taste like Ryuta-jji~! Why are you asking about the taste so shyly?"</p>
+<p>"Obviously, they taste like Ryuta-jji! Why are you asking about the taste so shyly?"</p>
 <p>I was genuinely curious, though. Seizawa Shii stared at me for a while, then grew quiet, her face flushed as she hugged me tightly.</p>
 <p>"Why are you so quiet?"</p>
 <p>"Idiot, it's my first time, so I don't know what to do next."</p>
@@ -58,7 +58,7 @@ chapter = 666
 <p>"Heueueu.... It feels good, Ryuta-jji♥ Wait...! Are you going to touch them more? Haeut!"</p>
 <p>"Is it my fault that Shii's breasts feel so good?"</p>
 <p>In fact, my purpose was to properly teach the virgin Seizawa Shii about pleasure, but I blamed Seizawa Shii's breasts and continued to knead them like dough.</p>
-<p>"Hyaeut, haang~!"</p>
+<p>"Hyaeut, haang!"</p>
 <p>After guiding her to a light climax twice with her breasts, I lowered my hand. I stroked her firm abs for a while, then touched the area around her thighs, not her pussy, to prevent Seizawa Shii from being suddenly surprised.</p>
 <p>As I brushed against her pussy and touched her thighs and the surrounding area, the moisture gradually increased.</p>
 <p>"Haeueueung.... Something, heeut! It's stuffy, like my chest is blocked, Ryuta-jji...."</p>

@@ -31,12 +31,12 @@ chapter = 120
 <p>"So I’ll do everything in his place. You can treat me as your son from now on." His eyes were glistening with unshed tears that he summoned from absolutely nowhere.</p>
 <p>"Starting with this."</p>
 <p>His mouth was on her nipple before she could even open hers. His tongue flicked across the stiff bud, swirling around it before sucking it deep into his mouth and pressing his tongue flat against it.</p>
-<p>"Mm... mmhh... Ahh~!" Natasha’s fingers dug into his hair. Her back arched, pushing more of her tit into his mouth. He took it greedily, sucking harder while his hand squeezed and kneaded the other one.</p>
+<p>"Mm... mmhh... Ahh!" Natasha’s fingers dug into his hair. Her back arched, pushing more of her tit into his mouth. He took it greedily, sucking harder while his hand squeezed and kneaded the other one.</p>
 <p>’His tongue keeps flicking my nipple and I can’t think straight anymore.’ Her mind was going fuzzy.</p>
 <p>His warm mouth on her nipple and his hand on her other tit while her own hand was still wrapped around his throbbing cock, the stimulation was coming from too many places at once.</p>
 <p>Her hand started stroking faster on its own without her even realizing it.</p>
 <p>Dante switched to her other tit without warning. His mouth sealed around the neglected nipple and sucked hard while his wet fingers found the one he just left and started rolling it between his thumb and finger.</p>
-<p>"Nng~ ahh~" Natasha’s head fell back.</p>
+<p>"Nng ahh" Natasha’s head fell back.</p>
 <p>Both of her nipples were being played with at the same time and her brain couldn’t keep up. Her hand on his cock lost its rhythm completely, going from fast to slow to fast again without any consistency.</p>
 <p>’Focus. I need to focus on his thing.’ She forced herself to look down at his cock.</p>
 <p>The tip was swollen an angry red and the precum was flowing so much her entire hand was slick. She tightened her grip and started stroking from base to tip with more intent.</p>
@@ -45,16 +45,16 @@ chapter = 120
 <p>She kept the same pace, squeezing harder at the tip before sliding back down. Her thumb pressed into the sensitive spot just under the head on every upstroke and she felt his cock throb violently each time she hit it.</p>
 <p>In truth, Dante had just stopped holding back. But she didn’t need to know that.</p>
 <p>His sucking was getting rougher. His tongue was lapping at her nipple in messy circles and his teeth kept grazing the bud just enough to make her jolt every few seconds.</p>
-<p>"Ah... ah... ahh~" Her moans were coming out in a steady rhythm now.</p>
+<p>"Ah... ah... ahh" Her moans were coming out in a steady rhythm now.</p>
 <p>She had given up on holding them back.</p>
 <p>Her thighs were squeezing together and the wetness between her legs had soaked through her shorts and was starting to drip onto the sheets.</p>
 <p>’I’m getting close too.’ She bit her lip in frustration. ’At this rate, I’m going to finish before him.’</p>
 <p>His hand suddenly squeezed her tit hard, his fingers sinking deep into the soft flesh while his mouth sucked on her nipple so hard her back arched off the bed.</p>
-<p>"KYA~! MHH~!" Her whole body jerked and her hand squeezed his cock in reflex. She felt it pulse hard against her palm, throbbing faster than before.</p>
+<p>"KYA! MHH!" Her whole body jerked and her hand squeezed his cock in reflex. She felt it pulse hard against her palm, throbbing faster than before.</p>
 <p>’He’s close.’ She could feel the way his cock kept twitching and the veins were pulsing nonstop under her fingers. ’Just a little more.’</p>
 <p>She sped up, pumping his cock fast and tight, her slick palm making obscene wet sounds.</p>
 <p>Dante bit down on her nipple.</p>
-<p>"Mmmhh~ AAhhhnn~!!" Natasha’s vision went white. Her body locked up, her thighs clamped shut, and a flood of warmth gushed between her legs, soaking through everything.</p>
+<p>"Mmmhh AAhhhnn!!" Natasha’s vision went white. Her body locked up, her thighs clamped shut, and a flood of warmth gushed between her legs, soaking through everything.</p>
 <p>Her mouth was open in a silent scream and her eyes rolled back.</p>
 <p>At the same moment, his cock swelled in her hand and the first thick rope of cum shot out so hard it flew past her stomach and landed on the underside of her tits. The second one splashed across her belly button and the third painted a hot white line from her navel down to her hip.</p>
 <p>Her hand kept pumping on pure instinct, each stroke squeezing out another load that spilled over her fingers and dripped down her knuckles onto the sheets below.</p>

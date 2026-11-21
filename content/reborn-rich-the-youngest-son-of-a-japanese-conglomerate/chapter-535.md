@@ -52,15 +52,15 @@ chapter = 535
 <p>"Master?"</p>
 <p>"Teacher-nim...♥"</p>
 <p>Maybe it's because they were touched by me earlier, but they all seemed quite horny. All three of them are choosing me as the dinner menu. No, I'm not something to eat. First of all, even if I were to do it, I had to replenish my calories first. I wanted to satisfy my appetite before my lust. I was hungry because I had a lot to worry about today, so I was stressed.</p>
-<p>"Let's eat dinner first, and I'll eat you as dessert~!"</p>
+<p>"Let's eat dinner first, and I'll eat you as dessert!"</p>
 <p>All three of them burst out laughing at my tone, as if I were appeasing a kindergartener. We looked at each other and laughed, then started choosing the dinner menu.</p>
 <p>###</p>
 <p>A high-end restaurant in Miyashi. Minamoto Ushin, Minamoto Lisa, and Seizawa Shii were eating at one table. It was a high-end restaurant that offered steaks made with the finest Wagyu beef and lobsters as big as forearms, but Minamoto Ushin had chartered it, so there were only three customers.</p>
 <p>"Shii, is Lisa doing well in school?"</p>
-<p>"Lisa is doing great~! She's not skipping school or leaving in the middle like she used to. Uncle also saw Lisa's ranking, right?"</p>
+<p>"Lisa is doing great! She's not skipping school or leaving in the middle like she used to. Uncle also saw Lisa's ranking, right?"</p>
 <p>When Minamoto Ushin asked Seizawa Shii as if probing, she told him that Minamoto Lisa was doing well, as if asking why he was asking such a thing. Of course, Minamoto Ushin knew Minamoto Lisa's affairs well, so he was just asking if there was anything he didn't know.</p>
 <p>"Thanks to Shii, our Lisa is doing well, so tell me if you ever want anything. This uncle can grant most things."</p>
-<p>"Eii~! I don't even receive anything from my dad, so I like it when Uncle buys me delicious things like this sometimes~☆"</p>
+<p>"Eii! I don't even receive anything from my dad, so I like it when Uncle buys me delicious things like this sometimes☆"</p>
 <p>Despite Minamoto Ushin's favor, Seizawa Shii said it was okay and cut a large lobster butter grill and put it in her mouth. Minamoto Ushin looked at Seizawa Shii and opened his mouth again.</p>
 <p>"What kind of guy is the new homeroom teacher? He's not a bad guy like the previous homeroom teacher, right?"</p>
 <p>"Ah, Ryuta-cchi? Ryuta-cchi isn't a human trash like the previous homeroom teacher. No, you could even say he's a good teacher. Anyway, there's only about half a semester left, so do you really need to worry about Ryuta-cchi?"</p>
@@ -76,4 +76,4 @@ chapter = 535
 <p>At Minamoto Ushin's words, Minamoto Lisa opened her mouth as if she had made up her mind.</p>
 <p>__________</p>
 <p>I changed Taira Kanna's model.</p>
-<p>Please give a lot of love to Student Council President Kanna-chan too~! Hehe</p>
+<p>Please give a lot of love to Student Council President Kanna-chan too! Hehe</p>

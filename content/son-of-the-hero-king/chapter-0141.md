@@ -52,7 +52,7 @@ chapter = 141
 <p>What was important wasn’t the fact that people died–But how they died.</p>
 <p>Until the moment of their deaths, people were capable of the best or the worst.</p>
 <p>That was why she found life and death so entrancing.</p>
-<p>‘Ah~! Dear Lilith. I wonder...Is your epilogue coming soon? Or will it be the beginning of a new chapter?’</p>
+<p>‘Ah! Dear Lilith. I wonder...Is your epilogue coming soon? Or will it be the beginning of a new chapter?’</p>
 <p>She really couldn’t wait.</p>
 <p>Thinking about it, she stood up and said, “I think I will leave you alone. You must have many things to say to each other.”</p>
 <p>Once she closed the door behind her, she spared a glance at the maid standing respectfully on the side.</p>

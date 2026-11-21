@@ -23,7 +23,7 @@ chapter = 94
 <p>During the flight, I read the materials I had brought. Today, I had to look around the Kita-Tohoku branch, and the next day, I had to look around Taira Foods, where they mainly receive training. Finally, I had to wrap up at the Kita-Tohoku branch again in the morning and take the afternoon flight back. Well, Suzuki Chisami will do all the work, and I just have to watch and assist, so there's nothing particularly difficult.</p>
 <p>After getting off at Akita Airport, I took a rental car that I had booked online and went to the Taira Human Resources Development Institute Kita-Tohoku branch, located north of Akita City in Akita Prefecture.</p>
 <p>The Kita-Tohoku branch was much smaller than the main Human Resources Development Institute, which had a slightly larger building and an auditorium about the size of a basketball court. Well, it didn't need to be that big, since only Taira Foods and its subcontractors in the Tohoku region came to receive training.</p>
-<p>"Oh my~! You've worked hard to come here!"</p>
+<p>"Oh my! You've worked hard to come here!"</p>
 <p>"No, it's nothing. Thanks to you, I came comfortably."</p>
 <p>The person who greeted us was the head of the Kita-Tohoku branch, Matsuhira Ginichiro, a balding man in his mid-50s with a short beard and a big nose. Matsuhira Ginichiro was quite jovial, bowing to Suzuki Chisami, who was only about half his age.</p>
 <p>Even though the branch manager is much higher in position than Suzuki Chisami, who is a deputy team leader. Something smelled fishy. Maybe he wants more support or something.</p>
@@ -37,7 +37,7 @@ chapter = 94
 <p>As expected, the rice was delicious because it was a granary. Akita City faces the sea to the west, so the fish was also not bad.</p>
 <p>"By any chance, is Taira Ryuta-gun... from the main family?"</p>
 <p>"Yes, my mother is the Director-nim of the Human Resources Development Institute."</p>
-<p>"Ah~! I asked because the surname was Taira, but you're the Director-nim's son!"</p>
+<p>"Ah! I asked because the surname was Taira, but you're the Director-nim's son!"</p>
 <p>Mitsuhira Ginichiro clapped his hands and rejoiced at my answer. Did he interpret the arrival of the son of the Director of the Human Resources Development Institute as meaning that he would pay more attention to the branch? I just came for experience.</p>
 <p>"Please tell your mother. The Kita-Tohoku branch needs a little more budget. There were many applicants from Taira Foods and related companies this time. So naturally, many people flocked to our Kita-Tohoku branch, and what I did at that time was..."</p>
 <p>Mitsuhira Ginichiro was a talkative man. He started talking to me about what he had achieved while being in this branch, and he didn't shut his mouth for almost thirty minutes. Ah, so this is what it feels like to have blood coming out of your ears...</p>

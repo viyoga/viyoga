@@ -131,9 +131,9 @@ The lady, being none other than Arya, looked up as she saw the door of her study
 
 A warm smile crept on her beautiful face as she had a look at the handsome man barging in her room.
 
-"Husband~" Arya said happily and got up.
+"Husband" Arya said happily and got up.
 
-"Wifey~" Lith said and smiled like the happy man he was.
+"Wifey" Lith said and smiled like the happy man he was.
 
 The two walked towards each other and gave themselves a big hug.
 

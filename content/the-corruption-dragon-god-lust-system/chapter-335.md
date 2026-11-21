@@ -35,7 +35,7 @@ chapter = 335
 
 <p>“What’s the matter? Aren’t you excited?” he asked, his hands flowing to her huge breasts, squeezing gently as he placed a kiss on her silky, silver hair.</p>
 
-<p>“Nghn~~ I’ve been here before. I remember, it was a long time ago, but I remember…” Xueyao brought her hand up to Qingyi’s on his chest.</p>
+<p>“Nghn I’ve been here before. I remember, it was a long time ago, but I remember…” Xueyao brought her hand up to Qingyi’s on his chest.</p>
 
 <p>“Husband, how can we show up the matriarch without even having puppies? I need to give her grandchildren!” She suddenly turned around, barely noticing as Qingyi’s face changed.</p>
 
@@ -63,7 +63,7 @@ chapter = 335
 
 <p>Meilin blushed at the sight, first looking away, but then sighing and approaching Qingyi, climbing onto his lap.</p>
 
-<p>“That’s for… nghnn~~ starting without me!” She gave a high-pitched squeal, pushing the other girls away and sitting down on Qingyi’s cock.</p>
+<p>“That’s for… nghnn starting without me!” She gave a high-pitched squeal, pushing the other girls away and sitting down on Qingyi’s cock.</p>
 
 <p>She regretted it the next moment, needing only a moment to realize something: Qingyi’s cock had gone into the wrong hole.</p>
 
@@ -77,7 +77,7 @@ chapter = 335
 
 <p>Although hesitant at first, Meilin soon began to move her hips, the movement becoming even easier as the lubricant spread over Qingyi’s cock.</p>
 
-<p>“Oghnn~~ Oh heavens~~ husband~~ aghnn~~” Meilin’s moans echoed around the room, each sit on Qingyi’s cock making her huge ass ripple, taken by violent shockwaves.</p>
+<p>“Oghnn Oh heavens husband aghnn” Meilin’s moans echoed around the room, each sit on Qingyi’s cock making her huge ass ripple, taken by violent shockwaves.</p>
 
 <p>The other girls could only watch in amazement as Meilin took all twenty-three centimeters of Qingyi’s cock into her tight anus.</p>
 

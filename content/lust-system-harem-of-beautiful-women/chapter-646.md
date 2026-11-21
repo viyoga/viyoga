@@ -1,5 +1,5 @@
 +++
-title = "Chapter 646: Charm~~"
+title = "Chapter 646: Charm"
 weight = 646
 [extra]
 chapter = 646
@@ -25,7 +25,7 @@ chapter = 646
 
 <p>As Hela drank the soup, her face was full of satisfaction, revealing a girlish charm.</p>
 
-<p>&quot;It really is, so sweet~&quot;</p>
+<p>&quot;It really is, so sweet&quot;</p>
 
 <p>Brook lowered her head shyly and chimed in agreement.</p>
 
@@ -59,7 +59,7 @@ chapter = 646
 
 <p>Only then did Hela soften completely, speaking tenderly, &quot;Darling, you&#x27;re so amazing. My daughter-in-law hasn&#x27;t caused any trouble. These past two days, I heard she even went to a bar, ran into my son, and still didn&#x27;t make a scene. How did you manage that?&quot;</p>
 
-<p>&quot;It&#x27;s my charm~&quot;</p>
+<p>&quot;It&#x27;s my charm&quot;</p>
 
 <p>Luis gave a wicked, lustful grin and said, &quot;Your daughter-in-law will eventually become bed sisters with you. With a bit more effort on my part, it&#x27;ll happen soon.&quot;</p>
 

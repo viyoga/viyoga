@@ -15,7 +15,7 @@ chapter = 1690
 <p>She blinked once, and when her pentagram eyes opened, they were different. The red was deeper, almost black at the center where the pentagrams burned, as if something ancient and hungry had settled behind them and was looking out through Vex's face for the first time.</p>
 <p>She looked down at herself, at the tail swaying at her hip, and the brand burning through her clothes.</p>
 <p>The smile that split her face was the widest she'd worn since the battle started.</p>
-<p>"Much better~"</p>
+<p>"Much better"</p>
 <p>Ryonosuke planted his glaive in the stone and cracked his neck. "Done with your preparations, white-haired lass? Let's have some fun!"</p>
 <p>Vex looked at him, and the smile didn't fade, but the warmth behind it did. Those red eyes, burning dark at their new cores, regarded the Mad Dog of the Fujimori the way a cat regarded a beetle that had wandered onto the floor in front of it, something present and noted and entirely beneath consideration.</p>
 <p>"I don't play with other men," she said, and her voice turned disinterested. "Hubby doesn't like it. Makes his possessive heart go all sorts of ways, and I can't have that."</p>

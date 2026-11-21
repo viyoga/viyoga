@@ -69,7 +69,7 @@ Lith broke the kiss and had a look at Bella's upper body drenched with water.
 
 It looked sexy and the nipples protruding out made Lith bite on them.
 
-"Ahh~" Bella moaned in pleasure and wrapped her hands around Lith's neck.
+"Ahh" Bella moaned in pleasure and wrapped her hands around Lith's neck.
 
 As Lith played with her breasts, she turned to the naked maids at the side and asked them to start cleaning up Lith.
 

@@ -17,7 +17,7 @@ chapter = 530
 <p>It certainly seemed like she was gathering forces within the fence of the school to take a share in the Taira Group's empire.</p>
 <p>,Well done."</p>
 <p>,Teacher, we won!"</p>
-<p>,Waa~! Ryuta-jji won!"</p>
+<p>,Waa! Ryuta-jji won!"</p>
 <p>,Ryutta, won...!"</p>
 <p>I hugged the students who rushed at me all at once and congratulated them on their victory. I was conscious of the parents, but still, I couldn't coldly turn away the kids who were so happy as their homeroom teacher.</p>
 <p>So, I didn't care about what others thought and let the students be as happy as they wanted.</p>
@@ -27,14 +27,14 @@ chapter = 530
 <p>,Okay. Don't worry. I'll send one more person from our class."</p>
 <p>,Alik will go, Ryuta."</p>
 <p>As soon as I said I would send one more person, Alik, who was standing next to me, stepped forward. Is it okay? Alik is learning a German swordsmanship book that she got from America, but she probably doesn't know much about fencing....</p>
-<p>,Alik? Alexandra, right? I'll put your name on the list of participants~!"</p>
+<p>,Alik? Alexandra, right? I'll put your name on the list of participants!"</p>
 <p>The Red team captain for the fencing team was excited about Alexandra's participation and ran to the place where the tournament support office was located. Seeing that it was okay to pick anyone, the student who fainted might not have been very strong.</p>
 <p>,Alik, you don't know the basic rules of fencing, do you?"</p>
 <p>,Alik, don't know...!"</p>
 <p>Is it okay to be so cheerful when you don't know? I sighed and called Otagi Yuka.</p>
 <p>,Yes, Teacher-ssi. What's wrong?"</p>
 <p>,The player who was supposed to go out for fencing was injured, so Alik is going out instead, can you teach her the rules?"</p>
-<p>,That's easy... but since there's not much time left, I have to teach her quickly. Alik, let's go~!"</p>
+<p>,That's easy... but since there's not much time left, I have to teach her quickly. Alik, let's go!"</p>
 <p>Since there will be a fencing match right away, it will take quite a while just to teach her the basic rules. Otagi Yuka grabbed the back of Alik's clothes and went to the place where the fencing team was gathered. Alik was quietly carried in Otagi Yuka's hand like a kitten being carried by its mother by the scruff of its neck.</p>
 <p>In fact, I think Alik could win even if she doesn't know anything about swordsmanship, let alone fencing, even if she faces all the opponents at the same time, but since there are so many eyes watching, I hope she wears the appearance of fencing. It's a pain in the ass if Minamoto Ushin or Taira Danjo grandpa notice her for no reason.</p>
 <p>Regardless of my worries, the fencing match started right away. Fencing is a dangerous game to play in dolphin pants and a white t-shirt, so everyone was well-equipped with fencing clothes. Alik, who suddenly registered, was also wearing fencing clothes that fit her body, whether the fencing club had them or not.</p>

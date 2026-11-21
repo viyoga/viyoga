@@ -18,7 +18,7 @@ chapter = 1655
 <p>Their eyes met. Mother and daughter, inches apart, one pinned and bleeding and the other perched on her stomach with a dagger still embedded in her gut. Amara released the hand on Ophira's mouth and brought both palms to her mother's cheeks, cupping her face between her fingers and angling it toward her with a grip that left white marks in the skin.</p>
 <p>Ophira's mouth opened to scream but what came out was a thin wet gasp, and then Amara's tongue dragged a slow wet line from the base of her jaw to her cheekbone.</p>
 <p>The Duchess recoiled so hard her skull cracked against the headboard. Her neck twisted, her face wrenching sideways to escape, every fiber of her body rejecting what had just happened.</p>
-<p>"Ah-ah~" Amara's fingers tightened on her mother's jaw and forced her face back. "No running, Mom..."</p>
+<p>"Ah-ah" Amara's fingers tightened on her mother's jaw and forced her face back. "No running, Mom..."</p>
 <p>"Stop..." Ophira begged, with no result.</p>
 <p>Her eyes were blown so wide the whites showed all the way around, her chest heaving in short panicked bursts as her daughter held her still and licked a second line up the other side of her face with the lazy patience of a woman savoring something she had been denied for a very long time. Up her neck, across the hollow of her throat, along the edge of her chin, and Amara's breath was hot against her skin between each pass.</p>
 <p>"Truly..." Amara murmured against Ophira's cheek, her lips brushing the wet trail she had just left. "What a gorgeous mother I have..."</p>
@@ -30,7 +30,7 @@ chapter = 1655
 <p>Vivienne paused in her work long enough to glance at her sister, her chest heaving beneath the thin nightgown that clung to her with sweat and her father's blood. The flush on her face and the rise and fall of her breasts with each hard breath gave her the afterglow of a lover's marathon, not a murder, and the grin that split her face was the mirror of Amara's.</p>
 <p>"Finally," Vivienne breathed, pure relief flooding the word. "We don't have to pretend..."</p>
 <p>Amara's grin sharpened.</p>
-<p>"And for a job well done..." She looked back down at her mother's glazing eyes with starry eagerness. "He said our sentences might be reduced~"</p>
+<p>"And for a job well done..." She looked back down at her mother's glazing eyes with starry eagerness. "He said our sentences might be reduced"</p>
 <p>Both twins giggled, bright and eager, the sound so identical it seemed to come from one throat.</p>
 <p>Vivienne turned back to Alastair and drove the dagger into his shoulder with a cheerful "Hyah!" twisting the blade to keep the sap active, to keep his Level 74 body from regenerating around the wounds the way it was already trying to. The Duke grunted with each twist, his enormous frame shuddering on the blood-soaked sheets, his eyes locked on the creature wearing his daughter's smile.</p>
 <p>"Why..." he managed again, the word weaker now.</p>

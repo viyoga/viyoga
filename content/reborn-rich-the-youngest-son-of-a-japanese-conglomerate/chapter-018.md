@@ -6,7 +6,7 @@ chapter = 18
 +++
 
 <p>Hanako♥: Photo</p>
-<p>Hanako♥: I took a picture at the cram school~!! (★≧▽^))★☆</p>
+<p>Hanako♥: I took a picture at the cram school!! (★≧▽^))★☆</p>
 <p>Honjo Tokiatsu read the Line message sent by his girlfriend, Gokado Hanako. To others, it was just a photo of everyone smiling brightly, but Honjo Tokiatsu, who had been friends with Gokado Hanako since kindergarten, noticed that she had been crying. The corners of her eyes were red.</p>
 <p>'What happened? And.... The guy behind Hanako is too handsome.'</p>
 <p>Seeing a handsome guy with a great body in the same frame as Gokado Hanako made Honjo Tokiatsu's vague anxiety grow even larger.</p>
@@ -39,9 +39,9 @@ chapter = 18
 <p>"I don't understand anything?"</p>
 <p>I felt a little encouraged because of Kazuhiro, who said he didn't understand anything with clear eyes. Kazuhiro quickly stuck to Kagawa Umi.</p>
 <p>"Umi-chan is smart, so she'll remember everything, right?"</p>
-<p>"Hehe, this much is easy~."</p>
+<p>"Hehe, this much is easy."</p>
 <p>"Then will you tutor me later, just the two of us?"</p>
-<p>"Aww~ what is that~."</p>
+<p>"Aww what is that."</p>
 <p>What a mess. Gokado Hanako was also looking at Kagawa Umi and Kazuhiro with a similar look in her eyes as me. After the morning written class, we were heading to the cafeteria for lunch. Lunch was a typical Japanese set meal with nothing special. Rice, miso soup, a large piece of fish, and a few side dishes were served.</p>
 <p>"It's our first day today, so I was thinking of building some camaraderie among ourselves, how about a drink? Our room is a double room, so it's spacious. Come to our room after dinner."</p>
 <p>"Should we? How about you, Hanako-chan?"</p>
@@ -50,7 +50,7 @@ chapter = 18
 <p>After lunch, we had driving lessons. Fortunately, the lesson was easy. I was assigned a female instructor named Matoi Honami. Matoi Honami kept telling me I was doing well and occasionally placed her hand on my thigh, which made it seem like she was interested in me. Anyway, she wasn’t extremely pretty, but she was a busty beauty with a slightly cat-like face and seemed quite popular at work.</p>
 <p>"Taira-gun, are you joining a company this time?"</p>
 <p>"Yes, I thought I would need a license if I joined a company."</p>
-<p>"Ah~. You're diligent, Taira-gun. I wish my husband was as diligent as Taira-gun."</p>
+<p>"Ah. You're diligent, Taira-gun. I wish my husband was as diligent as Taira-gun."</p>
 <p>She must be married. After a five-minute break, I drove around the driving course at Matoi Honami's suggestion, and Matoi Honami applauded when she saw me pass without a single mistake.</p>
 <p>"You don't even need to learn how to drive, do you, Taira-gun?"</p>
 <p>"Hehe, I'm good, right?"</p>
@@ -66,24 +66,24 @@ chapter = 18
 <p>"Uh... oh...!"</p>
 <p>Matoi Honami rolled her eyes and enjoyed it when I gently stroked her over her panties. At the same time, her hand was lowering the zipper of my pants.</p>
 <p>Ziiiip!</p>
-<p>When the zipper went down and I lowered my underwear, my huge thing popped out with a ting~! Matoi Honami saw my huge thing and said, "Oh my!" with a seductive smile. And without anyone telling her to, she bent down and put my glans in her mouth.</p>
-<p>Hururup! Chureup~! Chup chup chup!</p>
+<p>When the zipper went down and I lowered my underwear, my huge thing popped out with a ting! Matoi Honami saw my huge thing and said, "Oh my!" with a seductive smile. And without anyone telling her to, she bent down and put my glans in her mouth.</p>
+<p>Hururup! Chureup! Chup chup chup!</p>
 <p>"Ugh! Matoi-sang, it feels so good!"</p>
 <p>As expected of a married woman, her skills were amazing. It was a different feeling from the fresh awkwardness of Han Yu-gyeong or Arisu. I have to raise Han Yu-gyeong and Arisu to this level too.</p>
 <p>As if she didn't want me to ejaculate in her mouth, Matoi Honami took her mouth off my dick, reclined the passenger seat, and spread her legs.</p>
-<p>"Put it in now. Quickly, quickly~!"</p>
+<p>"Put it in now. Quickly, quickly!"</p>
 <p>Matoi Honami was shaking her waist while lying down and urging me on. I pushed back Matoi's panties and rubbed my glans against her pussy. Matoi Honami's pussy was wet and sticky. When I put a little force into it, it went in smoothly.</p>
 <p>"Ugh...! It's big!"</p>
 <p>It seemed her husband wasn't that big, as Matoi Honami complained of a slight stuffiness when my dick went into her belly. I ignored it and started a long and fast piston motion. The tight pussy of the married woman clamped down on my dick and pulled it out.</p>
 <p>"Ah... uh... I love it, I love it so much♥ There, turn it there!"</p>
 <p>Matoi Honami was enjoying my dick as if she had never been stuffy. She was a true teacher who even told me her erogenous zones.</p>
 <p>"You're better at teaching sex than driving. How many guys have you fucked like this?"</p>
-<p>"Y-you're the first, hyaaang~!!"</p>
+<p>"Y-you're the first, hyaaang!!"</p>
 <p>"Really? If you're lying, no dick for you?"</p>
 <p>"It's true! There wasn't anyone as handsome as you, ah... so I just.... Hyaang! I just subtly aroused them."</p>
 <p>I see. She was wearing a subtly tight black skirt, and she was wearing black stockings that no man could ignore, so it was an outfit to subtly arouse the students.</p>
 <p>"Why were you trying to arouse the students?"</p>
-<p>"Ahang, my husband doesn't do it well.... I was trying to relieve stress.... Ahaang~!!"</p>
+<p>"Ahang, my husband doesn't do it well.... I was trying to relieve stress.... Ahaang!!"</p>
 <p>It seemed like she was hurt in her self-esteem because of her insensitive husband, and she was trying to confirm that she was still a worthwhile woman with the reactions of the students. I had been getting fellatio until halfway through, and I had been doing piston motions for over ten minutes, so I was starting to feel the urge to ejaculate.</p>
 <p>"Where should I cum?"</p>
 <p>"It's a safe day today. So inside, cum inside!"</p>

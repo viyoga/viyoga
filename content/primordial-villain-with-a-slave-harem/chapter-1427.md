@@ -21,7 +21,7 @@ chapter = 1427
 <p>For months, he had been a tantalizing meal that was kept away from her, hidden behind a wall of overprotective mothers. She had circled him like a shark, tasting his scent from a distance, watching those two pesky obstacles, Mearie and Luminara, block her every advance.</p>
 <p>Now, the wall was gone.</p>
 <p>Nyxara's gaze flickered to the side, scanning the translucent boundary of the dome. There they were. Miri and Lumi stood just feet away, separated by nothing but a shimmering layer of energy. Nyxara didn't miss the way their faces were twisted in a mixture of maternal worry and fury.</p>
-<p>A slow, predatory grin spread across Nyxara's face. She tilted her head, her eyes burning with a cruel, triumphant light. She didn't say a word, but her expression screamed it: 'I win. I am in here, and you are out there. Deal with it~' She saw Miri's hands curl into trembling fists and Lumi's jaw set so hard it looked ready to crack. The succubus let out a soft, melodic hum of pure, unadulterated smugness.</p>
+<p>A slow, predatory grin spread across Nyxara's face. She tilted her head, her eyes burning with a cruel, triumphant light. She didn't say a word, but her expression screamed it: 'I win. I am in here, and you are out there. Deal with it' She saw Miri's hands curl into trembling fists and Lumi's jaw set so hard it looked ready to crack. The succubus let out a soft, melodic hum of pure, unadulterated smugness.</p>
 <p>"Stop taunting my mothers," a deep, resonant voice cut through her revelry. "Let's get this over with, succubus."</p>
 <p>Nyxara's head snapped back to Quinlan. As he spoke, his clothes didn't just fall… they receded, dissolving into motes of red fire.</p>
 <p>Nyxara's breath hitched.</p>
@@ -32,7 +32,7 @@ chapter = 1427
 <p>"Are you the man who is supposed to become my ruin? The one I've been waiting for?" she purred, then laughed. The sound of which was beyond thick with desire. "You're full of so much swagger. Do you truly think a few months of growth can prepare you for me?"</p>
 <p>She began her own advance. Unlike his steady, soldier-like march, Nyxara moved with a sensual, lethal grace. She placed one juicy thigh directly over the other, her steps measured and rhythmic. With every movement, her hips swayed in an exaggerated, tempting arc while her tail lashed behind her in a slow, hypnotic whip.</p>
 <p>The air between them began to hum with the friction of their competing auras.</p>
-<p>"I can't help but wonder..." Nyxara murmured, her eyes raking over his muscular frame as the distance closed to mere inches. "Is this all just baseless bravado... or can you actually back it up, my adorable little Ruin~"</p>
+<p>"I can't help but wonder..." Nyxara murmured, her eyes raking over his muscular frame as the distance closed to mere inches. "Is this all just baseless bravado... or can you actually back it up, my adorable little Ruin"</p>
 <p>The gap between them vanished.</p>
 <p>Nyxara stopped just inches from him, the heat radiating from his bare skin meeting the unnatural warmth of her own aura. She had to tilt her head back to look him in the eye, given his towering, muscular frame, but there wasn't a flicker of intimidation in her gaze. She planted her hands firmly on her hips.</p>
 <p>"Just so we're clear, Little Ruin," she murmured, her voice vibrating against his chest, "I have no intention of going easy on you. No man - or woman - has ever made me Shriek... I will break you before I let you hear it."</p>
@@ -48,4 +48,4 @@ chapter = 1427
 <p>And as the pink haze began to recede, the world had changed.</p>
 <p>The empty, grassy area inside the dome was gone. In its place was a chamber of impossible luxury. The ground was now covered in thick, lush red velvets and furs that felt like silk against the skin. Golden censers hung from invisible points in the air, trailing sweet smoke. And in the center of it all, dominating the space, sat a giant, heart-shaped bed, draped in sheets of crimson satin and piled high with heart-shaped, pink pillows.</p>
 <p>Nyxara's long tongue darted out, slowly tracing the line of her upper lip as she looked him up and down one last time. The predator was no longer hunting; the meal was served.</p>
-<p>"I will now begin eating you, Little Ruin~" she whispered with the sultriest tone Quinlan has heard in his whole life. "Prepare yourself❤️"</p>
+<p>"I will now begin eating you, Little Ruin" she whispered with the sultriest tone Quinlan has heard in his whole life. "Prepare yourself❤️"</p>

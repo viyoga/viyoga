@@ -15,7 +15,7 @@ chapter = 1451
 <p>Quinlan looked at her with a raised eyebrow.</p>
 <p>"What I need most right now?" he repeated.</p>
 <p>Nyxara's lips curled upward smugly.</p>
-<p>"Don't think I don't know~ I can read you like the back of my hand~"</p>
+<p>"Don't think I don't know I can read you like the back of my hand"</p>
 <p>He scoffed. "Are you sure about that?" Quinlan was sceptical about her knowledge regarding his fighting capabilities. After all, the succubus only knew him as the man who ruthlessly bred her until the magically reinforced bed gave way beneath them, and then she entered his body. Could that truly tell her all she needed to know?</p>
 <p>Her grin only widened in response.</p>
 <p>"Mm..." she giggled lightly. She leaned closer and whispered, "What you need more than anything is ruthless, scrappy, one-on-one duels fought in close range. You need to face enemies of equal or greater strength trying to end you."</p>
@@ -28,7 +28,7 @@ chapter = 1451
 <p>Quinlan stared at her with surprise clear in his eyes. He had underestimated her understanding of his personal capabilities and limits. Very badly at that.</p>
 <p>She met his gaze with a deepening of her smug grin, reaching dangerous levels.</p>
 <p>"But-"</p>
-<p>"I know," Nyxara cut in instantly, and her grin lessened, turning genuine. "My beloved Ruin~ Don't take it as an insult. Your power is shocking even to me. The way you wield so much at such a level makes no sense. You're a monster among monsters. Your future is so bright…"</p>
+<p>"I know," Nyxara cut in instantly, and her grin lessened, turning genuine. "My beloved Ruin Don't take it as an insult. Your power is shocking even to me. The way you wield so much at such a level makes no sense. You're a monster among monsters. Your future is so bright…"</p>
 <p>She reached out to stroke his cheeks softly, adding with extreme affection, "That is why my main concern is to ensure the flame doesn't get snuffed out before he becomes an unstoppable inferno. I will chide and scorn you for as much as I must to ensure you don't lose yourself to false security or unwarranted arrogance."</p>
 <p>She softly gave a peck on his cheeks, looking almost as if she wanted to be gentle as she gave him some harsh truths that some great men might not be able to take with a fragile ego. However, the succubus knew that her Ruin wasn't one such man.</p>
 <p>Quinlan might've been prone to arrogance; he might've been prone to getting cocky at times. But he could take criticism when it was legit.</p>

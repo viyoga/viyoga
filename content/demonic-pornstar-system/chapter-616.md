@@ -76,7 +76,7 @@ chapter = 616
 <p>Her red skin gleamed unnaturally, muscles flexing as she rested the haft of her massive axe against her shoulder. The weapon buzzed, empowered by her mere hold on it. A low, eager vibration that crawled up the spine, a promise of violence waiting to be fulfilled.</p>
 <p>She looked at Kaiden.</p>
 <p>Eyes bright, wild, and devoted.</p>
-<p>"Darling~" she purred, voice rough with anticipation, lips splitting into a manic smile. "Let’s go."</p>
+<p>"Darling" she purred, voice rough with anticipation, lips splitting into a manic smile. "Let’s go."</p>
 <p>Together.</p>
 <p>The axe buzzed.</p>
 <p>Kaiden met her gaze and gave a single nod, alongside a hungry grin of his own. Calypso was not the only battle manic in the group. "Let’s tear them apart together, Cali."</p>

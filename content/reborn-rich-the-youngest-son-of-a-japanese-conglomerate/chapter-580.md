@@ -28,10 +28,10 @@ chapter = 580
 <p>Of course, it would be a strange schedule for a regular school, but our school is St. Francis Girls' Academy, where daughters of prestigious families attend. During graduation trips, they include these kinds of tours with the aim of broadening their horizons by looking at the industries of other countries.</p>
 <p>Cheil Group is currently the best conglomerate in Korea. I wonder how they negotiated so well. By the way, if it's Cheil Electronics, that woman will be there.... Surely I won't meet her on a high school tour like this.</p>
 <p>,"First, we'll have lunch at the cafeteria when we arrive, so line up and follow me."</p>
-<p>,"I have to compare it to the Hyper Enter cafeteria I ate at yesterday~!"</p>
+<p>,"I have to compare it to the Hyper Enter cafeteria I ate at yesterday!"</p>
 <p>,"It was delicious yesterday...."</p>
 <p>As it was time for lunch, the tour started with a meal at the cafeteria. When the bus arrived and we got off, we saw a very large parking lot and several buildings.</p>
-<p>,"Welcome, students of St. Francis Girls' Academy~!"</p>
+<p>,"Welcome, students of St. Francis Girls' Academy!"</p>
 <p>When I got off the bus, a beautiful woman with almost silver-white hair greeted us in fluent Japanese. Ah.... Why is she here?</p>
 <p>,"I'm Cheon Ha-rin, an executive director at Cheil Electronics. I'll be introducing you to Cheil Group today."</p>
 <p>Cheon Ha-rin, an executive director at Cheil Electronics. She was a very important figure even in the youngest son of Megacorp. She was a genius who entered a prestigious American university at the age of 15, graduated early, and even obtained a doctorate, and she was an ambitious woman who aimed for the throne of Cheil Group, the best in Korea.</p>
@@ -75,4 +75,4 @@ chapter = 580
 <p>_____________________</p>
 <p>Cheon Ha-rin</p>
 <p>Bare legs vs. Black Stockings</p>
-<p>Just a bunny girl I made~!</p>
+<p>Just a bunny girl I made!</p>

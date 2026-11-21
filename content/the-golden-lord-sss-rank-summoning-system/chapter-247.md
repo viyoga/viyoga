@@ -60,5 +60,5 @@ chapter = 247
 <p>His broad fingers closed over the enormous milky tits, his open palms barely managing to cover half of each soft mound.</p>
 <p>He pushed the breasts together, feeling them mash obscenely against his hands and into each other, his fingers sinking deep into the hot, soft flesh that bulged out between them on all sides, impossible to contain.</p>
 <p>Then he released his grip and gave a gentle tap to the side of one of the huge breasts, watching a slow, weighted wave roll through the milky flesh, the tremor traveling across her chest and setting the other breast into a hypnotic sway.</p>
-<p>"Nghn~, E-Ethan... I don’t know if I can take it anymore..." Alice finally spoke, her trembling, pleading voice pulling Ethan’s attention back from her breasts to her face.</p>
+<p>"Nghn, E-Ethan... I don’t know if I can take it anymore..." Alice finally spoke, her trembling, pleading voice pulling Ethan’s attention back from her breasts to her face.</p>
 <p>Her hips quivered with anticipation, and the honey dripping from her drenched pussy already streamed down the base of his cock in glistening trails.</p>

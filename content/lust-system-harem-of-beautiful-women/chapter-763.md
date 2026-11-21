@@ -77,7 +77,7 @@ chapter = 763
 
 <p>On the big heated kang, Deewa finished wiping the semen from her face. While giving Luis a blowjob, she coquettishly said, &quot;Satisfied now, you stinky bastard? You even fucked my mom.&quot;</p>
 
-<p>&quot;Hehe, not bad at all~&quot;</p>
+<p>&quot;Hehe, not bad at all&quot;</p>
 
 <p>&quot;You were right, the desire your mom has been suppressing is really severe. She resisted at first, but once I fucked her, it was different.&quot;</p>
 
@@ -105,7 +105,7 @@ chapter = 763
 
 <p>After drying off, she shamefully put her panties and vest back on. Before even returning to the room, she could already hear her daughter’s hazy moans.</p>
 
-<p>&quot;It feels so good~&quot;</p>
+<p>&quot;It feels so good&quot;</p>
 
 <p>&quot;Husband, you’re so amazing. Why haven’t you cum yet?!&quot;</p>
 

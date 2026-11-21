@@ -34,7 +34,7 @@ chapter = 470
 <p>,Let's go to the morning assembly first."</p>
 <p>,Yes."</p>
 <p>We left the education preparation room and headed to the special class classroom. The door opened with a deureureuk sound, and I could feel the students looking at me. The students seemed to know that today was the day the scores would be released, and they had slightly expectant eyes. Of course, some troublemakers didn't look forward to it at all.</p>
-<p>,Yahoo~☆ Ryuta-cchi~! Good morning!"</p>
+<p>,Yahoo☆ Ryuta-cchi! Good morning!"</p>
 <p>,What did you do on the weekend, teacher-ssi?"</p>
 <p>,Hello, teacher!"</p>
 <p>I stood at the podium, receiving the energetic greetings of the students.</p>
@@ -44,12 +44,12 @@ chapter = 470
 <p>,I'm going to get an earful from my older brothers and sisters."</p>
 <p>,I don't like... the scores coming out."</p>
 <p>Unlike the noisy reactions of the students who were afraid of the scores coming out, the students who were confident in their scores sat still with confident expressions. It was like they wanted the scores to come out soon.</p>
-<p>,Ryuta-cchi~! You'll keep your promise, right?"</p>
+<p>,Ryuta-cchi! You'll keep your promise, right?"</p>
 <p>,Huh? What promise?"</p>
 <p>Seizawa Shii raised her hand and asked me, so I pretended not to know because I had a mischievous thought, but of course it didn't work.</p>
-<p>,You promised to buy us gifts and go on a date if we're in the top 6~!"</p>
+<p>,You promised to buy us gifts and go on a date if we're in the top 6!"</p>
 <p>,I just said I'd go with you to buy gifts, that's not a date."</p>
-<p>,Wandering around shopping alone is a date~."</p>
+<p>,Wandering around shopping alone is a date."</p>
 <p>That's true, but I'm a teacher, so I can't say that openly. Of course, Seizawa Shii was right. I'm going to walk around with a student and pick out a gift, and it's not just that, I'm going to have a meal with them, so I can't say it's not a date, but as a teacher, I can't directly say it's a date.</p>
 <p>,Anyway, I'll keep my promise about the gifts, so don't worry. Even if you're not in the top 6, I'll give you a small gift if your scores have improved a lot, so don't be too disappointed."</p>
 <p>I told the students who didn't make it into the top 6 not to be disappointed, and after talking a few more things, I finished the morning assembly.</p>

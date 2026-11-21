@@ -7,7 +7,7 @@ chapter = 492
 
 <p>He leaned in closer, his breath teasing the soft wrinkles of her cheek.</p>
 
-<p>“Mhhm ~ Rael…” A soft, delicate moan spilled from her lips, almost surprised. Her back arched slightly, her wrists still pinned but no longer resisting.</p>
+<p>“Mhhm  Rael…” A soft, delicate moan spilled from her lips, almost surprised. Her back arched slightly, her wrists still pinned but no longer resisting.</p>
 
 <p>Julian smiled.</p>
 

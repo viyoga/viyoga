@@ -86,7 +86,7 @@ chapter = 2026
 <p>"I promise I’ll be good! Master, please! Just don’t do this to me!"</p>
 <p>The goblin’s claw stopped a finger’s width from her face.</p>
 <p>Its tongue remained draped over its teeth as its voice answered, no longer lurching as if it struggled to form basic words.</p>
-<p>"Okay, deal~"</p>
+<p>"Okay, deal"</p>
 <p>Morgana’s breath stopped as the goblin withdrew its tongue, hunched its shoulders, and curled the claw beside her face into a coy little wave.</p>
 <p>"It’s over, Morgana Ravenshade." A much deeper voice came from the passage, gentle enough that she scarcely recognized it. "You may fight again."</p>
 <p>Her master stepped into the brazier light with Blossom’s hand held sweetly in his own.</p>
@@ -98,5 +98,5 @@ chapter = 2026
 <p>Four bodies dissolved.</p>
 <p>The war troll came apart first, followed by the orc, hobgoblin, and second goblin. White wisps rushed through the passage and vanished into the final creature, leaving only the little male who had nearly touched her.</p>
 <p>It turned toward the evil man.</p>
-<p>"Quinnie~!"</p>
+<p>"Quinnie!"</p>
 <p>The goblin ran at him with both arms spread.</p>

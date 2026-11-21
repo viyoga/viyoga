@@ -96,7 +96,7 @@ chapter = 1007
 <p>1.</p>
 <p>2.</p>
 <p>It's harder to point to go to a motel than to hold Hands, haha. If I use a 'pointing' prompt, it points towards the protagonist, haha. So I changed it to a scene where they enter the motel looking a bit shy, haha.</p>
-<p>Chomisaemeonji-nim requested Liz wearing a shirt harness and Liz in Tortoise Shell Bondage~!</p>
-<p>Harness~!</p>
+<p>Chomisaemeonji-nim requested Liz wearing a shirt harness and Liz in Tortoise Shell Bondage!</p>
+<p>Harness!</p>
 <p>Tortoise Shell Bondage</p>
 <p>Kkippaet!</p>

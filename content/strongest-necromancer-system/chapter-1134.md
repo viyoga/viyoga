@@ -12,9 +12,9 @@ chapter = 1134
 <p>"Ngh!"</p>
 <p>Riyala groaned in pain and pleasure as she was nearly sent over the edge, and she pressed herself even tighter against Jason! Jason took one hand off Riyala’s breast, and he moved it down Riyala’s stomach and towards her crotch before he sank two fingers inside her! Riyala released a cute sound as she grabbed Jason’s arm with one of her own while leaning forward against a rock with her other hand! Jason fingered Riyala faster and faster, and Riyala’s legs were shaking from how intense the sensation was! Riyala could feel an orgasm rising from deep inside her, and she was standing on her toes as she rubbed herself back against Jason’s crotch even harder than before!</p>
 <p>Jason brought his thumb to the front of Riyala’s crotch, and he pressed it against her clit and flicked it!</p>
-<p>"OOOOOHHHH~!"</p>
+<p>"OOOOOHHHH!"</p>
 <p>Riyala felt a sudden jolt of electricity travel through her body as she was finally thrown over the edge, and Riyala came hard! It felt like the floodgates were opened as Riyala completely drenched Jason’s arm! Jason felt a sadistic smile growing on his face as his wife shook under him! Jason knew that he had come here to talk to Riyala, and he actually hadn’t thought that they would be in this position so soon, but Jason didn’t care at all! Jason’s member was extremely hard, and Jason knew that Riyala was ready for him, so he aligned himself with Riyala’s entrance from behind, and Jason slowly began to slide inside her.</p>
-<p>"Mmmmhhh~"</p>
+<p>"Mmmmhhh"</p>
 <p>Riyala moaned softly as she felt Jason splitting her open! Riyala had just come down from her orgasm, so she was still very sensitive, and she could feel every single inch that Jason put inside her! Jason grunted as he felt Riyala squeezing around him, and he held Riyala close to him as he finally thrust forward and put everything inside her at once!</p>
 <p>BAM!</p>
 <p>"UGH!"</p>

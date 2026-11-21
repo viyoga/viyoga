@@ -23,7 +23,7 @@ chapter = 96
 <p>Me? I was, of course, fucking hard too. If a healthy man spent almost twenty minutes rubbing bodies with a woman on a bed, it was only natural for him to get an erection, even if he had no feelings for her.</p>
 <p>Suzuki Chisami continued to struggle, unaware that she was excited. "Let go! Let go!" she kept moving, and I suppressed her with my body to stop her from making a fuss. Then, Suzuki Chisami, who luckily freed one arm, slapped me on the cheek.</p>
 <p>This bitch...! My reason momentarily snapped. When I came to my senses, I was tearing Suzuki Chisami's hymen with my dick and roughly power-piston-ing her.</p>
-<p>"Ah, no~!! Don't, I hate it, I hate it! Get off!"</p>
+<p>"Ah, no!! Don't, I hate it, I hate it! Get off!"</p>
 <p>"What do you mean no? You fucking bitch!"</p>
 <p>Suzuki Chisami was saying "Dame dame!" in Japanese, and I was cursing in Korean while moving my hips.</p>
 <p>Suzuki Chisami's clothes were already torn and stripped off, revealing only her glossy brown skin. Perhaps it was because we were already having sex, but Suzuki Chisami's brown skin looked very sexy.</p>
@@ -41,10 +41,10 @@ chapter = 96
 <p>"Is that so? Then I'll do this!"</p>
 <p>Peok! Peok! Peok! Peok!</p>
 <p>I changed my position to the so-called mating press position, the flexed position, and moved my hips as roughly as possible, strongly pressing on Suzuki Chisami's uterus.</p>
-<p>"Heueeut~ Ooh-oht! Never, heueup...! Eunghut...! Never ever♥ will I do it!"</p>
+<p>"Heueeut Ooh-oht! Never, heueup...! Eunghut...! Never ever♥ will I do it!"</p>
 <p>Suzuki Chisami was surprisingly resilient. But my sex stamina was strong enough to handle more than ten people, and the night was still long.</p>
 <p>"Eueuk.... I'm cumming!"</p>
-<p>"No, no, no...! Not insideee~!! Hia-eu-eung!!"</p>
+<p>"No, no, no...! Not insideee!! Hia-eu-eung!!"</p>
 <p>As befitting the name mating press, I sprayed my Semen into Suzuki Chisami's uterus in the deepest position. Semen was discharged with a gurgling sound, and Suzuki Chisami shuddered each time, accepting the Semen of the man she hated.</p>
 <p>"Is it.... over now? Then let me go now!"</p>
 <p>"Who said it's over?"</p>

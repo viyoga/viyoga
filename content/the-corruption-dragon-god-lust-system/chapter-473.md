@@ -49,7 +49,7 @@ chapter = 473
 
 <p>“You know your husband, love.” The handsome young man smiled, grabbing her delicate waist and feeling the weight of her huge bosom pressed against him.</p>
 
-<p>“Mmhm~~ an arrogant and greedy idiot… slightly seductive,” Ruxue purred, snuggling into her husband’s arms.</p>
+<p>“Mmhm an arrogant and greedy idiot… slightly seductive,” Ruxue purred, snuggling into her husband’s arms.</p>
 
 <p>“Exactly.” Qingyi laughed, slapping the beauty’s butt, feeling her plump, perfectly round cheeks jiggle under his grip.</p>
 

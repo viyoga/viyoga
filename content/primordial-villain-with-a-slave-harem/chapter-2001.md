@@ -58,7 +58,7 @@ chapter = 2001
 <p>"They rent their work crews from Corpse Animators," Vex explained. "The farmers decide what to grow and supervise the work. Preparing and maintaining the undead still costs money, but try competing with their grain prices anywhere on this continent. You’d be wasting your time."</p>
 <p>The dogkin leaned back in her chair, considering that. "Hmm... Blossom understands that... But... Still weird!!" Beside her, Quinlan let out a pleased breath as Serika worked her thumbs along the muscles beside his shoulder blades.</p>
 <p>"That’s why their grain trade interests me," he continued. "Their living citizens eat part of the harvest. They sell the rest abroad, cheaply enough that merchants all over this region buy from them."</p>
-<p>"Including our innkeeper," Kitsara said, glancing at Bronnya’s plate. "He buys flour from the undead empire. You’re eating it~"</p>
+<p>"Including our innkeeper," Kitsara said, glancing at Bronnya’s plate. "He buys flour from the undead empire. You’re eating it"</p>
 <p>Bronnya looked down at the loaf she’d already demolished most of.</p>
 <p>"Huh. The dead make good bread."</p>
 <p>"The baker is alive," Lilith told her. "The skellies only do the most braindead of tasks."</p>
@@ -75,7 +75,7 @@ chapter = 2001
 <p>Lilith barked a laugh. Blossom waited for it to subside before looking up at Quinlan again.</p>
 <p>"And the living people agree to this?"</p>
 <p>"Quite a few seem content with the bargain," Sera said. "The empire protects them, there’s work, and food is cheap. Their minds go to the Goddess while their bodies enter service after death, and their families keep benefiting from the labour. They can have a good life there while they’re alive."</p>
-<p>"That’s what we’re meant to believe, anyway~" Kitsara rested her chin on her hand. "Maybe it’s just undead propaganda."</p>
+<p>"That’s what we’re meant to believe, anyway" Kitsara rested her chin on her hand. "Maybe it’s just undead propaganda."</p>
 <p>"Propaganda is definitely a part of it, but it’s not pure oppression either." Sera looked back at Blossom. "We asked what happens if a family wants to burn their relative’s remains. The traders got much less enthusiastic about that."</p>
 <p>"Because the empire wants the body?" Blossom asked.</p>
 <p>"It considers the body owed for all the trouble their leaders go through to provide for the living subjects," Vex said. "The family doesn’t get to destroy something the government intends to use."</p>

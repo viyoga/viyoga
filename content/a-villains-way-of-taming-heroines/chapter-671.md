@@ -28,7 +28,7 @@ chapter = 671
 <p>As the trio arrived at their stronghold in the lower district, Seraphina initially yearned to bask in the adoration and reverence of the masses. However, unable to risk proximity to "Faust," she unhesitatingly chose intimate closeness with Ansel over public acclaim, remaining concealed until they reached their base.</p>
 <p>"Oh my... today was truly tiring," Seraphina declared, plopping onto the sofa in the lounge.</p>
 <p>She snatched a juice bottle from the table, bit off the cap, and guzzled its contents in one swift motion.</p>
-<p>"Ahh~"</p>
+<p>"Ahh"</p>
 <p>The girl exhaled deeply, leisurely crossing her legs. "That fool could never have imagined, even in his dying breath, that I'd learn from the Revolutionary Army how to destroy the lower district's collapse formation. Without that threat looming over me, I can decide when they die!"</p>
 <p>Seraphina's deal with the Revolutionary Army was straightforward: they desired to seize Dispute Fortress, and she agreed to create chaos throughout, even drawing in the fortress's elite forces, facilitating the army's swift victory.</p>
 <p>In exchange, the Revolutionary Army would neutralize the lower district's collapse spell, allowing Seraphina free rein for her violent exploits.</p>

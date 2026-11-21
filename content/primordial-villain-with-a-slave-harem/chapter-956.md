@@ -33,7 +33,7 @@ chapter = 956
 <p>"Ahh! W-wait-"</p>
 <p>A strangled cry tore from Kitsaras throat as he began to outright ravage her body.</p>
 <p>Each thrust was a hammer blow of pure, elemental heat, driving her hips relentlessly forward. His own stance was a bedrock of power that held her firmly in place. 𝘙𝙖ɴȏＢÊ𝐬</p>
-<p>"W-why do I love this...? Whats wrong with me... Mmhh~!"</p>
+<p>"W-why do I love this...? Whats wrong with me... Mmhh!"</p>
 <p>She was a captive to his rhythm, her earlier taunts instantly dissolving into breathy, exhilarated moans as his member plunged and withdrew, massaging her inner walls. Her tails thrashed wildly, an instinctual reaction to the overwhelming sensation, tangling around his legs to anchor herself to this fiery onslaught, already having given up on escaping.</p>
 <p>Quinlan moved with a primal ferocity, demanding her surrender, demanding she moan his name, making it clear that his claims were always answered, and she was not to question such things ever again.</p>
 <p>The heat intensified, not just from his Elemental Stance, but from the raw friction building between them. Kitsaras moans became a desperate plea, higher and more frantic with each scorching plunge.</p>

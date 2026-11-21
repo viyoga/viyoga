@@ -15,7 +15,7 @@ chapter = 160
 <p>Both of us were breathing heavily, focusing only on her breasts. In that situation, our excitement grew more and more. Han Yu-gyeong's nipples were bulging out, pushing against her bra and shirt, and my dick was dripping with precum. Ah, I just changed my underwear.... I'll have to change again.</p>
 <p>,Heung-eueut...! Teacher, haa...! Teacher, there, touch me there♥"</p>
 <p>,There, there? Where are you talking about?"</p>
-<p>,Eueung~! Yu-gyeong's pussy♥"</p>
+<p>,Eueung! Yu-gyeong's pussy♥"</p>
 <p>,Ah!! Ugh, okay."</p>
 <p>I lifted Han Yu-gyeong's school uniform skirt and looked at her pussy. Oh...! She wasn't wearing panties, but since the stockings were pantyhose, Han Yu-gyeong's pretty pussy was glistening with love juice, pressed against the pantyhose. The sight was incredibly erotic, and as soon as I lifted her skirt, the hot, womanly scent made my dick, which I thought couldn't get any harder, feel like it was about to explode.</p>
 <p>I stroked Han Yu-gyeong's pussy with my fingers. I liked the slightly rough feel of the stockings and the slippery feeling of the love juice. Han Yu-gyeong started moaning, twisting her body as if she felt good. Women's bodies are often compared to musical instruments, and I think that's true. Han Yu-gyeong's moans changed depending on how my fingers moved.</p>

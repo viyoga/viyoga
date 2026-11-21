@@ -66,7 +66,7 @@ chapter = 964
 <p>The big one’s brain, marinating in adrenaline and an audience, arrived at the worst available conclusion, which was that these were cosplayers from the anime shop on the fourth floor.</p>
 <p>"Ohh, look at this. Freaks united." He spread his arms at Bastet and Calypso, taking in the silk, the sundress, the tails. "Costume convention’s upstairs, alien prostitute wannabes."</p>
 <p>"Bro, the commitment though." The wiry one circled a finger at Calypso’s horns, delighted with himself. "The paint, the tail rig. That’s a whole build."</p>
-<p>"Nah, forget the build." The big one’s grin went wet, and he looked the demoness up and down at his leisure. "Red, you can stay, I’ve got questions about the body paint. I’ll examine it thoroughly~" He made ugly licking motions with his tongue.</p>
+<p>"Nah, forget the build." The big one’s grin went wet, and he looked the demoness up and down at his leisure. "Red, you can stay, I’ve got questions about the body paint. I’ll examine it thoroughly" He made ugly licking motions with his tongue.</p>
 <p>"I’ll take the bitch in gold, she’s my type." He pointed at Kaiden. "You can keep walking. This is a private conversation between me and a retard."</p>
 <p>None of the three in the doorway so much as turned a head.</p>
 <p>Bastet’s hand closed around Kaiden’s arm above the elbow and stayed there. She had found the silver hair under the blood.</p>

@@ -25,7 +25,7 @@ chapter = 612
 
 <p>Luis let out a light laugh and said, &quot;Yeah, yeah, I&#x27;ll get right on seducing her. No need to hint, my dear wife.&quot;</p>
 
-<p>&quot;Oh, stop it~ I&#x27;ll talk more when I get home, I&#x27;m starving to death.&quot;</p>
+<p>&quot;Oh, stop it I&#x27;ll talk more when I get home, I&#x27;m starving to death.&quot;</p>
 
 <p>&quot;Where are you now? You big pregnant lady, you have no self-awareness. How can you let yourself go hungry?&quot;</p>
 
@@ -57,11 +57,11 @@ chapter = 612
 
 <p>Luis continued licking her as a mischievous smile played on his lips. &quot;No need. I&#x27;ve been a little naughty these past few days. Just relax and enjoy yourself, babe.&quot;</p>
 
-<p>&quot;Oh? Did you find someone~ hehe!&quot;</p>
+<p>&quot;Oh? Did you find someone hehe!&quot;</p>
 
 <p>Lily perked up, her cheeks flushing with excitement as she asked with a tremor, &quot;Is she pretty? Do I know her?&quot;</p>
 
-<p>&quot;If she weren&#x27;t pretty, I wouldn&#x27;t be interested~&quot; Luis admitted honestly, &quot;And yes, you know her.&quot;</p>
+<p>&quot;If she weren&#x27;t pretty, I wouldn&#x27;t be interested&quot; Luis admitted honestly, &quot;And yes, you know her.&quot;</p>
 
 <p>&quot;Who… Maria? Or Chloe?!&quot;</p>
 

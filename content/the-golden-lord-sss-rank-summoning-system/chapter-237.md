@@ -33,7 +33,7 @@ chapter = 237
 <p>He simply savored the warmth of her breasts against his hands, letting his fingers play with her hardened nipples before sliding down her hips, tracing the curve of her full, plump ass beneath the water.</p>
 <p>He squeezed the perfect orbs for a moment, feeling the flesh mold between his fingers, before releasing them and delivering a gentle slap beneath the surface.</p>
 <p>Her ass rippled slowly with the muffled impact, the flesh quivering in lazy waves as small ripples spread outward across the surface of the water around her hips.</p>
-<p>"Hm~"</p>
+<p>"Hm"</p>
 <p>Evelyn pulled away from Ethan briefly, biting her lip as she decided to take advantage of this moment alone to broach a subject that had been weighing on her heart for days.</p>
 <p>"You said you’d make me the leader of the guard, something you didn’t fulfill. Then, you promised me you’d make me the leader of your private protection guard..."</p>
 <p>Her beautiful silver-gray eyes narrowed, fixing on his.</p>

@@ -44,7 +44,7 @@ chapter = 1027
 <p>Jeobeok jeobeok.</p>
 <p>Those who ambushed the Heupyeolgui approached us through the dark alley Passage. The ones who appeared were three individuals armed with cyber suits and our TG Tech energy Guns, and the slender-figured Combatant leading the way removed their helmet.</p>
 <p>"Huh?! Seari."</p>
-<p>"Investor-nim~!"</p>
+<p>"Investor-nim!"</p>
 <p>The Face revealed after removing the helmet was Sawayanagi Seari, with pointed ears. I thought her Figure looked familiar, and it turned out to be someone I knew.</p>
 <p>Sawayanagi Seari giggled, ran to me, and hugged me.</p>
 <p>The remaining cyber suit Combatants were Sawayanagi Shigeru, a Speedster Ability User, and Lee Du-yeong, who possessed regeneration Ability. Both bowed their Heads slightly and gave me a greeting, so I also bowed my Head and returned the greeting.</p>
@@ -60,13 +60,13 @@ chapter = 1027
 <p>Although Sawayanagi Seari was making a Fuss, telling us to go first, saying the Heupyeolgui would soon rush in, I was thinking about the Heupyeolgui's Concealment Ability.</p>
 <p>Tricky to deal with because of Concealment, huh.... There's a Method. Sawayanagi Azuma and I looked at each other, then nodded our Heads. We both had the same thought, didn't we? Sawayanagi Azuma stepped forward and opened her mouth.</p>
 <p>"Anyway, we have to keep moving towards the center.... I'll provide Lianna to your team as support. Because Lianna can easily find Enemies in Concealment."</p>
-<p>"I'm confident I can find them no matter where they hide, so leave it to me~!"</p>
+<p>"I'm confident I can find them no matter where they hide, so leave it to me!"</p>
 <p>Originally, Lianna Holden's Role was not a Combatant but an Operator, so if she went with us towards the Fragment of Omniscience, where tiered battles would be frequent, she could suffer great harm.</p>
 <p>Lianna Holden also knew well that it would be of greatest Help to fight the Heupyeolgui here, then go to the mobile Command post and play the Operator Role, so she stepped forward, saying to leave it to her.</p>
 <p>"Ah, Lianna was here...! If Lianna is with us, we can clear out all the Heupyeolgui."</p>
 <p>Sawayanagi Seari nodded her Head, saying that Lianna Holden was trustworthy. She seemed to think that if Lianna Holden could break through the Heupyeolgui's Concealment, they could definitely win.</p>
 <p>"If the Heupyeolgui are dealt with, could you please take Holden to the Command post?"</p>
-<p>"Of course~! Lianna's Operation will be of Help to Investor-nim!"</p>
+<p>"Of course! Lianna's Operation will be of Help to Investor-nim!"</p>
 <p>At my Request, Sawayanagi Seari nodded her Head greatly and answered. Seeing her immediately talk about the Operator, she seemed to have accurately grasped my Intention.</p>
 <p>As we talked, I felt a presence approaching. Sawayanagi Seari's Expression, which had been smiling brightly, turned serious, and she soon put her helmet back on.</p>
 <p>"Now, the Heupyeolgui will gradually flock here. Investor-nim's Party/Group, please quickly pursue the Black Knight!"</p>
@@ -74,19 +74,19 @@ chapter = 1027
 <p>At Sawayanagi Seari's Words, I said I would leave the rear to her, then grabbed Sawayanagi Azuma and Kurayamada Kirie by their waists and leaped onto the Building.</p>
 <p>As we climbed onto the Building's rooftop, the purple sky with a crescent moon and the night streets of New Rochelle were visible. Of course, the Appearance was not a pleasant sight. This was because explosions were occurring here and there, and intact Buildings were collapsing with a rumble.</p>
 <p>I didn't know who would take Responsibility for this Mess, but it wouldn't be me, so I flew over the Buildings towards North Avenue in New Rochelle with Telekinetic Flight.</p>
-<p>Seari B-cut~!</p>
+<p>Seari B-cut!</p>
 <p>She originally wears a teal-colored cyber suit, but since her True Identity shouldn't be revealed, she fights in a black cyber suit in New York haha.</p>
-<p>RefundNeverPossible-nim requested: Teacher Gajeong and Lisa-ttang doing the Zero Two dance in a bikini with nipples slightly visible, with a shy Expression~!</p>
-<p>Lisa-ttang~!</p>
-<p>When I used the See-Through prompt, strange Clothes came out instead of a bikini, so I just used a prompt for nipples to protrude~!</p>
-<p>Teacher Gajeong~!</p>
-<p>MidNightSKY-nim requested: Shii awkwardly showing Aegyo, Shii feeling shy after showing Aegyo~!</p>
-<p>Aegyo~!</p>
+<p>RefundNeverPossible-nim requested: Teacher Gajeong and Lisa-ttang doing the Zero Two dance in a bikini with nipples slightly visible, with a shy Expression!</p>
+<p>Lisa-ttang!</p>
+<p>When I used the See-Through prompt, strange Clothes came out instead of a bikini, so I just used a prompt for nipples to protrude!</p>
+<p>Teacher Gajeong!</p>
+<p>MidNightSKY-nim requested: Shii awkwardly showing Aegyo, Shii feeling shy after showing Aegyo!</p>
+<p>Aegyo!</p>
 <p>Bukku</p>
-<p>Gojoy-nim requested: Shinoe Misano 1. Surprised Expression upon realizing the protagonist is Taira, and 2. Aroused Expression thinking of the protagonist in bed~!</p>
+<p>Gojoy-nim requested: Shinoe Misano 1. Surprised Expression upon realizing the protagonist is Taira, and 2. Aroused Expression thinking of the protagonist in bed!</p>
 <p>1.</p>
 <p>2.</p>
-<p>Chomisaemeonji-nim requested: Mira Liz, Ribbon Liz~!</p>
-<p>Mira~!</p>
-<p>Ribbon~!</p>
+<p>Chomisaemeonji-nim requested: Mira Liz, Ribbon Liz!</p>
+<p>Mira!</p>
+<p>Ribbon!</p>
 <p>There isn't much difference except for the Color hehehe.</p>

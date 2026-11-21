@@ -56,7 +56,7 @@ chapter = 1988
 <p>"Oh? The pests are truly on another level over here." Vex’s tongue reached out, licking her lips with immense satisfaction. "Let me exterminate you."</p>
 <p>"[My Man Reigns Supreme]!"</p>
 <p>Quinlan’s towering silhouette rose behind her as her mark burned through her clothes. With the limb held against her blade, Vex let the curse measure the creature against her husband, her grin widening when the comparison reached Magic.</p>
-<p>"[Hubby Supremacy Tax~]!"</p>
+<p>"[Hubby Supremacy Tax]!"</p>
 <p>Black threads stretched from the spider into Vex as she drained the gap between its Magic and Quinlan’s, stealing only what the creature possessed and adding it to her own power. The resistance that had shattered her first curse weakened while magic swelled through her brand.</p>
 <p>"[Hex of Decay]."</p>
 <p>This time, her strengthened curse sank into the spider. Where its flesh had resisted her before, a black wound spread around her sword until the rotting leg buckled against the blade.</p>
@@ -74,7 +74,7 @@ chapter = 1988
 <p>"You should smile more like this. Such an unhinged grin on a powerful woman is a dangerous drug for Hubby."</p>
 <p>"I’m not smiling."</p>
 <p>Vex held up a hand mirror so Black Fang could see them grinning side by side. "Master... You’re having the time of your life and you’re very sexy while doing it."</p>
-<p>She giggled, "Well, if you ask me, you look like a savage psychopathic maniac on the loose, but it’s not my opinion that matters, right~?"</p>
+<p>She giggled, "Well, if you ask me, you look like a savage psychopathic maniac on the loose, but it’s not my opinion that matters, right?"</p>
 <p>"I’ll deal with you later," Black Fang decreed flatly, descending into the chaos.</p>
 <p>"Hehe! Wait for me!" Vex rushed after her, grinning from ear to ear like the happiest of daughters.</p>
 <p>How couldn’t she?</p>

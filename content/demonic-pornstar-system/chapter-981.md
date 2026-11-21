@@ -40,7 +40,7 @@ chapter = 981
 <p>Farther down the deck, the rest of the family had scattered into their own corners of the flight.</p>
 <p>Aria and Alice shared a couch with a fortress of Japanese fashion magazines rising between them, and for once neither of them was attached to Kaiden’s arm. They had simply relocated the obsession.</p>
 <p>"This one." Alice tapped a page. "If I wear this, strangers will know I’m with big brother at one glance."</p>
-<p>"Mm. And this one for me~" Aria folded a corner with care. "Kai likes this shade on me."</p>
+<p>"Mm. And this one for me" Aria folded a corner with care. "Kai likes this shade on me."</p>
 <p>They studied each other’s picks and nodded in serious approval, allies for exactly as long as their plans aimed the same way.</p>
 <p>Alexandra hovered behind their couch with the price tags, going paler with every currency conversion. "That coat costs more than a luxury NYC rent!"</p>
 <p>"Beauty is expensive," Alice explained wisely.</p>

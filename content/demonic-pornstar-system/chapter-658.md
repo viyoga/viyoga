@@ -60,7 +60,7 @@ chapter = 658
 <p>The accuracy of that assessment killed the conversation for a moment.</p>
 <p>"As long as they don’t have a tragic accident," Nyx spoke up. Her expression was pleasant. Her tone was not. After all, their strategy meant one thing: when Kaiden and co started a new combat, Ash and co dropped what they were doing - which was having brutal battles against strong monsters - only to jump into the next one.</p>
 <p>Calypso’s grin split wide. "Are you thinking the same?"</p>
-<p>"Maybe~"</p>
+<p>"Maybe"</p>
 <p>"Hey." Kaiden’s voice cut through. The girls looked at him. "Let’s not get hasty."</p>
 <p>The murderous energy between the Space Valkyrie and the demoness cooled. Slightly.</p>
 <p>"First, let’s test ourselves properly," Kaiden said. "We push extra hard for the rest of the day. I want to see how fast we can rotate zones. Hit a cluster, clear it, move before Ashbound arrives, hit the next one." He looked at each of them. "But remember. Safety is most important. If the pace is too much, speak up."</p>

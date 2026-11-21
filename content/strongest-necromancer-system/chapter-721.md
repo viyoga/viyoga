@@ -23,7 +23,7 @@ chapter = 721
 <p>"Oh, you’re just the most precious little elf maid in the world! You’re so cute! Of course I’ll come to see the princess! Tell her that I’ll meet her once I’m done freshening up, alright! If she wants, then we can even sit beside each other at dinner!"</p>
 <p>Gina pulled back with a smile as she said this, and the little elf’s eyes widened in joy once she heard this!</p>
 <p>"Really! You will!?"</p>
-<p>"Of course! How can I say no to such a cute face~?"</p>
+<p>"Of course! How can I say no to such a cute face?"</p>
 <p>Gina tickled the elf’s nose softly, and the elf giggled happily as she called on the wind and flew off Gina’s hand while exclaiming!</p>
 <p>"I’ll go tell the princess right away! Thank you so much, my Lady! This is amazing!"</p>
 <p>The girl flew off quickly, and Stella spoke up from behind Gina.</p>

@@ -77,7 +77,7 @@ Lith's body shivered as he felt this. It was a really very good feeling and he c
 
 Luna didn't stop here. She took off her hand and took all of Lith's dick inside her mouth, thereby deepthroating him.
 
-"Oooh~" Lith let out a surprised moan as he felt this. He looked down and saw Luna looking at him while taking all of his big cock inside her mouth.
+"Oooh" Lith let out a surprised moan as he felt this. He looked down and saw Luna looking at him while taking all of his big cock inside her mouth.
 
 Lilith was still behind Lith and was watching Luna take it in her mouth with a proud expression. She was the one who trained her like this and during training, Lilith had made her use a soft toy that was the length of Lith's shaft.
 

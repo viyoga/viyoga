@@ -61,6 +61,6 @@ chapter = 1119
 <p>Before, some causality problem arose, and I was worried because I was told that if I couldn't use my power properly or used it, I couldn't stay in this world anymore, but reading my thoughts seemed to be okay. But despite my relief, Tsukiyo, with a slightly serious expression, opened her mouth.</p>
 <p>"First, more than my story, the problem is elsewhere."</p>
 <p>The problem is elsewhere? Is there something I'm not thinking of?</p>
-<p>Requested by Gojoy-nim: Yukiko entering the social hall in Chapter 66 and Chapter 66 illustration remake~!</p>
-<p>Yukiko entering the social hall~!</p>
-<p>Chapter 66 illustration remake~!</p>
+<p>Requested by Gojoy-nim: Yukiko entering the social hall in Chapter 66 and Chapter 66 illustration remake!</p>
+<p>Yukiko entering the social hall!</p>
+<p>Chapter 66 illustration remake!</p>

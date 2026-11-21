@@ -53,7 +53,7 @@ chapter = 511
 <p>The dawn light fell on his shoulder. It was the kiss of freedom, the light of transformation.</p>
 <p>*</p>
 <p>Author's thought:</p>
-<p>Done! I absolutely loved creating this epic battle scene. Each character was carefully crafted with their own storylines, hehe~ Whether it's the deserving protagonist Venna, the brave puppy Seri, Ansel with his harem number +1, the ultimate game-changer Evora, or the outrageously mad Empress... Oh, and I bet you noticed my Gundam obsession too xD</p>
+<p>Done! I absolutely loved creating this epic battle scene. Each character was carefully crafted with their own storylines, hehe Whether it's the deserving protagonist Venna, the brave puppy Seri, Ansel with his harem number +1, the ultimate game-changer Evora, or the outrageously mad Empress... Oh, and I bet you noticed my Gundam obsession too xD</p>
 <p>When I had my friend read this paragraph, one found it strange when they said, "Ansel lost but still won." It might seem a bit far-fetched. So, let me share the inspiration behind it:</p>
 <p>I've long been indulged in a game which holds an important concept: "retreating to advance" , which is, Chess xD Chess is a strategic board game where players compete to capture the opponent's king by moving different types of pieces. In Chess, players need to protect their own pieces while seeking opportunities to attack the opponent and achieve victory.</p>
 <p>This requires a balancing strategy, sometimes requiring temporary retreats or concessions to protect one's own pieces and gain advantageous positions for future attacks.</p>

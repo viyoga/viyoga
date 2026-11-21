@@ -34,7 +34,7 @@ chapter = 584
 <p>After walking for a while, there was a moving walkway to the Aqua Hall, so we could go comfortably. Since Alik won, we went to the outdoor stage where the dolphin show was held first and sat down to watch the dolphin show.</p>
 <p>,Wow..."</p>
 <p>Alik's eyes sparkled like a starry night sky as he watched the dolphins' tricks. Was he that amazed? If I had known he liked it this much, I should have taken him to an aquarium in Japan.</p>
-<p>,Ryuta-jji, look at that! The dolphin jumped while rotating its body~☆"</p>
+<p>,Ryuta-jji, look at that! The dolphin jumped while rotating its body☆"</p>
 <p>Seeing Seizawa Shii, who had been gloomy because she couldn't see the lions, tapping my arm and making a fuss, it seemed like everyone was enjoying the show.</p>
 <p>,That was fun...!"</p>
 <p>After the show, Alik smiled slightly as if satisfied, and we went inside the aquarium to see the fish. Shido Tsubaki, who liked tropical fish, and Urabe Konoka, who liked octopuses, had chosen this place.</p>
@@ -56,7 +56,7 @@ chapter = 584
 <p>,Don't forget that?"</p>
 <p>Honestly, I was responsible for all of Otagi Yuka's meals (semen), and considering that price, the salary Otagi Yuka received was by no means small. Still, I didn't want to be stingy with my people, so I was planning to give her a much higher salary when she graduated and was assigned full-fledged missions.</p>
 <p>After Otagi Yuka used up all 50,000 yen worth of food, we passed the panda special hall and arrived at the small animal hall that Minamoto Risa and a few others wanted to see.</p>
-<p>,Look over there~!"</p>
+<p>,Look over there!"</p>
 <p>Minamoto Risa was usually cool, but now she couldn't contain her excitement. She was making a very happy expression as she watched the flying squirrels gliding through the trees.</p>
 <p>,Do you like it that much?"</p>
 <p>,It's a mammal, but it flies like that. It's also cute..."</p>
@@ -67,18 +67,18 @@ chapter = 584
 <p>,Really?"</p>
 <p>Even though I said I couldn't fly yet, Minamoto Risa said to me as if she was excited. She seemed to think that I would definitely be able to fly.</p>
 <p>,Red pandas are so cute!"</p>
-<p>,Alpacas are the best~!"</p>
+<p>,Alpacas are the best!"</p>
 <p>The other students who liked small animals were healing while looking at their favorite animals. Seizawa Shii, Kujo Kina, and Naruse Shiyo, who were fans of fierce animals, were now shining with anticipation because it was their turn.</p>
 <p>,Okay, let's move on to the next course."</p>
 <p>I could see the time on the VR device screen, so I could allocate the time appropriately. Next was the safari hall, where you could ride a small bus and see and experience fierce animals such as lions and tigers up close.</p>
-<p>,Welcome~!"</p>
+<p>,Welcome!"</p>
 <p>A guide and bus driver, who had his whole body covered in cyber implants, as befitting New Nanjing City, greeted us. He spoke in Chinese, but it was translated on the VR device screen and appeared like subtitles.</p>
 <p>Because the VR device translates in real time, guides don't have to learn other languages these days, which is convenient. Of course, it's more convenient if you can speak the language, so you get paid more if you can.</p>
-<p>,It takes a little while to go around once~! And even though they're fixed, don't try to open the windows by force, okay?"</p>
-<p>,Yes~!"</p>
+<p>,It takes a little while to go around once! And even though they're fixed, don't try to open the windows by force, okay?"</p>
+<p>,Yes!"</p>
 <p>We got on the bus and departed, and the safari zone was quite large, so it took a little while to go around once. Everyone answered the guide's warning well.</p>
 <p>The safari hall was divided into sections so that the fierce animals wouldn't collide with each other, and the first section was wolves.</p>
-<p>,Wow~! Wolves, Sensei!"</p>
+<p>,Wow! Wolves, Sensei!"</p>
 <p>Naruse Shiyo liked strong things, so she seemed to like all fierce animals in general. Naruse Shiyo made a fuss and shouted at me as if telling me to look. I actually thought that Naruse Shiyo might be the strongest when she transforms, but I haven't seen Naruse Shiyo transform properly yet.</p>
 <p>The guide skillfully threw live chickens through a small gap to attract the wolves, and we were watching the wolves' mukbang up close.</p>
 <p>Next to the wolves were bears, and the bears waved at us. It was quite cute to see them wiggling their butts and waving their hands. Is it because they're smaller than Han Yu-gyeong's familiar, Teddy?</p>

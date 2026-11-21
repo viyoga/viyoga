@@ -21,10 +21,10 @@ chapter = 534
 <p>The two Mecha pilots who had been destined to be the last remaining humans if things had gone differently held each other close as they felt relief pass through them! Maybe in some other lifetime, Haruto and Rei would have been forced to grow closer due to the death of everyone else around them, and they would have eventually been told of Hector’s plan and their destined mission to escape as the last remaining humans, but that was not the case in this world. And at this moment, Haruto only held Rei tighter as he felt her body shake with an intense sob, and in the next moment, she began to cry profusely into his shoulder!</p>
 <p>"You’re such a crybaby."</p>
 <p>Haruto said this with a smile, and Rei pressed her face tighter against his shoulder!</p>
-<p>"Shut up and stay still! Sob~! I’d rather be crying on James’ shoulder, but you’ll do for now."</p>
+<p>"Shut up and stay still! Sob! I’d rather be crying on James’ shoulder, but you’ll do for now."</p>
 <p>Haruto felt his eye twitch when Rei said this, and he clicked his tongue at her.</p>
 <p>"Flat-chested crybaby."</p>
-<p>"Shut up, you idiot! Sob~! I’m a C-Cup!"</p>
+<p>"Shut up, you idiot! Sob! I’m a C-Cup!"</p>
 <p>The cries of joy and jubilation weren’t only exclusive to the soldiers on the battlefield! Those who had been watching from the settlements couldn’t help but rejoice in excitement as they watched the battle through the helicopter feed! Every single Varigan was aware of what had happened now, and they all knew that the monster that tormented them for generations had finally been defeated!</p>
 <p>But in the midst of the excitement and celebration, the Varigans had no idea that their troubles were actually far from over. In fact, the true battle had only just begun. The sudden shift happened almost instantaneously! At one moment, Jason was speaking to Gina through their mental link about where they would be going next, and in the next moment, there was a sudden explosion of mana in the atmosphere!</p>
 <p>DOON!</p>

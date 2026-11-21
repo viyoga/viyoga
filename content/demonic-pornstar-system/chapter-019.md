@@ -32,11 +32,11 @@ chapter = 19
 <p>"What do you think the guys' test is about? Maybe he won't even pass," Aria questioned this time.</p>
 <p>Luna shook her head before confidently declaring, "Believe me, he will. Well, as long as it's about size and performance and not something dumb like morality and ethics..."</p>
 <p>"Why are you so sure?" Before Nyx's question could be answered, a feminine shriek reverberated through the waiting room.</p>
-<p>"AaaaHHHH~~♥!!"</p>
+<p>"AaaaHHHH♥!!"</p>
 <p>"What the fuck was that?" The mob characters were flabbergasted.</p>
 <p>"Maybe an audio recording."</p>
 <p>"Yeah, a prank. It must be."</p>
-<p>Another shriek came from the door that saw the young examinee enter, serving as a proverbial slap in the faces of all three deluded losers. "Kyaaaa!!! Kaiden, I love this fat cock of yours!!! Rip me apart! Force me to retire and become a kindergarten teacher working for the gov's pity pay whose favorite hobbies consist of knitting shitty scarfs and brewing cheap tea! Anghhhh~!"</p>
+<p>Another shriek came from the door that saw the young examinee enter, serving as a proverbial slap in the faces of all three deluded losers. "Kyaaaa!!! Kaiden, I love this fat cock of yours!!! Rip me apart! Force me to retire and become a kindergarten teacher working for the gov's pity pay whose favorite hobbies consist of knitting shitty scarfs and brewing cheap tea! Anghhhh!"</p>
 <p>"Kekeke!" Nyx suddenly burst out with mocking laughter before addressing them, "That, you bunch of horrible human existences, is the sound of our breeding stud passing the test with flying colors."</p>
 <p>The trio grimaced together in sync. "No way..."</p>
 <p>"But he's a virgin..."</p>

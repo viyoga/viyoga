@@ -133,6 +133,6 @@ The sound was starting to become intense and turning to look at the source, they
 
 Soon…
 
-"Lu-ci-fer~"
+"Lu-ci-fer"
 
 "Hiiiiii!"

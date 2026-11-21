@@ -101,7 +101,7 @@ Emilia opened her eyes after she gulped down the curry rice and this time she fo
 
 The piece was very crunchy at the outside and she bit more onto it, the tender chicken just melted in her mouth, causing the flavorful oil of the chicken fat to ooze out and spread all over her palate.
 
-“Mhm~”
+“Mhm”
 
 Emilia felt so amazed by it that she accidentally let out an ecstatic murmur.
 

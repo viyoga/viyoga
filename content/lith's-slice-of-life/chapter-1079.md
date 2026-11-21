@@ -55,7 +55,7 @@ He held on her love handles and shoved his cock inside her cunt in one powerful 
 
 PAH! PAH! PAH!
 
-"Ahhhhh~!"
+"Ahhhhh!"
 
 Lith slapped her ass cheeks hard enough to have them jiggle for a few seconds, leaving behind his red handprints. "Is this how audacious you've become? Instead of properly apologizing, you're now trying to bribe your Master?"
 
@@ -87,7 +87,7 @@ Lith held Lilith's elbows and tossed her beside Luna, making her yelp in the pro
 
 PAH!
 
-"Ahhhh~!"
+"Ahhhh!"
 
 "Oh my…" Lilith covered her face as she seemed concerned. "That looks painful. Are you not going to give your poor mama— no, wifey, a chance to redeem herself? Do you really have to go that far?"
 

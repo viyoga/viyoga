@@ -70,7 +70,7 @@ chapter = 1101
 <p>"Master deserves a place of honor in his own world. You’ve done wonderfully."</p>
 <p>"Of course they should worship Big Brother!" Alice declared, peering past the felinid to admire the shrine. "Who else would they pray to?"</p>
 <p>Calypso had turned on her bench to see the shrine properly. Her tail curled against her ankle as she studied the figure with fond satisfaction.</p>
-<p>"Darling deserves every bit of it~"</p>
+<p>"Darling deserves every bit of it"</p>
 <p>Kaiden looked from one approving face to the next, finding them entirely comfortable with his newly discovered place in the villagers’ faith.</p>
 <p>"My lord?"</p>
 <p>Taigi’s voice drew his attention back to her.</p>

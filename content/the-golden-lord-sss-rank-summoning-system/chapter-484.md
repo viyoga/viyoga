@@ -32,7 +32,7 @@ chapter = 484
 <p>Bustyviper didn’t have a shred of shame on her face as she declared this, puffing out her chest with pride. The motion stretched her cleavage a little wider, the soft, pale flesh of her décolletage bulging against the edges of the opening, nearly spilling out of it.</p>
 <p>“And besides, I hope he’s really as big as you said, because if not—”</p>
 <p>Of course, that brazen attitude only lasted until the two of them climbed the tall staircases and stepped into the central part of the palace, where a voice echoed through the hall.</p>
-<p>“Oh… Seo-ah, it’s good to see you here… I can see you’ve brought a very excited friend, haven’t you? She must be very eager to meet the husband… both inside and out, fufufufu~”</p>
+<p>“Oh… Seo-ah, it’s good to see you here… I can see you’ve brought a very excited friend, haven’t you? She must be very eager to meet the husband… both inside and out, fufufufu”</p>
 <p>The voice was feminine, sweet, and mature, always dripping with honey.</p>
 <p>It was Ophelia.</p>
 <p>Now pregnant, she was beginning to set aside some of her responsibilities at the palace, since her shadow magic carried a high risk of harming the child in her womb.</p>

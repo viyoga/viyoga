@@ -91,7 +91,7 @@ chapter = 829
 
 <p>From her puffy pink nipples, twin jets of warm milk shot out in white arcs, splashing into the water of the spring below.</p>
 
-<p>"Aghnn~~ be gentler... they’re sensitive!" Rouxi complained, giving Qingyi a playful pat on the back of his hand, her voice somewhere between a low moan and a grumble.</p>
+<p>"Aghnn be gentler... they’re sensitive!" Rouxi complained, giving Qingyi a playful pat on the back of his hand, her voice somewhere between a low moan and a grumble.</p>
 
 <p>He didn’t respond right away.</p>
 

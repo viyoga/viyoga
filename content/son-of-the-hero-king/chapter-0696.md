@@ -61,7 +61,7 @@ chapter = 696
 <p>“Anything the matter? Do you believe I was too harsh?”</p>
 <p>Jasmine groaned a little bit and in the end, could only give a reluctant answer.</p>
 <p>“No. Your words were right. There is nothing I can say nor do against them.”</p>
-<p>“Ohoh~! Good. I would have been disappointed if you threw a hissy fit. It would be unbecoming of someone of your stature.” He shook his head and passed her by.</p>
+<p>“Ohoh! Good. I would have been disappointed if you threw a hissy fit. It would be unbecoming of someone of your stature.” He shook his head and passed her by.</p>
 <p>“Where are you going?”</p>
 <p>“Where, you ask? To pray, of course. I do not have much interest in the Dragon Emperor. He is not the subject of my faith.”</p>
 <p>A gentle laugh escaped him as he vanished into the Darkness, leaving Jasmin alone, “I am nothing but a humble believer and a retired warrior. You two are the ones ruling this kingdom. So… Good luck with that mess.”</p>

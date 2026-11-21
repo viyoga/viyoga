@@ -179,4 +179,4 @@ Lith dived straight down with Ren in his hands and didn't give him a chance to u
 
 His soulful cry could be heard by Alea above and she couldn't help but giggle and wave at Lith and him.
 
-"Have a good day~"
+"Have a good day"

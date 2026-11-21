@@ -32,7 +32,7 @@ chapter = 169
 <p>His legs were spread wide, submerged in the warm water of the bathtub, the tip of his cock resting on the soft lips of the blonde Rosalyn, while Lyra and Seraphina flanked him on either side, licking and sucking every inch of his member with devotion.</p>
 <p>Behind him, Lia and Mia ran their hands over his powerful muscles, carefully lathering his skin with tender touches.</p>
 <p>Their slippery breasts pressed against his back, the soapy flesh squishing and sliding over his shoulder blades with every sweep of their hands.</p>
-<p>"Ah~~ did we do well, my lord?" Rosalyn asked, letting the tip of Ethan’s cock slip from her lips for a moment, a shiny thread of saliva connecting her pink mouth to the swollen glans.</p>
+<p>"Ah did we do well, my lord?" Rosalyn asked, letting the tip of Ethan’s cock slip from her lips for a moment, a shiny thread of saliva connecting her pink mouth to the swollen glans.</p>
 <p>"Yes." He nodded with a sweet smile, stroking her hair affectionately.</p>
 <p>Taking the virginity of so many beauties in a single night left him quite satisfied, but not just that.</p>
 <p>Now, he only needed forty-five more premium gacha tickets to get his high elf mommy.</p>

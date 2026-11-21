@@ -125,7 +125,7 @@ chapter = 130
 
 <p>“I didn’t hear you right.” He withdrew his fingers from her pussy, giving her ass another hard slap.</p>
 
-<p>“Yeah! I promise! Mmm~~” She gasped, the tanned skin of her ass reddened from Qingyi’s slaps and her pussy already drenched with desire.</p>
+<p>“Yeah! I promise! Mmm” She gasped, the tanned skin of her ass reddened from Qingyi’s slaps and her pussy already drenched with desire.</p>
 
 <p>” Good… let’s see them!” Qingyi smiled as he let go of Feiyan.</p>
 

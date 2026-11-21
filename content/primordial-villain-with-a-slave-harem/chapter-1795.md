@@ -61,7 +61,7 @@ chapter = 1795
 <p>And just like that, the clearing shifted.</p>
 <p>Elisabeth’s posture loosened by a fraction, and the combative set of her shoulders eased. "...I forgive your foul-mouthed girlfriend for her naughty behavior."</p>
 <p>Quinlan grinned and petted Vex once more in response. "Much appreciated."</p>
-<p>"Hehe~" Vex leaned back against Quinlan’s chest, tilted her head, and pressed a slow kiss to the side of his neck.</p>
+<p>"Hehe" Vex leaned back against Quinlan’s chest, tilted her head, and pressed a slow kiss to the side of his neck.</p>
 <p>Then her red stare found Nyxara’s across his lap.</p>
 <p>The look that passed between the two women lasted less than a second, but it carried everything.</p>
 <p>Vex’s pride was quiet and absolute. She’d played the room’s villain on purpose and watched her man walk in as the hero, exactly the way she’d set it up.</p>

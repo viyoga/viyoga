@@ -69,7 +69,7 @@ chapter = 476
 <p>-Just a moment.... Ah, Sakagami is going!</p>
 <p>Sakagami Rena was a little more comfortable than the other students because she followed me as her lord. She also knew my identity and had mixed bodies with me several times.</p>
 <p>"Okay, tell her to come to ○○ Cafe."</p>
-<p>-Yes~!</p>
+<p>-Yes!</p>
 <p>I decided to sit down and rest until the drink I ordered and Sakagami Rena arrived. The drink came out after about a minute, and Sakagami Rena arrived after about three more minutes. That's an incredible speed? Is it because she's a ninja...? Sakagami Rena changed her clothes and arrived at the cafe from the school in 4 minutes.</p>
 <p>"Oh, you're so fast?"</p>
 <p>"Because my lord is waiting. As a subordinate, I cannot delay my lord's time."</p>

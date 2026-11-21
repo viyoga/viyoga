@@ -55,5 +55,5 @@ chapter = 103
 <p>Kent took a sniff and smiled, "I want to taste this for three days straight,"</p>
 <p>He spread her legs, making her pink cave open its tiny lips for him to explore. The scent of her sweet and fragrant love juice assaulted his nose as he leaned in closer to lick her pussy.</p>
 <p>"Now, you do well to remember the feeling because you will miss me when I am gone" Kent bent down and planted his tongue into her pussy immediately licking her clit.</p>
-<p>"MmmmmmhhhH~"</p>
+<p>"MmmmmmhhhH"</p>
 <p>Vexthra moan.</p>

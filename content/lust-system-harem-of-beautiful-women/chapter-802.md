@@ -11,15 +11,15 @@ chapter = 802
 
 <p>Her tight, juicy pussy enveloped his hard cock, both letting out moans of pure satisfaction.</p>
 
-<p>&quot;Bad man... still so big... so full~!&quot;</p>
+<p>&quot;Bad man... still so big... so full!&quot;</p>
 
 <p>Nancy held onto Luis, her long legs the perfect support, and began to grind her sexy, curvaceous body atop him.</p>
 
 <p>Her hot, wet pussy swallowed his hard length again and again, bringing them both unparalleled pleasure.</p>
 
-<p>&quot;Big sister, so tight, have you been jealous lately from not getting fucked~...&quot;</p>
+<p>&quot;Big sister, so tight, have you been jealous lately from not getting fucked...&quot;</p>
 
-<p>&quot;I am jealous... because you’re fooling around with all of them... bad man~... ahhh~...&quot;</p>
+<p>&quot;I am jealous... because you’re fooling around with all of them... bad man... ahhh...&quot;</p>
 
 <p>Nancy clung to his shoulders, riding him up and down while letting out satisfied, dazed moans. She arched her chest, offering her full, luscious breasts to his mouth.</p>
 

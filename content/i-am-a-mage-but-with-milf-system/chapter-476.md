@@ -61,7 +61,7 @@ chapter = 476
 
 <p>“Don’t you dare cum, Aryl,” he warned darkly. “You’ll wait your turn. Watch your mother.”</p>
 
-<p>“Hngh ~ y-you’re being too mean…” Aryl moaned in protest but quickly obeyed.</p>
+<p>“Hngh  y-you’re being too mean…” Aryl moaned in protest but quickly obeyed.</p>
 
 <p>She pulled her hand back, and her wetness dripped onto the floor as she kept her eyes locked on Shayla’s moving body—bouncing, slamming down onto Julian’s cock.</p>
 

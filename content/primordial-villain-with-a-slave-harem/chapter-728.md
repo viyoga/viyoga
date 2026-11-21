@@ -75,9 +75,9 @@ chapter = 728
 <p>I said nothing, which in turn made Vex’s playful hum turn into a cute scoff.</p>
 <p>"I see.</p>
 <p>So, silence is your confession.” Her fingers curled lightly against my chest, and then—press—her breasts flattened more firmly against my back, soft warmth grinding in slow, coaxing motions.</p>
-<p>"Tell me…~”</p>
-<p>"Tell me…~” she crooned, drawing out the words like a slow spell meant to melt me.</p>
-<p>"Tell me…~”</p>
+<p>"Tell me…”</p>
+<p>"Tell me…” she crooned, drawing out the words like a slow spell meant to melt me.</p>
+<p>"Tell me…”</p>
 <p>A violent shudder traversed along my body, from the top of my spine to my feet.</p>
 <p>Her sensual skin was melting my brain into a gooey liquid.</p>
 <p>But!</p>

@@ -51,7 +51,7 @@ chapter = 320
 <p>Amelia came from a family of traitors and had lost her surname because of it, so Doran used Ethan’s surname instead.</p>
 <p>Ysara burst out laughing, doubling over with a hand pressed to her stomach, while Amelia repeated in shock, "C-Countess Mother?"</p>
 <p>"Yes, My Lady. Lord Ethan Darkwall arrived at the Darkwall settlement about a year ago. From that dying settlement, Lord Ethan founded the glorious Goldenveil, whose name he adopted as his surname!"</p>
-<p>"Ahahahaha~ fuck..." Ysara gradually managed to control her laughter, leaning over Amelia and wrapping her in a tight embrace.</p>
+<p>"Ahahahaha fuck..." Ysara gradually managed to control her laughter, leaning over Amelia and wrapping her in a tight embrace.</p>
 <p>Their heavy breasts pressed together in a soft, plush encounter, the plump mounds squishing against one another as the overflowing flesh spilled upward over their necklines, settling into an all-too-familiar fit.</p>
 <p>"Just look at what your little Ethan has become, hahaha... can you believe it?" Ysara shook her head, pressing her cheek against her friend’s, who still hadn’t managed to get over the shock.</p>
 <p>"Young Master Ethan really is incredible!"</p>

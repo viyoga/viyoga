@@ -45,7 +45,7 @@ chapter = 867
 
 <p>There, kneeling between her man’s legs, her eyes glazed over and her expression hungry with lust, she looked nothing like the fearsome Primordial Demon Empress.</p>
 
-<p>"Aghnn~~ Q-Qingyi-chan... so big, hehehe~" Akane let out a lewdgiggle, her warm, moist breath washing over the pale skin of Qingyi’s cock. The shaft twitched at the sensation, throbbing against her cheek.</p>
+<p>"Aghnn Q-Qingyi-chan... so big, hehehe" Akane let out a lewdgiggle, her warm, moist breath washing over the pale skin of Qingyi’s cock. The shaft twitched at the sensation, throbbing against her cheek.</p>
 
 <p>She had been a huge fan of otome games in her life on Earth, and when she arrived in that world, she had harbored the sincere hope of finding her own Prince Charming.</p>
 
@@ -67,7 +67,7 @@ chapter = 867
 
 <p>Qingyi relaxed against the couch, savoring the touch of that soft, pink tongue. It soon stretched to a decidedly non-human length, coiling tightly around the base of his cock and squeezing from all sides like a hungry serpent.</p>
 
-<p>"Mhnmmm~~ How can Qingyi-chan be so delicious? Aghn~! Akane-sama wants to feel all of this inside her!" she moaned as she withdrew her tongue, bringing with it the salty taste of sweat and a thick, crystal-clear drop of pre-cum.</p>
+<p>"Mhnmmm How can Qingyi-chan be so delicious? Aghn! Akane-sama wants to feel all of this inside her!" she moaned as she withdrew her tongue, bringing with it the salty taste of sweat and a thick, crystal-clear drop of pre-cum.</p>
 
 <p>She nodded excitedly, her small horns glistening in the pavilion’s dim light. Opening her mouth once more, she wrapped her red lips around Qingyi’s swollen glans, stretching them wide.</p>
 

@@ -91,17 +91,17 @@ chapter = 94
 
 <p>Without waiting for his mother-in-law’s reply, Luis thought it over and sent the video to Avery as well. Unlike his sister-in-law’s shy reaction, Avery became excited and sent several messages in a row.</p>
 
-<p>&quot;Wow, Lily’s figure is really amazing! I had no idea her breasts were so pretty—so round and full, I just want to kiss them~&quot;</p>
+<p>&quot;Wow, Lily’s figure is really amazing! I had no idea her breasts were so pretty—so round and full, I just want to kiss them&quot;</p>
 
 <p>This made Luis pause. He’d forgotten that the System mentioned that while Lily’s appearance remained the same to others, her body had already been altered. In other words, what others could see was her current figure.</p>
 
 <p>Thinking about it, that made sense—otherwise, what would happen with things like bra sizes? It seemed the System was far more thorough than he’d imagined.</p>
 
-<p>&quot;They even jiggled while she was licking! Lily’s nipples are so pink and cute too, just like a little girl’s~&quot;</p>
+<p>&quot;They even jiggled while she was licking! Lily’s nipples are so pink and cute too, just like a little girl’s&quot;</p>
 
 <p>&quot;She’s sucking so earnestly—it must feel amazing for you, brother-in-law. That’s almost deepthroat, right? I’ve seen it in videos before.&quot;</p>
 
-<p>&quot;And brother-in-law’s thing... hehe, it doesn’t look as exaggerated as some, but it seems really hard~&quot;</p>
+<p>&quot;And brother-in-law’s thing... hehe, it doesn’t look as exaggerated as some, but it seems really hard&quot;</p>
 
 <p>&quot;Stinky brother-in-law, sending me this kind of thing... now I won’t be able to sleep.&quot;</p>
 
@@ -125,7 +125,7 @@ chapter = 94
 
 <p>&quot;Don’t worry, brother-in-law, I’ll study hard, and I’ll make sure little classmate Leah improves along with me.&quot;</p>
 
-<p>&quot;Good night, brother-in-law~&quot;</p>
+<p>&quot;Good night, brother-in-law&quot;</p>
 
 <p>The little girl’s typing speed was incredibly fast. Luis immediately replied with &quot;Good night,&quot; because his mother-in-law had already texted back. He couldn’t wait to see what her attitude would be.</p>
 

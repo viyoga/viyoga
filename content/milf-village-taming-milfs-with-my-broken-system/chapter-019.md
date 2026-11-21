@@ -21,7 +21,7 @@ chapter = 19
 
 <p>&quot;Hehe, don’t freeze up, Aunt. Do you want us to get caught?&quot; Owen murmured, nudging his length against her hands, which had completely ceased moving.</p>
 
-<p>’Keke... I can never get enough of the look on a hungry MILF face when she sees a divine thing... calling it the greatest sword, Excalibur.. Gaze upon it, appreciate it, and become my devotee, Aunt~’ Owen thought to himself.</p>
+<p>’Keke... I can never get enough of the look on a hungry MILF face when she sees a divine thing... calling it the greatest sword, Excalibur.. Gaze upon it, appreciate it, and become my devotee, Aunt’ Owen thought to himself.</p>
 
 <p>Seeing her stunned expression alone was enough to satisfy his ego as a man.</p>
 
@@ -45,7 +45,7 @@ chapter = 19
 
 <p>It was Morenne’s husband, completely unaware that his wife was currently busy providing an intense handjob service at the back of the barn with the boy he treated like a nephew.</p>
 
-<p>&quot;Work harder, Auntie, if you don’t want us to get caught~&quot; Owen whispered again.</p>
+<p>&quot;Work harder, Auntie, if you don’t want us to get caught&quot; Owen whispered again.</p>
 
 <p>Her eyes widened with pure desperation as she channeled every ounce of her strength into finishing the task as fast as possible.</p>
 

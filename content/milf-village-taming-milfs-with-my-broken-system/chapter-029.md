@@ -35,7 +35,7 @@ chapter = 29
 
 <p>The pent-up desires she had accumulated over countless years, combined with the intense stimulation she had received for the past several minutes, were about to be violently unleashed.</p>
 
-<p>’ Isn’t it much better? Show me how a MILF squirts ~ ’</p>
+<p>’ Isn’t it much better? Show me how a MILF squirts  ’</p>
 
 <p>&quot;Then squirt like a wild animal. Don’t hold back, Mom!&quot; Owen was eager to witness the spectacle a genuine fountain of love juices for the very first time in his life.</p>
 
@@ -91,11 +91,11 @@ chapter = 29
 
 <p>[ GRIFIIIII----, oh, never mind, you are truly a bastard of a man. Just take matters slowly for God’s sake. ]</p>
 
-<p>’What now?.. I think you are having your period my dear system~’ Owen smiled...he was the savior of the village so why not support him for once right?</p>
+<p>’What now?.. I think you are having your period my dear system’ Owen smiled...he was the savior of the village so why not support him for once right?</p>
 
 <p>[ Hahh....]</p>
 
-<p>’Heh... call me whatever you want, System. Am I the savior of the village right? I’m just doing my job~’ Owen smirked mentally.</p>
+<p>’Heh... call me whatever you want, System. Am I the savior of the village right? I’m just doing my job’ Owen smirked mentally.</p>
 
 <p>He recognized the name the system had almost shouted in all-caps.</p>
 

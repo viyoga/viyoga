@@ -14,7 +14,7 @@ chapter = 1305
 <p>Feng stared at the man with heat rising behind her eyes. "Leave them alone! I already said…"</p>
 <p>His grin returned, wider than before. It was as if her words sounded like a prize placed right in his palm.</p>
 <p>"Oh?" He opened the door, stepped into the cell, and lowered himself to one knee, bringing his face level with hers. Unlike Felicity, her helmet was destroyed in the clash, letting him see her face in its entirety.</p>
-<p>His eyes dragged down her body and back up, lingering in ways that made her skin crawl. "Are you pretending you're some closeted little pervert hoping to get used, I wonder~? 'Please use only me! Leave the others alone!'" He repeated, using her tone mockingly.</p>
+<p>His eyes dragged down her body and back up, lingering in ways that made her skin crawl. "Are you pretending you're some closeted little pervert hoping to get used, I wonder? 'Please use only me! Leave the others alone!'" He repeated, using her tone mockingly.</p>
 <p>Then the man looked her over again. Slowly. Enjoying it. Even though she was still a teen. A beaten-up teen at that.</p>
 <p>Feng's eyes widened, unable to believe the words she was hearing right now. The breath she pulled in scraped down her throat like broken glass. 'He really thinks I want this…?' she whispered inwardly, full of disbelief.</p>
 <p>But one look into his disgusting eyes told her that it was indeed the case.</p>

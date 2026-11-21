@@ -7,7 +7,7 @@ chapter = 138
 
 <p>Swimsuit illustration included.</p>
 <p>,If Hijitani-ssi was at the entrance from around 8:07, she would know that I didn't go to the Kantou University people's lodging. She can see our passage from the entrance. Even if she was looking outside the entrance, she would have heard my footsteps."</p>
-<p>Everyone exclaims, "Ah~!" at my explanation. Hijitani Saori, who was thinking for a moment, also nods.</p>
+<p>Everyone exclaims, "Ah!" at my explanation. Hijitani Saori, who was thinking for a moment, also nods.</p>
 <p>,I certainly didn't see Taira-ssi passing by this way."</p>
 <p>,But could he have gone before 8:07?"</p>
 <p>Professor Homura Kouga was pointlessly raising objections. Annoying me with his diarrhea-ridden professor ass.</p>

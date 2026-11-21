@@ -8,7 +8,7 @@ chapter = 195
 <p>Contains explicit content + explicit illustrations. Watch your surroundings carefully!</p>
 <p>Nagumo Sian's pussy was tight like a virgin's, with a pressure that felt like it was pushing my dick away. Of course, it was also an incredibly pleasurable pussy. Moreover, even if I just slightly flicked my hips, her love juices would burst out with moans, making it seem like it was an incredibly sensitive pussy. In short, it was a top-tier pussy.</p>
 <p>I fondled Nagumo Sian's breasts with my hands, enjoying the soft and fluffy sensation, while simultaneously enjoying the stimulation from Nagumo Sian's virgin pussy with my dick. Yeah, is there any other paradise? This is paradise right here. Feeling such pleasant sensations with both my dick and hands at the same time made me feel the best.</p>
-<p>, "Heuaaang, haaeung...! Ryuta, hheung...! I feel, heeung, strangeee~♥"</p>
+<p>, "Heuaaang, haaeung...! Ryuta, hheung...! I feel, heeung, strangeee♥"</p>
 <p>"It's not that you feel strange, it's that you feel good. Now, repeat after me. Ryuta's dick feels good."</p>
 <p>"Haeung...! Ryuta's dick, feels goooood, haaang!"</p>
 <p>"Sian-nunim's pussy feels good too."</p>
@@ -18,7 +18,7 @@ chapter = 195
 <p>She was still repeating the lines I taught her, raising her own excitement. I was simply thrusting in various angles and depths, looking for Nagumo Sian's weak spot.</p>
 <p>"Heeunghat! Haeut! Ah, eunghut...! Hyaaaeung!"</p>
 <p>Ah, this was her weak spot. Stimulating slightly below her cervix made her twist her body and become so excited that the skin all over her body turned red. A lot of sticky love juice was coming out of her pussy, and the inside of her pussy was wriggling wildly, stimulating my dick.</p>
-<p>"Euheot, hheuek, heoeok...! Strange, stran, no, feels goood, good, Ryuta...! Heungheut! Hheueuunghut~!!!!"</p>
+<p>"Euheot, hheuek, heoeok...! Strange, stran, no, feels goood, good, Ryuta...! Heungheut! Hheueuunghut!!!!"</p>
 <p>Nagumo Sian, who had reached her peak from the continuous weak spot attacks, rolled her eyes back, stretched her legs wide, and trembled all over. I hugged Nagumo Sian tightly and continued to shake my hips.</p>
 <p>"Euheok, I.... Heeung! I feel like I'm going to go crazy, stop, haaeung! Hheueu, hheung♥ Stop! Haeung! Heeung!"</p>
 <p>Nagumo Sian said to stop, hugging my back tightly and scratching my back with her fingernails. I don't know if pulling my butt with her calves means to stop or to continue.</p>
@@ -43,9 +43,9 @@ chapter = 195
 <p>"Hheueeung! Inside, inside, euheut! Something hot is coming in♥ Hheuhyaaahaat♥"</p>
 <p>Gush! Gush! Gush! Gush!</p>
 <p>Perhaps because it was a huge ejaculation, my vision turned white due to the pleasure. I filled her womb so full that the semen was about to flow back. Due to the exhaustion immediately after ejaculation, I collapsed on top of Nagumo Sian as if falling. Nagumo Sian also seemed very satisfied and hugged my collapsed body tightly.</p>
-<p>"Hheung♥ Heavy~."</p>
+<p>"Hheung♥ Heavy."</p>
 <p>"Grab my neck once."</p>
-<p>"Euheung, I will~♥"</p>
+<p>"Euheung, I will♥"</p>
 <p>As Nagumo Sian, who was acting cute while saying it was heavy, grabbed my neck, I also grabbed Nagumo Sian's waist and butt and flipped her over. Now I was lying down below and Nagumo Sian was lying on top of me. Of course, my dick was still inside Nagumo Sian's pussy.</p>
 <p>I stroked Nagumo Sian's hair and enjoyed the afterglow. Nagumo Sian also pressed her large breasts against my chest and gave me a massage (?).</p>
 <p>"Nunim, can I ask you something?"</p>
@@ -78,7 +78,7 @@ chapter = 195
 <p>She couldn't even pull it out halfway a moment ago and sat down because of the pleasure, but this time, with a determined expression on my words, she lifted her hips again and started to pull my dick out of her pussy.</p>
 <p>"Heung, hheung.... Hheeut!"</p>
 <p>She endured her moans as much as possible and pulled it out almost to the glans, but when I lifted my hips sharply as if flicking them and thrust my dick deep into her pussy again, Nagumo Sian collapsed as it was.</p>
-<p>"Hheuaaang~! How can you do this?"</p>
+<p>"Hheuaaang! How can you do this?"</p>
 <p>"Let's just cum one more time and sleep refreshed?"</p>
 <p>"Okay. I'll quickly.... Eunghut! Squeeze out your semen♥"</p>
 <p>I explained that the movement I just made up and down was called cowgirl. As expected, Nagumo Sian was also an excellent student in sex, and after listening to my explanation, she was able to skillfully and lewdly shake her hips to exploit my semen.</p>

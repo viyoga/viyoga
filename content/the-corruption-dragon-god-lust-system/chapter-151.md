@@ -5,13 +5,13 @@ weight = 151
 chapter = 151
 +++
 
-<p>“Aghn~~ ohnn~~ nghnn~~” Gasping moans followed by the unmistakable sound of skin hitting skin echoed through Elder Qingxue’s arena.</p>
+<p>“Aghn ohnn nghnn” Gasping moans followed by the unmistakable sound of skin hitting skin echoed through Elder Qingxue’s arena.</p>
 
 <p>Her plump, soft ass rhythmically slapped against Qingyi’s waist, each impact drawing a depraved moan from her lips.</p>
 
 <p>Qingyi grabbed her from behind, holding her long silver hair as he fucked her hard, feeling her pussy trying to crush his cock.</p>
 
-<p>“Mnhn~~ shameless disciple nghn~~ how dare you do this to your own aghn~~ master?” Qingxue could barely form words.</p>
+<p>“Mnhn shameless disciple nghn how dare you do this to your own aghn master?” Qingxue could barely form words.</p>
 
 <p>Her hands instinctively went up to her violently swaying breasts, controlling them and squeezing them tightly.</p>
 
@@ -19,7 +19,7 @@ chapter = 151
 
 <p>“Isn’t master enjoying it?” he asked teasingly, sinking his lips into her neck.</p>
 
-<p>“Ghnn~~” Qingxue could only moan obscenely in response.</p>
+<p>“Ghnn” Qingxue could only moan obscenely in response.</p>
 
 <p>Was she enjoying it? She’d like to say no.</p>
 
@@ -33,7 +33,7 @@ chapter = 151
 
 <p>“Does master want me to go faster?” Qingyi asked, keeping his left hand on her hips while moving his right to her moist pussy, pushing his cock in even deeper while massaging her swollen clit.</p>
 
-<p>“H-just nghnn~ do it!” she gasped, feeling Qingyi’s cock hit the walls of her womb.</p>
+<p>“H-just nghnn do it!” she gasped, feeling Qingyi’s cock hit the walls of her womb.</p>
 
 <p>Receiving confirmation, Qingyi didn’t hold back any longer.</p>
 

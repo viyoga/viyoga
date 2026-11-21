@@ -19,7 +19,7 @@ chapter = 462
 <p>The mature and serene Lady Hydral, whose gentleness anyone would praise, wept behind her hands, the flowers in the room withering, losing their vibrant colors and luster, genuinely saddening to behold.</p>
 <p>Yet the cold-hearted young Hydral replied with a voice still tinged with youth, "Only father is willing to be so utterly deceived by you, mother."</p>
 <p>Annelisa's trembling form suddenly froze, and from the gaps between her covered face, a dangerous gaze that could immediately make Mr. Flamelle beg for mercy shot forth.</p>
-<p>"Ans~"</p>
+<p>"Ans"</p>
 <p>The woman revealed a mother's tender smile, "So, will you stay and dine with me?"</p>
 <p>"..."</p>
 <p>Ansel opened his mouth, glanced at the flowers in the room miming a throat-slitting gesture, and finally sighed in resignation, "... Very well, I shall join you, mother."</p>
@@ -35,7 +35,7 @@ chapter = 462
 <p>In the utterly silent, ordinary restaurant, Ansel sighed while holding his fork and knife: "Is it here?"</p>
 <p>A few kilometers from Hydral Manor lies a very ordinary, unremarkable restaurant with no signature dishes to speak of—this is where Ansel and Annelisa are enjoying their lunch.</p>
 <p>All the patrons appeared to be dining, but in reality, they were stealthily observing the young Hydral and Lady Hydral.</p>
-<p>"One can grow weary of eating the same fare every day~"</p>
+<p>"One can grow weary of eating the same fare every day"</p>
 <p>Annelisa elegantly wiped her mouth and smiled with narrowed eyes:</p>
 <p>"Besides, Ans, you wanted to come to a place like this, didn't you?"</p>
 <p>"...Hmm?"</p>

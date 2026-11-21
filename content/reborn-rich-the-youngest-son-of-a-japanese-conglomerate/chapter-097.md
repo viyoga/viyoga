@@ -48,7 +48,7 @@ chapter = 97
 <p>After all the new employees left, we decided to rest comfortably until lunchtime. If Suzuki Chisami's pussy wasn't swollen, I would have continued the training in an empty office or bathroom. I went to bed late yesterday, so I decided to take a nap until lunchtime. Anyway, I was planning to pick up a lot of things while touring the factory, so we decided to rest fully until lunchtime.</p>
 <p>I woke up lying down and it was already 12:50. I could have slept more, but I woke up because I was hungry. I eat at similar times every time, so I guess it was sending a signal asking why I wasn't putting food in my stomach. I woke up Suzuki Chisami, who was still fast asleep.</p>
 <p>Taira Foods' public relations officer and Matsuhira Ginichiro were scheduled to meet at the lobby of the headquarters at 1 o'clock, so I thought I could go to the bathroom and go straight down to the lobby.</p>
-<p>"Oh~! You've been through a lot. There wasn't much to check this time, was there?"</p>
+<p>"Oh! You've been through a lot. There wasn't much to check this time, was there?"</p>
 <p>Matsuhira Ginichiro seemed confident this time. He was marked by Suzuki Chisami yesterday, so there was a lot to catch, but there was nothing to catch in the work at Taira Foods, so he didn't need to watch it and came late.</p>
 <p>"Shall we go right away?"</p>
 <p>An employee of Taira Foods' public relations department drove a golf cart and picked us up. The site was so large that it would be difficult to walk around, so it seemed that they brought a golf cart.</p>

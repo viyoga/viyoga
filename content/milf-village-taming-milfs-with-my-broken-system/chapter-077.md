@@ -87,7 +87,7 @@ chapter = 77
 
 <p>Owen could feel her pussy throbbing each time their flesh made contact. His nape was not spared either, as her grip on him grew tighter by the second.</p>
 
-<p>&quot;Of course, I’m your son, after all. Now that you’ve made so many bite marks on my neck, isn’t it time for me to pay you back~?&quot; Owen had finally marked her breasts. And now, they were rightfully his.</p>
+<p>&quot;Of course, I’m your son, after all. Now that you’ve made so many bite marks on my neck, isn’t it time for me to pay you back?&quot; Owen had finally marked her breasts. And now, they were rightfully his.</p>
 
 <p>No one else could see them, as they were already his property. It was well known that trespassing was a crime, so as a man, he had to abide by the rules.</p>
 

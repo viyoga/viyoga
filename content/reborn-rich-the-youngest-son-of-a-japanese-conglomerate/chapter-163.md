@@ -8,7 +8,7 @@ chapter = 163
 <p>After filming all the alleyway scenes, we took a short break. The shoot started at ten, and after filming several scenes, it was now lunchtime.</p>
 <p>,You said earlier that I don't have to hold back with food, right?</p>
 <p>,Yes, but I think I eat quite a bit because I'm big.</p>
-<p>,It's good to eat a lot~! It'll probably be a lunchbox, so I'll tell them to bring you a lot so you can eat plenty.</p>
+<p>,It's good to eat a lot! It'll probably be a lunchbox, so I'll tell them to bring you a lot so you can eat plenty.</p>
 <p>,Thank you.</p>
 <p>I was a bit hesitant to ask for a lot since it was an unfamiliar place, so I was relieved when Ha Ju-yoon said she would tell them. Ha Ju-yoon told her manager, Hwang Yoon-gi, to bring four lunchboxes, and Hwang Yoon-gi brought them over. If there are four, is it one for Ha Ju-yoon and three for me?</p>
 <p>When I received the lunchboxes, they were from a premium lunchbox franchise, the kind that costs ₩30,000-40,000. There were many side dishes, and the main courses were high-end, making it a substantial lunchbox. We set up the lunchboxes on a makeshift table in the waiting room and had lunch together.</p>
@@ -27,7 +27,7 @@ chapter = 163
 <p>,Yes.</p>
 <p>After the meal, the director handed me the script. I received the script and quickly read through it. A scene where I'm left alone at school after failing an exam and studying by myself, a scene where I'm tutored one-on-one by a teacher, a scene where we look at each other and act out emotions, and.... a kiss scene? There's a kiss scene?</p>
 <p>Han Yu-gyeong will probably freak out if she sees it.... No woman would be happy if her man filmed a kiss scene with her mother. Well, for me, kissing Ha Ju-yoon, a beautiful actress, is great.</p>
-<p>,Alright~! Let's get started with the after-school scene!</p>
+<p>,Alright! Let's get started with the after-school scene!</p>
 <p>At the director's words, I stopped thinking about the kiss scene and decided to focus on the filming that was right in front of me. The filming took place in the same classroom as before, but the lighting was changed to give it the feeling of a classroom with the sunset after school. I sat in the empty classroom, looked at the exam paper, crumpled it up, and grabbed my head. It was a scene of frustration over a low score.</p>
 <p>This level of acting was easy. I had worried about low grades many times, so I naturally became immersed in the scene. I sighed, recomposed myself, and took out a book when Ha Ju-yoon entered as the classroom door opened.</p>
 <p>,Oh my, what are you doing here instead of going home?</p>
@@ -39,7 +39,7 @@ chapter = 163
 <p>,Tch, I'm just being pure...! Yong-tae, did you also feel that my smile was sexy?</p>
 <p>,Um.... It did feel a bit sexy.</p>
 <p>I changed the word appropriately when answering Ha Ju-yoon's question because I thought it would be a little rude to say it was too sexy.</p>
-<p>,Hoh ho ho! I am sexy, aren't I? Woo~♥</p>
+<p>,Hoh ho ho! I am sexy, aren't I? Woo♥</p>
 <p>Ha Ju-yoon seemed to be in a good mood at my words, laughing "hoh ho ho" and starting filming again. Fortunately, after that, the filming went smoothly without any hiccups. After finishing the one-on-one lecture scene and other minor scenes, the kiss scene, which I was half-expecting and half-worried about, finally arrived.</p>
 <p>The scene was about the main character, who had been accepted into the university he wanted, going to the teacher, giving her a bouquet of flowers, and kissing her. Ha Ju-yoon, who was about to kiss her daughter's boyfriend, was very calm, as if she wasn't nervous at all. Is it because she's a veteran actress? On the other hand, I felt like I was really going to confess to a teacher I had a crush on because I had been immersed in the acting all along.</p>
 <p>I took off my school uniform, put on the clothes prepared on set, and headed to the set with a bouquet of flowers. The set was like an apartment hallway, and I rang the doorbell in front of one of the doors. My heart was already pounding. The door opened, and Ha Ju-yoon, dressed in slightly casual clothes, looked at me with a surprised expression.</p>
@@ -51,26 +51,26 @@ chapter = 163
 <p>I kissed Ha Ju-yoon without even hearing all of her congratulatory words. The situation was supposed to be a pure kiss from a young boy and a kiss for broadcast, so there was no tongue or anything...! Wait, Ha Ju-yoon-ssi! Why are you using your tongue? Huh? Ha Ju-yoon used her tongue to kiss me, turning a scene that was supposed to be a forbidden but pure love into something like an erotic movie.</p>
 <p>,Cut! Why have you been doing this since earlier? Let's go for a pure image rather than a sexy one, okay?</p>
 <p>Of course, the director cut the scene, and we had no choice but to film the kiss scene again.</p>
-<p>,I'm sorry~. It's been so long since I kissed someone that my tongue went out to greet you without me even realizing it?</p>
+<p>,I'm sorry. It's been so long since I kissed someone that my tongue went out to greet you without me even realizing it?</p>
 <p>,It's already happened, so there's nothing we can do.... Let's keep the tongue thing a secret from Yu-gyeong.</p>
 <p>,I think it's already too late?</p>
 <p>Ha Ju-yoon pointed to one spot, and when I looked, Han Yu-gyeong was staring at me and Ha Ju-yoon with bulging veins on her forehead. Um.... I'm going to get scolded, aren't I?</p>
 <p>After the kiss scene, we filmed a few more scenes, and the filming wrapped up. The singer's album was being released in four days, so they said they would go straight into editing without any wrap-up party. Even though AI editing technology has made things faster, some parts still required human touch, so it seemed like they were still busy even in this day and age.</p>
-<p>,I'm sorry~, Yu-gyeong-aang~.</p>
+<p>,I'm sorry, Yu-gyeong-aang.</p>
 <p>,I didn't know....</p>
 <p>,First of all, Mom, be quiet!</p>
 <p>Everyone got into Ha Ju-yoon's big van, and Ha Ju-yoon was apologizing to Han Yu-gyeong with aegyo, while I kept denying it, saying I didn't know. Han Yu-gyeong pressed her temples with both hands, as if she hadn't recovered from the shock of seeing her mother and boyfriend kissing on set.</p>
 <p>,Haa.... Mom, you should have told me about this beforehand.</p>
-<p>,It's acting, acting. Instead, Mom will buy you something delicious today. Let's make up~.</p>
+<p>,It's acting, acting. Instead, Mom will buy you something delicious today. Let's make up.</p>
 <p>,Aish! I'm not a child, why would I make up with food?</p>
 <p>Fortunately, I seemed to be out of the target, so I was watching their fight from a step back. Well, it's more like Han Yu-gyeong was getting angry and Ha Ju-yoon was trying to smooth things over with aegyo.</p>
 <p>,Sigh.... Okay. I'll let it go this time since it was filming.</p>
-<p>,Thank you~! What does our daughter want to eat? Should I buy you eel so Yong-tae can use his strength a bit? Yoon-gi-ya~! Head to that eel restaurant.</p>
+<p>,Thank you! What does our daughter want to eat? Should I buy you eel so Yong-tae can use his strength a bit? Yoon-gi-ya! Head to that eel restaurant.</p>
 <p>,Aish! Mom, what are you saying again?</p>
 <p>In the end, it was fortunate that Han Yu-gyeong made up, ending the situation. But "eel so I can use my strength a bit"...! Do I look like I can't use my strength? I'm amazing even without eel. When I think about it, Sinoe Misano also bought me eel often, so is recommending eel a characteristic of middle-aged women?</p>
 <p>,It's not Yong-tae's fault, so I'll just let it go this time.</p>
 <p>,Okay. I'll eat eel today and gain strength instead.</p>
-<p>,Mom, shush~. Speak quietly.</p>
+<p>,Mom, shush. Speak quietly.</p>
 <p>Han Yu-gyeong blushed at my playful words and playfully hit my arm. Han Yu-gyeong seemed to have made up, so we talked about this and that as we headed to the eel restaurant.</p>
 <p>,But what was the contractual issue?</p>
 <p>,They're just nitpicking at our contract, saying there's a problem. They're demanding damages. It hasn't been completely resolved yet, but I've left it to the staff.</p>

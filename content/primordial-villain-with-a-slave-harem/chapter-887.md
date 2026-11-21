@@ -7,7 +7,7 @@ chapter = 887
 
 <p>The strongest female member of the Vesper Consortium only blinked in response.</p>
 <p>Vex smiled even wider.</p>
-<p>"Ah. Something came up. Please excuse me, my one and only amazing Master~"</p>
+<p>"Ah. Something came up. Please excuse me, my one and only amazing Master"</p>
 <p>*Click.*</p>
 <p>The comm artifact cut out.</p>
 <p>Black Fang stared at the darkened stone, frozen in place, her bath suddenly turning eerily quiet save for the bubbling poison.</p>

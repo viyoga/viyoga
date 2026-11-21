@@ -30,34 +30,34 @@ chapter = 562
 <p>Delia thought it over and saw nothing wrong with that. She and the others needed help right then, and as long as it got Nyx to finally shut up and give her that help, it was fine. The future? Well, she'll deal with the future when it comes. Maybe she'd never even need to ask Nyx for a boon that would truly warrant the surrender of her soul.</p>
 <p>And so, it was done; Nyx granted Delia the required ordinance to walk into the Sealing Cube at the apparent cost of nothing to Delia.</p>
 <p>But why, Delia wondered, was she thinking of this now as she floated in the vast darkness</p>
-<p>"~Because the time has come for you to pay your debts. I have come to collect.~"</p>
+<p>"Because the time has come for you to pay your debts. I have come to collect."</p>
 <p>Nyx's voice reverberated within the darkness, more terrible and chilling than ever.</p>
 <p>'You can hear my thoughts,' Delia said in her head with a frown.</p>
-<p>"~You lie in the abyss of Death— My Domain. There is nothing hidden to me here. Not your presence, and certainly not your thoughts.~"</p>
+<p>"You lie in the abyss of Death— My Domain. There is nothing hidden to me here. Not your presence, and certainly not your thoughts."</p>
 <p>'What debt are you talking about? I owe you no debt,' Delia thought at Nyx.</p>
-<p>"~Oh, but you do. I showed you a sign of good faith and let you into the cube, and in return, you gave me priority over your soul.~"</p>
+<p>"Oh, but you do. I showed you a sign of good faith and let you into the cube, and in return, you gave me priority over your soul."</p>
 <p>'Yes, for an appropriate boon,' Delia frowned even deeper, 'But I haven't asked you for anything.'</p>
-<p>"~You don't have to. There is nothing in our deal that specifies that you need to ask me for a boon for me to grant it.~"</p>
+<p>"You don't have to. There is nothing in our deal that specifies that you need to ask me for a boon for me to grant it."</p>
 <p>'But I don't need anything,' Delia countered.</p>
-<p>"~Oh, but I think you do.~"</p>
+<p>"Oh, but I think you do."</p>
 <p>'What—' Delia started, and then she became especially aware of where she was—The Abyss of death—and she understood.</p>
 <p>'No, I'm not dead!' Delia practically yelled with her thoughts, 'I can feel it… Kaya's magic is healing me. It's bringing me back!"</p>
-<p>"~You're not dead, yet. That is true. And if I let you out of this Abyss, your friend will surely be able to 'bring you back'. However, I have the right to keep you here just as I had the right to bring you here after you were struck. You are at my mercy, child.</p>
+<p>"You're not dead, yet. That is true. And if I let you out of this Abyss, your friend will surely be able to 'bring you back'. However, I have the right to keep you here just as I had the right to bring you here after you were struck. You are at my mercy, child.</p>
 <p>And while you may not yet be dead, being within this Abyss means you're close enough to the great beyond that 'saving' you will serve as a more than appropriate boon.</p>
-<p>After all, what could be a greater blessing than resurrection?~"</p>
+<p>After all, what could be a greater blessing than resurrection?"</p>
 <p>Nyx sounded so cheeky and so victorious as she twisted the terms of the deal with Delia and manipulated events to suit her interests that Delia boiled with rage.</p>
 <p>'You tricky bitch—!' Delia began her angry tirade when she found herself struck dumb and unable to speak in her own mind.</p>
 <p>It was a strange and weird feeling… she was somehow still capable of thought, just not in any way that could be considered mental speech. It was an incapacitation that frankly boggles the mind.</p>
 <p>Nyx sounded like she was laughing. At the very least, she was very amused.</p>
-<p>"~That's enough out of you. I have allowed your insolence only because I find it entertaining. A lot like that Caius, actually. He with a soul unlike any other… otherworldly in a way that even I don't quite understand—~"</p>
+<p>"That's enough out of you. I have allowed your insolence only because I find it entertaining. A lot like that Caius, actually. He with a soul unlike any other… otherworldly in a way that even I don't quite understand—"</p>
 <p>Nyx trailed off for a while, and when she returned and continued to speak, she did not show any sign that she had paused talking at all.</p>
-<p>"~I already have his Soul, of course. And now, I will have yours. It has been a long time since I actually cared about how many or what kind of mortals I have in my grasp.</p>
+<p>"I already have his Soul, of course. And now, I will have yours. It has been a long time since I actually cared about how many or what kind of mortals I have in my grasp.</p>
 <p>Yes, I see much entertainment ahead.</p>
-<p>Off you go now.~"</p>
+<p>Off you go now."</p>
 <p>And Delia, completely lost about a lot of the things Nyx had said, found her ability of mental speech returned, but before she could use it, she was thrown out of the Abyss and back into her body, awaking within the encasement of Kaya's vines.</p>
 <p>Delia felt it then; She felt as the possession of her soul fell into Nyx's Divine hands. It didn't fill her with a sense of loss— on the contrary, it filled her with a kind of elation and a feeling of closeness to a Divine being as a world of possibilities stretched out in front of her.</p>
 <p>She hated it.</p>
 <p>'Stop planting that in my head,' she snarled at Nyx, 'I don't like this, and no amount of your trickery will change that.'</p>
 <p>She heard Nyx's laughter in her ears and felt a thrill of closeness that annoyed her as the Goddess spoke.</p>
-<p>"~How about a celebratory bonus?~"</p>
+<p>"How about a celebratory bonus?"</p>
 <p>And before Delia could ask what Nyx meant, she was flooded with so much power, so much divine authority over the abstract concept of death, that she had to let it loose in the devastating lightning strike that shook the entirety of the inside of the Sealing Cube right after.</p>

@@ -107,7 +107,7 @@ Luna nodded in response and Lith teleported away from the Royal Castle.
 
 Elven Royal Castle.
 
-"Little cousin!~"
+"Little cousin!"
 
 Alea jumped on Lith as soon as she saw him. Lith caught her in his embrace and patted her back.
 

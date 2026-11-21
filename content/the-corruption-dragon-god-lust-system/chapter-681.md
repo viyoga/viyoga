@@ -15,7 +15,7 @@ chapter = 681
 
 <p>“You’re acting pretty submissive for someone who was cursing me out so much just a few days ago.”</p>
 
-<p>“Hm~~ shut up… you deserved all those curses!” Xue Hua declared, her fingers finding the zipper of his pants and pulling it down without ceremony.</p>
+<p>“Hm shut up… you deserved all those curses!” Xue Hua declared, her fingers finding the zipper of his pants and pulling it down without ceremony.</p>
 
 <p>His member sprang free from its restraints, long, thick, and throbbing, landing directly on her lips with a wet pop.</p>
 
@@ -43,7 +43,7 @@ chapter = 681
 
 <p>Her lips parted, still connected to the member by thick strands of saliva as she panted nonstop.</p>
 
-<p>“Aghnn~~ you’re lucky this thing tastes so good; otherwise, I guarantee I’d rip it off in one bite!” she declared, glaring at the smug expression plastered on Qingyi’s face.</p>
+<p>“Aghnn you’re lucky this thing tastes so good; otherwise, I guarantee I’d rip it off in one bite!” she declared, glaring at the smug expression plastered on Qingyi’s face.</p>
 
 <p>He just laughed at those words.</p>
 
@@ -59,7 +59,7 @@ chapter = 681
 
 <p>Her throat might be inferior to Rou’er’s, but it was still divinely tight, her lips a perfect glove for his cock.</p>
 
-<p>“Mghnn~~ Guk– Slup~~ Slurp~~ aghnnn~~” Xue Hua’s moans echoed alongside the gags and slurps, her eyes rolling back as she hit top speed.</p>
+<p>“Mghnn Guk– Slup Slurp aghnnn” Xue Hua’s moans echoed alongside the gags and slurps, her eyes rolling back as she hit top speed.</p>
 
 <p>The grip of Qingyi’s hand on her ass tightened. He raised his palm and brought it down with a powerful impact.</p>
 
@@ -75,7 +75,7 @@ chapter = 681
 
 <p>Injecting draconic Qi into her body to hasten her orgasm, Qingyi used the grip on her panties to masturbate her, pulling and releasing, sliding the fabric against her swollen clitoris.</p>
 
-<p>“Aghnn~~ ughnn~~ s-stop~~ y-you~~ ngfhnnn~~” Xue Hua didn’t have much time to complain.</p>
+<p>“Aghnn ughnn s-stop y-you ngfhnnn” Xue Hua didn’t have much time to complain.</p>
 
 <p>Her eyes widened, and soon she felt, from the depths of her being, an intense, uncontrollable pleasure.</p>
 
@@ -87,7 +87,7 @@ chapter = 681
 
 <p>Her cheeks puffed out with cum. Adjusting her position so gravity wouldn’t hinder her work, she swallowed, her throat working incessantly, each gulp sliding down like a bulge along her neck.</p>
 
-<p>“Gulp~~ Gulp~~ Gulp~~ ah~~”</p>
+<p>“Gulp Gulp Gulp ah”</p>
 
 <p>She didn’t waste a single drop, and her lips slid along Qingyi’s member, whose pale skin was now smeared with black smudges of lipstick.</p>
 

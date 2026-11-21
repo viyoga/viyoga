@@ -50,7 +50,7 @@ chapter = 506
 <p>,Ah! Teacher-nim, you're already here!</p>
 <p>Urabe Konoka, wearing a red ribbon, came into the counseling room and greeted me. Urabe Konoka smiled and sat across from me.</p>
 <p>,You wanted to see me because of Simyeonui ttal, right?</p>
-<p>,Yes~! Simyeonui ttal was very surprised to receive the tribute. She was wondering what you were doing.</p>
+<p>,Yes! Simyeonui ttal was very surprised to receive the tribute. She was wondering what you were doing.</p>
 <p>She must have been surprised to receive such a huge tribute suddenly. From Simyeonui ttal's point of view, it was such an unexpected tribute that she must have been wondering what I was doing.</p>
 <p>,Just a moment...!</p>
 <p>Urabe Konoka said to me and closed her eyes for a moment. And when she opened her eyes again, her usual brown eyes had changed to the purple abyss color of Simyeonui ttal.</p>

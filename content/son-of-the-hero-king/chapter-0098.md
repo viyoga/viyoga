@@ -7,7 +7,7 @@ chapter = 98
 
 <p>"Sol, you are a half-dragon right?"</p>
 <p>"... Indeed. So? Are you going to kill me to get my core?"</p>
-<p>"Oh, ~!? You are surprisingly calm. Do you think I would not hurt you? No, from your reaction you are clearly wary of me. Then, do you think you can beat me? Ah~! Even though you don't really believe so you don't think you would lose either. I really wonder what kind of skills you obtained during your awakening."</p>
+<p>"Oh, !? You are surprisingly calm. Do you think I would not hurt you? No, from your reaction you are clearly wary of me. Then, do you think you can beat me? Ah! Even though you don't really believe so you don't think you would lose either. I really wonder what kind of skills you obtained during your awakening."</p>
 <p>The duchess continued to ask and answer to her own questions.</p>
 <p>The binding surrounding him slowly came apart before completely vanishing.</p>
 <p>"Arachne's thread. This is how this weapon of mine is called. It's a gift from the goddess after I showed my overwhelming talent. From what she told me. There was once a woman who went by the same name and whose skills could only be defined as godly. This thread was created by her. They are close to indestructible."</p>

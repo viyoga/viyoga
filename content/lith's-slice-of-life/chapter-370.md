@@ -35,7 +35,7 @@ Lith increased his pace and spanked Arya's cheeks a few more times. While doing 
 
 Lilith nodded her head and took one of Arya's nipples into her mouth and sucked on it. She pinched the other nipple and with her free hand, she moved it to her clit and rubbed it aggressively.
 
-"Ahhh!~ Fucckkk… so intense… Ahhh…"
+"Ahhh! Fucckkk… so intense… Ahhh…"
 
 Arya's body shivered as she said that and she felt her legs become weak.
 
@@ -79,13 +79,13 @@ Emilia felt shy but still did as Lith asked her to and stuck out her butt. Luna 
 
 Luna skillfully inserted her tongue inside Emilia's honeypot and started licking her. It didn't take her long to find her sweet spot and started hitting it constantly.
 
-"Mhm~" Emilia let out a muffled moan as she kissed Lith once again.
+"Mhm" Emilia let out a muffled moan as she kissed Lith once again.
 
 A while later, Lith let go of Emilia and focused his attention fully on Arya.
 
 He grabbed her hair and pulled her back and rammed his dick harder and faster into her pussy.
 
-"Ahhh~ Ahhh~ Li… Lith… slow… Ahhh~" Arya wanted Lith to slow down. This felt too good and too rough to her!
+"Ahhh Ahhh Li… Lith… slow… Ahhh" Arya wanted Lith to slow down. This felt too good and too rough to her!
 
 "It's husband now, my dear wife." Lith chuckled as he pounded her.
 
@@ -101,7 +101,7 @@ Lilith below Arya pinched and pulled her nipples. She also aggressively rubbed h
 
 A few seconds later…
 
-"Ahhh~ Stop! Ahhh~ I am cumming! cum…"
+"Ahhh Stop! Ahhh I am cumming! cum…"
 
 Spurrrt!
 

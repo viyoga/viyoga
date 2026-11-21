@@ -67,7 +67,7 @@ chapter = 1942
 <p>While Quinlan had been open recently toward the general populace of Iskaris, such as speaking up about his mothers, his goals, and more, he had no intentions of becoming an open book.</p>
 <p>Now that the stakes had risen to levels he still didn’t quite comprehend, it was even more so the case.</p>
 <p>Ayame whispered into all their heads. Her voice was buzzing with excitement."&gt; &lt;Thalorind has opened up to us, and it’s now time to act like we did in the beginning,&gt; Ayame whispered into all their heads. Her voice was buzzing with excitement.</p>
-<p>Lucille purred. "&gt; &lt;This is so exciting~&gt; Lucille purred. &lt;Time to wear masks once again?&gt;</p>
+<p>Lucille purred. "&gt; &lt;This is so exciting&gt; Lucille purred. &lt;Time to wear masks once again?&gt;</p>
 <p>Quinlan nodded."&gt; &lt;I don’t know about literal masks again, but yeah. We have to take things very seriously,&gt; Quinlan nodded.</p>
 <p>"&gt; Serika was in agreement as well. &lt;For all we know, there are people out there much higher statted than we are, with classes and powers we aren’t prepared for. Best not to let them get info on us from our allies.&gt;</p>
 <p>Silence reigned supreme on the link for a good few seconds, as every participant buzzed with sheer excitement for the grand unknown that awaited them outside the only land they knew all their lives."&gt; &lt;...&gt; Silence reigned supreme on the link for a good few seconds, as every participant buzzed with sheer excitement for the grand unknown that awaited them outside the only land they knew all their lives.</p>

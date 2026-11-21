@@ -20,7 +20,7 @@ chapter = 68
 <p>"What’s the matter? Can’t you even last a few minutes without your man?" Ethan laughed, pulling Evelyn into his embrace and letting his palm land on her voluptuous ass with a firm slap.</p>
 <p>Her flesh rippled under the impact, the shockwave rolling through her curves and an involuntary moan escaping her lips.</p>
 <p>Ethan savored that moan, but soon his expression turned serious.</p>
-<p>"Ah~ Did something happen?" Evelyn asked, still flushed but noticing the shift in his gaze.</p>
+<p>"Ah Did something happen?" Evelyn asked, still flushed but noticing the shift in his gaze.</p>
 <p>Alice stepped away from the pots upon hearing that, turning her beautiful porcelain face toward Ethan, her pink lips curving with concern.</p>
 <p>"A corrupted mana beast has appeared and attacked some adventurers. We have to kill it before it causes damage to Goldenveil."</p>
 <p>"Oh..." Evelyn’s lips parted in understanding, while something heavy settled in Alice’s chest.</p>
@@ -51,7 +51,7 @@ chapter = 68
 <p>Even Evelyn watched it all with genuine shock.</p>
 <p>She knew Alice’s talent with mana was great, but that was too powerful to be simply called "great."</p>
 <p>In the end, Evelyn was happy for Alice, because the stronger the two of them were, the better their chances of protecting that idiot husband of theirs from getting himself killed in some useless battle.</p>
-<p>"Ah~ hehehe~" Alice let out a sweet giggle as her lips parted from Ethan’s. "Dinner is ready. Do you want to eat now?"</p>
+<p>"Ah hehehe" Alice let out a sweet giggle as her lips parted from Ethan’s. "Dinner is ready. Do you want to eat now?"</p>
 <p>"When we get back." Ethan looked up at the sky. It hadn’t fully darkened yet, so they still had time to plan. "I told Doran to gather the Goldenveil hunters. We need to prepare to kill that damn beast as soon as possible."</p>
 <p>Silently, Alice nodded and walked alongside Evelyn, accompanying Their Man.</p>
 <p>Doran had acted quickly, gathering all the hunters and city guards. Work outside the wall had been halted, and an order had been issued: no one was to leave until further notice from the Lord.</p>

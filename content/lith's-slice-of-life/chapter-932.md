@@ -41,7 +41,7 @@ Lucifer pointed her nose at the sky, proud of whatever she did. "I'm built diffe
 
 "Greedy. Prideful. Envious." Mayzin said three words and accurately described Lucifer.
 
-"Duh. They don't call me the Demon Queen for nothing. Anyway, where's my promised maid, Lilith-chan?~" Lucifer said in a happy tone.
+"Duh. They don't call me the Demon Queen for nothing. Anyway, where's my promised maid, Lilith-chan?" Lucifer said in a happy tone.
 
 Lilith put her teacup down and shook her head. Her baby definitely needs some lessons on Lucifer so that he understands how to properly handle her.
 

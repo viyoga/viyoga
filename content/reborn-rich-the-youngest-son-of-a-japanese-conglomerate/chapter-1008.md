@@ -37,7 +37,7 @@ chapter = 1008
 <p>At my Words, Naruse Shiyo nodded her Head and gave her Consent. Then, we would need Otagi Yuka or Naruse Shiyo, who can at least perform Jusul, but the Worry is whether these two can break the Jusul of a sorcerer who has been active for over a decade, known as the Black Sage.... I'll have to talk about this later.</p>
 <p>"Tell me the next piece of information." "After that, we started asking about the Black Sage, but from then on, Geomi in the next room started making a ruckus, so we couldn't properly grasp the information, they said. We only got fragmented information.... After that, both of them died." "It seems the Jinzhi's keyword was related to the Black Sage...."</p>
 <p>At Naruse Shiyo's Words, Otagi Yuka muttered. Of course, I don't know much about Jusul, so I don't know the exact method, but as Otagi Yuka said, it was clear that information about the Black Sage was the Trigger.</p>
-<p>"Shiyop-ppi~! Is there anything useful among the fragmented information you mentioned?"</p>
+<p>"Shiyop-ppi! Is there anything useful among the fragmented information you mentioned?"</p>
 <p>Seizawa Shii raised her Hand and spoke. As a problem solver, she seemed curious if there were any more clues.</p>
 <p>"The Black Sage is probably in East New York or the eastern part of New York. That VR Diver said 'East...' before dying."</p>
 <p>It wasn't enough to pinpoint the Black Sage's Position, but it was still quite significant information. Of course, it wasn't precise information since he died mid-sentence.</p>
@@ -47,12 +47,12 @@ chapter = 1008
 <p>"Then, how should we proceed with patrols? Should we focus on East New York, according to the information we obtained today?" "Since these vigilante Hunters seem to be roaming all over New York anyway, wouldn't it be better to stick to the original plan?"</p>
 <p>Next, they discussed whether to maintain the current patrol areas or focus patrols on the eastern part of New York, which they had heard about last. Both opinions had merit, and the Story was quite tense, but suddenly, a Contact on my phone rendered all of it futile.</p>
 <p>-EVE: Ryuta-nim. The Shard of Omniscience is going to be put up for auction at the AmSang Auction House. The auction start date is three days from now, at midnight. Eve informed me that the grimoire, the Shard of Omniscience, which the Black Sage was searching for so desperately, was going to be put up for auction at the AmSang Auction House.</p>
-<p>Gojoy-nim requested an Illustration of Yu-gyeong undressing and Seduction, and her Appearance covered by Entwined Sheets in bed~!</p>
-<p>Seduction~!</p>
-<p>Entwined Sheets~!</p>
-<p>Hwanbuljeoldaebulga-nim requested Lisa, the Home Teacher-nim, in a Maid Outfit~!</p>
-<p>Lisa-ttang~!</p>
-<p>Home Teacher-nim~!</p>
-<p>Chomisaemeonji-nim requested Liz in a Maid Outfit, riding a Bike~!</p>
-<p>Maid Outfit~!</p>
-<p>Bike Liz~!</p>
+<p>Gojoy-nim requested an Illustration of Yu-gyeong undressing and Seduction, and her Appearance covered by Entwined Sheets in bed!</p>
+<p>Seduction!</p>
+<p>Entwined Sheets!</p>
+<p>Hwanbuljeoldaebulga-nim requested Lisa, the Home Teacher-nim, in a Maid Outfit!</p>
+<p>Lisa-ttang!</p>
+<p>Home Teacher-nim!</p>
+<p>Chomisaemeonji-nim requested Liz in a Maid Outfit, riding a Bike!</p>
+<p>Maid Outfit!</p>
+<p>Bike Liz!</p>

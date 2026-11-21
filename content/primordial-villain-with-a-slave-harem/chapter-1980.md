@@ -97,7 +97,7 @@ chapter = 1980
 <p>The dogkin planted her free palm on Quinlan’s shoulder and vaulted over it. Her bare legs swept through the air as she arched above him, blonde hair flying behind her.</p>
 <p>Quinlan followed the gorgeous curve of her body with considerable interest. His girl was putting on quite a show over a pastry.</p>
 <p>With a giggling twist of her hips, Blossom swung a leg over his head and landed astride his shoulders. Her soft thighs hugged either side of his neck, with her calves hanging down his chest.</p>
-<p>"Master~!"</p>
+<p>"Master!"</p>
 <p>He caught her thighs without moving from where he stood. Her tail lashed happily down his back, while the paper bag remained upright in her raised hand.</p>
 <p>Celia was still staring at the place where Blossom had been standing.</p>
 <p>"H-how did you... Wow..."</p>

@@ -27,7 +27,7 @@ chapter = 1693
 <p>She wasn't even allowed to properly root for her Ruin's arduous battle, which was her most basic right as a conquered succubus watching her amazing man show his manly fight!</p>
 <p>Or so the demon believed.</p>
 <p>&lt;...Are you insinuating that I'm a slut?&gt; The fox's voice lowered to dangerous levels.</p>
-<p>But then, as if nothing happened, her vibrance returned. &lt;Okay, I am, but only for Quinnie, got it?! So, I just watched Vex do her whole thing, and first of all, the horns are incredible, the tail is everything. BUT! I was wondering if maybe, possibly, you would be willing to share some of those succubus powers with me too? Pretty please~?&gt;</p>
+<p>But then, as if nothing happened, her vibrance returned. &lt;Okay, I am, but only for Quinnie, got it?! So, I just watched Vex do her whole thing, and first of all, the horns are incredible, the tail is everything. BUT! I was wondering if maybe, possibly, you would be willing to share some of those succubus powers with me too? Pretty please?&gt;</p>
 <p>Nyxara's mouth opened. "You already have your upgrade, just take a look at your butt and all the fluff there. How greedy can you be, girl?"</p>
 <p>&lt;Very! I want everything!&gt; The answer came without a single breath of hesitation. &lt;But, actually... I think my two tails aren't my complete boon! They feel incomplete! I haven't unlocked new abilities, which makes me think I'm not done yet with my sexy powerups. I saw what Vex did, and here I am!&gt;</p>
 <p>Nyxara pressed both palms against her face and exhaled through her fingers.</p>

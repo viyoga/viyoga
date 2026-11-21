@@ -13,7 +13,7 @@ chapter = 27
 
 <p>&quot;...&quot; She couldn’t utter any words,Owen’s action is on another league.</p>
 
-<p>&quot;Now..now, let’s continue and also you need to focus your mind, Mom ~&quot; Owen sucked another mouthful of milk after squeezing her nipples again.</p>
+<p>&quot;Now..now, let’s continue and also you need to focus your mind, Mom &quot; Owen sucked another mouthful of milk after squeezing her nipples again.</p>
 
 <p>Thankfully, he didn’t waste too much milk, having only squeezed out enough for himself, enough to not spill anything on the mattress.</p>
 
@@ -41,11 +41,11 @@ chapter = 27
 
 <p>&quot;Ekhhn!!!! Ahhnn!!!... D-don’t...&quot; Arielle moaned out loud at the sudden, intense pinch Owen delivered!</p>
 
-<p>&quot;It’s necessary, Mom, look how much milk you are producing. I need to milk them out to ease your body~&quot; Owen’s remembered those clips about milking a cow, it’s not bad...</p>
+<p>&quot;It’s necessary, Mom, look how much milk you are producing. I need to milk them out to ease your body&quot; Owen’s remembered those clips about milking a cow, it’s not bad...</p>
 
-<p>&quot;Nghnn~ Hahh...hah..ha..&quot; Her breathing is labored as if she’s hiking up a cliff.</p>
+<p>&quot;Nghnn Hahh...hah..ha..&quot; Her breathing is labored as if she’s hiking up a cliff.</p>
 
-<p>&quot;Look...you are truly enjoying them, Mom ~&quot;</p>
+<p>&quot;Look...you are truly enjoying them, Mom &quot;</p>
 
 <p>She was talking to her husband while actively enjoying the deed.</p>
 
@@ -57,7 +57,7 @@ chapter = 27
 
 <p>&quot;Ahnn... I-I’m okay, darling. I just slipped, hehe... I was careless and lost my balance,&quot; she managed to cover up what had just occurred!</p>
 
-<p>’Keke...your wife is being milked by your son father, and she’s enjoying it~’</p>
+<p>’Keke...your wife is being milked by your son father, and she’s enjoying it’</p>
 
 <p>Owen had just teased her already lactating tips.</p>
 
@@ -65,7 +65,7 @@ chapter = 27
 
 <p>&quot;W-why... did you do that... ahnnn!?&quot; She turned her head, breathing laboriously now.</p>
 
-<p>&quot; Don’t shout, you are acting really spoiled, Mom. Do you want Father to know that you are enjoying my special massage~&quot;</p>
+<p>&quot; Don’t shout, you are acting really spoiled, Mom. Do you want Father to know that you are enjoying my special massage&quot;</p>
 
 <p>&quot; B-but...angnn...ahhnn...I’m talking with Ahn!&quot;</p>
 
@@ -97,13 +97,13 @@ chapter = 27
 
 <p>Thankfully, her never-ending gasps ceased as Owen moved lower, allowing her breathing to recover.</p>
 
-<p>’ I won’t let you rest just yet, Mom~’ Owen moved his hands higher, right below her ass cheeks!</p>
+<p>’ I won’t let you rest just yet, Mom’ Owen moved his hands higher, right below her ass cheeks!</p>
 
 <p>&quot;T-that’s... a dangerous part. Don’t go in there...&quot; Her eyes widened as Owen’s hands slipped right past the towel covering her backside.</p>
 
 <p>He was almost reaching her most sensitive zone, right beneath her hips.</p>
 
-<p>&quot;Your body is sensitive down here, Mom. I can feel that you need some tension released around this position~&quot; He could feel her panicking; being touched down there was definitely crossing the line.</p>
+<p>&quot;Your body is sensitive down here, Mom. I can feel that you need some tension released around this position&quot; He could feel her panicking; being touched down there was definitely crossing the line.</p>
 
 <p>&quot;N-no... or I will really get angry...&quot; she spoke with an edge of seriousness, but it was deeply layered by her own wild, uninhibited thoughts.</p>
 

@@ -9,7 +9,7 @@ chapter = 12
 
 <p>Arielle was not dumb enough to miss what kind of topic they were entering... but because of her pent-up feelings, she wanted to explore such an obscene topic while she sat on top of Owen’s thighs... her freaking son’s!</p>
 
-<p>&quot;Ohoho, are you really that curious to know such stuff~? Your face is already crimson, my student Arielle~&quot;</p>
+<p>&quot;Ohoho, are you really that curious to know such stuff? Your face is already crimson, my student Arielle&quot;</p>
 
 <p>&quot;I-it’s the food I just ate, Teacher... Owen. It’s nothing significant for you to be concerned about...&quot; If Owen was shameless, then... she needed to become shameless, too.</p>
 
@@ -77,7 +77,7 @@ chapter = 12
 
 <p>’Ohh!!! Finally... hehe, learning fast is what I love the most,’ Owen thought, full of excitement. He was satisfied that he had finally achieved a breakthrough.</p>
 
-<p>&quot;Hehe... then let’s proceed! Look at this slutty body of yours... especially your stomach~&quot; Owen slid his fingers from her ass up to her stomach, forcing her body to quiver as it tickled her so much, even though she was wearing a dress and an apron!</p>
+<p>&quot;Hehe... then let’s proceed! Look at this slutty body of yours... especially your stomach&quot; Owen slid his fingers from her ass up to her stomach, forcing her body to quiver as it tickled her so much, even though she was wearing a dress and an apron!</p>
 
 <p>She was really getting played by her son, from her ass now to her stomach... he was even sniffing her tits when she hugged him!</p>
 

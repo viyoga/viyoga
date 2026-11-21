@@ -105,7 +105,7 @@ Before saying anything to Lilith, Lith went behind Qingyue and raised her hips u
 
 He then shoved his mouth on Qingyue's soft folds and tasting her honey, but onto her clit and sucked in some blood.
 
-"Ohhhh!~"
+"Ohhhh!"
 
 Qingyue had an instant orgasm and then lay flat on the ground.
 
@@ -135,9 +135,9 @@ He then held?Agalea's hand and instead of taking Lucifer and doing both of them 
 
 Both were suspended with this development and before they knew it, Emilia was lying on top of the Elf Queen.
 
-"Hi~?" Emilia smiled awkwardly and said as her face was really close to Agalea's while her breasts pressed onto hers.
+"Hi?" Emilia smiled awkwardly and said as her face was really close to Agalea's while her breasts pressed onto hers.
 
-"hello~~" Agalea said sweetly and smiled, not letting Emilia feel uncomfortable or awkward.
+"hello" Agalea said sweetly and smiled, not letting Emilia feel uncomfortable or awkward.
 
 Lith nodded in approval. Seggs together indeed did a good job bringing everyone closer.
 

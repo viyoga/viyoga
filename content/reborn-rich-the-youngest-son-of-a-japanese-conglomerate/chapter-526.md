@@ -16,7 +16,7 @@ chapter = 526
 <p>I thought there wouldn't be a class like this not only in St. Francisco Girls' Academy but also in high schools nationwide. Including boys' classes. So I wasn't worried at all about becoming the top team.</p>
 <p>,Let's just chill in the club room!"</p>
 <p>,Or how about that banquet hall we went to before?"</p>
-<p>,Let's go to sensei's house again~!"</p>
+<p>,Let's go to sensei's house again!"</p>
 <p>While the students were noisily making various suggestions, the door opened and the members of Seriph, wearing white t-shirts and red dolphin shorts, came in. Uenozono Karen seemed very moved, covering her mouth with both hands as she looked at the members.</p>
 <p>...With that level of acting, she could do acting after being an idol for a while, right? She knew the members were coming, but she was so naturally surprised. I was also surprised to see Uenozono Karen, so I was able to be surprised very naturally.</p>
 <p>The members of Seriph briefly cheered on Uenozono Karen and the special class in front of the podium and sat down in a place that had been prepared since when.</p>

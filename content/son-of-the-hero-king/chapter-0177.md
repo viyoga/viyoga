@@ -79,7 +79,7 @@ chapter = 177
 <p>“How was it?”</p>
 <p>“Ohh, you wouldn’t believe it! He was sooo dreamy! Like a prince!”</p>
 <p>“He is a prince.”</p>
-<p>“Hehehe~! I know. Still, he was very handsome and his aura was so gentle and warm and, and…”</p>
+<p>“Hehehe! I know. Still, he was very handsome and his aura was so gentle and warm and, and…”</p>
 <p>“Sheherazade, calm down.”</p>
 <p>Sitting on her bed, Isis gathered her legs under her and closed her eyes once again.</p>
 <p>Initially, she should have participated at the banquet, but she had refused. She did not wish to meet that so-called prince.</p>

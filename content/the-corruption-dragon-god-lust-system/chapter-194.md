@@ -73,7 +73,7 @@ chapter = 194
 
 <p>He didn’t want to offend Khaedryss with that.</p>
 
-<p>“Nghnn~~ Yes… thank you husband, I… I remember always dreaming of flying with the little purple,” Elize spoke as they parted, her face tinged with a deep blush.</p>
+<p>“Nghnn Yes… thank you husband, I… I remember always dreaming of flying with the little purple,” Elize spoke as they parted, her face tinged with a deep blush.</p>
 
 <p>Qingyi didn’t reply, just hugging her tightly as they climbed beyond the clouds.</p>
 

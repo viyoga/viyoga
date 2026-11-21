@@ -34,9 +34,9 @@ chapter = 396
 <p>"MasaMasa! What are you doing with your ear against the infirmary door!?"</p>
 <p>It's the voice of Seizawa Shii...! I covered Kijimoto Jurie's mouth. MasaMasa? It seemed like Ootawa Masato-sensei, who had come earlier, was listening to us having sex with his ear against the door. We've been doing it for quite a while, and he didn't even care that female students were passing by, and he was putting his ear against the infirmary? Isn't this guy crazy!?</p>
 <p>"Ah, it's nothing. I thought I heard a sound...."</p>
-<p>"Heuung.... Move aside~!"</p>
+<p>"Heuung.... Move aside!"</p>
 <p>Click click! Kijimoto Jurie had locked the door in advance, so the door wouldn't open. Whether there was a commotion outside or not, Kijimoto Jurie was twisting her ass and seeking pleasure.</p>
-<p>"The door's locked~! It seems Jurie-chan went somewhere else. I don't hear any sound?"</p>
+<p>"The door's locked! It seems Jurie-chan went somewhere else. I don't hear any sound?"</p>
 <p>Fortunately, I was covering Kijimoto Jurie's mouth, so it seemed like Seizawa Shii didn't hear anything. I, who had been stopped for a moment, also slowly shook my waist to match Kijimoto Jurie's rhythm.</p>
 <p>"And MasaMasa! If you put your ear against the door, you look like a pervert, so please don't do that? And.... Why are you crying?"</p>
 <p>While listening to Seizawa Shii scolding (?) Ootawa Masato, I started cumming deep inside Kijimoto Jurie.</p>
@@ -70,7 +70,7 @@ chapter = 396
 <p>Ootawa Masato put his ear against the infirmary door, not caring about the students passing by.</p>
 <p>- Haa... haa.... I can't take it anymore, Yamashiro-sensei. You have to take responsibility for making me like this.</p>
 <p>What is it? I think I heard a strange sound...? Did I hear it right? For a while, Ootawa Masato couldn't recognize reality. It was such a seductive voice that he wondered if it was really Kijimoto Jurie.</p>
-<p>-Heueeung...! Don't be mean~♥ Touch.... my body♥</p>
+<p>-Heueeung...! Don't be mean♥ Touch.... my body♥</p>
 <p>- Ttsuup...! Ttsuup...! Tsup!</p>
 <p>Following the voice full of charm and desire, a strange sound began to be heard. Ootawa Masato, who is still a virgin, heard a sound that he would know from watching AVs. It was the sound of sucking something! Of course, Ootawa Masato knew what that something was.</p>
 <p>-Aaaing...♥ Ryuta-nim's long and thick sausage, heueut! Feed it to Jurie's lower mouth!</p>
@@ -78,9 +78,9 @@ chapter = 396
 <p>"MasaMasa! What are you doing with your ear against the infirmary door!?"</p>
 <p>There was only one girl in the special class who called Ootawa Masato by that nickname. It was Seizawa Shii, one of the two delinquents of St. Francisco Girls' Academy. She was a student who attended school on her own terms, supported by the influence of the Seizawa family, which had produced a Prime Minister of Japan, and was someone most teachers feared and disliked.</p>
 <p>"Ah, it's nothing. I thought I heard a sound...."</p>
-<p>"Heuung.... Move aside~!"</p>
+<p>"Heuung.... Move aside!"</p>
 <p>Seizawa Shii listened to Ootawa Masato's not very believable excuse and pushed Ootawa Masato away from the infirmary door. Then, she put her ear against the infirmary door and started listening. She tilted her head as if she didn't hear anything, then grabbed the doorknob and turned it. Of course, Kijimoto Jurie had locked the door as soon as Ootawa Masato left, so the door wouldn't open.</p>
-<p>"The door's locked~! It seems Jurie-chan went somewhere else. I don't hear any sound?"</p>
+<p>"The door's locked! It seems Jurie-chan went somewhere else. I don't hear any sound?"</p>
 <p>Seizawa Shii, who was trying to open the door, put both hands on her waist and looked at Ootawa Masato. It was a look mixed with a slight contempt. She probably saw that Ootawa Masato was erect and the front of his pants was sticking out a little.</p>
 <p>"And MasaMasa! If you put your ear against the door, you look like a pervert, so please don't do that? And.... Why are you crying?"</p>
 <p>It seemed that tears were flowing without him even realizing it. Ootawa Masato wiped away the tears with his sleeve and shook his head.</p>

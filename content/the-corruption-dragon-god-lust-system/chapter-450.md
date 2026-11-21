@@ -31,7 +31,7 @@ chapter = 450
 
 <p>“Shouldn’t you be sharing me with your other sisters?”</p>
 
-<p>“Yeah, nghnn~~ but not now…” Feiyan leaned over Qingyi and pulled a lever on the side of the armchair; the backrest quickly lowered.</p>
+<p>“Yeah, nghnn but not now…” Feiyan leaned over Qingyi and pulled a lever on the side of the armchair; the backrest quickly lowered.</p>
 
 <p>“I need to punish a very… very… naughty hubby…” Feiyan lifted her hips, pulling down Qingyi’s pants.</p>
 
@@ -41,7 +41,7 @@ chapter = 450
 
 <p>Grabbing her own buttocks, she squeezed them around Qingyi’s cock, moving her knees and lifting her hips.</p>
 
-<p>“hubby loves this, doesn’t he? Nghnn~~” She asked, taking a moment before sitting back down, using her perfect, tanned ass to masturbate Qingyi.</p>
+<p>“hubby loves this, doesn’t he? Nghnn” She asked, taking a moment before sitting back down, using her perfect, tanned ass to masturbate Qingyi.</p>
 
 <p>“You know I do…” Qingyi smiled, relaxing and just enjoying the sensation.</p>
 
@@ -49,9 +49,9 @@ chapter = 450
 
 <p>It took her only a moment to find her rhythm, sitting on Qingyi’s cock with increasing force and speed. Soon, she couldn’t take it anymore. Her fingers went to Qingyi’s shoulders and she aligned her pussy with his cock.</p>
 
-<p>“Nghnn~~f-fuck!</p>
+<p>“Nghnnf-fuck!</p>
 
-<p>Aghnn~~ heavens…” Feiyan’s eyes widened as Qingyi’s cock pushed its way through her pussy, stopping only when it hit the walls of her womb.</p>
+<p>Aghnn heavens…” Feiyan’s eyes widened as Qingyi’s cock pushed its way through her pussy, stopping only when it hit the walls of her womb.</p>
 
 <p>She shuddered, her body briefly losing strength, her right hand flowing to her slim belly.</p>
 
@@ -59,7 +59,7 @@ chapter = 450
 
 <p>It was tight, too tight!</p>
 
-<p>“Oghnn~~ hubby’s delay in coming to see us made me so tight… fufufu~~” She purred sensually, her hands flowing to her own breasts and squeezing them hard.</p>
+<p>“Oghnn hubby’s delay in coming to see us made me so tight… fufufu” She purred sensually, her hands flowing to her own breasts and squeezing them hard.</p>
 
 <p>“Ah… if that’s the case, I might end up taking even longer next time.” Qingyi grabbed Feiyan’s hips and turned her around, changing positions.</p>
 
@@ -73,13 +73,13 @@ chapter = 450
 
 <p>Quite the contrary, she was excited to have her hubby fucking her in that position.</p>
 
-<p>“You better not dare to take too long again~~… or I’ll bite~~”</p>
+<p>“You better not dare to take too long again… or I’ll bite”</p>
 
 <p>Qingyi smiled, pulling his hips back. His cock slid out almost to the tip before he pushed it all the way back in again.</p>
 
 <p>A thick, elongated bulge ran across Feiyan’s slim belly, stopping only when the reddish, bulbous tip reached the tanned beauty’s womb.</p>
 
-<p>“Aghnn~~ hubby!~~”</p>
+<p>“Aghnn hubby!”</p>
 
 <p>Qingyi paused for a brief moment. He felt the tight, wet vaginal walls writhe around his cock, trying to extract every drop of his seed.</p>
 
@@ -91,7 +91,7 @@ chapter = 450
 
 <p>The bounce of those perfect tanned orbs of flesh became even more violent as Qingyi fucked her hard.</p>
 
-<p>“Aghnn~~ heavens…. fuck… oh heavens…” Feiyan moaned. “F-faster, hubby… fuck this pussy faster! Punish it for being a fat, tight, naughty pussy!”</p>
+<p>“Aghnn heavens…. fuck… oh heavens…” Feiyan moaned. “F-faster, hubby… fuck this pussy faster! Punish it for being a fat, tight, naughty pussy!”</p>
 
 <p>Qingyi, naturally, obeyed.</p>
 
@@ -107,7 +107,7 @@ chapter = 450
 
 <p>“Ah… let’s go see your sisters now, they must be almost done with dinner…” Qingyi smiled, depositing a soft kiss on Feiyan’s lips. His cock slipped out of her pussy with a wet pop, making way for his cum to leak out nonstop.</p>
 
-<p>“Mmm~~ let’s go, hubby~~” Feiyan smiled, slowly getting up, the river of semen running down her thick, soft thighs, forming a pool of semen on the floor beneath her.</p>
+<p>“Mmm let’s go, hubby” Feiyan smiled, slowly getting up, the river of semen running down her thick, soft thighs, forming a pool of semen on the floor beneath her.</p>
 
 <p>She ignored it, letting the fabric of her dress cover everything while walking with her usual sensual sway.</p>
 

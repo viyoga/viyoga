@@ -44,7 +44,7 @@ chapter = 1546
 <p>Kitsara blinked at her. Genuine confusion crossed her face, which was somehow worse than if she'd been smirking.</p>
 <p>"Hm? I didn't strip naked. My tail did."</p>
 <p>"... What?"</p>
-<p>"My tail projected the illusion remotely. I was fully clothed behind that boulder the entire time." Kitsara pointed at herself, still perfectly armored, not a clasp out of place. "Kitsara would never show off her lady parts on a battlefield. What if Quin saw it? He'd scold me for days. 'Kitsara, you are forbidden from showing your naked body to others, you're mine and mine alone, blah blah blah.' He gets so possessive~" She shivered with delight. "Which I utterly love, by the way."</p>
+<p>"My tail projected the illusion remotely. I was fully clothed behind that boulder the entire time." Kitsara pointed at herself, still perfectly armored, not a clasp out of place. "Kitsara would never show off her lady parts on a battlefield. What if Quin saw it? He'd scold me for days. 'Kitsara, you are forbidden from showing your naked body to others, you're mine and mine alone, blah blah blah.' He gets so possessive" She shivered with delight. "Which I utterly love, by the way."</p>
 <p>Vex stared at her.</p>
 <p>"So your only concern," Vex said slowly, "with creating a naked bushy bondage replica of an enemy general in the middle of a battlefield... is whether Hubby would be angry at you?"</p>
 <p>"Obviously? What other concern would there be?"</p>
@@ -52,7 +52,7 @@ chapter = 1546
 <p>The laughter came out of her in a burst she couldn't contain. She pressed a hand over her mouth and it didn't help at all, the giggles spilling through her fingers while her shoulders shook.</p>
 <p>Serika's mouth twitched. Then curved. Then she was smiling too, broad and helpless, because the foxkin was looking between them with those big, confused eyes, genuinely baffled by what was so funny, and that made it worse.</p>
 <p>"You're just as shameless as he is," Serika managed. "You deserve each other."</p>
-<p>"I'll take that as a compliment~"</p>
+<p>"I'll take that as a compliment"</p>
 <p>Then his voice rolled down from above.</p>
 <p>"Truly, my girls are far too amazing."</p>
 <p>All three of them looked up. Quinlan descended from the smoke-stained sky, the Soul Reaper already drawn, its edge pulsing with necrotic light. His gaze swept the basin, taking in the scorch marks, the scattered chain fragments, the aftermath of three fights that his women had won without him.</p>

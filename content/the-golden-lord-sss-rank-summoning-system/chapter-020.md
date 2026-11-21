@@ -24,9 +24,9 @@ chapter = 20
 <p>Without hesitation, he squeezed them firmly.</p>
 <p>They were soft, warm, and squishy, his fingers swallowed by the creamy, smooth skin of those fat, yet full and perfect tits.</p>
 <p>His hands moved a little further, to the division between the leather top and the tanned, perfect skin of her breasts.</p>
-<p>"H-hey,you should only touch, not— nghnn~~" Evelyn complained, but soon fell silent, panting heavily.</p>
+<p>"H-hey,you should only touch, not— nghnn" Evelyn complained, but soon fell silent, panting heavily.</p>
 <p>Ethan ignored her words. His hands entered the neckline, encapsulating as much as they could of those soft, incomparable mountains.</p>
-<p>"Nghnn~~ F-five seconds..." Evelyn counted.</p>
+<p>"Nghnn F-five seconds..." Evelyn counted.</p>
 <p>Why the hell was time taking so long to pass?</p>
 <p>With a little force, Ethan pulled her breasts out of her tight top, her pointed nipples hardening in the cool air.</p>
 <p>The pale skin, untouched by the sun, was fully revealed, marked by a perfect line separating the white from the golden tan.</p>
@@ -35,7 +35,7 @@ chapter = 20
 <p>His palms and fingertips felt like they were in paradise.</p>
 <p>"G-gentler, you—" Evelyn gasped as she felt his fingers squeezing her soft nipples, her whole body trembling.</p>
 <p>Unfortunately, all good things must come to an end.</p>
-<p>"Aghnn~~ 0!" She finally finished counting and lifted her torso.</p>
+<p>"Aghnn 0!" She finally finished counting and lifted her torso.</p>
 <p>Her breasts escaped Ethan’s greedy grip, bouncing against her body and swaying violently before calming down.</p>
 <p>She hugged her own chest, turning her flushed face away.</p>
 <p>"You want to get off me now?" Ethan was unable to hide an honest chuckle, his cock already throbbing with full force against the cameltoe formed by Evelyn’s plump pussy.</p>

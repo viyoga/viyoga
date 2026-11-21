@@ -7,9 +7,9 @@ chapter = 505
 
 <p>"Kurayamada-sensei's teaching internship is over, so today will be her last day until this morning."</p>
 <p>Morning assembly. I informed the students of Kurayamada Kirie's resignation.</p>
-<p>"Kirie-chan, we'll miss you~!!"</p>
+<p>"Kirie-chan, we'll miss you!!"</p>
 <p>"We'll miss you, sensei."</p>
-<p>"Thank you for your hard work~!"</p>
+<p>"Thank you for your hard work!"</p>
 <p>The students each expressed their regret over Kurayamada Kirie's departure. Kurayamada Kirie is usually so taciturn. Seeing them so sad, it seems she took good care of the students in her own way. She even stepped up to save the students during the academy terror attack, so they must like her even more.</p>
 <p>I watched Kurayamada Kirie and the students talking with a slightly pleased expression. Whatever their personalities, they were all beautiful women, so the scene of them talking was quite picturesque. Everyone expressed their regret, but no students were crying. They're sad, but not close enough to cry, huh?</p>
 <p>The conversation between Kurayamada Kirie and the students didn't end until the class bell rang. After the bell rang, I dragged Kurayamada Kirie back to the education preparation room with me.</p>
@@ -67,6 +67,6 @@ chapter = 505
 <p>-----</p>
 <p>Introducing the characters following yesterday, B-cut!</p>
 <p>Jinmija Yeosa. I made it with a new model hehe</p>
-<p>Cherry-chan~!</p>
+<p>Cherry-chan!</p>
 <p>Lianna Holden</p>
 <p>Otagi Yuka!</p>

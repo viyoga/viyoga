@@ -61,7 +61,7 @@ chapter = 216
 <p>The girls nodded enthusiastically at those words and soon returned to training, redoubling their efforts.</p>
 <p>Sighing, Ophelia returned to Ethan’s side. He didn’t waste a single second.</p>
 <p>Powerful hands seized her wide hips before sliding up, gliding over the curve of her thin waist and finally cupping one of her huge breasts from below, lifting its weight against his palm as his fingers sank into the soft, creamy flesh.</p>
-<p>"Nghnn~ won’t you ever get tired of them? My lord..." she asked, blushing, her voice trembling between protest and invitation.</p>
+<p>"Nghnn won’t you ever get tired of them? My lord..." she asked, blushing, her voice trembling between protest and invitation.</p>
 <p>"No... and before your lord, I am your husband." Ethan leaned over Ophelia, claiming her lips in a possessive kiss as they left the hall together, heading toward his office.</p>
 <p>Ophelia only blushed deeper.</p>
 <p>It was strange.</p>

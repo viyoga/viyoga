@@ -8,11 +8,11 @@ chapter = 378
 <p>Both Nefertiti and Isis were excited beyond what mere words could convey. They had watched breathlessly as Sol took down the others one after another with his expert lovemaking, oh so impatiently waiting for their turn to arrive.</p>
 <p>Nefertiti, more than anything, could feel her whole body, each and every cell of her being, vibrating in anticipation for that single moment. She wanted to unite with Sol so much that she felt like she could literally die from the mere need to feel him inside her.</p>
 <p>Only when she was with him could she feel like she was truly whole.</p>
-<p>“Nnnah~…”</p>
-<p>“Ahh~…”</p>
+<p>“Nnnah…”</p>
+<p>“Ahh…”</p>
 <p>Sol embraced both their bodies with his strong arms, almost taking their breaths away, and reached his nimble hands toward their hips.</p>
 <p>He grabbed both Isis’ tight derriere and Nefertiti’s slim yet supple ass and powerfully kneaded them to his heart’s desire.</p>
-<p>“My Lord~!”</p>
+<p>“My Lord!”</p>
 <p>Nefertiti felt as though she was melting as Sol began to kiss her with passionate ardor. She did not put up much resistance to his advances. She would delightfully let him do whatever he wanted to do with her body, with every bit of her being, for she was all his to use as he wished.</p>
 <p>Their lips seemed to be glued together and things progressed much faster now that he could focus on just one of the two girls instead of the team of five they had formed at the start.</p>
 <p>Isis could not keep her eyes off this debauched sight of intense embrace between the two lovers.</p>
@@ -44,7 +44,7 @@ chapter = 378
 <p>Nefertiti realized she was pushing her hips in toward Sol’s face. The look on her face as her eyebrows bent in embarrassment was so seductive that Isis gasped in shock and debauched delight.</p>
 <p>Sol felt her flesh squeezing on the tip of his tongue inside her quivering slit. The way the ridges of her nectary flesh spread outwards was an obvious sign to someone who had made her cum oh so many times before. Too many to count.</p>
 <p>He sent his tongue even deeper inside while also attacking her swollen clitoris with the ridge of his nose. There was no escape for Nefertiti.</p>
-<p>“Sol~!”</p>
+<p>“Sol!”</p>
 <p>The torrent of pleasure crawling throughout her body led her to call his name in the end. This was such a surprise coming from her, someone had wholeheartedly devoted herself as his most faithful servant, but she could not even care about this.</p>
 <p>With that quick moan, her body began to convulse. She arched her back and her tits bounced up and down from her jerky movements. Warm fluid sprayed from deep within her blossomed young slit.</p>
 <p>Once he was finished with Nefertiti, Sol wiped away her juices, splattered across his face, with his flames of judgment, and turned to face Isis.</p>
@@ -79,11 +79,11 @@ chapter = 378
 <p>She was normally so arrogant, but every little thing she did grew so cute at times like this. He had not forgotten about Nefertiti, of course. She was not the type to make her presence known, but right now her pleasant internal flesh was massaging his dick and constantly begging for his attention. So, it was hard to not notice her.</p>
 <p>Nefertiti’s beauty was one that transcended gender so Isis could not keep her eyes off her horny behavior, but when she felt something poking against her thighs, she looked back with damp eyes, brimming with misty notes of ecstasy.</p>
 <p>He approached the hungrily wiggling butt and pressed his tip against the flesh petals.</p>
-<p>“Ahh~!”</p>
+<p>“Ahh!”</p>
 <p>After being made to wait for so long, her butt bounced happily just from the touch of the hot penis head.</p>
 <p>Even though this was only her second time, her vagina swallowed Sol’s member surprisingly smoothly. His dick was not even fully inside her, but she had apparently already lightly climaxed. The surface of his penis felt the entire cave throbbing with orgasmic pleasure.</p>
 <p>When he grabbed her hips and moved his own hips, his penis rubbed against her inner flesh, producing a wet sound and filling his crotch with a pleasant tingling.</p>
-<p>“Ahn~... H-having sex in this pose is so embarrassing.”</p>
+<p>“Ahn... H-having sex in this pose is so embarrassing.”</p>
 <p>The shaking of her head was belied by the sweetness in her voice.</p>
 <p>He could tell she was into it, so he kept his hips moving to pound her from behind. With each thrust, the tits bared from her swimsuit jiggled undulatingly.</p>
 <p>That provocative scene lit a fire of arousal inside the boy.</p>

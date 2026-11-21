@@ -141,7 +141,7 @@ Meanwhile, Lith was fully naked. His body was lean and muscular, the peak of mal
 
 Lith was indeed right as Fei's gaze lingered on Lith's sharp abs and chest muscles. He looked like a delicious piece of meat that should be devoured! Immediately! At once!
 
-"Hnngghhh~"
+"Hnngghhh"
 
 Fei's gluttonous thoughts collapsed as Lith spread her legs apart and directly sucked on her clit.
 

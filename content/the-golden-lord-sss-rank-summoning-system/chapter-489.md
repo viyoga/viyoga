@@ -39,7 +39,7 @@ chapter = 489
 <p>Then she gathered her black hair with both hands, pulling it all back and tying the strands.</p>
 <p>As she raised her arms, the fabric of her white top pulled tight, stretching over those perfect, heavy tits.</p>
 <p>“Hmm… gold, silver, or diamonds?” Ethan smiled back, admiring her curves and feeling the weight of her body on his lap.</p>
-<p>“No. Milk, fufufu~” The beautiful Chinese-American milf replied with a sweet giggle, already sliding off Ethan’s lap.</p>
+<p>“No. Milk, fufufu” The beautiful Chinese-American milf replied with a sweet giggle, already sliding off Ethan’s lap.</p>
 <p>She knelt between his legs with her thick thighs spread wide, her ass settling onto her heels.</p>
 <p>With a wave of her hand and a gentle spell, the white top vanished from her body. Her large tits sprang free all at once, dropping with a soft bounce. They swayed slowly from side to side, knocking against each other with a muffled pop before finally coming to a stop.</p>
 <p>Ethan swallowed hard, and his cock throbbed strongly inside his pants.</p>

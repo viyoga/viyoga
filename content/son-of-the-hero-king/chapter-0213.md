@@ -5,7 +5,7 @@ weight = 213
 chapter = 213
 +++
 
-<p>“Nn~! Ah~!”</p>
+<p>“Nn! Ah!”</p>
 <p>In a luxurious bedroom, an erotic scene could be witnessed while the moans of a woman echoed in the enclosed walls.</p>
 <p>Lying down on the bed and watching the sexy mature woman jumping up and down on him, Sol leaned forward and suckled on her breasts, prompting her to moan louder.</p>
 <p>The woman, Nent, feeling his shaft enlarge in her, knew that it was about time and began to accelerate until she felt him explode in her. The feeling of heat spreading through her was out of this world and she was really thankful to have taught him that spell that would eliminate all chances of her getting pregnant. Otherwise, she wouldn’t be able to feel such bliss.</p>

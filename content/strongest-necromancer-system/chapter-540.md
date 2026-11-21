@@ -18,7 +18,7 @@ chapter = 540
 <p>Rei raised a brow in confusion when she heard this, and it only took her a moment to realise that she was still holding Haruto’s hand! Rei pulled back as she had just been burned, and she quickly began to wave her hands at James!</p>
 <p>"N-No! It’s not like that! H-Haruto was just scared! Yeah, he was scared, and I was holding him to help him calm down!"</p>
 <p>Haruto looked at Rei in utter disbelief, and Rei looked away and stared at the floor with an embarrassed blush! Rei couldn’t say she had been scared in front of James! It would ruin her image! James just nodded in understanding after hearing what Rei said and he told them both to go get some rest before he walked over to some newcomers who had also just arrived. Rei glanced at Haruto once James left, only to see that he was staring right down at her in utter disbelief!</p>
-<p>"So I was scared huhhhh~?"</p>
+<p>"So I was scared huhhhh?"</p>
 <p>Rei squeaked and took a step back before she quickly tried to apologise!</p>
 <p>"S-Sorry, I just panicked, and James was there, so I didn’t know what to do! Uhm, I’ll buy you some soda when we get back to the institute as an apology —"</p>
 <p>PHWOOM!</p>

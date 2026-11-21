@@ -5,7 +5,7 @@ weight = 457
 chapter = 457
 +++
 
-<p>"Lisa-tan~! Hurry up and spray the perfume Ryuta-cchi gave you!"</p>
+<p>"Lisa-tan! Hurry up and spray the perfume Ryuta-cchi gave you!"</p>
 <p>Seizawa Shii, who had just gotten a melon soda from the drink bar at a family restaurant near St. Francisco Girls' Academy, plopped down in her seat and urged Minamoto Risa.</p>
 <p>"I get it, just stop."</p>
 <p>Seizawa Shii had been nagging her since they left school to spray the perfume she received as a gift from her homeroom teacher, Yamashiro Ryuta, so Minamoto Risa sighed as if defeated and took a box out of her bag. The box had the logo of the luxury brand Légion on it.</p>
@@ -16,20 +16,20 @@ chapter = 457
 <p>Giving a cyber implant to a female student attending St. Francisco Girls' Academy and sponsoring her living expenses would be quite expensive. But she remembered that Yamashiro Ryuta didn't seem too burdened. Even when he gave the perfume as a gift this time, he didn't seem to be regretting the money.</p>
 <p>"That's true. Now that I think about it, his house seems close to our school too.... Is the Yamashiro family surprisingly rich?"</p>
 <p>Due to the characteristic of Miyashi's housing prices becoming more expensive the closer they are to St. Francisco Girls' Academy, the house Yamashiro Ryuta currently lives in must be quite expensive. Seizawa Shii had seen the house (having met him a few times while going to the laundromat) and realized that Yamashiro Ryuta had a certain amount of wealth.</p>
-<p>"For now, let's not think about Ryuta-cchi's money and just spray the perfume~!"</p>
+<p>"For now, let's not think about Ryuta-cchi's money and just spray the perfume!"</p>
 <p>"Okay."</p>
 <p>At Seizawa Shii's urging, Minamoto Risa opened the box and found a bottle filled with rose gold-colored liquid.</p>
-<p>"Wow, did he match it to Lisa-tan's hair color? The perfume color is so pretty~!"</p>
+<p>"Wow, did he match it to Lisa-tan's hair color? The perfume color is so pretty!"</p>
 <p>"I'll spray it."</p>
 <p>Minamoto Risa lightly sprayed the custom-made perfume on her wrist. The top notes of cherry blossoms and roses mixed with the sweet amber base notes created a fragrance that suited Minamoto Risa well. Seizawa Shii inhaled Minamoto Risa's fragrance as if she were a perverted old man.</p>
-<p>"Heeeung~!"</p>
+<p>"Heeeung!"</p>
 <p>"Hey, Shii-chan. Stop it. You're inhaling the scent too much...!"</p>
-<p>"Ehhh!? It really smells like a fragrance that suits Lisa-tan? Ah~! I should have asked him to buy me perfume instead of useless autographs!"</p>
+<p>"Ehhh!? It really smells like a fragrance that suits Lisa-tan? Ah! I should have asked him to buy me perfume instead of useless autographs!"</p>
 <p>Seizawa Shii's plan to demand something more intense(?) from Yamashiro Ryuta under the pretext that it would be too difficult to get the autographs of Hollywood celebrities over the weekend had failed. She didn't expect Yamashiro Ryuta to actually get the autographs of Hollywood actors.</p>
 <p>"Does Lisa-tan like it?"</p>
 <p>"...Yeah, it's not bad."</p>
 <p>The scent wafting around her nose was quite pleasing, but Minamoto Risa didn't show it much and nodded. However, Seizawa Shii had been close friends with Minamoto Risa for many years, so she knew that Minamoto Risa liked the perfume quite a bit.</p>
-<p>"Heung~☆"</p>
+<p>"Heung☆"</p>
 <p>"Don't look at me with those strange eyes. I just like the scent."</p>
 <p>Seizawa Shii smiled playfully at Minamoto Risa, who was feigning indifference, before becoming serious and opening her mouth.</p>
 <p>"Lisa-tan. Don't overlap Ryuta-cchi with your former homeroom teacher too much. Your former homeroom teacher was definitely a terrible person, but Ryuta-cchi isn't that bad. He's just a bit of a pervert, though."</p>

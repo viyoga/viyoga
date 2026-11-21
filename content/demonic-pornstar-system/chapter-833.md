@@ -51,7 +51,7 @@ chapter = 833
 <p>Luna tore through the clothing pile screaming about her panties, flinging a boot that hit the wall and a top that turned out to not be hers.</p>
 <p>No one knew how she could possibly mistake those for hers, considering the size difference.</p>
 <p>"Has anyone seen my..." She held up something lacy and red. "Whose is this?! What kind of a shameless bitch would- Calypso."</p>
-<p>"Yep~" Calypso plucked it from her fingers without breaking stride.</p>
+<p>"Yep" Calypso plucked it from her fingers without breaking stride.</p>
 <p>[Phase Time Remaining: 0:41.]</p>
 <p>Aria bent to grab her boot and collided shoulder-first with Nyx reaching for the same pile, bare skin meeting bare skin with a wet slap that made Luna cackle from across the room despite her ongoing crisis.</p>
 <p>Bastet stepped over Luna with feline grace, and Luna grabbed her tail and lifted it. "Nya?!"</p>

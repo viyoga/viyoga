@@ -17,7 +17,7 @@ chapter = 996
 <p>"MMMMMHHH!"</p>
 <p>Gina began to shake like a vibrator, and she moaned into Jason’s mouth as she came hard! Jason tightened his grip around her body and held her tight to make sure she couldn’t go anywhere, and even while she was coming, Jason continued to fuck her hard! Gina sank her nails into Jason’s back as Jason slammed into the same spot over and over again! It felt like Jason was forcing Gina to continue coming with each thrust, and Gina felt like she was about to lose her fucking mind! Jason suddenly pulled back from their kiss, and he grunted as he felt his own orgasm coming, and Jason cursed as he slammed into Gina one last time and released into her!</p>
 <p>"Ugh!"</p>
-<p>"OOOHHHH~!"</p>
+<p>"OOOHHHH!"</p>
 <p>Gina threw her head back and moaned as she felt Jason’s warmth spreading through her core, and she hugged Jason’s head tight against her chest as she slowly rode Jason to try and milk everything out of him! Jason and Gina were breathing heavily, and they simply stayed in each other’s arms as they enjoyed the afterglow of their lovemaking.</p>
 <p>"I feel like you got me pregnant all over again."</p>
 <p>Gina suddenly spoke up in a breathless tone, and Jason chuckled softly as he placed a kiss between Gina’s breasts. Riyala came around and hugged Jason from behind, and she kissed Jason’s neck before she whispered to him softly.</p>

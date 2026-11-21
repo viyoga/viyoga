@@ -65,7 +65,7 @@ chapter = 528
 
 <p>“That was three years ago, Mom, I was no longer a child…” Meilin looked away, blushing softly.</p>
 
-<p>“Hm… you’re still like a little baby who just learned to walk to me! You always will be, fufufu~~,” Yunfeng laughed, finally sensing Meilin’s Qi. Her eyes widened and she took a step back in shock. How had Meilin advanced so much in such a short time?</p>
+<p>“Hm… you’re still like a little baby who just learned to walk to me! You always will be, fufufu,” Yunfeng laughed, finally sensing Meilin’s Qi. Her eyes widened and she took a step back in shock. How had Meilin advanced so much in such a short time?</p>
 
 <p>The porcelain beauty needed only a moment to understand what her mother was thinking, turning her face to Qingyi.</p>
 

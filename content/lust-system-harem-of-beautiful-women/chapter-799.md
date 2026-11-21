@@ -31,7 +31,7 @@ chapter = 799
 
 <p>She kept saying she was fine, but she was still walking a bit unsteadily. Luis felt sorry for her and didn’t rush things.</p>
 
-<p>&quot;Brother-in-law, I’ll come over earlier next week~&quot;</p>
+<p>&quot;Brother-in-law, I’ll come over earlier next week&quot;</p>
 
 <p>When he dropped her off at home, Ariana’s face was glowing, her eyes full of reluctance.</p>
 
@@ -39,7 +39,7 @@ chapter = 799
 
 <p>He’d pulled down her panties, had her kneel on the back seat, and licked her hairless, pink little pussy until she’d cum twice in bliss.</p>
 
-<p>&quot;Don’t worry, I might be even more eager than you~&quot;</p>
+<p>&quot;Don’t worry, I might be even more eager than you&quot;</p>
 
 <p>Luis said with a wicked grin.</p>
 

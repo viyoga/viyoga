@@ -5,7 +5,7 @@ weight = 116
 chapter = 116
 +++
 
-<p>'Mmm~ it feels so good...' Natasha bit her lip as sparks ran through her body from just his fingers on her shoulders. 'Just a touch and I'm already like this.'</p>
+<p>'Mmm it feels so good...' Natasha bit her lip as sparks ran through her body from just his fingers on her shoulders. 'Just a touch and I'm already like this.'</p>
 <p>'How desperate have I become?' She buried her face deeper into the pillow, feeling her nipples harden and press against the mattress beneath her.</p>
 <p>Gulp!</p>
 <p>Dante swallowed hard as her tits shifted with every breath, the soft flesh bulging out from under her arms. His throat went dry just looking at them. 'Carrying those two huge things around must be killing her back for real.'</p>

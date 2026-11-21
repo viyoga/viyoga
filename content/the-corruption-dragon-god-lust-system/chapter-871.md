@@ -5,7 +5,7 @@ weight = 871
 chapter = 871
 +++
 
-<p>"Ah~ thanks for breakfast, hubby!" Akane-sama declared, releasing Qingyi’s cock from her mouth with a wet pop.</p>
+<p>"Ah thanks for breakfast, hubby!" Akane-sama declared, releasing Qingyi’s cock from her mouth with a wet pop.</p>
 
 <p>Her tongue slowly glided over her full, red lips, gathering the last traces of cum that still clung to them.</p>
 
@@ -95,7 +95,7 @@ chapter = 871
 
 <p>She wrapped Auranys in a tight embrace, taking care only not to knock Lingxi off the blonde goddess’s shoulder.</p>
 
-<p>"Mghnn~~ I missed you so much, Auranys-sama... I thought you were dead, you know? I was really sad—I even thought about taking revenge, but you turned it all down!" Akane pouted, stepping back a little to look at her friend’s face, her eyes then drifting down until they rested on Lingxi.</p>
+<p>"Mghnn I missed you so much, Auranys-sama... I thought you were dead, you know? I was really sad—I even thought about taking revenge, but you turned it all down!" Akane pouted, stepping back a little to look at her friend’s face, her eyes then drifting down until they rested on Lingxi.</p>
 
 <p>The adorable baby’s beautiful little eyes narrowed, slowly sliding from Akane’s face down to her milk deposits.</p>
 

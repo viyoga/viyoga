@@ -55,8 +55,8 @@ chapter = 85
 <p>,Haeum♥'</p>
 <p>I cummed inside Han Yu-gyeong as it was, and collapsed on Han Yu-gyeong in the missionary position.</p>
 <p>,It felt good, Yong-tae-ya♥'</p>
-<p>Han Yu-gyeong stroked my back, saying,You did well~' with an expression that showed her favorability had increased as much as possible. It was clear that Han Yu-gyeong would be heavy if I kept being on top of her, so I rolled over and lay down next to Han Yu-gyeong. Accordingly, my dick naturally came out of Han Yu-gyeong's pussy. Because I had done it five times in a row, my dick was small after cumming.</p>
-<p>,Heehee, it came out♡ Now give me a pillow arm~.'</p>
+<p>Han Yu-gyeong stroked my back, saying,You did well' with an expression that showed her favorability had increased as much as possible. It was clear that Han Yu-gyeong would be heavy if I kept being on top of her, so I rolled over and lay down next to Han Yu-gyeong. Accordingly, my dick naturally came out of Han Yu-gyeong's pussy. Because I had done it five times in a row, my dick was small after cumming.</p>
+<p>,Heehee, it came out♡ Now give me a pillow arm.'</p>
 <p>Han Yu-gyeong laughed as if it was fun when my dick popped out. When I lay down silently and stretched out my arm, Han Yu-gyeong hugged me and leaned her head on my arm. I naturally caressed Han Yu-gyeong's breasts with my other arm. Hmm... soft things give a sense of stability after all.</p>
 <p>,Ah, you said you had something to do when you saw me back then. What is it?'</p>
 <p>Ah, right. I need to solve one of the purposes of coming here. I said, ,Just a moment,' and got up and took out something I had brought from my luggage.</p>

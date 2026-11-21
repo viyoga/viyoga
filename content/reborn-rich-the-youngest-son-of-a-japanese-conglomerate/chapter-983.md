@@ -67,12 +67,12 @@ chapter = 983
 <p>Taira Shizuku said casually. She seemed to have prepared something to Help her Grandson Taira Ryuta, not Taira Yukiko.</p>
 <p>Taira Yukiko muttered, 'Thank you,' so softly that it was barely audible, and was about to leave the garden when a Maid held out a UCT (Universal Connection Terminal). There seemed to be some useful Information contained in this UCT.</p>
 <p>Even if she was the mistress of the Taira Family without much real Power, she would have something useful as long as she was the mistress of the Taira Family. Taira Yukiko hoped that the UCT she received from Taira Shizuku would be useful to Taira Ryuta, put the UCT in her pocket, and left the garden.</p>
-<p>Nagumo Sian wearing sexy lingerie and Kanna being happy, requested by MidNightSKY-nim~!</p>
-<p>Nagumo Sian~!</p>
-<p>Kanna~!</p>
-<p>Kisa covering her breasts and Tape, requested by Gojoy-nim~!</p>
-<p>Tape~!</p>
-<p>Breast covering~!</p>
+<p>Nagumo Sian wearing sexy lingerie and Kanna being happy, requested by MidNightSKY-nim!</p>
+<p>Nagumo Sian!</p>
+<p>Kanna!</p>
+<p>Kisa covering her breasts and Tape, requested by Gojoy-nim!</p>
+<p>Tape!</p>
+<p>Breast covering!</p>
 <p>Kijimoto Jurie Chapter 342 Remake requested by TheDreaming-nim 1. Raincoat 2. Naked body</p>
 <p>1.</p>
 <p>2.</p>

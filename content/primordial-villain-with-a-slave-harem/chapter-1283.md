@@ -27,7 +27,7 @@ chapter = 1283
 <p>This said a lot about Raika's perceived understanding of Orianna's temper.</p>
 <p>Vex wasn't nearly as alarmed. She huffed, planted two hands on her hip, and asked, "Can you blame us? You're almost four hundred years old, and the last time I checked, you didn't have any friends except me and Raika."</p>
 <p>Orianna rolled her eyes. "You are not my friends, you're my colleagues. I do not associate with crazy willingly."</p>
-<p>"Thanks, big sis. I love you too~" Vex purred with a vein visibly throbbing on her forehead.</p>
+<p>"Thanks, big sis. I love you too" Vex purred with a vein visibly throbbing on her forehead.</p>
 <p>Warmth seeped into the reunion, even through the dryness, the barbs, the bruises, the stoic faces. It felt like the four of them had simply stepped back into place, as if nothing had ever pulled them apart.</p>
 <p>"What friend?" Black Fang asked. Quinlan found even such a simple gesture from the woman to be extraordinary. She never asked personal questions like this, showing that the relationship between her and Orianna seemed to be deep.</p>
 <p>Both Ayame and he found it more than reasonable, however, as Vex was around two hundred years old, Raika one hundred fifty, but then Orianna was pushing four hundred, and Black Fang was just barely over it, making the two of them nearly the same age.</p>
@@ -50,4 +50,4 @@ chapter = 1283
 <p>"Yes way." Vex puffed her chest with full, glowing pride. "My primordial Hubby's Blessed Seed met with the bark of a Geim tree, and our daughter was born!"</p>
 <p>She said it like she was announcing the rise of a new empire.</p>
 <p>Hearing that, with a samurai who tried and failed to silence her amused laughter behind him, Quinlan finally stepped forward. He reached out and planted his palm on the white-haired beauty's thick hair, pressing down in a firm, scolding pat.</p>
-<p>"Ah!" Vex let out a sharp, startled yelp. Or at least she pretended to. Because in the next moment, her head snapped in his direction, and with glinting red eyes that were far too mesmerizing, she mused, "I wondered how long you'd stay there. You know it's bad form to spy on four ladies~? Aren't you a self-proclaimed 'certified gentleman'~?"</p>
+<p>"Ah!" Vex let out a sharp, startled yelp. Or at least she pretended to. Because in the next moment, her head snapped in his direction, and with glinting red eyes that were far too mesmerizing, she mused, "I wondered how long you'd stay there. You know it's bad form to spy on four ladies? Aren't you a self-proclaimed 'certified gentleman'?"</p>

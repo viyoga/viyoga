@@ -31,7 +31,7 @@ Dennis put his finger down. "Sorry."
 
 Lith smiled. "No worries, we're all friends." He then walked close to Alea and holding her hand, introduced, "Alea, that is Dennis. And Dennis, this is Alea."
 
-"hello~" Alea said with a happy smile.
+"hello" Alea said with a happy smile.
 
 Dennis did a curtsy bow and said in a more formal speech, "Greetings."
 

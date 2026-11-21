@@ -15,13 +15,13 @@ chapter = 861
 <p>Even the younger Students from other grades liked Taira Ryuta, as she had heard in the Cheongsim Hall, where she served as an advisor. I heard he even had two Fan Clubs.</p>
 <p>"By the time you're in 3rd grade, there's nothing left for me to teach, is there?"</p>
 <p>Shimokawabe Airen, looking at the Students, asked with a Smile. From 1st year of middle school to 3rd year of high school, they had been making chocolate for several days every Valentine's Day season, so the graduating Female Students of St. Francis Girls' Academy could almost be called chocolate pâtissiers without exaggeration.</p>
-<p>"Me, please look at me~!"</p>
+<p>"Me, please look at me!"</p>
 <p>"I forgot!"</p>
-<p>"This year, we have to make it perfect, so please help us, Teacher-nim~!"</p>
+<p>"This year, we have to make it perfect, so please help us, Teacher-nim!"</p>
 <p>The chocolates they had given to their Family until now were so-called 'Giri Choco' (obligation chocolates), but this year, they had to make 'Honmei Choco' (true feelings chocolates), so they had to make them more thoroughly than ever before. So the Students, like 1st-year middle schoolers, asked Shimokawabe Airen for help, raising their Hands.</p>
 <p>"I'll look at each of you one by one, so let's start slowly. Anyway, the 14th is Valentine's Day, so today, you can just make them for Practice, right?"</p>
 <p>Since there were about Five days left until Valentine's Day, there was no sense of urgency.</p>
-<p>"The ones I Practice until Thursday, I'm going to give to dad~!"</p>
+<p>"The ones I Practice until Thursday, I'm going to give to dad!"</p>
 <p>At the Words of one of the St. Francis Girls' Academy Students, everyone seemed to agree, and sounds of them saying "That's right, that's right" were heard. Shimokawabe Airen felt pity for the Students' Fathers who would be delighted to receive Practice chocolates as a gift, but she couldn't scold youths for whom love was the top priority.</p>
 <p>"Then, shall we start today by Reviewing first? First, cocoa butter and...."</p>
 <p>Everything Shimokawabe Airen explained (except for Urabe Konoka, who transferred in the middle of the semester) was already known, but to make perfect chocolate, as quiet as a dead Mouse, they concentrated on Shimokawabe Airen's Words.</p>
@@ -63,9 +63,9 @@ chapter = 861
 <p>Seiwa Rieko's Delusion of persecution grew larger and larger. After Winter passed, and Spring, preceding Graduation from St. Francis Girls' Academy, approached, a Letter arrived.</p>
 <p>The sender of the Letter was Shido Tsubaki, the Club President of the Newspaper Department, who had provided the Cause for Seiwa Rieko's dropout.</p>
 <p>___________</p>
-<p>Requested by Gojoy-nim: Shido Tsubaki's usual Attire and underwear~!</p>
-<p>Usual Attire~!</p>
-<p>Underwear~!</p>
-<p>Requested by TheDreaming-nim: Exposure Situation at the Vivian Taylor Museum~!</p>
-<p>Eyes closed, Forced Smile~!</p>
-<p>Eyes open, phone camera version~!</p>
+<p>Requested by Gojoy-nim: Shido Tsubaki's usual Attire and underwear!</p>
+<p>Usual Attire!</p>
+<p>Underwear!</p>
+<p>Requested by TheDreaming-nim: Exposure Situation at the Vivian Taylor Museum!</p>
+<p>Eyes closed, Forced Smile!</p>
+<p>Eyes open, phone camera version!</p>

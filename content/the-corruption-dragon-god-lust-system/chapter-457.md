@@ -19,7 +19,7 @@ chapter = 457
 
 <p>Qingyi captured one of her nipples, sealing it in a deep kiss and sucking voraciously.</p>
 
-<p>“Mghnnn~~”</p>
+<p>“Mghnnn”</p>
 
 <p>Sapphire moaned again, clutching Qingyi’s black hair. She looked up at Celestia, who was still praying silently, seemingly unaware of what was happening a few feet away.</p>
 
@@ -45,7 +45,7 @@ chapter = 457
 
 <p>Her body was burning. Her pussy throbbed with desire, begging for his touch.</p>
 
-<p>“Do you… aghnn~~ really think you have what it takes?” Sapphire asked, panting.</p>
+<p>“Do you… aghnn really think you have what it takes?” Sapphire asked, panting.</p>
 
 <p>“To take you both as my wives?” Qingyi smiled.</p>
 
@@ -53,7 +53,7 @@ chapter = 457
 
 <p>He hovered there for a brief moment before finally kissing her. He took her first kiss, feeling the blue-haired beauty respond awkwardly, her tongue wrapping around his.</p>
 
-<p>“You… nghnnn~~ perverted dragon…” Aeryn moaned beside Sapphire, her face blushing even more.</p>
+<p>“You… nghnnn perverted dragon…” Aeryn moaned beside Sapphire, her face blushing even more.</p>
 
 <p>Her robe had torn right over her crotch. She could feel, with only the fabric of Qingyi’s pants separating them, the bulge pressing against her plump, perfect pussy, which was already soaking his clothes.</p>
 
@@ -65,7 +65,7 @@ chapter = 457
 
 <p>Still, her fingers sank into Qingyi’s pants, reaching for his cock and squeezing.</p>
 
-<p>“So… nghnnn~~ big…” Aeryn murmured, panting heavily as her long, delicate fingers clung around the huge girth.</p>
+<p>“So… nghnnn big…” Aeryn murmured, panting heavily as her long, delicate fingers clung around the huge girth.</p>
 
 <p>It was wet, hot, and throbbing.</p>
 
@@ -83,7 +83,7 @@ chapter = 457
 
 <p>Qingyi watched the two of them, panting in his arms. The creamy, soft skin of their hips was stuck together with sweat, their pussies equally wet.</p>
 
-<p>“Nghnn~~ what are you planning, huh? You… womanizing scoundrel… you… incubus…”</p>
+<p>“Nghnn what are you planning, huh? You… womanizing scoundrel… you… incubus…”</p>
 
 <p>“I’m going to fuck you both,” Qingyi replied clearly and directly. “I will make you my wives and I will make you eternally happy.”</p>
 

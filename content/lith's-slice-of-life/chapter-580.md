@@ -131,7 +131,7 @@ Meanwhile…
 
 In the Castle of the Sin of lust.
 
-"Ralph-chwaaaaan!~" 
+"Ralph-chwaaaaan!" 
 
 .....
 

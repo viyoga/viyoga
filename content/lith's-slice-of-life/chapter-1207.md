@@ -200,7 +200,7 @@ As he took a step forward, a creaking sound resounded and the metallic door auto
 
 
 
-Fuuuuuuuu~
+Fuuuuuuuu
 
 
 
@@ -210,7 +210,7 @@ A whistling sound resounded in Lith’s ears, making him knit his brows.
 
 
 
-Fuuuuuuuu~
+Fuuuuuuuu
 
 
 
@@ -480,7 +480,7 @@ There was probably a formation suppressing everyone to the extreme.
 
 
 
-Fuuuuuuuu~
+Fuuuuuuuu
 
 
 

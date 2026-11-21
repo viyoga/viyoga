@@ -92,7 +92,7 @@ chapter = 746
 <p>"Ryuta-jji is really hard to find. It's like some kind of princess-saving game."</p>
 <p>Like Sakagami Rena's conviction, the others seemed to feel that Taira Ryuta was in that building.</p>
 <p>______</p>
-<p>New model Otagi Yuka leather jacket + jeans~!</p>
+<p>New model Otagi Yuka leather jacket + jeans!</p>
 <p>Covered Yuka</p>
 <p>Exposed Yuka</p>
 <p>Which Yuka do you like better, covered VS exposed? Hehe</p>

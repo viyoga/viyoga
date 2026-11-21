@@ -60,7 +60,7 @@ chapter = 511
 <p>,My lord made breakfast, so I made lunch...!</p>
 <p>Ah, that's right. She woke me up for lunch, so I have to eat lunch too. Guided by Sakagami Rena, there was a neat Japanese set meal on the table. Rice, miso soup, grilled salmon, and several side dishes were laid out, making my mouth water just by looking at it.</p>
 <p>,I'll eat well.</p>
-<p>,Yes~! Please enjoy it, my lord...!</p>
+<p>,Yes! Please enjoy it, my lord...!</p>
 <p>The lunch that Sakagami Rena made was quite delicious. All of them were ordinary side dishes, but they suited my taste well, perhaps because she had a good touch. Did Sakagami Rena have cooking in her status window...? She was quite talented. It was a satisfying meal in terms of both taste and quantity, perhaps because she knew my appetite.</p>
 <p>,I ate well.</p>
 <p>,Yes...♥</p>

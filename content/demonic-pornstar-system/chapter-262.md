@@ -16,7 +16,7 @@ chapter = 262
 <p>A large steel pot sat above the fire. Nyx was seated just behind it with her legs crossed and fingers lazily twirling in the air, controlling utensils and spice bottles while also stirring the pot with effortless grace.</p>
 <p>Luna, of course, was not feeling patient.</p>
 <p>"Ughh... hurry up..." she groaned while stroking her hungry belly. She sipped from her mug of hot chocolate, then let her head droop forward as her stomach let out a dramatic grrrrrgle.</p>
-<p>"I could hurry..." Nyx said without even glancing at her. "... but then the spices would be uneven. And your stomach is so delicate thanks to you basically only munching processed food while throwing obscenities at your online adversaries all your life, I fear I would upset it~"</p>
+<p>"I could hurry..." Nyx said without even glancing at her. "... but then the spices would be uneven. And your stomach is so delicate thanks to you basically only munching processed food while throwing obscenities at your online adversaries all your life, I fear I would upset it"</p>
 <p>Luna narrowed her eyes. "That’s just not true at all."</p>
 <p>Nyx smiled without remorse. In fact, she even slowed the speed at which she was cooking to annoy her friend even further.</p>
 <p>"I will throw this at you," Luna growled, holding up her hot chocolate.</p>

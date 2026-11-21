@@ -21,7 +21,7 @@ chapter = 5
 <p>Mom was also a second-generation Korean-Japanese, so her accent was a bit awkward, so she couldn't compare her Korean skills to mine, who was possessed. Just a week ago, I was like Heungseon Daewongun, who only knew Korean. Now I'm a bilingual speaker of Japanese and Korean.</p>
 <p>"So, how much do you need?"</p>
 <p>"I'll be there for about four days, so about 200,000 yen?"</p>
-<p>"Okay~"</p>
+<p>"Okay"</p>
 <p>Mom coolly said she would give it to me. If I combine it with the money I already have, 400,000 yen is roughly four million won, so it should be enough, right? I'm going as the Korean Jin Yong-tae this time, so I have the passport I made during my second year of high school's male-only Chinese field trip, so I just need to book a plane ticket and exchange the money.</p>
 <p>###</p>
 <p>When I got off at the airport, I smelled Korea. It was just an indescribable Korean feeling. It had only been about ten days, but being in Japan, it smelled somewhat unfamiliar. Or maybe it's how Hata Ryuta, the original owner of the body, feels.</p>

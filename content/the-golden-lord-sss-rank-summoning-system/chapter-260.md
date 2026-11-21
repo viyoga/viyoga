@@ -48,7 +48,7 @@ chapter = 260
 <p>Her elegant eyebrows furrowed, and a faint flicker of pain rippled through her expression.</p>
 <p>Her body tensed slightly, and her hands instinctively rose to the tops of her breasts. Delicate fingers sank deep into that vast, impossibly soft flesh, the pale, plush mounds parting around them as if swallowing her digits whole.</p>
 <p>The pain passed as quickly as it had come, replaced by a flash of understanding, while a sweet sigh escaped her pink lips.</p>
-<p>"Ah... fate and its curiosities... fufufu~" Her voice echoed through the garden, purring and divine, followed by an elegant, noble chuckle.</p>
+<p>"Ah... fate and its curiosities... fufufu" Her voice echoed through the garden, purring and divine, followed by an elegant, noble chuckle.</p>
 <p>Her emerald eyes refocused on Ethan, whose own gaze seemed to be fighting a losing battle to leave her bosom alone.</p>
 <p>He quickly regained his composure, stepping forward to meet her stare.</p>
 <p>"You..." She regarded him with an amused voice. "I suppose you’re the sovereign who snatched me from the clutches of death?"</p>

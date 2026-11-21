@@ -31,7 +31,7 @@ chapter = 683
 <p>Looking up, she could feel his composure slowly break as he closed his eyes with a shuddering sigh. His reaction brought much joy to her heart. She liked the feeling of making him feel good.</p>
 <p>She focused on enjoying the unusually smooth texture of the throbbing tip, and the hint of saltiness on her tongue. In many ways, it felt like she was licking an ice cream.</p>
 <p>In fact, she used her tongue to lap up as much of it as she could get from the hole at the tip.</p>
-<p>“Oh~” He grunted at that.</p>
+<p>“Oh” He grunted at that.</p>
 <p>The simulation her slithering tongue brought to the tip made Sol tremble.</p>
 <p>Instinctively, she took off one hand and brought it down toward her intimate place still covered by a pair of white panties. She rubbed herself through her underwear and focused on the erect little bud that was far too minuscule compared to a man’s penis.</p>
 <p>She knew she had to stop, yet her fingers only picked up speed. She started rocking her hips back and forth, searching for even greater pleasure. She also swallowed his penis as far as her small mouth allowed her.</p>

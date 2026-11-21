@@ -47,11 +47,11 @@ chapter = 323
 <p>"Hello... young master... do you still remember us?" A melodious voice echoed behind him.</p>
 <p>He turned around, finding himself face-to-face with five beautiful women. His mother’s apprentices.</p>
 <p>The bustiest among them—a tall woman with short black hair and ample Q-cup breasts, much larger than Alice’s—was the first to step forward, her face lit with excitement.</p>
-<p>"Of course you remember... our naughty young Ethan would never forget our boobs! Fufufu~~" she declared with a huge smile, seizing him and pulling him unceremoniously against her chest.</p>
+<p>"Of course you remember... our naughty young Ethan would never forget our boobs! Fufufu" she declared with a huge smile, seizing him and pulling him unceremoniously against her chest.</p>
 <p>His face sank into the soft valley between her full breasts, the pale, silky flesh giving way around his cheeks.</p>
 <p>The heavy globes wrapped around his face like plush pillows of scented cream, pressing in with their generous, supple weight.</p>
 <p>They weren’t as perfect as his mother’s, but they were still wonderful. And, well, even if they hadn’t been the first breasts he’d ever touched, he still loved them passionately.</p>
-<p>"So... are you going to keep your promise to take me as your concubine now? You always said we’d get married when we grew up, fufufu~" she teased, loosening her embrace just enough to let Ethan slip out from her cleavage.</p>
+<p>"So... are you going to keep your promise to take me as your concubine now? You always said we’d get married when we grew up, fufufu" she teased, loosening her embrace just enough to let Ethan slip out from her cleavage.</p>
 <p>"Well... Isabel... about that." Ethan scratched his chin, looking a bit awkward.</p>
 <p>He did, in fact, remember promising to take all five as wives. And if he was already going to take Amelia, why stop there?</p>
 <p>"As long as Mom agrees," he said, his voice laced with teasing, his fingers gliding down the sinful curve of Isabel’s waist until they closed firmly around the plump swell of her hip.</p>

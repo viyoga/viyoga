@@ -19,7 +19,7 @@ Lith walked close to her. Alea noticed his presence and putting her quill down, 
 
 Her face brightened up as she saw him and she put the quill down and waving her hand, called out cheerfully, 
 
-"Little cousin!~"
+"Little cousin!"
 
 Lith's appearance didn't help Alea understand that he wasn't a child. He was just 22 and keeping that fact in mind, Alea still had an image of him being a child.
 

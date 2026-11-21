@@ -10,7 +10,7 @@ chapter = 714
 <p>Standing with his back against the wall, Kiyohime was kneeling in front of him, his rock-solid cock lodged deep inside her mouth.</p>
 <p>“Like this?” Kiyohime asked.</p>
 <p>“Yes, perfect. Ah, I-I’m cumming!” Sol groaned as he finally released his seed in Kiyohime's inviting mouth.</p>
-<p>“Yes, finally~! Ahn! There’s so much of it. It’s all over my face. My hair will get all sticky too now. I’ll just have to swallow it instead.” And Kiyohime expressed utter delight as Sol grabbed the sides of her hair, like handles, and pushed his dick deep into her throat.</p>
+<p>“Yes, finally! Ahn! There’s so much of it. It’s all over my face. My hair will get all sticky too now. I’ll just have to swallow it instead.” And Kiyohime expressed utter delight as Sol grabbed the sides of her hair, like handles, and pushed his dick deep into her throat.</p>
 <p>It was a sight that would have made any elves blink in confusion and disbelief but even as the two of them enacted such an act, no one could notice them without Sol’s permission.</p>
 <p>“Being a Dimensional Mage is the best,” Sol muttered. It was like having his very own portable sex room. Caressing Kiyohime’s hair as she continued milking his cock dry, as if she wished to drink every last bit, Sol decided it was finally time to talk.</p>
 <p>He would deal with Satella tonight and he didn't really care what decision she would make.</p>

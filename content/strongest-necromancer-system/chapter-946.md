@@ -10,7 +10,7 @@ chapter = 946
 <p>Agiel looked like an angel bathing in the light of the moon! Her white hair fell around her like a halo, and the white gown she wore was loose enough to show a lot of cleavage. Agiel’s long pale legs and toned belly were visible under the translucent gown, and Jason could see that she was only wearing panties under the gown. Jason’s eyes trailed across Agiel’s body for a moment before he let out a calm huff as he moved towards the bed and leaned over Agiel.</p>
 <p>"Hey, wake up."</p>
 <p>Agiel’s face scrunched up into a frown as she muttered in her sleep. Agiel turned around so she was lying on her back, and her loose breasts bounced with her movement. Jason ignored that movement easily as he knelt and touched Agiel’s shoulder and told her to wake up again. Agiel’s eyes fluttered open, and she slowly focused on Jason’s face. For a moment, Agiel didn’t move at all, and Jason had already expected her to lash out at him for sneaking into her room like this. But Jason was surprised when Agiel suddenly reached up to grab Jason’s face in her hands, and Agiel pulled Jason down into an intense kiss!</p>
-<p>"Mmh~!"</p>
+<p>"Mmh!"</p>
 <p>Agiel moaned into the kiss as she wrapped her hand around Jason’s neck and tried to pull him down on top of her! Agiel opened her legs, and she wanted to trap Jason between them, but Jason put his hand on Agiel’s shoulder and quickly pushed her back.</p>
 <p>"What the hell are you doing?"</p>
 <p>Jason frowned in anger, and Agiel’s brow furrowed in surprise when she heard Jason’s voice. Jason could almost see the gears moving in Agiel’s head for a few seconds, but in the next moment, Agiel’s eyes widened, and she moved back quickly with a shocked gasp!</p>

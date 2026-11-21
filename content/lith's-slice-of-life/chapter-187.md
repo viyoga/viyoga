@@ -35,7 +35,7 @@ Arya was surprised looking at how big it was after it stopped growing any furthe
 
 Arya cleared her throat and said to Lith, “if you’ve looked enough, we can go shower.”
 
-“No, wait a few more minutes, teacher. Or maybe like a few more hours? Hmm, days don’t sound bad either. What do you say? I can keep looking at such a sexy figure for like, forever probably, hehe~” Turning his gaze to meet Arya’s, Lith said.
+“No, wait a few more minutes, teacher. Or maybe like a few more hours? Hmm, days don’t sound bad either. What do you say? I can keep looking at such a sexy figure for like, forever probably, hehe” Turning his gaze to meet Arya’s, Lith said.
 
 Arya let out a small chuckle hearing such a response from Lith. She really liked his honesty and his attitude of not shying away and speaking his mind. Had Lith shown a sign of trying to cover up his stare and lied to her saying he wasn’t meaning to look at her in such a way, his impression in front of her would’ve really degraded.
 

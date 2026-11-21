@@ -5,7 +5,7 @@ weight = 369
 chapter = 369
 +++
 
-<p>"Nghnnn~ Aghnnn~~ Oghnnn~ E-Ethan~ L-Lord E-Ethan~"</p>
+<p>"Nghnnn Aghnnn Oghnnn E-Ethan L-Lord E-Ethan"</p>
 <p>The sweet, obscene moans of the elven noble echoed through the room as she rode Ethan’s cock, her hips slamming down hard, her movements growing increasingly frantic and desperate.</p>
 <p>They were no longer on the couch.</p>
 <p>Sunset was approaching, bathing the bedroom in a warm orange light that danced across their sweaty skin, wrapping every curve of the elf’s body in an almost divine glow.</p>
@@ -21,7 +21,7 @@ chapter = 369
 <p>Her body slumped forward, drained of all strength, collapsing onto Ethan’s warm chest, her heavy breasts crushing softly against his torso.</p>
 <p>She reached her climax at the exact moment Ethan erupted deep inside her pussy, thick, hot spurts of cum flooding her insides, filling every corner until there was no room left for anything more.</p>
 <p>The excess seeped out in thick white strands from where their bodies joined, trickling slowly down the elf’s trembling thighs and staining the immaculate sheets beneath them.</p>
-<p>"I can’t take it anymore, my Lord... have mercy~" Faelith murmured in a hoarse voice, resting her head against Ethan’s chest, her eyes fluttering shut from sheer exhaustion.</p>
+<p>"I can’t take it anymore, my Lord... have mercy" Faelith murmured in a hoarse voice, resting her head against Ethan’s chest, her eyes fluttering shut from sheer exhaustion.</p>
 <p>In her entire long life, it had been quite a while since the last time she’d been drained like that.</p>
 <p>That human cock was truly incomparable.</p>
 <p>Ethan laughed softly at her words, shaking his head as he mentally designated Faelith as his concubine.</p>

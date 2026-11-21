@@ -97,7 +97,7 @@ As for Lith, he appeared extremely handsome with his well toned body fitting per
 
 Mayzin and Agalea were surprised to see him look so grown. His demeanour also appeared mature and it made them wonder how Lith grew so much in such a short time.
 
-Meanwhile, Alea, looking at Lucy, got up and said with a smile, "Lucy~"
+Meanwhile, Alea, looking at Lucy, got up and said with a smile, "Lucy"
 
 "Alea!" Lucy let go of Lith's hand and said with a smile.
 
@@ -165,7 +165,7 @@ Alea's face was in an 'o' shape as she heard that. This grown up guy apparently 
 
 She didn't expect him to be so old. But after the doubts were cleared and looking at him extend his hand, she smiled and put her hand forward as well.
 
-"hello~, little cousin." She said, completely forgetting that she had doubts about it a few seconds ago.
+"hello, little cousin." She said, completely forgetting that she had doubts about it a few seconds ago.
 
 As soon as Lith's hand touched with Alea's...
 

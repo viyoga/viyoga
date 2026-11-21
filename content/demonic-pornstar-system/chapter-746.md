@@ -42,7 +42,7 @@ chapter = 746
 <p>"I’d like to discuss operational matters with you both," Vespera continued, already moving past the sentiment. "There is significant restructuring ahead."</p>
 <p>Whatever Tessa was about to say about Kaiden’s contributions died on her lips as the Shadow Monarch pivoted to business. And just like that, the two guild leaders were absorbed into the conversation before either of them fully understood what had happened.</p>
 <p>Kaiden watched them go.</p>
-<p>"Soooo~"</p>
+<p>"Soooo"</p>
 <p>The voice came from his left, and when Kaiden turned, he saw a pair of girls whose status as twins could not be denied.</p>
 <p>They were identical in build and devastating in presentation. Slim, leggy, and dressed in a way that made every charcoal suit in the room look like it belonged in a museum. The one on his left wore a cropped white top that stopped well above her navel, a layered silver chain that caught the light every time she breathed, and a pleated skirt in dark red that sat high on her waist and ended mid-thigh. The one on his right wore the same silhouette in inverted colors - black crop top, gold chain, deep blue skirt - and both of them were in heeled ankle boots.</p>
 <p>Their hair was the thing that made him look twice. Split dye, straight down the middle. The left twin had red on her left and blue on her right. The right twin had blue on her left and red on her right. Mirrored. And the contacts - because they were definitely contacts, the kind of creative flex that media people wore like a signature - followed the same inverted logic. Red hair, blue eye. Blue hair, red eye. Each twin a perfect reflection of the other, standing side by side like a pair of playing cards.</p>
@@ -66,4 +66,4 @@ chapter = 746
 <p>"Let’s hear the pitch."</p>
 <p>"Hmm?" Kira grinned.</p>
 <p>"Why should I care? What can you do for us?"</p>
-<p>"Hehe~" Rika giggled.</p>
+<p>"Hehe" Rika giggled.</p>

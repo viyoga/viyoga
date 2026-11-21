@@ -26,7 +26,7 @@ chapter = 186
 <p>Was she a commoner? Or was she hiding it somehow?</p>
 <p>"Who are you?" Ethan finally asked.</p>
 <p>A sweet smile danced on Ophelia’s full lips.</p>
-<p>"Oh... darling, I can see you’ve grown quite a bit since your expulsion from Darkwall, fufufu~"</p>
+<p>"Oh... darling, I can see you’ve grown quite a bit since your expulsion from Darkwall, fufufu"</p>
 <p>Ophelia took a step forward, ignoring the slight shock that flashed across Ethan’s face for a brief moment.</p>
 <p>He was handsome, no doubt, but she wasn’t the kind of woman who let herself be swayed by mere beauty.</p>
 <p>Not enough to change her goals, at least. She had already killed enough men not to place much importance on that sort of thing.</p>

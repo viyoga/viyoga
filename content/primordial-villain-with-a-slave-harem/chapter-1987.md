@@ -45,7 +45,7 @@ chapter = 1987
 <p>"Lucille! Blossom got one! Their defenses aren’t high."</p>
 <p>"Good job. Now repeat it a thousand times."</p>
 <p>"Okay!!"</p>
-<p>"Baby, into the fray, please~" Lucille purred.</p>
+<p>"Baby, into the fray, please" Lucille purred.</p>
 <p>Happy to oblige, Quinlan lowered his lovely berserker on a slab of rock, setting her beside Blossom’s victim on the terrace. Lucille’s mark blazed as she smashed its lower shell inward with her hammer, opening the way for her magma-coated axe.</p>
 <p>The belly opened from end to end. Its entrails spilled over the axe haft, hissing against the molten coating while Blossom kicked free of its face.</p>
 <p>Lucille laughed and drove her hammer into its mouth, knocking the dying creature backward onto the spiders below.</p>
@@ -62,8 +62,8 @@ chapter = 1987
 <p>Serika twisted through the recoil to land on the terrace’s right arm, beneath the queen. Before the laughing brawler could turn, the monster swept her injured foreleg down the wall toward her back.</p>
 <p>"[Heavenscar Blade]!"</p>
 <p>Ayame came sprinting along the terrace’s right arm, having followed Lucille down from the balcony. Her katana met the descending limb at its damaged joint, shearing straight through, and the water following her blade ripped the severed length away before it could reach Serika.</p>
-<p>"You’re welcome~"</p>
-<p>"Thanks~!"</p>
+<p>"You’re welcome"</p>
+<p>"Thanks!"</p>
 <p>"They..." Andre whispered in full disbelief. "They’re having fun..."</p>
 <p>*KRRRIIIAAAAA!*</p>
 <p>The queen’s scream drowned out their laughter as she clutched the bleeding stump against her body. Below her, the petite samurai flicked the black fluid from her blade and looked up with a smile.</p>
@@ -77,7 +77,7 @@ chapter = 1987
 <p>"I’m not looking because all my blood will rush into a certain place."</p>
 <p>"Cruel man! Let Quinlan Junior have some fun!" Kitsara called from the balcony above them.</p>
 <p>"I’ll check right before our victory celebration."</p>
-<p>"Ohh~ Deal~"</p>
+<p>"Ohh Deal"</p>
 <p>"Focus!" Ayame scoffed, still recovering from his terrible statement. Even as she scolded them, the Skysplitter swept her katana through the climbing brood. Water followed her blade across the wall, ripping spiders from their footholds and throwing them into the packed ranks behind.</p>
 <p>"Nice going. You’re getting a good girl brownie point from me!" Serika sprang through the opening Ayame had cleared. With another explosive punch against the wall, the brawler blasted spiders off the terrace ahead before they could spread out again.</p>
 <p>"Fuck you too!" Ayame shouted after the tanned beauty.</p>

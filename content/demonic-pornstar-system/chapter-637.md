@@ -44,7 +44,7 @@ chapter = 637
 <p>Alexandra yelped, blushed, and jumped out of the hug. "Never! This was a family hug!"</p>
 <p>Nyx, however, had a very different reaction. She turned toward Luna with a dangerous purr in her voice. "Speaking of lesbian plays, don’t you have an admission to make, gremlin bestie? It wasn’t Alexandra who shoved a dildo up my poor little butt. Is there a certain confession you want to make?"</p>
 <p>Luna’s eyes narrowed into dangerous slits. "It had nothing to do with my sexuality. I did it out of duty to help my greedy friend who wanted to get ahead of the rest of us."</p>
-<p>"Much appreciated~" Nyx purred dangerously. "Even though I didn’t ask for it."</p>
+<p>"Much appreciated" Nyx purred dangerously. "Even though I didn’t ask for it."</p>
 <p>Kaiden was quick to interject. "Okay, okay, girls. Let’s try to get along, shall we?"</p>
 <p>They started walking deeper into the city. The streets were alive with the evening crowd, people moving between restaurants and bars, street performers drawing small audiences, neon signs casting colorful glows across the pavement.</p>
 <p>Kaiden glanced around and noted how fortunate it was that night had fallen. "At least it’s nighttime. Recognizing us will be much harder in the dark."</p>

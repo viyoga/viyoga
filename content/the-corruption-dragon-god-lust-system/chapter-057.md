@@ -41,7 +41,7 @@ chapter = 57
 
 <p>“What’s that?” he asked, still amazed at the taste.</p>
 
-<p>“Chicken soup, I made it myself, fufufu~” she smiled proudly, leaving Qingyi dumbfounded.</p>
+<p>“Chicken soup, I made it myself, fufufu” she smiled proudly, leaving Qingyi dumbfounded.</p>
 
 <p>Chicken soup? That’s it?</p>
 
@@ -97,7 +97,7 @@ chapter = 57
 
 <p>She felt a strange heat rising between her thighs and her nipples stiffening under the touch of Qingyi’s skin, even through the fabric of her dress.</p>
 
-<p>“Mmmh~~” A suppressed moan escaped her lips as she pulled away, a rosy blush spreading across her cheeks as she clumsily stood up.</p>
+<p>“Mmmh” A suppressed moan escaped her lips as she pulled away, a rosy blush spreading across her cheeks as she clumsily stood up.</p>
 
 <p>The effect of the Corruption Dragon God Bloodline was truly thunderous for people of lower cultivation.</p>
 

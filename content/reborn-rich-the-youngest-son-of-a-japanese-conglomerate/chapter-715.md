@@ -103,4 +103,4 @@ chapter = 715
 <p>Han Yu-gyeong, who was holding her phone, tilted her head and said, and I also said as if I didn't know. Come to think of it, if my identity as an American is to be natural, I should have parents, so I don't think I can decide my last name as I please.</p>
 <p>______</p>
 <p>Han Yu-gyeong in St. Francis Girls' Academy uniform, practiced with a new model.</p>
-<p>It's practice~! Hehe</p>
+<p>It's practice! Hehe</p>

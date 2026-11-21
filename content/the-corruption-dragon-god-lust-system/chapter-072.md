@@ -85,7 +85,7 @@ chapter = 72
 
 <p>[Qin Yueli’s Corruption increased by 2 points, +5 lust points].</p>
 
-<p>“Nghn~~” A suppressed groan escaped her lips as she flicked the reins for Bluey to start moving.</p>
+<p>“Nghn” A suppressed groan escaped her lips as she flicked the reins for Bluey to start moving.</p>
 
 <p>The increase in her cultivation lessened the effect of Qingyi’s bloodline on her, but it was still hard to resist.</p>
 
@@ -97,13 +97,13 @@ chapter = 72
 
 <p>[Qin Yueli’s Corruption increased by 2 points, +5 lust points].</p>
 
-<p>“Mghm~~” She clung tightly to the reins, feeling the bulge between Qingyi’s pants getting even bigger and a slight dampness trickling down her thighs.</p>
+<p>“Mghm” She clung tightly to the reins, feeling the bulge between Qingyi’s pants getting even bigger and a slight dampness trickling down her thighs.</p>
 
 <p>Was it really supposed to be that big?</p>
 
-<p>“Ugh~~?” A confused moan escaped her lips when she felt Qingyi’s hands wrap around her hips.</p>
+<p>“Ugh?” A confused moan escaped her lips when she felt Qingyi’s hands wrap around her hips.</p>
 
-<p>“Q-qingyi, what are you- ghn~” Her protest was interrupted when one of Qingyi’s hands came up, grabbing her huge breasts tightly, feeling the soft skin spilling out between his fingers.</p>
+<p>“Q-qingyi, what are you- ghn” Her protest was interrupted when one of Qingyi’s hands came up, grabbing her huge breasts tightly, feeling the soft skin spilling out between his fingers.</p>
 
 <p>[Qin Yueli’s Lust increased by 25%].</p>
 
@@ -117,7 +117,7 @@ chapter = 72
 
 <p>He sank a single finger between the deep, plump valley, the fabric of her dress doing little to prevent him from reaching the pink interior.</p>
 
-<p>“Gghnn~” Yueli clung to his thighs, her back arching and her ass pressing even harder against his cock, which sank between the voluptuous masses of flesh.</p>
+<p>“Gghnn” Yueli clung to his thighs, her back arching and her ass pressing even harder against his cock, which sank between the voluptuous masses of flesh.</p>
 
 <p>Qingyi plunged a second finger into her pussy, using his other hand to grasp a pink nipple, massaging it with his fingertips.</p>
 

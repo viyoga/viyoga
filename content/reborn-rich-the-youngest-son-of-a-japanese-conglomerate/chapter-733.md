@@ -7,7 +7,7 @@ chapter = 733
 
 <p>We sat huddled together in the clubroom after cleaning the refrigerator. It took a while to clean not only the refrigerator but also the dust that had settled in the clubroom during the vacation, so it was almost lunchtime. Since I was treating for lunch, I turned on the delivery app and ordered each person's desired food.</p>
 <p>"So, four burger sets from Jetria, five burger sets from Mac, and three chicken sets from Korea Fried Chicken, right?"</p>
-<p>"Yep~!"</p>
+<p>"Yep!"</p>
 <p>The special class female students wanted franchise burgers or chicken, which are junk food(?), probably because they only ate fancy food at their parents' homes during the vacation. When they were at school, they were free to eat whatever they wanted because they could go to franchises with their friends, but when they returned to their parents' homes, they only ate neat food every time, so they seemed to crave stimulating food.</p>
 <p>I added one set each of what I would eat from Jetria, Mac, and Korea Fried Chicken and completed the order.</p>
 <p>"First, let me tell you about what happened during the vacation. I was in Japan for a while and then went to Korea."</p>
@@ -39,7 +39,7 @@ chapter = 733
 <p>All four of them took out photos taken with me at the shrine and started showing off, and everyone except Shido Tsubaki was booing, saying, "Why don't you take pictures with us?" Even Alik gave a thumbs down and booed, which was quite shocking.</p>
 <p>"Alik... Even you?"</p>
 <p>I said it as if I were Caesar saying, "Et tu, Brute?" but the booing didn't stop.</p>
-<p>After waiting for the booing to stop, fortunately, the food I ordered arrived one by one, and I was able to shut the mouths of the special class troublemakers who were saying, "Woo~!"</p>
+<p>After waiting for the booing to stop, fortunately, the food I ordered arrived one by one, and I was able to shut the mouths of the special class troublemakers who were saying, "Woo!"</p>
 <p>"It's not Hatsumode, but we can just go to the shrine together separately."</p>
 <p>"Ryuta, Alik also has a pretty furisode."</p>
 <p>"Okay, shall we go take pictures together wearing pretty furisodes?"</p>
@@ -84,5 +84,5 @@ chapter = 733
 <p>It was a ridiculous story to anyone who didn't know, but the students who had participated in the Naruse Shiyo rescue operation with me knew that this story was true. The rest of them also said, "Really?" as Naruse Shiyo and Alik spoke together, and they began to listen to their story with concentration.</p>
 <p>______</p>
 <p>Saionji Diana with her breasts supported, requested by RefundAbsolutelyImpossible-nim!</p>
-<p>Saionji Diana's armpit pride~!</p>
+<p>Saionji Diana's armpit pride!</p>
 <p>I don't know why, but the one-piece swimsuit makes her figure look better, hehe.</p>

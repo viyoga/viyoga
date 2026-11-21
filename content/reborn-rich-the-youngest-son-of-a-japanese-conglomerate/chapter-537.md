@@ -10,12 +10,12 @@ chapter = 537
 <p>All three said they understood, but thankfully, they had all hung out at my place before, so other opinions were coming up.</p>
 <p>-Erika Private First Class: Are we just eating? Or are we hanging out and eating?</p>
 <p>-Kujo Kina: Of course, we should hang out! How about a water park?</p>
-<p>-ShiiPipi: Is it November already? The water park is too cold~(。_°) Let's go to Dijuni Land instead!</p>
+<p>-ShiiPipi: Is it November already? The water park is too cold(。_°) Let's go to Dijuni Land instead!</p>
 <p>-Minamoto Lisa: I hate it when there are too many people on Sundays. I heard a huge bookstore opened in Shizuoka, how about there?</p>
 <p>- Shido Tsubaki: I like bookstores too, but it doesn't seem like a good place for everyone to enjoy.</p>
 <p>-AlikAlik: Alik wants to go to an amusement park...!</p>
 <p>-Urabe Konoka: Then how about Fuji-Q Highland, the amusement park nearby?</p>
-<p>-Konoe Akina: I think I went there once in middle school. Nostalgic~</p>
+<p>-Konoe Akina: I think I went there once in middle school. Nostalgic</p>
 <p>Fuji-Q Highland... I searched it up and it was an amusement park in Fujiyoshida, Yamanashi Prefecture. If Miyashi was west of Mount Fuji, then Fuji-Q Highland was northeast of Mount Fuji.</p>
 <p>It's famous as a scream-inducing amusement park with many roller coasters and is known for doing a lot of collaborations with anime. This season is a collaboration with a classic (?) anime, and there was an article saying that this week is a ○-Punch Man collaboration that Minamoto Lisa likes.</p>
 <p>-Minamoto Lisa: Our cute Alik wants to go, so I like Fuji-Q Highland too.</p>
@@ -55,12 +55,12 @@ chapter = 537
 <p>Two of them just seemed horny, and one of them was taking off my clothes for some strange reason. Well, I ate a lot of pizza, so I should burn some calories with some waist exercises.</p>
 <p>###</p>
 <p>The next morning, I drove the rented large vehicle to St. Francisco Girls' Academy. When I arrived on time, some people who had already arrived were waiting in front of the school. I glanced at the number of people and it didn't seem like everyone was there.</p>
-<p>,Ehh~! You're late, Sensei!"</p>
+<p>,Ehh! You're late, Sensei!"</p>
 <p>Kujo Kina, wearing jeans as short as dolphin pants, said bluntly to me. At those words, I pointed to the clock in the car, which still had one minute left.</p>
 <p>,I'm right on time. I'm not late."</p>
 <p>,Ah, really? Was I waiting for Sensei too much?"</p>
 <p>Waiting for me too much was a very direct confession. Kujo Kina scratched her head awkwardly at my words and opened the car door. And sat in one of the back seats. She was about to get in the passenger seat just now, but she sat in the back, so it seemed like she had already decided on a seat.</p>
-<p>,Hello, Sensei~!"</p>
+<p>,Hello, Sensei!"</p>
 <p>,Good morning, Sensei."</p>
 <p>Konoe Akina and Shido Tsubaki got in right after, and Otagi Yuka, holding a half-asleep Alik, got in after them.</p>
 <p>When a few more students got in, the passenger seat door opened and Shimokawabe Airen got in. Shimokawabe Airen was wearing ripped jeans and a track top, which suited her well because of her slim figure.</p>
@@ -70,10 +70,10 @@ chapter = 537
 <p>,Ufufu.... I heard she was resting today, so I gave her some hard training yesterday."</p>
 <p>,Ah, is that so?"</p>
 <p>Alik is usually quiet, but her stamina is at the beagle level, so I was wondering why she was sleeping so much, but it seemed like Shimokawabe Airen had worked her hard yesterday.</p>
-<p>,Finally, Shii descends~☆"</p>
+<p>,Finally, Shii descends☆"</p>
 <p>,Good morning."</p>
 <p>As Seizawa Shii sat down noisily, Minamoto Lisa got in soon after. All the students are in, so only Kijimoto Jurie is left. After waiting a little, I heard the sound of footsteps and saw Kijimoto Jurie running towards us.</p>
-<p>,Huff...! I'm sorry! I was late because I was getting ready~!! Huff...!"</p>
+<p>,Huff...! I'm sorry! I was late because I was getting ready!! Huff...!"</p>
 <p>Kijimoto Jurie apologized to everyone as she sat in the back seat. She was panting because she ran, and Seizawa Shii said that she was Naruse Shiyo's substitute, so she could have come slowly. She even said that Naruse Shiyo doesn't run fast, so she should be careful not to run fast because she's not a substitute.</p>
 <p>Kijimoto Jurie was wearing a sweater and a long skirt under her usual doctor's gown, but she only took off her doctor's gown, and now that it's fall, she's finally wearing clothes that fit the season. By the way, she still had huge breasts that couldn't be hidden by the sweater. The curves were amazing even though she was wearing a sweater....</p>
 <p>I was hot just looking at her wearing a sweater and a doctor's gown in the middle of summer, but when I asked her, Kijimoto Jurie said that she doesn't get hot very easily and gets cold easily. She was probably wearing clothes that didn't fit the season because of the air conditioner that she keeps on in the summer.</p>
@@ -86,14 +86,14 @@ chapter = 537
 <p>Is there an orange farm around here? Seizawa Shii never told me what kind of part-time job she was doing, no matter how much I asked, but it seemed like she was working part-time at an orange farm.</p>
 <p>,Here, I brought a lot, so eat one each."</p>
 <p>Seizawa Shii said as she passed out the oranges one by one. Next to me, Shimokawabe Airen peeled the orange with a dagger in an instant and smiled as she put them in my mouth one by one. The news was playing quietly on the radio, and when I heard that it was a case near Mount Fuji, I listened carefully and heard that someone was found murdered in a mountain lodge near Mount Fuji. Geez.... It's become a scary world.</p>
-<p>,Ryuta-jji~! Play some exciting music!"</p>
+<p>,Ryuta-jji! Play some exciting music!"</p>
 <p>,Shall I?"</p>
 <p>At Seizawa Shii's words, I played my own collection of exciting songs. The car was full of exciting music, and the weather was sunny, which was perfect. Besides, a beautiful woman was peeling oranges and putting them in my mouth, so the fatigue of driving was zero.</p>
 <p>After driving for a while, we were able to arrive at our destination, Fuji-Q Highland. The atmosphere was so good that the hour of driving didn't feel long.</p>
 <p>_____________</p>
-<p>Kujo Kina in outing clothes~!</p>
+<p>Kujo Kina in outing clothes!</p>
 <p>Ai made her breasts bigger today ㄷㄷ Kina wouldn't be this big...?</p>
-<p>Homeroom teacher~!!</p>
-<p>Homeroom teacher likes Kimono or sporty clothes.... I'll put her in a dress next time~!</p>
-<p>Nurse-ssi~!</p>
+<p>Homeroom teacher!!</p>
+<p>Homeroom teacher likes Kimono or sporty clothes.... I'll put her in a dress next time!</p>
+<p>Nurse-ssi!</p>
 <p>Huge tits Jurie that can't be hidden even with a sweater.</p>

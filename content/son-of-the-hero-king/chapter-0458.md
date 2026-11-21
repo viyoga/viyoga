@@ -34,7 +34,7 @@ chapter = 458
 <p>Sol's time in the Dragon Territory may have been short, but in a way, she was the one who had spent the most time with him in this realm. Perhaps, she had spent the most time with him in his entire journey to this place. Taking care of him, training him, guiding him, and finally making love with him.</p>
 <p>Even now, thinking about the events they had faced and experienced together she was unable to wrap her head around it. She would have never imagined that she would fall in love with a hybrid dragon who wasn't even in the realm of a duke when they had their first time.</p>
 <p>Well at least that was justifiable, but it paled in comparison to the fact that the boy was her direct nephew. Just what was wrong with her for her to go along with establishing such a relationship? She was unable to understand that fact.</p>
-<p>"I believe, mother… That the emotions you are describing can be summarized in three words. Ahem~ You. Miss. Him."</p>
+<p>"I believe, mother… That the emotions you are describing can be summarized in three words. Ahem You. Miss. Him."</p>
 <p>Aqua decided to make things straight and simple for her suprisingly ignorant mother.</p>
 <p>"Ugh…"</p>
 <p>Kiyohime could not argue with her daughter on that note.</p>

@@ -35,7 +35,7 @@ Lizbeth was momentarily baffled and wondered where she should go. It didn't take
 
 She ran towards it and in the next few moments…
 
-"Wooaaaaahhhh~!"
+"Wooaaaaahhhh!"
 
 "Hahahahaha! I'm in heaven! Heaven!"
 

@@ -72,7 +72,7 @@ chapter = 981
 <p>"Keuheung...! Haaht...! Heueu...!"</p>
 <p>I didn't say anything that would break the Atmosphere, like 'doesn't it feel good?', but instead kept gazing into Juuki (Gun Demon)'s eyes as I thrust my hips.</p>
 <p>The wet squishing sounds and the sound of flesh colliding disoriented Juuki (Gun Demon)'s Sensitive Ear, amplifying the pleasure given by my cock, which was gradually digging deeper inside them.</p>
-<p>"Heungaat! No more, Heueut! No, nooo mooore, Heuhyat! I can't take it anymoreee~!!"</p>
+<p>"Heungaat! No more, Heueut! No, nooo mooore, Heuhyat! I can't take it anymoreee!!"</p>
 <p>Juuki (Gun Demon) couldn't endure it, letting out moans like Screams, then, as if fainting from a powerful Orgasm, their Head dropped with a Thud. As expected, a virgin's pussy was weak. My feeling of ejaculation hadn't even risen, yet they were trembling and reaching Climax.</p>
 <p>You're not dead, are you? I lifted Juuki (Gun Demon)'s Chin to check. Hmm, they're breathing well. I looked at Juuki (Gun Demon), nodded my Head, and pulled out my cock. As my glans scraped against the Intravaginal as it pulled out, Juuki (Gun Demon) flailed again, opening their eyes as if regaining consciousness. Then, they looked at me and asked,</p>
 <p>"Haaang...! Is it, Heueut, is it over now?"</p>

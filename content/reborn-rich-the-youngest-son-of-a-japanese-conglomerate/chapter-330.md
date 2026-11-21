@@ -15,7 +15,7 @@ chapter = 330
 <p>,I'm in a bad mood, should we go somewhere today?"</p>
 <p>Seizawa Shii asked Minamoto Risa after class, but Minamoto Risa shook her head.</p>
 <p>,No, I'm going straight home today."</p>
-<p>,Okay! Don't be too upset~ See you tomorrow, Risa-ttang!"</p>
+<p>,Okay! Don't be too upset See you tomorrow, Risa-ttang!"</p>
 <p>At Minamoto Risa's words, Seizawa Shii said okay and went home. Minamoto Risa was also about to go straight home, but the closer she got to home, the less she wanted to go.</p>
 <p>After all, there was only her secretary, Mekaru Tatsuko, and a housekeeper at home. She wanted to be alone today, but even if she went home, she wouldn't be alone. So, Minamoto Risa decided to walk aimlessly alone.</p>
 <p>She walked for a long time without thinking, and before she knew it, she had come to a street full of love hotels. It was still daytime, so there were hardly any people around, but Minamoto Risa was worried about who might see her, so she tried to leave the love hotel street.</p>
@@ -74,7 +74,7 @@ chapter = 330
 <p>,I'm Eve! Oh my, we both have pink hair?"</p>
 <p>Minamoto Risa had pink blonde hair, and Eve had white hair mixed with pink hair here and there, but Eve smiled and said it as if she had found a commonality.</p>
 <p>,Don't chat and take care of Saionji first."</p>
-<p>,Yes~!"</p>
+<p>,Yes!"</p>
 <p>At my words, Eve pushed Saionji Diana's wheelchair to one side. Huh? It's not a hologram today? I thought only the Tokyo branch was an android, but is the entire branch becoming androidized, or did the android Eve in Tokyo come to Miyashi?</p>
 <p>While I was thinking, Minamoto Risa approached me. When I turned around, she was blushing and had an apologetic expression on her face.</p>
 <p>,I'm sorry. I misunderstood without looking into it more."</p>

@@ -58,7 +58,7 @@ chapter = 418
 <p>Only one joint of her index finger went into her pussy, but it was enough stimulation for Kurayamda Kirie's sensitive virgin bitch body. As soon as her index finger went in, her waist lifted and she climaxed slightly.</p>
 <p>"Heueung...! Now that I know this, haaht...! One joint of my finger is, haaheung, not enough....♥"</p>
 <p>Until now, Kurayamda Kirie had only been enjoying herself with one joint of her index finger to avoid damaging her hymen, but unlike her rational side that was careful with her fingers, she was a sex monster who masturbated three or four times a day.</p>
-<p>"Heuht, Yamashiro-ssi...! Like in the tennis office back then, roughly...! Heuht! Do it to meee~!"</p>
+<p>"Heuht, Yamashiro-ssi...! Like in the tennis office back then, roughly...! Heuht! Do it to meee!"</p>
 <p>Kurayamda Kirie was looking at the ceiling with her mouth open, but the shocking sex scene that Yamashiro Ryuta had shown her was already playing in her head.</p>
 <p>It had already been several months since then, so the memory had been distorted and distorted, and Yamashiro Ryuta's sex partner was already Kurayamda Kirie.</p>
 <p>Jjilkkeok, jjilkkeok, jjilkkeok!</p>

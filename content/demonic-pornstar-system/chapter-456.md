@@ -53,7 +53,7 @@ chapter = 456
 <p>"Don’t cut the second one apart, Cali. Maybe there is an eye scanner somewhere further in," Luna cut in, her tone surprisingly sharp and practical.</p>
 <p>"Oh, good idea! I am not exactly familiar with human defenses," the demoness chirped at the Storm Valkyrie, accompanied by a happy grin.</p>
 <p>"Yeah, I just felt like I had to step in. Your cruel and sadistic side can be a bit much."</p>
-<p>"Working on it~"</p>
+<p>"Working on it"</p>
 <p>Luna’s suggestion was delivered without malice or hesitation, playing along with the demoness perfectly, treating the mutilation like a tactical discussion.</p>
 <p>That was the breaking point. Elise collapsed inwardly with her final resistance crumbling. She broke again, sobbing hysterically, begging for mercy.</p>
 <p>"STOP! PLEASE! I’ll do it! I’ll open it! Just don’t touch me again!"</p>

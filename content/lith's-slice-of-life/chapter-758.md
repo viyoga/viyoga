@@ -131,7 +131,7 @@ The vast expanse of darkness cracked right in front of her eyes and a bright lig
 
 Panicked, she was about to look around for her daughter when…
 
-"Haylouuu~" She heard a majestic voice and then saw a handsome silver-haired man sitting on a chair in front of her, looking at her with a smile and waving his hand.
+"Haylouuu" She heard a majestic voice and then saw a handsome silver-haired man sitting on a chair in front of her, looking at her with a smile and waving his hand.
 
 Keith was startled and put up her guards, but then she heard…
 

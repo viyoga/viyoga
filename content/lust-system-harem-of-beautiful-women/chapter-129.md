@@ -117,7 +117,7 @@ chapter = 129
 
 <p>&quot;Brother-in-law, you picked up all these delicious things on the way?&quot;</p>
 
-<p>&quot;And they’re all Sister Lily’s favorites! Today we’re benefiting from her good fortune~&quot;</p>
+<p>&quot;And they’re all Sister Lily’s favorites! Today we’re benefiting from her good fortune&quot;</p>
 
 <p>The girl speaking had an especially sweet voice, and on closer look, she was quite pretty, her eyes curved like crescent moons, sparkling with lively charm.</p>
 

@@ -34,7 +34,7 @@ chapter = 1001
 <p>The morning sunlight filtered through the window of Hesabeth’s bedroom and fell on Jason’s face as he watched the kingdom with a peaceful expression. Behind him, his three girls were sleeping peacefully on the bed, and Jason knew that they wouldn’t wake up for at least another hour. After helping Hesabeth with her work the previous night, Jason and Hesabeth had both come back to the room, and they ended up having another round of sex with both Riyala and Gina this time. Jason could tell from how needy his girls were that they really missed him.</p>
 <p>’I really don’t want to leave. I wish we could just stay here forever without any worries.’</p>
 <p>Jason let out a calm sigh as this thought crossed his mind, and Jason shook his head to get rid of them. Jason knew he had to leave no matter what. There was a storm brewing in the future, and Jason needed enough power to weather that storm if he wanted to protect his family.</p>
-<p>Knock~ Knock~</p>
+<p>Knock Knock</p>
 <p>A faint knocking echoed from the bedroom door, and Jason turned around and told Stella to come in.</p>
 <p>Stella walked into the room with a calm air around her. Stella looked completely refreshed after a proper night’s sleep, and she put her hands together on her stomach and bowed to Jason respectfully.</p>
 <p>"Good morning, Master. I hope you had an eventful night."</p>

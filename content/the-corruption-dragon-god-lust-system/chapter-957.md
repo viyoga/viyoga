@@ -85,7 +85,7 @@ chapter = 957
 
 <p>"Where’s Mingzhu?" Qingyi asked as he entered, walking with light steps toward his petite, slender wife.</p>
 
-<p>"Hm~~" Rou’er stretched like a kitten, a soft moan escaping her pink lips as her delicate back arched and her short skirt rode up along her plump squishy thighs.</p>
+<p>"Hm" Rou’er stretched like a kitten, a soft moan escaping her pink lips as her delicate back arched and her short skirt rode up along her plump squishy thighs.</p>
 
 <p>"She went to meet with the people from her sect... she’s going to be the lead disciple of the Divine Maiden Sect’s ten thousand envoys, so she needs to organize them carefully."</p>
 
@@ -97,7 +97,7 @@ chapter = 957
 
 <p>The petite beauty didn’t hesitate for even a second. She sprang to her feet and scurried around to stand in front of Qingyi, then dropped to her knees on the soft rug, her eyes sparkling.</p>
 
-<p>"Hm... hubby~~ fufufu~, it’s been so long since you’ve fed me." Rou’er spoke in a high-pitched, mischievous voice, her small hands already fumbling with the buttons on his pants.</p>
+<p>"Hm... hubby fufufu, it’s been so long since you’ve fed me." Rou’er spoke in a high-pitched, mischievous voice, her small hands already fumbling with the buttons on his pants.</p>
 
 <p>As she settled onto her knees, her short pink skirt rode up, revealing her round, pale buttocks.</p>
 
@@ -113,7 +113,7 @@ chapter = 957
 
 <p>The base rested on her chin, the shaft covered her nose, and the tip brushed against her pink hair.</p>
 
-<p>"Hm... fufufu~" She chuckled to herself, taking a deep breath of the masculine scent before sticking out her tongue.</p>
+<p>"Hm... fufufu" She chuckled to herself, taking a deep breath of the masculine scent before sticking out her tongue.</p>
 
 <p>Slowly, her small, pink tongue slid along the length of Qingyi’s cock, from the base to the tip, leaving behind an obscene, glistening trail of saliva.</p>
 
@@ -161,7 +161,7 @@ chapter = 957
 
 <p>She fell back onto the rug, panting, her legs spread wide. Her plump, soaking-wet pussy was on full display, the fleshy lips glistening and puffy, her inner thighs slick with the juices of her own arousal.</p>
 
-<p>"Nghnn~~ so much... my husband never disappoints, fufufu~..." She ran her tongue over her lips, wiping away the remaining cum, then spread her legs even wider and pulled her skirt up to her waist. "Now in my womb—come on, fill it all with cum!"</p>
+<p>"Nghnn so much... my husband never disappoints, fufufu..." She ran her tongue over her lips, wiping away the remaining cum, then spread her legs even wider and pulled her skirt up to her waist. "Now in my womb—come on, fill it all with cum!"</p>
 
 <p>Rou’er didn’t give Qingyi a moment’s respite; she was already ready for round two.</p>
 

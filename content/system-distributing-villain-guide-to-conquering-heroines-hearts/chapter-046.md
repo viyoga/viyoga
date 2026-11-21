@@ -65,7 +65,7 @@ chapter = 46
 <p>***</p>
 <p>Inside the dream, She was back on the bed, lying face down while Dante massaged her back. His hands moved slowly over her bare skin.</p>
 <p>"Is the force enough, master?"</p>
-<p>"Yeah... hnng~ Just like that," Natasha moaned, not even trying to hold it in. A pleased look stayed on her face the whole time.</p>
+<p>"Yeah... hnng Just like that," Natasha moaned, not even trying to hold it in. A pleased look stayed on her face the whole time.</p>
 <p>She wasn’t wearing her nightgown. Just a tiny black lace panty and a towel loosely thrown over her ass. Her breasts were squished against the sheets, soft flesh spilling out from the sides every time she breathed.</p>
 <p>Dante wasn’t as restrained as he was in reality.</p>
 <p>His fingers brushed against her breasts more and more.</p>

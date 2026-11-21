@@ -40,18 +40,18 @@ chapter = 936
 <p>Kki-ik.</p>
 <p>I parked the bike in the Urabe Shrine Parking Lot, took the packaged food, and climbed the stairs.</p>
 <p>When I asked Urabe Konoka and Hanakame, they said they hadn't eaten greasy food while preparing their bodies for battle, so they wanted something like hamburgers or chicken. That's why I had packaged those kinds of foods.</p>
-<p>"Oh, Teacher~!"</p>
+<p>"Oh, Teacher!"</p>
 <p>"Husband, you've arrived."</p>
 <p>The two of them were standing at Lizhael's Shrine Entrance, waiting for me. There was no real need for them to wait at the Entrance.</p>
 <p>"Did you wait long?"</p>
-<p>"No~! We were doing our evening prayers when we heard Footsteps, so we just came out for a moment."</p>
+<p>"No! We were doing our evening prayers when we heard Footsteps, so we just came out for a moment."</p>
 <p>At my Question, Urabe Konoka shook her Head as if to say no. It seemed to have coincided with their evening prayers. Even though it was Sunday, both were wearing Miko clothing. In fact, shrines are busier with more worshippers on holidays, so they probably wear their 'work clothes,' the Miko clothing, more often on Saturdays and Sundays.</p>
 <p>"Are the evening prayers all finished?"</p>
 <p>"Yes...! We heard Teacher's Footsteps just as the prayers were almost finished."</p>
 <p>Teacher's Footsteps? You knew it was me just from the sound of my Footsteps? This shows that Urabe Konoka's Sensation is quite remarkable.</p>
 <p>"I've brought the packaged chicken and burgers you two requested here."</p>
 <p>"Let's go eat, Husband."</p>
-<p>"Let's go eat quickly~! Teacher!"</p>
+<p>"Let's go eat quickly! Teacher!"</p>
 <p>Seeing the chicken and burgers I had packaged, they led me with sparkling Eyes to the restaurant within the Shrine accommodation. It wasn't awkward, as I had been there once or twice before. Though it was my first time eating outside food here.</p>
 <p>As I was taking out the chicken, burgers, Fries, and Cola, the two of them brought plates and tableware, and the meal preparation was quickly finished.</p>
 <p>"Let's eat first."</p>

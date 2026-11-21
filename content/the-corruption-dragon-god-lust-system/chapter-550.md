@@ -87,7 +87,7 @@ chapter = 550
 
 <p>“Hm… you’re right…” He smiled, his palm striking Ruxue’s right ass cheek.</p>
 
-<p>A loud, dry clap echoed through, a shockwave spreading across the fat, perfectly round orb, accompanied by a soft, sensual ripple. “Nghnn~~ you!…” Ruxue shut her mouth, blushing deeply as she grabbed her sore buttock.</p>
+<p>A loud, dry clap echoed through, a shockwave spreading across the fat, perfectly round orb, accompanied by a soft, sensual ripple. “Nghnn you!…” Ruxue shut her mouth, blushing deeply as she grabbed her sore buttock.</p>
 
 <p>With a big smile, Qingyi descended to the ground and entered the world of the mind.</p>
 
@@ -107,6 +107,6 @@ chapter = 550
 
 <p>Qingyi’s hands immediately fell on her breasts, his fingers sinking into her pale, milky skin.</p>
 
-<p>“Nghnn~~” she moaned. “Meilin is anxious about her father’s situation…”</p>
+<p>“Nghnn” she moaned. “Meilin is anxious about her father’s situation…”</p>
 
 <p>“I know… I need to get back there as soon as possible.” Qingyi nodded, his lips opening and then closing around one of Ruxue’s pink nipples.</p>

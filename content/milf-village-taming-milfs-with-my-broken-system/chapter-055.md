@@ -31,7 +31,7 @@ chapter = 55
 
 <p>Never in her wildest dreams did she imagine she would be blessed with a boy so gifted; lucky for her.</p>
 
-<p>&quot;Absolutely, Mom, and you get to savor it all for yourself~&quot; Owen purred, deeply satisfied. She was gradually succumbing entirely to his raw, unbridled, bulging hard cock.</p>
+<p>&quot;Absolutely, Mom, and you get to savor it all for yourself&quot; Owen purred, deeply satisfied. She was gradually succumbing entirely to his raw, unbridled, bulging hard cock.</p>
 
 <p>After all, Owen was unique; he possessed a strange tsundere system and OP skills designed solely for him.</p>
 
@@ -47,7 +47,7 @@ chapter = 55
 
 <p>&quot;I’m rubbing myself right against your lace panties, Mom...&quot; Owen whispered darkly, pressing his rigid heat against her delicate undergarments.</p>
 
-<p>&quot;Ngh~hhnn... ahn ahnnn I-I’m already sensitive down there ahnn.&quot; She was forced to halt her handjob as her spine arched backward.</p>
+<p>&quot;Nghhhnn... ahn ahnnn I-I’m already sensitive down there ahnn.&quot; She was forced to halt her handjob as her spine arched backward.</p>
 
 <p>’Ahnn... so good. I’m bad, I’m a bad mom... savoring a bad deed with my son... Ahnn, ahhnn.’ Her thoughts were even fiercer than what she showed on the outside.</p>
 
@@ -73,7 +73,7 @@ chapter = 55
 
 <p>Simultaneously, Arielle squirted so much that her love juices pooled across the kitchen floor, soaking the entire surface of the countertop as the moisture slowly spread like a rising tide.</p>
 
-<p>&quot;Nghh~nnn... ahnnn ahnn,&quot; she moaned helplessly, her frame twitching in involuntary spasms.</p>
+<p>&quot;Nghhnnn... ahnnn ahnn,&quot; she moaned helplessly, her frame twitching in involuntary spasms.</p>
 
 <p>Her consciousness nearly left her body; she had never experienced a sensation so overwhelming, not to mention it being heavenly.</p>
 
@@ -87,7 +87,7 @@ chapter = 55
 
 <p>She was entirely spent. Her eyes remained half-closed as she moaned weakly, completely overwhelmed.</p>
 
-<p>&quot;What’s this? Are you already completely down for the count, Mom~?&quot; Owen lightly tapped her cheeks to rouse her from her stupor.</p>
+<p>&quot;What’s this? Are you already completely down for the count, Mom?&quot; Owen lightly tapped her cheeks to rouse her from her stupor.</p>
 
 <p>Unfortunately, her mind had been thoroughly hijacked by pure pleasure.</p>
 
@@ -101,7 +101,7 @@ chapter = 55
 
 <p>She was already wasted and had entered Eden.</p>
 
-<p>&quot;Heh... what should I do now~?&quot; Owen muttered. He desperately wanted to claim her completely right then and there, but she was entirely out cold.</p>
+<p>&quot;Heh... what should I do now?&quot; Owen muttered. He desperately wanted to claim her completely right then and there, but she was entirely out cold.</p>
 
 <p>Doing a deed while she was wasted would be bad; that was not something he could do. Yet, at the same time, a feral instinct urged him to take her wildly.</p>
 

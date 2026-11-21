@@ -38,7 +38,7 @@ chapter = 1098
 <p>The purpose of this trip to the USA was because the Federal Superpower Management Bureau had called him, but while he was there, he also saved Sajo and handled business-related matters, making it quite a fruitful business trip. Now it was time to discuss those achievements and talk about what to do next.</p>
 <p>"First, regarding business matters.... Shiyo, could you summarize and tell us?"</p>
 <p>Rather than me speaking, I judged it would be better for Naruse Shiyo, who had been with me as the head of Josodang in the USA, to do it. So I called Naruse Shiyo.</p>
-<p>"Yes~! First, the business achievement is that we purchased the patents of Obsidian Pharmaceuticals. Our employees are currently there working diligently, so they should be able to acquire the targeted patents."</p>
+<p>"Yes! First, the business achievement is that we purchased the patents of Obsidian Pharmaceuticals. Our employees are currently there working diligently, so they should be able to acquire the targeted patents."</p>
 <p>Although it would be unfair from their perspective, Obsidian Pharmaceuticals and Obsidian Syndicate were being dismantled, both the company and the gang organization, after being identified as the main culprits of the New Rochelle Incident.</p>
 <p>"If possible, we are also trying to recruit alchemists belonging to Obsidian Pharmaceuticals, but the New Rochelle Incident is not a small matter, so there's a possibility it won't work out."</p>
 <p>If there was the Dignity Health Sports Park incident caused by Famine in LA in the Western USA, then the New Rochelle Incident in the Eastern USA was an equally significant event.</p>

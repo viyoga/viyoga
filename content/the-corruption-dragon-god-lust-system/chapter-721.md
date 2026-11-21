@@ -51,7 +51,7 @@ chapter = 721
 
 <p>Qingyi brought the chicken thigh toward her, expecting her to take it from him, but Bai Yunxi merely tilted her head and sank her teeth into the meat.</p>
 
-<p>“Hm~” A sweet moan of pleasure escaped her lips. Then she leaned in once more, her pink tongue emerging in a slow lick.</p>
+<p>“Hm” A sweet moan of pleasure escaped her lips. Then she leaned in once more, her pink tongue emerging in a slow lick.</p>
 
 <p>“It’s delicious…” she whispered, taking another bite, every motion sensual and provocative.</p>
 
@@ -91,7 +91,7 @@ chapter = 721
 
 <p>Her entire body stiffened.</p>
 
-<p>“Ah~~” A single high-pitched sound escaped her lips, almost involuntary. Then crimson burst onto her cheeks, spreading all the way to the tips of her ears.</p>
+<p>“Ah” A single high-pitched sound escaped her lips, almost involuntary. Then crimson burst onto her cheeks, spreading all the way to the tips of her ears.</p>
 
 <p>It took just a single moment for her face to look like a ripe tomato.</p>
 

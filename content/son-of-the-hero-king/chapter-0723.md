@@ -25,7 +25,7 @@ chapter = 723
 <p>His heart was pounding from arousal as he grabbed her breasts and sucked at the hard tips that had gotten as hard as a rock. He was not the only one aroused, it seemed.</p>
 <p>If you discover this narrative on Amazon, be aware that it has been stolen. Please report the violation.</p>
 <p>Her aereola felt as soft as they looked and a sweet flavor spread through his mouth.</p>
-<p>“Ah~…!”</p>
+<p>“Ah…!”</p>
 <p>The brown-haired maid moaned subtly as he sucked at her pink nipple, but she soon held her mouth shut and placed a hand around Sol’s head to gently embrace him.</p>
 <p>She generally seemed like the type who lived for her job, but she gave off the warm acceptance and maternity of an older woman at times like this, which made him want to indulge in it even more. He had to admit, he was addicted to her.</p>
 <p>“How does my milk taste?”As he lost himself in sucking her milk jugs, she rubbed his head and whispered the question in a dazed voice.</p>

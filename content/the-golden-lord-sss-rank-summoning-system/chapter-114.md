@@ -32,7 +32,7 @@ chapter = 114
 <p>Well, being a virgin at forty-five wasn’t something she was proud of.</p>
 <p>But for great female experts, it wasn’t uncommon to preserve their chastity until death, since they saw men as obstacles to their path toward power.</p>
 <p>She herself was like that. Until she met Ethan, she’d never had any interest in men. Her mind had been focused solely on building her nation.</p>
-<p>"Ah~" A long, sensual sigh escaped her rosy lips as her face lifted toward the showerhead, the icy water falling ceaselessly over them both.</p>
+<p>"Ah" A long, sensual sigh escaped her rosy lips as her face lifted toward the showerhead, the icy water falling ceaselessly over them both.</p>
 <p>The cold stream struck her face first, then trickled down her neck and over those large, chocolaty orbs.</p>
 <p>The water traced every curve, following the line where their bodies pressed together and pooling briefly in the deep cleavage squished against Ethan’s chest before spilling down her lean stomach.</p>
 <p>Her dark nipples hardened instantly from the cold, stiffening against his skin.</p>
@@ -41,7 +41,7 @@ chapter = 114
 <p>That her steak was too juicy and her lobster was too buttery?</p>
 <p>Slowly, Elena’s hand slid down between them, her fingers wrapping firmly around Ethan’s massive cock.</p>
 <p>She felt it twitch at her touch, the shaft thick and hot.</p>
-<p>"Looks like someone’s excited to see me, fufufu~~ don’t worry, sweetheart, I’ll take good care of it...♡" Elena leaned into Ethan, her lips brushing his ear as she whispered.</p>
+<p>"Looks like someone’s excited to see me, fufufu don’t worry, sweetheart, I’ll take good care of it...♡" Elena leaned into Ethan, her lips brushing his ear as she whispered.</p>
 <p>The handsome young man shuddered, a chill running down his spine.</p>
 <p>Young beauties were nice, yes, but sometimes, a milf mommy was all a man needed.</p>
 <p>Elena’s knees buckled slowly. Her hands traced the ridges of Ethan’s muscles as she lowered herself before him, fingernails dragging lightly across his wet skin.</p>
@@ -50,7 +50,7 @@ chapter = 114
 <p>His cock disappeared completely, swallowed between those massive, dark orbs. The soft flesh molded around every vein and ridge, warm and pillowy, squeezing him from both sides in a grip that no hand could replicate.</p>
 <p>She leaned forward, her breasts pressing flat against Ethan’s strong lower abdomen, the heavy undersides spreading out from the pressure.</p>
 <p>Her lips closed over the reddish tip of the pale shaft that poked up from between her cleavage, the only part of him that her tits couldn’t cover.</p>
-<p>"Nghnn~~ slurp~~ does this please you, my lord? Ah~" Elena asked as she licked the swollen glans, the salty taste of pre-cum flooding her tongue and coating her lips.</p>
+<p>"Nghnn slurp does this please you, my lord? Ah" Elena asked as she licked the swollen glans, the salty taste of pre-cum flooding her tongue and coating her lips.</p>
 <p>She squeezed her huge dark tits with full force around the shaft, her fingers sinking deep into the pliant flesh until it bulged between her fingers. She held the pressure until it hurt, then released.</p>
 <p>His cock throbbed hard between them, and the sudden relief made her breasts bounce back into their natural shape.</p>
 <p>"Yes." Ethan nodded, his hands running through Elena’s short black hair as he resisted the urge to shove his entire cock down that tight throat.</p>

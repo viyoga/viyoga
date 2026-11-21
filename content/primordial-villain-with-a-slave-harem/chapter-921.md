@@ -41,10 +41,10 @@ chapter = 921
 <p>"Notice what?" Feng asked cautiously.</p>
 <p>"Not out there, girls. In here," Mearie said as she tapped the side of her head, wearing that same amused smirk as Luminara.</p>
 <p>"You’re from the world of cultivation," she explained smoothly, swirling her wine before taking a happy sip. "And from what I gathered, Quinnie’s newly formed soul realm didn’t have the universal systems implemented properly just yet. No synchronization, no interface. Maybe it’s just a matter of time, but who knows... As Lumi said, we’ve decided to settle for him being our little anomaly; trying to understand everything about Quinnie is just going to give us chronic migraines."</p>
-<p>Luminara nodded along, clearly enjoying the teasing they could dish out on the two girls. "But ever since you arrived here... well, some adjustments should have most certainly occurred. You are in a system-bound realm now, after all. Qi and cultivation aren’t exactly compatible with the world of mana and levels~"</p>
+<p>Luminara nodded along, clearly enjoying the teasing they could dish out on the two girls. "But ever since you arrived here... well, some adjustments should have most certainly occurred. You are in a system-bound realm now, after all. Qi and cultivation aren’t exactly compatible with the world of mana and levels"</p>
 <p>Serika frowned, her brows knitting. Feng looked even more skeptical, the expression on her face landing somewhere between "you’re joking" and "are you insane like your overly arrogant son, Mothers?"</p>
 <p>"What are you talking about?" Feng asked flatly, not enjoying the feeling of suspense in the air.</p>
-<p>"You’ll see~" Mearie purred.</p>
+<p>"You’ll see" Mearie purred.</p>
 <p>Quinlan decided to intervene, suppressing a chuckle. His mothers were way too amused at the expense of the two newcomers.</p>
 <p>"Look inside with your mind. You should’ve gotten system notifications. Maybe they were muted... or maybe you just ignored them by accident."</p>
 <p>Feng stared at him like he’d grown a second head. "You’re telling me there are ’notifications’ in my brain?"</p>

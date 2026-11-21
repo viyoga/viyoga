@@ -15,7 +15,7 @@ chapter = 93
 <p>"Then why don’t you push me away?" Ethan asked.</p>
 <p>"Humans are naturally superficial creatures... the beautiful is good, the ugly is bad." Elena murmured, her voice low and unhurried. "Our hearts are moved by what we see, not by what is."</p>
 <p>"You’re not the kind of person who would let yourself be fooled by something so crude..."</p>
-<p>"Am I not? Mmmhn~..." Elena purred, her chest pressing forward, drowning Ethan in its vastness and softness, the heavy mounds molding around his features. "I must see more than you do then, my lord."</p>
+<p>"Am I not? Mmmhn..." Elena purred, her chest pressing forward, drowning Ethan in its vastness and softness, the heavy mounds molding around his features. "I must see more than you do then, my lord."</p>
 <p>With a sweet sigh, she finally pulled away, her breasts dragging slowly across his face before swaying back into place, their momentum sending a ripple through the full, dark flesh.</p>
 <p>Her high cheekbones flushed slightly as she gazed down at Ethan’s handsome face.</p>
 <p>The young man stayed still, studying her in silence.</p>
@@ -41,7 +41,7 @@ chapter = 93
 <p>"Ah..." Ethan groaned, not bothering to answer as he enjoyed the handjob.</p>
 <p>Without a response, Elena focused entirely on the task, the soft, warm skin of her palm gliding up and down the massive member at an increasing pace, the thick veins pressing against her grip.</p>
 <p>Ethan’s hands moved upward, reaching for her breasts and squeezing firmly, fingers sinking deep into the rich, dark flesh, the heavy mounds spilling between his knuckles as he massaged them with vigour.</p>
-<p>"Nghnn~~" She moaned, but made no move to stop him.</p>
+<p>"Nghnn" She moaned, but made no move to stop him.</p>
 <p>Her eyes clouded over as they fell upon his cock once more, a rosy smile spreading across her lips.</p>
 <p>She paused for a moment, running her thumb slowly over the red, swollen head, her hand already damp with pre-cum.</p>
 <p>When she felt Ethan’s body shudder beneath her grip, she knew she was doing something right.</p>

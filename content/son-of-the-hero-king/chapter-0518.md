@@ -56,7 +56,7 @@ chapter = 518
 <p>At first, she had been hesitant because of the position, but soon,</p>
 <p>She massaged her own breasts while enjoying it. She moved her hips back and forth to help rub her clit and labia against his nose, lips, and protruding tongue.</p>
 <p>The more he stirred up her sexual flesh, the more the beautiful knight’s body trembled, the more she moaned, and the more love juices poured from her.</p>
-<p>“Ah, ahn, ahhn, ahn~!”</p>
+<p>“Ah, ahn, ahhn, ahn!”</p>
 <p>He was so happy that the cool young woman was moaning so sweetly he began to lick at her vaginal entrance, poke at her urethra, and suck at her clitoris.</p>
 <p>Her large clit made for an easy target, so he both flicked it with his tongue and poked at it with his nose.</p>
 <p>When he stuck his tongue in her vagina and rapidly rotated it while rubbing her clit with his nose, Setsuna moaned extra loud while massaging her own breasts. Love juices erupted from her and her body trembled so much she lost her balance and fell forward.</p>

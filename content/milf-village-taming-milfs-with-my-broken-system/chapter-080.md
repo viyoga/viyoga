@@ -79,13 +79,13 @@ chapter = 80
 
 <p>&quot;How could you act like that? Hehe, how did my shy, conservative mom turn into this...&quot;</p>
 
-<p>&quot;Nghh~hhnnn, I’m so sensitive... ahhn...&quot;</p>
+<p>&quot;Nghhhhnnn, I’m so sensitive... ahhn...&quot;</p>
 
-<p>&quot;That’s why I’m working for them, Mom~.&quot;</p>
+<p>&quot;That’s why I’m working for them, Mom.&quot;</p>
 
 <p>&quot;Ahhn, working your fingers... ahhn... You bad boy...&quot;</p>
 
-<p>&quot;Then you’re a pervert, Mom. It’s lactating so much again... did my seed help you that much, Mom~?&quot;</p>
+<p>&quot;Then you’re a pervert, Mom. It’s lactating so much again... did my seed help you that much, Mom?&quot;</p>
 
 <p>&quot;Ahhn... I don’t know, my body just feels so hot... ahhn... ahhn.&quot;</p>
 
@@ -97,7 +97,7 @@ chapter = 80
 
 <p>&quot;No... j-just a little bit...&quot; She turned her head sideways, tossing her hair to cover her face.</p>
 
-<p>&quot;Oho... how bad, how bad... now enough with the talking, and let’s proceed to round 2, Mom~.&quot;</p>
+<p>&quot;Oho... how bad, how bad... now enough with the talking, and let’s proceed to round 2, Mom.&quot;</p>
 
 <p>Arielle cleaned his cock until it glistened under the dim light after her perfect cleaning using her tongue. She was like a pro, working overtime even though it was already late at night. She was working hard for the sake of her son.</p>
 

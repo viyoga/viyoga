@@ -16,7 +16,7 @@ chapter = 444
 <p>This is because, since the terror attack had just happened, the security personnel of each family had been greatly increased, and the police were patrolling with their eyes peeled. This was also one of the reasons why I postponed the outdoor sex. It would be a problem if I was walking around with Kurayamada Kirie in the nude with a leash and got caught by the patrolling police.</p>
 <p>The rest of the fax didn't have anything special, just about comforting the students who were shaken by the incident. After familiarizing myself with the fax, I went to the special class classroom with Kurayamada Kirie.</p>
 <p>"Good job today, everyone."</p>
-<p>"Ah~! Korean is so difficult, Ryuta-jji!"</p>
+<p>"Ah! Korean is so difficult, Ryuta-jji!"</p>
 <p>"That's right! Make the exam easy!"</p>
 <p>"Kyahaha! It would be easier if you gave up like me."</p>
 <p>Today's Korean class was a day to learn particularly difficult grammar, so the kids in the class were in an uproar. Only Kujo Kina was sitting in a slouching posture, saying that she had already given up and laughing heartily.</p>
@@ -26,13 +26,13 @@ chapter = 444
 <p>Seeing most of them raising their hands at my question, it didn't seem like they were too worried about the terror incident. Most of the students at St. Francisco Girls' Academy are always accompanied by bodyguards, so it felt like most of them had some kind of safety insensitivity.</p>
 <p>Saionji Diana, Sakagami Rena, and Otagi Yuka, who don't have much support from their families, have their own strength, so they don't seem to worry much about safety either, and Alik just didn't seem to have any thoughts.</p>
 <p>"I'm not going to stop you from having a study group, but since what happened yesterday, be more careful than usual... If anything happens, contact I-sensei. If there's anything I can help with, I'll definitely help."</p>
-<p>"Ooh~! Pretending to be cool. Ooh~!"</p>
+<p>"Ooh! Pretending to be cool. Ooh!"</p>
 <p>Seizawa Shii's jeers immediately followed. Minamoto Risa, who was sitting next to her, was smiling refreshingly as if she found the scene amusing. Like when I helped Otagi Yuka this time, my words were sincere.</p>
 <p>Even though I'm forced to be a teacher because of a mission, I've grown attached to the students and they're all good kids, so if something happens that I can help with, I was thinking that I would gladly help.</p>
 <p>"Okay, always be careful at night... See you tomorrow. Dismissed!"</p>
 <p>Now that the end-of-day announcements are over, I should contact Daigo Terue. She must be feeling down, so I need to cheer her up with my serpent.</p>
 <p>###</p>
-<p>"Ah~! I haven't studied for a few days, so nothing's going into my head...!"</p>
+<p>"Ah! I haven't studied for a few days, so nothing's going into my head...!"</p>
 <p>Otagi Yuka said, stretching forcibly. Everyone couldn't concentrate because they hadn't been able to study due to the SPF incident from Friday night to Monday. After studying a little and chatting, the study group members were sprawled out, exhausted.</p>
 <p>"Shall we go back now? Let's work hard from tomorrow."</p>
 <p>"Let's do that. It's getting late...."</p>
@@ -41,7 +41,7 @@ chapter = 444
 <p>Originally, Konoe Akina and Alik would ride in the same car, and Saionji Diana and Otagi Yuka would walk together, but after yesterday's incident, Alik's Egawa family also prepared a car and was waiting for Alik.</p>
 <p>Saionji Diana was also almost abandoned by her family, but after this incident, she was conscious of the surrounding gaze, so they were providing a car. However, only Otagi Yuka, who had cut ties with her family herself, didn't have a car to take her, so she decided to walk home.</p>
 <p>"Good job today."</p>
-<p>"Bye~!"</p>
+<p>"Bye!"</p>
 <p>"See you tomorrow!"</p>
 <p>"Everyone... goodbye...."</p>
 <p>Everyone said goodbye and parted ways. Otagi Yuka walked alone on the dark street. Otagi Yuka, a vampire, was in a confused state. She should be wanting blood right now, but she didn't feel any such desire.</p>

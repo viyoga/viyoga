@@ -53,7 +53,7 @@ chapter = 1002
 <p>As I walked up the stairs to the 2nd floor, there was a fairly spacious Lobby-like Place. Rather than a Lobby.... It felt like an Adults' Playground? There was a long sofa, a large screen, a table tennis court, and even a bar displaying Alcohol.</p>
 <p>"Huh? Ryuta-jji?!"</p>
 <p>The first to greet me was Seizawa Shii, who was holding a table tennis paddle. At Seizawa Shii's shout, Seizawa Shii's table tennis opponent turned around, and it was Otagi Yuka.</p>
-<p>"Ryuta-ssi~! You came quickly?"</p>
+<p>"Ryuta-ssi! You came quickly?"</p>
 <p>I had told them I was going to the USA, but why were these Kids in the Federal Superpower Management Department's Safe House? As I looked puzzled, Diana Leach smiled and said.</p>
 <p>"Since you are a Party anyway, there was no need to host you separately, so we brought you to our Safe House."</p>
 <p>The Federal Superpower Management Department also seemed to have considered Sabu Fujigasaki Rinka's side. Indeed, everyone except the Gwonmaeng People, Kujo Kina's side, and Genbaki Priest were under my influence, so it was more comfortable for them to be together.</p>
@@ -76,7 +76,7 @@ chapter = 1002
 <p>"Today is our day off... rather, we're resting a bit because we haven't had any Achievements."</p>
 <p>"I worked hard, but today is a Rest day to specifically let Rieko rest."</p>
 <p>They were roaming the night streets of New York every night, but it would be a bit tiresome if there were no particular Achievements. Otagi Yuka came here to train Seiwa Rieko, so it seemed she had worked hard and given Seiwa Rieko a day of Rest.</p>
-<p>Gojoy-nim requested Funeral Yukiko Kimono and normal version~!</p>
+<p>Gojoy-nim requested Funeral Yukiko Kimono and normal version!</p>
 <p>Kimono</p>
 <p>Normal</p>
 <p>Kkiyot.... The illustration requested by Chomisaemeonji-nim couldn't be generated because the AI program suddenly broke down.... I will upload it as soon as it's fixed ㅠㅠ</p>

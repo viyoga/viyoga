@@ -15,7 +15,7 @@ chapter = 596
 <p>Aria shifted closer on his other side, propping herself up just enough to look him over properly. Her gaze moved with trained attention, checking his posture, his breathing, the way his shoulders sat against the mattress. "Do you feel better, Kai?" she asked worriedly, like someone who had already decided she would handle any answer he gave her. Her fingers brushed his hair back from his forehead with careful familiarity.</p>
 <p>Luna leaned in from behind him, chin resting lightly on his shoulder. There was a faint spark of mana in her presence, restrained and controlled, as she focused only on him rather than anything else. "Does anything feel wrong?"</p>
 <p>Nyx was closest to his face, her head resting against his collarbone, eyes half-lidded with satisfaction as she watched him wake properly. A soft whisper rolled from her chest, slow and soothing, vibrating against him in a way that made the warmth sink deeper. "Tell us what we can do, Kai," she murmured.</p>
-<p>"Anything~" Calypso chirped.</p>
+<p>"Anything" Calypso chirped.</p>
 <p>Kaiden took a breath, feeling the room, the people in it, the way his body responded without strain. The exhaustion from the trial felt distant now, replaced by a calm steadiness and a sense of anticipation. His arms tightened around them instinctively, drawing them closer as his smile returned, this time reaching his eyes with ease.</p>
 <p>"I slept well, my beautiful angels," he decreed with a big smile that soothed the worried hearts of all the girls present at once.</p>
 <p>Then, following his declaration, Kaiden’s smirk sharpened as he looked between Nyx and Calypso, his gaze lingering on the way their expressions softened under his scrutiny.</p>

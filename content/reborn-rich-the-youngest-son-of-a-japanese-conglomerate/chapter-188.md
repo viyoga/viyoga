@@ -19,7 +19,7 @@ chapter = 188
 <p>"Y-yes!"</p>
 <p>Hearing Tang Xiaohua's words, the messenger bowed and hurriedly left the library. At that moment, the moon, which had been hidden in the clouds, revealed itself, revealing Tang Xiaohua's appearance.</p>
 <p>Perhaps due to the influence of the Poison Art, she had bright green hair and radiant green eyes. Her slender body was clad in a cyber suit. What was unique was that she was wearing a tech mask in the shape of a skull's mouth. This skull mask was Tang Xiaohua's trademark, and anyone who knew Tang Xiaohua would run away immediately if they saw someone wearing that mask. The green lights flashing on the cyber suit circuits here and there made her look dangerous to anyone.</p>
-<p>"Ah~! I'm so bored...! I wish the situation was a bit more urgent...."</p>
+<p>"Ah! I'm so bored...! I wish the situation was a bit more urgent...."</p>
 <p>Tang Xiaohua stretched alone and muttered. After all, it wasn't Taira's main force, but just a fight with Taira Foods, so she didn't even think about losing. Tang Xiaohua was certain that this fight would end in her victory as well.</p>
 <p>###</p>
 <p>Tang!</p>

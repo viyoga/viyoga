@@ -21,7 +21,7 @@ chapter = 775
 <p>"What do you mean always? He’s barely here. You were perfectly fine playing with Lady Yoruha in his absence Aurora muttered wryly but got completely ignored by the dramatic little dryad who even went as far as to move her two small hands toward Blossom’s ears to shield them in an attempt to ensure she doesn’t hear her big sis’ sacrilegious words.</p>
 <p>She didn’t need to fear, for Blossom was too happy pampering her daughter to pay attention to Aurora.</p>
 <p>So much so that she was absolutely beaming. The blonde dogkin tightened her arms around the sniffling little dryad, burying Rosie even deeper into her chest, rocking her gently back and forth. The dryad’s previous sobs melted into a stream of delighted giggles, her small body squirming like a kitten overwhelmed by affection.</p>
-<p>"Rosie feels so safe with Mommy Blossom…! Ehehehe~!” she squealed happily like a spoiled baby.</p>
+<p>"Rosie feels so safe with Mommy Blossom…! Ehehehe!” she squealed happily like a spoiled baby.</p>
 <p>"Blossom loves Rosie!”</p>
 <p>"Rosie loves Blossom!”</p>
 <p>Watching the scene unfold, Ayame let out a long, tired sigh.</p>

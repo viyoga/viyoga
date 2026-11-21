@@ -22,12 +22,12 @@ chapter = 138
 <p>Her pink nipples, framed by an obscene pale patch of untanned skin, mashed flat against Mireya’s purplish ones. Four stiff little buds ground into a sensitive tangle as the four soft mounds compressed against one another.</p>
 <p>And buried snugly in the deep valley where all that warm tit-flesh met was, naturally, Ethan’s face.</p>
 <p>His hands wrapped around the women’s delicate waists, fingers kneading their silky skin while his face sank deeper into the fragrant embrace of those huge, soft boobs.</p>
-<p>"Ah~~ aren’t you tired of this yet? We should be training right now, not-"</p>
+<p>"Ah aren’t you tired of this yet? We should be training right now, not-"</p>
 <p>Before Evelyn could finish her sentence, Ethan’s palm had already cracked down on her shapely, luscious ass.</p>
 <p>The tanned flesh exploded into ripples under the impact, the firm cheek flattening into a momentary, handprint-shaped crater beneath his palm before snapping back into shape.</p>
 <p>A bright red handprint bloomed vivid against the bronzed skin, slowly fading into a faint pink afterglow.</p>
 <p>Evelyn moaned, biting her lower lip as she panted, her body writhing slightly against him.</p>
-<p>"Nghnn~~ if you’re going to tease me like that, at least just fuck me already... Don’t think I can’t make you call me Mommy Evelyn!"</p>
+<p>"Nghnn if you’re going to tease me like that, at least just fuck me already... Don’t think I can’t make you call me Mommy Evelyn!"</p>
 <p>She grunted with feigned anger, hugging Ethan and yanking him harder against her chest, actively trying to smother him in all that hot, tanned flesh.</p>
 <p>Not to be outdone, Mireya, her face still flushed and her eyes carrying a hint of indignation, flashed a soft smile and matched Evelyn’s act.</p>
 <p>Ethan’s free hand wandered down to palm Mireya’s plump ass cheek, giving it a possessive squeeze. The soft, creamy flesh oozed out between his fingers like dough. He drew back and brought his hand down with a sharp crack.</p>

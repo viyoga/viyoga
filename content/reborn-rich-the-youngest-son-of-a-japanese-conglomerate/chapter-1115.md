@@ -41,7 +41,7 @@ chapter = 1115
 <p>We also planned to open restaurants on the 2nd and 3rd floors, and we would surely be able to obtain Information from there as well.</p>
 <p>-Neo-Tokyo 24-hour Gyudon.</p>
 <p>The gyudon restaurant with no distinguishing features visible from the car window was the restaurant operated by Joseodang. Of course, it would change to Mars Burger within a few months, but it was said to be a decent restaurant.</p>
-<p>"I'll park~!"</p>
+<p>"I'll park!"</p>
 <p>Tsukiyo stopped the car with a cheerful Voice, and Linxiang, Alik, and I got out. Originally, I had intended to go with only Linxiang, but Alik wanted to eat gyudon, so he came along.</p>
 <p>Ttal-lang.</p>
 <p>As we entered the restaurant, the front door bell attached to the door shook and made a sound. The Clerks greeted us warmly. A few of the Clerks who greeted us warmly would be our Joseodang agents.</p>

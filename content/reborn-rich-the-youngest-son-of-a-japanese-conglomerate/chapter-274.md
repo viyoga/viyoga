@@ -28,11 +28,11 @@ chapter = 274
 <p>Fujigasaki Rinka showed her unique peace sign with her thumb, index finger, and middle finger extended and tried to pass by.</p>
 <p>The reporters, not satisfied with just a few words, blocked Fujigasaki Rinka's path, but Fujigasaki Rinka passed through the numerous reporters like a ghost.</p>
 <p>The reporters won't be able to follow anymore, so she'll be here soon. I started drinking the half-finished coffee a little faster than before.</p>
-<p>Fujigasaki Rinka: I'm in the car. Please take out my coffee too. Iced~!</p>
+<p>Fujigasaki Rinka: I'm in the car. Please take out my coffee too. Iced!</p>
 <p>As expected, she's fast. After finishing my coffee, I went to the counter and packed an iced coffee to go and went to my car. When I got in the car, Fujigasaki Rinka was sitting in the back seat.</p>
 <p>,Annoying, those reporters.... Should I kill one of the guys who wrote a weird article after reading the article? Oh, thanks for the coffee.</p>
 <p>Fujigasaki Rinka said something chilling that I didn't know if it was a joke or not and took the coffee I gave her. After taking a sip of coffee, she seemed to come to her senses and shouted, ,Kya!, like she was drinking alcohol.</p>
-<p>,Kya! I feel alive when I get some caffeine~!! Hey, disciple. Let's grab a bite to eat since it's morning.</p>
+<p>,Kya! I feel alive when I get some caffeine!! Hey, disciple. Let's grab a bite to eat since it's morning.</p>
 <p>,What would you like to eat?</p>
 <p>Considering my position where I have to hide my identity as much as possible, it was a bit awkward to go to a restaurant with Fujigasaki Rinka, but she said it in advance, so she must have something in mind.</p>
 <p>,Pack a large-sized Gyudon from Yoshinoya.</p>
@@ -41,7 +41,7 @@ chapter = 274
 <p>Still, it seems she's thinking of eating in the car since she told me to pack it. By the way, she's a master who doesn't know good taste since she doesn't like Matsuya. I went to Yoshinoya near the airport and packed two large-sized Gyudon and one large-sized Butadon.</p>
 <p>,Kyaa! It tastes much better in Japan than in America!</p>
 <p>Fujigasaki Rinka ate the Gyudon as if it was very delicious, and I watched her and took out the Butadon to eat. I didn't eat breakfast either, so even though I didn't really like Yoshinoya, I ate it quite deliciously.</p>
-<p>,Ugh~! That was good. By the way, what is that company you're going to for the outing today?</p>
+<p>,Ugh! That was good. By the way, what is that company you're going to for the outing today?</p>
 <p>,You said you were participating in the outing too, Sabe-nim, so why are you asking now?</p>
 <p>When I looked at her with a dumbfounded expression, Fujigasaki Rinka laughed heartily again, ,Kyahaha!</p>
 <p>,I'm joining because I want to have fun too. Our youngest son of Japan's richest family must be busy, so I'm saving you time to meet me separately.</p>
@@ -65,7 +65,7 @@ chapter = 274
 <p>,Do as you please. I'm going to sleep for 2 hours while we're going. I'm a bit tired because of the time difference.</p>
 <p>The time difference between LA and Japan is a whopping 16 hours, so even Fujigasaki Rinka, who is a superhuman, must be tired.</p>
 <p>I glanced at Fujigasaki Rinka, who was closing her eyes, in the rearview mirror and turned on the music I listen to while driving.</p>
-<p>~♬ ~♪</p>
+<p>♬ ♪</p>
 <p>While listening to music and humming along, I was able to arrive at the training camp where the Seryu Group trainees were training. Fujigasaki Rinka really meant it when she said she would only sleep for 2 hours, as she opened her eyes almost perfectly on time. Fujigasaki Rinka stretched her arms out and smiled. She had an expression that said she was in top condition.</p>
 <p>,Hmm, I'm getting used to it now.</p>
 <p>She overcame the 16-hour time difference with just 2 hours of sleep, what an amazing Sabe-nim.</p>
@@ -73,7 +73,7 @@ chapter = 274
 <p>,Everyone, you've worked hard for several weeks. Now you are true members of the Seryu Group.</p>
 <p>,Waaaaah!</p>
 <p>The speech ended just as we arrived, and the trainees were cheering. They all seemed quite happy that the training in the mountains was over.</p>
-<p>,Ryuta~!</p>
+<p>,Ryuta!</p>
 <p>As soon as Sawayanagi Azuma-ssi's speech ended, Alik ran to me with an otododo and hugged me tightly. I stroked Alik's head. Alik was looking up at me with his hands clasped together. Alik was wearing a green field jacket with the Seryu Military Company logo on it, as if it was given to the trainees who finished the training. It looked quite big on Alik, but there's still room for growth, so it'll fit perfectly later.</p>
 <p>,You worked hard, Alik.</p>
 <p>,Alik had fun.</p>

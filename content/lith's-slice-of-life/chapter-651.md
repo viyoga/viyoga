@@ -43,7 +43,7 @@ He put his hands on her thighs to keep her legs separated and sprung to action b
 
 Emilia shivered lightly with the first lick and immediately in the next instant,
 
-"Ahhh~"
+"Ahhh"
 
 Her body arched upwards and she moaned in pleasure due to the sudden attack her insides got from Lith's tongue.
 
@@ -57,7 +57,7 @@ Except for a few, Lith didn't use too many different techniques as they weren't 
 
 With the remaining free hand, Lith moved it up to knead her breasts and pull her nipples. 
 
-"Mhhmmm~" Emilia moaned in satisfaction, feeling Lith's hands.
+"Mhhmmm" Emilia moaned in satisfaction, feeling Lith's hands.
 
 With Lith's great skills, it didn't take long for Emilia's orgasm to build up. She was now at the very edge and Lith could feel it from the tightening walls of her insides. 
 

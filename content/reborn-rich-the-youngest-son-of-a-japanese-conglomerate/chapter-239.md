@@ -51,7 +51,7 @@ chapter = 239
 <p>"Thank you for the good information. We'll repay you with good results too."</p>
 <p>"Okay, contact your friend."</p>
 <p>I briefly left the drawing room and called Han Yu-gyeong. Han Yu-gyeong answered my call right away, as if she had been waiting for it.</p>
-<p>-Yong-tae-ya~♥</p>
+<p>-Yong-tae-ya♥</p>
 <p>"Yeah, Yu-gyeong-a. What were you doing?"</p>
 <p>-I'm preparing to start our company. I'm also talking to Hatake Investment Company. I'm also talking to that Amsang side and discussing equity....</p>
 <p>While I was playing in the US, Han Yu-gyeong was living quite busily to create a company with me, with the equity split 50/50. I feel a little sorry. But she's done things like Amsang's investment and other things, so she's not just playing around, so I don't need to feel so guilty.</p>

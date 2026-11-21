@@ -79,15 +79,15 @@ chapter = 1037
 <p>At Kurayamada Kirie's Words, Whisper felt a chill. Despite having a precognitive Ability User, the fact that the longsword Woman was standing in front of her meant that Woman would defeat her.</p>
 <p>"Shut up! There's no such thing as Destiny! I'll prove that the future is wrong!"</p>
 <p>Whisper screamed and pulled the trigger.</p>
-<p>Whisper Combat Uniform B-cut~!</p>
+<p>Whisper Combat Uniform B-cut!</p>
 <p>It's a bit inconsistent, but I quite like it haha.</p>
-<p>MidNightSKY-nim requested Linling, Linxiang Singing at Karaoke~!</p>
-<p>Linling~!</p>
+<p>MidNightSKY-nim requested Linling, Linxiang Singing at Karaoke!</p>
+<p>Linling!</p>
 <p>Appearing like a hidden picture, little Linling is cute hehehehehe.</p>
-<p>Linxiang~!</p>
+<p>Linxiang!</p>
 <p>The last one is so excited she climbed onto the sofa haha.</p>
-<p>Gojoy-nim requested 1. Hanasaki Sayaka's Eyes sparkling upon realizing the protagonist's Sabu is Rinka~! 2. Rinka receiving Contact from the protagonist~!</p>
+<p>Gojoy-nim requested 1. Hanasaki Sayaka's Eyes sparkling upon realizing the protagonist's Sabu is Rinka! 2. Rinka receiving Contact from the protagonist!</p>
 <p>1.</p>
 <p>2.</p>
-<p>SkyFerry-nim requested the school nurse wearing a Doctor's Gown and a trench coat (like a pervert/flasher) Attire~!</p>
-<p>Kkippaet~!</p>
+<p>SkyFerry-nim requested the school nurse wearing a Doctor's Gown and a trench coat (like a pervert/flasher) Attire!</p>
+<p>Kkippaet!</p>

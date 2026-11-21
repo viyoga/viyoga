@@ -21,7 +21,7 @@ chapter = 460
 
 <p>Their hearts beat faster and their faces burned.</p>
 
-<p>“Nghnnn~~ ah… Celestia pulled back from Qingyi’s cock, panting against the reddened tip. “Don’t you want to try hubby’s big cock too?”</p>
+<p>“Nghnnn ah… Celestia pulled back from Qingyi’s cock, panting against the reddened tip. “Don’t you want to try hubby’s big cock too?”</p>
 
 <p>“Oh… Aeryn wants to!” Sapphire replied, raising her hand. She was excited to see that elf choking on Qingyi’s cock.</p>
 
@@ -47,7 +47,7 @@ chapter = 460
 
 <p>Qingyi’s cock throbbed powerfully against her lips and suddenly came. Like a flood, a powerful gush of hot, viscous cum.</p>
 
-<p>“Aghnnn~~ gulk~~ gulp~~” She choked as the first of the spurts hit the roof of her mouth, sliding down her tight throat.</p>
+<p>“Aghnnn gulk gulp” She choked as the first of the spurts hit the roof of her mouth, sliding down her tight throat.</p>
 
 <p>The second gulp followed soon after, when she finally pulled back.</p>
 

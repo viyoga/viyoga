@@ -23,7 +23,7 @@ chapter = 48
 
 <p>Well...she doesn’t know that yet. Time will tell when that time finally comes...maybe today or the next day.</p>
 
-<p>&quot;How about you take me for yours, Mom~. I’m much more comfortable with that you know~,&quot; Owen murmured smoothly, lifting her body that’s like a feather into his arms without an ounce of effort.</p>
+<p>&quot;How about you take me for yours, Mom. I’m much more comfortable with that you know,&quot; Owen murmured smoothly, lifting her body that’s like a feather into his arms without an ounce of effort.</p>
 
 <p>&quot;Oh my, so you truly want your mother to use that name exclusively? Hehe, you really are a mischievous boy.&quot; she whispered playfully, gently poking his chest to see his reaction.</p>
 
@@ -41,7 +41,7 @@ chapter = 48
 
 <p>Owen anticipated some playful resistance or a mild scolding, yet seconds passed by and she merely tightened her grip around his nape.</p>
 
-<p>&quot;You’re really not going to confess, Mom? I guess I’ll just have to put you down for now~&quot; Owen decided to employ a bit of reverse psychology.</p>
+<p>&quot;You’re really not going to confess, Mom? I guess I’ll just have to put you down for now&quot; Owen decided to employ a bit of reverse psychology.</p>
 
 <p>If she were secretly enjoying the gentle touch, then withdrawing and acting like a sulking youth would surely force her hand.</p>
 
@@ -51,7 +51,7 @@ chapter = 48
 
 <p>&quot;Don’t...tease your mom like that..&quot;</p>
 
-<p>&quot;Ohh, but is it normal for a mom to enjoy the touch of his son~?&quot;</p>
+<p>&quot;Ohh, but is it normal for a mom to enjoy the touch of his son?&quot;</p>
 
 <p>&quot;I-it’s special! A special treatment by a son...got it? S-so it’s normal...&quot; She turned her head sideways.</p>
 
@@ -79,11 +79,11 @@ chapter = 48
 
 <p>&quot;Why on earth would I? You’re my mom, and you will always be the absolute love of my life, through eternity.&quot;</p>
 
-<p>No matter what kind of thing you think you have, Mom ~&quot; Owen answered smoothly, playfully pinching her cheek until it blushed a deep crimson.</p>
+<p>No matter what kind of thing you think you have, Mom &quot; Owen answered smoothly, playfully pinching her cheek until it blushed a deep crimson.</p>
 
 <p>&quot;You really are a bad boy now...&quot; she mumbled softly, burying her face even deeper against his chest to hide her burning cheeks.</p>
 
-<p>&quot;You already know I’m your bad boy, Mom. I’m always your bad boy~&quot; He lifted her slightly higher, onto the edge of the kitchen counter while she maintained her tight embrace.</p>
+<p>&quot;You already know I’m your bad boy, Mom. I’m always your bad boy&quot; He lifted her slightly higher, onto the edge of the kitchen counter while she maintained her tight embrace.</p>
 
 <p>Owen was already planning to thoroughly enjoy her mom’s blushing face.</p>
 
@@ -101,7 +101,7 @@ chapter = 48
 
 <p>How could she allow herself to be so possessive, especially when moms were traditionally supposed to encourage their sons to seek out younger companions when the time was right?</p>
 
-<p>&quot;Ohh... then you really are a lewd mother, Mom. Desiring your own son like that~&quot; Owen teased, lightly tapping her cheek to soothe her chaotic state of mind.</p>
+<p>&quot;Ohh... then you really are a lewd mother, Mom. Desiring your own son like that&quot; Owen teased, lightly tapping her cheek to soothe her chaotic state of mind.</p>
 
 <p>&quot;Then I will proudly bear that title, just promise you won’t pull away from me...&quot; She completely abandoned any lingering attempts to maintain her dignified facade.</p>
 

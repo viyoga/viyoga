@@ -10,7 +10,7 @@ chapter = 734
 <p>Alik said with a serious expression in response to Seizawa Shii's question.</p>
 <p>"A monster that ruins the fields, you say. Isn't it just a boar? Regular boars ruin fields too, you know."</p>
 <p>Seizawa Shii said, tilting her head. What she said made sense. It's common for boars to ruin fields. Naruse Shiyo, as if expecting her to think that way, took out her phone with a slightly frustrated expression.</p>
-<p>"I knew you'd think that, so I took a picture beforehand~!"</p>
+<p>"I knew you'd think that, so I took a picture beforehand!"</p>
 <p>The picture Naruse Shiyo took with her phone looked like the entire wide field had been deeply scraped by an excavator.</p>
 <p>"The damage wasn't too bad since it's winter, but it completely ruined the whole field."</p>
 <p>With this much damage, it must be a boar monster. Probably a type of Hottachi.</p>
@@ -27,14 +27,14 @@ chapter = 734
 <p>"Yeah, want me to show you?"</p>
 <p>It was a question of what a shikigami was, but Naruse Shiyo seemed to have understood it as a request to show it, and she began to form hand seals.</p>
 <p>Pong!</p>
-<p>What appeared with a small puff of smoke was a small baby boar on her back. However, as befitting a monster, its appearance was slightly different. It wasn't a regular baby boar with vertical stripes, but a baby boar with leopard spots. The sound of it crying, "Kkyui kkyui~!" was incredibly cute.</p>
-<p>"Kyaaak! What is it~!"</p>
+<p>What appeared with a small puff of smoke was a small baby boar on her back. However, as befitting a monster, its appearance was slightly different. It wasn't a regular baby boar with vertical stripes, but a baby boar with leopard spots. The sound of it crying, "Kkyui kkyui!" was incredibly cute.</p>
+<p>"Kyaaak! What is it!"</p>
 <p>"So cuteeee!"</p>
 <p>Naturally, the reaction of the high school girls, who loved cute things, was explosive. They were touching the baby boar that appeared on the desk, rubbing their cheeks against it, and making a fuss.</p>
 <p>I wondered if I should touch it too, so I stroked the baby boar's back, and its fur was surprisingly soft. I thought it would be stiff because it was a boar. Is it because it's a baby? As I stroked the fur of the docile baby boar, a question arose.</p>
 <p>"By the way, you guys fought this cute baby boar 2-on-1?"</p>
 <p>Otagi Yuka asked Naruse Shiyo and Alik, probably thinking the same thing as me. At this level, even an average middle schooler could catch it.</p>
-<p>Of course, I adjusted the size when I summoned Hyoouri. If I had summoned it at its original size, this entire clubroom would have been destroyed~!</p>
+<p>Of course, I adjusted the size when I summoned Hyoouri. If I had summoned it at its original size, this entire clubroom would have been destroyed!</p>
 <p>It seemed that Naruse Shiyo's Onmyodo skills had reached a certain level, allowing her to adjust the size when summoning shikigami.</p>
 <p>By the way, the name is Hyoouri... It seems to be a name made by taking 'Uuri ' from 'Uribo,' which means baby boar, and adding the 'Hyo ' character for leopard, referring to the leopard pattern this monster has.</p>
 <p>"Originally, it was bigger than a light truck in this form."</p>
@@ -51,14 +51,14 @@ chapter = 734
 <p>"Yeah, important."</p>
 <p>Alik added, drawing the students' attention again at Naruse Shiyo's words. The monster story was over, so was there another story?</p>
 <p>Alik and Naruse Shiyo said, "Just a moment," and then squatted down and rustled around. I couldn't see what they were doing because they were hidden by the table, but the preparation was quickly finished.</p>
-<p>"One! Two~!"</p>
+<p>"One! Two!"</p>
 <p>Tak! The two of them hit the table almost simultaneously and stood up.</p>
 <p>"That's because both of us and the non-graduate students have all become adults for the New Year!"</p>
 <p>Alik and Naruse Shiyo both put on fake mustaches and said cheerfully, as if declaring it. By the way, I wondered what they were rustling around with, but they put on fake mustaches because they became adults? The thought that adults = mustaches seemed incredibly childish.</p>
 <p>Both of their actions and appearances were so cute that it was hard to believe they were now adults, as they claimed.</p>
 <p>The classmates who were watching Naruse Shiyo and Alik's actions had the same expressions as when they were looking at the baby boar Hyoouri, as if they were looking at cute creatures.</p>
-<p>"Kyaaak~! You're both so cute!"</p>
-<p>"Look at their cheeks stretching~!"</p>
+<p>"Kyaaak! You're both so cute!"</p>
+<p>"Look at their cheeks stretching!"</p>
 <p>"So squishy!"</p>
 <p>In the end, the students couldn't resist and rushed at Naruse Shiyo and Alik. In fact, unlike the students who were rushing at them because they were cute, their claim was true.</p>
 <p>Originally, you were treated as an adult after turning 18 and passing the first March 31st (high school graduation date), but in order to supply troops more smoothly in the Third Great War, the requirements for adulthood were relaxed, and even without graduating from high school, you were treated as an adult if the year was January 1st, and the other things that adults could do were also relaxed.</p>
@@ -72,7 +72,7 @@ chapter = 734
 <p>"Sensei-ssi, aren't you being too biased?"</p>
 <p>"You, tell me I'm cute too."</p>
 <p>"No, everyone's cute."</p>
-<p>"Ryuta-jji! Don't just say it all at once! Praise each one of us with sincerity~!"</p>
+<p>"Ryuta-jji! Don't just say it all at once! Praise each one of us with sincerity!"</p>
 <p>In the end, I could only be freed after telling each of the special class troublemakers that they were cute.</p>
 <p>###</p>
 <p>When Han Yu-gyeong decided to take over Shinkang Life Insurance, the next events flowed naturally like water. A secretary from Shinkang Life Insurance escorted Han Yu-gyeong, and before she knew it, she left the headquarters and moved to the Shinkang Life Insurance building by car.</p>

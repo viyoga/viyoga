@@ -23,7 +23,7 @@ chapter = 1860
 <p>Quinlan nodded along agreeably. "Yeah. A duel of great importance. Nothing more, nothing less."</p>
 <p>Ayame propped her chin on his chest.</p>
 <p>She possessed, at that moment, the richest teasing portfolio any little sister had ever held. One entire legendary night of material. Sounds, sentences, a nod given twice. She took a long, visible moment to select.</p>
-<p>"A settled battle. Understood~" Her eyes shone up at her big sister. "Although, for such simple accounting, you’re checking our faces an awful lot to see whether we believe it."</p>
+<p>"A settled battle. Understood" Her eyes shone up at her big sister. "Although, for such simple accounting, you’re checking our faces an awful lot to see whether we believe it."</p>
 <p>The temperature in the hall dropped.</p>
 <p>But no aura of pure dread followed. Black Fang instead elected to pretend a cheeky samurai brat did not exist in the room with her and Quinlan Elysiar.</p>
 <p>"As for the wager itself." Black Fang proceeded to the next item on her docket. "No conditions of victory were ever defined. Where no conditions exist, no defeat can be recorded, and where no defeat exists, there is nothing to honor. The wager is void."</p>
@@ -51,7 +51,7 @@ chapter = 1860
 <p>She had no idea what to do now. No wager left to argue, no debt left to settle, no enemy anywhere in the room, and not one protocol in her entire arsenal for two people simply being good to her.</p>
 <p>Then her body, the only department of her still taking orders, took over.</p>
 <p>From one moment to the next, she was gone.</p>
-<p>"She ran away..." Ayame giggled, purring, far too joyous, hugging Quinlan close for a long second. "My sister is a tsundere~"</p>
+<p>"She ran away..." Ayame giggled, purring, far too joyous, hugging Quinlan close for a long second. "My sister is a tsundere"</p>
 <p>"...Yeah," Quinlan agreed, not even trying to fight the grin down. "What a fucking adorable creature."</p>
 <p>"I know right?!" Ayame sang, hugging him even tighter.</p>
 <p>Silence descended for a few seconds, save for Ayame’s happy humming. Quinlan used the time to conduct the official damage survey of the most sacred hall on Fujimori land.</p>

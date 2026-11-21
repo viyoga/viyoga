@@ -53,7 +53,7 @@ chapter = 448
 <p>After looking at the editing team and the sound team, we toured the rest of the set and finally headed to the director's office to meet the director.</p>
 <p>"Hello, Director. This is my boyfriend, Yamashiro Ryuta!"</p>
 <p>Arisu introduced me to the director, who had a full beard. If I said Taira Ryuta, it would seem strange since I'm Arisu's cousin, so I introduced myself as Yamashiro Ryuta.</p>
-<p>"Oh~! Nice to meet you! Ms. Fitzgerald's boyfriend! You have quite the visual!"</p>
+<p>"Oh! Nice to meet you! Ms. Fitzgerald's boyfriend! You have quite the visual!"</p>
 <p>The director, named Mike Rogers, was a fairly famous director. He had made several big commercial films successful and gave Arisu, who had appeared as a minor role, a fairly significant supporting role in this film.</p>
 <p>The director looked at me and made a square shape with his hands like Son Heung-min's goal celebration, putting me inside the square screen at various angles. Then, he nodded in satisfaction and spoke to me.</p>
 <p>"Have you ever thought about becoming an actor?"</p>
@@ -68,7 +68,7 @@ chapter = 448
 <p>"Even if Ryuta is handsome, how can you suddenly say something like that?"</p>
 <p>"No, I saw the inner side of your boyfriend, not his appearance. He has a pretty face, but there's a beast hidden inside him. There are many handsome actors these days, but they don't have the wildness of your boyfriend...!"</p>
 <p>The director seemed to have a good eye. Maybe if I looked with the glasses from the ruins, I could see emotion-related traits.</p>
-<p>"Our Ryuta is a bit beast-like~! But still, it can't be helped. We're going to eat."</p>
+<p>"Our Ryuta is a bit beast-like! But still, it can't be helped. We're going to eat."</p>
 <p>"Even an extra! Even a passerby...!"</p>
 <p>We left the director's office, hearing his desperate cries. Arisu smiled awkwardly, as if she was sorry.</p>
 <p>"Hehe, sorry...! The director is a bit of an oddball, right?"</p>

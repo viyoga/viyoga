@@ -14,7 +14,7 @@ chapter = 1000
 <p>Hesabeth’s cheeks reddened in embarrassment as Jason whispered this to her in a deep voice.</p>
 <p>"P-Please don’t tease me, darling."</p>
 <p>Hesabeth’s voice came out in a weak whisper filled with anticipation, and Jason wasted no time as he aligned himself with Hesabeth and leaned over her body as he began to sink into her!</p>
-<p>"Oooooh~!"</p>
+<p>"Oooooh!"</p>
 <p>Hesabeth felt her mind going blank as Jason’s size split her apart, and she grabbed the table edge to hold on for dear life! Jason was moving agonizingly slowly, and Hesabeth could feel every single inch as it entered her, but then Jason thrust forward in one smooth motion, and Hesabeth screamed as Jason slammed into her womb!</p>
 <p>BAM!</p>
 <p>"AAH!"</p>

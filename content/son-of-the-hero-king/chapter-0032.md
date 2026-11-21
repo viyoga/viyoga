@@ -71,7 +71,7 @@ chapter = 32
 <p>If he still didn't understand who she was at this point, then he should just kill himself.</p>
 <p>This woman was a goddess. His goddess. The goddess of lust. Luxuria.</p>
 <p>Thankfully, whatever she did, her voice didn't seem to melt his reason anymore and her face became obscured by a sort of veil.</p>
-<p>"My, my my~! And you are polite to boot!! and so calm. Not even Mars’s display was as good as your when he saw me for the first time."</p>
+<p>"My, my my! And you are polite to boot!! and so calm. Not even Mars’s display was as good as your when he saw me for the first time."</p>
 <p>"I thank you for the compliment." He answered as calmly as possible while inspecting his body. It was already beginning to heal so there was at least one good news.</p>
 <p>It seemed that his father was one of the two before him who she mentioned. Well, it didn't really surprise him.</p>
 <p>But, this wasn't the time to speak about that.</p>

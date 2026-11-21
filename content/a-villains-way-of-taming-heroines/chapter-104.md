@@ -56,7 +56,7 @@ chapter = 104
 <p>Looking at Seraphina, who seemed somewhat uneasy, Ansel suddenly chuckled:</p>
 <p>"Indeed, asking Seraphina this question was the right choice."</p>
 <p>"…Eh? Really?"</p>
-<p>Seraphina was taken aback, but seeing Ansel's smile, she also laughed happily, "Then I'm not that stupid, hehe~"</p>
+<p>Seraphina was taken aback, but seeing Ansel's smile, she also laughed happily, "Then I'm not that stupid, hehe"</p>
 <p>The firewood crackled, and looking at Ansel's face, Seraphina suddenly felt an irresistible impulse.</p>
 <p>He came out to play with her, to hang out, willing to eat what she made, and sincerely said it was delicious…</p>
 <p>Seraphina could feel that Ansel cared about her, he didn't want her to be affected by what she had experienced recently, so he brought her out to relax.</p>

@@ -28,7 +28,7 @@ chapter = 151
 <p>Seraphina tilted her head; "Sit down and have some fruit, after all, Ansel will be leaving in a few days, there shouldn't be much work left, right?"</p>
 <p>"It's precisely because Mr. Ansel is about to leave the North that the handover of work becomes particularly important."</p>
 <p>Marlina ruffled Seraphina's hair: "Don't relax too much, listen to Mr. Ansel's words."</p>
-<p>"I don't need you to tell me that, Marli~"</p>
+<p>"I don't need you to tell me that, Marli"</p>
 <p>Seraphina rubbed her sister's palm and held the fruit basket: "Do you want some fruit?"</p>
 <p>"No need, you and Mr. Ansel rest well."</p>
 <p>Marlina chuckled, then whispered in her sister's ear:</p>
@@ -94,8 +94,8 @@ chapter = 151
 <p>About twenty minutes later, Ansel opened the door to Seraphina and Marlina's room.</p>
 <p>Two loyal beauties, one black and one white, were kneeling on the soft bed.</p>
 <p>Black and white ears, black and white lace, black and white stockings.</p>
-<p>"Master~" "Ma-Master..."</p>
-<p>"Meow~"</p>
+<p>"Master" "Ma-Master..."</p>
+<p>"Meow"</p>
 <p>"Woof…"</p>
 <p>This time, even Ansel had to admit.</p>
 <p>Even he, a seasoned veteran, had somewhat lost control of himself.</p>

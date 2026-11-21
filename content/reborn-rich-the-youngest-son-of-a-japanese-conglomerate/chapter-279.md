@@ -28,10 +28,10 @@ chapter = 279
 <p>,Could it be the investor-nim?</p>
 <p>,I heard he was only here for a day....</p>
 <p>,It couldn't be, right?</p>
-<p>Taira Ryuta's name came up, but everyone reacted with an,Ehh~, it couldn't be, right?</p>
+<p>Taira Ryuta's name came up, but everyone reacted with an,Ehh, it couldn't be, right?</p>
 <p>,Since everyone is gathered at this outing, Rianna will definitely have a secret rendezvous.</p>
 <p>Sawayanagi Mikiyo opened her mouth. As a sniper, she had to predict the target's movement path, so she inferred Rianna Holden's actions as a sniper's habit. The word "rendezvous" brought silence to the room for a moment. Everyone felt the hidden meaning within it.</p>
-<p>,Since we're next door, I'll ask the wind for help~!</p>
+<p>,Since we're next door, I'll ask the wind for help!</p>
 <p>Sawayanagi Seari said. Everyone nodded at her words. This method was actually a considerable invasion of privacy, but they had already forgotten about that.</p>
 <p>Curiosity about who the man Rianna Holden was involved with made them forget everything.</p>
 <p>Sawayanagi Seari first asked the wind spirits to tell her when Rianna Holden, who was next door, moved.</p>
@@ -81,7 +81,7 @@ chapter = 279
 <p>Perhaps because it was our second tryst, Rianna Holden began to suck on my tongue like a starving person. It seemed like she was burning with passion because it was the first time in a while since we had sex.</p>
 <p>Jjuup! Chup! Jjuwap!</p>
 <p>With the lewd sounds, my dick began to harden more and more. But there was an interruption in the middle. The door opened with a click without a knock.</p>
-<p>,Sunbae-niim~! Uh??</p>
+<p>,Sunbae-niim! Uh??</p>
 <p>Mimata Chieri came in excitedly, but froze for a moment at the sight of the room. But of course, she gave a bashful smile and began to undress herself.</p>
 <p>,Sunbae?</p>
 <p>,In this situation, I would have liked to watch if possible, but there's not much time until dinner. So let's do it together.</p>

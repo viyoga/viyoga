@@ -5,7 +5,7 @@ weight = 926
 chapter = 926
 +++
 
-<p>""Rock, Paper, Scissors~!""</p>
+<p>""Rock, Paper, Scissors!""</p>
 <p>The two's choice to gain priority in checking the Status Window was Rock, Paper, Scissors. In Alik's eyes, as she prepared for Rock, Paper, Scissors, lightning flowed, and Konoe Akina's eyes also emitted a red glow, suggesting Alik was using Acceleration on her Nerves, and Konoe Akina was using the Petrification Demonic Eye to stop Alik.</p>
 <p>""Paper!""</p>
 <p>The result was Konoe Akina's victory, as she threw a fist (Rock). Alik seemed shocked when her Nerve Acceleration was blocked by Konoe Akina's Demonic Eye. It was a sight that showed just how much of a cheat it was to be able to exert an Ability just by keeping someone in her Field of Vision.</p>
@@ -31,7 +31,7 @@ chapter = 926
 <p>◆Marksmanship Correction "Narrative Trait": Greatly corrects the hit Probability of Marksmanship and increases Focus Stat by 2 when shooting.</p>
 <p>It was a good Trait for Konoe Akina, whose main Ability was her Demonic Eye and whose Gun was a sub-weapon. Although she had handed over the family length duties to her Mother, the temporary length, using University as an excuse, Konoe Akina still had many busy tasks as the Konoe Family length, so a Trait that provided Marksmanship accuracy correction was quite good, as she couldn't undergo sufficient combat skill Training.</p>
 <p>The Unfailing Eye Trait, located just above, also increased accuracy, so if she were raised as a combat class, a mid-range sniper would be a perfect fit. A long-range sniper would be impossible, as it would be difficult to use her Demonic Eye.</p>
-<p>"Your Level has risen quite a bit. You worked hard, Akina." "Neehehe...! Please pet me more, Ryuta-nim~♥"</p>
+<p>"Your Level has risen quite a bit. You worked hard, Akina." "Neehehe...! Please pet me more, Ryuta-nim♥"</p>
 <p>I stroked Konoe Akina's Head and Praised her for doing well. Konoe Akina, like the other Female Students in the special class at St. Francis Girls' Academy, had very high potential.</p>
 <p>Especially since her Demonic Eye Ability had only bloomed in her right Eye, if a usable Demonic Eye were to appear in her left Eye, Konoe Akina could become significantly stronger, as if she had climbed several steps at once, much like Otagi Yuka became dramatically stronger after gaining her Blood Clan Ability.</p>
 <p>"Ryuta, now Alik...!"</p>
@@ -65,4 +65,4 @@ chapter = 926
 <p>Especially since battles with Alexandra often took place in a City or Laboratory, if Charge-Regeneration was present, even if she barely took Harm, she would absorb surrounding Electricity to recover, making the battle incredibly prolonged and being the Instigator of such.</p>
 <p>Additionally, it came with a Recovery Stat +2 and an Electricity Stat maximum value increase, making it a desired Trait for Players who followed an electric-type tree, but almost no one acquired it because it required a Mutation - Electricity Generating Cells Trait, like Alik's.</p>
 <p>From the start, the Probability of acquiring a Mutation Trait was extremely low, and since it could only be obtained with the Mutation - Electricity Generating Cells Trait, it was a Trait that required breaking through a double Probability. I didn't have good feelings about the Charge-Regeneration Trait because I had suffered so much from it, but knowing that our Alik had acquired it made me feel very reassured. Now, even if she gets hurt, she'll recover quickly as long as there's Electricity. Should I get her a portable Battery as a Potion substitute?</p>
-<p>Requested by MidNightSKY-nim, Ryuta attacking with Creation Chaos and Sabu striking down the Capital with Creation Chaos~! First, Ryuta! Rinka Sabu~! The striking down pose isn't shown haha ㄷㄷ Requested by ISaveI-nim, Wonder Woman Cosplay Lianna Holden, Cowgirl Cosplay Lara Sinclair~! Lianna Holden Cowgirl Lara Sinclair~! The bootcut Jeans aren't shown haha</p>
+<p>Requested by MidNightSKY-nim, Ryuta attacking with Creation Chaos and Sabu striking down the Capital with Creation Chaos! First, Ryuta! Rinka Sabu! The striking down pose isn't shown haha ㄷㄷ Requested by ISaveI-nim, Wonder Woman Cosplay Lianna Holden, Cowgirl Cosplay Lara Sinclair! Lianna Holden Cowgirl Lara Sinclair! The bootcut Jeans aren't shown haha</p>

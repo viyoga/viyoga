@@ -33,7 +33,7 @@ chapter = 301
 <p>Sol shivered and looked up immediately, his eyes wide. He could see that the dark sea of his consciousness seemed to be slowly eroded by a crimson hue and was changing into a crimson sea.</p>
 <p>“You aren’t the only one who wants to buy time you know.”</p>
 <p>Sol immediately realized what was happening.</p>
-<p>Ymir hugged him and giggled, “Luxuria, Luxuria, how stupid she is. Hahaha~! How could she leave a treasure like you without more protection?”</p>
+<p>Ymir hugged him and giggled, “Luxuria, Luxuria, how stupid she is. Hahaha! How could she leave a treasure like you without more protection?”</p>
 <p>She gently bit his earlobe, “I changed my opinion. Killing you would be such a shame. Why don’t you join me? If you do so…I can promise you a pleasure no mortal ever obtained.”</p>
 <p>She continued in a hot and hushed voice, “Do you wonder what it would feel like to have a goddess moan under you?”</p>
 <p>Sol was ashamed to admit that for an instant, he was tempted by her words and the moment this thought flashed in his mind, he could see the sea reddening further.</p>
@@ -96,7 +96,7 @@ chapter = 301
 <p>A pivot.</p>
 <p>A point that could change everything and tilt the balance.</p>
 <p>Feeling this, Skuld did not hesitate. Using all her power, she peered into that new branch of the future, and what she saw then, nearly broke her mind.</p>
-<p>“Hahahah~! As expected, Darling is indeed the best!”</p>
+<p>“Hahahah! As expected, Darling is indeed the best!”</p>
 <p>Skuld laughed out loud, despite the fact that her mouth, eyes, and ears were bleeding. She knew that she looked like an absolutely crazy woman but she couldn’t care in the slightest.</p>
 <p>What she saw was a new future that did not exist until now or rather it was one with such a small chance of happening that she had never managed to see it until now.</p>
 <p>But now? Even though she only saw a glimpse of that future?</p>

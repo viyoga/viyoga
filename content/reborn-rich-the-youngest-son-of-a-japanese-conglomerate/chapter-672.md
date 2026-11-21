@@ -9,8 +9,8 @@ chapter = 672
 <p>It seemed Seizawa Shii's conditions were quite strict, as there weren't many requests. Especially around Miyashi, there were no requests, so Seizawa Shii couldn't do anything right away.</p>
 <p>,Really? I wasn't planning on doing a mission right away anyway... Do I have to come here again next time I want to request a job?</p>
 <p>Even though she failed the mission, it seemed she wanted to rest for a while since she had worked hard yesterday. She was betrayed by the former broker and was mentally exhausted, so she probably wasn't thinking of taking on a mission right away.</p>
-<p>,No, a request tab should have been newly created in the Dark Market app. The filter is applied as is, so check it and give me a call~!</p>
-<p>,Oh, is that how it is? Simple~!</p>
+<p>,No, a request tab should have been newly created in the Dark Market app. The filter is applied as is, so check it and give me a call!</p>
+<p>,Oh, is that how it is? Simple!</p>
 <p>Seizawa Shii smiled and nodded at Eve's explanation, as if it were easy. As Seizawa Shii's errand to find a broker ended, Minamoto Risa stepped forward and opened her mouth.</p>
 <p>,Could you and Shii-chan go to the cafe in front?</p>
 <p>,Huh? Are you really going to talk to Eve in secret?</p>
@@ -39,7 +39,7 @@ chapter = 672
 <p>,Psychic...?</p>
 <p>At Eve's words, someone's image suddenly came to mind. A man who could move objects without touching them. The image of a handsome man with blonde hair and a tan flashed through Minamoto Risa's mind.</p>
 <p>###</p>
-<p>,Look, Ryuta-cchi. As Eve-chan said, there are quite a few requests when I expand the scope to the world~!</p>
+<p>,Look, Ryuta-cchi. As Eve-chan said, there are quite a few requests when I expand the scope to the world!</p>
 <p>We came to a cafe across from the love hotel district, ordered simple drinks, and sat down. While sitting, Seizawa Shii excitedly showed me the Dark Market app and was looking at the requests.</p>
 <p>Seizawa Shii, who had only requested jobs near Miyashi or as far as the vicinity of Tokyo, seemed a little excited when she saw that there were jobs she could do worldwide. Of course, as a high school student, Seizawa Shii wouldn't be able to take on long-distance jobs right away, but she seemed satisfied just being able to request them.</p>
 <p>,The most expensive request is the Famine Assassination. The client is a famine victim group that has put up 305 million points... Converted to dollars... Eeeh? 42.2 billion yen? I could live off this for the rest of my life.</p>
@@ -61,7 +61,7 @@ chapter = 672
 <p>,Check it out.</p>
 <p>Looking inside the bag together from the side, it was a Jirai-kei style outfit similar to what Eve was wearing earlier.</p>
 <p>,You said you liked the style earlier. It was being sold at the Dark Market, so I bought it because it reminded me of you, Shii.</p>
-<p>,Did you tell me to go out so you could give me a surprise gift? Risa-tan is the best~☆</p>
+<p>,Did you tell me to go out so you could give me a surprise gift? Risa-tan is the best☆</p>
 <p>Seizawa Shii, excited to receive the gift, jumped up and hugged Minamoto Risa. I watched the two with a proud expression.</p>
 <p>Of course, Minamoto Risa didn't stay behind just to buy Seizawa Shii's clothes, but I remained silent so as not to break the atmosphere.</p>
 <p>,Shall we go then?</p>

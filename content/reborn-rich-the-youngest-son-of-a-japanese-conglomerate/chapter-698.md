@@ -64,9 +64,9 @@ chapter = 698
 <p>With this, Han Yu-gyeong could also work as an excellent assassin.</p>
 <p>After sending the minion, if the minion deals with the target, you can bring it back with Summon Minions, so you can prove your alibi, and if you are attacked by Nero or Teddy, anyone would think that the wound was caused by a wild animal.</p>
 <p>"Tada!"</p>
-<p>-Woong~?</p>
+<p>-Woong?</p>
 <p>When Han Yu-gyeong called Teddy, who was in the living room, the large grizzly spirit that suddenly appeared in front of her was surprised and looked at Han Yu-gyeong and me. Bears usually don't show their expressions well, but Teddy was making a face that said, 'What's going on?'</p>
-<p>"Ahaha! Teddy is so cute~!"</p>
+<p>"Ahaha! Teddy is so cute!"</p>
 <p>Han Yu-gyeong hugged the surprised Teddy tightly and made a fuss about how cute he was. After hugging Teddy for a while, Han Yu-gyeong sent Teddy back to the living room. Teddy opened the door with a sense and went out to the living room.</p>
 <p>"I can't send him back to his original location."</p>
 <p>"Then the trait name wouldn't be Summon Minions."</p>
@@ -109,7 +109,7 @@ chapter = 698
 <p>"I guess so. I didn't realize how time was passing."</p>
 <p>When I checked the time, it was quite tight. But since we had all the preparations done and checked the stats and traits, we went straight outside and headed to the high-end restaurant that Ha Ju-yoon had reserved. The restaurant was a nearby high-end fusion Japanese restaurant, and she had reserved a room so we could talk among ourselves.</p>
 <p>When we arrived at the restaurant and entered the room, an unexpected person was sitting next to Ha Ju-yoon.</p>
-<p>"Nephew~! Why are you so late?"</p>
+<p>"Nephew! Why are you so late?"</p>
 <p>"Nae-gomoni (aunt)?"</p>
 <p>Nae Fitzgerald was smiling brightly and waving her hand at me. I knew she was supposed to arrive in Korea tomorrow, but why is Nae Fitzgerald sitting next to Ha Ju-yoon now?</p>
 <p>______</p>

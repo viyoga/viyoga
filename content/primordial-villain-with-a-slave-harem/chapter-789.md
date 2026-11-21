@@ -29,7 +29,7 @@ chapter = 789
 <p>Opposite her stood Dragnar, the Primordial Dread. He was bare-chested beneath the shredded remains of his berserker robes.</p>
 <p>"Let me taste the young baby primordial!" Nyxara shrieked, flicking her whip toward Dragnar's face.</p>
 <p>He grunted, swatting the strike aside. "I don't even know what you're talking about. But I'll slay you anyhow." His tone was as blunt and gravelly as ever, but there was a slight hesitation in his movements. ř𝘈ꞐốᛒÈ𝒮</p>
-<p>Nyxara grinned. "Oh? Is that so~"</p>
+<p>Nyxara grinned. "Oh? Is that so"</p>
 <p>Suddenly, a haze of violet mist enveloped her body, and she inhaled deeply before exhaling toward him. Her charm magic, backed by primordial succubus pheromones, wafted through the air like an intoxicating perfume. It hit Dragnar square in the face.</p>
 <p>His pupils shifted instantly, twisting into heart shapes. His jaw slackened. A deep, guttural groan escaped his lips as a very noticeable bulge grew in his tattered robes.</p>
 <p>I winced at the sight.</p>

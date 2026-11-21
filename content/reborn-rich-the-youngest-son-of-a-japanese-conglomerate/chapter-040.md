@@ -13,13 +13,13 @@ chapter = 40
 <p>Since many people, like Mimata Chieri and me, exchanged small portions, side Plates were prepared so we could easily swap food.</p>
 <p>"Hehe! I was really disappointed that Junior-gun wasn't there for lunch yesterday. Steak and kaisendon came out, and I absolutely love both of them, you know?"</p>
 <p>"So, what did you choose?"</p>
-<p>"Kaisendon~! Steak felt a bit too heavy for lunch."</p>
+<p>"Kaisendon! Steak felt a bit too heavy for lunch."</p>
 <p>The Menu yesterday was good, indeed. Of course, I also had eel donburi, which was no less delicious.</p>
 <p>"I had eel donburi for lunch yesterday."</p>
 <p>"Wow, that sounds delicious! Still, we had the same kind of donburi, didn't we?"</p>
 <p>Kaisendon (Seafood Donburi) is seafood donburi, so it's indeed a donburi, just like eel donburi.</p>
 <p>"Then, shall we go for Steak next time?"</p>
-<p>"Sounds great~! Since I'm your Sunbae, I'll introduce you to the most delicious Steak restaurant in this Neighborhood!"</p>
+<p>"Sounds great! Since I'm your Sunbae, I'll introduce you to the most delicious Steak restaurant in this Neighborhood!"</p>
 <p>"This Neighborhood is new to me, so I didn't know any good restaurants. Thank you, Senior-nim!"</p>
 <p>After lunch, I made a promise with Mimata Chieri to have a Meal sometime, and as I was back to Work, Shinoe Misano called me. She told me to follow her, saying she was going to look for some data, and when I went, it was a secluded office-like Place that no one seemed to use. I could use this Place later, too?</p>
 <p>I went in first, and Shinoe Misano followed, ttal-ggak the Door shut. Shinoe Misano sat on the desk with a seductive Expression, lifting her Suit skirt, and there were no panties underneath. Her Pussy was already glistening with anticipation for office Sex, making Foreplay seem unnecessary.</p>
@@ -47,8 +47,8 @@ chapter = 40
 <p>As I showed no Expression of leaving the car, Taira Yukiko grabbed my sleeve and headed Home. I guess I was too excited about getting a new car.</p>
 <p>When I entered Home, the Housekeeper had already prepared Evening. Today was hamburg Steak. The Housekeeper, now knowing my Meal portions, served four thick hamburg Steaks with four sunny-side-up eggs on top.</p>
 <p>It was delicious, as expected. The combination of premium wagyu, fresh orange-hued egg yolks, and demi-glace sauce was so delicious that the separately prepared rice seemed to go down endlessly.</p>
-<p>"Mother, I'll go for a spin in the car and be back~!"</p>
-<p>"Drive carefully~!"</p>
+<p>"Mother, I'll go for a spin in the car and be back!"</p>
+<p>"Drive carefully!"</p>
 <p>After finishing my Meal, I ran to the Parking Lot. Since I got a new car, I had to drive it. I started the engine using the smart Key attached to the analog Key. They said if I linked this smart Key with my phone, I wouldn't need to carry the Key. I should leave the Key in the car and just carry my phone.</p>
 <p>Before starting, I sat down and authenticated the smart Key with my phone, so now I could do everything with my phone, as long as there wasn't an EMP Attack. But surely, no one would launch an EMP Attack on me?</p>
 <p>I turned on the engine and started driving. It definitely felt heavy, like a military vehicle. I was excited for the first time in a while and drove around Yotsukaido City.</p>

@@ -8,7 +8,7 @@ chapter = 1833
 <p>Quinlan stepped out of the [Warp Gate] and onto the high terrace of Luminareth’s palace with an elf under each arm and the deep forest’s traces still clinging to all three of them.</p>
 <p>The capital met them with its best hour. The sun was going down somewhere beyond the canopy, and its light came in low and sideways, strained through a million leaves until the whole city ran amber and rose.</p>
 <p>Walkways of living wood glowed like banked coals, the great trunks wore the evening on their western faces, and far below, in the blue shadows between the roots, the first lantern-buds were waking one by one.</p>
-<p>"Sweet Goddess’s Lacy Panties~" Sera arched against his arm and drank the view down. "Fine, I’ll say it. The palace evenings are almost as good as our home’s."</p>
+<p>"Sweet Goddess’s Lacy Panties" Sera arched against his arm and drank the view down. "Fine, I’ll say it. The palace evenings are almost as good as our home’s."</p>
 <p>"It’s beautiful, but nothing beats a sunset happening from under Rosie’s tree," Kaelira said.</p>
 <p>"Exactly!" Sera nodded, joyous.</p>
 <p>Somewhere behind them, a tray nearly died.</p>
@@ -21,7 +21,7 @@ chapter = 1833
 <p>"You can call me," she said, letting it purr, "the First Elf."</p>
 <p>The half-circle went white. A dozen spines locked at once, and the youngest maid’s lips started moving in what was unmistakably prayer. The whisperer from the second rank swayed where she stood, eyes flicking from Sera’s face to Sera’s ears and back while a life of theology tried to rearrange itself around a blue-eyed healer with moss in her hair.</p>
 <p>Quinlan’s hand tightened on her butt.</p>
-<p>"...of the Holy Son~" Sera finished.</p>
+<p>"...of the Holy Son" Sera finished.</p>
 <p>The exhale that traveled down the line was strong enough to stir the lantern-buds.</p>
 <p>"Kaelira is fine," Kaelira then spoke her own preferred title.</p>
 <p>Nobody was going to call the Holy Son’s woman just Kaelira, and the resulting negotiation carried them across the terrace in a warm, fussing cloud.</p>

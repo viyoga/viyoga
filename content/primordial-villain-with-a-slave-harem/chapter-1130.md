@@ -30,7 +30,7 @@ chapter = 1130
 <p>But Quinlan never tried to look at the current states of his companions. There was a reason why he named their group ‘Ascendants.’ He wanted to look at their potential. This was also the reason why he told Jasmine he wanted her to manage his finances long before the girl became the Tyrant of Trade, back when she was just an ordinary merchant girl.</p>
 <p>These days, all of them had long since accepted Quinlan’s near visionary-style decision-making when it came to people, and it’s safe to say that they accepted Ayame. Even Vex and Serika, who, by all accounts, were more suitable for the job if one looked at their resumes, raised no objections.</p>
 <p>Quinlan reached out and gave Kitsara a cheeky slap on the butt. “Your turn,” he said.</p>
-<p>Kitsara purred while pushing her perky mounds out. “One more~”</p>
+<p>Kitsara purred while pushing her perky mounds out. “One more”</p>
 <p>When he obliged and she felt her cheeks reddening, the foxkin winked and folded her fingers together to weave a spell.</p>
 <p>“[Veil of Deception],” she intoned.</p>
 <p>Two of her three tails blurred and then peeled off right before shaping themselves into birds. They flapped up and dove toward the sky.</p>

@@ -52,7 +52,7 @@ chapter = 1686
 <p>A true samurai didn't need a living weapon to fight. A true leader of the Fujimori didn't lean on borrowed power.</p>
 <p>"Grow up. This is not the time to play children's games."</p>
 <p>Kaede dashed in, the dark edge screaming forward.</p>
-<p>"Thought so~" The words left Ayame with quiet triumph as the wakizashi was put aside and her katana rose to meet the strike.</p>
+<p>"Thought so" The words left Ayame with quiet triumph as the wakizashi was put aside and her katana rose to meet the strike.</p>
 <p>As she did so, she addressed her blonde friend. "Thank you for beating some sense into me, Blossom. Will you help me defeat this eternal loser?"</p>
 <p>No answer came.</p>
 <p>The dogkin was already ahead, trailing arcs of electricity from her gauntlets.</p>

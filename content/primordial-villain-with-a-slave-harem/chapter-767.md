@@ -32,7 +32,7 @@ chapter = 767
 <p>"You lead me to your secret basement, hidden behind some sort of magical mechanism, alone, after indicating I have too many women already,” I said. “This is not your yandere self trying to chain me to your basement, right?”</p>
 <p>She looked at me with a raised eyebrow. “Yandere?”</p>
 <p>"Basically, an overly possessive girl who would go to any length to keep the hoes away from her man, even killing him and then herself if she’s truly gone off the deep end.” ṞàꞐŎᛒÊȿ</p>
-<p>Her curiosity seamlessly transitioned to one of amusement. “Well, well, well she chuckled ominously, holding her arms out so I couldn’t run back up the stairs behind her. “It appears I’ve been found out. What are you gonna do about it, hubby~?”</p>
+<p>Her curiosity seamlessly transitioned to one of amusement. “Well, well, well she chuckled ominously, holding her arms out so I couldn’t run back up the stairs behind her. “It appears I’ve been found out. What are you gonna do about it, hubby?”</p>
 <p>"Oh dear.”</p>
 <p>She was so goddamned hot with her crazy swirly red eyes, I simply couldn’t help myself.</p>
 <p>Her amusement slowly transformed into a dry stare once her eyes traveled down, toward my pants.</p>
@@ -47,7 +47,7 @@ chapter = 767
 <p>Her hips swayed in a slow, taunting rhythm. Every swing of that tight, shapely ass was a deliberate slap to my sanity. It was downright mesmerizing.</p>
 <p>There was one thing I was absolutely certain of: she knew exactly what she was doing.</p>
 <p>"That’s a rather sensual gait for someone leading her man into a secret dungeon.”</p>
-<p>"Hmm? Oh, I didn’t even notice~” Her voice was pure sugar. “Maybe you should stop staring at my backside if it’s causing such… ‘discomfort.'”</p>
+<p>"Hmm? Oh, I didn’t even notice” Her voice was pure sugar. “Maybe you should stop staring at my backside if it’s causing such… ‘discomfort.'”</p>
 <p>Another deliberate sway.</p>
 <p>My hands twitched. It took every ounce of willpower not to grab her right there on the stairs.</p>
 <p>The air grew colder the deeper we went. The heavy scent of incense hit my nostrils… mixed with… copper? Blood?</p>

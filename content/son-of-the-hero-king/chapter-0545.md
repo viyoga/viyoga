@@ -16,7 +16,7 @@ chapter = 545
 <p>She had to say, there were very few proposals that could be more magical.</p>
 <p>"Though what do you think? You are also in a relationship with him, right?"</p>
 <p>Kali asked Persephone, worried that her sister would be disappointed but she saw none of it. In fact, all she could see was a mischievous smile on her face.</p>
-<p>"My relationship with Sol is different from that of Medea with him. Also– Fufufu~ I wonder what kind of mayhem will happen once all the others learn about this."</p>
+<p>"My relationship with Sol is different from that of Medea with him. Also– Fufufu I wonder what kind of mayhem will happen once all the others learn about this."</p>
 <p>She chuckled but Kali winced before following in her laugh,</p>
 <p>"Well, he is the one who wanted a harem. I guess he has to be ready for the consequences."</p>
 <p>Everyone was truly happy and it was easy to see.</p>

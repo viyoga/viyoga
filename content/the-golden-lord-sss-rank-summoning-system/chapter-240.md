@@ -20,7 +20,7 @@ chapter = 240
 <p>"How do you even stand this hellish heat? Luckily, the mansion has cooling systems to maintain a comfortable temperature," Elena said.</p>
 <p>With an elegant movement, she rose to her feet again, her ample breasts bouncing heavily with the motion, swaying in slow, weighty arcs before settling back against her chest.</p>
 <p>"You wouldn’t be suffering so much if you weren’t ignoring Evelyn’s calls to train with her," Ethan replied, stretching lazily right in the middle of the road, his arms reaching overhead.</p>
-<p>"Fufu~ I am a bureaucrat, my lord, not a warrior. The only training suitable for me is with a pen," Elena said with a light chuckle, approaching him with slow steps.</p>
+<p>"Fufu I am a bureaucrat, my lord, not a warrior. The only training suitable for me is with a pen," Elena said with a light chuckle, approaching him with slow steps.</p>
 <p>Her full breasts squeezed against his chest, the soft flesh flattening against the fabric of his shirt, molding obediently around the firmness of his masculine torso.</p>
 <p>Her slender fingers slowly climbed his arms until they came to rest on his broad shoulders.</p>
 <p>"Come on, sweetheart, the wind from your run should cool my body down... If you want to head straight to Azur Lake Beach too, I wouldn’t complain... the lake water is really nice on hot days like this," Elena purred, letting herself be lifted into Ethan’s arms without any resistance.</p>
@@ -45,7 +45,7 @@ chapter = 240
 <p>Watching the beauty walk away, her full hips swaying hypnotically with each step, the plump curves of her ass bouncing in rhythm, Ethan let out a quiet sigh.</p>
 <p>He then made his way through the mansion until he reached the garden, where he found Ophelia alone, her eyes closed, simply enjoying the soft singing of the birds.</p>
 <p>"Are you okay?" Ethan asked as he approached, taking a seat next to her on the bench.</p>
-<p>"Hm~ I’ve been worse, haha," Ophelia chuckled, though the sound carried a subtle bitterness.</p>
+<p>"Hm I’ve been worse, haha," Ophelia chuckled, though the sound carried a subtle bitterness.</p>
 <p>Honestly, she was more frustrated by her own inability to feel pain over her son’s death than by the death itself.</p>
 <p>She admitted to herself that she had spoiled him too much, ignored too many signs over the years.</p>
 <p>The bullying at school. The temper tantrums.</p>

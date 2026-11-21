@@ -55,7 +55,7 @@ chapter = 932
 <p>...</p>
 <p>The third callback was Granger Heavy Industries, and Granger sent a wife.</p>
 <p>Eleanor Granger arrived with power of attorney, a single folder, and a husband attending by video link from a room down the hall, on mute and camera turned off. "He watched your exam broadcast," she explained pleasantly, squaring her folder, "and said, and I quote, ’the silver-haired one would end me in four minutes.’ We agreed the company was safer this way."</p>
-<p>"Wise~" Nyx purred. "Knowing one’s limits is a strength in itself."</p>
+<p>"Wise" Nyx purred. "Knowing one’s limits is a strength in itself."</p>
 <p>"He’ll be thrilled you think so." The wife wasn’t as amused as Nyx, speaking with utmost dryness.</p>
 <p>Walter unmuted to object. Eleanor muted him again without turning around.</p>
 <p>Eleanor opened her folder, and it held none of the usual theater either. No material schedules, no project renderings, no services brochure. There was a single sheet with a number on it.</p>

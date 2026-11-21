@@ -29,7 +29,7 @@ chapter = 771
 <p>If they decided by rock-paper-scissors, all the Students with high Agility and high Combat power would come to our helicopter. It was a bit of a sneaky Method. Because it was a Match they were playing, knowing they would win.</p>
 <p>"Alright. Everyone's waiting, so decide quickly and get on."</p>
 <p>I told the Students and loaded my Luggage and the ice box onto the helicopter. A pilot and a safety agent were on board the helicopter. Even excluding the Luggage, it looked like eight to ten people could ride in one helicopter. It seemed they had made Preparations for ample space.</p>
-<p>"Ryuta-cchi~!"</p>
+<p>"Ryuta-cchi!"</p>
 <p>"Ryuta...!"</p>
 <p>"Ahaha, Sensei-ssi."</p>
 <p>As expected, the Students with high Combat power were in my helicopter, just as I had anticipated. Seizawa Shii, Alik, Otagi Yuka, Sakagami Rena, Saionji Diana, and Naruse Shiyo boarded, and the rest boarded the remaining helicopter.</p>
@@ -39,7 +39,7 @@ chapter = 771
 <p>Of course, the Probability of something happening was almost zero, but in a World where even I could be kidnapped unexpectedly, I thought I should always prepare for the worst-case Scenario.</p>
 <p>Because Otagi Yuka and Naruse Shiyo both have Flight Ability, even if something happens in the helicopter, they would survive and could even take care of a few others.</p>
 <p>Since the others don't have Flight Ability, I would have to save them with my psychokinetic Ability, so dividing the helicopters was the right thing to do. It couldn't be helped now since we were departing immediately, but I told them to divide when returning.</p>
-<p>"We're departing~!"</p>
+<p>"We're departing!"</p>
 <p>Once everyone had loaded their Luggage, the helicopter pilot informed us of the departure. Since there was nothing particular to do inside the helicopter, I briefly looked at the News on my phone.</p>
 <p>-Openweight transition, Kiyohira rapidly advances to the UMC Openweight throne! Will the second Japanese Openweight Champion after Fujigasaki Rinka be produced?</p>
 <p>The article about my friend Kiyohira was a sensation. In fact, with Kiyohira and Kazuhiro, who could be called Jin Yong-tae's only friends, I hadn't been able to contact them often since I went on a Mission.</p>
@@ -73,20 +73,20 @@ chapter = 771
 <p>When the troublemakers from the special class, who were listening nearby, asked what the Story was, and I told them, each of them complained, asking why they didn't get to eat the ice cream I fed them.</p>
 <p>"I'll eat whatever you give me, so stop it."</p>
 <p>"Then, so Ryuta-cchi doesn't get tired of it, we'll all choose different flavors, so you can't say you won't eat it, okay?"</p>
-<p>"Then I'll feed Teacher-nim melon flavor~!"</p>
+<p>"Then I'll feed Teacher-nim melon flavor!"</p>
 <p>"I'll have butter cream flavor!"</p>
 <p>As the Students were each talking about what flavor they would feed me, the safety agent riding with us looked at me with an envious Gaze. Since all the A-Rank Beautiful Woman Students from the special class were eager to do something for me, I understood his envy.</p>
 <p>"Since Ryuta-cchi is a big eater, we should order at least a half-gallon (1200g) Size, right?"</p>
 <p>"Isn't that obvious?"</p>
 <p>However, what this safety agent didn't know was that the troublemakers riding here weren't just trying to be nice to me, but also trying to Torture me with food. Trying to feed me several half-gallons was absolutely not normal.</p>
-<p>Lisa-ttang Home Economics Teacher-nim bikini + panties down + Belly button piercing requested by Hwanbuljeoldae-bulga-nim~!</p>
-<p>Starting with Lisa-ttang~!</p>
+<p>Lisa-ttang Home Economics Teacher-nim bikini + panties down + Belly button piercing requested by Hwanbuljeoldae-bulga-nim!</p>
+<p>Starting with Lisa-ttang!</p>
 <p>Actually, I made dozens of images, but only one image of panties pulled down came out ㅠㅠ The rest are B-cuts...!</p>
-<p>Home Economics Teacher-nim~!</p>
+<p>Home Economics Teacher-nim!</p>
 <p>Home Economics Teacher-nim was relatively easier to generate haha.</p>
-<p>New model Mimata Chieri Suit underwear belly dancer naked body requested by Gojoy-nim~!</p>
-<p>Suit~!</p>
-<p>Underwear~!!</p>
-<p>Belly Dancer~~!</p>
-<p>Naked Body~!!!</p>
+<p>New model Mimata Chieri Suit underwear belly dancer naked body requested by Gojoy-nim!</p>
+<p>Suit!</p>
+<p>Underwear!!</p>
+<p>Belly Dancer!</p>
+<p>Naked Body!!!</p>
 <p>Chieri-jjaeung....!</p>

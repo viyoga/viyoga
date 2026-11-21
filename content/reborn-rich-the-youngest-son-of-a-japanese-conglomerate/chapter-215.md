@@ -14,7 +14,7 @@ chapter = 215
 <p>,Isn't that Alik kid sticking to Sunbae-nim too much?</p>
 <p>Mimata Chieri asked while sitting on my lap. No, who's the one sticking here? Even if it's an empty office, there are plenty of seats, but sitting on my lap like this is a typical action to express the word 'sticking'.</p>
 <p>,Sunbae-nim is sticking more right now?</p>
-<p>"No way~! I'm different."</p>
+<p>"No way! I'm different."</p>
 <p>,Sunbae-nim should become Alexandra's mentor and give her some training.</p>
 <p>After the training, Alexandra was supposed to be mentored by Kiyona Mari, a pyrokinesis user with similar abilities using natural power, although not the same ability. However, she wanted to work directly under me instead of Seryutai, so she asked Mimata Chieri to give her more training.</p>
 <p>Although she usually seems a bit ditzy, if Alexandra receives training from Mimata Chieri, who successfully completed the Taira Group's agent training, she will become an excellent combat agent.</p>
@@ -25,7 +25,7 @@ chapter = 215
 <p>What is she, some kind of NTR evangelist? Mimata Chieri was doing something that ordinary people like me couldn't understand. Speak of the devil, Arisu approached the office where we were sitting.</p>
 <p>She approached Mimata Chieri, who was sitting on my lap and hugging me, put her hands on her waist, and asked with a stern expression.</p>
 <p>,Chieri, what are you doing?!</p>
-<p>,Trying to provoke Arisu-yang's jealousy~.</p>
+<p>,Trying to provoke Arisu-yang's jealousy.</p>
 <p>I don't know when they became so close, but at some point, they became comfortable talking to each other. Maybe it was because of the 3-on-1 sex they had with Arisu, Mimata Chieri, and Sawayanagi Azuma back then that they became close.</p>
 <p>,I feel sorry for Arisu-yang, who doesn't know the true taste of NTR....</p>
 <p>,I don't need to know that taste for the rest of my life, so get down!</p>
@@ -67,8 +67,8 @@ chapter = 215
 <p>.</p>
 <p>.</p>
 <p>.</p>
-<p>,Arisu~!</p>
-<p>,Mom~!</p>
+<p>,Arisu!</p>
+<p>,Mom!</p>
 <p>Arisu's mother and my aunt, Nae Fitzgerald, was waiting for us at the airport. She was a Japanese-Western half, but she was a beautiful woman who resembled Arisu, who was closer to Western in appearance.</p>
 <p>The differences from Arisu were that she had bigger breasts, brighter platinum blonde hair than Arisu, and her eye color was a bit brighter than Arisu's deep green eyes.</p>
 <p>Anyway, the scene of the beautiful blonde mother and daughter hugging each other was quite picturesque, so people passing by at the airport glanced at the two of them at least once. After their greetings were over, Nae Fitzgerald noticed my presence and looked at me.</p>
@@ -79,7 +79,7 @@ chapter = 215
 <p>,Oh my, Arisu's friend?</p>
 <p>Everyone introduced themselves, but there was one strange thing. Nae Fitzgerald also had a large carrier next to her. Wasn't she here to pick up Arisu? Where is she going?</p>
 <p>,Where are you going?</p>
-<p>,Ah, no. I just came to New York from France and was waiting for you guys~.</p>
+<p>,Ah, no. I just came to New York from France and was waiting for you guys.</p>
 <p>Ah, she was in France. It seemed like she had adjusted her flight time to meet her daughter and waited to go home together.</p>
 <p>,Okay, let's go home and talk. The car will probably be there.</p>
 <p>We were guided by Nae Fitzgerald and went outside the airport, where a limousine was indeed waiting for us. A man who looked like a butler with gray hair was waiting for us in the limousine.</p>

@@ -23,7 +23,7 @@ chapter = 437
 <p>Behind her, one hundred and fifty female paladins, all at the third stage, emerged in perfect ranks, the soft clink of metal accompanying each step.</p>
 <p>They wore the same elven silver armor as the paladins of Goldenveil Cathedral, and they were every bit as sensual and beautiful.</p>
 <p>The polished metal molded to their bodies like a second skin, cinching slender waists and curving over full breasts and wide hips. Sunlight glinted off every pale curve, and their silver capes danced in the wind.</p>
-<p>"Ah~" Auryndra’s lips parted in a high-pitched moan, as pained as it was seductive, her long eyelashes quivering and a faint shiver running down her body.</p>
+<p>"Ah" Auryndra’s lips parted in a high-pitched moan, as pained as it was seductive, her long eyelashes quivering and a faint shiver running down her body.</p>
 <p>For a moment, pain crossed her face, her thin eyebrows drawing together. But the expression quickly faded as her eyelids slowly lifted, revealing a pair of red eyes that glowed like embers.</p>
 <p>She sensed a familiar aura even before her vision cleared. Her eyes immediately fell on the woman standing beside Ethan.</p>
 <p>Shock washed over her delicate features. Her lips parted slightly, and she took a step back, as if she couldn’t believe what she was seeing.</p>

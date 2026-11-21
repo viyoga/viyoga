@@ -65,7 +65,7 @@ chapter = 1417
 <p>"It's still there," Quinlan smiled.</p>
 <p>Her fists clenched. "… While I am not one to blackmail…" The Goddess whispered ominously, "I might feel forced to give a divine decree to my Arch Priests to declare Quinlan Elysiar, the Primordial Villain, a heretic all across the World of Thalorind."</p>
 <p>He shook his head disappointedly. "Truly a bratty goddess. What a horrible woman. Are you sure you're not a Goddess of Deceit?"</p>
-<p>"Maybe your attack corrupted me~?" she mused. "So you blackmailing me is somehow my fault, huh…?" Quinlan couldn't help but exhale tiredly. "You truly are a woman."</p>
+<p>"Maybe your attack corrupted me?" she mused. "So you blackmailing me is somehow my fault, huh…?" Quinlan couldn't help but exhale tiredly. "You truly are a woman."</p>
 <p>"What's that supposed to mean?"</p>
 <p>"You don't need me to spell it out for you. Instead, answer the second half of my original question, will you?"</p>
 <p>"How to control the seed and how to fight back against Sel'Ashra should she invade your soul realm again?"</p>
@@ -80,7 +80,7 @@ chapter = 1417
 <p>"Thanks for the compliment, you're nicer than you appear."</p>
 <p>"It's not a compliment. You're a weirdo, not a hero."</p>
 <p>"…" Quinlan ignored her without pause. "I'm starting to understand," Quinlan stroked his chin. "Those not born as gods can still attain godhood. How so?"</p>
-<p>"Can't tell you~"</p>
+<p>"Can't tell you"</p>
 <p>"… But primordials are locked into their own path in life. I can follow both."</p>
 <p>"Maybe so. Or maybe you will never be able to control the Concept Seeds and be overwhelmed by it all and explode from the inside out."</p>
 <p>"Thanks for cheering me on."</p>

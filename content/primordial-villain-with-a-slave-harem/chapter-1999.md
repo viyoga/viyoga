@@ -65,7 +65,7 @@ chapter = 1999
 <p>Now he was crossing the hall toward them, tall and broad in that ridiculous armour, with the beautiful elf and the foxkin walking behind him. More of his women followed, talking among themselves as though this were an entirely ordinary afternoon.</p>
 <p>"Ladies." Quinlan inclined his helmet toward their table.</p>
 <p>"Good afternoon!"</p>
-<p>"Welcome back~"</p>
+<p>"Welcome back"</p>
 <p>"Mmmph!!"</p>
 <p>Her neighbour took her hand off the newcomer’s mouth.</p>
 <p>"Hello," she squeaked.</p>

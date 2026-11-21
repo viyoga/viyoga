@@ -24,7 +24,7 @@ chapter = 90
 <p>Gina put her hands over her cheeks to try and stop the blush from rising. Her bright red hair framed her face like a waterfall of roses, and she was staring at the space in front of her with a faraway look and a bright smile. Her friend couldn’t help but smile once she saw how much love there was in Gina’s eyes. There was no doubt that Gina was hopelessly in love with this guy. This wasn’t one of those things where you just had sex and the love faded afterward.</p>
 <p>It was almost like Gina fell more in love with him after they had finally done it.</p>
 <p>Gina’s friend sighed tiredly while lamenting her own lack of a love life. She was happy for her friend, but she couldn’t help but feel a little jealous of such pure love.</p>
-<p>Ring~! Ring~! Ring~!</p>
+<p>Ring! Ring! Ring!</p>
 <p>Gina’s phone suddenly rang, and Gina blinked back to reality before reaching for it. She checked the caller ID, and her smile widened when she saw that it was Jason.</p>
 <p>"Hey!"</p>
 <p>Gina answered enthusiastically, and Jason smiled from the other side of the phone when he heard how excited she was to talk to him. He spoke calmly.</p>

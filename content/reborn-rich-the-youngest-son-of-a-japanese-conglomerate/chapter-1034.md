@@ -42,7 +42,7 @@ chapter = 1034
 <p>I answered Kurayamada Kirie's Question, then looked at Tetsu Kagerou.</p>
 <p>"I don't really know the snipers, so it wouldn't matter if you killed them, but I'd prefer if you left some of them. After all, I'm the Team Leader for this current Mission."</p>
 <p>At Tetsu Kagerou's Words, I nodded my Head, told Kurayamada Kirie my Coordinates, and told her to come this way. I looked at Tetsu Kagerou with an Expression demanding an Explanation again.</p>
-<p>"We created a PMC called Moth Tactical~♬ This request is one I came to New York for, having been designated alone."</p>
+<p>"We created a PMC called Moth Tactical♬ This request is one I came to New York for, having been designated alone."</p>
 <p>Moth Tactical, huh.... The Taira Group's Symbol is a butterfly, so it was quite meaningful that the PMC company founded by the Taira-aligned people who broke away was a moth. What could it mean? Does it mean they haven't forgotten Taira? Or does it mean that Taira and they now walk different Roads?</p>
 <p>"I see. Then.... Could you let me pass?"</p>
 <p>Since Tetsu Kagerou was someone who served Taira Saburo, I was even more reluctant to fight. So I asked him again to just let me pass. If he refused, since we were on the Ground, I planned to immediately rush in and Faint him with a triangle choke.</p>
@@ -94,4 +94,4 @@ chapter = 1034
 <p>Kiona Mari, who told Choi Jinha to step back, extended her Hand towards the fallen Swarmkeeper. Soon, the Alley was brightly illuminated. The Swarmkeeper and the insects still remaining inside him burned, illuminating the Alley for a moment.</p>
 <p>"This is Mari's team. We've captured the Points, so be aware of that."</p>
 <p>Kiona Mari stared expressionlessly at the brightly lit Alley, and reported to Command.</p>
-<p>Requested by TheDreaming-nim, Lisa in white gloves and white boots 1. Jump 2. Masturbation over Clothes 1. Perhaps because 'convention' also means 'assembly', a lot of people are appearing. It was hard to choose ㄷㄷ 2. Even though I removed 'people from' this Time, this many people appeared ㄷㄷ Requested by Gojoy-nim, Arisu 1. Greeting in the car, 2. Underwear Model 1. 2. Requested by Chomisaemeonji-nim, Liz 1. Tetsu Kagerou Costume and 2. Madwoman of Rest Costume~! 1. I like the wing Design of the Liz model more hehe 2.</p>
+<p>Requested by TheDreaming-nim, Lisa in white gloves and white boots 1. Jump 2. Masturbation over Clothes 1. Perhaps because 'convention' also means 'assembly', a lot of people are appearing. It was hard to choose ㄷㄷ 2. Even though I removed 'people from' this Time, this many people appeared ㄷㄷ Requested by Gojoy-nim, Arisu 1. Greeting in the car, 2. Underwear Model 1. 2. Requested by Chomisaemeonji-nim, Liz 1. Tetsu Kagerou Costume and 2. Madwoman of Rest Costume! 1. I like the wing Design of the Liz model more hehe 2.</p>

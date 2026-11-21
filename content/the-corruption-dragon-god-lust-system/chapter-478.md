@@ -97,9 +97,9 @@ chapter = 478
 
 <p>Qingyi spoke as his hands moved down, reaching Elize’s ass and grabbing it tightly.</p>
 
-<p>“Nghnn~~” She moaned, her voice sweet and melodious as she hugged Qingyi a little tighter.</p>
+<p>“Nghnn” She moaned, her voice sweet and melodious as she hugged Qingyi a little tighter.</p>
 
-<p>“Husband-aghnn~~ would never break a promise like that, right?”</p>
+<p>“Husband-aghnn would never break a promise like that, right?”</p>
 
 <p>Her eyes lifted, already fiery with desire, her lips meeting Qingyi’s.</p>
 

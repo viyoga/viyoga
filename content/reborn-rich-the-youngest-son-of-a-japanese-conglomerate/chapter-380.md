@@ -7,7 +7,7 @@ chapter = 380
 
 <p>"Hek hek! Woof! Woof!"</p>
 <p>Inside the car was White Bear, one of Han Yu-gyeong's two summons, the puppy of light. Shadow Panther Nero must be providing close protection within Han Yu-gyeong's shadow. White Bear seemed happy to see me after a long time, licking my face all over with its tongue. *Chwap chwap chwap*, it sounded like it was eating me rather than licking, but since it was wagging its tail, it must be happy to see me.</p>
-<p>"White Bear must be happy to see Yong-tae after so long~!"</p>
+<p>"White Bear must be happy to see Yong-tae after so long!"</p>
 <p>At Han Yu-gyeong's words, I stroked White Bear's fur. The texture of the fur was soft, smooth, and very nice. It didn't mean the fur didn't shed, but the shed fur didn't stick to clothes and disappeared into light. In fact, White Bear was in the form of a dog, but it was a spirit, so even though it licked my face a lot, it didn't smell like saliva.</p>
 <p>A Samoyed the size of a calf that doesn't smell and whose fur doesn't shed... White Bear was like a dream dog for large dog lovers.</p>
 <p>"By the way, is BS Group's check so severe that we can't stay in one place?"</p>
@@ -21,7 +21,7 @@ chapter = 380
 <p>"They haven't attacked within a few kilometers radius of Korea University, tacitly. They must know what it means to attack Korea University students inside Korea University."</p>
 <p>I asked because I wondered if I didn't have to worry about assassins at school, but after listening to Han Yu-gyeong's explanation that followed, it seemed that they weren't attacking within the school's range because it was Korea University, where so many elites in Korea attend.</p>
 <p>Is it the same principle as not attacking St. Francis Girls' High School in Japan if possible? There was an incident targeting female students recently, but Daigo Terue-ssi said she would take care of it, so she might have already handled it.</p>
-<p>"Ah! We're here. Yong-tae, let's go~"</p>
+<p>"Ah! We're here. Yong-tae, let's go"</p>
 <p>Han Yu-gyeong pulled my arm and got off at the entrance of Korea University. She linked arms with me, her chest touching mine, as if showing off that I was her man, and entered the school.</p>
 <p>"Is there another guy like Park Sang-beom bothering you?"</p>
 <p>"Yeah, the Sunbae-nim who returned to school in the second semester keep bothering me even though I say I have a boyfriend... I wanted to show off my man."</p>
@@ -67,7 +67,7 @@ chapter = 380
 <p>There are many students using it, so it's hard to see empty seats, but when I looked around, I could see that there were seats in between, so I knew it was a hastily made excuse. He's treating people like fools.</p>
 <p>"Then take our seats. We have somewhere to go."</p>
 <p>I had to change my hair color anyway, and I didn't want to be in this awkward place, so I got up from my seat.</p>
-<p>"I'll return the cups and trays~!"</p>
+<p>"I'll return the cups and trays!"</p>
 <p>When I gave him a look, Han Yu-gyeong took the tray with the cups and dishes we had eaten and went to the counter. I, who was standing, sat down across from the annoying guy with a thud.</p>
 <p>"I'll call you Sunbae-nim because you're Yu-gyeong's Sunbae-nim. Sunbae-nim, if you don't leave and stand there or do something you don't like after Yu-gyeong tells you to leave like just now..."</p>
 <p>*Ppudeudeuk*.</p>

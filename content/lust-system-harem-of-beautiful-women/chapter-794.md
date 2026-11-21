@@ -31,15 +31,15 @@ chapter = 794
 
 <p>The little cousin blushed, playfully licking Luis’s nipples while her small hand kept fondling his cock. She said timidly,</p>
 
-<p>&quot;Brother-in-law... when you came just now, it was so powerful~!!!&quot;</p>
+<p>&quot;Brother-in-law... when you came just now, it was so powerful!!!&quot;</p>
 
-<p>&quot;It felt like you were shooting a gun inside me~...&quot;</p>
+<p>&quot;It felt like you were shooting a gun inside me...&quot;</p>
 
-<p>&quot;At the end, it felt so good I didn’t even know if I was alive or dead~...&quot;</p>
+<p>&quot;At the end, it felt so good I didn’t even know if I was alive or dead...&quot;</p>
 
 <p>Words like that could satisfy any man’s ego. Luis chuckled. &quot;Baby, you’re still too young and tender. Once you’re more experienced, you’ll know just how amazing your brother-in-law really is.&quot;</p>
 
-<p>&quot;I already know~... You came pretty fast this time. Before, when I used my mouth, you took forever.&quot;</p>
+<p>&quot;I already know... You came pretty fast this time. Before, when I used my mouth, you took forever.&quot;</p>
 
 <p>The little cousin said innocently. &quot;Brother-in-law, are we done? Is my second sister coming back soon???&quot;</p>
 
@@ -47,11 +47,11 @@ chapter = 794
 
 <p>Luis kissed her innocent face tenderly. &quot;Once you’ve recovered, your brother-in-law will give you all the love you deserve.&quot;</p>
 
-<p>&quot;Okay~ Brother-in-law, are you getting hard again?&quot;</p>
+<p>&quot;Okay Brother-in-law, are you getting hard again?&quot;</p>
 
 <p>&quot;Not if you stop playing with it.&quot;</p>
 
-<p>&quot;But I like playing with it~...&quot;</p>
+<p>&quot;But I like playing with it...&quot;</p>
 
 <p>Who could resist that soft, whiny? Luis nearly turned into a beast again.</p>
 
@@ -91,7 +91,7 @@ chapter = 794
 
 <p>Ariana lay down with her head on Luis’s lap, pulled his softened cock out of his underwear, and said playfully,</p>
 
-<p>&quot;I think getting creampied feels really good and satisfying~&quot;</p>
+<p>&quot;I think getting creampied feels really good and satisfying&quot;</p>
 
 <p>&quot;Some of my classmates use condoms, I’ve even popped a few as balloons...&quot;</p>
 
@@ -129,7 +129,7 @@ chapter = 794
 
 <p>On the little bed, Ariana was snacking and playing on her phone, looking so tender and tempting.</p>
 
-<p>&quot;Brother-in-law~&quot;</p>
+<p>&quot;Brother-in-law&quot;</p>
 
 <p>She nuzzled against him. Luis kissed her and said, &quot;Ariana, sleep when you’re tired. Later, after your aunt’s asleep, I’ll come stay with you, it’ll be safer.&quot;</p>
 

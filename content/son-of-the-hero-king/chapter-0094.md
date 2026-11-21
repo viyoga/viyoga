@@ -7,25 +7,25 @@ chapter = 94
 
 <p>In a white void, Lilith slowly opened her eyes. It only took her an incredibly short time for her blurry eyes full of confusion to sharpen before they slowly narrowed.</p>
 <p>"The only one who can mess around with my mind is you. Camelia. Stop playing around."</p>
-<p>"Fufufu~I told you that there was no way she would panic."</p>
-<p>"Buh~"</p>
+<p>"FufufuI told you that there was no way she would panic."</p>
+<p>"Buh"</p>
 <p>"I must say, hearing your voice really fills my heart with so much happiness."</p>
 <p>Three feminine voices resonated in the void before one after another, three women appeared.</p>
 <p>One was a busty blonde, one a short loli, and one a green-haired tall woman.</p>
 <p>Looking at those three women together, Lilith's eyes misted a little before she regained her sharp expression.</p>
 <p>"Reminiscence can wait for later. If you are all here, I guess the plan is close to completion?"</p>
 <p>Camelia, hearing Lilith's question gave a cold smile.</p>
-<p>"Those idiots are moving in the background to take over my position in the church. Fufufu~How could they know that all their supposed allies are my puppets now?"</p>
-<p>"Uwa~ You are as scary as I remembered. I thought age would mellow you. Aren't old women supposed to be gentler?"</p>
+<p>"Those idiots are moving in the background to take over my position in the church. FufufuHow could they know that all their supposed allies are my puppets now?"</p>
+<p>"Uwa You are as scary as I remembered. I thought age would mellow you. Aren't old women supposed to be gentler?"</p>
 <p>Camelia's smile twitched, "And your mouth is still without a break. I thought you would become more calm after growing old."</p>
-<p>"Me? Old? Hehe~ I am a dwarf you know. I am still a young flower in our standard."</p>
+<p>"Me? Old? Hehe I am a dwarf you know. I am still a young flower in our standard."</p>
 <p>Camelia was unable to retort to this and could only change the subject, "Enough about age. Anyway thanks to Castitas, I won't grow old as long as I have her blessing. Did you complete what you ought to?"</p>
 <p>Theresa's usual joyous smile vanished as she sneered, "Who do you take me for? Of course, I succeeded. My brother was really in cahoots with those bastards. Thankfully, I managed to take over the family and now I am part of the highest council."</p>
 <p>"What about your brother?"</p>
 <p>"My brother? Dead of course. There's no way I would leave such a variable alive."</p>
 <p>None of the women's presents seemed surprised. After all, they knew very well that behind her usual antics was a woman who would destroy anything that stood in front of her.</p>
 <p>As a dwarf, she only moved for benefits. Friendship and family were second. Sometimes, Lilith wondered if Theresa wouldn't hesitate to turn on them if her benefits were threatened.</p>
-<p>"Ugh~Lilith, your distrust toward me is as obvious as always."</p>
+<p>"UghLilith, your distrust toward me is as obvious as always."</p>
 <p>"My, my, Theresa, you know very well that the only one who truly trusted you from the bottom of his heart was Mars. Though he is dead now."</p>
 <p>The green-haired green-clothed gave a motherly smile as she said that, following those words, the atmosphere immediately cooled down.</p>
 <p>Camelia pinched her eyebrows, "Persephone, how many times did I tell you to not destroy the mood?"</p>
@@ -34,7 +34,7 @@ chapter = 94
 <p>Her view toward life and death was simply completely different from common people.</p>
 <p>A lull filled the place. Lilith, even though hurt by Persephone's words didn't take it badly. Because Persephone words were the truth. Still, she was once again reminded how extraordinary her brother was to lead a group with so many mismatched people.</p>
 <p>Even now, the only reason they could work together was because of their common goals. Sweeping her hair, she asked, "Persephone, what about your sister?"</p>
-<p>Persephone still gave her gentle smile, "Mother gave me the okay to capture Kali. We don't know how deeply involved she is with those bastards, but no matter what, she is worthy of punishment. Mother judged that Freya would be too kind. Fufufu~naughty little sister needs to be punished harshly."</p>
+<p>Persephone still gave her gentle smile, "Mother gave me the okay to capture Kali. We don't know how deeply involved she is with those bastards, but no matter what, she is worthy of punishment. Mother judged that Freya would be too kind. Fufufunaughty little sister needs to be punished harshly."</p>
 <p>Her gentle smile became a little sloppy as a blush covered her face.</p>
 <p>The other three shuddered, falling in Persephone hands was in a way a punishment worse than death. Not only did she take pleasure in torturing people, but thanks to her power over life, she could make sure that even weeks of torture wouldn't leave the slightest wound… At least none physical.</p>
 <p>After calming down, Persephone turned her attention to Lilith, "By the way, yesterday when I entered Lustburg, I met little Sol. He is truly a gentle and handsome boy. I would have stayed longer to discuss with him, but I didn't want my sister to meet me. After all, I am just a backup in the case Freya doesn't do her job."</p>
@@ -42,7 +42,7 @@ chapter = 94
 <p>What's more, it seemed that he had managed to bring out Medea out of her prison. This alone was enough for her to take a fancy to him.</p>
 <p>'I wonder if mother will meet him. She seemed really interested when she was informed about Blaze's pregnancy back then.'</p>
 <p>She thought idly before discarding those thoughts.</p>
-<p>Theresa, who was a little sullen at first began to laugh again, "Yeah, I also met him yesterday. He is really a good boy. Well, I guess it's as expected of my godson. Mhm~ By the way, Camelia, why are we the only one here? What about Arachne?"</p>
+<p>Theresa, who was a little sullen at first began to laugh again, "Yeah, I also met him yesterday. He is really a good boy. Well, I guess it's as expected of my godson. Mhm By the way, Camelia, why are we the only one here? What about Arachne?"</p>
 <p>Camelia didn't answer and simply gave Lilith a look.</p>
 <p>"Arachne is still ambivalent. She will meet Sol today. I guess that she will make her decision then."</p>
 <p>Camelia frowned at Lilith's answer, Arachne had been one of the people who took really badly Mars's death. Since then she has greatly changed.</p>

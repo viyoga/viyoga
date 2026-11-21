@@ -53,7 +53,7 @@ chapter = 357
 
 <p>The mountains of flesh rippled gently against his chest, squeezing together against him like huge, warm, soft pillows.</p>
 
-<p>“Nghnn~~ woke up thirsty today, huh?” Ruxue smiled, her words answered by a giggle from Isabel.</p>
+<p>“Nghnn woke up thirsty today, huh?” Ruxue smiled, her words answered by a giggle from Isabel.</p>
 
 <p>“Yeah… And I haven’t been able to drown hubby with my big tits for a while…” Isabel arched her torso slightly, lifting herself onto Qingyi’s lap just enough for her massive tits to be in line with his face.</p>
 

@@ -9,7 +9,7 @@ chapter = 98
 
 <p>His squeeze on Ruxue’s nipples became even more powerful, sucking every last drop from her.</p>
 
-<p>“Is that? Ghn~~” Ruxue shuddered.</p>
+<p>“Is that? Ghn” Ruxue shuddered.</p>
 
 <p>Why was there milk coming out of her? She was an elemental spirit, that shouldn’t be possible!</p>
 
@@ -17,7 +17,7 @@ chapter = 98
 
 <p>“You’re delicious…” he whispered, bringing his face up to her ear and feeling her body shudder under his words.</p>
 
-<p>“B-bastad… aghn~~” she could barely form words, her huge breasts squeezed between her delicate torso and Qingyi’s powerful chest, her already sensitive nipples tingling with the contact.</p>
+<p>“B-bastad… aghn” she could barely form words, her huge breasts squeezed between her delicate torso and Qingyi’s powerful chest, her already sensitive nipples tingling with the contact.</p>
 
 <p>Qingyi ignored that curse, moving his face to hers, their lips almost touching.</p>
 
@@ -31,7 +31,7 @@ chapter = 98
 
 <p>“You want this, don’t you?” he teased, pulling his lips away from hers, her tongue following him out of her mouth, connected to his lips by a faint, shiny thread of saliva.</p>
 
-<p>“Aghn~~ N-no… I’ll never surrender to a… gnhn~~ insect…” she gasped, but couldn’t stop herself from pulling Qingyi even tighter against her, moaning with every vitality-filled pulse of his cock against her pussy.</p>
+<p>“Aghn N-no… I’ll never surrender to a… gnhn insect…” she gasped, but couldn’t stop herself from pulling Qingyi even tighter against her, moaning with every vitality-filled pulse of his cock against her pussy.</p>
 
 <p>“Really?” Qingyi laughed, releasing Ruxue’s wrists.</p>
 
@@ -43,7 +43,7 @@ chapter = 98
 
 <p>Enjoying that virgin, fat and delicious pussy for a brief moment, Qingyi grabbed his pants.</p>
 
-<p>“Ughn~~” Ruxue moaned as Qingyi’s cock escaped its confinement, its huge length hitting her pussy with a wet pop, sinking between the soft lips and reaching her swollen clit.</p>
+<p>“Ughn” Ruxue moaned as Qingyi’s cock escaped its confinement, its huge length hitting her pussy with a wet pop, sinking between the soft lips and reaching her swollen clit.</p>
 
 <p>“You want this, don’t you?” he asked once again, grabbing her breasts with both hands, his palms barely encompassing a fraction of those twin mountains of pale, soft flesh.</p>
 
@@ -103,7 +103,7 @@ chapter = 98
 
 <p>“It’s not a lie because the celestial heaven is nothing but the place I’m destined to rule.” He declared, moving his hips slightly and penetrating her even deeper.</p>
 
-<p>“Mmph~~ fuck~~” she moaned.</p>
+<p>“Mmph fuck” she moaned.</p>
 
 <p>Qingyi forced his Qi into that sword, but this wasn’t his lightning sword Qi, but his draconic Qi.</p>
 
@@ -113,7 +113,7 @@ chapter = 98
 
 <p>How could he give love to all his women if he couldn’t even handle something like that?</p>
 
-<p>“nghn~~ power of corruption?” Ruxue’s eyes widened as she felt that Qi from Qingyi.</p>
+<p>“nghn power of corruption?” Ruxue’s eyes widened as she felt that Qi from Qingyi.</p>
 
 <p>That wasn’t right.</p>
 

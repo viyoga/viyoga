@@ -5,7 +5,7 @@ weight = 61
 chapter = 61
 +++
 
-<p>"AAaaaaaahhhHHH~" It had only been a minute since Kent began thrusting, but she had already cum, spraying her juice all over Kent and the room.</p>
+<p>"AAaaaaaahhhHHH" It had only been a minute since Kent began thrusting, but she had already cum, spraying her juice all over Kent and the room.</p>
 <p>But Kent was just getting started. His hips were moving, and his dick, which was now soaked in her love juice, was moving in and out of her tiny cave.</p>
 <p>His balls were slapping her butt cave, and thanks to the juice soaking their body, a watering sound was being produced from the butt slaps.</p>
 <p>"Harder...I want it harder," Alina shouted in her moans.</p>
@@ -29,7 +29,7 @@ chapter = 61
 <p>50 minutes passed within the blink of an eye. Kent has been drilling her in the doggy posture since it was heavenly to him. He was having it all.</p>
 <p>50 Long minutes of thrusting, but it had been 50 years of pure pleasure for Alina. Kent was using a technique called [Deeper Thrust Pussy Tamer]</p>
 <p>And like its name, he was indeed taming her pussy. She has cum 9 times already but Kent hasn’t cum yet. Kent’s endurance has been boosted from leveling up multiple times in the past few days, so he kept thrusting even more.</p>
-<p>"AAaaaaaahhhHH~"</p>
+<p>"AAaaaaaahhhHH"</p>
 <p>*Squirt* *Squirt* *Squirt*</p>
 <p>Alina came again a little over an hour later, making it her tenth time.</p>
 <p>But now, Kent could feel his load building up now. So he quickly changed position.</p>

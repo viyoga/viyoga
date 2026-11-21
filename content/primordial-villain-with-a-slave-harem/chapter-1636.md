@@ -10,7 +10,7 @@ chapter = 1636
 <p>Quinlan exhaled once.</p>
 <p>&lt;Alright, I'm done here. Thanks.&gt;</p>
 <p>Nyxara's voice came back from her perch on Mimi's tree as a low purr.</p>
-<p>&lt;Any time~&gt;</p>
+<p>&lt;Any time&gt;</p>
 <p>She let go. &lt;I'm curious...&gt;</p>
 <p>The system reached for him.</p>
 <p>[Ding!]</p>

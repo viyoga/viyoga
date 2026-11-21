@@ -17,7 +17,7 @@ chapter = 387
 <p>But facing Lilith, all Hathor could do was grimace. Her instincts were screaming at her that this thing could kill her permanently if she underestimated her.</p>
 <p>As for the green-haired woman, Hathor felt like their fight would be very tedious. If Hathor was like a deep sea, Persephone was like a tree whose roots could burrow even to the center of the earth if necessary.</p>
 <p>It was crazy but in terms of pure life, Persephone was clearly stronger than even the children of Yggdrasil. She even briefly wondered if the woman had dryad or elf blood in her.</p>
-<p>“Haha~Humans are really scary.”</p>
+<p>“HahaHumans are really scary.”</p>
 <p>Hathor gulped once again from her gourd as she whistled.</p>
 <p>It was no joke.</p>
 <p>“Then again I can’t really say that you are humans either.”</p>

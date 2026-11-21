@@ -11,7 +11,7 @@ chapter = 1408
 <p>The sight pleased her.</p>
 <p>She clasped her hands together in front of her chest and leaned to the side slightly, posture loose, confidence absolute.</p>
 <p>"I will return your son shortly," Lilyanna said, voice lilting with far too much sweetness. "After a private conversation. I expect he will be… more manageable by the time he comes back."</p>
-<p>Her eyes gleamed. "The gods know this child needs a humbling. Hehe~"</p>
+<p>Her eyes gleamed. "The gods know this child needs a humbling. Hehe"</p>
 <p>Mearie growled low in her throat.</p>
 <p>Luminara's smile vanished completely.</p>
 <p>"You will leave only over my dead body!" Mearie decreed.</p>

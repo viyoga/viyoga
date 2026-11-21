@@ -70,8 +70,8 @@ chapter = 907
 <p>"All of you, be proud of yourselves! For you shall witness the birth of a God!!"</p>
 <p>Takakusaki Gengo's Voice was filled with Bliss. And from Fujigasaki Rinka's Crown of the head, the Aura of the Abyss drained out, and was seen being absorbed by Takakusaki Gengo.</p>
 <p>Nagumo Sian's Dongtan Dress and Missy look style, requested by Gojoy-nim... I also didn't know the exact difference between the two, so I searched on Wiki and found that "Missy look is a fashion that emphasizes a mature yet sophisticated physique..." and so on, and the Dongtan Dress felt like a sub-category of the Missy look style haha. So, I roughly made the Missy look into a form-fitting Dress, excluding the Dongtan Dress we commonly know haha.</p>
-<p>Dongtan~!</p>
+<p>Dongtan!</p>
 <p>I've done Dongtan a lot so far, so just two images...</p>
-<p>Missy look~!</p>
+<p>Missy look!</p>
 <p>Kkiyot!</p>
 <p>Other requests, due to the limitations of the model requiring Learning, the drawings couldn't be created ㅠㅠ.</p>

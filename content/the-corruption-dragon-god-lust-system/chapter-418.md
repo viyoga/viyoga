@@ -89,7 +89,7 @@ chapter = 418
 
 <p>He took off his clothes, climbed into bed, and kissed her before letting his face rest against her huge, chocolaty tits.</p>
 
-<p>“Nghnn~~ Hubby’s back already? Hehhee~~ I missed you so much…”</p>
+<p>“Nghnn Hubby’s back already? Hehhee I missed you so much…”</p>
 
 <p>Isabel spoke, her voice cute and groggy as her beautiful emerald eyes opened.</p>
 
@@ -103,7 +103,7 @@ chapter = 418
 
 <p>Qingyi, as always, did not ask for permission to enter, entering Margareth’s room and immediately pulling her out of her chair.</p>
 
-<p>“Aghhnnn~~ Hubby! I’m researching…” Margareth said, a sweet moan escaping her lips as Qingyi’s palm met her perfect, round ass, sending shockwaves through her voluptuous flesh.</p>
+<p>“Aghhnnn Hubby! I’m researching…” Margareth said, a sweet moan escaping her lips as Qingyi’s palm met her perfect, round ass, sending shockwaves through her voluptuous flesh.</p>
 
 <p>Qingyi’s free hand went to Margareth’s breasts, and then he pulled her onto his lap.</p>
 

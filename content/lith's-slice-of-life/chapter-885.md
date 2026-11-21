@@ -19,7 +19,7 @@ Having everything well lubricated, lewd slapping sounds reverberated in the room
 
 Her perky tits swayed in rhythm with the pounding and Lith leaned forwards to suck on one of them.
 
-"Nnghhh~" Arya grunted as Lith bit her nipple. Her hand was now on his head, ruffling his hair and taking support.
+"Nnghhh" Arya grunted as Lith bit her nipple. Her hand was now on his head, ruffling his hair and taking support.
 
 Few minutes of pounding later, Lith turned Arya over to the table and spanked her ass.
 

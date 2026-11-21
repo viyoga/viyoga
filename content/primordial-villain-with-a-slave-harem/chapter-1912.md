@@ -19,7 +19,7 @@ chapter = 1912
 <p>Farther along the concourse, two brewers had each other by the aprons. "Mother Bruna! She has to be the one. Her stock is legendary and she has the finest beard in the under-tier! Who else speaks for the vats?!"</p>
 <p>"She drank half that stock herself!"</p>
 <p>"That’s called quality control, you ignorant pup!"</p>
-<p>Vex watched the shoving matches multiply along the concourse, delight all over her face. "A brawl is about to start~"</p>
+<p>Vex watched the shoving matches multiply along the concourse, delight all over her face. "A brawl is about to start"</p>
 <p>"Why am I not surprised?" Ayame sighed.</p>
 <p>Then Quinlan raised one hand, and a warp gate opened.</p>
 <p>Through it came dwarves in town clothes. They wore aprons and tool belts instead of armor, carried road dust instead of weapons, and their wide eyes climbed the lit tiers of the mountain of their birth.</p>

@@ -46,11 +46,11 @@ chapter = 821
 <p>Both arms locked around his torso, face buried against his collarbone, fingers dug into his back with a grip so total that prying her loose would’ve required every woman in the room working in concert, and she pressed into him as though the two-second separation had been the worst experience of her entire life and she was making absolutely certain it never happened again.</p>
 <p>Her silver eyes stayed open over his shoulder. They found Nyx and held her with a suspicion so pointed the pink-haired beauty trembled from head to toe before she grinned.</p>
 <p>"Was that necessary?" Aria demanded.</p>
-<p>"Yes~" Nyx answered slyly.</p>
+<p>"Yes" Nyx answered slyly.</p>
 <p>Calypso went first.</p>
 <p>She scooped soap from the basin, worked it between her palms until it foamed, and lathered her breasts in slow, thorough circles until her red skin glistened white from collarbone to the underside of each heavy curve.</p>
 <p>Then she leaned against his back, and the hot, soapy weight of her body hit his spine in one long press, her full chest rolling flush across his shoulders as she scrubbed two hours of grime off his skin with every slow circle of her torso against his.</p>
-<p>"Darling~" she murmured into his hair, her arms crossing around him. "We’re going to fix every single thing you broke in there, and then we’re going to eat you up like a delicious snack~"</p>
+<p>"Darling" she murmured into his hair, her arms crossing around him. "We’re going to fix every single thing you broke in there, and then we’re going to eat you up like a delicious snack"</p>
 <p>The groan that left him could’ve been heard from the chokehold.</p>
 <p>Bastet followed without a word. She lathered her tanned breasts with precision and settled against his left side, the soft, warm slide of her body across his ribs working the grime loose in passes that left clean skin behind each stroke.</p>
 <p>Her ears were flat. Her tail curled tight around her own ankle. She cleaned him in silence, and the devotion said Master louder than words could.</p>

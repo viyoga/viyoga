@@ -87,7 +87,7 @@ Emilia nodded her head and said to Avelyn with a smile, “then to answer your q
 
 “Mhm. That’s what is happening currently. You don’t want to miss watching it, would you, Avelyn?” Emilia asked with a smile.
 
-“Yes, yes! Of course! Take me to where they are, let me take lots of pictures and videos. My Ralph-chan is gonna have his first adventure. Hehe~ So nice~” Avelyn said enthusiastically.
+“Yes, yes! Of course! Take me to where they are, let me take lots of pictures and videos. My Ralph-chan is gonna have his first adventure. Hehe So nice” Avelyn said enthusiastically.
 
 Emilia nodded her head and gave her the coordinates to where they were. Avelyn held Emilia’s shoulder and the two vanished from the church.
 

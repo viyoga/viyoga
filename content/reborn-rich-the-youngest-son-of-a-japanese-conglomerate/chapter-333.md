@@ -8,7 +8,7 @@ chapter = 333
 <p>Saionji Diana opened her eyes. The ceiling of a dark basement came into view. She seemed to be lying on her back, looking at the ceiling.</p>
 <p>'Did it go well?'</p>
 <p>Saionji Diana thought about raising her hand. But her hand didn't move. Could the surgery have gone wrong?</p>
-<p>"I tied up your hands because you're still recovering. You shouldn't try to move~!"</p>
+<p>"I tied up your hands because you're still recovering. You shouldn't try to move!"</p>
 <p>Before Saionji Diana could panic, a lively girl with mixed pink and white hair, called Eve, came and put her hands on her hips, speaking as if scolding her.</p>
 <p>'I was trying to move, so did the surgery succeed...?'</p>
 <p>"Did the surgery succeed?"</p>
@@ -26,14 +26,14 @@ chapter = 333
 <p>"It's not a transaction. Ryuta-ssi is my benefactor."</p>
 <p>"Hmm, that's not a lie. It's genuine."</p>
 <p>Eve said with a pleased expression. Saionji Diana didn't know how she could tell the truth from a lie, but she felt relieved that Eve understood her feelings.</p>
-<p>"First of all, to repay Ryuta-nim's kindness, the first thing to do is recover your body~♪"</p>
+<p>"First of all, to repay Ryuta-nim's kindness, the first thing to do is recover your body♪"</p>
 <p>Eve smiled as she approached, holding four large-capacity syringes in each hand, which she had taken out from somewhere.</p>
 <p>"It's still in clinical trials, but it's a high-speed recovery agent!"</p>
 <p>"Clinical trials?"</p>
 <p>"Come on, come on. Be good, okay? It's a painless injection!"</p>
 <p>Eve quickly and accurately inserted the syringes into Saionji Diana's body. It was said to be a painless injection, but she felt a rather sharp pain.</p>
 <p>"Ah, it hurts!"</p>
-<p>"If it hurts, it's a sign that you're recovering~!"</p>
+<p>"If it hurts, it's a sign that you're recovering!"</p>
 <p>Indeed, she seemed to be feeling more active after the injection. She was feeling the sensation of her 'fingertips,' which she hadn't felt when she woke up.</p>
 <p>The sensation that she couldn't feel from the low-grade cyber implant was transmitted to her fingertips and toes.</p>
 <p>"You're definitely recovering. Is the medicine working well...? It's data worth watching. Then I'll scan you again."</p>
@@ -76,7 +76,7 @@ chapter = 333
 <p>"'We' couldn't figure out exactly which part of the product was related to psychic powers."</p>
 <p>'We'.... Is she talking about ordinary people who aren't psychics? Saionji Diana thought that and opened her mouth to Eve.</p>
 <p>"If I do this part-time job, will I be helping the teacher?"</p>
-<p>"Of course~! It's for testing products made by a company that Ryuta-nim is collaborating with~!"</p>
+<p>"Of course! It's for testing products made by a company that Ryuta-nim is collaborating with!"</p>
 <p>"Then I'll do it."</p>
 <p>"Let's adjust the schedule to fit Saionji-nim's situation. I sent the payment to your account for giving me information about the lightening today."</p>
 <p>As Eve spoke, Saionji Diana's phone, which was placed in a corner, rang. When she looked at the alarm screen, it said that 500,000 yen had been transferred to her account.</p>
@@ -98,5 +98,5 @@ chapter = 333
 <p>Leggings home teacher requested by Altenia-nim!</p>
 <p>Running!</p>
 <p>Showing off my butt!</p>
-<p>The front is good too~!</p>
+<p>The front is good too!</p>
 <p>I changed the home teacher model, and personally, I like it more, hehe.</p>

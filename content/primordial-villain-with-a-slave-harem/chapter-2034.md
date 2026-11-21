@@ -32,7 +32,7 @@ chapter = 2034
 <p>"No touching his things, peeking at his windows, or sneaking into his estate."</p>
 <p>"..."</p>
 <p>Well. Someone had strong opinions about property ownership.</p>
-<p>"Vex~"</p>
+<p>"Vex"</p>
 <p>The foxkin had wandered over with the dogkin, both watching the witch press another curse into the masonry.</p>
 <p>"Are you marking your territory?"</p>
 <p>"I’m protecting Hubby’s home. Which you should be doing too, considering your class."</p>
@@ -68,7 +68,7 @@ chapter = 2034
 <p>The two little black-haired swordswomen had begun trying to remove each other’s heads on the lawn.</p>
 <p>"[Stormstride]!"</p>
 <p>Ayame surged across the grass, opening a red line along Iris’s cheek with her katana.</p>
-<p>"Too slow~"</p>
+<p>"Too slow"</p>
 <p>"Who are you calling slow?"</p>
 <p>"You, darling. Did the blow affect your hearing too, not just your brain?"</p>
 <p>"Keep talking, flat midget. [Torment Cycle]!"</p>

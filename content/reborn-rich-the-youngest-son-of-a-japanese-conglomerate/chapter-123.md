@@ -35,7 +35,7 @@ chapter = 123
 <p>,I'm, I'm sorry."</p>
 <p>I put down Sawayanagi Azuma, who was startled as if she had suddenly come to her senses and took her lips off mine, and Sawayanagi Azuma excused herself by saying that the researchers had injected some hallucinogens into the glass tube.</p>
 <p>After hearing Sawayanagi Azuma's excuse, we escaped as quickly as possible. Except for the time Mimata Chieri went down for a while to check if there were any witnesses on the 6th floor, we did our best to run to the ground.</p>
-<p>,Did you save Azuma? Come quickly~!!"</p>
+<p>,Did you save Azuma? Come quickly!!"</p>
 <p>Kiyona Hori was waiting in the old transport vehicle that we had taken, probably after taking Sawayanagi Sinya to the hospital. We once again entrusted the driving to Kiyona Hori and got into the transport vehicle. Kiyona Hori returned to the office of Seryu-tai Military Company with her neat driving skills.</p>
 <p>Sawayanagi Sinya was waiting in the office. His face was still pale, as if he were still feeling the aftereffects of the bleeding. Seeing that sight, Kiyona Mari shouted.</p>
 <p>,Sinya! Is it okay for you to come out of the hospital like this?"</p>
@@ -88,12 +88,12 @@ chapter = 123
 <p>,Hyaeuht!"</p>
 <p>As expected of a virgin, I felt something like a membrane when I pushed it in. Sawayanagi Azuma was enduring the pain of destruction well, as expected of the president of a PMC.</p>
 <p>Sawayanagi Azuma's pussy, which had her hymen broken, was a very pleasant pussy. It was basically trained, so the surrounding muscles tightened every time she exerted force, and the pussy itself was a good pussy. In addition, the fact that she honestly felt the pleasure she was feeling gave me a sense of conquest from the perspective of the one pounding.</p>
-<p>,Heueat~! This, this is the feeling...! It's much better than when I felt it in my vision, haaang♥"</p>
+<p>,Heueat! This, this is the feeling...! It's much better than when I felt it in my vision, haaang♥"</p>
 <p>Sawayanagi Azuma reached her climax in an instant. I was still fine, so this time I turned my body and started pounding from behind. Sawayanagi Azuma reached her climax several times and lost and regained consciousness due to my tireless hip movements like a machine.</p>
 <p>Buut! Buut! Buut!</p>
 <p>Because the excitement was so strong, semen poured out as if it would fill Sawayanagi Azuma's pussy in an instant.</p>
 <p>Even after ejaculating once, I continued to shake with my still firm dick inside her pussy. My hot semen became lubricant as it was, stimulating Sawayanagi Azuma's sensitivity.</p>
-<p>,Haeueeang! It's warm, it's strange! Haht, haeueung! I love you~♥ Investor-nim! Investor-niiim~!!"</p>
+<p>,Haeueeang! It's warm, it's strange! Haht, haeueung! I love you♥ Investor-nim! Investor-niiim!!"</p>
 <p>Hoo...! After finishing my third ejaculation, I opened the window to get some fresh air. At that moment, I made eye contact with Mimata Chieri, who was hanging on the window and masturbating. The moment our eyes met, Mimata Chieri sprayed me with her vaginal fluid and went.</p>
 <p>,Haaaaaa! I think I'm a pervert♥ I'm so excited when my junior is with another woman!!"</p>
 <p>Mimata Chieri has a netorare fetish.... Did I unknowingly send two women away today?</p>

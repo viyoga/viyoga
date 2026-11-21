@@ -93,17 +93,17 @@ chapter = 438
 
 <p>Her voice was sweet and slow as she stopped, leaning toward Qingyi.</p>
 
-<p>“We didn’t have a chance to properly introduce ourselves… I’m Sapphire. You did very well against Lucien, fufufu~~” Sapphire raised her hand.</p>
+<p>“We didn’t have a chance to properly introduce ourselves… I’m Sapphire. You did very well against Lucien, fufufu” Sapphire raised her hand.</p>
 
 <p>“I am Long Qingyi.” The handsome young man smiled, took her hand, and placed a soft kiss on it, moving a thin strand of draconic Qi toward her.</p>
 
-<p>“Ah~~” A sharp, short, soft squeal escaped Sapphire’s lips. Her beautiful mature face flushed red and her legs instinctively closed.</p>
+<p>“Ah” A sharp, short, soft squeal escaped Sapphire’s lips. Her beautiful mature face flushed red and her legs instinctively closed.</p>
 
 <p>What had just happened?</p>
 
 <p>“Are you okay?” Qingyi asked, watching Sapphire’s lust increase.</p>
 
-<p>“Y-yes… nghn~~ it’s a pleasure to meet you.” Sapphire turned away with trembling steps, immediately calling upon a spell of mental calm.</p>
+<p>“Y-yes… nghn it’s a pleasure to meet you.” Sapphire turned away with trembling steps, immediately calling upon a spell of mental calm.</p>
 
 <p>She could feel a strange dampness in her panties… That was not normal…</p>
 

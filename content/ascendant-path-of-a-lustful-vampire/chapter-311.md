@@ -61,7 +61,7 @@ chapter = 311
 <p>Caius felt it coming then.</p>
 <p>"Delia get back!" He yelled but it was too late.</p>
 <p>There was a single flare and then a blast of Demonic Energy that sent Delia flying. But she had barely gotten three feet away when Belron caught up to her and grabbed for her neck with a clawed hand.</p>
-<p>Caius acted quickly. He cast his upgraded version of ~Galleon’s Gate~ and when it appeared in time, he almost breathed a breath of relief.</p>
+<p>Caius acted quickly. He cast his upgraded version of Galleon’s Gate and when it appeared in time, he almost breathed a breath of relief.</p>
 <p>But he knew better.</p>
 <p>Belron’s hand became coated with Demonic energy that tore through the Defensive spell like it was nothing and went on to wrap around Delia’s neck, raising her and then slamming her into the ground.</p>
 <p>"Ack!" Delia cried out. She had been slammed so hard, she created a crater.</p>

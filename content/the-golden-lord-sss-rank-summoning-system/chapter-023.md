@@ -5,7 +5,7 @@ weight = 23
 chapter = 23
 +++
 
-<p>"Nghnn~~ F-faster~~ F-faster! Aghnn~~!"</p>
+<p>"Nghnn F-faster F-faster! Aghnn!"</p>
 <p>The sound of Alice’s latest orgasm echoed through the thin walls of the mansion, accompanied by the loud smacking of Ethan’s hips against her buttocks and the incessant creaking of the bed.</p>
 <p>Luckily, they were the only ones sleeping there.</p>
 <p>Well... almost lucky, since they had completely forgotten that Evelyn was also sleeping there, in the room next door.</p>
@@ -15,19 +15,19 @@ chapter = 23
 <p>Her pussy was already soaked, the cool air coming in through the half-open window hitting her mons pubis, the pale skin covering a fat, protruding mound, enclosed in a deep valley.</p>
 <p>Evelyn pressed her finger, feeling it sink into the wet, warm valley, reaching her pink interior.</p>
 <p>She squeezed her breasts a little harder, her pink nipples hardening as she sent a second finger between the lips of her vulva, reaching her clitoris.</p>
-<p>"Ah~~"</p>
+<p>"Ah"</p>
 <p>She gasped, gritting her teeth.</p>
 <p>It was all that damn sovereign’s fault! What had she done to deserve the misfortune of being torn from death’s embrace and serving someone like this?</p>
 <p>Evelyn closed her eyes, her fingers moving in slow circles as Alice’s moans were reborn from the next room, even louder and more breathless than before.</p>
-<p>"Fuck... fuck... FUCK~~"</p>
+<p>"Fuck... fuck... FUCK"</p>
 <p>The movements of her fingers quickened.</p>
 <p>Her back arched, her breasts swaying freely as the hand holding them let go of the sheets, her fingers clenching tightly on the fabric.</p>
 <p>Sweat covered her naked body.</p>
 <p>Small droplets ran down her creamy skin as moonlight flooded the window, painting her pronounced curves and making her tan lines shine subtly.</p>
-<p>"You... bastard~~ I’m going to~~ I’m~~ aghnnn~~"</p>
+<p>"You... bastard I’m going to I’m aghnnn"</p>
 <p>Evelyn’s voice turned into broken murmurs, her eyes closing tightly as her hips rose, overcome by deep tremors.</p>
 <p>A shockwave hit her from within, her pussy squirting as the orgasm spread through her body.</p>
-<p>"Ah~~ nghnnn~~"</p>
+<p>"Ah nghnnn"</p>
 <p>She collapsed, drained of strength.</p>
 <p>It felt good... in a way that she definitely didn’t like, at least that’s what she told herself.</p>
 <p>"I’ll make him train twice as hard tomorrow..."</p>

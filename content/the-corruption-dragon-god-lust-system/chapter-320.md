@@ -23,7 +23,7 @@ chapter = 320
 
 <p>“Shouldn’t you be in your office now? Don’t tell me the proud Lady Margareth is running away from her job?” He smiled.</p>
 
-<p>“Nghnn~~ Meilin helped me finish everything early, she should be here soon… apparently a shipment has just arrived and she needs to sign some documents.”</p>
+<p>“Nghnn Meilin helped me finish everything early, she should be here soon… apparently a shipment has just arrived and she needs to sign some documents.”</p>
 
 <p>“Good…” Qingyi thought for a brief moment before continuing. “About Lucien, I don’t think that explosion of power at the end of the battle was common, was it?”</p>
 
@@ -83,7 +83,7 @@ chapter = 320
 
 <p>After long seconds, it finally came, an explosion of hot cum bursting into her mouth.</p>
 
-<p>“Mghn~~ gulp… gulp… gulp…” She swallowed voraciously, her throat working to contain all the volume.</p>
+<p>“Mghn gulp… gulp… gulp…” She swallowed voraciously, her throat working to contain all the volume.</p>
 
 <p>As the last burst of cum took over her mouth, she pulled back, opening her lips and sticking out her pink tongue, revealing her totally clean mouth.</p>
 
@@ -97,9 +97,9 @@ chapter = 320
 
 <p>Qingyi knelt on the soft mattress, aligning his cock with their pussies before thrusting forward.</p>
 
-<p>“Nghnn~~ Fuck!”</p>
+<p>“Nghnn Fuck!”</p>
 
-<p>“Oghnn~~ hubby!”</p>
+<p>“Oghnn hubby!”</p>
 
 <p>They moaned in unison, feeling Qingyi’s member slide between their pussies, the weight of their bodies creating a firm pressure around his cock, a loud pop echoing as his hips hit Meilin’s ass.</p>
 

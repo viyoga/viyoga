@@ -15,7 +15,7 @@ chapter = 469
 <p>For now, her main focus was nurturing her child.</p>
 <p>Ethan sighed, savoring the weight of both women’s bodies as they held him tightly, their warmth mingling with his beneath the sheets.</p>
 <p>One of his hands slid lazily along Seo-ah’s slender, delicate waist, his fingertips tracing the soft dip above her hip and feeling the warm, silky skin give ever so slightly under his touch. The other rested flat and protective on Alice’s rounded belly.</p>
-<p>“Nghnn~~ he’s kicking, fufufu~” Alice giggled softly against Ethan’s chest, curling up a little at the sensation.</p>
+<p>“Nghnn he’s kicking, fufufu” Alice giggled softly against Ethan’s chest, curling up a little at the sensation.</p>
 <p>He felt it too. A movement still subtle against his palm, but one that grew stronger with each passing day.</p>
 <p>That was his heir.</p>
 <p>He hadn’t checked yet whether it was a boy or a girl, but he didn’t really care either way.</p>

@@ -93,7 +93,7 @@ chapter = 902
 <p>Everyone felt an ominous Feeling from the Story written in Blood, but Taira Kanna, perhaps feeling nothing particular, spoke about the Guardian Hall Master. Since they hadn't seen him even in the Secret Space, the conclusion that he didn't exist within this Building was valid.</p>
 <p>"Since there's no Goal, let's leave. If it feels unsettling, we can just burn down the Building itself."</p>
 <p>That was right. The Purpose of those present here was to deal with the Guardian Hall Master, not to investigate this ominous Place. At Taira Kanna's Words, everyone passed through the Secret Passage again and came Outside the Building.</p>
-<p>"Did everyone finish well~?"</p>
+<p>"Did everyone finish well?"</p>
 <p>As everyone came Outside, Mimata Chieri was waiting outside the Building. Faint Screams were heard from here and there, indicating that the Anyaji Subjugation Operation seemed to be going well.</p>
 <p>"We couldn't find the Guardian Hall Master."</p>
 <p>When Sawayanagi Azuma shook her Head and spoke, Mimata Chieri wore a puzzled Expression.</p>
@@ -102,9 +102,9 @@ chapter = 902
 <p>"It seems he went somewhere else. He might have gone to Miyashi later."</p>
 <p>"Then I should Contact my junior-nim!"</p>
 <p>At Taira Kanna's Words, Mimata Chieri picked up the Phone. Since the Guardian Hall Master was said to be quite strong, she had to make Contact before Taira Ryuta's Plan went awry.</p>
-<p>Nagumo Sian's School Uniform and Swimsuit from her school days, requested by Gojoy-nim~!</p>
-<p>School Uniform first~!</p>
-<p>Swimsuit~!</p>
+<p>Nagumo Sian's School Uniform and Swimsuit from her school days, requested by Gojoy-nim!</p>
+<p>School Uniform first!</p>
+<p>Swimsuit!</p>
 <p>I Yeon-ju's Phone Booth Exposure, requested by TheDreaming-nim: 1. Breast Pressing 2. Masturbation</p>
 <p>1.</p>
 <p>2.</p>

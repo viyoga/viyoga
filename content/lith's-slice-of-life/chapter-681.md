@@ -121,9 +121,9 @@ Lucifer knitted her brows but knew it was true and stopped.
 
 Alex could only sigh from the sides as he saw how his granddaughter hadn't changed in ages and was still the same.
 
-"Little cousin!~" Alea waved at Lith.
+"Little cousin!" Alea waved at Lith.
 
-"Husband~" Arya waved at Lith as well.
+"Husband" Arya waved at Lith as well.
 
 Mayzin waved at Lilith and calmly waited for her to talk.
 

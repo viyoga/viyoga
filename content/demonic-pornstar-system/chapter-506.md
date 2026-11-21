@@ -37,7 +37,7 @@ chapter = 506
 <p>Luna’s face twisted as realization hit.</p>
 <p>"You’re saying you’re a hottie with big tits, so you don’t waste time gaming because that’s for nerdy girls?"</p>
 <p>Nyx flipped her hair proudly and winked, full of theatrics.</p>
-<p>"Bingo~"</p>
+<p>"Bingo"</p>
 <p>Luna let out a dark scoff. "Put those udders away, you damned pink cow. Your farmer isn’t here to drain you. And you’re dumb, by the way. Imagine if you had some intelligence and became a streamer with your giant fat reserves put on display, badly hidden by some sorry excuse of a bra, to abide by the guidelines. You could’ve just sat behind a screen and played games; you wouldn’t even have to be good. In fact, you sucking would’ve made it even better, letting the drooling losers backseat you in the comments. But no, you’re a ’trendy girl’ so you instead did something a dumb bimbo like you would when pressed for money, which is signing up for a porno shoot."</p>
 <p>Nyx’s mouth fell wide open, stunned into a state of utter disbelief.</p>
 <p>"Wha! I- You-"</p>
@@ -60,7 +60,7 @@ chapter = 506
 <p>"It’s a struggling industry! Not like before! After the mana apocalypse, everyone and their grandma started watching the awakened losers instead of us; we became obsolete! Only shameless sluts with giant tits had a chance at standing out! I often streamed even without a camera to let me concentrate on winning my games!"</p>
 <p>Her excuse came out so fast and panicked that she sounded like she was trying to outrun her own shame.</p>
 <p>Calypso burst into loud, boisterous cackling.</p>
-<p>"Sure, sure~" she teased while wiping a tear from her eye. "You’re a very smart and industrious girl, Luna, as you ’only’ signed up for a porno shoot after failing at... whatever the hell this profession you’re talking about is."</p>
+<p>"Sure, sure" she teased while wiping a tear from her eye. "You’re a very smart and industrious girl, Luna, as you ’only’ signed up for a porno shoot after failing at... whatever the hell this profession you’re talking about is."</p>
 <p>Luna’s eyes narrowed into razor slits at the demoness. Calypso, not one to back down from a challenge, returned the glare, more than happy to wrestle the storm gremlin into submission if she lunged.</p>
 <p>Yes, the demoness’ wild instincts hadn’t left her body after being subjugated, turned into a lovestruck demonic girl. It was just that when Kaiden was present, she often softened, turning bubbly. With him out of the picture... Only the Infernal Matriarch remained.</p>
 <p>Nyx, still wounded from earlier, slowly squinted her eyes at Luna in perfect synchronization.</p>

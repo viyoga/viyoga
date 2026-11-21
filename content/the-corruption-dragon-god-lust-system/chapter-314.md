@@ -75,9 +75,9 @@ chapter = 314
 
 <p>In that awkward position, they could only try to change the focus of their minds.</p>
 
-<p>“I want to nghnn~~ establish a chamber of commerce in the Eagle Peak Valley and use that as a base to regain my position… can you give us permission to settle there?” Meilin spoke up.</p>
+<p>“I want to nghnn establish a chamber of commerce in the Eagle Peak Valley and use that as a base to regain my position… can you give us permission to settle there?” Meilin spoke up.</p>
 
-<p>“Mmmhn~~ do I really have a choice?” Margareth exhaled.</p>
+<p>“Mmmhn do I really have a choice?” Margareth exhaled.</p>
 
 <p>“Well… husband wants it too, and he always gets what he wants, hahaha” Meilin gave a muffled giggle, replaced by a high-pitched moan as Qingyi slapped her ass and focused on her nipples.</p>
 

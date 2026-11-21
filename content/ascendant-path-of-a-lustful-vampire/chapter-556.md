@@ -48,41 +48,41 @@ chapter = 556
 <p>"Delia!" The others cried.</p>
 <p>"I'm—" Delia said, holding out a hand to pacify them, "I'm- I'm fine."</p>
 <p>'Am I?' She asked in her head. That pressure had almost shattered her hold on life.</p>
-<p>"~You not only talk more than him, but you're more impudent as well…~"</p>
+<p>"You not only talk more than him, but you're more impudent as well…"</p>
 <p>Delia froze as she heard the voice. It was the first time she had ever heard it. Even when she had been possessed with Nyx's divine backing and in all the times she had sensed the presence within the darkness watching her, she had never heard its voice.</p>
 <p>The best description for the voice was Death. Chilling, creeping, and leeching any tiny piece of vibrancy. The voice was death itself, plain and simple.</p>
 <p>Delia gulped but held her ground. While the arrival of the presence had shaken her so much and she would have preferred a softer first meeting, she had still gotten what she wanted.</p>
 <p>'I need your help,' she said, and somehow the voice of her thoughts sounded hoarse from fear.</p>
-<p>"~And you thought insulting me would inspire me to help you?~"</p>
+<p>"And you thought insulting me would inspire me to help you?"</p>
 <p>'You didn't respond otherwise,' Delia said, a little indignant.</p>
-<p>"~And why should I? What makes you think you deserve MY audience?~"</p>
+<p>"And why should I? What makes you think you deserve MY audience?"</p>
 <p>'The whole world is at stake!' Delia said, 'If you don't help, it could all be over!'</p>
-<p>"~So what? Worlds have fallen, and more will fall. What makes your world special and deserving of saving?~"</p>
+<p>"So what? Worlds have fallen, and more will fall. What makes your world special and deserving of saving?"</p>
 <p>Delia struggled to conceive the idea of 'worlds' in such a plural form and the idea that the destruction of this world, her world, was of so little consequence. So she pushed past that and focused on the issue at hand.</p>
 <p>'You helped once!' She pointed out.</p>
-<p>"~Yes, because I saw a chance to stick it to Aether, that bitch.~"</p>
+<p>"Yes, because I saw a chance to stick it to Aether, that bitch."</p>
 <p>'Then this is a chance to do it again,' Delia said.</p>
-<p>"~The circumstances are way too similar.~"</p>
+<p>"The circumstances are way too similar."</p>
 <p>'What?' Delia said, confused, and she could have sworn the presence within the darkness rolled its eyes at her for not understanding what Nyx was talking about.</p>
-<p>"~I bested Aether in this way once already. I saved the life of her little godling apostle and kept her ridiculous rouse—whatever it is—going for however much longer. The thought of besting her the same way again just bores me.~"</p>
+<p>"I bested Aether in this way once already. I saved the life of her little godling apostle and kept her ridiculous rouse—whatever it is—going for however much longer. The thought of besting her the same way again just bores me."</p>
 <p>'But…' Delia started, unsure what to even say.</p>
-<p>"~If you wish to entice my blessing, you'll have to try better than that.~"</p>
+<p>"If you wish to entice my blessing, you'll have to try better than that."</p>
 <p>'I only need access into the Sealing Cube. That's all I need. It's one tiny favor…' Delia said and continued in a falsely innocent tone of thought,</p>
 <p>'Unless, of course, you can't do it…'</p>
-<p>"~You must truly have a death wish to taunt me!~"</p>
+<p>"You must truly have a death wish to taunt me!"</p>
 <p>'No,' Delia said and braced for another wave of pressure attack to strike her mind, but she kept the innocent tone of thought as she continued,</p>
 <p>'It's just that all other attempts have failed against the cube, so it wouldn't be anything against you if that's something you… can't do.'</p>
-<p>"~You're comparing me to your pathetic, paltry mortal powers?~"</p>
+<p>"You're comparing me to your pathetic, paltry mortal powers?"</p>
 <p>Delia did a mental shrug.</p>
 <p>'I just don't see why you wouldn't be taking the chance to show off your might if you could,' She said.</p>
 <p>Delia knew she was making a gamble but, for one, there wasn't time to actually think of anything better. For another, she was willing to bet Nyx wouldn't kill her just yet.</p>
 <p>If the goddess had taken the time to plant her darkness in Delia's mind and then watched her for almost two months, then there had to be more to it. And whatever that was, Delia believed—hoped—it would buy her enough grace to push a little.</p>
 <p>Also, it would be so easy for Nyx to kill her. So, the fact that she hadn't been killed already bolstered Delia's confidence as a part of her mind, the one that commanded her insolence, kept prodding her to keep going.</p>
-<p>"~You can't trick me into helping you.~"</p>
+<p>"You can't trick me into helping you."</p>
 <p>'It's not a trick. I truly don't see why you wouldn't want to help if you could. For all your talk about worlds getting destroyed, you seem invested enough in this one to be watching me and speaking to me,' Delia said.</p>
 <p>For a minute, there was silence.</p>
 <p>And then, when Nyx spoke again, her voice was slow and deliberate.</p>
-<p>"~There is a price to pay to accept a god's boon. Are you aware?~"</p>
+<p>"There is a price to pay to accept a god's boon. Are you aware?"</p>
 <p>Finally, they were getting somewhere. Keeping her elation tempered, Delia said,</p>
 <p>'What is it?'</p>
-<p>"~Eternal devotion. Complete servitude to my Divine demands. By my will, you live, and by it, you die. In short, the price for my boon, you impudent mortal fledgling, is your soul.~"</p>
+<p>"Eternal devotion. Complete servitude to my Divine demands. By my will, you live, and by it, you die. In short, the price for my boon, you impudent mortal fledgling, is your soul."</p>

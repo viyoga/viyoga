@@ -93,7 +93,7 @@ chapter = 4
 
 <p>Oh man, it was just hard to explain!</p>
 
-<p>&quot;Oh my... hug me too, my dear Wen~&quot; She loved how her son was acting.</p>
+<p>&quot;Oh my... hug me too, my dear Wen&quot; She loved how her son was acting.</p>
 
 <p>For an old saggy woman like her to get such a warm reaction was wonderful.</p>
 

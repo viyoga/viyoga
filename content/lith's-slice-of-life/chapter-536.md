@@ -49,7 +49,7 @@ Dennis looked at Ralph's pink eyes and said, "I know how to draw. A good artist 
 
 "I said to take reference, not to copy. And I am really surprised to know you can draw as well." Ralph said and sipped on some hot chocolate.
 
-Dennis rolled on the table and said while yawning, "I always knew how to draaaaaaaw~."
+Dennis rolled on the table and said while yawning, "I always knew how to draaaaaaaw."
 
 Ralph knitted his brows and gave a look stating 'behave' to Dennis.
 
@@ -103,7 +103,7 @@ Saying so, Ralph took out his phone and dialed a number.
 
 It hadn't even been a second since he did that when the person at the other end picked up and said happily,
 
-"Ralph-chwaannn~"
+"Ralph-chwaannn"
 
 Who else could it be Ralph's mother, Avelyn Asmodeus?
 

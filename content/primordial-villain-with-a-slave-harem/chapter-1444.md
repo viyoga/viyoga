@@ -77,7 +77,7 @@ chapter = 1444
 <p>What he knew was that it felt as though he made a giant leap in establishing his own essence, separate from the established great forces. Quinlan smiled faintly.</p>
 <p>"Mostly internal changes, huh?" he noted.</p>
 <p>His eyes traced the patterns again. They looked… good.</p>
-<p>"Admit it~" Nyxara purred into his thoughts, her voice already sliding back into its usual cadence. "You love it. You think it's badass, epic, and all that nonsense masculinity stuff you men care so much about."</p>
+<p>"Admit it" Nyxara purred into his thoughts, her voice already sliding back into its usual cadence. "You love it. You think it's badass, epic, and all that nonsense masculinity stuff you men care so much about."</p>
 <p>Then… the succubus's voice rose into a much higher pitch, turning into a mighty squeal. "And I agree! I can't wait to be pinned beneath you as-"</p>
 <p>Quinlan closed his eyes.</p>
 <p>He focused inward once again and found her presence coiled comfortably.</p>

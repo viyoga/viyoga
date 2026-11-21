@@ -5,9 +5,9 @@ weight = 836
 chapter = 836
 +++
 
-<p>-Everyone who has waited for today, greetings from the New Colosseum Arena in Los Angeles! Currently, the time in LA is 8 PM! It must be 12 PM in Japan! I hope everyone watches the UMC Unlimited Class Champion Match before lunch~!</p>
+<p>-Everyone who has waited for today, greetings from the New Colosseum Arena in Los Angeles! Currently, the time in LA is 8 PM! It must be 12 PM in Japan! I hope everyone watches the UMC Unlimited Class Champion Match before lunch!</p>
 <p>Has it already gotten this late? Looking at the clock, it was exactly 12 PM, just as the caster said. The previous Match wasn't unexpectedly boring, so Time seemed to have flown by quickly.</p>
-<p>-I will carry on Fujigasaki Rinka's legend! Japan's New Hope! Genba~ Kiyohira~!</p>
+<p>-I will carry on Fujigasaki Rinka's legend! Japan's New Hope! Genba Kiyohira!</p>
 <p>As the Champion Match began, first, the challenger, that Guy Genba Kiyohira, ascended into the ring with his entrance Music. His White hair, maintained since middle school, and fierce Impression were quite familiar. Perhaps to fight in the Unlimited Class, or perhaps he had significantly gained Weight, his Size seemed even larger.</p>
 <p>"Every Time I see him, I think he looks fierce."</p>
 <p>Seizawa Shii, watching the Screen, muttered. There was a good Reason why that Guy Genba Kiyohira was called Genbaki. He was given that nickname because he resembled the fierce characters in Baki.</p>
@@ -46,7 +46,7 @@ chapter = 836
 <p>Kung!</p>
 <p>Simultaneously, both of their Attacks landed. Genba Kiyohira threw a Body Shot, and Hunter Herrera struck Genba Kiyohira's Temple with a Hook as he burrowed in.</p>
 <p>But it was Hunter Herrera who fell. While the Referee counted, a Replay was shown, revealing that Genba Kiyohira had simultaneously struck the Abdomen and raised his Shoulder to block Hunter Herrera's Hook. In the end, only Hunter Herrera had taken a direct hit.</p>
-<p>"Amazing~! If it wasn't for slow-motion, I wouldn't have known what happened."</p>
+<p>"Amazing! If it wasn't for slow-motion, I wouldn't have known what happened."</p>
 <p>Oofuchi Erika muttered in surprise. I had roughly grasped The Situation, but due to Camera angles and broadcast limitations, I couldn't help but be slower to understand The Situation than if I were watching in the Arena.</p>
 <p>"Seven...! Eight...!"</p>
 <p>Perhaps because he was the Champion and it would be anticlimactic if it ended so quickly, the Referee was counting very slowly. Hunter Herrera stood up and raised his Fist when the Referee called 'Nine'. His Gaze was clear, as if he had been resting while lying down until now. With gaejo, his durability also increased, so he seemed able to withstand one Body Shot.</p>
@@ -58,11 +58,11 @@ chapter = 836
 <p>A sound unlike Fists clashing erupted, and Hunter Herrera's cybernetic implant Fist and Arm were disassembled and shattered.</p>
 <p>Genba Kiyohira was not satisfied with just taking off one of Hunter Herrera's Arms. He then crushed Hunter Herrera's Peach bone with a Calf Kick, and as Hunter Herrera fell, bringing his Head within range, he struck Hunter Herrera's Chin with a Palm Strike, knocking him Faint.</p>
 <p>Naturally, a Faint Hunter Herrera would not be able to continue the Match, so the Referee declared the Match over.</p>
-<p>-Ahh! Kita! Amazing~! He swept in like a Storm, instantly KO'd the former UMC Unlimited Class Champion Hunter Herrera, and seized the throne!! What's even more surprising is that in the short Time of Round 2, he didn't allow a single direct hit!</p>
+<p>-Ahh! Kita! Amazing! He swept in like a Storm, instantly KO'd the former UMC Unlimited Class Champion Hunter Herrera, and seized the throne!! What's even more surprising is that in the short Time of Round 2, he didn't allow a single direct hit!</p>
 <p>Along with the caster's High Praise, that Guy Genba Kiyohira was shown receiving the belt. After that, the Camera focused on the spectator stands, and Kujo Kina was seen jumping up and down in place, making all sorts of commotion, causing all the special class Students watching that Scene to burst into laughter.</p>
-<p>"Genba Kiyohira won, and I won too~!"</p>
+<p>"Genba Kiyohira won, and I won too!"</p>
 <p>Seizawa Shii jumped up and down, delighted that she had won. When I looked at her with an Expression of 'What did you win?', she looked at me as if I was Stifling.</p>
-<p>"Child~! Did you forget? We made a Bet yesterday on who would win, didn't we?"</p>
+<p>"Child! Did you forget? We made a Bet yesterday on who would win, didn't we?"</p>
 <p>"Ah, right...."</p>
 <p>Yesterday, Seizawa Shii and Kujo Kina had Bet on Genba Kiyohira winning with a patriotic Bet, and Naruse Shiyo and Otagi Yuka had Bet on Hunter Herrera winning, so Seizawa Shii and Kujo Kina had won. I had said Genba Kiyohira would probably win, but since I hadn't participated in the Bet, I would just watch the Students' Bet from a safe distance.</p>
 <p>"I'm hungry, so how about we end the Bet by ordering some delivery here now? Let's order plenty so our Classmates can eat too, then eat and go Home."</p>
@@ -71,7 +71,7 @@ chapter = 836
 <p>After talking among themselves, it seemed they had decided to have a Meal in the club room. Alik, who had been listening to the Story beside me, scurried over and said, "Alik wants Pizza...!" stating what he wanted to eat.</p>
 <p>"What do you think?"</p>
 <p>Sakagami Rena, approaching with a rather serious Expression, asked me. After all, Genba Kiyohira was a person of Anyaji, so she seemed worried about him becoming the UMC Unlimited Class Champion, a position with immense Influence in the Martial Arts world.</p>
-<p>Requested by seungj050-nim! Liz, Home Ec Teacher strapless top + Mommae-revealing skirt Illustration~!</p>
-<p>Home Ec Teacher~!</p>
-<p>Lizhael~!</p>
+<p>Requested by seungj050-nim! Liz, Home Ec Teacher strapless top + Mommae-revealing skirt Illustration!</p>
+<p>Home Ec Teacher!</p>
+<p>Lizhael!</p>
 <p>Actually, a crop top was also requested, but I forgot and just made this combination, hehe.</p>

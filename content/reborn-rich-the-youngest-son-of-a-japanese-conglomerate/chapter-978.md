@@ -48,7 +48,7 @@ chapter = 978
 <p>Taira Camilla was a Latin Beautiful Woman, with blonde Hair and brown Skin similar to Taira Gensuke. If Taira Gensuke's blonde Hair was a dull, brownish blonde, influenced by his Father Ichiro, Taira Camilla's blonde Hair had a brighter feel.</p>
 <p>Today, she participated wearing a Kimono, and perhaps because she had been a daughter-in-law of the Tairaga for a long time, she looked quite natural despite being Brazilian. Perhaps sensing my Gaze, she glanced at me and smiled, making me involuntarily flustered. By the way, she looks quite young. As Taira Ichiro's second Wife, she wasn't as old as I had thought.</p>
 <p>"Even though it's Winter, your Performance isn't bad. Well done."</p>
-<p>"Since it's Winter, I focused on ski Travel and trips to warm countries, Father-nim. I did well, didn't I~?"</p>
+<p>"Since it's Winter, I focused on ski Travel and trips to warm countries, Father-nim. I did well, didn't I?"</p>
 <p>She spoke to Taira Danjo, who was praising her for doing well, with Aegyo, as if boasting, perhaps because she was naturally a person with a lot of Aegyo. Taira Danjo chuckled, seemingly not disliking Taira Camilla, then praised her, saying he would give her a big bonus, and moved on to the next Turn.</p>
 <p>"Jiro."</p>
 <p>"Yes, Father."</p>
@@ -59,10 +59,10 @@ chapter = 978
 <p>"Nephew Ryuta here supplied Mithril, which allowed us to significantly increase our Performance."</p>
 <p>The Nephew/Niece Taira Jiro was talking about was me? Why is he praising me here? Even though he attacked Hatake Investment Company just a few days ago. Or perhaps the Failure of the Attack was the Opportunity for him to decide that it would be better to join hands with me instead.</p>
 <p>Everyone's Gaze gathered on me at Taira Jiro's words. Taira Ichiro, Taira Kokoro, and Taira Yukiko, who knew me, had an 'is that so' Expression, but my Cousins had an Expression that asked, 'How did this guy supply that precious Mithril?'</p>
-<p>I Save I-nim requested Taira Camilla and Taira Kokoro in a Negligee, exuding a Seduction-like feeling in a moonlit Bedroom~!</p>
-<p>Starting with Taira Camilla~!</p>
+<p>I Save I-nim requested Taira Camilla and Taira Kokoro in a Negligee, exuding a Seduction-like feeling in a moonlit Bedroom!</p>
+<p>Starting with Taira Camilla!</p>
 <p>Actually, I was debating whether or not to create an Illustration, but since a Request came in, I went ahead and created a Taira Camilla Character Illustration haha.</p>
-<p>Kokoro~!</p>
-<p>Gojoy-nim requested Back Lisa Breast-covering Tape~!</p>
-<p>Starting with Tape~!</p>
-<p>Breast-covering~!</p>
+<p>Kokoro!</p>
+<p>Gojoy-nim requested Back Lisa Breast-covering Tape!</p>
+<p>Starting with Tape!</p>
+<p>Breast-covering!</p>

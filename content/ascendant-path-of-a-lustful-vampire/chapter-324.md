@@ -47,7 +47,7 @@ chapter = 324
 <p>Being the almighty goddess that you are."</p>
 <p>Silence...</p>
 <p>And then,</p>
-<p>"~You talk too much.~"</p>
+<p>"You talk too much."</p>
 <p>The voice sent chills across Caius’s spine. It caused his body to tingle as he was swarmed with a feeling of reverence. He felt it for certain then. What every Vampire knows but may not truly comprehend;</p>
 <p>Their— His life/existence truly was in this goddess’s hands. And it was hers to do with as she saw fit.</p>
 <p>Something urged him to bow and he didn’t resist.</p>
@@ -58,15 +58,15 @@ chapter = 324
 <p>He didn’t consider himself a talkative person but this was really not the time for quiet and silence games. Still, it would be stupid to think of rushing a Goddess. Especially one whose most predominant Domain besides Darkness, was Death.</p>
 <p>Caius was sure Fifteen minutes had passed with him still bowed.</p>
 <p>And then, Nyx spoke again.</p>
-<p>"~Stand and Look.~"</p>
+<p>"Stand and Look."</p>
 <p>Caius stood straight and opened his eyes but he wasn’t looking at the dark space. He was looking outside of it. He was looking at the battle between Belron and Aurelius. What had been too quick to see before was now slowed down.</p>
 <p>Aurelius’s vest had been sliced up and hung off his body in tatters. The same with his uniform. He was marked with injuries that all bled profusely but he gritted his teeth and fought on.</p>
 <p>Still, it was clearly a losing battle.</p>
 <p>But that was not what Nyx directed Caius’s observation toward. She directed him to the glow that revolved around Aurelius’s attacks. Or rather to the presence within that glow.</p>
-<p>"~Aether... you bitch...~"</p>
+<p>"Aether... you bitch..."</p>
 <p>With narrowed eyes, Caius realized what Nyx was doing. She was reducing this life and death situation into another part of her rivalry with her sister.</p>
 <p>Sure enough, Nyx continued, definitely not speaking to Caius.</p>
-<p>"~You have an Apostle? Well, I’ll have two.~"</p>
+<p>"You have an Apostle? Well, I’ll have two."</p>
 <p>Caius felt slyness from the eyes within the Darkness and as his sight was wrenched away from the battle between Belron and Aurelius, he found he was back in his body and instantly stood to his feet, staring at his hands.</p>
 <p>He felt whole. Like every wound had been healed. His Divine seed felt strangely buoyant, churning Divine Energy with enough quantity to match his Mana reserves. And coursing through his body just as easily.</p>
 <p>The light within the Sealing Cube dimmed and it suddenly felt as though it were nighttime. With the flashes of golden light from Aurelius being the only source of light and always getting snuffed whenever they got too close to Caius.</p>

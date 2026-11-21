@@ -25,12 +25,12 @@ chapter = 1939
 <p>"And you, each in your turn, standing before the same Goddess and the same realm: do you take this man as your husband?"</p>
 <p>"Yes," said Ayame, eyes fondly on Quinlan.</p>
 <p>"Yes!" Vex wasted no time responding, pentagram eyes flaring.</p>
-<p>"Yes~" Kitsara purred, tails up.</p>
+<p>"Yes" Kitsara purred, tails up.</p>
 <p>"Yes!!!" Blossom shouted.</p>
 <p>"Yes!" Serika’s hair flared.</p>
 <p>"Yes," said Sera, delicate hands on her chest.</p>
 <p>"Yes..." cried Aurora, wiping her tears.</p>
-<p>"Yes~" Lucille sang.</p>
+<p>"Yes" Lucille sang.</p>
 <p>"...Yes," said Kaelira, and for once, she gazed deep into Quinlan’s eyes while speaking.</p>
 <p>"Yes," finished the Tyrant of Commerce.</p>
 <p>Feng held out the box, and Quinlan put Kaelira’s rings on ten hands.</p>

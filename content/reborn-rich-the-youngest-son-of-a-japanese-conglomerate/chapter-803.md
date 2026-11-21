@@ -87,10 +87,10 @@ chapter = 803
 <p>,It's not difficult for me to tell you this much.,</p>
 <p>,Thank you, you...!,</p>
 <p>Minamoto Lisa hugged me tightly at my Words. I was very worried before meeting Minamoto Lisa today, but I was glad that it worked out well. In the end, Minamoto Lisa didn't turn her back on me after hearing that I was Taira, so it could be said that it was a Success.</p>
-<p>Gojoy-nim requested Dang So-hwa's belly dancer, breast covering~!</p>
-<p>Belly dancer~!</p>
+<p>Gojoy-nim requested Dang So-hwa's belly dancer, breast covering!</p>
+<p>Belly dancer!</p>
 <p>Breast covering!</p>
-<p>seungj050-nim requested Liz's Footjob posture with both Feet, Yukiko Spanking~!</p>
+<p>seungj050-nim requested Liz's Footjob posture with both Feet, Yukiko Spanking!</p>
 <p>Liz</p>
-<p>Yukiko~!</p>
-<p>Kkiyooot~!</p>
+<p>Yukiko!</p>
+<p>Kkiyooot!</p>

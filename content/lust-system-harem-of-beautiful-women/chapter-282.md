@@ -19,13 +19,13 @@ chapter = 282
 
 <p>Ariana’s face flushed red, a mix of shyness, excitement, and barely contained exhilaration.</p>
 
-<p>&quot;Hehe, don’t be nervous. Your brother-in-law isn’t going to eat you~&quot;</p>
+<p>&quot;Hehe, don’t be nervous. Your brother-in-law isn’t going to eat you&quot;</p>
 
 <p>As Luis spoke, noticing her affectionate expression, he reached out to pinch her soft, tender cheek, savoring the delicate, almost fragile skin of his young cousin in her adolescence.</p>
 
 <p>Similarly, Ariana blushed but didn’t refuse, only biting her lower lip slightly. Her charming appearance sent waves of lust surging through Luis’s eyes. Even if she wasn’t some top-tier girl, this kind of refined, obedient young woman was still appealing to men—especially when one had impure intentions, enjoying the particular thrill it brought.</p>
 
-<p>&quot;I didn’t say any of that~&quot;</p>
+<p>&quot;I didn’t say any of that&quot;</p>
 
 <p>As they talked, they reached the second floor and settled in a shop specializing in phone accessories. The first step was to take out the phone and apply a screen protector.</p>
 
@@ -41,7 +41,7 @@ chapter = 282
 
 <p>Visiting a mall like this was even rarer, so to her, this was a dazzling world of wonders. She drifted through the store like a butterfly flitting among flowers.</p>
 
-<p>&quot;Well, if it isn’t Avery’s sugar daddy~&quot;</p>
+<p>&quot;Well, if it isn’t Avery’s sugar daddy&quot;</p>
 
 <p>A cold, mocking voice suddenly rang out. Luis looked up, his eyes lighting up.</p>
 
@@ -107,7 +107,7 @@ chapter = 282
 
 <p>Ariana looked Ojhaka up and down, a proud smile on her face. &quot;What, jealous? My sugar daddy is young, rich, and handsome.&quot;</p>
 
-<p>&quot;And you? Oh, such a beauty~ Not even our school belle is as pretty as you, or as good at dressing up.&quot;</p>
+<p>&quot;And you? Oh, such a beauty Not even our school belle is as pretty as you, or as good at dressing up.&quot;</p>
 
 <p>Ojhaka’s face darkened. She was a classic green-tea type—she certainly didn’t take this as a compliment.</p>
 

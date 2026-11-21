@@ -101,7 +101,7 @@ chapter = 125
 
 <p>Playing in the water, oral sex, caressing and flirting, claiming no service but acting so wanton!!!</p>
 
-<p>&quot;Baby, it seems you rarely give your husband oral. You bit me a little just now. You’ll need to practice more in the future, oh~&quot;</p>
+<p>&quot;Baby, it seems you rarely give your husband oral. You bit me a little just now. You’ll need to practice more in the future, oh&quot;</p>
 
 <p>The beautiful wife began to gently suck the penis, and Luis also bent down to lick her jade-like back. With both hands, he grabbed her full breasts and squeezed them slightly, faintly sensing some milk in his palms, it was incredibly stimulating. His penis throbbed excitedly inside her mouth.</p>
 
@@ -115,7 +115,7 @@ chapter = 125
 
 <p>As she began to move, she steadied herself with one hand on Luis’s shoulder while using the other to lift one of her breasts, offering her nipple to the man’s mouth.</p>
 
-<p>&quot;Very good~ You really have so much milk!&quot;</p>
+<p>&quot;Very good You really have so much milk!&quot;</p>
 
 <p>Luis took a nipple into his mouth and began to suck. His hands slid down from her sensitive lower back, grasping the beautiful wife’s full buttocks and kneading them.</p>
 

@@ -57,7 +57,7 @@ chapter = 341
 
 <p>What on earth did that woman mean?</p>
 
-<p>“Looks like you won’t be able to corrupt that poor girl so easily this time, fufufu~~” Ruxue’s sweet, mature voice echoed in Qingyi’s mind.</p>
+<p>“Looks like you won’t be able to corrupt that poor girl so easily this time, fufufu” Ruxue’s sweet, mature voice echoed in Qingyi’s mind.</p>
 
 <p>He opened his mouth to reply, but was interrupted the next moment when Linyue attacked him, her sharp claws passing inches from his face.</p>
 
@@ -73,7 +73,7 @@ chapter = 341
 
 <p>“Nyan?” She gave a high-pitched, cute and confused yelp as a powerful impact hit her ass, shockwaves spreading through the voluptuous flesh, which was quickly brought under control by Qingyi’s firm grip.</p>
 
-<p>“Nyan~~ stop~~ nghnn~~” she moaned, shuddering, a strange heat spreading through her body.</p>
+<p>“Nyan stop nghnn” she moaned, shuddering, a strange heat spreading through her body.</p>
 
 <p>[You touched a woman of far superior power and origin in an extremely indecent way, +25,000,000 million lust points]</p>
 
@@ -87,7 +87,7 @@ chapter = 341
 
 <p>“Nyan… no… I’m going to-” Before Linyue was even able to complete the sentence, Qingyi pressed his lips against hers, his tongue invading the girl’s mouth, curling around her tongue.</p>
 
-<p>“Mnhnn~~” Linyue moaned, her face blushing even more, her beautiful green eyes wide.</p>
+<p>“Mnhnn” Linyue moaned, her face blushing even more, her beautiful green eyes wide.</p>
 
 <p>One of Qingyi’s hands went up to her breasts, large and heavy, perhaps only a little smaller than Margareth’s breasts.</p>
 
@@ -111,7 +111,7 @@ chapter = 341
 
 <p>Linyue didn’t answer, but Qingyi obviously already knew the answer.</p>
 
-<p>“Hey, w-what are you nyan-mghnn~~” Qingyi crouched down in front of Linyue, letting go of her arms, his face at the level of her pussy.</p>
+<p>“Hey, w-what are you nyan-mghnn” Qingyi crouched down in front of Linyue, letting go of her arms, his face at the level of her pussy.</p>
 
 <p>The leather fabric of her thong was clinging to her fat, wet lips, outlining them perfectly.</p>
 

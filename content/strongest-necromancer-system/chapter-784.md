@@ -17,7 +17,7 @@ chapter = 784
 <p>Slam!</p>
 <p>"Fuck!"</p>
 <p>Jason grunted as he came hard, and that was enough to push Hesabeth over the edge as well!</p>
-<p>"AAAHHHHHHHH~!!!"</p>
+<p>"AAAHHHHHHHH!!!"</p>
 <p>Hesbeth felt her entire body shake from pleasure as she felt Jason’s warmth inside her, and her thighs quivered as she drenched the bed in her juices! Hesabeth’s face was twisted in agonizing pleasure, and she began to beg Jason for mercy!</p>
 <p>"Please, Jason! I’m going to die! Please!"</p>
 <p>Jason grinned as he felt Hesabeth squeezing around him even tighter, and he finally let go of her hands and allowed her to drop to the bed! Hesabeth fell forward lifelessly, and Gina quickly caught Hesbeth in her arms before she could land on the bed. Hesabeth was breathing heavily, and her face was covered in a large red blush! Hesbeth’s hair was an absolute mess, and her hands and feet were still shaking! This was only the first time that Hesabeth was doing this, but Hesabeth could already tell that Jason was far better at sex than he had any right to be! Hesabeth felt like she had fought a thousand wars in the last hour!</p>
@@ -32,5 +32,5 @@ chapter = 784
 <p>Hesabeth honestly had no idea why she was doing this! Hesabeth’s prideful ego was already screaming at her and telling her to pull back immediately, but for some reason, the heat in Hesabeth’s stomach was growing even more intense the longer Hesabeth smelled Jason’s musky scent, and as Hesabeth took Jason into her mouth, she could feel her crotch growing wetter from arousal! Hesabeth wrapped one hand around the base of Jason’s member before she began to move her mouth slowly while copying what Gina had done earlier! Gina leaned in from Hesabeth’s side and spoke in a low tone.</p>
 <p>"Make sure you don’t use your teeth. Take it slow and as deep as possible."</p>
 <p>Gina placed her hand on the back of Hesabeth’s head, and she tangled her fingers into Hesabeth’s hair before she slowly began to push Hesabeth forward so Hesabeth would swallow even more of Jason!</p>
-<p>Slurp~! Slurp~! Slurp~! Slurp~! Slurp~!</p>
+<p>Slurp! Slurp! Slurp! Slurp! Slurp!</p>
 <p>The sound of wet sucking filled the bedroom, and Hesabeth gagged a bit as she felt Jason’s member hitting the back of her throat! Hesabeth wasn’t even taking half of Jason yet, and she already felt like throwing up! Hesabeth looked up at Jason as she continued to suck him off, and Hesabeth felt her cheeks redden when she saw Jason watching her with an intense look in his eyes!</p>

@@ -18,9 +18,9 @@ chapter = 862
 <p>Ah, I see. Somehow, Taira Kanna and Nakanoin Rina didn't seem to fit making chocolate among the Students, that's why I asked. By the way, it seems both of them came early because they didn't make chocolate with the Students.</p>
 <p>"While Orabeoni packs his Luggage, we will look around the education preparation room." This means "don't Study anymore, pack your Luggage," right? Anyway, the Students would come soon, so I packed my Luggage, listening to Taira Kanna's hrr-hm Humming as BGM.</p>
 <p>After packing all my Luggage, outside began to get noisy. It seemed making chocolate in the Home Economics Lab was over.</p>
-<p>"Today, I'm going too." "Me too~☆" Minamoto Lisa and Seizawa Shii entered the education preparation room, saying they were going too. And looking at Taira Kanna, they made a startled Expression. Of course, both of them would have known Taira Kanna was with us today, but it seemed they didn't expect her to already be in the education preparation room.</p>
+<p>"Today, I'm going too." "Me too☆" Minamoto Lisa and Seizawa Shii entered the education preparation room, saying they were going too. And looking at Taira Kanna, they made a startled Expression. Of course, both of them would have known Taira Kanna was with us today, but it seemed they didn't expect her to already be in the education preparation room.</p>
 <p>By the way, neither of them are Swordsmen, so why do they want to see Ichimonji Harugoro? Minamoto Lisa said she had someone under her who uses cold Weapons, so it might be to meet him in advance, but Seizawa Shii is a Fist Technique practitioner, so there was no particular Reason to meet Ichimonji Harugoro. Of course, given Seizawa Shii's Personality, she probably just wants to be together, out of Intrigue and because her Friends are here.</p>
-<p>"Oh my, Lisa, Shii, you're late?" "We didn't make a specific appointment, so we're not late." "Kanna-cchi~! Long time no see~☆" Minamoto Lisa snapped back at Taira Kanna, who was needlessly trying to pick a Quarrel by saying they were late. Seizawa Shii pretended not to hear the word "late" and greeted her warmly. In fact, as Minamoto Lisa said, they hadn't set a specific time, but agreed to come to the education preparation room together after finishing to go home, so they weren't late.</p>
+<p>"Oh my, Lisa, Shii, you're late?" "We didn't make a specific appointment, so we're not late." "Kanna-cchi! Long time no see☆" Minamoto Lisa snapped back at Taira Kanna, who was needlessly trying to pick a Quarrel by saying they were late. Seizawa Shii pretended not to hear the word "late" and greeted her warmly. In fact, as Minamoto Lisa said, they hadn't set a specific time, but agreed to come to the education preparation room together after finishing to go home, so they weren't late.</p>
 <p>The appointment time to meet Ichimonji Harugoro was before Evening. I was thinking of treating the Students to dinner as a Reward for their hard Work after they received their Swords, so there was quite a lot of Leisure time.</p>
 <p>"The other Students are outside, right? Let's go out for now." "Yes." No matter how much Leisure time there was, I couldn't keep staying in the education preparation room, so I, having packed all my Luggage, came outside. In fact, until this Evening, I had to be with the Students and the old man Ichimonji, so there was no separate time to Study; I just needed to pack the Bag I brought when Going to Work as is.</p>
 <p>"Ryuta...!" "Teacher-nim, you're here?" "Teacher-ssi, you've worked hard." "Yes, everyone did well in Home Ec practice?" Perhaps because the entire grade was together in the chocolate making space, as I approached closer, there was a sweet Smell unique to chocolate. After greeting the Students briefly, I approached Shimokawabe Airen, who looked tired.</p>
@@ -43,15 +43,15 @@ chapter = 862
 <p>"Lisa doesn't need to help. If Lisa helps, I have to withdraw because of the Gaze of the Surroundings, and if I help, Lisa also can't step forward, right? Only one of us can intervene in this Anyaji battle."</p>
 <p>It was as Taira Kanna said. Taira and Minamoto joining forces is not unheard of, but that is something only the Head of the Group or someone with a clear Successor structure could decide. It was not something Taira Kanna, who hasn't fully established her power yet, or Minamoto Lisa, who hasn't even decided what she will do in the Minamoto Group, could decide. If the two of them needlessly joined forces in battle, they would be treated as Bae-sinja by their respective Families, so one of them had to withdraw.</p>
 <p>Naturally, now, with Combatants in Miyashi, it was natural for Taira Kanna's side to exert power, so it was right for Taira Kanna to join.</p>
-<p>"Why don't you have Lisa-ttang's side? I'm here~☆ I'll do everything for Lisa-ttang's share, so don't be too disappointed, Lisa-ttang." "Shii...." When Seizawa Shii said she would Work hard for Minamoto Lisa's share, only then did Minamoto Lisa's apologetic Expression relax.</p>
+<p>"Why don't you have Lisa-ttang's side? I'm here☆ I'll do everything for Lisa-ttang's share, so don't be too disappointed, Lisa-ttang." "Shii...." When Seizawa Shii said she would Work hard for Minamoto Lisa's share, only then did Minamoto Lisa's apologetic Expression relax.</p>
 <p>So we continued to build the strategy for the upcoming Anyaji battle, giving our opinions to each other until the old man Ichimonji Harugoro came.</p>
-<p>Home Ec Teacher B-cut~!</p>
+<p>Home Ec Teacher B-cut!</p>
 <p>As I was making them, the Sweat wasn't great, so I changed the Sweat version to B-cut hehe.</p>
-<p>Requested by TheDreaming-nim: Shido Tsubaki being interviewed at a convention wearing a Chastity Belt, Shido Tsubaki being interviewed in a Reverse Bunny outfit with nipple patches~! Chastity Belt Tsubaki~!</p>
-<p>Reverse Bunny Tsubaki~!</p>
-<p>Requested by Gojoy-nim: Shido Tsubaki breast-covering, belly dancer~! Breast-covering~!</p>
-<p>Belly dancer~!</p>
-<p>Requested by Albori-nim: Yuka Jeans+Long Boots+Ponytail~!</p>
+<p>Requested by TheDreaming-nim: Shido Tsubaki being interviewed at a convention wearing a Chastity Belt, Shido Tsubaki being interviewed in a Reverse Bunny outfit with nipple patches! Chastity Belt Tsubaki!</p>
+<p>Reverse Bunny Tsubaki!</p>
+<p>Requested by Gojoy-nim: Shido Tsubaki breast-covering, belly dancer! Breast-covering!</p>
+<p>Belly dancer!</p>
+<p>Requested by Albori-nim: Yuka Jeans+Long Boots+Ponytail!</p>
 <p>As I was making them, I got a taste for changing shoes, so here's an illustration made by the writer hehe.</p>
 <p>Ugg Boots</p>
 <p>Kkan Yuka &amp; Deop Yuka Naoki hehe.</p>

@@ -29,7 +29,7 @@ chapter = 229
 <p>,Ehehehe. Was sightseeing in New York fun?'</p>
 <p>Arisu asked me with a slightly embarrassed expression when I returned to the mansion. I could understand that she was horny because she hadn't seen me in a while, and there were still two days left, so I could see New York tomorrow or the day after.</p>
 <p>,Exploring Arisu's cave was more fun than New York.'</p>
-<p>,Oh, come on~!'</p>
+<p>,Oh, come on!'</p>
 <p>Arisu laughed at my words and kissed me. It was quite a deep kiss to do in front of the house. Well, it's late at night, so Oliver Fitzgerald and Nae Fitzgerald must be asleep.</p>
 <p>,Let's go in and sleep now.'</p>
 <p>,Okay, see you tomorrow.'</p>
@@ -47,7 +47,7 @@ chapter = 229
 <p>,Ryuta, your aunt is going to be gentle....'</p>
 <p>Nae Fitzgerald kept whispering dirty words in my ear like a pornographic AV actress or a sexy ASMR YouTuber. It felt so good to stroke and rub my dick over my panties slowly while saying dirty words.</p>
 <p>,Your aunt will take care of Ryuta's clumsy, erect, filthy big dick.'</p>
-<p>It was Nae Fitzgerald who finally took off my panties. My dick got caught on the band of my panties and was pushed down, and when she pulled them down completely, my dick bounced up and hit Nae Fitzgerald's cheek with a *taeng*~!</p>
+<p>It was Nae Fitzgerald who finally took off my panties. My dick got caught on the band of my panties and was pushed down, and when she pulled them down completely, my dick bounced up and hit Nae Fitzgerald's cheek with a *taeng*!</p>
 <p>,Kyaa.... Hap!'</p>
 <p>Nae Fitzgerald, who was about to scream at the attack (?) of the dick, was surprised and quickly covered her mouth, quietly feeling the feeling of the dick poking her cheek.</p>
 <p>I laughed, but I forced myself to hold it in and kept pretending to be asleep. As Nae Fitzgerald said, I thought Nae Fitzgerald had the right to do it because I had sleep-raped Nae Fitzgerald, and above all, I was just staying still because the situation was hot.</p>

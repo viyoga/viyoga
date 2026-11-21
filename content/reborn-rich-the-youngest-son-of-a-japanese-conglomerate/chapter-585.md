@@ -16,11 +16,11 @@ chapter = 585
 <p>"Nowhere to go, not to my students...!"</p>
 <p>I grabbed his waist and threw the zombified guide backward. The guide crashed to the ground with a loud noise.</p>
 <p>Kwaang!</p>
-<p>"Suplex!! Awesome, Sensei~!"</p>
+<p>"Suplex!! Awesome, Sensei!"</p>
 <p>Naruse Shiyo shouted in an excited voice, not fitting the situation. But the guide soon struggled and got up. I ran to the driver's seat, opened the entrance, and kicked the guide out.</p>
 <p>A pride of lions, who were approaching while loitering, saw the suddenly appearing large prey and came closer. Then they paused for a moment, looking at the guide with a feeling like, 'Isn't this the friend who used to give us raw chicken?'</p>
 <p>"Kyaa! Lions! What do we do...!"</p>
-<p>"Lions~! Look here, lions!"</p>
+<p>"Lions! Look here, lions!"</p>
 <p>The students, who hadn't properly grasped the situation yet, were worried about the guide who had been thrown outside, and Seizawa Shii seemed uninterested in the guide and was happy to see the lions. Seeing her like this, Seizawa Shii feels a bit scary.</p>
 <p>"Kuaaaa!"</p>
 <p>"Euheoheong!"</p>

@@ -43,7 +43,7 @@ chapter = 968
 
 <p>The plump, pale lips of Mingzhu’s pussy slowly parted, stretching wide and wrapping around his cock as he buried himself inside her, forming a soft, pale ring around his thick, firm shaft.</p>
 
-<p>"A-aghnnn~~ Q-Qingyi~ i-it’s too big!" Mingzhu exclaimed, her eyes widening.</p>
+<p>"A-aghnnn Q-Qingyi i-it’s too big!" Mingzhu exclaimed, her eyes widening.</p>
 
 <p>Qingyi’s hips slammed hard against her ass. Her pale buttocks flattened against him, and a shockwave rolled through both cheeks toward her hips. The two globes trembled and swayed like a churning sea before settling back into place, slow and heavy.</p>
 
@@ -75,11 +75,11 @@ chapter = 968
 
 <p>It was a truly incredible and mesmerizing sight.</p>
 
-<p>"Aghnn~~"</p>
+<p>"Aghnn"</p>
 
 <p>clap clap clap clap</p>
 
-<p>"Q-Qingyi~~ i-it’s s-so deep~ ah~~ what is this feeling? So hot~"</p>
+<p>"Q-Qingyi i-it’s s-so deep ah what is this feeling? So hot"</p>
 
 <p>Mingzhu moaned nonstop, her eyes rolling back and her tongue slipping past her lips, saliva dripping down her chin.</p>
 
@@ -103,7 +103,7 @@ chapter = 968
 
 <p>Without his cock ever leaving her pussy, he asked with a smile, "Ready for round two?"</p>
 
-<p>"Mhmm~~ Can we do it in bed this time?" she asked, shyly.</p>
+<p>"Mhmm Can we do it in bed this time?" she asked, shyly.</p>
 
 <p>Qingyi smiled, getting up with her, his cock slipping out of her pussy with a wet pop.</p>
 

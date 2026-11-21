@@ -54,8 +54,8 @@ chapter = 632
 <p>Alexandra pondered for a moment. Her fingers fidgeted with the fabric of her dress before she finally smiled sheepishly and nodded. "I’ll come... but you must protect me, okay...? A tyrant has to protect his loyal inner circle, or he’ll be toppled from the inside..."</p>
 <p>"I sense a nasty kink developing here," Luna chimed in.</p>
 <p>"It’s obvious," Nyx purred.</p>
-<p>"Blondie bestie has nice taste. Being dommed into oblivion by Kai is one of life’s greatest pleasures. It’ll make anyone appreciate being born a woman~" Calypso grinned wickedly.</p>
+<p>"Blondie bestie has nice taste. Being dommed into oblivion by Kai is one of life’s greatest pleasures. It’ll make anyone appreciate being born a woman" Calypso grinned wickedly.</p>
 <p>"N-no! Shut up, all of you!" Alexandra snapped, her face turning an even deeper shade of red.</p>
-<p>"Feisty~" Bastet purred with clear amusement.</p>
+<p>"Feisty" Bastet purred with clear amusement.</p>
 <p>The girls laughed together, and even Alexandra couldn’t help the tiny smile that tugged at her lips despite her embarrassment.</p>
 <p>Just like this, it was time to make their journey into the city!</p>

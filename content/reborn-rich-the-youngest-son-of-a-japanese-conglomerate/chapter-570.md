@@ -67,7 +67,7 @@ chapter = 570
 <p>At Seizawa Shii's suggestion, the special class students nodded as if it was an interesting proposal. Since they had heard that their homeroom teacher, Yamashiro Ryuta, had rented a single room, Yamashiro Ryuta's room, where there were no other teachers, was perfect for raiding.</p>
 <p>"But won't the teacher be surprised if we raid him suddenly?"</p>
 <p>Sakagami Rena, who knew that Yamashiro Ryuta would be away, subtly expressed her opposition, but Seizawa Shii smiled as if that wasn't the case and opened her mouth.</p>
-<p>"We're raiding him because we want to see Ryuta-jji's surprised expression~!"</p>
+<p>"We're raiding him because we want to see Ryuta-jji's surprised expression!"</p>
 <p>"Yeah, I want to see his surprised expression once."</p>
 <p>"Even if he's a Korean teacher, he won't have anything to do in Korea, so we're playing with him."</p>
 <p>Sakagami Rena's opposition could not stop the special class students, who had already adopted the mindset of male students teasing their favorite female students.</p>
@@ -81,8 +81,8 @@ chapter = 570
 <p>"Shall we?"</p>
 <p>The special class students waited while playing board games they had brought from Japan in their homeroom teacher's room, but homeroom teacher Yamashiro Ryuta did not come until the headcount before going to bed.</p>
 <p>_______________</p>
-<p>Added the school uniform home teacher that received good reviews yesterday~!</p>
+<p>Added the school uniform home teacher that received good reviews yesterday!</p>
 <p>Coffee stocking version hehe</p>
-<p>Home teacher wearing the jacket~!</p>
-<p>Kijimoto Jurie's school uniform~!</p>
-<p>Naruse Shiyo's school uniform~!!</p>
+<p>Home teacher wearing the jacket!</p>
+<p>Kijimoto Jurie's school uniform!</p>
+<p>Naruse Shiyo's school uniform!!</p>

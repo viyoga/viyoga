@@ -71,7 +71,7 @@ chapter = 331
 
 <p>Qingxue gave a high-pitched, embarrassed squeal as Ruyan’s eyes glared at her husband.</p>
 
-<p>“Nghnn~~ did hubby’s injuries awaken your big dragon? Fufufu~~ My little demon pussy missed you…” Ruyan’s beautiful red eyes narrowed into a seductive expression as she rubbed up against Qingyi.</p>
+<p>“Nghnn did hubby’s injuries awaken your big dragon? Fufufu My little demon pussy missed you…” Ruyan’s beautiful red eyes narrowed into a seductive expression as she rubbed up against Qingyi.</p>
 
 <p>“He’s wide awake…” Qingyi smiled, squeezing her buttocks for a brief moment before sighing.</p>
 

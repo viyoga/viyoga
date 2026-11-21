@@ -87,15 +87,15 @@ chapter = 395
 
 <p>Qingyi couldn’t help but salivate as he approached the two. His hands immediately flowed to the two pairs of huge, heavy mountains, grabbing and squeezing.</p>
 
-<p>“Nghnn~~”</p>
+<p>“Nghnn”</p>
 
-<p>“Ohnn~~ hubby!…</p>
+<p>“Ohnn hubby!…</p>
 
 <p>The two beauties moaned in unison, Biyue’s noble and soft voice contrasting with Feiyan’s sweet and sensual voice.</p>
 
 <p>“What are you naughty girls doing, huh?” He asked, playing with their nipples on his fingertips.</p>
 
-<p>“Nothing much, ahn~~ just testing some different types of pills for healing and cleansing poisons.” Biyue replied, raising a single hand where a golden pill appeared between her fingers.</p>
+<p>“Nothing much, ahn just testing some different types of pills for healing and cleansing poisons.” Biyue replied, raising a single hand where a golden pill appeared between her fingers.</p>
 
 <p>Since all the girls were already at least earth-grade in their lineages, they had begun to work in other areas.</p>
 

@@ -34,7 +34,7 @@ chapter = 991
 <p>Nagumo Sian released the hug and looked at Tsukiyo standing next to me.</p>
 <p>"Who is this...?"</p>
 <p>Nagumo Sian, seeing Tsukiyo for the first time, seemed to sense something from Tsukiyo, who was half Outer God, as befitting a sorceress, but soon wore a puzzled Expression and tilted her Head. It was an Expression that implied she felt something but didn't know what it was. Perhaps Tsukiyo further concealed her Presence when Nagumo Sian seemed to sense something.</p>
-<p>"Hello, Taira Food Boss-nim~! I'm Tsukiyo, Ryuta Oppa's Disciple and driver here~!"</p>
+<p>"Hello, Taira Food Boss-nim! I'm Tsukiyo, Ryuta Oppa's Disciple and driver here!"</p>
 <p>Tsukiyo greeted brightly and waved her Hand. Nagumo Sian seemed confused again upon hearing the word 'Disciple'.</p>
 <p>"Disciple? You mean a martial arts Disciple, right? The Age Difference doesn't seem that big...?"</p>
 <p>In terms of physical Age, it was true that the Age Difference wasn't significant. Sato Tsukiyo, who formed Tsukiyo, had just become an Adult at 20, so she was only 1 year younger than me, who was 21. It was indeed true that the Age Difference was extremely small for forming a martial arts Master/Disciple Relationship.</p>
@@ -66,13 +66,13 @@ chapter = 991
 <p>"Shall we?"</p>
 <p>While waiting for Yukiko and Nagumo Sian to finish their Work, I decided to tour the Taira Food Neo Tokyo Branch. Nagumo Sian assigned an employee with good Awareness to us so we could look around comfortably.</p>
 <p>The Taira Food Neo Tokyo Branch was the largest Branch among Taira Food's branches, with a huge Logistics Warehouse next to the Building, so all Taira Food products heading to the metropolitan area would first gather here. Naturally, Taira Food distribution also received goods here and delivered them throughout the metropolitan area.</p>
-<p>"Wow~! Ryuta Oppa, is that delicious?"</p>
+<p>"Wow! Ryuta Oppa, is that delicious?"</p>
 <p>Tsukiyo, looking around the Taira Food Neo Tokyo Branch, saw the piled-up new Snack products and her Eyes sparkled. Since it was a new product I hadn't even tasted, I shook my Head, saying I didn't know, and the employee guiding us smiled and gave us a bag each to try.</p>
 <p>So, we ate new Snack products and our favorite snacks while touring the Building and Logistics Warehouse. Just as we were about to see the last warehouse, I received Contact that Yukiko had arrived, and I moved my Footsteps back to the CEO's Office where Nagumo Sian was.</p>
-<p>Gojoy-nim requested Tsukiyo's Tape attire and breast covering~!</p>
+<p>Gojoy-nim requested Tsukiyo's Tape attire and breast covering!</p>
 <p>Tape.</p>
 <p>Tsukiyo's breasts aren't that big, but when you see a front Shot, her Pelvis is incredibly wide, which I like ㅎㅎ</p>
-<p>Breast covering~!</p>
-<p>TheDreaming-nim requested Exposure Vivian Taylor 1. Baseball field Interview 2. Throwing the first pitch at the baseball field with Eyes squeezed shut~!</p>
+<p>Breast covering!</p>
+<p>TheDreaming-nim requested Exposure Vivian Taylor 1. Baseball field Interview 2. Throwing the first pitch at the baseball field with Eyes squeezed shut!</p>
 <p>2.</p>
 <p>The Blush was too strong, making the Face seem a bit distorted, so I removed the Blush for the second one ㅎㅎ Squeezing Eyes shut didn't work well ㅎㅎ It just looks like throwing with Eyes closed...</p>

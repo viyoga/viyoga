@@ -109,4 +109,4 @@ chapter = 624
 
 <p>Sweet, high-pitched, and serene, the kind of voice that could only come from the mouth of a woman so adorable that even the most selfish of men would throw himself into a pot of boiling oil to rescue her.</p>
 
-<p>“Oh… so you really are Daddy’s heir! Hehehe~~”</p>
+<p>“Oh… so you really are Daddy’s heir! Hehehe”</p>

@@ -16,11 +16,11 @@ chapter = 226
 <p>Riven and Rae.</p>
 <p>The Artificer Twins crafted golems with undead traits: slow regeneration, mana-sapping claws, even mindless berserker patterns.</p>
 <p>"These are level 20 dummies," Riven explained, snapping her fingers as one rose from a magic circle. "Designed to pressure test your stamina and coordination."</p>
-<p>Rae tossed a wrench into her palm. "And they explode if you take too long~!"</p>
+<p>Rae tossed a wrench into her palm. "And they explode if you take too long!"</p>
 <p>"They what-"</p>
 <p>*BOOM!*</p>
 <p>The explosion scorched a crater into the far wall. Rae cackled.</p>
-<p>"Time waits for no one~" she winked.</p>
+<p>"Time waits for no one" she winked.</p>
 <p>"..."</p>
 <p>Throughout their preparations, there was one thing they hadn’t done: use their newly gained abilities.</p>
 <p>For now, they didn’t want the government to learn they had them. In the best case scenario they would never learn the news, but that was just a wishful dream. Thus, the second best option was to make the reveal in the dungeon or once they were done clearing it.</p>

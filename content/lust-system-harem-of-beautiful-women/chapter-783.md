@@ -67,7 +67,7 @@ chapter = 783
 
 <p>Then she guided Luis’s cock herself, rubbing the head against Lily’s tight opening.</p>
 
-<p>Lily moaned and let out a long, shaky breath. Trembling with excitement, she said, &quot;Hubby... I’m relaxed now. Come in~&quot;</p>
+<p>Lily moaned and let out a long, shaky breath. Trembling with excitement, she said, &quot;Hubby... I’m relaxed now. Come in&quot;</p>
 
 <p>&quot;If it’s uncomfortable, tell me right away and I’ll stop!!&quot;</p>
 
@@ -75,7 +75,7 @@ chapter = 783
 
 <p>With a soft squelch, the head slipped into her asshole. He could feel the powerful contractions of her rectal walls—the sensation was absolutely incredible.</p>
 
-<p>&quot;Mm~...&quot;</p>
+<p>&quot;Mm...&quot;</p>
 
 <p>Lily let out a soft gasp, then panted, &quot;Hubby, keep going...&quot;</p>
 
@@ -91,7 +91,7 @@ chapter = 783
 
 <p>&quot;I want to kiss you while hubby takes my virgin ass... that’ll feel really good.&quot;</p>
 
-<p>Chloe was about to lie down when Lily shook her head. &quot;No, let’s do 69... I want to kiss your pussy~&quot;</p>
+<p>Chloe was about to lie down when Lily shook her head. &quot;No, let’s do 69... I want to kiss your pussy&quot;</p>
 
 <p>Chloe felt both aroused and embarrassed. Though she shared a man with Lily, her sexual orientation was still straight. She wouldn’t refuse Lily’s intimate advances, but she never initiated them herself.</p>
 
@@ -111,7 +111,7 @@ chapter = 783
 
 <p>With a voice thick with emotion, she murmured, &quot;Hubby... Lily has finally given you everything...&quot;</p>
 
-<p>&quot;You can’t fuck me too hard right now... so just enjoy my backdoor, okay!!!~&quot;</p>
+<p>&quot;You can’t fuck me too hard right now... so just enjoy my backdoor, okay!!!&quot;</p>
 
 <p>Such heartfelt words were deeply touching. Even Chloe, her face glistening with juices, felt the same—witnessing this moment felt almost sacred.</p>
 

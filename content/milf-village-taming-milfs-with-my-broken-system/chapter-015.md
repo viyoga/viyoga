@@ -73,7 +73,7 @@ chapter = 15
 
 <p>A bold MILF was always the most rewarding.</p>
 
-<p>&quot;Fufu... you really are helpless~&quot; Morenne mused, her spirits soaring. It seemed life in the quiet settlement was about to become infinitely more entertaining.</p>
+<p>&quot;Fufu... you really are helpless&quot; Morenne mused, her spirits soaring. It seemed life in the quiet settlement was about to become infinitely more entertaining.</p>
 
 <p>She even caught herself anticipating the possibilities as her gaze briefly darted between his legs.</p>
 
@@ -99,4 +99,4 @@ chapter = 15
 
 <p>&quot;Fufu... then let follow me to the absolute best spot I can recommend!&quot; she exclaimed excitedly, thrilled that Owen was so readily complying with her selfish whims</p>
 
-<p>’Looks like I get to claim the first site seeing with him, Arielle~’ she gloated silently, reveling in her small, wonderfully competitive victory.</p>
+<p>’Looks like I get to claim the first site seeing with him, Arielle’ she gloated silently, reveling in her small, wonderfully competitive victory.</p>

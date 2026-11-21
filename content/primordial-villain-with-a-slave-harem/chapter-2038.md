@@ -24,7 +24,7 @@ chapter = 2038
 <p>"&gt; &lt;Excuse me?&gt;</p>
 <p>"&gt; &lt;Psycho wife, please stop pretending you didn’t notice. We all know you did.&gt;</p>
 <p>The witch held Feng’s gaze for a moment. Then she smiled and lifted both slender shoulders in a shrug.</p>
-<p>"&gt; &lt;I have appearances to maintain~&gt;</p>
+<p>"&gt; &lt;I have appearances to maintain&gt;</p>
 <p>Lucille hid a giggle behind her cup as she watched Nessa stand on her toes to reach the back of the sideboard. The maid was humming with such enthusiasm that she’d begun supplying the words too.</p>
 <p>"&gt; &lt;Yes, Nessa could be a liability. But you wouldn’t believe how sweet and oblivious she is. She’s an airhead like Blossom, just without good intuition or sense of smell.&gt;</p>
 <p>At her name, Blossom turned toward Lucille, ears pricking in alarm.</p>

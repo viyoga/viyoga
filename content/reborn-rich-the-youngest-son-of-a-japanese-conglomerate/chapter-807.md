@@ -38,7 +38,7 @@ chapter = 807
 <p>"Boss-nim."</p>
 <p>As I got off the helicopter, a man in a digital camouflage field jacket and another man who appeared to be his adjutant approached me.</p>
 <p>I had seen both men once during the video interview. They were Yamada Kaita, whom I had chosen as Kōtetsubutai's Vice President, and Osaji Morinojo, whom I had chosen as a ganbu.</p>
-<p>Both of them had short hair and a sturdy build, looking like men who would say, 'I'm a Soldier~!'</p>
+<p>Both of them had short hair and a sturdy build, looking like men who would say, 'I'm a Soldier!'</p>
 <p>Osaji Morinojo, who was in charge of tactics ganbu, wore glasses and looked more intellectual, but Vice President Yamada Kaita's gaze was deeply sunken, exuding the Atmosphere of a seasoned veteran.</p>
 <p>"This is the first Time we've met in person, isn't it? I'm Yamashiro Ryuta, the Boss."</p>
 <p>"It's a pleasure to meet you, Boss-nim. I'm Yamada Kaita."</p>
@@ -80,10 +80,10 @@ chapter = 807
 <p>It seemed neither of them would leave. I subtly withdrew the Genesis Chaos gathered at my Fingertips and accepted their salute.</p>
 <p>"Welcome. Both of you."</p>
 <p>seungj050-nim requested Kanna Spanking</p>
-<p>Yandere Mode~!</p>
-<p>MidNightSKY-nim requested Otagi Yuka's Storm of Blood~!</p>
+<p>Yandere Mode!</p>
+<p>MidNightSKY-nim requested Otagi Yuka's Storm of Blood!</p>
 <p>No matter what I do, it doesn't feel like Blood Mage's Blood Stream hehe</p>
-<p>Gojoy-nim requested Konoe Akina's usual attire and underwear attire~!</p>
+<p>Gojoy-nim requested Konoe Akina's usual attire and underwear attire!</p>
 <p>Her usual attire is, of course, her School Uniform ㅎㅎ</p>
-<p>Underwear~!</p>
-<p>Kkiyoot~!</p>
+<p>Underwear!</p>
+<p>Kkiyoot!</p>

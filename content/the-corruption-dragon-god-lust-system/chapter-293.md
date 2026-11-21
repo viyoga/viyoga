@@ -59,7 +59,7 @@ chapter = 293
 
 <p>The moment he noticed a gentle breeze sweep through his hair and the surrounding spatial distortions disappeared, he rotated his body in the air, using himself as a cushion for Meilin.</p>
 
-<p>“nghnn~~” A suppressed, soft moan escaped the beauty’s lips as Qingyi’s back hit a huge rock in the middle of a dense forest, splitting it in half.</p>
+<p>“nghnn” A suppressed, soft moan escaped the beauty’s lips as Qingyi’s back hit a huge rock in the middle of a dense forest, splitting it in half.</p>
 
 <p>It was painful, for sure, but nothing his body couldn’t handle.</p>
 
@@ -93,7 +93,7 @@ chapter = 293
 
 <p>She leaned into him, feeling his hands flow to her buttocks, squeezing until she moaned, using the sexy, large and round orbs of flesh as support.</p>
 
-<p>“mghnn~~ Q-qingyi… Y-your hands…”</p>
+<p>“mghnn Q-qingyi… Y-your hands…”</p>
 
 <p>[Meilin’s Corruption increased by 10 points, +2,400,000 lust points]</p>
 

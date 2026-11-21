@@ -67,7 +67,7 @@ chapter = 355
 
 <p>“I’m not running away… and he said he’d bring me here to see you whenever I want,” Linyue blushed, looking away.</p>
 
-<p>“If he breaks that promise, let me know. I’ll teach him not to hurt my little girl, fufufu~~” Linyue’s mother giggled, getting up and returning to her husband’s side.</p>
+<p>“If he breaks that promise, let me know. I’ll teach him not to hurt my little girl, fufufu” Linyue’s mother giggled, getting up and returning to her husband’s side.</p>
 
 <p>Qingyi could only shudder, a chill running down his spine. He didn’t know what the threat was, but he certainly didn’t like it.</p>
 

@@ -13,9 +13,9 @@ chapter = 1850
 <p>She came violently and often, each one wrung all the way out before he allowed the next, and by the third one her voice stopped pretending to be commentary at all.</p>
 <p>*Squelch. Squelch. Squelch.*</p>
 <p>The sound of them had gone liquid. Every pump announced itself wetly off the hall’s acoustics now, her cum having slicked the both of them to the thighs, and the polished boards beneath her hips carried a dark, spreading stain that several generations of ancestors were being asked to be very mature about.</p>
-<p>"Sis... sis, are you watching~? Your poison is great, but... This... This is... hah... the best skincare... a woman could ever... receive."</p>
+<p>"Sis... sis, are you watching? Your poison is great, but... This... This is... hah... the best skincare... a woman could ever... receive."</p>
 <p>"..."</p>
-<p>"Ten out of ten... would recommend... to family... and friends... AHN~!"</p>
+<p>"Ten out of ten... would recommend... to family... and friends... AHN!"</p>
 <p>"..." Black Fang offered no response, for she had none. Aside from...</p>
 <p>"Stop selling."</p>
 <p>"I’m only testifying!"</p>
@@ -25,7 +25,7 @@ chapter = 1850
 <p>His free palm came down across her upturned ass.</p>
 <p>*CRACK!*</p>
 <p>The report rang off the weapon racks like ironwood finding its mark, and the promise he had made her over crossed blades, that nothing but his palm would hurt her butt tonight, entered collection with the rest of her tab.</p>
-<p>"HYAN~!? Hah... You cruel sadist!!" The punished party wiggled what had just been struck, pushing it higher. "The other side... symmetry is... a samurai virtue..."</p>
+<p>"HYAN!? Hah... You cruel sadist!!" The punished party wiggled what had just been struck, pushing it higher. "The other side... symmetry is... a samurai virtue..."</p>
 <p>"Stop speaking gibberish," Quinlan replied, yet administered symmetry nonetheless.</p>
 <p>*CRACK!*</p>
 <p>"NNHAA!!❤️"</p>
@@ -39,11 +39,11 @@ chapter = 1850
 <p>It was Quinlan who answered.</p>
 <p>He peeled his samurai off the floorboards without leaving her, hooked an arm under her waist, and walked the entire war across the hall, fiercely breeding her the whole way there, gravity dropping her back onto him again and again with every step, each stride punching a fresh "ahn... ahn... AHN...!" out of her dangling body.</p>
 <p>Ayame’s eyes refocused mid-bounce, found the heading, and went round.</p>
-<p>"Wait... wait wait wait... not to her... Quin, not while it’s still... I’ll behave, I’ll... HYAH~!"</p>
+<p>"Wait... wait wait wait... not to her... Quin, not while it’s still... I’ll behave, I’ll... HYAH!"</p>
 <p>She fought him, truly fought him, for the first time all night.</p>
 <p>But she was already in the grip of the feared villain, and no amount of resistance would ever change that fact.</p>
 <p>Ayame tried anyway.</p>
-<p>She twisted in his grip, legs kicking out of rhythm, thrashing with her full stat sheet against an arm that noticed none of it, and every twist she managed cost her another cracked "hnn... nngh~!?"</p>
+<p>She twisted in his grip, legs kicking out of rhythm, thrashing with her full stat sheet against an arm that noticed none of it, and every twist she managed cost her another cracked "hnn... nngh!?"</p>
 <p>Her heel caught the corner display stand square. The stand went over. The founder’s practice blades, oiled and remounted by every generation of Fujimori hands for time immemorial, scattered across the boards, and the lacquered plaque above them, hand-carved with the school’s founding precepts, followed them down and cracked clean in half.</p>
 <p>The sound rang through the hall like a verdict.</p>
 <p>Two years ago, the heir of the Fujimori would have died on the spot.</p>
@@ -66,13 +66,13 @@ chapter = 1850
 <p>Ayame fell forward into her sister instead, and clung on.</p>
 <p>Arms locked around Black Fang, face driven into her shoulder, the heir of the Fujimori wailed her way through the climax while her lover pounded her from behind without an ounce of clemency. Each impact shoved her deeper into the hug, her muffled screams pouring straight into her sister’s collar, her whole body jolting to his tempo.</p>
 <p>*Pap! Pap! Pap!*</p>
-<p>"Sis... sis... sishh... AAHN~!!"</p>
+<p>"Sis... sis... sishh... AAHN!!"</p>
 <p>Black Fang sat rigid under the clinging.</p>
 <p>Then, slowly, one hand came to rest between her little sister’s shoulder blades, and the other cradled the back of her sweat-damp head, and she held on through every single orgasm, her face admitting, for once, that she had no name for the procedure she had become part of.</p>
 <p>Over Ayame’s shuddering shoulder, from a hand-span away, Quinlan met Black Fang’s eyes again and said nothing at all, which somehow said everything, and got a knife-flat stare in return.</p>
 <p>"How long can he continue?" she asked. The question came out clinical, said while looking at Ayame yet aimed past her at the man himself.</p>
 <p>"Until all my women are satisfied without a shred of a doubt," Quinlan decreed with absolute conviction, his tempo never breaking.</p>
-<p>"It’s true..." a happy sob corroborated from inside the hug. "He always... keeps his... wohh~..."</p>
+<p>"It’s true..." a happy sob corroborated from inside the hug. "He always... keeps his... wohh..."</p>
 <p>"That is not possible."</p>
 <p>"But it is," Quinlan grinned with swagger.</p>
 <p>Then he demonstrated.</p>

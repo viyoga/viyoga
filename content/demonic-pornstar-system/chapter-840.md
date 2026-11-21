@@ -25,7 +25,7 @@ chapter = 840
 <p>"I’ll just bleed to my death then, I guess," Kaiden shrugged and refocused on the board.</p>
 <p>Alexandra trembled. Her eyes narrowed to slits. One foot stamped against the white floor with a sound that should not have been physically possible in a dimensionless void.</p>
 <p>"Kaiden Grey..." Low, ominous tone. "You have so many strong women in your life yet none of them taught you how to not give others heart attacks for no reason at all?"</p>
-<p>"Hehe~" a certain pink lady giggled slyly. "We’re risk takers, bestie."</p>
+<p>"Hehe" a certain pink lady giggled slyly. "We’re risk takers, bestie."</p>
 <p>"..." Alexandra sent the piece a deadly glare then grabbed Kaiden’s wrist with both hands and golden light pulsed from her palms, warm and unsteady, Restoration answering her intent before she had any idea how to aim it.</p>
 <p>The glow sputtered, brightened, sputtered again, and Alexandra’s brow furrowed as the cut refused to close on her first try.</p>
 <p>"Hold still," she muttered, pressing harder like that might help as the light steadied for a moment before it faltered again.</p>

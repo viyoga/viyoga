@@ -10,13 +10,13 @@ chapter = 361
 <p>Yesterday, after dinner at Mom's Punch, we all listened to Shimokawabe Airen-nim's advice on martial arts until late. Maybe it's because of the Saint of Fist Arts trait, but Shimokawabe Airen-nim's advice was absorbed like a sponge. Saionji Diana-ssi next to me was listening quite seriously too, so I had to take Saionji Diana-ssi home late at night.</p>
 <p>"I came a bit early, should I grab some breakfast?"</p>
 <p>I muttered to myself and got up, taking out a pre-made Neapolitan pasta from the fridge and microwaving it. *Bbibik*, the microwave beeped on time as I pressed the button, and the prep room door burst open.</p>
-<p>"Teach! I'm gonna have some pudding for breakfast~!"</p>
+<p>"Teach! I'm gonna have some pudding for breakfast!"</p>
 <p>"Excuse me..."</p>
 <p>Seizawa Shii-ssi and Minamoto Risa-ssi came into the prep room and opened the fridge without hesitation. Seizawa Shii-ssi was a bit sulky on Friday because of my dirty jokes, but it seemed like she recovered over the weekend. She didn't feel awkward around me at all. That's a relief. She doesn't hold grudges.</p>
-<p>"Ah! There's only ice cream left. I guess we ate all the pudding~!"</p>
+<p>"Ah! There's only ice cream left. I guess we ate all the pudding!"</p>
 <p>"I can't fill it up every time, so you guys fill it up yourselves."</p>
 <p>Seizawa Shii-ssi, disappointed by the lack of pudding, chose a lemon sherbet ice cream, and Minamoto Risa-ssi still went for the green tea flavor.</p>
-<p>"Really, we can buy and put stuff in? I thought we weren't supposed to touch it~!"</p>
+<p>"Really, we can buy and put stuff in? I thought we weren't supposed to touch it!"</p>
 <p>"Yeah. I'll try to fill it up as much as possible, but there might be times when I forget."</p>
 <p>With the amount of money these girls have, they could fill this entire prep room every day, not just the fridge, so money won't be an issue. It would be a problem at other schools, but no one related to this school would think it's a bribe to the teacher.</p>
 <p>As we were talking, *Ding!* The microwave finished, and I took out the instant Neapolitan pasta.</p>
@@ -31,9 +31,9 @@ chapter = 361
 <p>As expected, Saint Francisco Girls' Academy is different. The students just remodel the clubroom with their own money. If it was done over the weekend, it wouldn't be a major renovation, but what did they do? I'm getting a little curious.</p>
 <p>"So! Teach, wanna come up with us?"</p>
 <p>"Of course, I have to go with you. I'm your homeroom teacher and club advisor. I need to check it out."</p>
-<p>"Let's go up, Teacher~!"</p>
+<p>"Let's go up, Teacher!"</p>
 <p>The kids were urging me to go with them, so I had no choice but to put down the instant Neapolitan pasta I was eating and go up to the second-floor clubroom.</p>
-<p>"We just left it to the contractors and we're seeing it for the first time today~!"</p>
+<p>"We just left it to the contractors and we're seeing it for the first time today!"</p>
 <p>"I'm kinda excited."</p>
 <p>"Teacher will like it too."</p>
 <p>Listening to the chattering girls next to me, I soon arrived at the door of the clubroom.</p>
@@ -47,14 +47,14 @@ chapter = 361
 <p>I nodded at Minamoto Risa-ssi's words. She stuttered a bit on the word "boyfriend," so she seemed a little embarrassed, which was kind of cute. I looked around so Minamoto Risa-ssi wouldn't feel too awkward. Besides the sofa and bed, there was also a place that looked like a kitchen, with a fridge, gas stove, and sink.</p>
 <p>"There's a fridge... and a sink and a gas stove?"</p>
 <p>"Most of the classrooms designated as clubrooms can use water and gas. There are quite a few cooking clubs at Saint Francisco Girls' Academy."</p>
-<p>"And cooking for your boyfriend is a girlfriend's virtue~!!"</p>
+<p>"And cooking for your boyfriend is a girlfriend's virtue!!"</p>
 <p>I see. As daughters of prestigious families, they'll probably do things like bridal classes in clubs, so cooking clubs and tea clubs would be popular. A girlfriend's virtue, I wonder what everyone's cooking skills are like.</p>
 <p>"Okay, next week, everyone come up with dates you can have in the 'boyfriend's room' and we'll try them out. I'm going back down to the prep room, are you guys going to stay in the clubroom a bit longer?"</p>
-<p>"Of course? It's not even time for school yet, so I'm going to lie down on that bed and laze around~!"</p>
+<p>"Of course? It's not even time for school yet, so I'm going to lie down on that bed and laze around!"</p>
 <p>"I'm going to carefully check if the remodeling was done properly."</p>
 <p>"I'm going to move some of my favorite things from Teacher's fridge to the clubroom first."</p>
 <p>Well, except for Konoe Akina-ssi, it's clear that they just wanted to create a place to laze around, not a boyfriend's room.</p>
-<p>Konoe Akina-ssi was looking around the room, carefully checking if there was anything wrong, and Seizawa Shii-ssi was yelling "Yahoo~!" and rolling around on the bed. Minamoto Risa-ssi was looking at me with eyes that said, "Why aren't you leaving?"</p>
+<p>Konoe Akina-ssi was looking around the room, carefully checking if there was anything wrong, and Seizawa Shii-ssi was yelling "Yahoo!" and rolling around on the bed. Minamoto Risa-ssi was looking at me with eyes that said, "Why aren't you leaving?"</p>
 <p>"Okay, let's go down."</p>
 <p>Minamoto Risa-ssi and I left the clubroom and went back down to the first floor. Unlike the friendly Konoe Akina-ssi and the energetic Seizawa Shii-ssi, Minamoto Risa-ssi was a bit quiet, so we came down the stairs silently without saying a word.</p>
 <p>"Teacher, do you have something like a basket?"</p>

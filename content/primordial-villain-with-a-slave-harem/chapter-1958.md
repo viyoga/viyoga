@@ -72,7 +72,7 @@ chapter = 1958
 <p>"Over my dead body." Quinlan flicked two fingers sideways, pushing wind against the sword, and she caught the weakened swing on her own blade.</p>
 <p>She turned his sword outward and cut deeper into his wounded forearm. He screamed and tried to pull away from her, leaving his other side exposed to Lucille.</p>
 <p>His lower left arm was still extended upward, palm supporting the water barrier. Lucille planted her foot beside him and swung her axe at the elbow beneath it.</p>
-<p>"Got you~"</p>
+<p>"Got you"</p>
 <p>The magma-coated blade tore through flesh and bone in one blow. His severed arm struck the ice with its fingers still spread.</p>
 <p>"AAAAAGH!"</p>
 <p>Lucille completed the swing with blood spraying across her coat, her hammer ready in her other hand.</p>

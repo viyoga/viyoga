@@ -7,7 +7,7 @@ chapter = 736
 
 <p>After meeting with the special class students and chatting happily for a long time, it was already dark. It wasn't dinner time yet, but it got dark quickly because the days were still short.</p>
 <p>"Since we're coming to school tomorrow too, let's call it a day today."</p>
-<p>"Ah~! Ryuta-jji! It's just getting fun...!"</p>
+<p>"Ah! Ryuta-jji! It's just getting fun...!"</p>
 <p>Seizawa Shii and a few other students grumbled as if they were disappointed at my declaration to disband, but they still listened and started preparing to leave while grumbling. They're in the special class, but the kids are nice.</p>
 <p>"If you're really that bummed, get together and hang out after school. See you tomorrow."</p>
 <p>I went down to the education preparation room first. I checked to see if there were any faxes and checked my work emails, but there was nothing in particular.</p>
@@ -40,9 +40,9 @@ chapter = 736
 <p>-Ah! It looks like the investigation I asked for has arrived. I'll hang up now. I miss you, muah muah muah!</p>
 <p>Han Yu-gyeong's call ended with a hurried voice. She seems quite busy. As I was walking while talking on the phone, I arrived home before I knew it. When I opened the door, there were several pairs of shoes in the hallway. Counting the number of shoes, it seemed like everyone who was supposed to meet had arrived.</p>
 <p>"Dad's home."</p>
-<p>"Ah~ What do you mean Dad, that's gross!"</p>
+<p>"Ah What do you mean Dad, that's gross!"</p>
 <p>"Ryutta...!"</p>
-<p>"Teacher-nim~!"</p>
+<p>"Teacher-nim!"</p>
 <p>"Ah, Dad...?"</p>
 <p>In the living room, Sakagami Rena, Otagi Yuka, Saionji Diana, Urabe Konoka, Alik, Naruse Shiyo, and Konoe Akina, the female students from the special class who had decided to follow me or become allies, were sitting.</p>
 <p>"First of all, thank you for gathering."</p>
@@ -54,8 +54,8 @@ chapter = 736
 <p>My kids aren't exactly the type to cause trouble, but I still had to give them a warning in advance. Just in case.</p>
 <p>"It's okay if Ryutta gets weaker. Alik got stronger...!"</p>
 <p>Alik said as if telling me not to worry. Judging from the way he said it so confidently, the winter vacation training seemed to have been quite effective.</p>
-<p>"I'll get stronger soon too, so don't worry, Teacher-ssi~!"</p>
-<p>"I got stronger too~!"</p>
+<p>"I'll get stronger soon too, so don't worry, Teacher-ssi!"</p>
+<p>"I got stronger too!"</p>
 <p>Otagi Yuka, who is about to evolve, and Naruse Shiyo, who trained with Alik during the winter vacation, also said as if they would protect me. They seemed to be more worried about me, who had become weaker.</p>
 <p>"Even if the Abyss is gone, I'm strong enough, so don't worry. I can get my own body out of any situation."</p>
 <p>Even without the Abyss, I have enough physical stats, telekinesis, and shadow domination, so I was a strong enough character at the same level. Of course, when I had the Abyss, I was strong beyond levels, so I could feel that I had become weaker.</p>
@@ -65,7 +65,7 @@ chapter = 736
 <p>Some students just accepted my explanation, while others asked how that was possible. I was too lazy to explain, so I passed the explanation on to Urabe Konoka. And I got up from my seat, wondering if I should drink some water.</p>
 <p>"Do you want to drink something?"</p>
 <p>"Alik... is an adult, she'll drink alcohol."</p>
-<p>"I'm an adult now too, so I can drink alcohol~!"</p>
+<p>"I'm an adult now too, so I can drink alcohol!"</p>
 <p>Alik and Naruse Shiyo asked for alcohol at my question. In fact, there were many students in the special class who were already adults, so those students could drink alcohol.</p>
 <p>But the reason why I didn't drink alcohol at every special class event was because I felt like it would be discriminatory if some people drank alcohol and others couldn't.</p>
 <p>Of course, some people drank alcohol in Korea during the graduation trip, but that was because they drank alcohol without me knowing, and this was the first time they had openly asked to drink.</p>
@@ -77,7 +77,7 @@ chapter = 736
 <p>"If you feel like you're getting drunk, you can stop drinking halfway."</p>
 <p>"Alik doesn't get drunk on beer. Alik is a Russian woman."</p>
 <p>Alik, the daughter of Russia where vodka is a staple food, was making a confident expression. First of all, I'm relieved about Alik. There's no way Alik, who used to drink vodka, would get drunk on beer.</p>
-<p>"Okay, first, everyone open the can lid... I'll do the toast. Let's all be happy~!"</p>
+<p>"Okay, first, everyone open the can lid... I'll do the toast. Let's all be happy!"</p>
 <p>"" "Let's be happy!" ""</p>
 <p>After saying let's be happy, we clinked the beer cans together so hard that beer foam splashed out, and then we gulped down the beer. Hmm... It's cool as expected. I checked to see if I was getting drunk, but it didn't seem like I was getting drunk on beer.</p>
 <p>"Hmm, it's barley-flavored liquid. It's not alcohol."</p>

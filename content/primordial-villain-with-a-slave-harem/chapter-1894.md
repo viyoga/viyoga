@@ -45,13 +45,13 @@ chapter = 1894
 <p>"So fun..." she breathed.</p>
 <p>Near the center of the hall, Feng Jiai was grinning so wide it looked painful. "I taught that hopeless girl everything," the young jade beauty informed the nearest baroness, who had not asked.</p>
 <p>"Blossom is confused for the fifth time today!!" Blossom reported proudly, tail going crazy.</p>
-<p>"You’re not alone this time..." Vex giggled. "What a beautiful mess this ended up becoming~"</p>
+<p>"You’re not alone this time..." Vex giggled. "What a beautiful mess this ended up becoming"</p>
 <p>The rest of the family watched the fourteen-year-old gamble a kingdom with varying degrees of open delight.</p>
 <p>And on the dais, Alexios Valorian, who had schemed for years to hand his daughter an unbreakable realm, stood absolutely still while she offered to let it walk apart. The hall’s eyes went to him in one motion, hungry for the old king’s fury.</p>
 <p>His carved face gave them nothing at all.</p>
 <p>"Choose," said Queen Felicity Valorian. "Bend the knee with Vraven and join the future where we follow Quinlan Elysiar, or go on your own."</p>
 <p>Silence.</p>
-<p>Lucille instructed her father, eyes utterly villainous."&gt; &lt;Move already~&gt; Lucille instructed her father, eyes utterly villainous.</p>
+<p>Lucille instructed her father, eyes utterly villainous."&gt; &lt;Move already&gt; Lucille instructed her father, eyes utterly villainous.</p>
 <p>Duke Alastair of Greenvale began."&gt; &lt;...Daughter, I-&gt; Duke Alastair of Greenvale began.</p>
 <p>Her voice lost all of its playfulness as she now demanded:</p>
 <p>"&gt; &lt;Kneel.&gt;</p>

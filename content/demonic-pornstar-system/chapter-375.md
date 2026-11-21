@@ -34,28 +34,28 @@ chapter = 375
 <p>With surprising strength for someone who was a shuddering mess only a second ago, she rolled to her knees. Her tail curled around her thighs slyly as she got on all fours.</p>
 <p>Then, with a deliberate slowness, she turned her plush backside toward Kaiden and bowed her head submissively into the sheets. Her hands reached back, spreading her glistening treasure wide open for him, baring herself without a trace of shame.</p>
 <p>The sight was obscene. Her tanned thighs trembled, her ass lifted in perfect invitation, and her folds were dripping and needy. Despite the daze clouding her mind, Bastet’s intent was undeniable; she refused to yield her turn, refused to allow another woman to claim him before she had been properly filled.</p>
-<p>"Master..." her voice purred, sultry and reverent as her body bowed low and back arched beautifully, "I’m all yours~"</p>
+<p>"Master..." her voice purred, sultry and reverent as her body bowed low and back arched beautifully, "I’m all yours"</p>
 <p>Kaiden’s breath deepened as he took in the sight before him. Bastet, the majestic Ra-Blessed Empress, had reduced herself to a trembling kitten, ass lifted high, pussy glistening as she spread herself open for him with both hands.</p>
 <p>He didn’t even have to ask; she presented herself to him willingly.</p>
 <p>This woman was way too sexy. Every action of hers was an act of seduction toward her chosen partner.</p>
 <p>"Such a good girl," Kaiden growled, kneeling behind her.</p>
-<p>Bastet purred at his words of praise while her tail moved to his waist and curled around it, holding him in place. Her voice was dripping with hunger. "Nyaaa~ Master... Do me..."</p>
+<p>Bastet purred at his words of praise while her tail moved to his waist and curled around it, holding him in place. Her voice was dripping with hunger. "Nyaaa Master... Do me..."</p>
 <p>Kaiden wasted no time.</p>
 <p>His hands came down on hers, wrapping around her wrists and pinning them against the small of her back. Her own hands, which had been spreading her pussy apart, now became restraints. She gasped at the sudden loss of control while her body arched even further into submission instinctively.</p>
 <p>Then, with a single thrust, he buried himself inside her moist folds.</p>
 <p>*Schlk! Splsh! Schlk!*</p>
-<p>"NYAAHHH~❤️!" Bastet’s scream filled the room as his thick cock split her apart, stretching her soaked folds wide. Her nails scratched against the sheets while her body buckled, but she did not resist. She offered herself completely.</p>
+<p>"NYAAHHH❤️!" Bastet’s scream filled the room as his thick cock split her apart, stretching her soaked folds wide. Her nails scratched against the sheets while her body buckled, but she did not resist. She offered herself completely.</p>
 <p>Kaiden’s hips began moving, powerful and unrelenting. Each thrust sent wet, obscene sounds echoing between them.</p>
 <p>*Slap! Slap! Schlk! Schlk!*</p>
-<p>Bastet’s moans rose higher and higher. "Nyaaa~! Haaahhh~! Mmmmmmhhhhh~!❤️"</p>
+<p>Bastet’s moans rose higher and higher. "Nyaaa! Haaahhh! Mmmmmmhhhhh!❤️"</p>
 <p>Her body quivered as she melted beneath him with her ears twitching madly at every rough push of his that went deeper into her heat.</p>
 <p>"Mine," Kaiden growled into her ear, tightening his grip on her pinned wrists, driving himself deeper still.</p>
-<p>"Yes, Master, yes! I’m yours! All yours! Nyaaaaahhh~!" Bastet’s cries of belonging came out in ragged bursts as her pussy clenched down hard around him.</p>
+<p>"Yes, Master, yes! I’m yours! All yours! Nyaaaaahhh!" Bastet’s cries of belonging came out in ragged bursts as her pussy clenched down hard around him.</p>
 <p>The lewd symphony of their union grew faster, wetter, more desperate.</p>
 <p>*Slap! Slap! Splsh! Schlk! Slap!*</p>
 <p>Kaiden’s rhythm turned savage, each thrust burying him to the hilt. Bastet’s voice broke into half-sobs, half-purrs, every sound a declaration of her helpless surrender.</p>
 <p>"It’s time," he declared with a grunt.</p>
-<p>"Nyaaaaaaaaahhh~❤️!" Bastet’s body convulsed as her climax crashed down on her. Her pussy clamped around him like a vice while her juices spilled down her thighs, soaking them both.</p>
+<p>"Nyaaaaaaaaahhh❤️!" Bastet’s body convulsed as her climax crashed down on her. Her pussy clamped around him like a vice while her juices spilled down her thighs, soaking them both.</p>
 <p>Kaiden groaned deep in his chest. With a final, brutal thrust, he slammed into her and released.</p>
 <p>Hot spurts of his seed poured into her trembling pussy, filling her womb as her orgasm rolled on, making her tremble and cry out with each wave of pleasure.</p>
 <p>Bastet collapsed onto the sheets, still held by her pinned wrists, her golden eyes glazed over with tears of bliss, her purrs melting into soft, broken moans.</p>

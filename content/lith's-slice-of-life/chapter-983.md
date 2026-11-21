@@ -101,7 +101,7 @@ His tall stature was enough to gather glances, and his charismatic deamour and h
 
 "A new joinee?" A burly vampire with short hair scratched his hair and asked.
 
-"hello~! I'm Jane. Are you a new joinee?" A petite girl swiftly closed in on Lith and greeted with a wave.
+"hello! I'm Jane. Are you a new joinee?" A petite girl swiftly closed in on Lith and greeted with a wave.
 
 Lith smiled politely and said, "Yes."
 

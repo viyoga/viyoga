@@ -41,8 +41,8 @@ chapter = 817
 <p>Luna hissed through her teeth, jabbing a finger at the ticker. "This fucker really just said that in front of the entire goddamn planet."</p>
 <p>Bastet maintained her composure perfectly, save for her ears, which were flat against her skull and twitching without her permission. "Not the entire planet, gremlin... Only the adult female population."</p>
 <p>"That’s not any better!" the Storm Valkyrie stomped.</p>
-<p>Calypso’s tail curled upward in a lazy spiral, and the "Darling~" she breathed carried more enthusiasm than the word had room for.</p>
-<p>Nyx just smiled. Quiet, knowing. "I’m in~"</p>
+<p>Calypso’s tail curled upward in a lazy spiral, and the "Darling" she breathed carried more enthusiasm than the word had room for.</p>
+<p>Nyx just smiled. Quiet, knowing. "I’m in"</p>
 <p>Vespera, behind them all, did not react. Her face could have been carved from the same stone as the Claimant’s hide.</p>
 <p>&lt;Stupid big brother! You can’t just say that! On camera! In front of everyone! What is wrong with you?!&gt;</p>
 <p>Kaiden reached up and patted the air near the halo.</p>

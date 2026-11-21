@@ -49,7 +49,7 @@ chapter = 1232
 <p>&lt;Oh, using Hubby’s full name, are we? That sounded very harsh! I didn’t expect you to put your feet down this fiercely,&gt; Vex giggled.</p>
 <p>The beautiful samurai proudly raised her chin and stared right at Quinlan with an air of supremacy. &lt;I’ve been reading a guidance book for newlywed women. Namely, ’Ladies! You Must Keep Your Man From Acting Out. Here’s How!’ I learned a lot.&gt;</p>
 <p>That made Quinlan’s eyes widen immediately. His head snapped in her direction as if she’d just said the most horrible thing in the world. &lt;What is that cursed book? Burn it right now,&gt; he said.</p>
-<p>&lt;Nope~&gt; Ayame grinned strongly upon hearing his panicked tone.</p>
+<p>&lt;Nope&gt; Ayame grinned strongly upon hearing his panicked tone.</p>
 <p>&lt;Have you read the title? Who gives it such a long and shitty name? It was probably written by a wrinkly witch with spiderwebs between her legs.&gt;</p>
 <p>&lt;Hey! Since when do you discriminate against witches?!&gt; Vex demanded with narrowed eyes.</p>
 <p>&lt;... Fuck.&gt; He was in trouble.</p>

@@ -56,6 +56,6 @@ chapter = 21
 <p>Her breathing was rapid. The cold of that night did not affect her, despite her nakedness.</p>
 <p>"I allow it, but first." She pulled Ethan’s pants down. "I’m going to mark my territory."</p>
 <p>Ethan’s huge throbbing cock escaped its confinement, hard, already leaking a small drop of pre-cum.</p>
-<p>"Nghnn~~" Alice moaned as it hit her face, the reddish tip pressing against her lips, smearing them with pre-cum.</p>
+<p>"Nghnn" Alice moaned as it hit her face, the reddish tip pressing against her lips, smearing them with pre-cum.</p>
 <p>It looked even bigger when viewed from that angle.</p>
 <p>NT: Don’t forget to give me your opinions on what you think of the novel so far! It helps me a lot to improve and correct mistakes before they become irreparable without rewriting the whole story.</p>

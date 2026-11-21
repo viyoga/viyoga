@@ -61,9 +61,9 @@ chapter = 411
 
 <p>He couldn’t help but wrap his arms around her slender waist, letting her soft body press against his chest, those full, massive mounds squeezing forcefully against his torso.</p>
 
-<p>Avery wasn’t shy either. She giggled, made a shushing gesture with her finger, and said playfully, &quot;Brother-in-law, keep it down~&quot;</p>
+<p>Avery wasn’t shy either. She giggled, made a shushing gesture with her finger, and said playfully, &quot;Brother-in-law, keep it down&quot;</p>
 
-<p>&quot;It’s only six o’clock... that little lazy pig Bunny is still sleeping. I snuck over quietly~&quot;</p>
+<p>&quot;It’s only six o’clock... that little lazy pig Bunny is still sleeping. I snuck over quietly&quot;</p>
 
 <p>Luis’s hands groped her little bottom, discovering this little girl was wearing nothing but a pair of panties, covering her round, cute buttocks. Instantly, his lust flared.</p>
 
@@ -75,7 +75,7 @@ chapter = 411
 
 <p>&quot;No one expects Brother-in-law to remain unmoved...&quot;</p>
 
-<p>&quot;If it weren’t for that little third wheel Bunny, I would have come over long ago~&quot;</p>
+<p>&quot;If it weren’t for that little third wheel Bunny, I would have come over long ago&quot;</p>
 
 <p>As she spoke, her soft little tongue licked wildly at Luis’s lips. Having gained a vague sense of experience from their second kiss, the taste of the first kiss had left her craving more.</p>
 

@@ -49,11 +49,11 @@ chapter = 69
 <p>"What's it?"</p>
 <p>"Hum… Did I do something wrong? Are you angry?"</p>
 <p>"Angry?" He was a little puzzled before finally understanding the source of her worries.</p>
-<p>"Hahaha~! How could I be angry!? What you did was simply incredible! If we capitalize on your achievement, the result will be beautiful."</p>
+<p>"Hahaha! How could I be angry!? What you did was simply incredible! If we capitalize on your achievement, the result will be beautiful."</p>
 <p>He didn't mention the potential political backlash that could have happened. No matter what, Lilin was still a member of the royal family. Meddling in foreign affairs wasn't the smartest choice. In fact, it was pretty dumb. But the result was still here.</p>
 <p>It wasn't his place to chide her. Lilin wasn't a child and she was far from stupid. If she made all those choices, then she must have judged that the possible gains far outweighed the loss.</p>
 <p>It was a dangerous gamble, but the result was here. She won.</p>
-<p>"Hehe~ Then, will I get a reward?"</p>
+<p>"Hehe Then, will I get a reward?"</p>
 <p>"A reward?" He was a little taken aback, "Well normally yeah. I don't really know since but, you are the princess. Frankly, I don't really know what you could ask for."</p>
 <p>This was the truth. Be it with Lilith or him as a king, Lilin would always be a princess and would never lack anything, so a reward would be pretty useless. Though getting a reward in public could be a good move.</p>
 <p>It was impossible for her absence to not have bad repercussions on her reputation. But if they said that she was under orders and succeeded in an important mission, this would bring a great achievement under her name and wipe out any bad rumors.</p>

@@ -17,7 +17,7 @@ chapter = 1905
 <p>"Move." The strongest elemental mage alive shouldered her staff and marched toward the one hall in the world where she was a woman with a stick, because the alternative was letting him watch the curiosity arrive.</p>
 <p>The Primordial Villain surveyed the army he had just pulled out of thin air, and gravity entered his bearing.</p>
 <p>"Avengers," he declared, from the floor, "assembled."</p>
-<p>"Now is not the time for silly Earth references, baby~" Lucille chided him with a tender smile.</p>
+<p>"Now is not the time for silly Earth references, baby" Lucille chided him with a tender smile.</p>
 <p>"I was worried when you flew," Aurora admitted. "But if you’re saying things like that, you’re fine."</p>
 <p>And just like that they went, his girls and his old guard together, through the arch and into the mountain, leaving him sitting in the crater they had all declined to mention.</p>
 <p>"Dibs on the ballista crews!" Kitsara was already through.</p>
@@ -50,7 +50,7 @@ chapter = 1905
 <p>Kaelira’s opening detonation should have taken six of them. Her hammer met a tower shield, the rune-channel behind the blow fired, and the shield drank that too: grounding-lattices, worked into the blacksteel by smiths who had spent generations learning to break other people’s runework, pulled her detonation apart and fed it into the floor.</p>
 <p>The sulk on the Runeweaver Titan’s face turned, slowly, into something with far more respect and far more violence in it. "I’m starting to understand the mechanism."</p>
 <p>She began recutting her channels between swings, testing, adjusting, her craft against the mountain’s, and every blow landed a little deeper than the last.</p>
-<p>"Uh oh~" Kitsara giggled, ducking a halberd.</p>
+<p>"Uh oh" Kitsara giggled, ducking a halberd.</p>
 <p>Kitsara herself had lasted eight seconds on the ballista platform before its guard detail arrived, and her tails were just tails in here. A slit-bolt tore through the space she had just vacated, close enough to trim fox fur.</p>
 <p>"Grr!! Mountains are bad news for graceful ladies such as I! Cavemen girls, I’ll leave this to you."</p>
 <p>"Watch out!"</p>
@@ -65,7 +65,7 @@ chapter = 1905
 <p>"And?"</p>
 <p>It wasn’t Black Fang’s problem.</p>
 <p>Her katana’s blade flashed and came down again.</p>
-<p>"Big siiis~" Ayame called from the west colonnade, where a gray-bearded captain with a lifetime of blade-drill was somehow still alive in front of her, giving ground one perfect parry at a time. "Were you lonely? Did you two rehearse the sulking together?"</p>
+<p>"Big siiis" Ayame called from the west colonnade, where a gray-bearded captain with a lifetime of blade-drill was somehow still alive in front of her, giving ground one perfect parry at a time. "Were you lonely? Did you two rehearse the sulking together?"</p>
 <p>Black Fang treated the gallery as empty of little sisters.</p>
 <p>"You’re really powerful, by the way," Ayame told the captain sincerely, and their blades met four more times before either of them breathed.</p>
 <p>Raika’s punches came off the flank with shockwaves that scattered helmets three ranks deep, and the wall bent around her and did not break. Blackjack waded into the press grinning, came back out bleeding from four places, and went back in grinning wider.</p>

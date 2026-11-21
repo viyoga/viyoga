@@ -17,7 +17,7 @@ chapter = 969
 <p>Before he could draw...</p>
 <p>"[Null Rend]!"</p>
 <p>*Schlk!* Two claws descended on him, slashing with the power of the void. No scream. No sound. Nothing but the soft crunch of a body getting utterly mauled.</p>
-<p>Kitsara never even broke her stride. &lt;Good job. Maybe I won’t tell on you to Quin even if you misbehave~&gt; she cooed into Blossom’s mind. Blossom’s only response was a mischievous, satisfied hum.</p>
+<p>Kitsara never even broke her stride. &lt;Good job. Maybe I won’t tell on you to Quin even if you misbehave&gt; she cooed into Blossom’s mind. Blossom’s only response was a mischievous, satisfied hum.</p>
 <p>Meanwhile, on the other side of the prison wall...</p>
 <p>"Okay... Please, work..." Feng’s hands glowed as unstable, flickering sigils spun around her wrists. Sparks of purple, red, and green magic arced between her fingertips, as if the universe itself wasn’t quite sure what was about to happen. Her wide grin was part thrill, part anxiety.</p>
 <p>"[Chaotic Sigil: False Alert]."</p>

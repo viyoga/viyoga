@@ -31,12 +31,12 @@ chapter = 137
 <p>,I'll be on my way."</p>
 <p>,I'll have to look at this interesting tombstone a little more."</p>
 <p>There was nothing more to see in other people's family graves, so I said goodbye to Wano Haruto and left the family grave. After walking a little, I turned right again and saw my private open-air bath. But I couldn't go any further. The next room also had a luxury room, so there was an open-air bath, and a bamboo wall was built, and further to the right was a slight cliff, and below it was the sea.</p>
-<p>I went back again. I met Wano Haruto again, but I smiled awkwardly and passed by, saying that the road was blocked. I saw the bamboo wall of the communal hot spring again, and after turning left a few times, I came to the entrance of the guest room building. Uchidate Kanimi was leaning against the entrance, and when she saw me, she waved her hand, saying, "Martial artist-nim~!"</p>
+<p>I went back again. I met Wano Haruto again, but I smiled awkwardly and passed by, saying that the road was blocked. I saw the bamboo wall of the communal hot spring again, and after turning left a few times, I came to the entrance of the guest room building. Uchidate Kanimi was leaning against the entrance, and when she saw me, she waved her hand, saying, "Martial artist-nim!"</p>
 <p>,Yes, hello. I wish you would just call me Taira-ssi instead of martial artist-nim."</p>
 <p>,Martial artist-nim is cool.... Ah! But have you seen the professor by any chance?"</p>
 <p>Uchidate Kanimi seemed to be looking for Professor Honmura Koga. According to Wano Haruto, he said he was enjoying a hot spring bath, so he was either in the hot spring.... Since I didn't hear the sound of water when I came, he might be in the room.</p>
 <p>,I think Honmura-ssi is in the hot springs."</p>
-<p>,Ah, no~! Professor Wano-nim."</p>
+<p>,Ah, no! Professor Wano-nim."</p>
 <p>Ah, that's right. Uchidate Kanimi and Hijitani Saori said they were taking Wano Haruto's lecture. Wano Haruto's age is not a formal professor, but he said he was in the doctoral program, so he seemed to be giving some lectures as a master's student.</p>
 <p>,If it's Wano-ssi, he's in the family grave of this inn behind the guest room."</p>
 <p>,Family grave? It's raining and dark and a little scary.... I'll just wait here until he comes back."</p>
@@ -47,9 +47,9 @@ chapter = 137
 <p>Han Yu-gyeong: How's your island trip? Is it fun?</p>
 <p>Jin Yong-tae: It's been raining since lunch, so I just enjoyed the hot springs.</p>
 <p>In fact, there was also a murder case, but I didn't say it because I was worried for nothing. It would be an interesting story to tell when we meet later. In fact, I didn't tell you about the story in Jukai Forest, so you'll be thrilled to hear both.</p>
-<p>Han Yu-gyeong: That's a shame~. But I want to go to the hot springs with Yong-tae too♥</p>
+<p>Han Yu-gyeong: That's a shame. But I want to go to the hot springs with Yong-tae too♥</p>
 <p>Jin Yong-tae: We'll meet in a week, so please be patient😘</p>
-<p>Han Yu-gyeong: A week is too long~! I miss Yong-tae😡</p>
+<p>Han Yu-gyeong: A week is too long! I miss Yong-tae😡</p>
 <p>Jin Yong-tae: Then shall we take selfies and send them to each other now? Hehe</p>
 <p>Han Yu-gyeong: Yeah, yeah! I like it😍</p>
 <p>Han Yu-gyeong often took pictures and sent them to me, so there were quite a few pictures of Han Yu-gyeong in my photo album, but new pictures were always welcome.</p>

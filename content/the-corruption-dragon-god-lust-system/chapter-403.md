@@ -1,5 +1,5 @@
 +++
-title = "Chapter 403: Yeah... Hubby... I'm Your Good Girl, Hehehe~~"
+title = "Chapter 403: Yeah... Hubby... I'm Your Good Girl, Hehehe"
 weight = 403
 [extra]
 chapter = 403
@@ -19,7 +19,7 @@ chapter = 403
 
 <p>Her waist was pressed against the mattress while her hips rose gently, her body forming the perfect shape of a violin, her full, perfect buttocks drawing a heart.</p>
 
-<p>“Nghnn~~ Hubby wants to fuck Isabel’s pussy in this naughty position today? Hehehe~~” Isabel giggled softly, patting her own huge, chocolatey tits, the mountains of soft, squishy flesh rippling like a rough sea.</p>
+<p>“Nghnn Hubby wants to fuck Isabel’s pussy in this naughty position today? Hehehe” Isabel giggled softly, patting her own huge, chocolatey tits, the mountains of soft, squishy flesh rippling like a rough sea.</p>
 
 <p>Qingyi just smiled at those words.</p>
 
@@ -37,7 +37,7 @@ chapter = 403
 
 <p>Holding her a little tighter, Qingyi pushed all the way in.</p>
 
-<p>“Aghnnn~~ Hubby!” Isabel moaned, grabbing her own tits and squeezing them hard, her nipples spurting a jet of hot milk against the bed.</p>
+<p>“Aghnnn Hubby!” Isabel moaned, grabbing her own tits and squeezing them hard, her nipples spurting a jet of hot milk against the bed.</p>
 
 <p>Qingyi’s hips slammed into her heart-shaped ass with a loud clap.</p>
 
@@ -45,7 +45,7 @@ chapter = 403
 
 <p>“Ah… good girl…” Qingyi smiled, giving Isabel’s ass a powerful slap before pulling back and then thrusting again…</p>
 
-<p>“Oghnn~~ Yeah… Hubby… I’m your good girl, hehehe~~… deposit all your hot cum in your good girl…” Isabel moaned.</p>
+<p>“Oghnn Yeah… Hubby… I’m your good girl, hehehe… deposit all your hot cum in your good girl…” Isabel moaned.</p>
 
 <p>Her voice was sweet and high-pitched, her words obscene.</p>
 
@@ -59,11 +59,11 @@ chapter = 403
 
 <p>Her huge breasts swayed under the grip of her hands, her arms sinking into the vast flesh as she hugged them, her moans becoming more and more uncontrolled.</p>
 
-<p>“Aghnn~~ nghnn~~ aghnn~~ Hubby… it’s coming Hubby… my pussy is at its limit, release everything into my womb husband! NGHNN~~ FILL ME WITH YOUR- AGHNN~~” Isabel’s tongue escaped from her rosy lips, her face overcome with lewdness.</p>
+<p>“Aghnn nghnn aghnn Hubby… it’s coming Hubby… my pussy is at its limit, release everything into my womb husband! NGHNN FILL ME WITH YOUR- AGHNN” Isabel’s tongue escaped from her rosy lips, her face overcome with lewdness.</p>
 
 <p>“Seed…” She was barely able to complete the word as her pussy squirted nonstop, Qingyi’s hips sinking into her buttocks as he himself came.</p>
 
-<p>“Nghnn~~ I can feel my husband inside me… ah…” Isabel placed her hand on her lower abdomen, feeling Qingyi’s thick spurts of cum invading her womb, one after another, filling her to the brim.</p>
+<p>“Nghnn I can feel my husband inside me… ah…” Isabel placed her hand on her lower abdomen, feeling Qingyi’s thick spurts of cum invading her womb, one after another, filling her to the brim.</p>
 
 <p>“Ah…” Qingyi gasped, grabbing Isabel’s legs and turning her around, making her lie on her back, now facing him.</p>
 
@@ -81,7 +81,7 @@ chapter = 403
 
 <p>“Feeling better now?” He asked, his hands resting on her wide hips, sinking into her creamy, sweaty skin.</p>
 
-<p>“Yeah… husband’s cock was delicious today, hehehe~~” Isabel giggled before hugging Qingyi.</p>
+<p>“Yeah… husband’s cock was delicious today, hehehe” Isabel giggled before hugging Qingyi.</p>
 
 <p>“Everything will be okay, right? With Dad? He can’t die…” She asked, her voice slightly trembling.</p>
 
@@ -89,7 +89,7 @@ chapter = 403
 
 <p>With quick steps, he went to the huge, luxurious pool on the flying ship, which had heated water and even a whirlpool.</p>
 
-<p>“Oh… look who remembered us! Fufufu~~” Ruxue’s mature and sensual laughter echoed through the bathroom, her naked, voluptuous body sinking almost halfway into the water.</p>
+<p>“Oh… look who remembered us! Fufufu” Ruxue’s mature and sensual laughter echoed through the bathroom, her naked, voluptuous body sinking almost halfway into the water.</p>
 
 <p>The moment Qingyi sat down at the edge of the pool next to Isabel, Ruxue moved, standing between Qingyi’s legs and grabbing his semi-erect cock, her small, delicate hands far from being able to wrap around the entire 23cm member.</p>
 

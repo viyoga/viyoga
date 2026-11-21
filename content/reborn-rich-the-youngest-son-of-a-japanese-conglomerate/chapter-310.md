@@ -6,9 +6,9 @@ chapter = 310
 +++
 
 <p>Just before Konoe Akina and Otagi Yuka entered Starbucks to talk, Minamoto Risa and Seizawa Shii were having hamburgers for lunch at a hamburger chain called Z-ria near St. Francis Girls' Academy, talking about what had happened during vacation.</p>
-<p>"Ahahaha! Super funny~! Something like that happened in Hawaii?"</p>
+<p>"Ahahaha! Super funny! Something like that happened in Hawaii?"</p>
 <p>Seizawa Shii laughed, holding her belly, at Minamoto Risa's story. In fact, for an ordinary person, it wasn't particularly funny, but because Seizawa Shii's reaction was so good, Minamoto Risa couldn't help but let out a snicker. Seizawa Shii, who had been laughing heartily, stopped and brought up a new topic. It was about the new Class Teacher who had been assigned this semester.</p>
-<p>"Risa, but isn't the Class Teacher super ikemen (handsome)? After always seeing only old mister teachers, seeing the Class Teacher is super dangerous, I'm telling you~!"</p>
+<p>"Risa, but isn't the Class Teacher super ikemen (handsome)? After always seeing only old mister teachers, seeing the Class Teacher is super dangerous, I'm telling you!"</p>
 <p>"Well...."</p>
 <p>When Seizawa Shii talked about Yamashiro Ryuta, who had newly been assigned as Class Teacher this time, Minamoto Risa replied as if she wasn't very interested.</p>
 <p>A few months ago, after witnessing her previous Class Teacher, Nomata Shigemichi, commit Sexual Assault against Seiwa Rieko, a student in the same special class, Minamoto Risa was experiencing mild distrust of humans.</p>
@@ -17,15 +17,15 @@ chapter = 310
 <p>"I don't particularly want to change it."</p>
 <p>Even at Seizawa Shii's subtle words, Minamoto Risa shook her Head as if she had no interest in changing classes. In fact, both of them had received gifted Education from a young age, so they could speak most foreign languages. So, while they didn't have much regret about the French class they were currently taking, there was no particular need to change it to Korean language.</p>
 <p>Taira Ryuta didn't know this, but in fact, St. Francis Girls' Academy, while being an educational institution, was also a social gathering place for the daughters of prestigious families, so for the first week of the semester, elective classes, excluding compulsory ones, could be changed. This was to allow the Female Students to match their classes with each other.</p>
-<p>"Ugh~! I want to see him in the ikemen Teacher's class, I'm telling you~!"</p>
+<p>"Ugh! I want to see him in the ikemen Teacher's class, I'm telling you!"</p>
 <p>"Then change it by yourself."</p>
 <p>"But! I want to take the Korean language class with Risa!"</p>
 <p>As Seizawa Shii, displaying all sorts of Aegyo, clung to Minamoto Risa, Minamoto Risa sighed and nodded her Head.</p>
 <p>"Phew.... Well, both of us are good at French anyway. Alright, let's change it."</p>
-<p>"Really? Risa is the best~!"</p>
+<p>"Really? Risa is the best!"</p>
 <p>Seizawa Shii knew that Minamoto Risa was weak to someone she was close to clinging to her like this, so she used the cunning method of clinging until the end.</p>
 <p>"Tsk, only the best when it's convenient, huh?"</p>
-<p>"Nooo~! You're always the best. But...."</p>
+<p>"Nooo! You're always the best. But...."</p>
 <p>Minamoto Risa and Seizawa Shii quickly moved on to another topic and started chatting.</p>
 <p>Minamoto Group Chairman's Direct Business Strategy Headquarters.</p>
 <p>Numerous men in Suits were looking at monitors and typing on keyboards without rest. This was a direct Department immediately below Minamoto Ushin and a Department that collected all Information on the Minamoto Group and the World, and despite being a Department, it held immense Power, more than a single Affiliate Company within the Group.</p>
@@ -45,7 +45,7 @@ chapter = 310
 <p>As the two Team Leaders bowed their Heads and left the Headquarters Manager's Room, Minamoto Youken sank his Body into the plush Headquarters Manager's Chair.</p>
 <p>'He's just a teacher, after all; what big trouble could there be?'</p>
 <p>Minamoto Youken didn't know it, but this decision was an incredibly complacent one.</p>
-<p>"Haaam~! Good morning."</p>
+<p>"Haaam! Good morning."</p>
 <p>"Yes, keep up the good Work!"</p>
 <p>I yawned and greeted the Security Guard, Kozaki Koji. Kozaki Koji also smiled, gave me a playful salute, and passed through the school gate.</p>
 <p>Ah, today I have to stop by the 3rd-year Head Teacher's Office next to the faculty office before I go. Not the students who originally registered for the class, but there were newly registered students for the Korean language class, so I had to get the list of Korean language class students from Kasaoka Yuzuki, the 3rd-year Head Teacher.</p>

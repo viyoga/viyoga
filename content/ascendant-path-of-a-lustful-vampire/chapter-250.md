@@ -22,14 +22,14 @@ chapter = 250
 <p>Prepare yourself now."</p>
 <p>Not even giving Caius the time to make those preparations, Cynthia raised a hand and again, without any obvious seal forming or even any actual cast time, a spell circle appeared. Caius tagged the energy coming off it to be at the Fourth Circle and with a flick of her wrist, Cynthia commanded the spell circle to conjure a lightning Bolt that went striking at Caius where he stood.</p>
 <p>He thrust his hand forward just in time with his best defense already prepared.</p>
-<p>~Galleon’s Gate~</p>
+<p>Galleon’s Gate</p>
 <p>The purple spell circle appeared and then came the Dark Magic defensive spell whose maw opened to accept the bolt of lightning. But of course, being at the Third Circle, the best it could do was mitigate the potential damage.</p>
-<p>Where the lightning bolt would have simply vanished into the spell’s demonic-looking maw had it been a Third Circle spell, it reacted violently with ~Galleon’s Gate~ and caused its entire frame to crackle with electricity before it imploded with enough force to catch Caius mid-run and send him flying.</p>
-<p>The fact that the lightning bolt hadn’t just torn right through the ~Galleon’s Gate~ spell with its energy barely reduced and had instead imploded with the defensive spell either spoke to how strong a spell ~Galleon’s Gate~ was or showed Cynthia was still taking it easy on him.</p>
+<p>Where the lightning bolt would have simply vanished into the spell’s demonic-looking maw had it been a Third Circle spell, it reacted violently with Galleon’s Gate and caused its entire frame to crackle with electricity before it imploded with enough force to catch Caius mid-run and send him flying.</p>
+<p>The fact that the lightning bolt hadn’t just torn right through the Galleon’s Gate spell with its energy barely reduced and had instead imploded with the defensive spell either spoke to how strong a spell Galleon’s Gate was or showed Cynthia was still taking it easy on him.</p>
 <p>Caius decided it was a bit of both.</p>
 <p>He had just hit the ground after the implosive energy force hit when he heard the crackle of electricity and learned the spell circle Cynthia had cast was still capable of unleashing more bolts.</p>
 <p>This time, Caius cast a movement spell, and not just any movement spell but his best and most unstable;</p>
-<p>~Hellsong Stomp~</p>
+<p>Hellsong Stomp</p>
 <p>It was faster than a Third Circle spell and just shy of the Fourth so if anything could give him the boost he wanted, it was that. He stomped his foot on the ground and let the directionless and strong boost send him away from the Bolts. Well, not really away from the bolts and more away from Cynthia.</p>
 <p>With three stomps, he had reestablished the proper Ten Meters of distance between himself and Cynthia.</p>
 <p>Or so he thought.</p>
@@ -48,13 +48,13 @@ chapter = 250
 <p>In the Kragsten family—a family who are known for their affinities with Water, Wind, and Lightning—combining the Elements for singular spells is only to be practiced by one who has an affinity with Storm Magic because it is believed that they have tamed the ’chaos’ already. Which is another way of saying that a Storm Mage has already broken past the norm and can further break the rules that prevent spell combinations as they see fit.</p>
 <p>Cynthia, unlike Delia didn’t have an affinity with Storm Magic so a move like what she just performed was her own way of creating Elemental combinations; By casting two separate spells and letting them react outside of her body/mind.</p>
 <p>When the electrification was over, Cynthia was just about to conjure another lightning streak to keep on the offensive and exhaust Caius as was her goal.</p>
-<p>Caius, in pain as he was with a few vestiges of electrical current still coursing through him, kicked off the ground with a blast of fire from ~Hellsong Dash~ which dried up some of the water in his wake as he tried to get as far away from wet ground as he could.</p>
-<p>Cynthia, was still stationary in the air with the wind spell that helped her remain afloat. She made to cast a spell and Caius interrupted her attempt with a quick spell cast in the midst of dashing away with ~Hellsong Dash~</p>
-<p>It was why he had cast that instead of ~Hellsong Stomp~ because with ~Hellsong Dash~, he had total control of his body and could turn around and do what he just did mid-run;</p>
-<p>~Erratic Fireball!~</p>
+<p>Caius, in pain as he was with a few vestiges of electrical current still coursing through him, kicked off the ground with a blast of fire from Hellsong Dash which dried up some of the water in his wake as he tried to get as far away from wet ground as he could.</p>
+<p>Cynthia, was still stationary in the air with the wind spell that helped her remain afloat. She made to cast a spell and Caius interrupted her attempt with a quick spell cast in the midst of dashing away with Hellsong Dash</p>
+<p>It was why he had cast that instead of Hellsong Stomp because with Hellsong Dash, he had total control of his body and could turn around and do what he just did mid-run;</p>
+<p>Erratic Fireball!</p>
 <p>He had it squarely aimed at Cynthia and she stopped the attacking spell she was in the midst of casting and cast a defensive one instead.</p>
 <p>A Fifth Circle Water shield that appeared like a wide screen before her.</p>
-<p>Cynthia expected its water to easily douse the flames of the ~Erratic Fireball~ with ease and, in a sense, that was what happened.</p>
+<p>Cynthia expected its water to easily douse the flames of the Erratic Fireball with ease and, in a sense, that was what happened.</p>
 <p>The column of fire from the fireball was kept away and could not break past but its heat, got through. Cynthia felt it against her skin through the thin gown she had on and her eyes went wide in awe of just how much utility the spell’s instability was capable of.</p>
 <p>The heat of a fucking Third Circle Fire-Wind spell that had been cast in what looked to have been mid-desperation, had gotten through her Fifth Circle Water shield spell.</p>
 <p>It was insane to even think about.</p>

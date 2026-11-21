@@ -9,20 +9,20 @@ chapter = 738
 <p>It was a message from Diana Rich, the Deputy Director of the Federal Psychic Management Department. When did she come to Japan again? I thought she said she had things to do in Korea, but it seems like she's finished with those.</p>
 <p>She's probably trying to give me U.S. citizenship. It seems to be happening faster than I thought. I figured it would take a little longer. So, did she come to Japan because of me?</p>
 <p>This message came while I was teaching my Korean class. So, I guess I can meet her after class. The class schedule was the same in the third semester, so on Tuesdays and Wednesdays, school was over after Korean class and the closing ceremony.</p>
-<p>"Ryuta-jji~! Is this going to be on the test today?"</p>
+<p>"Ryuta-jji! Is this going to be on the test today?"</p>
 <p>"If I say it won't be on the test during class, it won't be. What I emphasized will be on it. That part was just glossed over in class, so it probably won't be."</p>
 <p>Even though Seizawa Shii's grades aren't bad, she was quite actively asking about Korean while we were walking to the special class building. Seizawa Shii is automatically accepted into St. Francisco Women's University if she's a student at St. Francisco Girls' Academy, so she doesn't even need to try hard on this exam.</p>
 <p>"Aren't you going to St. Francisco Women's University anyway? Why are you working so hard?"</p>
-<p>"Ah, just because~! I might go to Korea with Ryuta-jji, you know? I want to be able to do some free talking then~☆"</p>
+<p>"Ah, just because! I might go to Korea with Ryuta-jji, you know? I want to be able to do some free talking then☆"</p>
 <p>To my question, Seizawa Shii said with a shy expression that she was thinking about a Korean date with me. The special class students taking my class suddenly started pouring out questions about Korean to me.</p>
-<p>"You should have worked hard during class~! I have something to do after class today, so let's go back to the classroom quickly."</p>
+<p>"You should have worked hard during class! I have something to do after class today, so let's go back to the classroom quickly."</p>
 <p>"Eh? I was going to talk with Ryuta-jji in the club room today...!"</p>
-<p>"That's right! Sensei! Don't forget you're still the faculty advisor for the Dating Experience Club~!"</p>
-<p>"Woo~! Woo~!"</p>
+<p>"That's right! Sensei! Don't forget you're still the faculty advisor for the Dating Experience Club!"</p>
+<p>"Woo! Woo!"</p>
 <p>As expected, when I said I was going straight home after class today, I was met with jeers and accusations. But it can't be helped. I can't change my appointment with Diana Rich.</p>
 <p>"I'll finish quickly today without the closing ceremony, so go home and study. We're going to the ski resort next weekend, so you have to work hard before then."</p>
 <p>The special class female students and I, who went straight to the special class classroom, finished class for the day without any special closing ceremony. Even if St. Francisco Girls' Academy doesn't emphasize grades, they still had to get them to some extent. It's a matter of the family's face, not just the students' grades.</p>
-<p>"Ah...! I don't want to study~!"</p>
+<p>"Ah...! I don't want to study!"</p>
 <p>"It's the last exam, so just bear with it a little longer."</p>
 <p>Kujo Kina grumbled that she didn't want to study, but I comforted her to bear with it a little longer and then left the classroom and headed to the teacher's preparation room.</p>
 <p>There was nothing on the fax machine. There were no work emails either. Hmm, I guess I don't have to work overtime.</p>
@@ -44,13 +44,13 @@ chapter = 738
 <p>"Yeah, of course, it's my body, so I'll be careful. Don't worry. Rena will save me if something happens, right?"</p>
 <p>"Of course, because you're Master!"</p>
 <p>After reassuring Sakagami Rena like that, I stopped by home and took a taxi to the place I promised to meet Diana Rich. At that time, my phone vibrated. I wondered if she was urging me to come quickly, so I looked at my phone, but it wasn't Diana Rich.</p>
-<p>-Taira Kanna: Brother~! Could we possibly meet today?</p>
+<p>-Taira Kanna: Brother! Could we possibly meet today?</p>
 <p>It was Taira Kanna. What's wrong? She's asking to meet today, but I don't know how long my conversation with Diana Rich will last, so today was a bit much.</p>
 <p>-Taira Ryuta: I don't think I can because I have a prior engagement today.... Is it urgent?</p>
-<p>-Taira Kanna: No~ it's not urgent. Then, would tomorrow be okay? I wanted to treat you to a meal.</p>
+<p>-Taira Kanna: No it's not urgent. Then, would tomorrow be okay? I wanted to treat you to a meal.</p>
 <p>It was just a message asking to have a meal. There's no reason to refuse, so it would be good to meet once. Taira Kanna also has power in the Taira Group, so it would be good to be friendly.</p>
 <p>-Taira Ryuta: Okay. Then let's meet tomorrow evening.</p>
-<p>-Taira Kanna: Yes~! See you tomorrow, Brother!</p>
+<p>-Taira Kanna: Yes! See you tomorrow, Brother!</p>
 <p>After finishing the chat with Taira Kanna, I arrived in Miyashi's downtown area. I paid the taxi fare and got off in the downtown area.</p>
 <p>The cafe where Diana Rich was waiting was a bit out of the way. I looked at the screen of my smartphone and went into the alley towards the cafe.</p>
 <p>After walking for a while, an antique-designed cafe appeared. When I opened the door, the small bell on the door rang, announcing my arrival. A bearded man who seemed to be the cafe owner looked at me while wiping a cup with a dry towel.</p>
@@ -88,8 +88,8 @@ chapter = 738
 <p>"I should have just said yes to meeting Taira Kanna."</p>
 <p>The conversation ended faster than I thought, so I should have accepted the dinner appointment with Taira Kanna earlier. I can't change the appointment now, so I decided to pack some things to eat in Miyashi and go home.</p>
 <p>___________</p>
-<p>Nae and Arisu belly dancer illustration requested by MidNightSKY and Mireumar2~!</p>
+<p>Nae and Arisu belly dancer illustration requested by MidNightSKY and Mireumar2!</p>
 <p>Starting with the mother, Nae!</p>
 <p>Belly dancer Arisu!</p>
 <p>Kkiyoot...! The differences between Arisu and Nae are breast size, hair color, and eye color, hehe.</p>
-<p>The illustration requested by Hwanbuljeoldaebulga-nim will be uploaded tomorrow~!</p>
+<p>The illustration requested by Hwanbuljeoldaebulga-nim will be uploaded tomorrow!</p>

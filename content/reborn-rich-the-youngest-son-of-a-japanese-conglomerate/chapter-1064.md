@@ -71,4 +71,4 @@ chapter = 1064
 <p>"Ah, is that so? Then let's order some room service. I'm hungry too because I kept moving."</p>
 <p>Sabu wasn't saying let's just have sex, as if treatment was more important than sex. Or maybe she was taking care of me because I said I had consumed Stamina.</p>
 <p>That's how we ended up ordering a lot of room service and spending our time repeating sex and meals for Stamina replenishment until morning.</p>
-<p>Rinka B-cut~!</p>
+<p>Rinka B-cut!</p>

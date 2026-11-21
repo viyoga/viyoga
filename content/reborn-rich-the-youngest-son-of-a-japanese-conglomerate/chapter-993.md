@@ -67,8 +67,8 @@ chapter = 993
 <p>"Me too.... But please wait a moment."</p>
 <p>Huh? Why was she suddenly asking me to wait? Nagumo Sian took something out of the small paper Bag she had brought with her when she entered my room and began to put it on.</p>
 <p>I had thought it would be other sex clothes besides the babydoll she was wearing, but she brought something this erotic? I watched, mouth agape, as Nagumo Sian put on the clothes (?).</p>
-<p>Nagumo Sian B-cuts~!</p>
+<p>Nagumo Sian B-cuts!</p>
 <p>As requested by Gojoy-nim, I've included plenty of B-cuts hehe.</p>
-<p>The scene of Sian seducing while taking off the Kimono she wore in the previous chapter, as requested by Gojoy-nim~!</p>
-<p>Bonus requested Illustration that failed to be made~!</p>
+<p>The scene of Sian seducing while taking off the Kimono she wore in the previous chapter, as requested by Gojoy-nim!</p>
+<p>Bonus requested Illustration that failed to be made!</p>
 <p>It's not inside the Ferris wheel, but the Ferris wheel appears in the background hehe.</p>

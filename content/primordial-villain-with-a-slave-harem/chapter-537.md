@@ -17,7 +17,7 @@ chapter = 537
 <p>The scent of her arousal was intoxicating, drawing me in like a moth to a flame.</p>
 <p>Neuron activation successful - I was horny as all hell.</p>
 <p>With tender care, I began to lick the delicate skin surrounding her entrance, savoring the softness and warmth that enveloped my tongue.</p>
-<p>"This feels… Ah~! So strange…!" she declared between her sensual moans, but I merely smiled for a moment before refocusing on my actions. I was not in a mood to converse right now.</p>
+<p>"This feels… Ah! So strange…!" she declared between her sensual moans, but I merely smiled for a moment before refocusing on my actions. I was not in a mood to converse right now.</p>
 <p>With each slow, circular lick of mine, I could feel her muscles tightening and relaxing in response, a clear sign that she was enjoying the sensation as much as I was. As I delved deeper into her folds, her flavors intensified, becoming richer and more complex. The taste of her divine nectar was like a fine wine - sweet yet tangy, with just the right amount of bitterness to keep me coming back for more.</p>
 <p>Seraphiel squirmed beneath my touch and it wasn’t long before her hips bucked against my face, sending her butt even closer to me than it already was - even if her brain didn’t understand it yet, her body knew she was desperate for more contact.</p>
 <p>However, I soon retracted my tongue and raised my face. "That was some good fucking food. Thank you, Seraphiel."</p>
@@ -28,7 +28,7 @@ chapter = 537
 <p>My lustful declaration was welcomed by a jolt of electricity traveling from the top of her spine all the way to her toes, and her fold’s excited twitching became wilder than ever.</p>
 <p>This was it - the moment we had both been waiting for, the consummation of our desires. With one final deep breath, I slowly began to push inside her.</p>
 <p>Seraphiel let out a sharp gasp as my tip breached her virgin barrier. Her hymen offered some initial resistance, but with gentle persistence, it finally gave way under the pressure of my advancing member. There was a faint tearing sound, followed by a sudden burst of warm moisture that enveloped me like a velvet glove.</p>
-<p>I paused for a moment to let Seraphiel adjust to the new sensation as I felt her body still tightening around me in response to my entrance. "Ahhh~" she moaned beneath me in a mix of pain and pleasure.</p>
+<p>I paused for a moment to let Seraphiel adjust to the new sensation as I felt her body still tightening around me in response to my entrance. "Ahhh" she moaned beneath me in a mix of pain and pleasure.</p>
 <p>I slowly began to move within her with my hips rolling gently as I deepened my descent inch by inch. Seraphiel yelped and writhed beneath me continuously as her body arched strongly against my body in response to the new sensations coursing through her veins. However, she was pinned beneath me, thus any such movements of her were limited by my firm muscles and large frame.</p>
 <p>As I continued to explore her depths, I couldn’t help but marvel at how perfect her insides felt against my shaft. Her heavenly walls clung to me like a second skin, giving me an excellent welcome as I continued my exploration.</p>
 <p>I felt a very strong urge to kiss her, so I grabbed onto her chin and forced Seraphiel to arch her back to an incredibly sexy degree, after which I leaned down to capture her lips in a needy kiss.</p>

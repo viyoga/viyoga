@@ -5,7 +5,7 @@ weight = 540
 chapter = 540
 +++
 
-<p>“Q-Qingyi… b-be gentle, you~~ aghnn~~” Lanyin moaned as a single finger of Qingyi buried itself in her pussy.</p>
+<p>“Q-Qingyi… b-be gentle, you aghnn” Lanyin moaned as a single finger of Qingyi buried itself in her pussy.</p>
 
 <p>His free hand sank between her pale, perfect breasts, reaching her delicate neck and grabbing it gently.</p>
 
@@ -23,9 +23,9 @@ chapter = 540
 
 <p>She only stopped when, finally, her lips touched the base of Qingyi’s groin.</p>
 
-<p>“Gulk… ah~~” Lingxue pulled back, letting the member slip out of her mouth, her full, pink lips still connected to it by thick strands of saliva.</p>
+<p>“Gulk… ah” Lingxue pulled back, letting the member slip out of her mouth, her full, pink lips still connected to it by thick strands of saliva.</p>
 
-<p>“Aghn~~ how can something so… big even exist in a man?” Lingxue questioned.</p>
+<p>“Aghn how can something so… big even exist in a man?” Lingxue questioned.</p>
 
 <p>She grabbed the cock now drenched with her saliva, her hands moving incessantly around the member as she pressed her lips against the tip.</p>
 
@@ -45,11 +45,11 @@ chapter = 540
 
 <p>The tail on Lingxue’s back stretched out, her eyes widening as the first jet of cum invaded her hot, tight mouth, her cheeks inflating with the amount.</p>
 
-<p>“Gulp~~ gulp~~ aghnn~~ AH~~!” Lingxue was barely able to handle the second gulp before she was forced to retreat.</p>
+<p>“Gulp gulp aghnn AH!” Lingxue was barely able to handle the second gulp before she was forced to retreat.</p>
 
 <p>Her eyes closed as a thick jet of cum hit her face, another hitting her neck, and the last one between her pale, milky, perfect tits.</p>
 
-<p>“Nghnn~~” She moaned, feeling that white, viscous, hot substance cover her body.</p>
+<p>“Nghnn” She moaned, feeling that white, viscous, hot substance cover her body.</p>
 
 <p>Lanyin, above her, lost her strength and fell to her knees in front of Lingxue, her breasts pressing against the other’s as they panted heavily, using their pressed bodies as support.</p>
 
@@ -69,7 +69,7 @@ chapter = 540
 
 <p>Leaning on both of them, he buried it all at once. Her pussy struggled to cope with that massive size, which only stopped when it hit the walls of her womb.</p>
 
-<p>“Q-Qingyi!~~ aghnnn~~ oh heavens~~” Lingxue moaned, her eyes widening as her body completely lost its strength.</p>
+<p>“Q-Qingyi! aghnnn oh heavens” Lingxue moaned, her eyes widening as her body completely lost its strength.</p>
 
 <p>The initial wave of pain from having her virginity broken lasted only a moment, her powerful constitution getting used to the size as Qingyi injected small strands of Qi into the two.</p>
 
@@ -93,7 +93,7 @@ chapter = 540
 
 <p>“Have I told you how good your people’s pussies are? … Xueyao and even you two…”</p>
 
-<p>“Nghnn~~ Stop saying those nghnn~~ Fuck!~~ shameful things!”</p>
+<p>“Nghnn Stop saying those nghnn Fuck! shameful things!”</p>
 
 <p>Lingxue spoke between gasping moans, clinging to Lanyin’s shoulders as her eyes rolled back.</p>
 

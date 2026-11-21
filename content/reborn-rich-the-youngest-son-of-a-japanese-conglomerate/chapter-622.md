@@ -12,7 +12,7 @@ chapter = 622
 <p>,It's getting dark already.</p>
 <p>,It's almost December, so the sun sets early.</p>
 <p>We flew through the sky against the backdrop of the sunset. Everyone was looking at the sunset with moist expressions. Did everyone feel like they were lost in sentimentality? You don't often get to see the sunset from the sky, so it's understandable to be sentimental.</p>
-<p>,Ribbon-chan~! Say hello to Hamtaro!</p>
+<p>,Ribbon-chan! Say hello to Hamtaro!</p>
 <p>The sentimentality was short-lived as Sakagami Rena introduced Hamtaro to Ribbon-chan, the weasel youkai she had received this time. Everyone was watching Sakagami Rena's two weasels because they had nothing else to do during the hour-long trip back to Miyashi.</p>
 <p>,Kkikkik!</p>
 <p>,Cheep!</p>
@@ -28,12 +28,12 @@ chapter = 622
 <p>Alik, who seemed to have no thoughts, and Naruse Shiyo and Kujo Kina, who looked like they were finally free from training, seemed to like school.</p>
 <p>,Don't slack off too much, everyone. Don't just play around because there are no final exams this semester, and prepare in advance. You know the winter vacation is short, right? Don't regret it later, and start little by little now.</p>
 <p>Unlike Korea, which only has the 1st and 2nd semesters, St. Francis Girls' Academy has a 3-semester system. There is a short winter vacation followed by the 3rd semester, which is packed with final exams, center exams, and graduation. For reference, the 2nd semester has sports day, Halloween party, school trip, and festival, so it has a stronger image of being a semester for playing than the 3rd semester, which is the end of the school year.</p>
-<p>,That's for the 3rd semester~! It's okay since it's still the 2nd semester!</p>
+<p>,That's for the 3rd semester! It's okay since it's still the 2nd semester!</p>
 <p>Seizawa Shii said confidently. She didn't seem to care much even if she failed the exam. Since she was planning to go to St. Francis Women's University anyway, she just needed to avoid failing.</p>
 <p>For reference, ordinary students had to get quite high grades to enter St. Francis Women's University. Since it had the image of a luxury women's university attended by daughters of prestigious families, students from outside St. Francis Girls' Academy had to get considerable scores.</p>
 <p>,Ah, you. You have to properly prepare for the festival from today, so stop by the club room after class.</p>
 <p>I was about to leave because I didn't have anything else to say, but Minamoto Risa called out to me. That's right, there was the festival preparation.</p>
-<p>,Yeah~! Ryuta-cchi is the main character of this club anthology! If you skip it, I'll pluck all your nose hairs!</p>
+<p>,Yeah! Ryuta-cchi is the main character of this club anthology! If you skip it, I'll pluck all your nose hairs!</p>
 <p>Why the nose hairs...? Besides, my writing isn't even included in the anthology, but I'm the main character? I don't know what that means.</p>
 <p>,I'll participate, so spare my nose hairs.</p>
 <p>Everyone laughs *ahahaha* as if what I said was funny. Well, that's how high school girls are. They laugh even when they see a rolling leaf. I left the students' laughter behind and headed to the education preparation room.</p>

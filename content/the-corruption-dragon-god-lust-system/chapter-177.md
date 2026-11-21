@@ -23,7 +23,7 @@ chapter = 177
 
 <p>“What do you say we do one last master and disciple practice before we leave for the Nine Peaks Basin?”</p>
 
-<p>“Nghnn~~” Qingxue let out a pained moan before hesitantly nodding.</p>
+<p>“Nghnn” Qingxue let out a pained moan before hesitantly nodding.</p>
 
 <p>She was also curious to test her new power as a Burning Blood Realm expert and was eager to see how much Qingyi had improved.</p>
 

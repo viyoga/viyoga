@@ -143,4 +143,4 @@ chapter = 734
 
 <p>&quot;From now on, you are my husband’s little wife...&quot;</p>
 
-<p>&quot;You are not allowed to find other men. You have to serve my husband and me devotedly, okay~&quot;</p>
+<p>&quot;You are not allowed to find other men. You have to serve my husband and me devotedly, okay&quot;</p>

@@ -26,7 +26,7 @@ chapter = 823
 <p>Aria kissed him the way she touched him, soft and thorough and unwilling to let go, her soaped breasts pressing flush against his chest as her fingers slid from his collarbone into his hair, and the small sound she made against his lips when he pulled her closer traveled through both of them like current.</p>
 <p>Her thighs parted over his lap in one smooth motion, the wet warmth of her settling against him with her knees sinking into the bed on either side of his hips, and the full weight of her slick body in his hands drew a groan out of him that Calypso felt through his spine where her chest was still pressed against his back.</p>
 <p>The demoness responded by rolling her hips against him from behind, the heavy swell of her breasts dragging up his shoulder blades in a slow arc that left heat everywhere it touched, her tail coiling around his thigh in a possessive squeeze as she pressed her mouth to the back of his neck and hummed against his skin.</p>
-<p>"Darling~" she breathed, and the single word carried everything her body was already saying.</p>
+<p>"Darling" she breathed, and the single word carried everything her body was already saying.</p>
 <p>Bastet moved without announcement, settling at his left with the quiet precision of a woman who had already decided where she belonged.</p>
 <p>Her lathered body pressed against his arm in a long, warm slide, tanned skin on his, and her mouth found the crook of his neck with a reverence that needed no words. Her ears were forward now, tilted toward the sounds Aria was making, and the slow curl of her tail behind her said everything her silence didn’t.</p>
 <p>Nyx stayed low.</p>
@@ -50,7 +50,7 @@ chapter = 823
 <p>Her fingers curled against his shoulders instead of pushing. Her back arched into his mouth despite every word leaving her lips. "S-stay put! You reckless... stupid... haah... You should focus on healing..."</p>
 <p>Kaiden pulled off her breast with a wet pop, looked her dead in the eyes, and grinned. "But I am healing, Luna. This heals me faster than any S-tier healer ever could."</p>
 <p>Luna stared at him, flushed from her collarbones to her ears, her small chest glistening and rising fast. "...You know nothing is flowing from them, right?" She flicked his forehead. "No matter how hard you suck, those are regular tits attached to a regular woman. Not a damn cow like the one kneeling between your legs."</p>
-<p>"Yep, that’s me~!" Nyx chirped happily, then kissed his thighs lovingly before going back to work.</p>
+<p>"Yep, that’s me!" Nyx chirped happily, then kissed his thighs lovingly before going back to work.</p>
 <p>Kaiden looked at the beet red gamer girl.</p>
 <p>The grin faded, and his eyes held hers with an intensity that made her breath stall.</p>
 <p>"Nothing will come out? Are you sure about that?"</p>

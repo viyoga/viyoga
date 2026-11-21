@@ -10,7 +10,7 @@ chapter = 424
 <p>Without haste, his fingers slid into the valley between her two pale mounds, sinking in slowly and dragging the light green dress along with them. The soft cheeks parted around his knuckles, then closed back over them, warm and pliant, swallowing his fingers a little more with every inch.</p>
 <p>The fabric buried itself in the crevice, hugging every curve, while a stifling heat rose from between her cheeks and wrapped around his hand.</p>
 <p>Arwen shuddered slightly, pushing her hips back against his hand. Her soft ass pressed deeper into his palm, molding itself around his fingers with a small, lazy wiggle that seemed to ask for more.</p>
-<p>"Hm~ you naughty husband, fufufu~" She let out a low chuckle, her body trembling against his with the laughter. Her huge breasts quivered softly against his chest with every little giggle, two heavy mounds rubbing against him through the thin dress.</p>
+<p>"Hm you naughty husband, fufufu" She let out a low chuckle, her body trembling against his with the laughter. Her huge breasts quivered softly against his chest with every little giggle, two heavy mounds rubbing against him through the thin dress.</p>
 <p>She lifted her face to look at him.</p>
 <p>With an absent-minded gesture, she brushed a strand of green hair from her eyes, tucking it behind one of the long, pointed ears the movement had revealed.</p>
 <p>Then she stood on her tiptoes, her massive soft tits pressing flat against his chest. They squashed between their bodies, the soft flesh pushing up against the neckline of her dress.</p>

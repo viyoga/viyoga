@@ -26,7 +26,7 @@ chapter = 700
 <p>Her presence reminded her of Lilith. However, if Lilith was like a sharp blade ready to sever anything, the one in front of her felt like a vast and immense sea ready to submerge the whole world.</p>
 <p>This woman was strong, of that there was no doubt. To top it all off, she was also a bonafide dragon.</p>
 <p>“Lady Kiyohime. What do you think? Will you join us in our small gathering?”</p>
-<p>“Ahem~ I have just woken up.” Kiyohime cleared her throat while she adjusted her position in the bed.</p>
+<p>“Ahem I have just woken up.” Kiyohime cleared her throat while she adjusted her position in the bed.</p>
 <p>The others all did their best to hide their snickers. It was hard to believe that such a cute action was done by the same person who half destroyed the forest during her couple tussle against Sol.</p>
 <p>Rather than a fierce warrior, she now looked more like a shy maiden.</p>
 <p>“Well…” Kiyohime glanced around, searching for the right words. She was burning with embarrassment.</p>

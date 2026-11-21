@@ -32,7 +32,7 @@ chapter = 312
 <p>Nyx growled in frustration but eventually huffed. "...Tch. Fine. That’s acceptable... I suppose."</p>
 <p>...</p>
 <p>Nyx waited, bound in her contorted and lewd position, her heart pounding with a mix of nerves and excitement. But only a few seconds later, the door creaked open.</p>
-<p>"Kai, you were quick! Hehe~ someone’s very eager-"</p>
+<p>"Kai, you were quick! Hehe someone’s very eager-"</p>
 <p>Her words froze on her tongue.</p>
 <p>Because it wasn’t Kaiden who entered.</p>
 <p>It was Luna.</p>

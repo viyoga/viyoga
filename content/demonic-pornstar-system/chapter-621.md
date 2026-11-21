@@ -83,7 +83,7 @@ chapter = 621
 <p>Nyx hummed softly behind Kaiden with her hands tightening around his shoulders as if to ground the thought. "Yes, we held on surprisingly well despite that," she added, fingers kneading slow, practiced circles. "Vaelira must have worked herself to the bone. The others too."</p>
 <p>Her grip tightened just a little more with a quiet question hidden in the pressure. "Kai... is she...?"</p>
 <p>"She’ll be fine," Kaiden said without hesitation and with eyes that never left the standings. "Might need a few days to recover, though."</p>
-<p>"Hehe~" Luna giggled, clearly enjoying his tone more than the words themselves.</p>
+<p>"Hehe" Luna giggled, clearly enjoying his tone more than the words themselves.</p>
 <p>Nyx smiled faintly at that and resumed her steady rhythm, leaning forward to see the hologram, which consequently meant her two large melons were resting squarely on top of Kaiden’s scalp.</p>
 <p>No protests were offered.</p>
 <p>"Wow," she murmured. "Ashbound is climbing fast. They’re really putting in the work."</p>

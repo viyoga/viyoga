@@ -10,13 +10,13 @@ chapter = 276
 <p>Ethan’s hips thrust with full force, his eyes narrowing for a brief moment as his fingers sank deep into Arwen’s plump ass cheeks, the supple flesh bulging obscenely between his fingertips with every brutal grip.</p>
 <p>She trembled from head to toe, her fingernails scraping against the cold silver and gold of the altar as she clung to the sacred surface.</p>
 <p>Her gasping, broken moans echoed off the cathedral’s high walls, mingling with the wet, fleshy slap of his hips meeting her ass.</p>
-<p>"E-Ethan~" Arwen’s trembling, faltering voice died in her throat.</p>
+<p>"E-Ethan" Arwen’s trembling, faltering voice died in her throat.</p>
 <p>Ethan growled low, driving his cock into her tight pussy one last time.</p>
 <p>He buried himself to the hilt with brutal force, his heavy balls slamming hard against her plump mons pubis, the impact sending shockwaves coursing through the soft, full flesh of her ass.</p>
 <p>Both of them had long since lost track of time, and now they were at their absolute limits.</p>
 <p>Arwen’s eyes widened for a brief moment, and in the next, she felt a thick, copious torrent of cum invade her womb.</p>
 <p>Hot jet after hot jet pumped into her, flooding every corner of her uterus until there was no room left for anything more.</p>
-<p>"Mghnn~~" She moaned, bringing one trembling hand to her belly, feeling it beneath her palm as the absurd amount of cum kept pouring into her without pause.</p>
+<p>"Mghnn" She moaned, bringing one trembling hand to her belly, feeling it beneath her palm as the absurd amount of cum kept pouring into her without pause.</p>
 <p>Her legs gave way and her knees buckled, but Ethan was there to catch her, a firm arm coiling around her slender waist before she could slip to the floor.</p>
 <p>"Ah..." He sighed, his lips curving into a satisfied smile as he took a few steps back, still holding her pressed firmly against his body.</p>
 <p>He let himself sink onto the golden throne behind him and leaned back against the soft padding, feeling the delightful weight of Arwen’s plump ass settle into his lap.</p>
@@ -24,7 +24,7 @@ chapter = 276
 <p>Ethan’s arms slid under her delicate armpits, gliding upward until his hands reached her huge breasts.</p>
 <p>He squeezed gently, kneading those heavy, full orbs in his palms.</p>
 <p>His fingers could barely encompass a quarter of that vast expanse of soft, divine flesh, which overflowed between his knuckles like warm dough with every slow squeeze, her stiff pink nipples poking out between his fingers.</p>
-<p>"Don’t forget that you promised me those bottles of wine as a wedding gift, fufufu~" Arwen let out a soft giggle, relaxing completely in Ethan’s arms.</p>
+<p>"Don’t forget that you promised me those bottles of wine as a wedding gift, fufufu" Arwen let out a soft giggle, relaxing completely in Ethan’s arms.</p>
 <p>"Hahaha... when we’re officially married, I’ll give you a thousand of them." He leaned forward, turning her face with one hand to make her look at him, sealing her full lips in a sweet, slow kiss.</p>
 <p>Arwen said nothing, simply letting her lips part from his little by little, a thin thread of saliva connecting them for a brief moment before snapping.</p>
 <p>She moved her fingers slightly, and the sacred book resting on the altar levitated into the air, floating gently into both their hands.</p>

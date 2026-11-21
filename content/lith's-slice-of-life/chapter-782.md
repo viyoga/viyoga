@@ -9,7 +9,7 @@ Lith went through the portal and the next thing he saw was a raven-haired girl, 
 
 Lith was amazed by the scene, but before he could react, the girl turned around and the murderous glint in her crimson eyes immediately disappeared upon noticing who it was.
 
-"Darlingggg!~"
+"Darlingggg!"
 
 Alexandra exclaimed in happiness and ran towards Lith, jumping right on him and forgetting the place she was in.
 
@@ -19,7 +19,7 @@ Lith's face was rained with tons of kisses and smiling, he patted Alexandra's ba
 
 Once she stopped kissing, Lith said, "Good job on your training. Come, have a break now."
 
-"Mhm~" Alexandra purred happily in Lith's embrace like a spoiled cat.
+"Mhm" Alexandra purred happily in Lith's embrace like a spoiled cat.
 
 Even though she had improved herself to a considerable degree, the drop in her emotional capabilities was still significant whenever she saw her husband.
 
@@ -33,7 +33,7 @@ Alexandra went to freshen up and change immediately upon arrival and was back in
 
 Unlike most ladies, she didn't take a lot of time to get ready.
 
-"Let's go!~" Alexandra locked her arms around Lith's and said happily.
+"Let's go!" Alexandra locked her arms around Lith's and said happily.
 
 Lith smiled and with her, teleported away.
 

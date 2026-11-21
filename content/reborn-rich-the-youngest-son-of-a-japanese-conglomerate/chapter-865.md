@@ -8,7 +8,7 @@ chapter = 865
 <p>Coming out of the cafe, we drove to a nearby high-end restaurant, parked the car, and were guided to the restaurant.</p>
 <p>No matter how high-end the restaurant, the Swords in the car combined would be worth hundreds of millions of yen, so Naruse Shiyo summoned a Shikigami to guard our car. She handled Shikigami-jutsu quite freely, so I looked at Naruse Shiyo with a surprised Expression and opened my mouth.</p>
 <p>"Your Yin-Yang Arts have improved quite a bit, haven't they?"</p>
-<p>"I really worked hard~! If you only count after becoming a Half-Dragon, I was probably the busiest, you know? At School, I studied, after School, I learned martial arts from Sabu-nim, and when I returned Home, I practiced Yin-Yang Arts.... I barely had any Time to rest."</p>
+<p>"I really worked hard! If you only count after becoming a Half-Dragon, I was probably the busiest, you know? At School, I studied, after School, I learned martial arts from Sabu-nim, and when I returned Home, I practiced Yin-Yang Arts.... I barely had any Time to rest."</p>
 <p>At my Praise, Naruse Shiyo, with an Attitude as if saying, 'Tell me I suffered right now!', began to talk about how hard she had it. Seeing her, I let out a chuckle and stroked Naruse Shiyo's Head. Then, Naruse Shiyo stopped appealing her hard Efforts and began to enjoy my Touch.</p>
 <p>Arriving at the restaurant, we took our reserved Seats and began to enjoy the high-end restaurant's Food. Old man Ichimonji Harugoro and his Disciples seemed quite pleased with the Meal, eating their Food with satisfied Expressions.</p>
 <p>"By the way, should we also lend a Hand in the Anyaji fight?"</p>
@@ -16,7 +16,7 @@ chapter = 865
 <p>With that Size and as a First-rate blacksmith, if he were to equip himself with Items, he could probably face Anyaji's martial artists, but characters specializing in crafting always needed to be cherished and protected.</p>
 <p>If he needlessly participated in battle and was matched with an Anyaji high-ranking member like a Guardian Old Monster and died, I would have to find a new blacksmith for my Swordsmen, so I shook my Head.</p>
 <p>"No. You've contributed enough by making the Swords. We'll be able to win sufficiently with them."</p>
-<p>"That's right, that's right. Master Grandfather, just watch us fight~☆"</p>
+<p>"That's right, that's right. Master Grandfather, just watch us fight☆"</p>
 <p>At my Words that it was fine, Seizawa Shii, who was a Fist Technique practitioner and thus had no particular Obligation to Ichimonji Harugoro, agreed and prevented Ichimonji Harugoro's participation with Words that could sound slightly impolite, telling him to just watch.</p>
 <p>"Hmph...! I can't even show my Skill...!"</p>
 <p>Even at Seizawa Shii's slightly impolite Words, Ichimonji Harugoro laughed playfully and pretended to be angry. Everyone laughed at the sight and continued their enjoyable Mealtime.</p>
@@ -65,6 +65,6 @@ chapter = 865
 <p>Having become much stronger after joining Anyaji, he thought he could Disassemble her Limbs like Toys, no matter how many cyber implants his Opponent had, and became Aroused. It was a Reaction that could be seen from Bernardo, who was becoming increasingly Sadistic and cruel.</p>
 <p>"So be it. Next is...."</p>
 <p>Takakusaki Gengo looked at Bernardo, who was Aroused by himself, nodded his Head, and began to formulate the Operation. All Anyaji personnel, except Takakusaki Athena, did not think at all about a Situation where they might be Defeated. Even the fearsome Fujigasaki Rinka was not a worry, as they had dozens of White Light Fist Technique practitioners.</p>
-<p>Requested by Gojoy-nim: Saionji Diana's casual attire and underwear~!</p>
-<p>Casual Attire~!</p>
-<p>Underwear~!</p>
+<p>Requested by Gojoy-nim: Saionji Diana's casual attire and underwear!</p>
+<p>Casual Attire!</p>
+<p>Underwear!</p>

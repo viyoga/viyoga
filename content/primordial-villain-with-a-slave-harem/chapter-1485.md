@@ -33,7 +33,7 @@ chapter = 1485
 <p>"Exactly. And I am leading it from a balcony with tea in hand." She turned. "I'll take over command."</p>
 <p>The maid studied her queen for a long moment.</p>
 <p>"Does this abrupt decision have anything to do with Quinlan Elysiar?"</p>
-<p>Myrasyn smiled over her shoulder. "First, I don't make abrupt decisions. Second… Who knows~"</p>
+<p>Myrasyn smiled over her shoulder. "First, I don't make abrupt decisions. Second… Who knows"</p>
 <p>Verenthia's sigh could have felled a small tree.</p>
 <p>"Prepare my regalia," Myrasyn said. The playfulness did not leave her voice, but something firmer settled beneath it. "The Archon's Vestments."</p>
 <p>Verenthia paused.</p>

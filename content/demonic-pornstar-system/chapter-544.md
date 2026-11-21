@@ -42,13 +42,13 @@ chapter = 544
 <p>"So arrogant..." Luna cursed cutely, her heart hammering against her ribs.</p>
 <p>"So?" Kaiden prompted. His voice came as a low vibration the girl felt in her bones.</p>
 <p>Luna bit her lip and instantly surrendered, knowing there was no winning against that damned grin of his. "F-fine! I wanted to wear a sexy bikini warrior armor! Happy now?!"</p>
-<p>"Very~" Kaiden purred.</p>
+<p>"Very" Kaiden purred.</p>
 <p>He squeezed her firmly, drawing a sharp moan from her throat, before leaning in and devouring her mouth. The kiss was passionate and demanding, a claim of ownership that Luna met with equal fervor. Within seconds, her initial embarrassment vanished; she wound her arms around his neck and locked her legs around his waist, pulling him as close as the plates would allow.</p>
 <p>After a long, breathless moment, Kaiden pulled back. A visible trail of saliva connected them for a heartbeat before breaking.</p>
 <p>Luna stared at him, her eyes dazed and pupils blown wide with desire. Even without noticing, she was moving her crotch up and down against his rapidly awakening male member.</p>
 <p>While she did that, Kaiden glanced at the others, all of whom were watching with hungry, expectant expressions.</p>
 <p>Kaiden smiled at them sweetly, tenderly, and purred,</p>
-<p>"Let’s test the durability of your armor, my beautiful warrioresses~"</p>
+<p>"Let’s test the durability of your armor, my beautiful warrioresses"</p>
 <p>At once, all the girls felt immense heat gather in their feminine cores. The air in the room seemed to combust as the final shred of restraint snapped like a dry twig.</p>
 <p>Luna was still caught in a daze, but the others didn’t need a second invitation.</p>
 <p>Nyx was the first to move, becoming a blur of pink as she launched herself at his side.</p>

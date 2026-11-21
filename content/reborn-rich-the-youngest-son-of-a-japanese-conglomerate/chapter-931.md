@@ -80,14 +80,14 @@ chapter = 931
 <p>It was quite an intriguing Trait. To increase while ignoring Stat Limits... Does that mean if Seizawa Shii maxes out all her Strength Stats and uses a grappling Skill, her Strength Stat would be 28...? At that level, even a skull made of Mithril could probably be kneaded like clay.</p>
 <p>Although its Grade was very high as a Legacy Grade, considering it was only useful for grappling, it could be said to be quite disappointing for its Grade. However, since Seizawa Shii was also a Fist Technique practitioner, she might be able to utilize it to some extent if she trained grappling Skills. Or, if she grabbed an Opponent with one Hand and attacked with the other, she might be able to perform an Attack with a Strength Stat of 28. Thinking about it this way, she seems incredibly strong, doesn't she?</p>
 <p>To summarize Seizawa Shii's Status Window, she was a Strength-only Character, but her Strength was so immense that she could be called a terrifying Character. Of course, she hadn't yet reached her Strength Limit, but it seemed she would fill the Limit with just 2 more Levels, so her potential seemed about to explode soon.</p>
-<p>Requested by Neosblue-nim: Alik Derby of Original Alik and Alik whose Destiny was changed by Ryuta~!</p>
+<p>Requested by Neosblue-nim: Alik Derby of Original Alik and Alik whose Destiny was changed by Ryuta!</p>
 <p>I'll leave it to your Imagination who is which Alik haha.</p>
-<p>Requested by TheDreaming-nim: 1. Yukiko's Classroom Masturbation 2. Awakened Yukiko showing off her breasts in the Classroom~!</p>
+<p>Requested by TheDreaming-nim: 1. Yukiko's Classroom Masturbation 2. Awakened Yukiko showing off her breasts in the Classroom!</p>
 <p>1.</p>
 <p>2.</p>
 <p>I don't know why the Students in the back are topless haha.</p>
 <p>Requested by Albori-nim: Lisa and Shii washing a car in bikinis!</p>
-<p>Shii first~!</p>
-<p>Lisa-ttang~!</p>
+<p>Shii first!</p>
+<p>Lisa-ttang!</p>
 <p>I installed a new version of the AI drawing program, and it feels like the art style has changed a bit haha.</p>
-<p>Bonus~! Baek Lisa</p>
+<p>Bonus! Baek Lisa</p>

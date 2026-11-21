@@ -21,7 +21,7 @@ chapter = 872
 
 <p>"And little Lingxi hasn’t been causing you any trouble?" he asked, watching the tiny thing clinging tightly to Akane’s breast, nursing as if her life depended on it.</p>
 
-<p>"No." Auranys shook her head. "Well... she’s a handful, but there are so many of us... Rouxi took some time off to cultivate a bit, and we’re taking care of her together... Elize, Isabel, and Celestia are definitely the most enthusiastic, fufufu~"</p>
+<p>"No." Auranys shook her head. "Well... she’s a handful, but there are so many of us... Rouxi took some time off to cultivate a bit, and we’re taking care of her together... Elize, Isabel, and Celestia are definitely the most enthusiastic, fufufu"</p>
 
 <p>Auranys let out a soft chuckle, her eyes sparkling with affection.</p>
 

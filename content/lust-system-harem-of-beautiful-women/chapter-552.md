@@ -1,5 +1,5 @@
 +++
-title = "Chapter 552: Brother In Law~~ [18+]"
+title = "Chapter 552: Brother In Law [18+]"
 weight = 552
 [extra]
 chapter = 552
@@ -95,7 +95,7 @@ chapter = 552
 
 <p>&quot;Brother-in-law can make you feel even better!&quot;</p>
 
-<p>&quot;In a little while~ Mom has to go to work tonight. You can sneak over then, Brother-in-law.&quot;</p>
+<p>&quot;In a little while Mom has to go to work tonight. You can sneak over then, Brother-in-law.&quot;</p>
 
 <p>Avery said this with a face full of tender affection, then giggled, &quot;That pest Bunny isn&#x27;t here today. I want to spend some good time with you too, Brother-in-law.&quot;</p>
 

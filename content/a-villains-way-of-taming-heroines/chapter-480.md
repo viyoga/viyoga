@@ -67,5 +67,5 @@ chapter = 480
 <p>From Power:</p>
 <p>I had intended to burn my midnight oil, updating several chapters ... lol</p>
 <p>However, I realized the next chapter adopts Venna's perspective, observing Ansel's entire taming process depicted thus far. To maintain coherence, I must meticulously align every detail. Therefore, I have to carefully review the narrative, ensuring no errors in this crucial segment...After such preamble, my point is — there will be no mass release xDDDD</p>
-<p>Please do not hate me. The climax awaits~~~</p>
+<p>Please do not hate me. The climax awaits</p>
 <p>Share to your friends</p>

@@ -24,7 +24,7 @@ chapter = 764
 <p>"We can, though. If you want."</p>
 <p>"No." Aria’s response was instant, pleasant, and left zero room for negotiation.</p>
 <p>"Thought so." Rika giggled.</p>
-<p>"Good luck~" They waved in perfect sync. "We’ll be heading to bed ourselves, finally. It’s been a long day."</p>
+<p>"Good luck" They waved in perfect sync. "We’ll be heading to bed ourselves, finally. It’s been a long day."</p>
 <p>Kaiden walked toward the master bedroom with Calypso on his right arm and Bastet on his left, the Valkyries falling into step behind him.</p>
 <p>"Must you announce it like that?" Luna asked from behind him. She dropped her voice to an absurd baritone. "’My belly’s full, now I wanna fuck. Women, follow me and part your legs.’"</p>
 <p>"I didn’t say any of that."</p>

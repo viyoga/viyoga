@@ -20,7 +20,7 @@ chapter = 618
 <p>He exhaled quietly and leaned back in his chair. "Good. Then what brings you here?"</p>
 <p>"Do you find conversing with me so unpleasant, Chairman? Is it my age?" Grace asked with a slight tilt of her head. Her smile suddenly turned icy cold, losing any and all familiarity. "Should I resign? Would you prefer a young, promiscuous woman as your secretary who ’accidentally’ wears a shorter skirt than mandated and keeps ’accidentally’ bending over in compromising positions to ’pick up’ something from the ground?"</p>
 <p>"..." The chairman instantly sighed. "You’re watching those youngsters too much. Your professionalism is becoming questionable."</p>
-<p>"It was you who tasked me with monitoring them, Chairman," Grace smiled deeper. "You told me to monitor ’all’ their content... Maybe they’re better influencers than we gave them credit for~?"</p>
+<p>"It was you who tasked me with monitoring them, Chairman," Grace smiled deeper. "You told me to monitor ’all’ their content... Maybe they’re better influencers than we gave them credit for?"</p>
 <p>"... Enough playing around," the chairman grumbled, knowing full well his secretary was just playing around. The two knew each other long enough for such exchanges to occur, though the man couldn’t help but notice that she had changed slightly since her assignment...</p>
 <p>"Duly noted," Grace met his gaze, and warmth returned to her expression, as if her questions never existed to begin with.</p>
 <p>"Valhalla’s Sinners are shocking the world once again."</p>

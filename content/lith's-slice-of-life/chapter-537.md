@@ -35,7 +35,7 @@ On the call, he explained that he wanted his teacher's image to be preserved no 
 
 Avelyn understood her child's concerns, and finally, when the topic was over, she chirped,
 
-"Don't worry, leave everything to mommy!~"
+"Don't worry, leave everything to mommy!"
 
 "Also, when are you coming home?"
 

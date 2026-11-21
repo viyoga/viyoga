@@ -17,7 +17,7 @@ chapter = 99
 
 <p>Her plump ass sank into his lap as her breasts covered his chest in a soft, warm embrace.</p>
 
-<p>“Are you the heir ghn~~…” Ruxue moaned, the new position making Qingyi’s cock sink even deeper into her pussy. “Of that profane power?”</p>
+<p>“Are you the heir ghn…” Ruxue moaned, the new position making Qingyi’s cock sink even deeper into her pussy. “Of that profane power?”</p>
 
 <p>“What if I am?” Qingyi let his hands fall on Ruxue’s round ass. A wet slap echoed, followed by a soft, muffled squeal.</p>
 
@@ -25,7 +25,7 @@ chapter = 99
 
 <p>Slowly, he lifted her off his lap, his cock sliding from her soaked pussy to almost the tip.</p>
 
-<p>“I won’t- gnhn~~ allow myself to be taken by- ahnn~~” Ruxue’s words died away as Qingyi let go of her ass.</p>
+<p>“I won’t- gnhn allow myself to be taken by- ahnn” Ruxue’s words died away as Qingyi let go of her ass.</p>
 
 <p>Her hips plunged again, lustful moans taking over her breathing as his cock reached the walls of her womb, her ass hitting his lap with a loud clap.</p>
 
@@ -37,7 +37,7 @@ chapter = 99
 
 <p>It wasn’t long before she began to move on her own, first swaying her hips gently, seeking more contact, but soon evolving into an intense ride.</p>
 
-<p>“Aghn~~ ughn~~ mmph~~ you… bastard…” Her nails sank into Qingyi’s shoulders as her body moved at its own accord, lifting her hips before sitting down on his cock with force.</p>
+<p>“Aghn ughn mmph you… bastard…” Her nails sank into Qingyi’s shoulders as her body moved at its own accord, lifting her hips before sitting down on his cock with force.</p>
 
 <p>Her tongue slipped out of her mouth, depraved moans sounding with each wet slap of her ass hitting his lap.</p>
 
@@ -49,7 +49,7 @@ chapter = 99
 
 <p>Wrapping his tongue around her nipples, he sent small, subtle electric shocks. The result wasn’t as intense with Ruxue as with his other women, but it was still enough to intensify her moans.</p>
 
-<p>“Mhm~~ W-what’s happening??” Ruxue shuddered, her pussy twitching around Qingyi’s cock.</p>
+<p>“Mhm W-what’s happening??” Ruxue shuddered, her pussy twitching around Qingyi’s cock.</p>
 
 <p>In the next moment, she felt her body lose its strength completely, her pussy squirting non-stop, an explosion of pleasure taking over and drowning out any thought.</p>
 
@@ -105,7 +105,7 @@ chapter = 99
 
 <p>He gripped her hips tightly and made her get on all fours, his cock sliding into the deep, soft valley between her buttocks.</p>
 
-<p>“Wha- ghn~~” Her words were interrupted as he penetrated her, his hips hitting her ass with a thud.</p>
+<p>“Wha- ghn” Her words were interrupted as he penetrated her, his hips hitting her ass with a thud.</p>
 
 <p>He would fuck her until she passed out from exhaustion, and then he would tame her completely.</p>
 

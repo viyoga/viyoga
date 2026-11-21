@@ -5,7 +5,7 @@ weight = 116
 chapter = 116
 +++
 
-<p>Ring~ Ring~ Ring~</p>
+<p>Ring Ring Ring</p>
 <p>The bell signaling the start of lunch break rang through the school, and the sound of students rushing out of class echoed throughout the hallways. In Jason’s class, the teacher managed to finish her lecture at the exact moment when the bell rang, so the students all got off their seats and rushed to go to lunch. Jason was seated on the left side of the class, staring out the window into the sky, but he was still able to hear the things that a lot of the students were mumbling about him.</p>
 <p>"Did you hear what happened earlier? They say Jason and Jared fought."</p>
 <p>"Really? Wait, does that mean Jason is the new head of the superhuman clique?"</p>
@@ -21,7 +21,7 @@ chapter = 116
 <p>As the students watched the video, some other students were still talking about Jared.</p>
 <p>"Did you hear about him joining that C Rank guild the other day? I heard he was just some sort of errand boy that goes to sell their crystals."</p>
 <p>"I even saw him in the SMD building the other day running errands!"</p>
-<p>"Shh~ he might hear you!"</p>
+<p>"Shh he might hear you!"</p>
 <p>"And? Doesn’t he know that Jason is here? There’s no way he’s going to come here after getting his ass handed to him! And if he touches me, then I’ll sue him for everything he has!"</p>
 <p>"Jared is here!"</p>
 <p>"What!?"</p>

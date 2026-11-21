@@ -7,12 +7,12 @@ chapter = 1028
 
 <p>"How enviable...."</p>
 <p>Sawayanagi Seari muttered, watching Taira Ryuta grab Sawayanagi Azuma and Kurayamada Kirie by their waists and fly up onto a Building with Telekinetic Flight.</p>
-<p>"Seari~! This is no time for that! Vampires are coming this way...!"</p>
+<p>"Seari! This is no time for that! Vampires are coming this way...!"</p>
 <p>Lianna Holden shouted towards Sawayanagi Seari, who was looking up at the Building. It was because she could feel Vampire units approaching from both sides.</p>
 <p>"Ehehehe... I wondered where you ran off to, but you couldn't get any further than this, could you?"</p>
 <p>Vampires in the same military attire as before appeared, smirking nastily. Sawayanagi Seari smiled back at their sneer and replied.</p>
 <p>"No, it's not that we couldn't get any further than this.... It's that we no longer need to run. So we were waiting."</p>
-<p>Huwooong~!</p>
+<p>Huwooong!</p>
 <p>Simultaneously with Sawayanagi Seari's Answer, the Wind began to blow. It was a fierce Wind, strong enough to whip hair if one wasn't wearing a combat helmet. Sawayanagi Seari rode the Wind, kicking off the wall. Then, she leaped over the Vampires' Heads and began to fire.</p>
 <p>Woong! Woong! Woong! Woong!</p>
 <p>Along with the unique Marksmanship sound of the energy firearm, several Vampires fell, their Heads pierced by high-heat energy beams.</p>
@@ -73,18 +73,18 @@ chapter = 1028
 <p>"You don't deserve to hear my name."</p>
 <p>Even though the witch Hertha Vogel introduced herself, Otagi Yuka did not tell her name. And she immediately ran and swung her Sword to sever the witch's neck.</p>
 <p>____________</p>
-<p>Hertha Vogel B-cut~! + Reason for being a little late....</p>
+<p>Hertha Vogel B-cut! + Reason for being a little late....</p>
 <p>I was a little late because I had to suddenly create Hertha Vogel's model by changing the combat order + Google Docs suddenly wasn't working (other internet was fine, but Google Docs just wouldn't connect ㄷㄷ) haha.</p>
 <p>TheDreaming-nim requested 1. Alik holding Alcohol in the Classroom, 2. Alik being interviewed while stuck in the Classroom wall.</p>
 <p>1.</p>
-<p>I didn't realize it when I made it, but when I checked again upon uploading, there was a problem where the gold color faded and the Pussy part was exposed, so I will not accept requests for gold g-strings from now on~!</p>
+<p>I didn't realize it when I made it, but when I checked again upon uploading, there was a problem where the gold color faded and the Pussy part was exposed, so I will not accept requests for gold g-strings from now on!</p>
 <p>2.</p>
 <p>It looks like he's stuck in the Podium, not the wall....ㅎㅎ</p>
-<p>Chomisaemeonji-nim requested Santa, Rudolph Liz~!</p>
-<p>Santa~!</p>
-<p>Rudolph~!</p>
-<p>Gojoy-nim requested Chapter 27: Surprised Yukiko and Han Yu-gyeong delighted to receive Yong-tae's Phone Call after a long time~!</p>
-<p>Yukiko~!</p>
+<p>Chomisaemeonji-nim requested Santa, Rudolph Liz!</p>
+<p>Santa!</p>
+<p>Rudolph!</p>
+<p>Gojoy-nim requested Chapter 27: Surprised Yukiko and Han Yu-gyeong delighted to receive Yong-tae's Phone Call after a long time!</p>
+<p>Yukiko!</p>
 <p>Although described as light attire, I added the setting that even with light attire, she would have worn pajamas or something, since her stepson, an outside man, was coming ㅎㅎ</p>
-<p>Han Yu-gyeong~!</p>
-<p>Kkiyot~!</p>
+<p>Han Yu-gyeong!</p>
+<p>Kkiyot!</p>

@@ -67,7 +67,7 @@ chapter = 1470
 <p>She stepped forward again. Closer now. Close enough that the faint killing intent she perpetually carried brushed against his skin like static.</p>
 <p>Her hand rose, and Quinlan watched its approach.</p>
 <p>Then he closed his fist around the pill and tucked it back into the pouch, which then found its place tossed inside his soul realm.</p>
-<p>"Nope~"</p>
+<p>"Nope"</p>
 <p>Black Fang moved.</p>
 <p>Her body crossed the distance between them faster than most humans could process, centuries of assassin reflexes compressing into a single explosive burst. Had she reacted even half a moment earlier, before the shock of the pill's existence had frozen her instincts, the pouch would've been in her hands before Quinlan's fingers ever reached his soul realm.</p>
 <p>But that half second was all he needed.</p>

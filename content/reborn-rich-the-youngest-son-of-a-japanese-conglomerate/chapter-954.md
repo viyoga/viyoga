@@ -49,13 +49,13 @@ chapter = 954
 <p>Oofuchi Erika declared her Surrender to me, gushing Semen from her Pussy, saying she couldn't take any more.</p>
 <p>When I first visited Daigo Terue's Mansion, we put dinner aside and enjoyed Sex together. Satisfying our Lust was prioritized over a Meal.</p>
 <p>However, because Daigo Terue, who had Sex with me alone at school before, disappeared, saying she was going to prepare dinner to create alone time for her Daughter and me, Oofuchi Erika had to endure my Virility alone. After that, Oofuchi Erika, who had experienced over a dozen Climaxes in a row, declared her Surrender.</p>
-<p>"Come for dinner~♥"</p>
+<p>"Come for dinner♥"</p>
 <p>Daigo Terue, with a vibrant Voice, having received enough Semen from me, announced from the kitchen that the Meal was ready.</p>
-<p>"Just a moment~!"</p>
+<p>"Just a moment!"</p>
 <p>I carried Oofuchi Erika in a Princess carry to the Shower Room, then washed off the vaginal fluid and Semen covering her entire Body. It was quite amusing to see her flinch every time my Touch reached her, but I was hungry, so I did it moderately, wiped her Body, and put her underwear on.</p>
 <p>"I like it when Sensei-nim puts my underwear on meee...♥"</p>
 <p>Oofuchi Erika had fully come to her senses by the time I put her underwear on, so I lightly kissed her forehead, told her to put on the rest of her Clothes, and then I left the Room and headed to the kitchen.</p>
-<p>"I've prepared eel over rice and various other things~!"</p>
+<p>"I've prepared eel over rice and various other things!"</p>
 <p>I sat down in my Seat, wondering if it could truly be called a rice bowl with almost seven eels piled on a small amount of rice. As I waited, sipping pre-meal tea, Oofuchi Erika came out of the Room, apologizing for being late, and sat next to me. For reference, Daigo Terue sat Opposite Side me, gazing at me with a pleased Expression as I ate.</p>
 <p>"I will eat well."</p>
 <p>I picked up my chopsticks and split a piece of well-grilled brown eel flesh to eat. Mmm.... Delicious. It felt like just a few pieces would replenish all the protein I had used today.</p>
@@ -79,12 +79,12 @@ chapter = 954
 <p>To my Question, Urabe Konoka spoke in a tone that didn't seem particularly worried. In fact, there probably wouldn't be much Danger for the two of them. If push came to shove, Lizhael could even descend.</p>
 <p>"Understood. Then I'll see you when you arrive tomorrow."</p>
 <p>As Urabe Konoka said, I thought it was nothing serious and hung up the phone.</p>
-<p>Erika B-cut~!</p>
-<p>Gojoy-nim requested I Yeon-ju Belly Dancer, Tape Appearance~!</p>
-<p>Tape first~!</p>
-<p>Belly Dancer~!</p>
-<p>Hwanbuljeoldaebulga-nim requested Belly button piercing Bikini Lisa, Home Ec Teacher~!</p>
-<p>Lisa first~!</p>
+<p>Erika B-cut!</p>
+<p>Gojoy-nim requested I Yeon-ju Belly Dancer, Tape Appearance!</p>
+<p>Tape first!</p>
+<p>Belly Dancer!</p>
+<p>Hwanbuljeoldaebulga-nim requested Belly button piercing Bikini Lisa, Home Ec Teacher!</p>
+<p>Lisa first!</p>
 <p>Home Ec Teacher</p>
 <p>As expected, being an old model, it doesn't listen well haha. Stretching out the arms seems to have been a difficult Demand haha.</p>
 <p>Neosblue-nim requested Sabu Gaia Crasher</p>

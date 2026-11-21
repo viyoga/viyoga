@@ -77,7 +77,7 @@ chapter = 595
 <p>“Well. I guess I did vow to work together with you to achieve our goals.” This had been one of the parts of her vow and she was determined to follow through it;</p>
 <p>“All for our beautiful future.” He held his hand tenderly and the two of them gazed at each other. Love and affection swam in their gaze. The two of them were not just lovers. They were friends, equals, and companions walking a treacherous path. Their relationship may have been short but they had shared many moments together.</p>
 <p>Slowly the two of them brought their faces forward and even the exuberant Scheherazade covered her face with her hands though, of course, she left a small gap between her fingers.</p>
-<p>But, just as they were about to kiss ~ Crunch ~ The atmosphere was broken as the sound of someone munching reached them.</p>
+<p>But, just as they were about to kiss  Crunch  The atmosphere was broken as the sound of someone munching reached them.</p>
 <p>Sol gave a bitter smile and looked at the person standing further behind Isis. A beautiful silver-haired woman clad in a maid uniform and holding what looked like a bag of chips, looking at them with a clueless expression while she munched on her food.</p>
 <p>“Nuwa.”</p>
 <p>Indeed. This was the small problem he needed to work on. Looking at her blank face, Sol sighed and patted Isis on the head.</p>

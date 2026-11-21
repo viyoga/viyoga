@@ -60,7 +60,7 @@ chapter = 495
 <p>Contrary to Nitta Heijuro's worries, it seemed that Daigo Terue was willing to give up the position of headmaster for her daughter. Nitta Heijuro, who was listening next to her, nodded in satisfaction at her saying okay without a moment's hesitation.</p>
 <p>"I'll take a picture and send it to you. But you'll have to convene the board of directors right away."</p>
 <p>After ending the call, Ishidera Kosuke entered the shrine. Inside the shrine building was Oofuchi Erika, who was tied up.</p>
-<p>"Hehehe, you have a good mother, Erika-yang. Now, smile for the picture. Cheese~!"</p>
+<p>"Hehehe, you have a good mother, Erika-yang. Now, smile for the picture. Cheese!"</p>
 <p>Click!</p>
 <p>Of course, Oofuchi Erika didn't smile just because he said cheese. She was just glaring at Ishidera Kosuke. Ishidera Kosuke transmitted the photo to Daigo Terue as if he didn't care about Oofuchi Erika's expression at all.</p>
 <p>"I'll send you back safe and sound when I become the official headmaster soon, so wait comfortably here."</p>

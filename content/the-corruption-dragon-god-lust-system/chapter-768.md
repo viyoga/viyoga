@@ -13,7 +13,7 @@ chapter = 768
 
 <p>With a sensual smile, she let her breasts drop all at once, the two full, round mounds slamming down against his lap with a loud, wet smack, the pale flesh undulating heavily from the impact as ripples traveled outward in slow, mesmerizing waves.</p>
 
-<p>"Nghnn~~" She moaned, her painted lips enveloping the thick tip of her husband’s cock, her tongue voraciously swirling around the swollen glans, tracing hungry circles over the sensitive skin.</p>
+<p>"Nghnn" She moaned, her painted lips enveloping the thick tip of her husband’s cock, her tongue voraciously swirling around the swollen glans, tracing hungry circles over the sensitive skin.</p>
 
 <p>Her hands, meanwhile, kept her breasts pulsing gently around the base, the flesh undulating against his member.</p>
 
@@ -25,7 +25,7 @@ chapter = 768
 
 <p>She picked up the rhythm of her breasts, using them like two warm, soft masturbators, squeezing her husband’s cock between her pale flesh with growing vigor.</p>
 
-<p>"Ah~" She released Qingyi’s cock for a moment, giving the throbbing glans a slow lick before gently patting the sides of her own breasts, the pale flesh trembling with each light tap.</p>
+<p>"Ah" She released Qingyi’s cock for a moment, giving the throbbing glans a slow lick before gently patting the sides of her own breasts, the pale flesh trembling with each light tap.</p>
 
 <p>"Do you like that, hubby?" she asked with a mischievous smile, pressing her breasts together once more, resuming her movements around Qingyi’s cock with renewed vigor.</p>
 
@@ -43,7 +43,7 @@ chapter = 768
 
 <p>She didn’t bother answering with words, simply sinking her head once more, her lips sliding up and down the tip of his cock while maintaining the relentless grip of her breasts around the base.</p>
 
-<p>"nghnn~~ slup~ ghulk~~ aghnn~~ husband~~ so big~"</p>
+<p>"nghnn slup ghulk aghnn husband so big"</p>
 
 <p>*Pop*</p>
 
@@ -69,7 +69,7 @@ chapter = 768
 
 <p>After six greedy gulps, she finally let herself fall backward, her full ass pressing against the white floor of the ship, the soft flesh wobbling slightly with the gentle impact as she licked her own lips, gathering the last remnants of semen.</p>
 
-<p>"Nghnn~~ ah... fuck~~ hubby filled me up with so much milk, fufufu~" She brought her hand to her stomach, now full of Qingyi’s seed, rubbing it slowly with a satisfied smile.</p>
+<p>"Nghnn ah... fuck hubby filled me up with so much milk, fufufu" She brought her hand to her stomach, now full of Qingyi’s seed, rubbing it slowly with a satisfied smile.</p>
 
 <p>With a sensual movement, she stood up, her heavy breasts swaying lazily with each step, the pale flesh bouncing and resettling with every shift of her hips.</p>
 
@@ -79,13 +79,13 @@ chapter = 768
 
 <p>The struck buttock flattened beneath his hand, marked with the reddish imprint of his palm, the impact sending a powerful shockwave rippling across the entire voluptuous curve, the tremors spreading all the way down to her thick thighs.</p>
 
-<p>"Nghnn~~ Take it easy, you shameless womanizer. Your reward is just beginning." Ruxue smiled over her shoulder, biting her lower lip before pushing Qingyi back against the spaceship commander’s chair.</p>
+<p>"Nghnn Take it easy, you shameless womanizer. Your reward is just beginning." Ruxue smiled over her shoulder, biting her lower lip before pushing Qingyi back against the spaceship commander’s chair.</p>
 
 <p>She turned her back to him and lowered her ass onto his lap, her plump buttocks immediately engulfing his cock in a warm, silky embrace, the soft flesh swallowing his shaft between two round, full pillows that molded perfectly around his member.</p>
 
 <p>She sighed with pleasure, slowly lifting her ass until her puffy, pantyless pussy was perfectly aligned with his cock, her fleshy vulvar lips glistening with arousal as they brushed against the glans.</p>
 
-<p>"Oghmm~~ s-so big~!" Ruxue exclaimed as her ass slowly sank onto Qingyi’s lap, her pussy lips parting to swallow every inch of the thick shaft.</p>
+<p>"Oghmm s-so big!" Ruxue exclaimed as her ass slowly sank onto Qingyi’s lap, her pussy lips parting to swallow every inch of the thick shaft.</p>
 
 <p>The pale, soft flesh struck his lap with a muffled thud, just as his cock reached the depths of her womb, making her shudder from head to toe.</p>
 

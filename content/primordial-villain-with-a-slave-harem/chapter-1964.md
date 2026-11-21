@@ -27,7 +27,7 @@ chapter = 1964
 <p>Seraphiel caught him checking hers and smiled beneath its edge.</p>
 <p>"&gt; &lt;Perhaps I can pretend to be your sex slave again? I much prefer my belly dancer attire to this...&gt;</p>
 <p>"&gt; &lt;Please bear with it for me.&gt;</p>
-<p>"&gt; &lt;Hmm~ I suppose I shall consider it for just a little bit~&gt;</p>
+<p>"&gt; &lt;Hmm I suppose I shall consider it for just a little bit&gt;</p>
 <p>Kitsara muttered with obvious dissatisfaction."&gt; &lt;And you call me slutty? Look at this bitch trying to show off her body to the whole world...&gt; Kitsara muttered with obvious dissatisfaction.</p>
 <p>Seraphiel’s tone lost its purr."&gt; &lt;Oi, foxy.&gt; Seraphiel’s tone lost its purr.</p>
 <p>Kaelira was looking past them at a crane lifting a loaded wagon bodily off a ship. Her hood turned with the swinging load until Seraphiel caught her sleeve before she leaned too far over the rail.</p>
@@ -91,6 +91,6 @@ chapter = 1964
 <p>"They’re leaving Sarthal so readily...?" he muttered, his bafflement carrying through the rumble. "The center of the world?"</p>
 <p>As a prideful dragonkin, he struggled to understand such a concept. His city was the best because it was ruled by dragonkin. The lesser races arriving every day to live beneath their protection only confirmed that belief.</p>
 <p>He had expected resistance, followed by an excuse to comply. The foreigner was leaving with the same easy confidence with which he had approached.</p>
-<p>"Hmm~" The female dragonkin’s interest only grew. This tall, masked man had finally given her something worth watching during a boring guard duty.</p>
+<p>"Hmm" The female dragonkin’s interest only grew. This tall, masked man had finally given her something worth watching during a boring guard duty.</p>
 <p>Quinlan glanced back at the pleased sound. Her lips parted, and a long, dark tongue curled over her upper lip, reaching past the corner of her mouth before slipping between her teeth again.</p>
 <p>She held Quinlan’s gaze through the entire movement as she muttered, "I want to see what’s beneath that armor..."</p>

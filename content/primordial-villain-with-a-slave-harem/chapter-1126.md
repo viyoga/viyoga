@@ -37,7 +37,7 @@ chapter = 1126
 <p>Felicity’s cheeks heated even further, and she shook her head quickly as if to refuse being drawn into it. "I-I’ll wait! Just... when you can." She retreated a step, then another, until she had melted back into the edge of the gathering. There, she clasped her hands behind her back and watched the warriors with bright, sparkly eyes.</p>
 <p>Feng, however, remained firmly planted beside them. She was part of the group, after all.</p>
 <p>Quinlan let the amusement fade from his lips as he swept his gaze over the assembled warriors. "Are we ready?"</p>
-<p>"Looks like it," Vex replied. Her voice was outright sing-song in its brightness. She was positively glowing as her eyes moved toward Raika. "I see you brought backup, Hubby~"</p>
+<p>"Looks like it," Vex replied. Her voice was outright sing-song in its brightness. She was positively glowing as her eyes moved toward Raika. "I see you brought backup, Hubby"</p>
 <p>Quinlan sighed dryly at the gleam in his yandere lover’s eyes, while Raika gave the Hexwitch a showing of her middle finger. Both of them.</p>
 <p>Vex only giggled in response.</p>
 <p>Quinlan, deciding it was time, stepped forward, lifting his hand to summon the portal. The mana gathered smoothly, but then a ripple of gasps broke out.</p>

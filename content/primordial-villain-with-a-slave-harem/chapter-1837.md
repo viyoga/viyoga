@@ -29,7 +29,7 @@ chapter = 1837
 <p>Rosie peeled her hands off the rail, wobbled once with the effort, and looked up at Quinlan with her whole face ablaze in triumph.</p>
 <p>"Rosie’s roots barely managed to reach close enough... She was trying to hurry it up the whole day..." she whispered up at him.</p>
 <p>"...Thank you, Rosie." He reached down and ruffled her curls, and the most feared man on the continent had to take one breath before his voice agreed to stay level. "It’s beautiful."</p>
-<p>"Hehe~!!" she beamed.</p>
+<p>"Hehe!!" she beamed.</p>
 <p>Quinlan took a breath and stepped to the rail.</p>
 <p>The square saw him move and the sound climbed. Then he raised one hand, and the noise cut off so fast the silence rang. Hundreds of thousands of faces stayed upturned in the petal-fall, Myrasyn unmoving on one knee at his side, and his mother’s people waited, from wall to root to canopy, on one man’s answer.</p>
 <p>Quinlan wasn’t big on lengthy speeches, and he did not reach for one now.</p>

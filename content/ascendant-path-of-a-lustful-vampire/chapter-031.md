@@ -29,7 +29,7 @@ chapter = 31
 <p>You’re colleagues, not enemies. I want a clean Spar. Am I clear?"</p>
 <p>"Yes Professor," the two said as one, and with a nod, Raoul stepped away and raised a hand before bringing it straight down as he announced in a clear voice,</p>
 <p>"Begin!"</p>
-<p>~Wispy Feet!~</p>
+<p>Wispy Feet!</p>
 <p>The two wind spell circles appeared at Caius’ feet and he rode them to dash hard to the side just in time to avoid a punch Delia threw to the spot he had been a second ago.</p>
 <p>Caius frowned. Delia had done exactly as he thought she would. She cast a lightning movement spell to boost her speed while drawing her fist back to deliver a powerful blow sure to knock Caius out in a single hit.</p>
 <p>"Running?" Delia asked with a little laugh but didn’t even try to follow up and chase him down. She just pivoted on the spot with one leg on the ground as she raised the other and kicked at his head.</p>
@@ -39,27 +39,27 @@ chapter = 31
 <p>But he had a plan.</p>
 <p>As long as they were allowed to use magic, he still had a shot.</p>
 <p>As his ass hit the ground to a slightly embarrassing thud, he stretched his hand forward knowing Delia was going to follow up on the attack. He had a spell circle already in mind and infused mana into it just in time to bring the spell to life.</p>
-<p>~Fireball!~</p>
+<p>Fireball!</p>
 <p>As far as burst damage went, it was likely Caius’ best and he had planned his cast of the spell so well that it caught Delia in the face right as she was bringing down her foot to stomp him into the ground. At least it should have.</p>
 <p>Alas, Delia was far too quick.</p>
 <p>"I thought you’d try to do that," she said with a knowing smile as she thrust out a fist with a spell circle right in front of it. She had paid enough attention when Caius and Aurelius faced off against her sister so she had seen the spells he used. Which was why she had just the spell to defend against it.</p>
 <p>The spell circle in front of her fist transformed into a cyclone of wind that wrapped around her fist and forearm and she punched the fireball with it.</p>
 <p>The wind protected Delia from the heat of the fireball’s flames and also reacted with the very core of the attack, destabilizing it and causing it to unravel from within before they reacted against each other to implode as one.</p>
 <p>*Boom!!!*</p>
-<p>Caius took the time to roll away just barely avoiding her stomp. He got on one knee and cast ~Wind Scythe~ twice in quick succession in a transparent attempt to keep Delia away from him.</p>
+<p>Caius took the time to roll away just barely avoiding her stomp. He got on one knee and cast Wind Scythe twice in quick succession in a transparent attempt to keep Delia away from him.</p>
 <p>She met each scythe with a grin, and destroyed them with her fists coated with Wind cyclones right before she leaped at Caius with a powerful punch from above targeted at his face.</p>
 <p>When she destroyed the scythes, Caius looked worried and scrambled backward looking cornered but when she leaped, he smiled. Delia caught the smile at the same time he aimed his index finger at her like it was a finger gun.</p>
-<p>~Blindness!~</p>
+<p>Blindness!</p>
 <p>Delia’s eyes widened as the purple veil came at her but there was no defense planned so it struck her and robbed her of her vision.</p>
 <p>’This was it?!’ She asked loudly in her head, ’This was why Cynthia paused?!’</p>
 <p>You see, Delia had paid attention to Caius and Aurelius versus her sister but there was one moment that was strange to her. The moment when Caius was in front of Cynthia, and did something that had the Combat Magic Professor staring blindly.</p>
-<p>Unlike the other flashy spells Caius had used, ~Blindness~ was more subtle. As Delia just discovered herself.</p>
-<p>~Wispy Feet!~</p>
+<p>Unlike the other flashy spells Caius had used, Blindness was more subtle. As Delia just discovered herself.</p>
+<p>Wispy Feet!</p>
 <p>With a boost of wind, Caius moved away because, although temporarily blinded, Delia’s attack was still on track to connect.</p>
 <p>*Bang!*</p>
 <p>Her fist hit the ground instead and there was a crack on the stage’s concrete that caused Caius to burst out in cold sweats at how that could have been his head had he not managed to get away. But he pushed past that. His plan had worked and this was his chance. His one chance.</p>
 <p>Delia had no idea where Caius was and was staring blindly trying to use her ears and senses to detect him and know what he was planning. But it was too late.</p>
-<p>~Circle Of Lightning!~</p>
+<p>Circle Of Lightning!</p>
 <p>The spell circle appeared and then became a ring of lightning that wrapped around Delia’s body before tightening and firing her with powerful jolts of electricity that had her arch her back and look up at the ceiling as she yelled.</p>
 <p>"Arrghhh!!!"</p>
 <p>Caius cringed at how much pain he caused her but some part of him was proud that he had managed to pull it off...</p>

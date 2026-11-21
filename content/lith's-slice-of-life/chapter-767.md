@@ -157,7 +157,7 @@ Alex didn't seem to mind it though. He calmly put away the fire and patted Ruth'
 
 Lith didn't want to interrupt these guys talking so sweetly, but as he entered along with his mother and sister, everyone's gaze fell on him.
 
-"Darling~!"
+"Darling!"
 
 "Little cousin!"
 

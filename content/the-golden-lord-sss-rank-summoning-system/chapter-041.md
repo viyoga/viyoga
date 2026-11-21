@@ -26,7 +26,7 @@ chapter = 41
 <p>Quickening his pace, he returned to the Lord’s mansion.</p>
 <p>It was time to train a little more with Evelyn and sharpen his blades.</p>
 <p>***</p>
-<p>"Nghnn~~"</p>
+<p>"Nghnn"</p>
 <p>Time flew by in Goldenveil, and from Ethan’s room, a soft moan echoed.</p>
 <p>A pair of deep blue eyes opened, taking in the world around them.</p>
 <p>Her voluptuous curves were hidden by a pure white dress, her soft nipples crowning large, heavy breasts revealed as pink patches on her pale skin through the sweat-soaked garments.</p>
@@ -34,7 +34,7 @@ chapter = 41
 <p>Finally, she was done.</p>
 <p>She stood up quickly, running to one of the bedroom windows and gazing out at the garden in the back.</p>
 <p>Evelyn was there, training alone.</p>
-<p>"Hm... that means hubby is all mine, fufufu~~" Alice gave a mischievous little laugh, touching her own face, which was burning red.</p>
+<p>"Hm... that means hubby is all mine, fufufu" Alice gave a mischievous little laugh, touching her own face, which was burning red.</p>
 <p>Her skin was even softer than before, the already nearly nonexistent imperfections completely erased.</p>
 <p>Her power had also increased, but she barely paid it any mind.</p>
 <p>With quick steps, she left the room and sneaked over to Ethan’s office, whose door was ajar.</p>
@@ -58,11 +58,11 @@ chapter = 41
 <p>But now, at least for now, the only thing she wanted was to suck him dry.</p>
 <p>With that huge cock back in her mouth, Alice moved her head in a rapid rhythm, back and forth, letting the shaft almost slip out before swallowing it whole again, gaining speed with every movement.</p>
 <p>On her delicate neck, a long, thick, pulsing bulge emerged with every thrust, making its way down her tight throat.</p>
-<p>"Nghnn~~ *slurp* Aghnn~~" Alice gasped against Ethan’s cock, letting it slip from her lips before grabbing it with her hands, her tongue licking the head as she jerked him off.</p>
+<p>"Nghnn *slurp* Aghnn" Alice gasped against Ethan’s cock, letting it slip from her lips before grabbing it with her hands, her tongue licking the head as she jerked him off.</p>
 <p>She felt Ethan’s strong hands in her golden hair, caressing her gently, her breasts pressed against his knees.</p>
 <p>She looked up, watching the expression on his face.</p>
 <p>He was loving this, wasn’t he?</p>
 <p>Alice got excited, her lips closing into a tight seal that wasn’t broken even when, finally, a thick stream of cum invaded her mouth, hitting the roof of her mouth.</p>
-<p>"Gulp~~ Gulp~~ Ah♡..." She let Ethan’s cock slip out right after the second gulp, a final, thick spurt of cum hitting her face, painting her milky, sweaty skin with the pearly liquid, a few strands trickling down her delicate chin and dripping onto her vast, heavy tits.</p>
+<p>"Gulp Gulp Ah♡..." She let Ethan’s cock slip out right after the second gulp, a final, thick spurt of cum hitting her face, painting her milky, sweaty skin with the pearly liquid, a few strands trickling down her delicate chin and dripping onto her vast, heavy tits.</p>
 <p>Watching the obscene, lewd expression on Alice’s beautiful face, Ethan shook his head.</p>
 <p>’God... how I love this woman...’</p>

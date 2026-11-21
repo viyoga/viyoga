@@ -5,7 +5,7 @@ weight = 22
 chapter = 22
 +++
 
-<p>&quot;Yet you like it? How obscene you are, Mom, to enjoy such a thing~.&quot; Owen was not going to act like a fool anymore... slow burn, my ass!</p>
+<p>&quot;Yet you like it? How obscene you are, Mom, to enjoy such a thing.&quot; Owen was not going to act like a fool anymore... slow burn, my ass!</p>
 
 <p>He simply needed to use his assets to their full capacity and make her fragile defenses crumble... easy as that.</p>
 
@@ -13,7 +13,7 @@ chapter = 22
 
 <p>&quot;Ughnn... I-I don’t... You silly boy.&quot; She shifted her hips, trying to escape the hard rod... but her attempt only made it dig deeper into her trench, as her voluptuous assets trapped it even further when she tried her best to pull away.</p>
 
-<p>&quot;Hoho you say that even while you are embracing the very thing rubbing against your back~? Aren’t you ashamed to lie in front of your son, Mom~?&quot; Owen leaned his chin on her shoulder as he whispered into her ear, turning it completely tomato red... the flush spreading all the way down to her neck.</p>
+<p>&quot;Hoho you say that even while you are embracing the very thing rubbing against your back? Aren’t you ashamed to lie in front of your son, Mom?&quot; Owen leaned his chin on her shoulder as he whispered into her ear, turning it completely tomato red... the flush spreading all the way down to her neck.</p>
 
 <p>She couldn’t utter a single word in rebuttal, because her body was the one begging for it.</p>
 
@@ -23,7 +23,7 @@ chapter = 22
 
 <p>It was a breeding sign... and Owen was doing it directly to his mom!</p>
 
-<p>&quot;You clearly love it, Mom. Why not be honest tonight~?&quot; he whispered again, like a demon coaxing an innocent soul toward his wicked plan.</p>
+<p>&quot;You clearly love it, Mom. Why not be honest tonight?&quot; he whispered again, like a demon coaxing an innocent soul toward his wicked plan.</p>
 
 <p>Ding!</p>
 
@@ -45,7 +45,7 @@ chapter = 22
 
 <p>&quot;Ughnn... it’s almost finished, my dear Owen,&quot; she murmured as she wiped the final plate, intending to escape from the wicked embrace of her boy.</p>
 
-<p>&quot;Is that so? Then that ends it... I guess~?&quot; Owen reached for the last dish and put it away in its proper place.</p>
+<p>&quot;Is that so? Then that ends it... I guess?&quot; Owen reached for the last dish and put it away in its proper place.</p>
 
 <p>&quot;...&quot;</p>
 
@@ -63,7 +63,7 @@ chapter = 22
 
 <p>&quot;Okay... hug me, dear Wen, but only for a few minutes.&quot; Her fragile shield crumbled like snow splattering against a wall hit by a powerful force.</p>
 
-<p>&quot;Then I will gladly take it, Mom~&quot; Owen moved his hands just below her chest, touching her gently.</p>
+<p>&quot;Then I will gladly take it, Mom&quot; Owen moved his hands just below her chest, touching her gently.</p>
 
 <p>&quot;Is your back not hurting, Mom, from carrying these massive tits of yours?&quot;</p>
 
@@ -89,7 +89,7 @@ chapter = 22
 
 <p>&quot;Uggnnn...&quot; She moaned as Owen hit a home run!</p>
 
-<p>&quot;Ohh... look how much your gorgeous body needs a massage, Mom~&quot; He needed to add more fuel to the already blazing fire!</p>
+<p>&quot;Ohh... look how much your gorgeous body needs a massage, Mom&quot; He needed to add more fuel to the already blazing fire!</p>
 
 <p>&quot;Ughnn... okay... okay,&quot; she surrendered. Owen’s touch was just too exquisite... it made her entire body feel incredibly light.</p>
 

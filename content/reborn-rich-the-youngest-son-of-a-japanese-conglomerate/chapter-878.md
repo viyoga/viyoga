@@ -12,9 +12,9 @@ chapter = 878
 <p>This was Hojo Otoji's Note, placed on Takane Kazuhiro's Corpse. From then on, Kinui Tachio began to sharpen the blade of Revenge.</p>
 <p>With the battle against Anyaji, once again entangled in an ill-fated relationship, before him, Kinui Tachio yielded Funayama Seigo to Seizawa Shii to capture Hojo Otoji. After all, Funayama Seigo was merely the Role of a Sword, and the one who wielded that Sword was Hojo Otoji.</p>
 <p>Today was the day to settle the grudge. Hojo Otoji, as if to provoke Anger, attached a Photo of the dead Takane Kazuhiro's Corpse and sent a Duel challenge, and Kinui Tachio had no intention of avoiding that Duel.</p>
-<p>"Sabu~! Are you greeting Senior Brother?"</p>
+<p>"Sabu! Are you greeting Senior Brother?"</p>
 <p>Kujo Kina, wearing a hearty Smile, entered the room with the Buddhist altar where Takane Kazuhiro was enshrined and asked. Then, without waiting for an Answer, she came next to Kinui Tachio, closed her Eyes and pressed her Palms together in prayer.</p>
-<p>"Senior Brother, in this Fight, please watch over Sabu so he doesn't get hurt~!"</p>
+<p>"Senior Brother, in this Fight, please watch over Sabu so he doesn't get hurt!"</p>
 <p>Even though it was a Senior Brother she had never even seen his Face, it was Kujo Kina, boldly pleading for Sabu's protection. Kinui Tachio, looking at such a Kujo Kina, wore a reassuring Expression.</p>
 <p>At first, as the Youngest of the renowned Kujo Family, a chaebol family, he had a Prejudice that she might be arrogant, but she was a hearty and thoughtful Child.</p>
 <p>"Let's go now."</p>
@@ -79,11 +79,11 @@ chapter = 878
 <p>Taira Kanna also stood up from her Seat. To finish this Work cleanly, as Taira Kanna was thinking of receiving abundant Love from her beloved Orabeoni, she prepared thoroughly.</p>
 <p>"Today, the name Anyaji will disappear from the World."</p>
 <p>Taira Kanna muttered quietly, and headed towards the Room where her combat Equipment was.</p>
-<p>Kanna Tea Time B-cut~!</p>
-<p>Requested by Gojoy-nim: Athena's usual attire and underwear~!</p>
-<p>Starting with usual attire~!</p>
-<p>Underwear~!</p>
-<p>Requested by TheDreaming-nim: 1. Cheon Harin in a Forest, Lake outdoor exposure 2. Cheon Harin attacking a person holding a phone camera, in the same background as 1~!</p>
+<p>Kanna Tea Time B-cut!</p>
+<p>Requested by Gojoy-nim: Athena's usual attire and underwear!</p>
+<p>Starting with usual attire!</p>
+<p>Underwear!</p>
+<p>Requested by TheDreaming-nim: 1. Cheon Harin in a Forest, Lake outdoor exposure 2. Cheon Harin attacking a person holding a phone camera, in the same background as 1!</p>
 <p>1.</p>
 <p>2.</p>
 <p>The Last one is a Scene of snatching the phone haha</p>

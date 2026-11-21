@@ -28,7 +28,7 @@ chapter = 637
 <p>,Did you have a good weekend?</p>
 <p>Morning assembly time. I came into the special class classroom with my usual Monday greeting, but Minamoto Lisa and Konoe Akina, who are in charge of this Date Experience Club festival, were sitting there with dark circles under their eyes and looking quite tired.</p>
 <p>The rest were the same as usual, as if nothing had happened. Only Urabe Konoka, who spent time with me over the weekend, was looking at my face with a slightly flushed expression.</p>
-<p>,I'm so tired from running around the printing company to help Lisa-ttang~!</p>
+<p>,I'm so tired from running around the printing company to help Lisa-ttang!</p>
 <p>Seizawa Shii, who seemed to have suffered over the weekend because she was close to Minamoto Lisa, yawned and replied, looking tired. From what I heard, they seemed to have made a lot of adjustments regarding the book size, font shape and size, paper selection, and line spacing. They made several prototypes and scrapped them, so it was definitely understandable that Seizawa Shii was tired.</p>
 <p>Not only that, but they said that residents of Miyashi come to the Seongsan Festival, and there was criticism that my photo cards were too aimed at women, so several people got together and even held a meeting. Minamoto Lisa, who looked like a flashy gyaru, seemed to be very meticulous and thorough in her work.</p>
 <p>,So what did you decide to do to target men?</p>
@@ -46,11 +46,11 @@ chapter = 637
 <p>,Yeah, that's right.</p>
 <p>Hmm.... Will people buy this? I thought, but Minamoto looked very confident. First of all, I have to say that I'll buy my photo card set, but it's a bit much to say it from morning assembly.... I should say it later during the closing ceremony. I felt embarrassed that I was saying I would buy my own photo cards.</p>
 <p>,There are no announcements today, so let's just bear with it for a few days since the festival is coming up soon.</p>
-<p>,I love festivals, Ryuta-jji~! Will you go on a festival date with me?</p>
+<p>,I love festivals, Ryuta-jji! Will you go on a festival date with me?</p>
 <p>Everyone glared at my face at Seizawa Shii's words, so I couldn't answer Seizawa Shii's question right away.</p>
 <p>,.... I can't be biased towards just Seizawa, so I'm thinking of going to one or two stores in different clubs per student.</p>
 <p>The students' sharp gazes are withdrawn at my answer. As expected, if I said I was going on a date with Seizawa Shii, the other students would have made a fuss saying, ,What about me?!. I've been in the special class for a while, so I can avoid it like this in advance. I'm blocking the students from making a fuss in advance.</p>
-<p>,Then I should check in advance what's fun~☆</p>
+<p>,Then I should check in advance what's fun☆</p>
 <p>,Yeah, if you see what's fun in advance, the date will be fun too.</p>
 <p>I answered Seizawa Shii's words absentmindedly, closed the door of the special class, and came out. There was a nurse's office right in front of the special class, and it seemed like Kijimoto Jurie was there because the door was open. Should I say good morning since the door is open?</p>
 <p>,Kijimoto-sensei.</p>

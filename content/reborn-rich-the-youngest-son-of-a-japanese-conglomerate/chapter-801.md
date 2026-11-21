@@ -64,7 +64,7 @@ chapter = 801
 <p>She called me a Pervert, but looking at her subtly shaking her Buttocks, it seemed that this much pain was being treated as pleasure.</p>
 <p>Her pussy also couldn't Lie, so it was wriggling fiercely, conveying to me that she felt good. It was a movement that she was ready to reach her Climax again.</p>
 <p>Of course, if her pussy wriggled like that, I would feel good too, so it was to make the Woman feel good.</p>
-<p>'Haaht! Heueut! Ryutaa~! You, haaht! Now...! Heueung♥ I think I'm going to cum...!'</p>
+<p>'Haaht! Heueut! Ryutaa! You, haaht! Now...! Heueung♥ I think I'm going to cum...!'</p>
 <p>'Hold on a little, I think I'm going to cum soon too.'</p>
 <p>I had also given Minamoto Lisa consecutive Orgasms, and my cock had been heated up as much as it could be, so I was on the verge of exploding. I could feel it rising from my Balls as if Semen would pour out at any Moment.</p>
 <p>Thud! Thud! Thud!</p>
@@ -72,7 +72,7 @@ chapter = 801
 <p>'You, haaht! Semen...! Cum deep inside me...! I took Birth Control Pills in advance, so haaht♥ anytime, haaheung...! It's okay to pour your, heueung♥ extra thick milk inside♥'</p>
 <p>'Keueu...! I'm cumming!!'</p>
 <p>I exploded at the Story that Minamoto Lisa had taken Birth Control Pills in advance for Sex with me. The fact that the usually intellectual Minamoto Lisa had taken Birth Control Pills for Sex with me, only for the pleasure of Creampie, excited me.</p>
-<p>Byuut! Buuut~! Buuuuut!</p>
+<p>Byuut! Buuut! Buuuuut!</p>
 <p>My cock expanded and contracted to its Limit, pouring Semen into Minamoto Lisa's uterus. Minamoto Lisa also reached her Climax when she received my Ejaculation, and she seemed to have reached an enormous Climax, as she couldn't even moan and was just choking and rolling her Eyes.</p>
 <p>Thud...!</p>
 <p>Minamoto Lisa couldn't hold on and collapsed on the Bed, and I hugged Minamoto Lisa from behind and lay down.</p>
@@ -84,5 +84,5 @@ chapter = 801
 <p>'Uhuhu.... As expected, the Body is honest.'</p>
 <p>I moved my Waist again, saying lines like a Incubus aiming for NTL.</p>
 <p>Lisa-ttang Sex Event B-cut!</p>
-<p>Black Gyaru Lisa Sex Scene B-cut~!</p>
+<p>Black Gyaru Lisa Sex Scene B-cut!</p>
 <p>Huu....! It took much longer than I thought because of adding the censor stickers haha.</p>

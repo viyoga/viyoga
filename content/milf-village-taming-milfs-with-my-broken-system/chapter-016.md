@@ -1,5 +1,5 @@
 +++
-title = "Chapter 16: Step A Little Closer... A Dirty Little Secret Between The Two Of Us, Aunt~"
+title = "Chapter 16: Step A Little Closer... A Dirty Little Secret Between The Two Of Us, Aunt"
 weight = 16
 [extra]
 chapter = 16
@@ -45,11 +45,11 @@ chapter = 16
 
 <p>&quot;Fufu... we’ve finally arrived at the center of the village, Little Wen.&quot; Morenne stepped forward, gesturing toward a circular stone well adorned with a classic statue, accompanied by a small ceremonial bell resting beneath a simple, shrine-like roof.</p>
 
-<p>&quot;Hoh... I’m ’Little Wen’ now? I’m literally taller than you, Aunt~&quot; Owen stepped forward, grasping the thin rope and lightly ringing the bell.</p>
+<p>&quot;Hoh... I’m ’Little Wen’ now? I’m literally taller than you, Aunt&quot; Owen stepped forward, grasping the thin rope and lightly ringing the bell.</p>
 
 <p>Clang... clang... clang...</p>
 
-<p>&quot;Fufu, well, that’s what I called you when you were just a cute boy, so bringing it up brings back fond memories. Besides, it’s far too formal to just call you Owen, right~?&quot; Morenne replied smoothly.</p>
+<p>&quot;Fufu, well, that’s what I called you when you were just a cute boy, so bringing it up brings back fond memories. Besides, it’s far too formal to just call you Owen, right?&quot; Morenne replied smoothly.</p>
 
 <p>She was genuinely pleased to come up his old nickname; she had initially used it at the bench simply because she was utterly shocked by how imposing his height had become.</p>
 
@@ -91,13 +91,13 @@ chapter = 16
 
 <p>A busty MILF was willingly walking right into his trap, and he had no intention of letting the opportunity slide, especially since it would significantly boost her affection.</p>
 
-<p>&quot;Fufu... yes, I absolutely want to know. Who knows? Perhaps I can help make it come true~&quot;</p>
+<p>&quot;Fufu... yes, I absolutely want to know. Who knows? Perhaps I can help make it come true&quot;</p>
 
 <p>’Ohh!! You can absolutely help make it come true! You have no earthly idea how desperately I want to lose myself in those busty ass and melon tits Aunt!’ Owen roared triumphantly in his mind.</p>
 
 <p>She practically just needed to spread her legs to him to grant his wish...not strange at all right?</p>
 
-<p>&quot;Then step a little closer... it’s a dirty little secret between the two of us, Aunt~&quot; Owen teased, eager to test her reaction.</p>
+<p>&quot;Then step a little closer... it’s a dirty little secret between the two of us, Aunt&quot; Owen teased, eager to test her reaction.</p>
 
 <p>True to her bold nature, she played along without a shred of hesitation.</p>
 

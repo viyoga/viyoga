@@ -38,13 +38,13 @@ chapter = 100
 <p>The giggle transformed into a full-blown laugh, but Camelia couldn't care about this as she rushed to jump in her bath.</p>
 <p class="scene-break">· · ·</p>
 <p>"So you are saying that Camelia is currently praying and isn't ready to receive me?"</p>
-<p>"Haha~! Yeah."</p>
+<p>"Haha! Yeah."</p>
 <p>Sol asked with an expression full of suspicion and Chloe could only awkwardly laugh. She didn't like to lie, so she used an excuse that was technically the truth.</p>
 <p>After all, even though she wasn't praying, she was indeed doing a ritual.</p>
 <p>"I have never seen Camelia praying."</p>
 <p>Chloe immediately froze.</p>
 <p>This wasn't a joke. In all his life, he had never seen Camelia pray. Even when mass was held, the ones presiding over it were always one of her subordinates.</p>
-<p>"Haha~Haha~Perhaps she does it when she is alone?"</p>
+<p>"HahaHahaPerhaps she does it when she is alone?"</p>
 <p>Sol admitted that it was possible, but with how awkward she was acting, it was clear that it was a lie.</p>
 <p>'Well, it isn't like I can't guess.'</p>
 <p>"Her current appearance is messy right?"</p>

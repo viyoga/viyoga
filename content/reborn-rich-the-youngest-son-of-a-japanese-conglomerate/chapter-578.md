@@ -11,7 +11,7 @@ chapter = 578
 <p>"No- it's not like that, as a daughter, I have to understand when my dad is busy... I'm sorry. Please don't leave again, Daddy...!"</p>
 <p>As I was apologizing for being negligent, Oofuchi Erika's condition was strange. She was calling me "Dad." Her tongue was also incredibly twisted, like she was drunk....</p>
 <p>"Hey, who gave Oofuchi alcohol?"</p>
-<p>"Kya hahaha~☆ Ryuta-jji is so~ funny! Ahahaha!"</p>
+<p>"Kya hahaha☆ Ryuta-jji is so funny! Ahahaha!"</p>
 <p>"Kuul...! Kuuul...!"</p>
 <p>Seizawa Shii was excessively cheerful, and Kujo Kina next to her had already fallen asleep.</p>
 <p>Before apologizing to Oofuchi Erika, I had gone to the bathroom and contacted Ha Ju-yoon to tell her I would be there soon, and it seemed like they had ordered and drank alcohol in the meantime.</p>
@@ -26,7 +26,7 @@ chapter = 578
 <p>"You said we'd go on another date at the net cafe if I got first place at the sports day.... Why aren't you asking me out on a date? I've been waiting.... Sniff...!"</p>
 <p>Ah! That's what it was.... You scared me. I thought my heart was going to drop. Of course, I could make time for Minamoto Risa, who was my target, anytime. It was actually kind of cute that she was still waiting for it.</p>
 <p>"Daddy, are you going on a date with Risa? Erika can do it too. Please don't leave, Daddy...!"</p>
-<p>"Ahahaha! So~ funny~☆"</p>
+<p>"Ahahaha! So funny☆"</p>
 <p>"A father and daughter's sensual struggle..."</p>
 <p>"Sniff...! Sniff...!</p>
 <p>It was a mess. Oofuchi Erika, whose father died early, was calling me "Dad" and begging me not to leave, and Seizawa Shii's cheerful mountain curve was only trending upward. This was almost manic.</p>
@@ -52,16 +52,16 @@ chapter = 578
 <p>-Huhu, they're high school students, so they want to drink alcohol when they come on trips like this. I miss those times....</p>
 <p>"I've had experiences with breaking the rules too, but I was flustered when I actually became a teacher."</p>
 <p>-Hoho, I'm more flustered that Ryuta-gun is a teacher? That pervert is a teacher at a girls' school. Shouldn't I report him to the police?</p>
-<p>"Hey~! If you report me, I'll get arrested."</p>
+<p>"Hey! If you report me, I'll get arrested."</p>
 <p>As I was talking to Ha Ju-yoon while driving, I started to see the apartment where she lived. As expected, this Noona has a charm that makes people feel comfortable.</p>
 <p>"Ah, Noona, I can see your apartment now."</p>
-<p>-Okay~! I'll be waiting, so come up quickly♥</p>
+<p>-Okay! I'll be waiting, so come up quickly♥</p>
 <p>I went to Ha Ju-yoon's apartment and rang the bell, and she opened the door without even checking who it was.</p>
 <p>Since it was opening the door with a smart home system, it wasn't like Han Yu-gyeong was opening the door herself, so I heard the sound of the lock being released and opened the door to go inside.</p>
 <p>"Ryuta-gun, you're here?"</p>
 <p>Ha Ju-yoon greeted me in the living room. Huh? Something's changed? Ha Ju-yoon wasn't wearing her usual light brown hair, but had dyed it platinum blonde and was waiting for me. She was wearing a slightly comfortable-looking dress for indoors.</p>
 <p>"Noona, you changed your hair color?"</p>
-<p>"Yeah~! Surprised? You're the first person to see it besides the hair stylist!"</p>
+<p>"Yeah! Surprised? You're the first person to see it besides the hair stylist!"</p>
 <p>Was this what she meant by surprising me? It was definitely new. Just changing the hair color a little gave a different feeling.</p>
 <p>"It's pretty, Noona."</p>
 <p>"Hmm, Ryuta-gun's reaction is a bit lukewarm?"</p>
@@ -79,10 +79,10 @@ chapter = 578
 <p>"You've been working out hard?"</p>
 <p>"Huhu, I have to do this much to not lose to the young ones."</p>
 <p>"The young ones have to work hard to not be inferior to Noona."</p>
-<p>"Oh, you~!"</p>
+<p>"Oh, you!"</p>
 <p>Ha Ju-yoon seemed to like my words and patted her chest as she leaned in slightly.</p>
 <p>"But why did you change your hair color?"</p>
-<p>"The project asked for a brighter hair color. And since Ryuta-gun was coming, I thought, 'Let's show it to Ryuta-gun~!' So I said I'd surprise you."</p>
+<p>"The project asked for a brighter hair color. And since Ryuta-gun was coming, I thought, 'Let's show it to Ryuta-gun!' So I said I'd surprise you."</p>
 <p>As expected, it was because of the project.</p>
 <p>"You're pretty no matter what hair you have, so it wasn't that surprising."</p>
 <p>"How can you only say such pretty things? You're making Noona excited. I won't let you sleep tonight, so be prepared."</p>
@@ -91,5 +91,5 @@ chapter = 578
 <p>"Don't tell me to spare you, Noona."</p>
 <p>I picked up Ha Ju-yoon and started moving her to the bedroom.</p>
 <p>---------------</p>
-<p>Ha Ju-yoon B-cut~!</p>
+<p>Ha Ju-yoon B-cut!</p>
 <p>Wow.... Ju-yoon-mamang isn't dead yet, haha.</p>

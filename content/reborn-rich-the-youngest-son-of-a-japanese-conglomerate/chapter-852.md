@@ -7,21 +7,21 @@ chapter = 852
 
 <p>are before check erotic illustrations please surroundings your</p>
 <p>Wednesday, today's first counseling was Seizawa Shii.</p>
-<p>"Ryuta-jji~! It's finally my turn, isn't it?"</p>
+<p>"Ryuta-jji! It's finally my turn, isn't it?"</p>
 <p>Seizawa Shii, with her usual lively Attitude, entered the Counseling Room and greeted me. She sat on the Chair opposite me and looked at me, and I couldn't help but Tackle Seizawa Shii.</p>
 <p>"What's with your Attire today?"</p>
 <p>She was clearly in her School Uniform until the Morning Jorye... I couldn't help but be surprised that less than ten minutes after waiting in the Counseling Room, she was wearing a silver Dress that reflected Light wildly like silver Scales. By the way, she changed her Clothes quite quickly. Aren't Women usually a bit slow with this kind of Preparation?</p>
-<p>"Ahahaha~! Of course, I quickly changed to surprise Ryuta-jji~☆"</p>
+<p>"Ahahaha! Of course, I quickly changed to surprise Ryuta-jji☆"</p>
 <p>"Is that so? You're dazzling."</p>
 <p>Of course, it also meant she was dazzling because the Clothes suited her, but the Clothes themselves were so sparkly that they were literally dazzling to the Eyes.</p>
 <p>"Am I really dazzling? Fufu.... Should I come visit tonight wearing these Clothes?"</p>
 <p>"First, let's do the counseling."</p>
 <p>Since the counseling wouldn't be long anyway, there was no need to tell her to change back, so I decided to start the counseling immediately.</p>
 <p>"First, for advancement.... St. Francis Women's University is confirmed.... What's your future hope?"</p>
-<p>"The World's best Fixer~☆"</p>
+<p>"The World's best Fixer☆"</p>
 <p>At my Question, Seizawa Shii answered excitedly, but I couldn't just write down a National Assembly member's Daughter's future hope as is, so I vaguely wrote that she wanted to become the best in her Field. Then I closed the counseling log and looked at Seizawa Shii.</p>
 <p>"First, the counseling is over.... Shii, are you also going to participate in the fight against Anyaji?"</p>
-<p>"Don't ask obvious Questions, Ryuta-jji~! I'm helping Ryuta-jji, but I also have a lot of grievances against those Guys, so I need to teach them a Lesson~!"</p>
+<p>"Don't ask obvious Questions, Ryuta-jji! I'm helping Ryuta-jji, but I also have a lot of grievances against those Guys, so I need to teach them a Lesson!"</p>
 <p>At my Question, Seizawa Shii declared her Will to participate as if it were obvious. Indeed, Seizawa Shii is also entangled with the Anyaji side...</p>
 <p>"Funayama Seigo, that Guy, you have to leave him to me, okay? He tricked me and seduced my broker to make him betray me, so I need to punish him severely...!"</p>
 <p>When Anyaji attacked Yoda Old Man's Dojang, Seizawa Shii, without knowing any better, accepted Anyaji's request and attacked Yoda Old Man. Of course, the request itself was a Trap, and they even cast a mental Jusul on Seizawa Shii, and also seduced Seizawa Shii's broker to make him betray Seizawa Shii, so her grudge would certainly not be small.</p>
@@ -51,11 +51,11 @@ chapter = 852
 <p>"What did you say?"</p>
 <p>At my Words, Seizawa Shii made an Expression as if she didn't know what I was talking about. I looked at Seizawa Shii, a slightly Sly Smile playing on my Lips, and opened my mouth.</p>
 <p>"Come visit tonight wearing those Clothes."</p>
-<p>"Ah... Ryuta-jji, you Pervert~!"</p>
-<p>At my Words, Seizawa Shii screamed, "Pervert~!" and rushed out of the Counseling Room. Calling me a Pervert...! Isn't crossing her Legs in front of me while wearing those Clothes even more perverse?</p>
+<p>"Ah... Ryuta-jji, you Pervert!"</p>
+<p>At my Words, Seizawa Shii screamed, "Pervert!" and rushed out of the Counseling Room. Calling me a Pervert...! Isn't crossing her Legs in front of me while wearing those Clothes even more perverse?</p>
 <p>Deureureuk.</p>
 <p>As I stood there dumbfounded, the door slightly opened, and Seizawa Shii's playful Face peeked in.</p>
-<p>"Ehehe! It was a Prank! I'll come tonight, so wait for me~☆"</p>
+<p>"Ehehe! It was a Prank! I'll come tonight, so wait for me☆"</p>
 <p>Seizawa Shii winked at me and closed the door again. I smiled with an "I knew it" Expression and waited for the next Student.</p>
 <p>After waiting a bit, the door opened, and Urabe Konoka entered the Counseling Room. Urabe Konoka was Lizhael's Shrine Maiden, and since she had decided to do everything with me, there was no need to ask her, like Seizawa Shii, if she would participate in the fight against Anyaji. However, Urabe Konoka's military strength was the Problem. If Lizhael descended, there would be no Problem, but Lizhael said that it was generally not good for a Transcendent to descend and interfere with Worldly affairs. Of course, if her Shrine Maiden Urabe Konoka fell into Danger, she could appear, but she said it was not allowed to deliberately put her in Danger, so I had to plan the Operation carefully.</p>
 <p>"Urabe is quite good at shooting a Bow, so it would be better for her to assist by shooting arrows from the rear rather than direct combat."</p>
@@ -71,9 +71,9 @@ chapter = 852
 <p>I mentally recalled good Bow Producers and assured Urabe Konoka that I would get her a good Bow.</p>
 <p>"Thank you, Teacher-nim!"</p>
 <p>Urabe Konoka seemed simply delighted to receive a Gift from me. She expressed her gratitude with a bright Smile.</p>
-<p>Requested by ISaveI-nim: Jin Mija and Ha Ju-yoon, wearing tank tops and Dolphin Shorts, sitting on a Dining table~!</p>
-<p>Starting with Jin Mija-yeosa~!</p>
-<p>Ha Ju-yoon~!</p>
-<p>Requested by TheDreaming-nim: Kurayamada Kirie kicking while her Breasts are grabbed, and Kurayamada Kirie being Filmed while kicking~!</p>
-<p>Starting with the Breast-grabbed version~!</p>
+<p>Requested by ISaveI-nim: Jin Mija and Ha Ju-yoon, wearing tank tops and Dolphin Shorts, sitting on a Dining table!</p>
+<p>Starting with Jin Mija-yeosa!</p>
+<p>Ha Ju-yoon!</p>
+<p>Requested by TheDreaming-nim: Kurayamada Kirie kicking while her Breasts are grabbed, and Kurayamada Kirie being Filmed while kicking!</p>
+<p>Starting with the Breast-grabbed version!</p>
 <p>Phone Filming</p>

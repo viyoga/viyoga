@@ -10,7 +10,7 @@ chapter = 293
 <p>Of course, that motherly gaze didn't last more than a few seconds before turning into the look of a seductress. Naturally, it must be because of the pleasure she felt from her breasts. I sucked on her areola with my lips while caressing her nipples with my tongue.</p>
 <p>"Haeueung♥ Babies don't suck so lewdly...! Haaheueut!"</p>
 <p>Having already seized the offensive, I reached out and pulled down her fancy lace panties. Perhaps because she was already aroused watching my sex with Ha Ju-yoon, a long, silvery line of wetness stretched between her pussy and panties.</p>
-<p>"Aang~! You're already taking them off?"</p>
+<p>"Aang! You're already taking them off?"</p>
 <p>"You're already excited enough. Let's skip the foreplay."</p>
 <p>I took my mouth off Nae Fitzgerald's nipples and said in response to her question. Since Nae Fitzgerald's excitement level had already hit MAX while I was with Ha Ju-yoon, foreplay would be useless.</p>
 <p>She said she had already loosened her pussy by masturbating, so I could just go straight in. I got up, gave Nae Fitzgerald a light kiss, and quietly asked her in her ear.</p>

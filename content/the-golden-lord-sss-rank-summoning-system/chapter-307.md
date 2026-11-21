@@ -38,7 +38,7 @@ chapter = 307
 <p>He pulled it open and glanced down the hallway, spotting Elena approaching with Ophelia at her side, the two of them chatting animatedly.</p>
 <p>"Darling... can you get all the merchandise ready that I plan to sell to Ron?" he asked, stepping briefly out of the office.</p>
 <p>He leaned down and sealed the black beauty’s lips with a slow, gentle kiss, her enormous tits pillowing against his chest.</p>
-<p>"Hmm... all right, but only because you asked so nicely, fufufu~" Elena smiled elegantly.</p>
+<p>"Hmm... all right, but only because you asked so nicely, fufufu" Elena smiled elegantly.</p>
 <p>Beside her, Ophelia pouted, her full lips curling in mock offense. "Aren’t you forgetting about mine?"</p>
 <p>Naturally, Ethan wouldn’t keep that hot MILF waiting.</p>
 <p>He pressed his lips to hers with the same tenderness, letting his hand glide down along the graceful curve of her back until his palm settled on the ample swell of her rear.</p>

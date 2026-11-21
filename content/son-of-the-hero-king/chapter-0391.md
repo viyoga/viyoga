@@ -7,14 +7,14 @@ chapter = 391
 
 <p>The party was more enjoyable than one might think at first glance. After all, Sol knew very well that not all of them liked each other. Furthermore, with Isis added, there was bound to be some problem.</p>
 <p>At least this was what he thought.</p>
-<p>“Hehehe. You should have seen him. He *whoosh* *Whoosh* *Bam* and he was like *Ahem* Do not worry. I have never felt better. Kyaah~ It was so dreamy!!”</p>
+<p>“Hehehe. You should have seen him. He *whoosh* *Whoosh* *Bam* and he was like *Ahem* Do not worry. I have never felt better. Kyaah It was so dreamy!!”</p>
 <p>A bubbly…Too bubbly voice filled the banquet as all the women listened with smiles on their lips but rapt attention.</p>
 <p>Sheherazade was awake. Her awakening was as sudden as her slumber. There were no special effects or special phenomena. But what he did know was that she was now a Duke.</p>
 <p>A tiny Duke.</p>
 <p>As he anticipated, the feast had been a little calm at first. But the moment Sheherazade appeared, everything changed.</p>
 <p>The little fairy was joy itself. Furthermore, they knew that she posed no threats to them so they were all the more willing to listen to her.</p>
 <p>“So you are telling us, that on their first meeting, she acted like she was someone else without knowing that Sol already noticed her true identity.”</p>
-<p>“Hehehe~! You should have seen her face! She went like *I am not Sheherazade* and Sol was like *I know* Hahaha!”</p>
+<p>“Hehehe! You should have seen her face! She went like *I am not Sheherazade* and Sol was like *I know* Hahaha!”</p>
 <p>“Pfft!”</p>
 <p>“Sheherazade!”</p>
 <p>“What! I am not lying!”</p>

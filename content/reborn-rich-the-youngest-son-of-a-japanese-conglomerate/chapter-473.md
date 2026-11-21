@@ -52,7 +52,7 @@ chapter = 473
 <p>,First of all, the special class has become the best class in the 3rd grade in this exam. Congratulations, Yamashiro-sensei!"</p>
 <p>When it was said that the special class was the best class, all the teachers' eyes gathered. Most of them had expressions that said, "Was it that good?" It was an unbelievable reaction that the special class, which had been so notorious, had higher grades than the other classes in the 3rd grade.</p>
 <p>Clap clap clap clap clap!</p>
-<p>,Amazing~!"</p>
+<p>,Amazing!"</p>
 <p>Ishidera Kosuke clapped and made a fuss in a frivolous and noisy manner. He was an acting headmaster, but his attitude was not something a headmaster should have. What's his ulterior motive?</p>
 <p>,I've heard rumors that Yamashiro-sensei is talented, but I didn't know he could raise the special class's grades to the best in the 3rd grade."</p>
 <p>Ishidera Kosuke is openly praising me. Is he just trying to bring me into the Toyotaka faction? Or does he have other ideas? I don't know.</p>

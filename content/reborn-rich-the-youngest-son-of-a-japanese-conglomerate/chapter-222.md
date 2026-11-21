@@ -70,7 +70,7 @@ chapter = 222
 <p>As I stopped talking in the middle, Mimata Chieri asked back as if curious. I approached her, tucked her long orange hair behind her ear, and whispered softly.</p>
 <p>"Because I want to see Sunbae-nim drunk and disheveled..."</p>
 <p>At my words, her already red face turned even redder, and she started drinking the elixir of power straight from the bottle. She emptied the elixir of power at once, moving her Adam's apple gulping. I don't know what the principle is, but it's said that it rises from 0 to 2 when the alcohol wears off, so I hope it rises by 2 if possible.</p>
-<p>"Iii~ drank it all."</p>
+<p>"Iii drank it all."</p>
 <p>As expected, it seemed very strong because it was alcohol that had been aged for hundreds of years. A very strong alcohol smell came from Mimata Chieri's breath as she approached me and said she had drunk it all.</p>
 <p>Still, there was no way Mimata Chieri, who was strong with alcohol, would get drunk with only 150 milliliters of alcohol, so it seemed like she was pretending to be slightly drunk to excite me.</p>
 <p>"Look at this, because of Hubae-nim... I'm disheveled."</p>

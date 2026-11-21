@@ -63,7 +63,7 @@ chapter = 255
 
 <p>Suddenly, she felt a pair of powerful hands grab her from behind, flowing straight up to her huge tits, squeezing them gently.</p>
 
-<p>“Nghnn~~ Qingyi, you…” Biyue blushed deeply, looking down as her body shuddered.</p>
+<p>“Nghnn Qingyi, you…” Biyue blushed deeply, looking down as her body shuddered.</p>
 
 <p>“What, you didn’t expect your husband to arrive today?”</p>
 

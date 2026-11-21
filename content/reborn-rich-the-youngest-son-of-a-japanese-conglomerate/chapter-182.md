@@ -24,7 +24,7 @@ chapter = 182
 <p>EVE: I see! Since you're using the chat feature, you must be here to provide or purchase information.</p>
 <p>Oh, right. The chat feature with Eve also had a function to earn points by providing information. I remembered it after seeing Eve's message because it was a feature I barely used in the game.</p>
 <p>Ryuta: I want to purchase information.</p>
-<p>EVE: Ryuta-nim, feel free to ask anything you're curious about. I'll tell you as much as I know. Since this is your first time, your first question is free! But please be careful, as each piece of information will cost a minimum of 10,000 points from now on~!</p>
+<p>EVE: Ryuta-nim, feel free to ask anything you're curious about. I'll tell you as much as I know. Since this is your first time, your first question is free! But please be careful, as each piece of information will cost a minimum of 10,000 points from now on!</p>
 <p>Oh! The first one is free? That didn't happen in the game. And seeing that the minimum for questions is 10,000 points, important information must be more expensive. In the game, it was just a flat 10,000 points, so it felt a bit different. Then, instead of asking about Kraskino, I want to ask about something that seems more expensive while it's free....</p>
 <p>Ryuta: Taira Foods and Kurotsukido are in conflict in Akita Prefecture. Why is Kurotsukido targeting Akita Prefecture?</p>
 <p>I didn't understand why Kurotsukido was constantly fighting with the Taira Group, which was vying for the top spot in Japan, so I asked Eve if there was something behind these attacks or what their purpose was.</p>
@@ -50,7 +50,7 @@ chapter = 182
 <p>Entering the building, it looked like an office. Russians and Russian-Koreans stood up and greeted me with looks that said, "Who the hell is this bastard?" I wasn't going to be intimidated by mere thugs from this backwater town, so we glared at each other and stood our ground.</p>
 <p>,What are you doing? He's a guest.,</p>
 <p>At the words of the informant who guided me, the burly men finally sat down. After I paid the informant 70 points, a chubby, slightly dark-skinned Korean man came out from what looked like the boss's office in the innermost part and greeted me. His appearance was incredibly fitting for a slave trader.</p>
-<p>,Oh~! Welcome, guest. I apologize if you were offended. We've had some minor disagreements with the guys in the next neighborhood lately.,</p>
+<p>,Oh! Welcome, guest. I apologize if you were offended. We've had some minor disagreements with the guys in the next neighborhood lately.,</p>
 <p>,It's okay.,</p>
 <p>,I'm glad you're okay! May I ask what kind of 'merchandise' you're looking for?,</p>
 <p>What an incredibly slick guy.</p>
@@ -59,7 +59,7 @@ chapter = 182
 <p>Wasn't Alexandra the only one with abilities? Maybe everyone here with abilities was sold to the Jeil Group, and only Alexandra survived.</p>
 <p>,Follow me. Since Young-cheol said you're a member of the Black Market, we'll skip the separate procedures and guide you right away.,</p>
 <p>Following the slave trader's lead, I followed him into the boss's office and entered a side door in the corner. After passing through the side door, there were two more doors. The slave trader opened the right door.</p>
-<p>,Watch your head~!,</p>
+<p>,Watch your head!,</p>
 <p>Inside the right door was a staircase leading to a basement with a low ceiling, so I had to bend over to go down.</p>
 <p>,This side has the general merchandise. Most of them are people who were dragged here because of debt.,</p>
 <p>Several people sat in a small, shabby room in the basement with iron bars, their eyes vacant. The slave trader said many were dragged here because of debt, but there must be people who were kidnapped as well. I expected this scene, but it was quite unpleasant. I don't know if it's because of sympathy or just the morality I had before the possession, but I couldn't help but feel uncomfortable.</p>

@@ -67,17 +67,17 @@ chapter = 873
 <p>"Kukuku, you're saying you succeeded even without proof, right? Understood. You may go now."</p>
 <p>Taira Danjo waved his Hand, issuing an Order to depart. Still, seeing that I didn't feel bad, I began to have Expectations for the Reward I would receive at the Tairaga Group Grand Meeting. When I first intended to have a Showdown with Grandfather Taira Danjo, I thought it would be fine even if I didn't receive a Reward.</p>
 <p>Now that I had reached a Showdown with the old man Taira Danjo today, only one Work remained. Since I still had to have a Showdown with Anyaji tomorrow, I thought it would be better to finish all the Work tomorrow and then rejoice, rather than celebrating now.</p>
-<p>Requested by Hwanbuljeoldaebulga-nim: Courtesan Home Teacher Lisa~!</p>
-<p>Home Teacher~!</p>
-<p>Requested by Albori-nim: Sakagami Rena in a net Ninja suit~!</p>
-<p>Requested by Gojoy-nim: Taira Kanna breast-covering, belly dancer~!</p>
-<p>Breast-covering~!</p>
+<p>Requested by Hwanbuljeoldaebulga-nim: Courtesan Home Teacher Lisa!</p>
+<p>Home Teacher!</p>
+<p>Requested by Albori-nim: Sakagami Rena in a net Ninja suit!</p>
+<p>Requested by Gojoy-nim: Taira Kanna breast-covering, belly dancer!</p>
+<p>Breast-covering!</p>
 <p>Belly dancer</p>
-<p>Requested by ISaveI-nim: Bōsōzoku Yuka and Shii with baseball bats~!</p>
-<p>Starting with Yuka~!</p>
-<p>Shii~!</p>
+<p>Requested by ISaveI-nim: Bōsōzoku Yuka and Shii with baseball bats!</p>
+<p>Starting with Yuka!</p>
+<p>Shii!</p>
 <p>Truly a terrifying Duo...!</p>
-<p>Requested by TheDreaming-nim: Rainy street 1. Matsunaga Yuzuki running in a Reverse Bunny outfit 2. Matsunaga Yuzuki in an alley in a Reverse Bunny outfit~!</p>
+<p>Requested by TheDreaming-nim: Rainy street 1. Matsunaga Yuzuki running in a Reverse Bunny outfit 2. Matsunaga Yuzuki in an alley in a Reverse Bunny outfit!</p>
 <p>1.</p>
 <p>2.</p>
 <p>Kkiyot!</p>

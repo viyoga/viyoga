@@ -11,13 +11,13 @@ chapter = 627
 <p>Parents and teachers could control the entry of horny men they were worried about, and the students could have fun with their friends in their own way, so it was a win-win for everyone. Of course, it might be a bit of a boring party for rebellious students who wanted to go off the rails, but there was no helping it.</p>
 <p>"Did everyone prepare their costumes?"</p>
 <p>During the after-school meeting. I looked around at the students who were still wearing their school uniforms and asked, some nodded, and some shook their heads, probably planning to go home and put on their costumes.</p>
-<p>"Ryuta-jji~!! What kind of costume did Ryuta-jji prepare?"</p>
+<p>"Ryuta-jji!! What kind of costume did Ryuta-jji prepare?"</p>
 <p>Seizawa Shii asked, seemingly curious.</p>
 <p>"Me? It's a classic manga costume.... It's no fun if I tell you now. Check it out later."</p>
 <p>Actually, I didn't know any anime from the 1950s, so I couldn't do an anime that the students would know. The only anime I knew was from the Possession War era, so I guess I'll have to do that.</p>
 <p>From today's perspective, it's a classic manga, so there's no choice but to go with a classic. Minamoto Risa, upon hearing my words, looked at me with a slightly expectant expression. Since we went to a net cafe together, she seemed to be looking forward to what I would cosplay as.</p>
 <p>"The Halloween event starts at 6 o'clock, so either do club activities at the academy for a bit and then participate, or those who left their costumes at home can go home and get them."</p>
-<p>"Yes~!"</p>
+<p>"Yes!"</p>
 <p>"Got it, Ryuta-jji!"</p>
 <p>Since all the school schedules were finished, it seemed like it would be perfect to study for my certification for a bit and then get ready. After the after-school meeting, I started studying for the PMC certification in the education preparation room.</p>
 <p>The light shining from outside the window had already turned orange, and when I checked the time, it was five thirty-something. Hmm, it's about time to change clothes. I took out the costume I had prepared.</p>
@@ -42,7 +42,7 @@ chapter = 627
 <p>"Alik is cute, the best!"</p>
 <p>"Eung...!"</p>
 <p>When I stroked Alik's bear head and praised her, Alik showed a faint smile and was happy.</p>
-<p>"Me too! Please look at me~!"</p>
+<p>"Me too! Please look at me!"</p>
 <p>"Me too!"</p>
 <p>The special class students, after I praised Alik, were all asking me to look at their cosplays.</p>
 <p>"I'll look at you one by one, so stay still."</p>
@@ -76,16 +76,16 @@ chapter = 627
 <p>"Wait! Ryuta-jji, there are still kids whose cosplays you haven't looked at! Especially me!"</p>
 <p>Just as I was about to say let's have fun, Seizawa Shii jumped up. Because she jumped up, her chest could be seen bouncing. Hmm, nice.</p>
 <p>"No, you have too much exposure, so I saw you as soon as you came in. If I were your dad, I would have spanked your butt."</p>
-<p>"Kyaaak~! Spanked my butt! Ryuta-jji, pervert~!!"</p>
+<p>"Kyaaak! Spanked my butt! Ryuta-jji, pervert!!"</p>
 <p>Seizawa Shii, covering her chest with both arms, shouted pervert at me. She was looking at me with a mischievous smile, as if she was teasing me.</p>
 <p>"Okay, okay. It suits you, so sit down."</p>
 <p>"You said it suits me?!"</p>
 <p>Seizawa Shii became quiet at my words that it suited her. Why are these kids like this? Could it be that the special class kids made a bet on my compliments?</p>
 <p>"Could it be that everyone made a bet on whether they would receive my compliments or not?"</p>
-<p>"Eii~! No. Everyone just wants Ryuta-jji to compliment their cosplay."</p>
+<p>"Eii! No. Everyone just wants Ryuta-jji to compliment their cosplay."</p>
 <p>Seizawa Shii shook her head as if to say no to my words. Hmm.... Is that so? Everyone's eyes were sparkling as if they wanted to receive compliments, so I thought they made some kind of bet.</p>
 <p>"Since we're going to hang out together today anyway, I'll compliment the kids I haven't complimented yet in between, so let's go out for now. First, gather in front of the special class building."</p>
-<p>"Yes~!"</p>
+<p>"Yes!"</p>
 <p>Complimenting the cosplays can be done while walking around outside, so when I told everyone to go out for now, everyone said yes and went out of the classroom. The only one left was Minamoto Risa.</p>
 <p>"Aren't you going out?"</p>
 <p>"Eung, to show you my cosplay...."</p>

@@ -209,7 +209,7 @@ Lith, the annoying silver-haired man in question, said with a chuckle, "I'm here
 
 "WHAT THE fuck DID YOU—"
 
-"Hehehe~"
+"Hehehe"
 
 Lith flung his arm around her and without letting her struggle or finish her sentence, vanished from his spot.
 

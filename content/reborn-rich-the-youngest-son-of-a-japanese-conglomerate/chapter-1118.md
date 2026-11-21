@@ -69,7 +69,7 @@ chapter = 1118
 <p>"She's my paternal Granddaughter. She took her Nampyeon's surname. Her Nampyeon was also part of the Legal Team under the Liege, but he was Assassinated after that Incident. He was in charge of the Lawsuit against Taira Ichiro's side, and after the Liege died, Ichiro's side used the easiest Method. They eliminated the Person in charge of the Lawsuit...."</p>
 <p>Ah, I thought she was a maternal Granddaughter, but she was a widow. I brought it up unnecessarily, and the Atmosphere became a bit awkward.</p>
 <p>_____________</p>
-<p>Aizawa Sora Production Story~!</p>
+<p>Aizawa Sora Production Story!</p>
 <p>About 80% complete from the start haha. But the hair color + eye color lacked individuality, so I changed it.</p>
 <p>Beige hair looks good? Can I change only the ponytail color? So I tried.</p>
 <p>Oh! So I decided to change only the eye color here....</p>
@@ -77,7 +77,7 @@ chapter = 1118
 <p>TheDreaming-nim requested 1. Herta Vogel Breast Milk Ejection 2. Shinonome Mio Leash</p>
 <p>1.</p>
 <p>2.</p>
-<p>ISaveI-nim requested Succubus Jin Mijayeosa~!</p>
-<p>Gojoy-nim requested Chapter 65 Jin Mijayeosa on the phone, Suzuki Chisami getting annoyed at the protagonist~!</p>
-<p>Jin Mijayeosa~!</p>
-<p>Suzuki Chisami~!</p>
+<p>ISaveI-nim requested Succubus Jin Mijayeosa!</p>
+<p>Gojoy-nim requested Chapter 65 Jin Mijayeosa on the phone, Suzuki Chisami getting annoyed at the protagonist!</p>
+<p>Jin Mijayeosa!</p>
+<p>Suzuki Chisami!</p>

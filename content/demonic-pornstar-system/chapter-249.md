@@ -69,5 +69,5 @@ chapter = 249
 <p>She didn’t even know why, but her instincts roared.</p>
 <p>That wasn’t normal unity, not simple teammates being on the same page. To the Ra-Blessed Felinid, it felt like a pack was speaking in a single voice.</p>
 <p>A slow, delighted grin curled on her lips.</p>
-<p>"Hmmm~" she purred and returned to her meal, seeing that everything was okay.</p>
+<p>"Hmmm" she purred and returned to her meal, seeing that everything was okay.</p>
 <p>Talia found the situation significantly less amusing.</p>

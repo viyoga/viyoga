@@ -30,7 +30,7 @@ chapter = 18
 <p>Currently, in the shades of his room, he was pressing a woman down onto a chiffon-veiled bed.</p>
 <p>He grabbed her fair white neck from behind and pulled it up, enjoying the grimace of pain flashing on her beautiful face. His grunts and her moans intertwined together in a harsh melody as he lost himself in the bliss her lithful body enacted on his senses.</p>
 <p>“My... my lord, please, please forgive me…”</p>
-<p>“Hmph~! Is this all the famed blue wolf can do? I’m sure you can make better sounds than that. Moan for me, bitch.”</p>
+<p>“Hmph! Is this all the famed blue wolf can do? I’m sure you can make better sounds than that. Moan for me, bitch.”</p>
 <p>However, as he looked down on the wolf girl whose body was already twitching as she passed out, Leonard slapped her buttocks with a “Hmph!” and dumped her onto the bed like a used toy.</p>
 <p>The white-skinned woman rolled off the bed like a broken doll. The impact returned her to consciousness, and her body shuddered in disgust and pain from the previous torture enacted on her fair body by Leonard.</p>
 <p>Her hair was as blue as the oceanic sea, and two fur-trimmed ears stuck out from either sides of her head. However, her flawless white body was now marred with bruises, bite marks, and many other signs of wanton violence.</p>
@@ -50,7 +50,7 @@ chapter = 18
 <p>"*Sigh* I get it, I get it. Enough of your yapping, they are ruining my mood. Speaking of which, Why did you come here today? Peeping? Or do you want her despite your age? That’s fine too. She might be a bit dirty now, but she’s pretty when she’s cleaned up.”</p>
 <p>After Leonard was dressed, his attendants left the room. Now only he and his butler were left in the silent confines of the room.</p>
 <p>"I am afraid I will have to decline. My old body isn't what it was anymore," while speaking so, he bowed and presented a letter sealed with the insignia of the royal family. "We received this letter just now, it's an invitation to participate at the ceremony in the colosseum."</p>
-<p>"Kekeke~! That sissy bitch living in a golden prison is finally showing himself? Who would have thought."</p>
+<p>"Kekeke! That sissy bitch living in a golden prison is finally showing himself? Who would have thought."</p>
 <p>Leonard smiled derisively and took the letter from the old butler's hands. Malevolence shone with an eerie display in his eyes filled with malice.</p>
 <p>"So he finally reached that age, huh. I guess it was about time. Are the preparations ready?"</p>
 <p>"Indeed."</p>

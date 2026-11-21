@@ -13,11 +13,11 @@ chapter = 747
 <p>Yamashiro Ryuta was wearing a men's Kimono. He looked so good in it that Seizawa Shii and Minamoto Lisa stared at Yamashiro Ryuta silently for a while.</p>
 <p>"Oh, you both look pretty?"</p>
 <p>Minamoto Lisa, wearing a navy blue Furisode made of high-quality silk, and Seizawa Shii, wearing a bright Furisode embroidered with floral patterns in contrast, blushed shyly as if feeling good at Yamashiro Ryuta's light compliment.</p>
-<p>"Tch~! Are you just trying to make up for being late with words?"</p>
+<p>"Tch! Are you just trying to make up for being late with words?"</p>
 <p>"That's right, why are you late?"</p>
 <p>"Actually, I'm not late...."</p>
 <p>In fact, Yamashiro Ryuta had arrived right on time, so he wore an aggrieved expression, but due to Seizawa Shii and Minamoto Lisa's joint unreasonable attack, he had no choice but to say that he would pay for the next schedule, lunch.</p>
-<p>"Let's go quickly~! If we line up quickly, we can worship quickly too~☆"</p>
+<p>"Let's go quickly! If we line up quickly, we can worship quickly too☆"</p>
 <p>"Still, it's a relief that not many people come all the way to Miyashi, so the lines at this shrine aren't too long."</p>
 <p>Urabe Shrine in Miyashi, which enshrines Susanoo, was a kind of branch, so it was not a historic shrine. In addition, there were many famous shrines near Mount Fuji, so Urabe Miyashi Shrine was not very crowded.</p>
 <p>"Okay, let's line up."</p>
@@ -26,10 +26,10 @@ chapter = 747
 <p>"Huh? Why rock-paper-scissors?"</p>
 <p>"Just do it."</p>
 <p>At Yamashiro Ryuta's incomprehensible words, the two played rock-paper-scissors. Naturally, Seizawa Shii, who had excellent physical abilities, won the rock-paper-scissors game.</p>
-<p>"Hehet! Victory~☆"</p>
+<p>"Hehet! Victory☆"</p>
 <p>"Really? Then...."</p>
-<p>At Seizawa Shii's declaration of victory, Yamashiro Ryuta grabbed Seizawa Shii's hands and rubbed them, blowing on them with a ha~ha~.</p>
-<p>"Aish~ what are you doing~♥"</p>
+<p>At Seizawa Shii's declaration of victory, Yamashiro Ryuta grabbed Seizawa Shii's hands and rubbed them, blowing on them with a haha.</p>
+<p>"Aish what are you doing♥"</p>
 <p>Seizawa Shii was saying what are you doing for no reason while feeling good. Yamashiro Ryuta smiled at Seizawa Shii.</p>
 <p>"Just now, both of your hands were cold when I grabbed them. Now it's Lisa's turn."</p>
 <p>"Weren't you not going to do it because I lost at rock-paper-scissors?"</p>
@@ -38,19 +38,19 @@ chapter = 747
 <p>Minamoto Lisa put on a sulky expression and held out her hand as if asking her partner to dance at a noble dance party.</p>
 <p>Yamashiro Ryuta smiled as if he found it interesting when he saw that. He was laughing at the fact that she only held out one hand as if asking for a dance, even though he clearly said he would warm her hands.</p>
 <p>"Puhahat! You have to give me both hands."</p>
-<p>"Ahhh, Lisa-ttan isn't dancing, Ryuta-tchi is warming me up~!"</p>
+<p>"Ahhh, Lisa-ttan isn't dancing, Ryuta-tchi is warming me up!"</p>
 <p>"I, I was just joking."</p>
 <p>Seizawa Shii laughed from behind, and Yamashiro Ryuta grabbed Minamoto Lisa's hands and blew hot air on them while saying hu hu. She was embarrassed by her actions until just now, but as Yamashiro Ryuta warmed her hands, she felt like her heart was warming up as well.</p>
 <p>While Yamashiro Ryuta, Minamoto Lisa, and Seizawa Shii were being lovey-dovey while standing in line, the line had shortened and they arrived in front of the offertory box.</p>
-<p>"Let's worship at the same time~☆"</p>
+<p>"Let's worship at the same time☆"</p>
 <p>"Shall we?"</p>
 <p>"Yeah."</p>
 <p>The three of them went to the front of the offertory box, put in coins, rang the bell, clapped twice, and put their hands together. Then, they vacated their seats for the next worshippers.</p>
 <p>"Did everyone make a good New Year's wish?"</p>
-<p>"Yeah~! I made a good wish!"</p>
+<p>"Yeah! I made a good wish!"</p>
 <p>"I made one too."</p>
 <p>Naturally, if they said they made a wish, they would be curious about the contents of each other's wishes. As they walked towards the food stall set up in one corner of the shrine, the three of them looked at each other and realized that they had the same thoughts, and they all laughed together.</p>
-<p>"Pahat~☆ We're all thinking the same thing right now, aren't we?"</p>
+<p>"Pahat☆ We're all thinking the same thing right now, aren't we?"</p>
 <p>"Let's just tell each other what we wished for."</p>
 <p>"Shall we?"</p>
 <p>Before going to the food stall, the three of them stood in place and decided to tell each other what they had wished for. This time, they decided the order with rock-paper-scissors, and as expected, Minamoto Lisa was first, then Seizawa Shii, and finally Yamashiro Ryuta.</p>
@@ -78,7 +78,7 @@ chapter = 747
 <p>Linling was thinking about her master. A savior who rescued her from a place where there was only darkness for over ten years, a transcendent being who transcended human abilities.... That was Linling's master, Jin Yongtae-nim.</p>
 <p>Linling, who was lying down, led her small body and began to wander around the TG Tech Lab. The researchers were watching her with happy expressions.</p>
 <p>Linling had already become the mascot of the TG Tech Research Institute. All the researchers liked Linling, who was smart and cute.</p>
-<p>"Linling~! Where are you going today?"</p>
+<p>"Linling! Where are you going today?"</p>
 <p>"I'm going to see Eve."</p>
 <p>When one of the researchers asked, Linling answered with a blank expression. Still, because it was the cute Linling, the researcher wore a motherly smile.</p>
 <p>"Ah, I sent some data to Eve-nim, so please ask if she has checked it."</p>
@@ -91,7 +91,7 @@ chapter = 747
 <p>"Ah, that data? I just checked it and sent a reply email to researcher Lee Soyeon."</p>
 <p>Eve, with her tremendous data processing speed, checked the data of the researcher Linling mentioned.</p>
 <p>"Then I'll tell you my business."</p>
-<p>"Yes, Linling~! Anything."</p>
+<p>"Yes, Linling! Anything."</p>
 <p>"Is Jin Yongtae master doing well?"</p>
 <p>Eve was silent for a moment at Linling's question. It was because of one piece of information that came in today. That Jin Yongtae may have been kidnapped. She wondered if she should tell Linling this, but Eve decided to be honest.</p>
 <p>"Linling.... Actually...."</p>
@@ -105,7 +105,7 @@ chapter = 747
 <p>____________________</p>
 <p>New Year's visit to the shrine Lisa-ttan!</p>
 <p>Furisode Seizawa Shii!</p>
-<p>Shii Gyaru Peace~!</p>
+<p>Shii Gyaru Peace!</p>
 <p>I made it with a new model, so the Furisode fur collar came out fluffy and nice, hehe. I'm satisfied, hehe.</p>
 <p>Linling before anger</p>
-<p>Angry Linling~!</p>
+<p>Angry Linling!</p>

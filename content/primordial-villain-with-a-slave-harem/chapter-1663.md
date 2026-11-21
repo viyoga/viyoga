@@ -46,8 +46,8 @@ chapter = 1663
 <p>"Master's mark belongs above Blossom's womb because that is where Master's babies will grow!" Blossom added at the same volume and conviction.</p>
 <p>A beat of dry silence held the courtyard.</p>
 <p>Then a foxkin giggle sliced through the moss.</p>
-<p>"Kinky~" Kitsara purred, all three tails curling with delight. "I love it~"</p>
-<p>Lucille sighed warmly from Quinlan's side. "I'm game~"</p>
+<p>"Kinky" Kitsara purred, all three tails curling with delight. "I love it"</p>
+<p>Lucille sighed warmly from Quinlan's side. "I'm game"</p>
 <p>Serika laughed. "Sure, why not?"</p>
 <p>"...Let's do it, girls!" Sera cheered energetically from beneath her mother, and Sylvaris, whose glow was still hovering patiently at her collarbones, declined to comment.</p>
 <p>Kaelira's pointed ears went very pink. The light on her skin was already drifting south. "O-okay..."</p>

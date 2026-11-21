@@ -13,7 +13,7 @@ chapter = 927
 <p>"I, I also worked hard for Ryuta-nim!"</p>
 <p>As I wore a deeply moved Expression, Konoe Akina also, as if not to be outdone, raised her hand and said. In fact, Konoe Akina had indeed worked hard. She wasn't just any Young Lady, but the length of a Family, and going to the Family Security/Guard to receive combat Training was not an easy task.</p>
 <p>"Konoe, Alik, Diana, and Yuka, thank you all."</p>
-<p>I conveyed my gratitude to those in the vehicle who worked hard for me. Saionji Diana said, "It's something I naturally have to do," and seemed a little burdened, while Otagi Yuka said, "Why say such things~!" and wiped her nose with her Index Finger.</p>
+<p>I conveyed my gratitude to those in the vehicle who worked hard for me. Saionji Diana said, "It's something I naturally have to do," and seemed a little burdened, while Otagi Yuka said, "Why say such things!" and wiped her nose with her Index Finger.</p>
 <p>As we exchanged pleasant greetings and thanked each other, before I knew it, we arrived at the Joseodang Safe House, which I had visited several times.</p>
 <p>Although it looked like an ordinary office, inside, Joseodang agents carrying Guns were walking around, and Strong People like Asada Ei, Sakagami Rena, and Naruse Shiyo were moving about, so it could be called a Den of iniquity.</p>
 <p>"How do you do?"</p>
@@ -22,17 +22,17 @@ chapter = 927
 <p>"Ah, Ryuta-nim...! You've arrived."</p>
 <p>As I entered the conference room, Asada Ei looked at me and bowed her Head. And Sakagami Rena and Naruse Shiyo, who had arrived earlier as Joseodang executives, also stood up from their seats and welcomed me.</p>
 <p>"Liege/Master...!"</p>
-<p>"Teacher~!"</p>
-<p>"Ryuta-cchii~!!"</p>
+<p>"Teacher!"</p>
+<p>"Ryuta-cchii!!"</p>
 <p>The people waiting in the conference room were only the three Joseodang executives and Seizawa Shii. Those who could attend the meeting were either recuperating in hospital rooms, or some, like the Yoda old man, were in a distant alliance-like Relationship and couldn't be called my subordinates, so I didn't call them. Konoe Akina and Seizawa Shii also couldn't be called my subordinates, but they were close allies with whom I would work on various matters in the future, and they were curious about the aftermath of this incident, so they participated in this meeting. Still, today's meeting wasn't about making grand new plans, but rather about dealing with yesterday's aftermath, so not everyone's participation was necessary.</p>
-<p>"Alik~! Did something interesting happen?"</p>
+<p>"Alik! Did something interesting happen?"</p>
 <p>As if recognizing Alik's slightly flushed Expression, Seizawa Shii stretched Alik's cheek, which was like a glutinous rice cake, and asked, whereupon Alik nodded his Head.</p>
 <p>"Alik, became strong...!"</p>
 <p>"Huh? What do you mean?"</p>
 <p>"Ryuta checked Alik's Abilities."</p>
 <p>Seizawa Shii, who didn't know the Ability of my Glasses from the Ruins, wondered what he meant and kept tilting her Head at Alik's Words.</p>
 <p>"I have the Ability to quantify and see the Opponent's Abilities."</p>
-<p>"Ah~! It's like a game Status Window?! Ryuta-cchii!! Why didn't you check mine?!"</p>
+<p>"Ah! It's like a game Status Window?! Ryuta-cchii!! Why didn't you check mine?!"</p>
 <p>"After the meeting, I was going to check everyone's."</p>
 <p>I was curious about Seizawa Shii's Abilities. With a Woman's Body, she possessed Super Strength. When she came out of the Coin Laundry and had Sex, she had devastated the surroundings, so her power, stamina, and recovery seemed extraordinary. Still, I came here for a meeting, so I can check after the meeting.</p>
 <p>"Are you going to check mine too?"</p>
@@ -66,8 +66,8 @@ chapter = 927
 <p>I was reported yesterday that there were 50 An-yaji martial monks taken as Prisoners, but I don't know how many more were captured, and before I knew it, there were a dozen more. I received advice from a few people yesterday that since the An-yaji martial monks were sufficiently trained, if we trained them in firearms and made them combat agents, they would be quite useful, so I was heading in that Direction.</p>
 <p>However, the Worry was whether to let them officially operate as PMC agents or to let them operate in the shadows like unlicensed Mercenaries, and this seemed to require more discussion. Probably Taira Kanna also has similar thoughts to us. Even if Taira Kanna possessed excellent Combat power, numbers were important in battle, so she must have coveted the trained An-yaji martial monks.</p>
 <p>Requested by TheDreaming-nim: Suzuki Chisami in the bus, Suzuki Chisami in the Phone Booth!</p>
-<p>In the bus~!</p>
-<p>In the Phone Booth~!</p>
+<p>In the bus!</p>
+<p>In the Phone Booth!</p>
 <p>Why is it coming out green? ddd</p>
 <p>Because the Composition is similar, I'll only upload two haha.</p>
 <p>Requested by Hwanbuljeoldaebulga-nim: An illustration of Teacher Gajeong receiving a ring and Climaxing with Steam erupting, but..... with the old model, even this level of complexity couldn't be well implemented ㅠㅠ So I'll just upload it as it came out...!</p>

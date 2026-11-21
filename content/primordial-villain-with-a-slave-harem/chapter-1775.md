@@ -65,7 +65,7 @@ chapter = 1775
 <p>"I just gave them walls and a roof. They did the rest."</p>
 <p>"The hypocrite's fanatics are truly hard workers."</p>
 <p>"They ransacked the old cathedral and brought the decorations over. Then the priestess did her thing and brought the Goddess's presence over. Or something like that. I don't know, for some reason they don't like sharing details with me."</p>
-<p>"I wonder why~" Jasmine purred, then added, "I know all that, but it's still impressive to have set up a new church so soon."</p>
+<p>"I wonder why" Jasmine purred, then added, "I know all that, but it's still impressive to have set up a new church so soon."</p>
 <p>"Is that so?"</p>
 <p>Jasmine giggled and turned to face him, poking the tip of his nose with her finger. "You know, the fact that we, the girls, did everything when it came to our home's interior decor shows how little you know about making things pretty, Quin."</p>
 <p>"I did decorate the sex dungeon in the basement, though? Ronan and I wracked our brains hard on that one."</p>

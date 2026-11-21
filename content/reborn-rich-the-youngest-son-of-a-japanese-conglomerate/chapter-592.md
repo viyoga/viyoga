@@ -84,4 +84,4 @@ chapter = 592
 <p>,Let's do it tomorrow.</p>
 <p>I was quite tired. The level-up points weren't going anywhere, so I thought I should do it when I wake up tomorrow, and I closed my eyes.</p>
 <p>________________</p>
-<p>Dongtan Dress! This time it's Shii~! Hehe</p>
+<p>Dongtan Dress! This time it's Shii! Hehe</p>

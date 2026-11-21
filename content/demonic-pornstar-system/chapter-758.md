@@ -20,7 +20,7 @@ chapter = 758
 <p>Kaiden read it before the first shoulder dipped.</p>
 <p>He grabbed Calypso around the waist and jumped. Straight up, explosive.</p>
 <p>"Nyx!"</p>
-<p>"On it~"</p>
+<p>"On it"</p>
 <p>The spatial catch came mid-ascent. The sensation of falling simply stopped, and Kaiden hung suspended twenty meters above the battlefield with a demoness under his arm and the Granite Tyrant rolling uselessly below them, grinding its wounded hide against stone that wasn’t going to help.</p>
 <p>It had solved the wrong problem.</p>
 <p>Kaiden shifted to Pride. Gluttony dissolved and arcane glyphs spiraled outward from his free hand, the stolen mana becoming ammunition. He fired downward. Concentrated arcane bolts cratered the defenses Calypso had already weakened, punching through plates that had been cracked by her axe and his greatsword.</p>

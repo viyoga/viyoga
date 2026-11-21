@@ -38,7 +38,7 @@ chapter = 230
 <p>"I’m calm." Luna retorted instantly.</p>
 <p>"Master, please stop talking nonsense."</p>
 <p>"That’s right, we’re taking this dungeon very seriously."</p>
-<p>"Exactly! So just watch~" Bastet finished with a purr and an extra sensual shake of her butt.</p>
+<p>"Exactly! So just watch" Bastet finished with a purr and an extra sensual shake of her butt.</p>
 <p>Kaiden couldn’t help but sigh in resignation as he and the other two Valkyries began following the motivated duo. They were certainly not wrong about one thing, however: they were very serious about butchering this dungeon’s inhabitants. None of the monsters were underestimated.</p>
 <p>...</p>
 <p>The next horde soon came screaming.</p>

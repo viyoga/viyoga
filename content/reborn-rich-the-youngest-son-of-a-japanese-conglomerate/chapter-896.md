@@ -56,18 +56,18 @@ chapter = 896
 <p>Kijimoto Jurie squatted down, grabbed Saimura Tatsushi's Chin, and Forced his mouth open. And she began to pour the remaining coffee into Saimura Tatsushi's mouth.</p>
 <p>"Delicious, isn't it? It contains my special dok."</p>
 <p>Kijimoto Jurie asked a Question, but Saimura Tatsushi couldn't Answer. His mouth was already full of coffee, so he couldn't speak even if he wanted to, and the dok's Aura was spreading further, bringing him to the brink of death, so he couldn't speak either. Then, as Saimura Tatsushi couldn't endure it and lost consciousness, Kijimoto Jurie stopped pouring the coffee.</p>
-<p>"How delicious must it be for him to lose his mind like this~?"</p>
+<p>"How delicious must it be for him to lose his mind like this?"</p>
 <p>Kijimoto Jurie, speaking Words that would make Saimura Tatsushi die once more from sheer rage if he heard them, casually tossed the coffee cup aside, wiped the coffee from her hands onto Saimura Tatsushi's Clothes, and then stood up. And she calmly walked across the dead Corpses and left the Reserve Team 1 office.</p>
-<p>Kijimoto Jurie Suzuki Jurie version B-cut~!</p>
-<p>Scary Face~!</p>
+<p>Kijimoto Jurie Suzuki Jurie version B-cut!</p>
+<p>Scary Face!</p>
 <p>Kkiyot!</p>
-<p>Requested by MidNightSKY-nim: Alik and Ryuta, shooting electron cannons like Misaka Mikoto~!</p>
+<p>Requested by MidNightSKY-nim: Alik and Ryuta, shooting electron cannons like Misaka Mikoto!</p>
 <p>Alik!</p>
 <p>The disadvantage of LORA is that it even affects the art style hehe. When I used LORA, Alik's feeling was less pronounced ㄷㄷ.</p>
-<p>Ryuta~!</p>
+<p>Ryuta!</p>
 <p>The male side doesn't seem to have been Learned well, so it doesn't come out well hehe.</p>
-<p>Requested by Gojoy-nim: Jinmija Yeosa Belly Dancer, Tape~!</p>
-<p>Belly Dancer~!</p>
-<p>Tape~!</p>
-<p>Requested by I세이브I-nim: Jinmija Yeosa in underwear under the desk~!</p>
+<p>Requested by Gojoy-nim: Jinmija Yeosa Belly Dancer, Tape!</p>
+<p>Belly Dancer!</p>
+<p>Tape!</p>
+<p>Requested by I세이브I-nim: Jinmija Yeosa in underwear under the desk!</p>
 <p>Kkiyot!</p>

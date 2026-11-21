@@ -18,7 +18,7 @@ chapter = 694
 <p>I petted each of Han Yu-gyeong's summons once, took off my shoes, and entered the house.</p>
 <p>"Wait a minute...! I'll fix you breakfast."</p>
 <p>Han Yu-gyeong put on an apron and headed to the kitchen. With the sound of the lights turning on, a good smell soon began to waft out. Judging by how quickly the smell was coming, it seemed like she had already done some cooking before coming to meet me. It seemed like she was just heating up the pre-made dishes now.</p>
-<p>"Come over here and sit down~!"</p>
+<p>"Come over here and sit down!"</p>
 <p>"Okay."</p>
 <p>I was playing with Han Yu-gyeong's summons when Han Yu-gyeong called me, saying she had finished cooking. When I went to the kitchen, a typical Korean home-style meal was set up. Warm miso stew, quite a few side dishes, stir-fried pork, and rolled omelet were set on the table.</p>
 <p>"Wow...! Looks delicious."</p>
@@ -33,11 +33,11 @@ chapter = 694
 <p>"I don't really eat breakfast.... Plus, I ate some while cooking earlier, and a few spoonfuls just now are enough."</p>
 <p>She didn't usually eat breakfast anyway, so it seemed like this was enough. After finishing our meal, we completed the dishwashing by putting the dishes in the dishwasher, and then we brushed our teeth together, looking at each other in the bathroom mirror. We brushed our teeth while looking at each other's faces in the mirror and laughing, and when we came out, Han Yu-gyeong seemed to have something prepared, so she stopped me in the living room.</p>
 <p>"Yong-tae-yah, wait here for a second...!"</p>
-<p>Han Yu-gyeong ran to the bedroom, *tatatak*, as if she had prepared something, and closed the door. What did she prepare? After waiting a bit, I heard Han Yu-gyeong's voice from the bedroom, saying, "Come in~!"</p>
+<p>Han Yu-gyeong ran to the bedroom, *tatatak*, as if she had prepared something, and closed the door. What did she prepare? After waiting a bit, I heard Han Yu-gyeong's voice from the bedroom, saying, "Come in!"</p>
 <p>Click.</p>
 <p>I opened the bedroom door and entered the room, and Han Yu-gyeong was waiting for me, wearing the uniform of St. Francis Girls' Academy. Han Yu-gyeong, looking at me wistfully against the background of the window, looked like a painting. But why is she wearing the St. Francis Girls' Academy uniform?</p>
 <p>Han Yu-gyeong, who had entered the bedroom, looked at me and then called me with a slightly embarrassed expression and a smile.</p>
-<p>"Ehehe, Yong-tae-ssi, teacher-niim~!"</p>
+<p>"Ehehe, Yong-tae-ssi, teacher-niim!"</p>
 <p>Yong-tae-ssi, teacher-nim.... I knew that Han Yu-gyeong liked role-playing because she resembled the actress Ha Ju-yoon, but I didn't know she would even prepare the St. Francis Girls' Academy uniform.</p>
 <p>"When did you prepare this? The uniform is exactly the same?"</p>
 <p>"What are you talking about? It's my uniform, you know?"</p>

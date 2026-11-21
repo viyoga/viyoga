@@ -63,7 +63,7 @@ chapter = 283
 <p>Ha Ju-yoon: I need a picture of Yong-tae. I miss him so much these days?</p>
 <p>As expected, they're mother and daughter, so they want similar things. I took a selfie of myself lying on the bed and sent it to both of them. Hmm, I'm handsome as expected.</p>
 <p>Han Yu-gyeong❤️: Hehe♥ Yong-tae is handsome.</p>
-<p>Ha Ju-yoon: No~ Not this picture, but a picture of Yong-tae's there...!</p>
+<p>Ha Ju-yoon: No Not this picture, but a picture of Yong-tae's there...!</p>
 <p>This time, their reactions were different. As expected, Ha Ju-yoon, who is a former married woman and now a divorcee, felt more active. I massaged my dick, got it erect, took a picture, and sent it. I also sent it to Han Yu-gyeong as a service, and they both sent me their sexy selfies.</p>
 <p>This is a profit, right? I received two pictures with one picture of my dick. They both didn't say anything after that, so it seemed like they were masturbating while looking at my dick. I was also looking at the pictures and slowly rubbing my dick up and down when suddenly the door burst open.</p>
 <p>"Investor-nim, I have a request...! About the Kiyona sisters...Kyaa!"</p>

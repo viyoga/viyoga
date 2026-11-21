@@ -53,12 +53,12 @@ chapter = 519
 <p>This time, we were able to walk the entire length of one side of the special class building, which was our goal. Until now, it was difficult to even take a few steps, but now that we've changed our posture, it's much easier to move.</p>
 <p>"You're right. Sorry for misunderstanding."</p>
 <p>Minamoto Risa apologized properly. I shook my head as if to say it was okay. After practicing two more times, Seizawa Shii, Kujo Kina, and Otagi Yuka came down from the club room.</p>
-<p>"Ooh~ You two look like a couple!"</p>
+<p>"Ooh You two look like a couple!"</p>
 <p>"Aren't you sticking too close together?"</p>
-<p>"Ryuta-cchi is a man of many charms~☆"</p>
+<p>"Ryuta-cchi is a man of many charms☆"</p>
 <p>The three of them were whistling and making a fuss like drunken uncles when they saw Minamoto Risa and me.</p>
 <p>"It can't be helped if we want to practice."</p>
-<p>"We know~! We're going to the main gate because it's time for our delivery to arrive."</p>
+<p>"We know! We're going to the main gate because it's time for our delivery to arrive."</p>
 <p>"We ordered a lot of delicious food, so let's eat together, Sensei!"</p>
 <p>"Don't forget to take your vitamins after dinner!"</p>
 <p>I already bought some snacks while buying sweets today, but it would be polite to eat the delicious food that the students ordered. Still, Otagi Yuka is amazing for still talking about vitamins.</p>

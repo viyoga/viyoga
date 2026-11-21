@@ -41,7 +41,7 @@ chapter = 541
 
 <p>He couldn’t deny that he was a happy, accomplished man.</p>
 
-<p>“Nghnn~~” Lingxue’s eyes opened first, meeting Lanyin’s.</p>
+<p>“Nghnn” Lingxue’s eyes opened first, meeting Lanyin’s.</p>
 
 <p>The two barely had time to react as the Heaven-Defying Thunder Sword, stored a few meters away, glowed brightly and a figure emerged from within.</p>
 
@@ -63,7 +63,7 @@ chapter = 541
 
 <p>“Ah… at least say hello properly to your two new sisters.” Qingyi laughed, planting a kiss on Xueyao and accepting her hug before covering himself as well.</p>
 
-<p>“Hehehe~~ now that hubby has taken Big Sister and the Matriarch, will we be able to live together forever in the Mind World?</p>
+<p>“Hehehe now that hubby has taken Big Sister and the Matriarch, will we be able to live together forever in the Mind World?</p>
 
 <p>Will the Matriarch come with us?” Xueyao asked excitedly.</p>
 

@@ -5,7 +5,7 @@ weight = 111
 chapter = 111
 +++
 
-<p>“Mhmhm~~” Xia Yunfei moaned softly, her body enveloped in an intense warmth as her mind slowly calmed down.</p>
+<p>“Mhmhm” Xia Yunfei moaned softly, her body enveloped in an intense warmth as her mind slowly calmed down.</p>
 
 <p>She felt a powerful healing energy flowing through her meridians, accompanied by a strong, protective touch that pulled her against something firm, warm and strangely comfortable.</p>
 

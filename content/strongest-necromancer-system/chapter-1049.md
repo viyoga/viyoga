@@ -26,9 +26,9 @@ chapter = 1049
 <p>The old woman let out a sad sigh before she finally stepped back and bowed to Agiel.</p>
 <p>"Then all of Jadar thanks you for your sacrifice, princess, and I pray the misfortune you must bear does not grow too heavy for your shoulders. My son is one of the soldiers held prisoner by the general, and your sacrifice will bring about his freedom, so I cannot say that I will gain no benefit from your misfortune. But I am truly sorry I cannot do anything for you, my princess. I am truly sorry."</p>
 <p>Agiel looked closely at the older woman’s face, and Agiel could almost feel the intense pain and anguish flowing off the woman at that moment! When Agiel saw this, Agiel felt a little bit of her own sadness disappearing, and Agiel felt some satisfaction from knowing that her people understood how much she was sacrificing for them. Agiel was willingly putting herself in the same position that her mother had been in just to secure the future of this world, and even though Agiel would suffer for the rest of her life for it, Agiel didn’t mind as long as she could see her people thrive.</p>
-<p>’You’re lying to yourself~’</p>
+<p>’You’re lying to yourself’</p>
 <p>A voice echoed in Agiel’s head, and Agiel closed her eyes tightly before shaking her head to get rid of the voice!</p>
-<p>’You don’t really want to do this~ You want to run away~ You’d happily abandon your people if Jason comes for you~’</p>
+<p>’You don’t really want to do this You want to run away You’d happily abandon your people if Jason comes for you’</p>
 <p>’No, I won’t.’</p>
 <p>Agiel frowned at her reflection, and she took a deep breath before releasing it calmly! There was a pain somewhere deep in Agiel’s chest, like a feeling of constant heartburn after a hot meal, and Agiel knew that this was her body begging her not to continue this madness. But Agiel had learned to ignore that feeling a long time ago. Agiel already made up her mind about this wedding, and there was no voice or hallucination that would change that!</p>
 <p>"The festival ceremony is about to begin!"</p>

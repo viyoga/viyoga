@@ -48,7 +48,7 @@ chapter = 38
 <p>When I bit her light brown nipples and tickled them with my tongue, she threw her head back, saying, "Kyaaheung!" Her sensitivity is good.</p>
 <p>Hoshino Riho spread her long legs in an M shape as if showing off her pussy. I lowered myself slightly and looked at her pussy. It was worth showing off. It was a moist, pink pussy that looked young for a woman in her 30s. The scent wasn't bad, and it tasted good when I licked it with my tongue.</p>
 <p>As I continued to lick her with my tongue and caress her Clitoris with my hand, she writhed in pleasure.</p>
-<p>"Haaeeunge~! You're so good! Haaheung!"</p>
+<p>"Haaeeunge! You're so good! Haaheung!"</p>
 <p>I caressed her appropriately and pushed my red, erect dick into her pussy. Hoshino Riho was looking at my dick piercing her pussy with eyes full of fear and anticipation.</p>
 <p>"I've never seen a size like this before...! Haaeeueup!"</p>
 <p>She hugged me and scratched my back with her nails, making a suffocating moan. It was a little prickly, but it would be healed by regeneration.</p>
@@ -57,13 +57,13 @@ chapter = 38
 <p>She said it hurt, then she said it was delicious, so I didn't know what to say, so I just thrust it in as I pleased, and she was dying of pleasure.</p>
 <p>"Haaang! I think I'm going to come!"</p>
 <p>"I think I'm going to come out soon too, where should I cum?"</p>
-<p>"Haaang! I have a loop, cum inside~!"</p>
+<p>"Haaang! I have a loop, cum inside!"</p>
 <p>A loop is a contraceptive device inserted into the uterus. How often does she do it usually? Enough to have a loop in place. Well, I'm thankful for the vaginal ejaculation. It gives me a feeling of conquering a woman.</p>
 <p>Bueok! Bueok!</p>
 <p>I don't know how many times I've ejaculated today, but it was still a powerful ejaculation. Hoshino Riho, who was trembling in ecstasy, stroked her lower abdomen and said.</p>
 <p>"Haaang! Good! It's warm...."</p>
 <p>When I lay down next to her and touched her breasts, she whined.</p>
-<p>"Haaang! Don't excite me if you're not going to do it again~!"</p>
+<p>"Haaang! Don't excite me if you're not going to do it again!"</p>
 <p>"I'm going to do it again?"</p>
 <p>Hoshino Riho's eyes widened at the words that I was going to do it again. After that, I made Hoshino Riho faint too.</p>
 <p>###</p>
@@ -75,21 +75,21 @@ chapter = 38
 <p>When I arrived and showed the ticket that Kazuhiro sent me, I was able to get a seat in a good spot called the player's family seat.</p>
 <p>"Oh, Taira-sang?"</p>
 <p>I wondered who was pretending to know me, but it was Kagawa Umi, Kazuhiro's current girlfriend. I greeted Kagawa Umi and introduced Arisu-ssi to her.</p>
-<p>"Oh my, your girlfriend is so pretty~!"</p>
-<p>"Hehe! Thank you. Kagawa-ssi is also pretty~."</p>
+<p>"Oh my, your girlfriend is so pretty!"</p>
+<p>"Hehe! Thank you. Kagawa-ssi is also pretty."</p>
 <p>Arisu-ssi was saying things she didn't mean in response to Kagawa Umi's compliment. I let them talk and watched the game. The opposing team was Kashiwa Reysol, a team from Chiba. Taira family's roots are in Chiba, so should I support Kashiwa Reysol? Or should I support Tokyo FC since I'm from Tokyo? I was worried, but I decided to support Tokyo FC because my friend was there.</p>
 <p>"I used to play soccer for a while in high school."</p>
 <p>"Really? Do you have a picture of you in a uniform?"</p>
-<p>"I want to see it too~!"</p>
+<p>"I want to see it too!"</p>
 <p>Arisu-ssi searched her phone and showed me a picture of young Arisu-ssi wearing a soccer uniform and making a V sign. She looked about 10 years old. She's so cute.</p>
 <p>"You were cute at this time too."</p>
-<p>"Hee~ You're cute!"</p>
-<p>"Hehe, don't flatter me too much~."</p>
+<p>"Hee You're cute!"</p>
+<p>"Hehe, don't flatter me too much."</p>
 <p>To talk a little about the soccer scene of this era, the United States was emerging as a new powerhouse. The rankings with baseball were reversed, and it rose to third place after American football and basketball. The Latino population was increasing, and they were investing actively because they showed good results in the recent World Cup.</p>
 <p>"Ah, the second half is starting!"</p>
 <p>Kazuhiro didn't come out, so I watched the game comfortably while talking, and the second half started. After a while, in the 10th minute of the second half, Kazuhiro finally came out. The score was 0-0 for both teams, so the coach seemed to be expecting the unexpectedness of the rookie striker Kazuhiro.</p>
 <p>Kazuhiro, who hadn't caught the ball for a while and was running like he was jogging, finally caught the ball in the 37th minute of the second half. Kazuhiro dribbled to the side at a fast pace with the elasticity of a rubber ball. The full-back, who was behind in the speed competition, fell back in an instant. Kazuhiro entered the corner of the penalty box and rushed diagonally towards the goal. He was playing the textbook inside forward play.</p>
-<p>He easily avoided the defender's sharp tackle with a side step to stop Kazuhiro at all costs and immediately shot. Bang~! Kazuhiro was shooting with a sound. The first shot quickly passed under the goalkeeper's arm and became the first goal. The ball rotated as if tearing the net with a chwareureuk sound.</p>
+<p>He easily avoided the defender's sharp tackle with a side step to stop Kazuhiro at all costs and immediately shot. Bang! Kazuhiro was shooting with a sound. The first shot quickly passed under the goalkeeper's arm and became the first goal. The ball rotated as if tearing the net with a chwareureuk sound.</p>
 <p>-Smith Kazuhiro...! Goal! It's a goal! Kkieeeeek!</p>
-<p>The announcer was also excited and celebrated Kazuhiro's goal with a scream. Arisu-ssi's reaction was just "Wow~! It's a goal!", but Kagawa Umi burst into tears when she saw Kazuhiro's goal scene. They met after he became a soccer player, but anyone who saw it would think she had been supporting soccer throughout his school days.</p>
+<p>The announcer was also excited and celebrated Kazuhiro's goal with a scream. Arisu-ssi's reaction was just "Wow! It's a goal!", but Kagawa Umi burst into tears when she saw Kazuhiro's goal scene. They met after he became a soccer player, but anyone who saw it would think she had been supporting soccer throughout his school days.</p>
 <p>In the end, Tokyo FC won 1-0, and Kazuhiro was able to become the MVP.</p>

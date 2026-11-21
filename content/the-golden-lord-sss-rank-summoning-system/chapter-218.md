@@ -9,7 +9,7 @@ chapter = 218
 <p>His hands dug firmly into her hips, his voice coming out muffled, stifled by the weight of those enormous pale tits pressed against his face.</p>
 <p>At those words, Ophelia froze for a moment. Then a mature, sensual laugh rolled from her lips.</p>
 <p>There she was, riding him, that obscene bodysuit hugging every curve like a second skin, his cock buried all the way to the hilt inside her soaking wet pussy.</p>
-<p>"Ah~ my naughty little Lord..." she purred, slowly licking her lips. "I... Ophelia, the spy queen, am going to show you what I’m capable of."</p>
+<p>"Ah my naughty little Lord..." she purred, slowly licking her lips. "I... Ophelia, the spy queen, am going to show you what I’m capable of."</p>
 <p>Her hands began to move slowly.</p>
 <p>Her arms wrapped around both her own breasts—which were already swallowing Ethan’s face—and the young lord’s head, her forearms crossing behind the back of his neck.</p>
 <p>Then, without hesitation, she squeezed with all her might.</p>

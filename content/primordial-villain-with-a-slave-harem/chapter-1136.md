@@ -15,7 +15,7 @@ chapter = 1136
 <p>Quinlan’s lips curved in a grim line. Strange. Too strange.</p>
 <p>“Just what are you thinking, you weird woman…?”</p>
 <p>Before he could dig further into the thought, a voice slid into his mind.</p>
-<p>&lt;Baby, I’m about to be slain~&gt;</p>
+<p>&lt;Baby, I’m about to be slain&gt;</p>
 <p>Lucille’s singsong tone carried that dangerous edge he knew too well. He didn’t even pause to consider. His hand lifted, and a tear of blackness spread open in the air.</p>
 <p>From the portal, Lucille burst through with blood dripping from her axe. Indeed, now that some of the strongest of the Fujimori vanguard rushed back to meet the sallying forces of Captain Rynne, the girls could finally do more than just deflect projectiles.</p>
 <p>It was still a hit-and-run tactic, yes, as there were still many incredibly strong soldiers doing their best to protect their flanks, their supplies, their siege weapons. When one such soldier got too close, that was the time to dip.</p>

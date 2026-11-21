@@ -19,7 +19,7 @@ chapter = 237
 <p>Thankfully, the other half of that paperwork was more normal things such as new laws, food regulations, settling conflict between islands and kingdoms, and dealing with the treasury.</p>
 <p>‘Mother really does a lot of work. I guess she used the occasion to rest a little.’</p>
 <p>She was thinking so when someone suddenly opened the door.</p>
-<p>"Who the hell—Hello~ Lady Nent. How may I help you?"</p>
+<p>"Who the hell—Hello Lady Nent. How may I help you?"</p>
 <p>Nent chuckled at how this little girl's expression shifted from wrathful to respectful in such a swift way.</p>
 <p>“I remember you used to call me Aunt Nent when you were smaller.”</p>
 <p>Aqua blushed a little. It wouldn’t be wrong to say that Nent had partially raised her when she was just born. After all, Kiyohime didn’t really have enough time to raise one child alone.</p>

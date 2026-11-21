@@ -43,7 +43,7 @@ chapter = 630
 <p>If there was only one regret left in her heart, it was that she was unable to see Sol one last time. “If I ever get reincarnated, I hope you will be there for me and finally take me on a date.” She muttered as the light finally reached her, light so bright that even with her diminishing sight, she could clearly see it.</p>
 <p>“Why wait for reincarnation?”</p>
 <p>Space rippled, a pale hand with no callus stretching out of it, and the spear of light was stopped dead in its tracks as it came in contact with the frail-looking hand. There was no explosion of power or any reaction in particular. It simply looked like the spear was blocked by an immovable wall.</p>
-<p>Then Crack~ the palm clenched into a fist and with that simple action, the spear of light was destroyed. This time, a large explosion occurred as all the energy compressed inside the spear was released, and yet Camelia felt none of the heat from the explosion. It was as if an infinite distance stood between her and the spear.</p>
+<p>Then Crack the palm clenched into a fist and with that simple action, the spear of light was destroyed. This time, a large explosion occurred as all the energy compressed inside the spear was released, and yet Camelia felt none of the heat from the explosion. It was as if an infinite distance stood between her and the spear.</p>
 <p>“This is quite the cliché entrance, don’t you think so?”</p>
 <p>“Sol?”</p>
 <p>Warmth enveloped her as she felt someone embracing her body from behind. Though she could see nearly nothing at the moment, she had never needed her eyes to see and recognize the souls of people around her.</p>

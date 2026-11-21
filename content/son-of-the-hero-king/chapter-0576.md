@@ -36,7 +36,7 @@ chapter = 576
 <p>"Do you plan to keep rubbing salt on my wounds?"</p>
 <p>"Not until you find a new woman."</p>
 <p>The penguin looked around,</p>
-<p>"Tsk~ Tsk~Tsk. Look at all those females in heat looking at you with tears in their eyes. As a male, the fact that you don't even feel a stir in your loin at this sight makes you a failure."</p>
+<p>"Tsk TskTsk. Look at all those females in heat looking at you with tears in their eyes. As a male, the fact that you don't even feel a stir in your loin at this sight makes you a failure."</p>
 <p>The knight was speechless, "Man should give all his love to one woman."</p>
 <p>"Tsk. Well. You aren't completely wrong. Though I prefer freedom. Hopefully, you will find that woman soon. I want to see what kind of woman can make you fall."</p>
 <p>"Speaking of. Do you have mates?"</p>

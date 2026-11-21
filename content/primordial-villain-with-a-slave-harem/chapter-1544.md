@@ -54,7 +54,7 @@ chapter = 1544
 <p>"Kitsara, you're our distraction."</p>
 <p>"Aye-aye Ma'am!" Kitsara's tails curled with delight as she saluted.</p>
 <p>"Vex, her chains are mana constructs, yes?"</p>
-<p>"Yep~" Vex confirmed, the tattoos along her forearms beginning to glow faintly. She didn't need to be told what Serika wanted from her. "I'll take care of it."</p>
+<p>"Yep" Vex confirmed, the tattoos along her forearms beginning to glow faintly. She didn't need to be told what Serika wanted from her. "I'll take care of it."</p>
 <p>Vex drew her sword with a ring of steel. "Don't die on me. I can't become the hag of the harem."</p>
 <p>"You're older than me."</p>
 <p>"No."</p>

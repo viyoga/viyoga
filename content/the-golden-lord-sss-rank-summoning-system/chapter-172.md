@@ -13,10 +13,10 @@ chapter = 172
 <p>Her teeth clenched, the effort carved into her face. A moment later, her eyelids snapped open just in time to catch a crimson flame flicker to life in her palm.</p>
 <p>"I did it!"</p>
 <p>Before she could finish celebrating, the flame collapsed into a wisp of smoke, drawing a defeated sigh from her.</p>
-<p>"It’s okay, fufufu~~" Alice let out a soothing laugh. "It took me almost a month just to generate my first flame. You did it in one morning."</p>
+<p>"It’s okay, fufufu" Alice let out a soothing laugh. "It took me almost a month just to generate my first flame. You did it in one morning."</p>
 <p>At those words, Veronica’s spirits lifted. She turned her face slightly, and only then did she notice Ethan standing nearby.</p>
 <p>"M-my lord!" Flushed, she bowed hastily, earning a small nod from Ethan, who promptly pulled Alice into his arms.</p>
-<p>"Hm... husband, how was yesterday? Did the girls please you well? Hehehe~" Alice let out a mischievous giggle.</p>
+<p>"Hm... husband, how was yesterday? Did the girls please you well? Hehehe" Alice let out a mischievous giggle.</p>
 <p>"What do you think?" Ethan replied, his hand drifting down to claim a teasing handful of her butt, the plush, ripe flesh squishing between his fingers. "What’s that spell you used on Veronica? Her mana heart is much stronger than normal."</p>
 <p>"Ah... it’s a spell I learned from the spellbook of the leader of the Brown Mage Tower. Basically, I can use the ring on my mana heart to boost the growth of someone else’s mana heart! Pretty useful, right?"</p>
 <p>Ethan nodded, watching Alice’s beaming face as if she were about to jump for joy.</p>

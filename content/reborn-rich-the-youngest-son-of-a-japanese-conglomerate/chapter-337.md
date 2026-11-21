@@ -16,14 +16,14 @@ chapter = 337
 <p>"Excuse me...."</p>
 <p>As soon as the break bell rang, Seizawa Shii and Minamoto Risa burst into the room. Minamoto Risa was also showing off her shapely legs in a short skirt, as befitting a gyaru, but Seizawa Shii had completely taken off her school ribbon tie and unbuttoned about three buttons of her shirt, showing off her cleavage.</p>
 <p>"Seizawa, if you're not going to wear the tie, at least button up one more button. Showing that much cleavage is too much."</p>
-<p>"Ehh~! Don't say that~☆ My chest has gotten bigger lately, so my clothes are so stuffy!"</p>
+<p>"Ehh! Don't say that☆ My chest has gotten bigger lately, so my clothes are so stuffy!"</p>
 <p>"Minamoto, you don't like this kind of thing, do you? Try to stop Seizawa quickly."</p>
 <p>Seeing that Seizawa Shii had no intention of listening to me at all, I asked Minamoto Risa for help, but Minamoto Risa also didn't seem to have any intention of listening to me.</p>
 <p>"It's not that I hate exposure, sensei. It's just that I hate pervert teachers who rape students."</p>
 <p>I see, that's what it was. As expected, due to the trauma from her former homeroom teacher, she developed a strange (?) tendency to hate perverted male teachers. Most men are perverts, so she must hate most male teachers.</p>
 <p>That former homeroom teacher has only raised the difficulty of targeting. Alright, if I get the chance, I'll definitely kill that bastard.</p>
 <p>"Still, school rules are school rules.... Fasten one more button. I'll just say you lost the tie."</p>
-<p>"Nee~☆ Ryuta-cchi is the best!"</p>
+<p>"Nee☆ Ryuta-cchi is the best!"</p>
 <p>"Both of you, sit in front. Seizawa, I'll send you the referral code, so if you sign up with that code, you'll be able to join."</p>
 <p>She was just joking about her chest getting bigger or whatever. Minamoto Risa and Seizawa Shii sat in the seats I had prepared. And they stared at me intently.</p>
 <p>"Yeah, take out some ice cream from the fridge and eat it."</p>
@@ -43,9 +43,9 @@ chapter = 337
 <p>"Ah! Good idea, Risa-tan! It's troublesome if too many packages come to my house. I should make it the club room too."</p>
 <p>These troublemakers are trying to use the club room as a parcel box as they please. But it was a reasonable choice in its own way. Minamoto Risa, not to mention Seizawa Shii who lives alone, would have someone check each and every one of her packages first, so it would be right to send it to the club room. Especially if it's a product from the Dark Market.</p>
 <p>"Time's up, go to the classroom quickly."</p>
-<p>"Okay, Ryuta-cchi~☆ Thanks for letting me know!"</p>
+<p>"Okay, Ryuta-cchi☆ Thanks for letting me know!"</p>
 <p>"Me too, th...anks."</p>
-<p>Minamoto Risa, who had a hard time saying thank you, blushed and ran away quickly. Seizawa Shii followed slowly, saying, "Risa-tan, let's go together~!", and then turned around.</p>
+<p>Minamoto Risa, who had a hard time saying thank you, blushed and ran away quickly. Seizawa Shii followed slowly, saying, "Risa-tan, let's go together!", and then turned around.</p>
 <p>"Ryuta-cchi, sorry, but please put the ice cream we didn't finish in the fridge, hehe."</p>
 <p>Ah, if they can't finish it, they can just put it in the fridge. I unconsciously thought that female students would have a similar amount of food as me.</p>
 <p>###</p>
@@ -58,7 +58,7 @@ chapter = 337
 <p>"If you put motion detection sensors on the warehouse side, I can deal with anyone who comes even when I'm doing bad things (?)."</p>
 <p>Eve suggested with a smile. That's a tempting suggestion? I've already bribed the guards, so they don't patrol this building, but other people might suddenly come, so a detection sensor would be useful.</p>
 <p>"I'll order a set."</p>
-<p>"Thank you for your purchase~! I brought it just in case. I'll install it for free and leave. If you turn on the detector, a signal will go to Ryuta-nim's phone."</p>
+<p>"Thank you for your purchase! I brought it just in case. I'll install it for free and leave. If you turn on the detector, a signal will go to Ryuta-nim's phone."</p>
 <p>What kind of thinking do you have to do to bring something like a motion detector just in case? That's really amazing.</p>
 <p>Behind the warehouse was a club room with the strange name of Date Experience-Meditation Club, written as Special Building Club Room. It was an abnormally large club room that combined a classroom, a nurse's office, and an education preparation room.</p>
 <p>Well, since all students from middle school to high school are obligated to join a club, the probability of having more club members than the number of students in a class is high, so it seems like they made the club room this big.</p>
@@ -76,7 +76,7 @@ chapter = 337
 <p>Since the owner of the package gave permission, I can do it right away. When I said I would install it, Eve said she would accompany me. I went to the place where the middle school female student in the 3rd gymnasium testified that she heard the sound and installed a small spy camera. Minamoto Risa had bought four cameras, how much money did she spend?</p>
 <p>I installed small spy cameras in the corner of the gymnasium, at the entrance of the gymnasium, and inside and outside the warehouse. I was able to install it quickly because Eve helped me.</p>
 <p>"I'll come visit often, Ryuta-nim. Ryuta-nim, please come visit too!"</p>
-<p>"Yes, I'll go visit around the weekend~!"</p>
+<p>"Yes, I'll go visit around the weekend!"</p>
 <p>I said goodbye to Eve and returned to the education preparation room. And time passed and it was time for the end-of-day assembly.</p>
 <p>-----</p>
 <p>Minamoto Risa with her chest open like Shii</p>

@@ -8,7 +8,7 @@ chapter = 765
 <p>She then looked at me. “As for me attacking your woman, you don’t have to worry… I have no ill will toward Black Fang, it’s she who keeps pestering me. If we never met again, I would be perfectly happy. And before you ask, no, I’m not worried about young Vexie over here snitching to her master. I’d already deployed many strong illusions around our home. If the lunatic ever dares to invade, a myriad of nasty surprises await her.”</p>
 <p>… Our home?</p>
 <p>Naturally, I didn’t dare ask this out loud nor find fault with her statement.</p>
-<p>With that admission of hers done, she looked back at the emotionally overwhelmed Vex and winked, “Good luck, little hex witch. I hope your innocent maiden body can handle the full extent of your new lover~ I’ve heard he’s quite the manly man down there~”</p>
+<p>With that admission of hers done, she looked back at the emotionally overwhelmed Vex and winked, “Good luck, little hex witch. I hope your innocent maiden body can handle the full extent of your new lover I’ve heard he’s quite the manly man down there”</p>
 <p>And with a second wink, she vanished in a whirl of shimmering illusion and laughter, her presence fading like a dream.</p>
 <p>"You have a green plant daughter and you’re living together with the oldest known living person on the continent… What other nasty surprises do you have for me, futur-… Hubby?”</p>
 <p>I nodded with satisfaction, happy she caught herself before she could utter the word ‘future.’ I used to love it when she called me her future husband in the past, but now, it just feels like a big downgrade. As for her question…</p>

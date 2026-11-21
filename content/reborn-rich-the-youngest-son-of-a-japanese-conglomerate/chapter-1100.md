@@ -68,13 +68,13 @@ chapter = 1100
 <p>"Well then, the Item check is finished.... The Reward received as Money hasn't come in yet, so let's talk about that when it does."</p>
 <p>Currently, the Federal Superpower Management Bureau is very busy, and perhaps due to Settlement and tax issues, they said they would give the Money around next week, so the Meeting regarding what was obtained in the USA was concluded.</p>
 <p>"Then, everyone but Linling, you are dismissed."</p>
-<p>"I'll have the Meal ready, so finish quickly and come, Older Brother~!"</p>
+<p>"I'll have the Meal ready, so finish quickly and come, Older Brother!"</p>
 <p>"Ryuta-ssi, thank you for the Ring! Next time, put it on my Finger!"</p>
 <p>"Teacher-nim, I'll prepare a Ring that suits my mechanical Hand too!!"</p>
 <p>At the Words to leave, with only Linling remaining, the Subordinates left noisily, each saying One Word. I waved my Hand as if telling them to hurry and leave, and soon, only Linling and I remained in the conference room.</p>
 <p>After confirming everyone had left, I took out a universal connector from my pocket. It was the universal connector containing the data that Phantom Thief François had stolen from Taira's secret Laboratory, which I had received from Arisu.</p>
-<p>Otagi Yuka B-cut~!</p>
+<p>Otagi Yuka B-cut!</p>
 <p>I didn't input a clothes prompt, just wanted to check the Intimate Posture, so she came out in this Attire kkeuk kkeuk kkeuk</p>
-<p>Requested by Gojoy-nim: Yukiko giving a speech on the podium~! Chapter 56 Remake Chieri~!</p>
-<p>Yukiko~!</p>
-<p>Chieri~!</p>
+<p>Requested by Gojoy-nim: Yukiko giving a speech on the podium! Chapter 56 Remake Chieri!</p>
+<p>Yukiko!</p>
+<p>Chieri!</p>

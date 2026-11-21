@@ -53,7 +53,7 @@ chapter = 944
 <p>Daigo Terue shook her Head and nodded again at my Words. Was it a feeling that it was too strong of a Stimulation, but she didn't hate it? Of course, even if Daigo Terue said she hated it, I wouldn't have cared and continued to shake my waist. Because there hasn't been a woman who truly hated it so far.</p>
 <p>Due to my violent piston Movements, the fixtures on the desk rattled, and things that were easy to fall, like pens, fell off. But because we were in the middle of violent sex, neither of us cared about it. We were focused on the feeling of each other's Genitals felt from our Genitals.</p>
 <p>'I'm going to cum inside, so catch it without spilling.'</p>
-<p>'Haeuheueung! I'll catch it! I'll catch your pregnancy juices♥ in my uterus...! Cum a lot for me~!'</p>
+<p>'Haeuheueung! I'll catch it! I'll catch your pregnancy juices♥ in my uterus...! Cum a lot for me!'</p>
 <p>As I felt the feeling of Ejaculation rising, I shook my waist even more violently. After grabbing and fixing Daigo Terue's shins, I violently Stimulated Daigo Terue's erogenous zones, including her cervix.</p>
 <p>'Haeueut♥ I'm going, I'm going, I'm going, I'm cumming...!'</p>
 <p>When Daigo Terue reached Climax with her Eyes showing a lot of white due to the more violent Movements, I thrust my cock all the way inside and started Ejaculating. As my cock repeated expansion and contraction and shot out semen, Daigo Terue groaned and reached Climax once again.</p>
@@ -79,9 +79,9 @@ chapter = 944
 <p>'I'll have Oyakodon prepared and wait♥'</p>
 <p>Daigo Terue, who had offended my sensitive ears with a voice full of lustful aura, chuckled and started gathering her documents.</p>
 <p>She probably means she'll be waiting with Oofuchi Erika, right? What an incorrigible mom...!</p>
-<p>Ryuta the farmer, requested by Inoehgadoegopeun-nim~!</p>
-<p>Lisa, dazed with semen all over her, and Taira Kanna, gone wild after S&amp;M Play, requested by MidNightSKY-nim~!</p>
+<p>Ryuta the farmer, requested by Inoehgadoegopeun-nim!</p>
+<p>Lisa, dazed with semen all over her, and Taira Kanna, gone wild after S&amp;M Play, requested by MidNightSKY-nim!</p>
 <p>Lisa</p>
-<p>Lisa isn't dazed~! Hehe</p>
-<p>Kanna~!</p>
+<p>Lisa isn't dazed! Hehe</p>
+<p>Kanna!</p>
 <p>I don't really know about S&amp;M Play, so I just had her wear Leather clothes and added some Whip marks hehe.</p>

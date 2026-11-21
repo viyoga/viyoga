@@ -60,7 +60,7 @@ chapter = 1897
 <p>Silence.</p>
 <p>The pause stretched for entire seconds. "&gt; &lt;I... um.&gt; The pause stretched for entire seconds. &lt;I don’t... know?&gt;</p>
 <p>Five women who had all watched Kaelira measure a hair’s width of steel by eye recognized the dodge before it finished crossing the link.</p>
-<p>"She’s lying~" Kitsara sang.</p>
+<p>"She’s lying" Kitsara sang.</p>
 <p>Vex growled down the link. "&gt; &lt;Kaelira,&gt; Vex growled down the link. &lt;How. Old. Are. You.&gt;</p>
 <p>The next pause was the longest one yet. Serika used it to take a satisfied pull off the bottle.</p>
 <p>The shy voice climbed half an octave, aiming for casual and missing by a league. "&gt; &lt;Umm...&gt; The shy voice climbed half an octave, aiming for casual and missing by a league. &lt;Maybe a... little older than you thought...?&gt;</p>

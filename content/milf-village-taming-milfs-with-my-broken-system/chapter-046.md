@@ -5,13 +5,13 @@ weight = 46
 chapter = 46
 +++
 
-<p>&quot; I will do the cooking, so squat down and suck them, Auntie..I want to see that it’s clean~&quot; He ordered, making her squat down below...looking at the size in the very close distance.</p>
+<p>&quot; I will do the cooking, so squat down and suck them, Auntie..I want to see that it’s clean&quot; He ordered, making her squat down below...looking at the size in the very close distance.</p>
 
 <p>’Oh my god..it’s so thick and long.’ Her eyes couldn’t believe what she was seeing.</p>
 
 <p>&quot;W-why...it’s still hard? You already cummed with a h-huge load...&quot; Pamela started licking them when she noticed that it’s not dropping, it’s still so hard...while another load of cum is flowing.</p>
 
-<p>&quot;My cock is completely different Auntie Pam, suck them now and don’t waste our precious time~&quot; Owen urged her as the news was about to end!</p>
+<p>&quot;My cock is completely different Auntie Pam, suck them now and don’t waste our precious time&quot; Owen urged her as the news was about to end!</p>
 
 <p>The pathetic man is about to finish and thus giving him enough time to walk to the kitchen.</p>
 
@@ -41,7 +41,7 @@ chapter = 46
 
 <p>’Heh..how much I love to experience those cakes and cherry on the tits, I promised, I will definitely make it happen..’ not now...but in the next opportunity, for now he needs to work on the plate.</p>
 
-<p>&quot;Of course Auntie Pam, so you need to work hard from now on~&quot; Owen saw the opportunity and slid his feet to her pussy that’s visible in her shorts...</p>
+<p>&quot;Of course Auntie Pam, so you need to work hard from now on&quot; Owen saw the opportunity and slid his feet to her pussy that’s visible in her shorts...</p>
 
 <p>Its shape is visible in his eyes!</p>
 
@@ -53,7 +53,7 @@ chapter = 46
 
 <p>Thankfully Owen shoved his cock to her mouth... stopping her moans from coming out.</p>
 
-<p>&quot;Shhh... don’t moan like a slut Auntie~&quot; her moan is totally shocking to him..</p>
+<p>&quot;Shhh... don’t moan like a slut Auntie&quot; her moan is totally shocking to him..</p>
 
 <p>He just wanted to tease them but who would have thought that she’s already at her turning point too.</p>
 

@@ -5,7 +5,7 @@ weight = 490
 chapter = 490
 +++
 
-<p>“Nghnnn~~ slurp~~ ah~~ hubby’s cock… so big, fufufu~”</p>
+<p>“Nghnnn slurp ah hubby’s cock… so big, fufufu”</p>
 <p>Ophelia let go of Ethan’s cock for a moment. A thick strand of saliva stretched between its swollen tip and her lower lip, sagging in the air before it finally snapped.</p>
 <p>The beautiful Chinese-American woman’s full lips parted slowly, revealing the long, thick, veiny member, smeared with red lipstick from base to tip.</p>
 <p>She took a deep breath and lowered her head again, wrapping her lips around the tip and sucking eagerly, her cheeks hollowing with every pull.</p>
@@ -22,7 +22,7 @@ chapter = 490
 <p>The next instant, a thick, hot jet of cum exploded against the roof of her mouth.</p>
 <p>Ophelia’s cheeks puffed out at once, swelling like balloons with that absurd amount of semen.</p>
 <p>Her eyes widened for a second and began to water, but she didn’t pull back. Instead, she sealed her lips even tighter around the tip and forced herself to swallow.</p>
-<p>“Nghnn~~ gulp~~ gulp~~ gulp~~ glup~~”</p>
+<p>“Nghnn gulp gulp gulp glup”</p>
 <p>The inhuman load slid down her throat in heavy, thick gulps, her slender neck bobbing with each swallow.</p>
 <p>The spurts came one after another, each one pulsing against her tongue, and she kept swallowing without letting a single drop escape.</p>
 <p>Her makeup was a mess, mascara running in dark streaks from the corners of her eyes, but those eyes shone with pure pleasure.</p>

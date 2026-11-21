@@ -24,7 +24,7 @@ chapter = 233
 <p>A feminine voice dripped with mockery from the left.</p>
 <p>"Little Dawnbringer children. Always so naive."</p>
 <p>Another voice came from the right.</p>
-<p>"You’re prey. There’s no room for planning on the plate. Isn’t that right, husband~?"</p>
+<p>"You’re prey. There’s no room for planning on the plate. Isn’t that right, husband?"</p>
 <p>"I didn’t think you three would play with your food, considering how hungry you are..." the male vampire chuckled.</p>
 <p>In response, the vampire wives laughed in harmony.</p>
 <p>Then, all at once, every single member of the horde moved.</p>

@@ -6,7 +6,7 @@ chapter = 1442
 +++
 
 <p>As Quinlan poured his essence into her, Nyxara's Limitless Lust Physique didn't just endure; it thrived once again. The platinum mark he had branded onto her lower abdomen flickered as the pink, heart-shaped energy of the demoness surged back like a rising tide. She was using the very essence he deposited within her as fuel to reconstruct her dominance.</p>
-<p>"More... I want more of you!❤️ Fill me up!❤️ My Ruin~❤️" she gasped, her body vibrating with a terrifying resilience. Every time he ejaculated inside her, she absorbed the impact, her internal muscles weaving his power into her own.</p>
+<p>"More... I want more of you!❤️ Fill me up!❤️ My Ruin❤️" she gasped, her body vibrating with a terrifying resilience. Every time he ejaculated inside her, she absorbed the impact, her internal muscles weaving his power into her own.</p>
 <p>Quinlan realized that better wasn't enough. He was a pressurized vessel of disparate forces: the density of Fire and Earth, the Hydro-Neural speed of Water and Wind, the exhausted but crystallized stability of his soul realm, and the predatory hunger of his Primordial Breeding Physique.</p>
 <p>He stopped viewing them as separate tools and instead forced them into a singular, agonizing point of singularity. It felt like trying to compress a sun into a grain of sand. The friction between the elements began to generate a new form of energy, a violent, hyper-conducting resonance.</p>
 <p>His skin didn't just glow; it darkened into a polished, obsidian-like sheen, shot through with veins of white-hot elemental mana. To Nyxara, he no longer looked like a man. He looked like an Elemental Demon, a primal force of nature that had donned a cloak of flesh just to ravage her.</p>

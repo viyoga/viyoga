@@ -14,7 +14,7 @@ chapter = 108
 <p>Kaiden groaned, his breath shuddering as he felt her grind against him, her pussy’s great heat coating him with every motion. He gripped her hips, adjusting his position, and with one steady push, he slid deep inside her moist depths. Warmth immediately enveloped him, tight and pulsing.</p>
 <p>Luna’s breath caught, her mouth falling open in a gasp that melted into a soft whimper. Her legs tightened around him as she clung to his shoulders, rocking her hips in rhythm with his.</p>
 <p>He moved slowly at first, savoring every inch. Each thrust was deep, smooth, and deliberate, pressing their bodies together, skin to skin, breath to breath. Luna met every movement with her own, moaning his name against his ear, her voice laced with desperation and bliss.</p>
-<p>"Kai! Oh, gods...! So goooood~! Mhhhmmm❤️!!"</p>
+<p>"Kai! Oh, gods...! So goooood! Mhhhmmm❤️!!"</p>
 <p>He kissed her deeply then, claiming her mouth the same way he claimed her body: fully, hungrily. Her fingers dug into his back as he picked up the pace, hips slapping against hers, each impact making her writhe and gasp beneath him.</p>
 <p>A few minutes later, that felt like one brief second to the pair, Luna’s moans grew higher, needier, until her body trembled around him in her orgasm, tightening, clenching, and fluttering as pleasure rolled through her in waves. She clung to him, breathless and flushed, as Kaiden splurted his baby batter deep into her eagerly awaiting womb.</p>
 <p>Only when she came down from the peak, panting and flushed, did he finally slow his thrusting motions. He pulled back just enough to look into her eyes. Both of their gazes were sweaty and utterly satisfied</p>
@@ -38,7 +38,7 @@ chapter = 108
 <p>But her complaints melted into breathless gasps the moment he moved again, each slow, powerful stroke drawing more and more desire from her body. Her earlier protest was forgotten entirely.</p>
 <p>Caught in the heat, Nyx and Aria’s fingers found each other. They laced hands, clutching tight, needing the grounding as Kaiden’s pace intensified.</p>
 <p>"Ah!"</p>
-<p>"Ahnn~!!"</p>
+<p>"Ahnn!!"</p>
 <p>"Hnnnggg❤️!!!"</p>
 <p>As their sensual moans reverberated through the walls of the bedroom, their bodies rocked together, flushed and tangled in bliss. Aria’s big breasts pressed tightly against Nyx’s genetic lottery winner voluptuous tits. It was a decadent contrast that sent shivers through both of them, and Kaiden could feel every inch of it from inside their lady flowers.</p>
 <p>The bed creaked beneath them, breaths came in pants, and the air was heavy with sweat and longing. Kaiden’s hands roamed freely: gripping hips, caressing thighs, sliding along backs slick with heat.</p>

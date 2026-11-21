@@ -96,7 +96,7 @@ chapter = 1112
 <p>"Let's do that. But.... While going to the Inn, the aphrodisiac Addiction might worsen, so you have to do it four more times, understand?"</p>
 <p>"Of course."</p>
 <p>It's said that a thief who learns late doesn't know when dawn breaks.... Despite losing her Virginity today, Nasian was quite proactive. I smiled slightly at the Appearance of Nasian linking Arms in arm with me, asking for support, and headed towards the village with a nearby Inn.</p>
-<p>B-cuts~!</p>
+<p>B-cuts!</p>
 <p>Suddenly white panties hehe</p>
 <p>Originally, I tried to grab her breast with one hand, but I thought two hands would be better hehehe</p>
 <p>I don't know if it's because of the clothes Lora or for some other Reason, but even though I didn't input a separate prompt, many split screens appeared hehehe</p>

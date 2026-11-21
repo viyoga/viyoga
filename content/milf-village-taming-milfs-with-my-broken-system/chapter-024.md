@@ -51,9 +51,9 @@ chapter = 24
 
 <p>&quot;It’s okay, Mom, I’m doing this all for your sake, so don’t worry.&quot;</p>
 
-<p>&quot;Ahnn... d-don’t rub against me... i-it’s too much~.&quot; His hard shaft was now rhythmically bumping into the towel covering her lower half, the towel is just a fragile protective barrier...so the Arielle can feel the bulging one doing it’s deed.</p>
+<p>&quot;Ahnn... d-don’t rub against me... i-it’s too much.&quot; His hard shaft was now rhythmically bumping into the towel covering her lower half, the towel is just a fragile protective barrier...so the Arielle can feel the bulging one doing it’s deed.</p>
 
-<p>&quot;It’s only because I’m leaning in closer to reach further, Mom~. I’m not doing it on purpose, hehe...&quot; Owen shamelessly lied while grinding his weight against her back.</p>
+<p>&quot;It’s only because I’m leaning in closer to reach further, Mom. I’m not doing it on purpose, hehe...&quot; Owen shamelessly lied while grinding his weight against her back.</p>
 
 <p>She was truly experiencing paradise right now, yet she stubbornly held onto her maternal facade, pretending she didn’t want this to happen.</p>
 

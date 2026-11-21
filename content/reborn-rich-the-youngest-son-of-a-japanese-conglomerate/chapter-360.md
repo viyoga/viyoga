@@ -41,7 +41,7 @@ chapter = 360
 <p>Because there might be an issue of legitimacy, if there is an inherited Martial Way of the Tairaga Family, I should at least learn it.</p>
 <p>"It's quite a famous Martial Way, but you don't recognize it even after seeing it?"</p>
 <p>"Well...."</p>
-<p>"My Sabu is Fujigasaski Rinka." This time, she was even more surprised. Rather, she seemed even more surprised than me being Taira Ryuta. The unique Japanese Eeh~? reaction was quite amusing.</p>
+<p>"My Sabu is Fujigasaski Rinka." This time, she was even more surprised. Rather, she seemed even more surprised than me being Taira Ryuta. The unique Japanese Eeh? reaction was quite amusing.</p>
 <p>"I am Rinka's friend, so I briefly dueled with my friend's Disciple." Even Shimokawabe Airen, when she confirmed that I was Fujigasaski Rinka's Disciple, only then did she nod her Head.</p>
 <p>"For a Teacher, I thought your Body was unusually good."</p>
 <p>"First, my name is a Secret. Because of a Mission, I came this semester."</p>

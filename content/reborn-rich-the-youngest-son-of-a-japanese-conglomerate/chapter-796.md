@@ -23,7 +23,7 @@ chapter = 796
 <p>"Haaah-aah...! As expected, Ryuta-cchi's is so huge...! It's big and incredibly stiff...♥"</p>
 <p>As I lay down, my cock stood pointing at the ceiling as if to pierce the sky, and Seizawa Shii, once again admiring it, praised my cock. Naturally, since I was the owner of the cock that was the subject of that praise, I couldn't help but feel proud.</p>
 <p>"My cobra is quite big, indeed."</p>
-<p>"Ahahaha~! Before you called it an anaconda, and today it's a cobra? Ryuta-cchi, you're so funny? I'm going to sit now."</p>
+<p>"Ahahaha! Before you called it an anaconda, and today it's a cobra? Ryuta-cchi, you're so funny? I'm going to sit now."</p>
 <p>Seizawa Shii, who had been laughing at my words for a while, slowly began to squat down onto my cock. Her spatial awareness must have been incredibly keen; she didn't even grab my cock to aim, yet as Seizawa Shii sat down, my cock began to slide directly into her pussy.</p>
 <p>"Haaht-heueu.... This, thiss...♥ It feels good, when you first put it in, heueut, that feeling of my inside spreading wide...! Heueung, Ryuta-cchiiiii♥"</p>
 <p>As my glans widened Seizawa Shii's vaginal opening and entered, she trembled slightly as if reaching climax. Seeing her keep saying she liked this, it seemed my cock entering and widening the inside of her pussy truly felt good to her.</p>
@@ -45,7 +45,7 @@ chapter = 796
 <p>Jjok, jjok, jjeueup, jjop...! Jjeubeup♥</p>
 <p>Seizawa Shii grabbed my chin and began a somewhat rough kiss. It seemed she had sat me on the chair because she wanted to kiss. Naturally, she didn't stop her violent hip thrusting.</p>
 <p>Ppu-deuk ppu-deuk....</p>
-<p>Each time Seizawa Shii thrust her hips, my tailbone no longer ached, but the not-so-sturdy four legs of the plastic chair directly absorbed that kinetic energy. The ominous 'ppu-deuk ppu-deuk' sounds continued from the plastic chair until it could no longer endure, and with a 'Pang~!' sound, the chair shattered.</p>
+<p>Each time Seizawa Shii thrust her hips, my tailbone no longer ached, but the not-so-sturdy four legs of the plastic chair directly absorbed that kinetic energy. The ominous 'ppu-deuk ppu-deuk' sounds continued from the plastic chair until it could no longer endure, and with a 'Pang!' sound, the chair shattered.</p>
 <p>"Keueut...!"</p>
 <p>Even though the chair broke, I stayed suspended in empty air without falling, like performing the 'Horse Stance' (a stance resembling an invisible chair) from martial arts novels. I forced myself to stay put because if I fell with the chair, I could get cut by the plastic shards.</p>
 <p>"Because the plastic broke, we'll have to do it standing."</p>
@@ -77,10 +77,10 @@ chapter = 796
 <p>"Let's clean up the floor and do Round 2, Ryuta-cchi♥"</p>
 <p>Just one round already damaged several washing machines; if we go for a few more rounds as Seizawa Shii says, won't this place become complete ruins?</p>
 <p>Seizawa Shii B-cut!</p>
-<p>Hanasaki Sayaka (Arisu's Actor friend from the early chapters) Casual Attire + Underwear requested by Gojoy-nim~!</p>
-<p>Casual Attire~! She usually helps out serving at the pub her parents run haha</p>
-<p>Underwear~!</p>
-<p>Jin Mija Tank Top Hotpants Buttocks Emphasis Illustration requested by ISaveI-nim~!</p>
+<p>Hanasaki Sayaka (Arisu's Actor friend from the early chapters) Casual Attire + Underwear requested by Gojoy-nim!</p>
+<p>Casual Attire! She usually helps out serving at the pub her parents run haha</p>
+<p>Underwear!</p>
+<p>Jin Mija Tank Top Hotpants Buttocks Emphasis Illustration requested by ISaveI-nim!</p>
 <p>What's the last one haha</p>
-<p>Lizhael, arm in arm, looking down and pressing with her feet, requested by seungj050-nim~!</p>
+<p>Lizhael, arm in arm, looking down and pressing with her feet, requested by seungj050-nim!</p>
 <p>I didn't think it would come out, but it did haha</p>

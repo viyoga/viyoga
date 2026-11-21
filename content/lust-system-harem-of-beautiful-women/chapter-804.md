@@ -1,5 +1,5 @@
 +++
-title = "Chapter 804: Vixen~~ [18+]"
+title = "Chapter 804: Vixen [18+]"
 weight = 804
 [extra]
 chapter = 804
@@ -23,7 +23,7 @@ chapter = 804
 
 <p>Luis’s eyes lit up. This was the perfect battlefield!</p>
 
-<p>&quot;Hubby, let’s sleep a little longer, okay~!&quot;</p>
+<p>&quot;Hubby, let’s sleep a little longer, okay!&quot;</p>
 
 <p>Deewa wasn’t a morning person and yawned again.</p>
 

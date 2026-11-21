@@ -83,9 +83,9 @@ chapter = 576
 <p>"Fight me!" Zaila said again but this time, an icy blue spell circle appeared and a barrage of hail, accompanied by chilly winds surged from it and flew at Caius.</p>
 <p>Caius was ready.</p>
 <p>He slid back multiple steps, putting distance between himself and Zaila as he cast a dark purple spell circle.</p>
-<p>~Stygian Wall~</p>
+<p>Stygian Wall</p>
 <p>Obsidian sleets formed of mana, appeared and combined to form an ugly wall that gave an air of death. This was a Fifth Circle Dark Magic defensive spell Caius had created. It was his first, admittedly poor, attempt at tapping into the Death aspect of Dark Magic.</p>
-<p>The barrage of hail and chilly winds struck the ~Stygian Wall~ spell, breaking pieces of it off but ultimately it held and Caius didn't have to deploy a second spell. Still, he kept the second spell at the ready as he had no way of predicting what Zaila was going to do next.</p>
+<p>The barrage of hail and chilly winds struck the Stygian Wall spell, breaking pieces of it off but ultimately it held and Caius didn't have to deploy a second spell. Still, he kept the second spell at the ready as he had no way of predicting what Zaila was going to do next.</p>
 <p>'Clearly, I read her wrong,' he thought with gritted teeth.</p>
 <p>"What the hell is this?!" He yelled at Zaila out loud.</p>
 <p>The Captain didn't look at all put off by the fact that he survived. She didn't attempt another attack. Yet.</p>

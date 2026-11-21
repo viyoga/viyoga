@@ -33,7 +33,7 @@ chapter = 190
 
 <p>Qingyi approached them both, grabbing one of Ruxue’s huge tits while kissing Qingxue.</p>
 
-<p>“Nghnn~~ husband?” The silver-haired beauty opened her beautiful blue eyes.</p>
+<p>“Nghnn husband?” The silver-haired beauty opened her beautiful blue eyes.</p>
 
 <p>“Aren’t you forgetting something?”</p>
 

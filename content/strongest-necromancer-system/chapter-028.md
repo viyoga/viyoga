@@ -18,7 +18,7 @@ chapter = 28
 <p>Gina spoke up with a small frown on her face. She was also worried like Jason, but a part of her was slightly glad that they could leave.</p>
 <p>Mira assured them that she was perfectly fine! She had only fallen down, and she would be at a hundred percent once she got something to eat. Jason finally sighed and nodded. He leaned down and gave his mother a kiss on the forehead before he promised her he'd come to see her tomorrow.</p>
 <p>Mira smiled as she watched them go and then sighed. Her children were growing up so fast and she knew that it wouldn't be long before Jason went somewhere she couldn't follow him—just like his older sister.</p>
-<p>Ring~! Ring~! Ring~!</p>
+<p>Ring! Ring! Ring!</p>
 <p>Mira was surprised when she suddenly heard her phone ringing, and she turned to see who it was. The number was unknown, and she frowned before picking it up.</p>
 <p>"Hello."</p>
 <p>[Hello... mom...]</p>

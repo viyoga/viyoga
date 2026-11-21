@@ -83,5 +83,5 @@ chapter = 716
 <p>"I'm worried. Will Yong-tae's mother like me?"</p>
 <p>Han Yu-gyeong was worried because my biological mother, Jinmija Yeosa, had decided to come to Korea for the New Year. It must be a little strange to meet her future mother-in-law for the first time.</p>
 <p>____</p>
-<p>Minamoto Lisa bikini + armpit pics requested by RefundAbsolutelyNotPossible-nim~!</p>
+<p>Minamoto Lisa bikini + armpit pics requested by RefundAbsolutelyNotPossible-nim!</p>
 <p>Kkiooot!</p>

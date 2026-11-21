@@ -40,4 +40,4 @@ chapter = 168
 <p>"Small boobies... but they’re perfect. Light, aerodynamic. I don’t need back pain in my life, though with my Strength stat, I probably wouldn’t anyhow, but let’s ignore such matters, shall we? I’d rather sprint through a battlefield feeling light and tight than lug around those giant udders of hers."</p>
 <p>Riven’s jaw dropped, her entire face heating up like a kettle at her unabashed sister’s lack of a mouth filter. "Udders?!" she sputtered, arms folding over her generous cleavage, though it only made them look bigger under the open lab coat and sexy bras.</p>
 <p>Rae once again ignored her sister as she wasn’t done noting her observations.</p>
-<p>"Big, sexy muscles~" she declared with a proud flex of her biceps. "Years of training, no skipped arm days." Then she reached out with practiced swiftness and pinched a bit of squishy softness on her Riven’s lower belly.</p>
+<p>"Big, sexy muscles" she declared with a proud flex of her biceps. "Years of training, no skipped arm days." Then she reached out with practiced swiftness and pinched a bit of squishy softness on her Riven’s lower belly.</p>

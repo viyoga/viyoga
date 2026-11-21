@@ -70,5 +70,5 @@ chapter = 572
 <p>That doesn't mean I have to become more cruel than I am now, but I need to act a little more thoroughly. I steeled my resolve and reached out my fist, smashing the head of the Yong-cheol faction thug standing closest to me.</p>
 <p>__________</p>
 <p>Taira Kanna's school uniform</p>
-<p>Disciplinary Committee Chairman's school uniform~!</p>
+<p>Disciplinary Committee Chairman's school uniform!</p>
 <p>I made it a while ago, but I forgot to upload it, so I'm uploading it now hehe</p>

@@ -29,7 +29,7 @@ Lilith had a neutral expression on her face as she looked at the people moving c
 
 "Hmm… so if he doesn't find it before the end ceremony, you wouldn't be able to reward him, would you?" Lilith said in a neutral tone while caressing Luna's g-spot inside her pussy.
 
-"Mhm~... Y-yes, M-Madam…" Luna's body was shaking but still she managed to answer.
+"Mhm... Y-yes, M-Madam…" Luna's body was shaking but still she managed to answer.
 
 "I see. No worries, he'll find it. You didn't hide it somewhere too difficult, did you?" Lilith said while lowering Luna's robes and watching her big tits jiggle in front.
 
@@ -81,7 +81,7 @@ Emilia got eliminated from this round and she decided to go join her mother-in-l
 
 Emilia walked towards Lilith and as she got close to her, the scene that she saw completely changed and she started hearing Luna's moan.
 
-"Ahh~ Ahh~ M-Madam… n-not th-there…"
+"Ahh Ahh M-Madam… n-not th-there…"
 
 Luna was still in the same position as before, sitting in front of Lilith and Lilith was fingering her intensely. Luna had her hands on Lilith's and was trying to stop Lilith from playing with her clit as it was very sensitive and weak.
 
@@ -115,7 +115,7 @@ Lilith then shifted her attention to Luna and having two of her fingers lodged i
 
 Luna couldn't help it anymore. She was very close to climax. Her body fell back to get support, her toes curled up, and her eyes rolled back as Lilith fingered her.
 
-"Ahh~ Madam… I-I… I am…" Luna said in between her moans.
+"Ahh Madam… I-I… I am…" Luna said in between her moans.
 
 Lilith nibbled onto Luna's ear lobes and said softly, "just relax and cum. No need to worry about anything else. This is your reward after all."
 
@@ -153,11 +153,11 @@ As he was walking, the event began once again.
 
 Lith reached where his mother was and as he did, the scene in front of him surprised him.
 
-"Ahh~ I am cu-cumming…"
+"Ahh I am cu-cumming…"
 
 Spurrrt!
 
-"Ahhhh~"
+"Ahhhh"
 
 Luna gripped Lilith's hands tightly and her body shivered as she climaxed.
 

@@ -30,7 +30,7 @@ chapter = 1798
 <p>Black Fang raised an eyebrow.</p>
 <p>"You might be older by four hundred years-"</p>
 <p>"Three hundred and eighty," Black Fang corrected instantly.</p>
-<p>"Hehe~" Ayame’s giggle deepened, the color coming back into her voice. "Fine, three hundred and eighty, but you didn’t have the chance to mature the way people are supposed to. Growing up in terrible circumstances, killing creatures from the age of three, abandoned in a forest..."</p>
+<p>"Hehe" Ayame’s giggle deepened, the color coming back into her voice. "Fine, three hundred and eighty, but you didn’t have the chance to mature the way people are supposed to. Growing up in terrible circumstances, killing creatures from the age of three, abandoned in a forest..."</p>
 <p>She looked up at the unamused face with warmth that didn’t bother being subtle. "One could argue you’re still a kid in a woman’s body."</p>
 <p>The raised eyebrow flattened into narrowed eyes. Black Fang did not agree with this.</p>
 <p>Not one bit.</p>

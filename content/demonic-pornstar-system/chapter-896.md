@@ -5,7 +5,7 @@ weight = 896
 chapter = 896
 +++
 
-<p>Calypso pulled her hand back laughing, a bright, delighted sound that had nothing to do with the heat and everything to do with what it meant. She turned to Kaiden with a grin that could have powered the containment artifacts. "I adore this thing, Darling~"</p>
+<p>Calypso pulled her hand back laughing, a bright, delighted sound that had nothing to do with the heat and everything to do with what it meant. She turned to Kaiden with a grin that could have powered the containment artifacts. "I adore this thing, Darling"</p>
 <p>One of the government representatives was speaking into his phone in rapid, clipped sentences. "Even the monsters! Same reading! Yes! I don’t know!"</p>
 <p>The other had given up on his phone and was just watching, mouth slightly open. The chat had long since passed any readable speed, millions of viewers watching Eclipse shatter every record in the history of awakened classification, one woman at a time, with identical results that defied everything the discipline thought it knew.</p>
 <p>Kaiden leaned against the wall and watched his girls own the room, and the pride swelling through him had nothing to do with Calypso’s residual heat.</p>

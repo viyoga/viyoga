@@ -32,7 +32,7 @@ chapter = 617
 <p>"Do you know what Eagle Eye Beagley first thought when he saw Three-Sword Style Zoro?"</p>
 <p>"Huh? I don't know."</p>
 <p>"Why is he wearing a weapon in his helmet compartment?"</p>
-<p>"Ahaha, what is that~."</p>
+<p>"Ahaha, what is that."</p>
 <p>While talking, I felt like I might accidentally spoil something, so I told her a meme I had seen a long time ago. Minamoto Risa seemed to find it quite funny and burst out laughing with "Ahaha."</p>
 <p>As we were talking in a friendly atmosphere, the pasta we had chosen was served. Hmm, not bad? It was quite delicious. Maybe it felt more delicious because I chose everything from the ingredients to the sauce and noodles. We were quite hungry, perhaps because reading books burns calories, so we quietly began to focus on our meal.</p>
 <p>"By the way, is the photo printing going well?"</p>

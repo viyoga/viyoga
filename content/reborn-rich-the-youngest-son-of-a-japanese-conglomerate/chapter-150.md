@@ -35,7 +35,7 @@ chapter = 150
 <p>Nagumo Sian gave me a seductive smile that stimulated my imagination and hugged me once before approaching Mimata Chieri and Sawayanagi Azuma to talk about future matters. Anything.... She was a mama who knew how to excite people a lot.</p>
 <p>"....We'll do it that way, and I look forward to working with you in the future."</p>
 <p>"Please be careful going back, President-nim!"</p>
-<p>"Goodbye~."</p>
+<p>"Goodbye."</p>
 <p>Nagumo Sian waved as she got into the car we had come in, Sawayanagi Azuma bowed politely with a still disciplined attitude, and Mimata Chieri waved with a smile. I exchanged glances with Nagumo Sian and bowed my head.</p>
 <p>After Nagumo Sian left, Mimata Chieri approached me with a serious expression. What's going on?</p>
 <p>"Hubae-nim."</p>

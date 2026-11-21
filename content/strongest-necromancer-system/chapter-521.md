@@ -21,7 +21,7 @@ chapter = 521
 <p>Gina was still looking at the ring with a wide smile on her face, and another surge of excitement suddenly bubbled up from inside Gina’s heart as Gina let out a squeal and jumped on Jason again! Jason laughed as they both fell to the ground in a tangle of limbs, and he was immediately captured in another kiss!</p>
 <p>"Mmh, Gina, wait. The deer. I think it’s burning."</p>
 <p>Gina leaned into Jason’s ear, and she licked it softly before she bit down on his earlobe and moaned in a sultry voice.</p>
-<p>"Let it burn~"</p>
+<p>"Let it burn"</p>
 <p>Gina’s hand immediately went into Jason’s trousers, and Gina smiled as she heard Jason curse. Gina didn’t care if their meal burnt to a crisp! She wasn’t letting Jason go until she had all of his seed inside her!</p>
 <p>That night, the sound of skin slapping against skin was only drowned out by the sound of the heavy rain pouring outside!</p>
 <p>....</p>

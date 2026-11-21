@@ -18,8 +18,8 @@ chapter = 568
 <p>I wanted to eat Korean-style Chinese food that I hadn't been able to eat for a long time, so I chose the hotel's Chinese restaurant. There were restaurants with different themes on each floor, so there weren't many students from St. Francisco Girls' Academy. I ordered jjampong, jajangmyeon, and tangsuyuk and waited, and then our special class students came down.</p>
 <p>All the students in our class came to the Chinese restaurant. Even if I'm eating here, aren't they following me too much?</p>
 <p>,Teacher, you were here.</p>
-<p>,Ryuta-cchi~☆</p>
-<p>,Recommend something with a lot of protein, teach~!</p>
+<p>,Ryuta-cchi☆</p>
+<p>,Recommend something with a lot of protein, teach!</p>
 <p>I asked, watching the students sit naturally around me with a commotion.</p>
 <p>,Are you all going to eat here?</p>
 <p>,We can eat at other restaurants in Japan. There aren't many places that sell Korean-style Chinese food.</p>

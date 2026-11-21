@@ -37,7 +37,7 @@ chapter = 489
 
 <p>He couldn&#x27;t resist teasing further, &quot;If I did it, this wouldn&#x27;t be a massage. It&#x27;d be foreplay.&quot;</p>
 
-<p>&quot;How can you speak to your mother like that~&quot; Ruth shot him a coquettish glare, her tone playful. &quot;Here I am working hard, and you just sit and watch? What, are you supervising my work?&quot;</p>
+<p>&quot;How can you speak to your mother like that&quot; Ruth shot him a coquettish glare, her tone playful. &quot;Here I am working hard, and you just sit and watch? What, are you supervising my work?&quot;</p>
 
 <p>&quot;Mom, I&#x27;m just observing, seeing if there&#x27;s any way I can help,&quot; Luis chuckled. He glanced at his wife and added, &quot;Mom&#x27;s technique must be incredible. Look how blissful she&#x27;s made our Lily.&quot;</p>
 

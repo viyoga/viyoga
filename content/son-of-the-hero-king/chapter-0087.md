@@ -7,7 +7,7 @@ chapter = 87
 
 <p>[Medea's World]</p>
 <p>Standing now alone in her garden, Medea was sipping on one of her best tea as she gazed absent-mindedly at the horizon. She was currently wearing her usual black robe that tightly hugged her body.</p>
-<p>"Heh~! Already missing your lover?"</p>
+<p>"Heh! Already missing your lover?"</p>
 <p>"*Pfft* *Cough* *Cough* What are you talking ab-about!? I am just thinking!"</p>
 <p>Freya gave a simple smile that showed that she wouldn't argue. Even though she didn't believe it.</p>
 <p>"So, how was it?"</p>

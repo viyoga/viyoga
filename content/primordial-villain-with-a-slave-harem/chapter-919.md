@@ -15,7 +15,7 @@ chapter = 919
 <p>Feng perked up instantly.</p>
 <p>Mearie smiled at the visible reaction her words had and pushed open the massive door, revealing a lush, hauntingly beautiful sitting room with velvet drapes trailing the floors, crystal candelabras glittering in low light, and chairs that were more like thrones carved from blackwood and inlaid with rich gold decorations. "Pick a seat first, darling."</p>
 <p>Feng flopped into a plush crimson chair and watched in fascination as Mearie stepped over to an elaborate cabinet inlaid with silver decorations. The vampires truly loved to live like kings, surrounded by luxury... With a practiced hand, she opened it and pulled out a tall, ancient bottle filled with a dark, shimmering liquid.</p>
-<p>"Ta-da~ Vampire royal vintage. Don’t worry, this one has no blood in it... Aged at least twenty thousand years. They only brought this out when two dynasties merged under their iron fist or when they conquered yet another race."</p>
+<p>"Ta-da Vampire royal vintage. Don’t worry, this one has no blood in it... Aged at least twenty thousand years. They only brought this out when two dynasties merged under their iron fist or when they conquered yet another race."</p>
 <p>Serika and Quinlan exchanged a look. Then, at the same time, they said:</p>
 <p>"She’s fifteen."</p>
 <p>Mearie paused, bottle still in hand, then turned to Feng with a mischievous twinkle in her eyes. "Do you want to try it?"</p>
@@ -23,7 +23,7 @@ chapter = 919
 <p>Serika smiled at the girl’s eager expression, looked away with a chuckle, while Quinlan just gave a little shrug and threw himself into a nearby chair. "Not my daughter."</p>
 <p>"Exactly," Serika agreed with a grin, plopping down beside him.</p>
 <p>Neither of them was the overly responsible big brother, big sister type of people...</p>
-<p>Luminara giggled as she glided over to the cabinet and pulled out several crystal wine glasses, setting them carefully on a tray that was just as elaborately decorated with luxurious metal carvings. "Then let’s all have a proper seat, shall we? Nothing serious should ever be discussed without a little bit of indulgence~"</p>
+<p>Luminara giggled as she glided over to the cabinet and pulled out several crystal wine glasses, setting them carefully on a tray that was just as elaborately decorated with luxurious metal carvings. "Then let’s all have a proper seat, shall we? Nothing serious should ever be discussed without a little bit of indulgence"</p>
 <p>The group settled in, their gold-trimmed thrones comfortably deep, the velvet cushions swallowing them up like warm clouds. For a fleeting moment, even in a realm of forgotten vampires and ancient regrets, there was something cozy and familial about the scene.</p>
 <p>Like a council of strange royalty... or a family gathering across time.</p>
 <p>But then, both mothers shifted in their seats with fluid elegance. In perfect sync, Mearie and Luminara crossed one leg over the other, their velvety dresses sliding just enough to reveal their juicy thighs.</p>

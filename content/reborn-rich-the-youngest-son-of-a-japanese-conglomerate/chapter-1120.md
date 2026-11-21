@@ -54,4 +54,4 @@ chapter = 1120
 <p>"Tell that bastard Yuuichi once more. Not to do something rash like letting his Anger consume him and killing the Assassin."</p>
 <p>"Understood. I will convey that to Young Master Yuuichi as is."</p>
 <p>Taira Jiro's Words, Tateyama Genta bowed his Head and answered. For complete Revenge, the Assassin must never die until the Mastermind was revealed.</p>
-<p>TheDreaming-nim requested Aizawa Sora 1. Exposure at a social gathering 2. Exposure in a Courtroom~! 1. 2. Gojoy-nim requested 1. Yukiko and Ryuta leaving the Banquet Hall together in Chapter 67, 2. Chapter 67 Illustration Remake~! 1. It was difficult to convey the feeling of leaving the Banquet Hall together, so I tried to create the feeling of them moving while holding hands hehe. 2.</p>
+<p>TheDreaming-nim requested Aizawa Sora 1. Exposure at a social gathering 2. Exposure in a Courtroom! 1. 2. Gojoy-nim requested 1. Yukiko and Ryuta leaving the Banquet Hall together in Chapter 67, 2. Chapter 67 Illustration Remake! 1. It was difficult to convey the feeling of leaving the Banquet Hall together, so I tried to create the feeling of them moving while holding hands hehe. 2.</p>

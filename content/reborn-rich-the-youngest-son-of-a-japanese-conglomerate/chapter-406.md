@@ -8,8 +8,8 @@ chapter = 406
 <p>The Ratflix viewing party ended, and the first assignment that the Dating Experience Club had been working on for several days was over. The rest was for all the students to write down their experiences and make it a part of the booklet that would be created for the festival later, but that wasn't my job. It was the club members' job, so I had nothing more to do.</p>
 <p>Seizawa Shii and Konoe Akina, who had been creating a strange atmosphere in the faculty advisor's office until just now, were pretending nothing had happened, acting all innocent and aloof. I was standing there awkwardly with a semi because of these two, but they were acting so nonchalant, which was a little annoying, but it would be weird to make a fuss about what happened, so I quietly said goodbye to the kids and went outside.</p>
 <p>"Work hard. I'm heading out."</p>
-<p>"Bye~! Ryuta-cchi!"</p>
-<p>"Goodbye, teacher~!"</p>
+<p>"Bye! Ryuta-cchi!"</p>
+<p>"Goodbye, teacher!"</p>
 <p>I received the students' greetings and went down to the first floor. I was still horny, so I was going to go to the nurse's office where Kijimoto Jurie is before going to the Education Preparation Room, but history teacher Ootawa Masato was loitering in front of the nurse's office. Hmm, seeing Ootawa Masato in the hallway, Kijimoto Jurie probably isn't in the nurse's office.</p>
 <p>"Ah, Kiji... no, Yamashiro-sensei. What brings you down from the second floor?"</p>
 <p>"I have a club on the second floor that I'm advising. I just came to check on them."</p>

@@ -87,7 +87,7 @@ chapter = 136
 <p>Tyr Highland, who until now had been the epitome of wrath, smiled a little as he said.</p>
 <p>"I beg your forgiveness, your highness, but I cannot comply. Rules and regulations are what make a kingdom strong. A lax attitude will give birth to lax results."</p>
 <p>Even though he was speaking like that, Tyr had to admit that the prince really won his respect those few days. Talk was easy but actions always spoke louder than words.</p>
-<p>"Yeah~yeah~yeah. I understand. Enough with your nagging. My headache is getting worse."</p>
+<p>"Yeahyeahyeah. I understand. Enough with your nagging. My headache is getting worse."</p>
 <p>The previously tense atmosphere became smoothed thanks to this banter.</p>
 <p>Even though six days seemed such a small amount, many things could happen in this period.</p>
 <p>Since Lilith was unable to, or rather, refused to participate, Sol was handed the responsibility he had to deal with ahead of time.</p>

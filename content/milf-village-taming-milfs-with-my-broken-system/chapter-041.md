@@ -67,7 +67,7 @@ chapter = 41
 
 <p>While her own daughter was often quite dismissive and spoiled by her father, having Owen around felt like a breath of fresh air.</p>
 
-<p>’Hoh...then let’s get much closer, Auntie~’ Owen stepped directly behind her back, resting his hands firmly on the kitchen counter on either side of her.</p>
+<p>’Hoh...then let’s get much closer, Auntie’ Owen stepped directly behind her back, resting his hands firmly on the kitchen counter on either side of her.</p>
 
 <p>His head hovered just above her shoulder, looking down at the cutting board as she sliced the vegetables.</p>
 
@@ -77,7 +77,7 @@ chapter = 41
 
 <p>The warmth radiated through her clothes, sending a sudden shiver across her entire body.</p>
 
-<p>&quot; It’s much more comfortable to learn this way, Auntie Pam~&quot; Owen murmured smoothly, subtly pressing his rigid length against her curves, causing her hands to freeze entirely.</p>
+<p>&quot; It’s much more comfortable to learn this way, Auntie Pam&quot; Owen murmured smoothly, subtly pressing his rigid length against her curves, causing her hands to freeze entirely.</p>
 
 <p>The vivid good information Morenne had shared with her the previous evening instantly flooded her mind, causing her cheeks to burn a brilliant shade of crimson.</p>
 
@@ -95,6 +95,6 @@ chapter = 41
 
 <p>Her husband is enjoying the news after all.</p>
 
-<p>&quot;Your body is absolutely stunning, Auntie Pam. Besides, I don’t quite know what you mean. I’m barely moving here~&quot; Owen shamelessly whispered into her ear.</p>
+<p>&quot;Your body is absolutely stunning, Auntie Pam. Besides, I don’t quite know what you mean. I’m barely moving here&quot; Owen shamelessly whispered into her ear.</p>
 
 <p>Thanks to his impressive height, he could technically claim innocence while subtly shifting his weight, making the friction just subtle enough to drive her wild without creating an obvious scene.</p>

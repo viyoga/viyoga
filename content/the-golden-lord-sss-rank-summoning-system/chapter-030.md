@@ -76,7 +76,7 @@ chapter = 30
 <p>She couldn’t deny that it hurt a little, but that was okay.</p>
 <p>Evelyn was a good woman.</p>
 <p>She hesitated. Then, finally, she grabbed the hem of her dress.</p>
-<p>"Hm... Husband really needed a good bath either way~~" Alice blushed deeply as the fabric slid over her voluptuous curves.</p>
+<p>"Hm... Husband really needed a good bath either way" Alice blushed deeply as the fabric slid over her voluptuous curves.</p>
 <p>Ethan didn’t smell bad, but still, he was drenched in sweat.</p>
 <p>With trembling steps, she walked over to Ethan, hugging him next to Evelyn.</p>
 <p>The two women’s enormous twin mountains squeezed obscenely against him, fighting for space on his chest.</p>

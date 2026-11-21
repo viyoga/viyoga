@@ -41,7 +41,7 @@ chapter = 889
 
 <p>She grabbed the shaft with both hands, squeezing it tightly, feeling the moisture of her own saliva—still connecting her mouth to the glans in thick, pearly threads—stretching before snapping and dripping down onto her breasts in warm droplets.</p>
 
-<p>"Aghn~~ How the hell does something this big fit inside me? You perverted scoundrel!" Huoyue cursed under her breath, almost as if she were berating herself for being so wet over something like this, her thighs rubbing restlessly against each other beneath her dress.</p>
+<p>"Aghn How the hell does something this big fit inside me? You perverted scoundrel!" Huoyue cursed under her breath, almost as if she were berating herself for being so wet over something like this, her thighs rubbing restlessly against each other beneath her dress.</p>
 
 <p>She sighed deeply, her cheeks flushed a deep red, and moved her delicate hands backward before pulling them toward her again, quickly finding a rhythm as she stroked Qingyi’s cock.</p>
 
@@ -63,7 +63,7 @@ chapter = 889
 
 <p>Qingyi spoke, taking care not to hurt her, while at the same time forcing his cock even deeper into that tight throat.</p>
 
-<p>"Gkhhhn!!~" Huoyue moaned against his groin, the massive member plunging into her throat with a wet, obscene sound.</p>
+<p>"Gkhhhn!!" Huoyue moaned against his groin, the massive member plunging into her throat with a wet, obscene sound.</p>
 
 <p>She choked on the cock, her hands flying up to Qingyi’s thighs and squeezing so hard that red half-moons bloomed on his skin, marked by her fingernails.</p>
 

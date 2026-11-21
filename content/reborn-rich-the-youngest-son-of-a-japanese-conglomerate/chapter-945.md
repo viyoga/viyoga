@@ -22,7 +22,7 @@ chapter = 945
 <p>'What are you looking at, Yoda?'</p>
 <p>'Yoda?! A big guy like you is growling so well...!'</p>
 <p>'What? Should we stop growling and just take action? Huh!?'</p>
-<p>'That's good~! I can beat you up since you're a Michinkae!'</p>
+<p>'That's good! I can beat you up since you're a Michinkae!'</p>
 <p>The two looked like they were about to fight at any moment, but their Disciples, Genbaki and Kujo Kina, seemed to have already given up since this had happened a few times. Since the two of them didn't care much, I, who could be said to be an outsider, couldn't step in, so I took a step closer to Genbaki and opened my mouth.</p>
 <p>'Genbaki, are you leaving with your Sabu too?'</p>
 <p>I asked because Genbaki Kiyohira was also wearing his own Clothes and carrying a Bag like Fujigasaki Rinka.</p>
@@ -37,14 +37,14 @@ chapter = 945
 <p>'First, I'll take her to, to our Mansion... and I'm going to move to Tokyo around tomorrow, but before that, I'm going to get all the autographs on Rinka-ttang's stuff....'</p>
 <p>All she was thinking about was getting autographs on Fujigasaki Rinka's Goods besides the Soda Haruto rescue jakjeon, who was my Sajo.... I couldn't help it. She was such a fan that she wouldn't be able to come to her senses until she got the autographs.</p>
 <p>'Okay, take care of the autographs yourself.... Please take good care of our Sabu.'</p>
-<p>'Leave it to me, seonsaeng~!'</p>
+<p>'Leave it to me, seonsaeng!'</p>
 <p>Still, she seemed to have calmed down a bit now, as she made her usual cheerful Expression and patted her chest, saying to trust her. Kina-yang.... Could you please stop hitting your chest like that? It's making them jiggle, so I can't help but look.</p>
 <p>'It's a Nuisance to talk in the Hospital corridor, so let's stop and go down. You two old men, stop it too and let's go.'</p>
-<p>At Fujigasaki Rinka's Words, Musashi Takuro old man and Yoda old man, who were almost nose-to-nose and growling, stopped their staring contest with a 'Heung~!'. As expected, if you have the authority of a Sabu, you can halt a fight between those two Old Monsters with just a single word.</p>
+<p>At Fujigasaki Rinka's Words, Musashi Takuro old man and Yoda old man, who were almost nose-to-nose and growling, stopped their staring contest with a 'Heung!'. As expected, if you have the authority of a Sabu, you can halt a fight between those two Old Monsters with just a single word.</p>
 <p>We took the elevator down to the underground Parking Lot. There was a limousine prepared by Kujo Kina. According to Kujo Kina, this was nothing for her Hero, Fujigasaki Rinka.</p>
 <p>'Sabu, be careful and I'll see you when you leave.'</p>
 <p>'Okay. You said your seonsaeng Work is over? What are you going to do now?'</p>
-<p>Oh~! As I greeted Fujigasaki Rinka, who was getting into the limousine, Fujigasaki Rinka asked what I was going to do.</p>
+<p>Oh! As I greeted Fujigasaki Rinka, who was getting into the limousine, Fujigasaki Rinka asked what I was going to do.</p>
 <p>'I have a lot of things to do. I have company Work right away, so I'm as busy as Sabu.'</p>
 <p>'Yeah, you're coming to see me off at the Airport, right?'</p>
 <p>'That's why I said I'll see you when you leave.'</p>
@@ -82,8 +82,8 @@ chapter = 945
 <p>At the Report of the black cybersuit agent, the leader slowly walked over and checked the file folder. Nothing was written on the outside of the file folder, so he slowly opened the file folder.</p>
 <p>-...!</p>
 <p>On the very first page of the file folder was a Photo of themselves in black cybersuits climbing the stairs. The leader of the black cybersuit agent couldn't help but be surprised when he saw that Photo.</p>
-<p>TheDreaming-nim requested 1. Oofuchi Erika leaning against a vending machine 2. Oofuchi Erika crawling on all fours~!</p>
+<p>TheDreaming-nim requested 1. Oofuchi Erika leaning against a vending machine 2. Oofuchi Erika crawling on all fours!</p>
 <p>1.</p>
 <p>2.</p>
-<p>Neosblue-nim requested Full Armor Full Weapon Alik~!</p>
+<p>Neosblue-nim requested Full Armor Full Weapon Alik!</p>
 <p>Actually, I haven't seen the Gundam you mentioned, so ㅎㅎ I don't know if this is the right feeling ㅎㅎ</p>

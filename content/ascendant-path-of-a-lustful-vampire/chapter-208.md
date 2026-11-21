@@ -34,7 +34,7 @@ chapter = 208
 <p>"I made it bleed," Aylin said and she pointed at a splatter of blood where her icy pike had been a second ago before becoming nothing.</p>
 <p>Caius shook his head.</p>
 <p>"That wasn’t you," he said, "It was all of us."</p>
-<p>Every attack they had made thus far had been wearing the Beast down. Physical attacks that had broken past its fourth-star defences and rocked its shit and magical attacks that had avoided the defenses entirely like Aurelius’s ~Freya’s Benevolence~ spell and Kaya’s energy-sapping spell.</p>
+<p>Every attack they had made thus far had been wearing the Beast down. Physical attacks that had broken past its fourth-star defences and rocked its shit and magical attacks that had avoided the defenses entirely like Aurelius’s Freya’s Benevolence spell and Kaya’s energy-sapping spell.</p>
 <p>"We’ve all had a hand in getting it to bleed, but we don’t have time to actually finish the job," Caius said.</p>
 <p>Against a Beast who actually wanted them dead, they wouldn’t have even had the time to rack up the attacks they had so far.</p>
 <p>Speaking of which, Delia had allowed herself some rest on the ground after getting smacked down earlier but now, she controlled the wind to lift her back to feet and conjured a large Elcetric blue-grey spell circle that created a massive barrier akin to a stormy shield that collided with the Bullcroc’s head right as he prepared to charge at Aylin who was being distracted by Caius’s words.</p>

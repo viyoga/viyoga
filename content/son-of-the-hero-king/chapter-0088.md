@@ -46,7 +46,7 @@ chapter = 88
 <p>If he did so, the prince would have two of the four Duke on his side.</p>
 <p>Arachne's opinion on the matter was obscure, but he was sure that with her obsession with Mars she would at worst choose to be neutral.</p>
 <p>Meaning that the last one would be Loki Gorfard.</p>
-<p>'Ohohoh~! The situation is truly interesting."</p>
+<p>'Ohohoh! The situation is truly interesting."</p>
 <p>If at first, he had only accepted to join the prince because of his &lt;&lt;Gambler instinct&gt;&gt; and the matriarch, now, he was willing to give his all.</p>
 <p>Still, he decided to ask,</p>
 <p>"Your highness, what do you think is the most important for a kingdom? Money? Power? Wisdom? Loyal subjects?"</p>
@@ -57,7 +57,7 @@ chapter = 88
 <p>'What is the most important for a kingdom?'</p>
 <p>This was a question worth pondering over. After all, sooner or later he would become a king.</p>
 <p>"My answer may be still a little immature, but I believe that wisdom and loyalty, while important, aren't the most necessary. The most necessary are money and power."</p>
-<p>"Oh~? Please could you elaborate your highness?"</p>
+<p>"Oh? Please could you elaborate your highness?"</p>
 <p>"Loyalty is without a doubt very important at a personal level. Having few and truly loyal people surrounding you is a true blessing. But, it's impossible to expect an entire kingdom to swear eternal loyalty to one king. Not even the goddesses can do so."</p>
 <p>This was something very important to understand. For example, even though Milia swore loyalty to him, it didn't mean that all the crown's shadow was truly loyal. The same went for Duke Tyr and his ducal house.</p>
 <p>"A necessary amount of wisdom is without a doubt important. But at the end of the day, one or few people can't direct everything in the affairs of a kingdom."</p>

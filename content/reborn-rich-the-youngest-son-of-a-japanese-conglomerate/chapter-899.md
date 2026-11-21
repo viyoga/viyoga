@@ -51,7 +51,7 @@ chapter = 899
 <p>I was curious where it came from, but I couldn't delve deeper here. I thought I could ask later, after everything was over.</p>
 <p>"Good. We'll work together until Takakusaki Gengo is dealt with. But I haven't acknowledged you yet. Once everything is over, we'll have a proper match."</p>
 <p>Musashi Takuro, seemingly having finished his thoughts, approached me and opened his mouth. A condition to fight again was attached, but I nodded my Head. Earlier, I had only displayed the skill level I had during the battle with Kaishu Kakan, but now I was even stronger. My level hadn't risen, but my combat proficiency and various other Abilities had increased. I didn't think I would lose even if I fought Musashi Takuro.</p>
-<p>-♪ ♬♪~!</p>
+<p>-♪ ♬♪!</p>
 <p>As soon as all the discussions were over, my phone rang as if it had been waiting. I took it out of my pocket and checked. It was a Contact from Asada Ei, who was coordinating and synthesizing all the day's situations.</p>
 <p>"Yes, Ei-ssi. This side has been resolved well, according to Plan A."</p>
 <p>As soon as I answered the phone, I told Asada Ei the current Situation. Plan A was to draw Musashi Takuro and Genba Kiyohira to our side. The other plans assumed a Situation where Musashi Takuro wouldn't come to our side. I was telling her that it had fortunately been resolved well, but Asada Ei's Voice in return was strange. It felt like she was incredibly urgent.</p>

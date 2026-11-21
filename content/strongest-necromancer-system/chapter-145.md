@@ -33,7 +33,7 @@ chapter = 145
 <p>Jason rolled up his sleeves with a smile and went to the kitchen. They had some meat today, so he decided he would make some burgers so she could eat them both this morning and later in the day. From what Jason heard, Gina might not be back till late in the afternoon, so Riyala would be alone at least till then.</p>
 <p>As Jason worked in the kitchen, Riyala slowly got off the couch and walked barefoot toward the kitchen island. Riyala was now wearing a pair of Gina’s jeans and Gina’s t-shirt. But since Gina was so much more endowed than Riyala, the shirt was almost twice Riyala’s size! Riyala pulled on the shirt a little. It was the first time she would be wearing something like this so she was still not comfortable with it. Especially since she was showing off so much skin to a man.</p>
 <p>She leaned against the countertop and watched Jason moving around the kitchen. There was a serious look on Jason’s face as he effortlessly made their breakfast and Riyala couldn’t help but admit that Jason was a very desirable male. If Jason had been a Dragonborn prince, then the marriage proposals from families around the kingdom would have come in nonstop!</p>
-<p>Growl~!</p>
+<p>Growl!</p>
 <p>Riyala’s stomach suddenly grumbled and Riyala blushed! Jason turned to her with a knowing smile and she tried her best to keep her prim and proper look on her face, although the blush dusting her cheeks completely ruined her effort.</p>
 <p>"It’ll be done soon."</p>
 <p>Jason chuckled as he said this and Riyala nodded calmly before she spoke up.</p>

@@ -81,13 +81,13 @@ chapter = 35
 
 <p>’Let’s see how much she can take,’ he smiled as he moved his hands.</p>
 
-<p>“Guknh~” Feixue choked as she felt Qingyi’s strong hands grab her hair.</p>
+<p>“Guknh” Feixue choked as she felt Qingyi’s strong hands grab her hair.</p>
 
 <p>Her eyes watered and bubbles of saliva accumulated on her lips as she tried to breathe despite the huge cock that entrapped her.</p>
 
 <p>Without asking permission, Qingyi pulled her even further towards him, reaching her maximum depths before pulling back his hips and repeating the movement.</p>
 
-<p>“Gluk… gluk… mhnn~” Wet sounds filled the room as her throat was repeatedly invaded, tears streaming down her delicate face.</p>
+<p>“Gluk… gluk… mhnn” Wet sounds filled the room as her throat was repeatedly invaded, tears streaming down her delicate face.</p>
 
 <p>Her once delicate pink lips were now red and swollen, covered in saliva that ran down her chin and stained her transparent nightgown.</p>
 

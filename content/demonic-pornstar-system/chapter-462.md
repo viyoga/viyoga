@@ -22,7 +22,7 @@ chapter = 462
 <p>Kaiden nodded once.</p>
 <p>Nyx stretched her arms lazily. "Going to jail together with my besties, it’s kinda exciting."</p>
 <p>Luna instantly scoffed. "Weirdo."</p>
-<p>"Sue me~"</p>
+<p>"Sue me"</p>
 <p>...</p>
 <p>A steel door slid shut behind them.</p>
 <p>No cuffs. No dampening fields. Just concrete walls, a long cell wide enough for all of them, and a single observation camera blinking red above the door.</p>
@@ -62,7 +62,7 @@ chapter = 462
 <p>Clearly, Alice Ashborn was not interested in being consoled. She was much more interested in ensuring that no one interrupted her hugging session with Kaiden, and the approaching Valkyrie was designated as a grave threat.</p>
 <p>Aria froze mid-step.</p>
 <p>Calypso blinked, confused.</p>
-<p>Bastet’s lips curled into the most amused of feline grins. "Interesting...~"</p>
+<p>Bastet’s lips curled into the most amused of feline grins. "Interesting..."</p>
 <p>Alice didn’t care about the reactions of the women. She clung harder to Kaiden’s chest with her eyes narrowed at the approaching woman.</p>
 <p>Silent, but the message was clear:</p>
 <p>Mine.</p>

@@ -37,7 +37,7 @@ chapter = 599
 <p>As a teacher, I went to the soldiers to ask for more details. They said we would go to Shanghai Hongqiao International Airport, one of the two airports in Shanghai and the one closest to our quarantine facility, take a waiting airplane, and fly to Fujikawa Airport, the closest airport to Miyashi.</p>
 <p>After hearing the explanation, I went to the room I was using alone and packed my Luggage. When I came out after quickly packing, it seemed the Students had also packed their Luggage at an incredible speed. That meant they wanted to return Home just as quickly.</p>
 <p>"Everyone finished packing?"</p>
-<p>"Yes~!"</p>
+<p>"Yes!"</p>
 <p>Everyone answered Matsugana Yuzuki, the third-year Class Teacher, with spirited voices. At the announcement that Preparation was complete, we boarded the waiting vehicle. We rode in the back of a military transport truck, not the bus we had arrived in, and headed towards the Airport.</p>
 <p>After driving for about 40 minutes, the Airport came into view. We were able to board the waiting Airplane directly, without any special procedures.</p>
 <p>Naturally, there was no one else to board besides those affiliated with St. Francisco Girls' Academy, so the moment we got on, it departed immediately. The seamless, natural flow of everything indicated that both the South Chinese and Japanese sides had prepared quite well.</p>

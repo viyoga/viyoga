@@ -44,8 +44,8 @@ chapter = 833
 <p>"So, everyone has no Work this Weekend, right?"</p>
 <p>"Ung, if seonsaeng-ssi says so, I'll have to cancel any existing appointments. I'll tell you in advance. Thank you, seonsaeng-ssi."</p>
 <p>"Ryuta, Alik will go too."</p>
-<p>"We naturally have no appointments~!" Since everyone said they had no separate appointments, it seemed fine to go to Kofu City this Weekend.</p>
+<p>"We naturally have no appointments!" Since everyone said they had no separate appointments, it seemed fine to go to Kofu City this Weekend.</p>
 <p>"Ah, and Shimokawabe seonsaengnim also decided to Work with me after Graduation, so she'll be coming with us this time."</p>
 <p>"Really?"</p>
 <p>"Moka Sabu is on our side too...?" At the Story of Shimokawabe Airen's joining, Shimokawabe Airen's two Disciples became very excited. I know she trains them quite rigorously, but it seems both of them still like their Sabu. Indeed, since I also have a Sabu, I could understand that feeling. Because for a Martial artist, the existence of a Sabu is quite special.</p>
-<p>Requested by Hwanbuljeoldaebulga-nim, Lisa, Home Teacher naked body Apron + Armpit image~! Starting with Lisa-ttang~! Home Teacher~! Requested by seungj050-nim, Liz lying on the bed, including her Feet~!</p>
+<p>Requested by Hwanbuljeoldaebulga-nim, Lisa, Home Teacher naked body Apron + Armpit image! Starting with Lisa-ttang! Home Teacher! Requested by seungj050-nim, Liz lying on the bed, including her Feet!</p>

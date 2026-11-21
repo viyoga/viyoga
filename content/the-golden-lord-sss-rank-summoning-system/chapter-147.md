@@ -22,7 +22,7 @@ chapter = 147
 <p>The soft, untanned pale lips of her plump pussy pressed hotly against his mouth, while his hands climbed up and closed over that perfect ass, his fingers sinking deep into the pillowy flesh, kneading and molding the soft mounds around his grip.</p>
 <p>His tongue slipped from his lips, diving into Evelyn’s cleft of Venus. The plump outer folds resisted him for a moment before parting to reveal the glistening pink interior, his tongue burrowing into that warm, fragrant softness.</p>
 <p>He pushed a little deeper, reaching her sweet nectar, his tongue pressing and circling her clitoris in teasing motions.</p>
-<p>"Aghnnn~~ take it easy, my perverted Lord..." Evelyn moaned, wiggling her hips in little circles as she snuggled her ass harder against his face, the soft flesh swallowing his features in that warm, perfumed cleft.</p>
+<p>"Aghnnn take it easy, my perverted Lord..." Evelyn moaned, wiggling her hips in little circles as she snuggled her ass harder against his face, the soft flesh swallowing his features in that warm, perfumed cleft.</p>
 <p>She leaned forward, her weight settling against Ethan’s abdomen, her nails carving red trails along his skin.</p>
 <p>Elena and Alice, realizing that Evelyn had already claimed her throne, took their own positions over Ethan’s cock, one on each side, leaning forward and aligning their torsos with the long, thick member awaiting them.</p>
 <p>They pressed their bodies inward, large pale tits meeting even larger black ones, Alice’s pink nipples brushing against Elena’s dark peaks in a soft kiss of flesh.</p>
@@ -38,7 +38,7 @@ chapter = 147
 <p>’If you want... just come out and join in too...’</p>
 <p>After those words, Mireya fell completely silent, clearly blushing inside the pendant.</p>
 <p>Ethan simply focused on Evelyn’s pussy, savoring the sweet taste of her nectar and the plush softness of her vulva’s lips, his tongue working her clitoris in increasingly faster, increasingly relentless circles, leaving her gasping above him.</p>
-<p>"Aghnn~ you~ fuck~ nghnnn~ you pervert~ you hot.... bastard~" Evelyn whispered between obscene moans, pressing her ass harder against Ethan’s face, the perfumed scent of those round orbs intoxicating his senses.</p>
+<p>"Aghnn you fuck nghnnn you pervert you hot.... bastard" Evelyn whispered between obscene moans, pressing her ass harder against Ethan’s face, the perfumed scent of those round orbs intoxicating his senses.</p>
 <p>Her delicate hands left Ethan’s abdomen, already red with scratches from her sharp nails, climbing up to her own ample breasts and squeezing them hard.</p>
 <p>Her nipples, ringed by patches of pale, untanned skin, stiffened into hard peaks as her fingers sank into the soft, golden flesh of her tits.</p>
 <p>Alice and Elena only smiled as Evelyn melted into moans, returning to their own work with renewed focus.</p>

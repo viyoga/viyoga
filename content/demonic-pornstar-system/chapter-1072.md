@@ -15,7 +15,7 @@ chapter = 1072
 <p>"Breakfast?"</p>
 <p>"It’s morning there."</p>
 <p>"...This clusterfuck is messing with my head."</p>
-<p>"I’m always happy to have Shadow Mommy with us~" Nyx smiled, then considered the invitation. "Though we should think about where we eat. Someone could recognize her in Japan."</p>
+<p>"I’m always happy to have Shadow Mommy with us" Nyx smiled, then considered the invitation. "Though we should think about where we eat. Someone could recognize her in Japan."</p>
 <p>Bastet sat forward across from them.</p>
 <p>"That’s right. She’s in America this morning, then someone spots her in Japan... They’ll start asking questions."</p>
 <p>"No reason to reveal our cards," Calypso nodded.</p>

@@ -5,7 +5,7 @@ weight = 339
 chapter = 339
 +++
 
-<p>"Masteeer~ I want to kill ugly monsters~"</p>
+<p>"Masteeer I want to kill ugly monsters"</p>
 <p>Bastet purred the words lazily, her voice drawn out in a singsong melody as she nuzzled her cheek against Kaiden’s naked lap. Her head rested there as if it rightfully belonged, while the tanned felinid’s golden eyes were half-lidded with utmost bliss. She was utterly content, evidenced by her long tail swishing behind her slowly.</p>
 <p>The tanned woman was the picture of a pampered predator. One who had just had a tasty feast and was having a celebratory relaxation as the cherry on top.</p>
 <p>After Nyx and Aria returned from their little solo excursions, the air in their home shifted immediately as tension and worry dissolved into laughter, relief, and hunger. That hunger had only one cure. The night quickly became a mess of tangled limbs and frantic kisses, their passion rising until it drowned out everything else.</p>
@@ -18,7 +18,7 @@ chapter = 339
 <p>The purr that rumbled out of her chest vibrated against him. It was a primal, indulgent sound that only grew louder as she began bobbing her head on his shaft in a rhythm that was gaining momentum with each greedy lick of her tongue.</p>
 <p>Soon, Bastet’s sharp nails flexed against his thigh to gain a stronger support so that she could really get into it.</p>
 <p>"Haaah..." Kaiden exhaled slowly. His chest rose and fell as overwhelming waves of pleasure coursed through him. His gaze lingered on the eager bobbing of Bastet’s head, then moved on to study the supple muscles of her back moving with hypnotic grace, followed by the sinful curve of her plush butt tilted invitingly into the air, and lastly landed on the teasing swing of her bare feet.</p>
-<p>When his hand finally descended, letting fingers thread into her silky black hair, the effect was immediate. Bastet shivered in delight, "Mmm~" and a purr rumbled deep in her chest as her pace quickened on pure instinct.</p>
+<p>When his hand finally descended, letting fingers thread into her silky black hair, the effect was immediate. Bastet shivered in delight, "Mmm" and a purr rumbled deep in her chest as her pace quickened on pure instinct.</p>
 <p>But soon, his palm began guiding her, and the girl surrendered to it as soon as she felt Kaiden beginning to dictate the pace. She loved when her master took control, so instead of offering protests or vying for control, she just closed her eyes and gave it all up, letting Kaiden use her mouth and throat however he desired.</p>
 <p>The felinid felt her throat being explored deeper and deeper by his length until his cock became fully swallowed in the tight, velvety clutch.</p>
 <p>She had been practicing, he could tell. Not once did she gag, even as his size stretched her limits. Instead, her throat worked around him with fluid grace, making him feel a wet heat envelop him entirely, especially once her tongue also joined the fray.</p>

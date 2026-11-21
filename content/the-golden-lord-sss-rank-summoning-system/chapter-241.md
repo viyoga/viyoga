@@ -38,7 +38,7 @@ chapter = 241
 <p>"Hm... managing the fortune of a billionaire spy while that billionaire spy is on another world, with no chance of returning. Sounds like a dream job." Ethan leaned back against the seat.</p>
 <p>His gaze drifted up through the dense, lush foliage of the tree above them, while his ears caught Ophelia’s sweet, resonant laughter.</p>
 <p>"Many men would kill for a job like that," he remarked.</p>
-<p>"Fufufu~ many have." Ophelia covered her lips elegantly with the back of her hand, then, in a smooth, agile motion, spun around on Ethan’s lap.</p>
+<p>"Fufufu many have." Ophelia covered her lips elegantly with the back of her hand, then, in a smooth, agile motion, spun around on Ethan’s lap.</p>
 <p>Her knees settled on the bench, one on either side of his thighs, and with a slow sway of her hips, she lowered her round, full ass onto his firm legs.</p>
 <p>She leaned forward further, her huge, pale breasts flattening against his firm chest, the soft, heavy mounds spreading outward like two warm pillows of velvety flesh.</p>
 <p>The exposed tops of those breasts bulged just below his chin, their sweet scent filling his nostrils.</p>

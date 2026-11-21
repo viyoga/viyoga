@@ -38,7 +38,7 @@ chapter = 1025
 <p>Even if AmSang was like a loose guild of the world's underworld, they wouldn't allow their affiliated crime syndicate to attack an auction they hosted. Because it would greatly damage AmSang's trust.</p>
 <p>The guys who came here to rob would just be minions, so if we find out their Affiliation, we can hold that organization directly responsible, which is why I told them to capture them.</p>
 <p>"We'll run and break through, so you can attack then."</p>
-<p>"Good, Teacher. Show your power once~!"</p>
+<p>"Good, Teacher. Show your power once!"</p>
 <p>Kujo Kina, even though she was facing battle, didn't seem to feel much Fear. I nodded my Head, looked at Kurayamada Kirie, Sawayanagi Azuma, and Lianna Holden, gave Hand Signals, and started running.</p>
 <p>"What, what! Shoot!"</p>
 <p>Shadow Domination was released, and as those who were only visible as silhouettes were now armed, the surprised Latinx criminal gave the command to fire.</p>
@@ -76,12 +76,12 @@ chapter = 1025
 <p>Kujo Kina, breathing heavily, said, looking around. Those who fought Kujo Kina herself, a Fist Technique practitioner, and Sabu Kinui Tachio had many survivors, whereas those who fought Sei and Rieko and Shigemori Kishio, who used firearms, were mostly dead.</p>
 <p>Still, there were quite a few survivors, enough to find out their Affiliation by interrogating them, so Kujo Kina didn't worry.</p>
 <p>The interrogation was handled by Bodyguard Shigemori Kishio, a former special forces member. The surviving and bound criminals saw Shigemori Kishio approaching them with a great Sword and looked at him with Expressions of Fear.</p>
-<p>MidNightSKY-nim requested Ryuta making Chinese dishes, and Liz eating them deliciously~!</p>
-<p>Ryuta~!</p>
-<p>When it comes to Chinese dishes, it's all about wok-tossing, right? Hehe, I made it with a similar Feeling~! Since individual dishes like Jjajangmyeon or Tangsuyuk can't be made without LORA, I made it as a cooking scene~!</p>
-<p>Liz~!</p>
-<p>chea yun-nim requested Shinoe Misano nude Filming~!</p>
-<p>Chomisaemeonji-nim requested 1. Liz reading a book, 2. Liz masturbating while reading an Erotic book~!</p>
+<p>MidNightSKY-nim requested Ryuta making Chinese dishes, and Liz eating them deliciously!</p>
+<p>Ryuta!</p>
+<p>When it comes to Chinese dishes, it's all about wok-tossing, right? Hehe, I made it with a similar Feeling! Since individual dishes like Jjajangmyeon or Tangsuyuk can't be made without LORA, I made it as a cooking scene!</p>
+<p>Liz!</p>
+<p>chea yun-nim requested Shinoe Misano nude Filming!</p>
+<p>Chomisaemeonji-nim requested 1. Liz reading a book, 2. Liz masturbating while reading an Erotic book!</p>
 <p>1.</p>
 <p>2.</p>
 <p>The very long Chuseok holiday has ended. I wonder if everyone had a good holiday, hehe.</p>

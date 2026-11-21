@@ -12,7 +12,7 @@ chapter = 1968
 <p>He had done a number on all of them.</p>
 <p>They had spent the night crossing an open sea without sleep, then fought a brutal battle against pirates before finally reaching Sarthal. The hot water had washed away the blood and salt. Quinlan had taken care of the tension that remained with equal thoroughness, leaving his women glowing with joy.</p>
 <p>Now Vex held his face between both hands and kissed him with lazy hunger. Her tongue slid over his while Blossom nuzzled his cheek, waiting with surprising patience until the hexwitch pulled back for breath.</p>
-<p>"Blossom’s turn~"</p>
+<p>"Blossom’s turn"</p>
 <p>The dogkin captured his mouth. Her fluffy tail swished through the water while Quinlan filled both hands with the soft butts resting on his thighs.</p>
 <p>Vex watched their tongues meet for several seconds, then leaned across his chest. The three of them shared his mouth in a wet, messy tangle, humming and giggling.</p>
 <p>The rest of the women treated the ongoing makeout session as part of the bath.</p>
@@ -77,7 +77,7 @@ chapter = 1968
 <p>"An Adventurer’s Guild is waiting for us. We can take contracts, travel wherever we please, explore whatever interesting things we find." Her smile widened with every word. "Quin, there is so much to see."</p>
 <p>"And eat!" Blossom remembered, bouncing on his thigh. "Master promised Blossom a food adventure!"</p>
 <p>Kitsara lifted one limp tail from the towels.</p>
-<p>"Foreign food, foreign monsters, foreign beds... Best honeymoon ever~"</p>
+<p>"Foreign food, foreign monsters, foreign beds... Best honeymoon ever"</p>
 <p>The room erupted around Quinlan as his women began talking over one another. Exhaustion had delayed their excitement until they finally felt safe enough to relax, and now every possibility seemed to arrive at once.</p>
 <p>Quinlan listened with Vex and Blossom warm against him, surrounded by the women he had brought across the sea.</p>
 <p>"We’ll see all of it," he promised.</p>

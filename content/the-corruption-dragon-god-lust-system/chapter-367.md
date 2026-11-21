@@ -49,7 +49,7 @@ chapter = 367
 
 <p>“Ah… it could be worse…” Qingyi sighed and, with a smooth movement, jumped back to where the other competitors were waiting, landing next to Qianyao.</p>
 
-<p>“A very interesting technique, what’s its name, young master ‘slayer of immortals’? Fufufu~~” The golden-eyed beauty gave a short, low and elegant laugh, covering her mouth with her small, delicate hand.</p>
+<p>“A very interesting technique, what’s its name, young master ‘slayer of immortals’? Fufufu” The golden-eyed beauty gave a short, low and elegant laugh, covering her mouth with her small, delicate hand.</p>
 
 <p>She could feel Long Jinrui’s eyes piercing her back, all his murderous intent falling on Qingyi, but she just ignored him.</p>
 

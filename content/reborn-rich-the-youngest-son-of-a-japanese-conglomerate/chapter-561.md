@@ -71,5 +71,5 @@ chapter = 561
 <p>,Um, Alik pizza.</p>
 <p>The special class students were exchanging opinions very actively, unlike the meeting just now. In the end, tired of the debate, we decided to pack all the food we wanted and eat in the conference room.</p>
 <p>----------------------</p>
-<p>Conference Room Eve~!</p>
+<p>Conference Room Eve!</p>
 <p>Kkioooooot!</p>

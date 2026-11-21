@@ -26,7 +26,7 @@ chapter = 12
 <p>Still, the witch of time, One of the first five witches, a being so powerful that countries trembled at her name.</p>
 <p>*Huf* *Huf* *Huf*</p>
 <p>Was breathing hard while trying to regulate the heavy blush plastered all over her beautiful face. After some time passed,</p>
-<p>*Sigh~*</p>
+<p>*Sigh*</p>
 <p>She sighed heavily as she slumped in her chair, all the strength leaving her lithe body while covering her face with both of her hands.</p>
 <p>"I am really way too easy."</p>
 <p>Wearily, she chuckled in self-deprecation. She knew what Sol was about to say. She wasn't inexperienced in love. But this was even more so because…it wasn't the first time she had to stop time because of his ensuing confession.</p>

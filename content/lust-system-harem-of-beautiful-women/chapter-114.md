@@ -103,9 +103,9 @@ chapter = 114
 
 <p>Even though he felt healthy, he’d almost tumbled down the stairs earlier because his sense of balance felt different from before.</p>
 
-<p>Nancy’s eyes lit up, and she teased playfully, &quot;Brother in law, I never noticed before that you had such an impressive physique~&quot;</p>
+<p>Nancy’s eyes lit up, and she teased playfully, &quot;Brother in law, I never noticed before that you had such an impressive physique&quot;</p>
 
-<p>&quot;Lily, you are truly blessed~&quot;</p>
+<p>&quot;Lily, you are truly blessed&quot;</p>
 
 <p>Lily’s face was flushed with a happy blush. She bit her lip as she gazed at her husband’s well defined muscle lines, feeling her underwear become subtly damp.</p>
 
@@ -125,7 +125,7 @@ chapter = 114
 
 <p>The two sisters shared a rare moment of deep sisterly affection. They chatted and organized their newly bought clothes until late into the night before finally returning to their respective rooms.</p>
 
-<p>&quot;Husband, it feels like it’s gotten thicker~&quot;</p>
+<p>&quot;Husband, it feels like it’s gotten thicker&quot;</p>
 
 <p>In the master bedroom, his wife Lily lay completely naked, crouched between her husband’s legs.</p>
 
@@ -141,7 +141,7 @@ chapter = 114
 
 <p>&quot;The fetus isn’t stable yet. I need to avoid excessive excitement and stressful stimulation.&quot;</p>
 
-<p>Luis smiled and stroked her face, saying, &quot;Then I’ll just wait a little longer~&quot;</p>
+<p>Luis smiled and stroked her face, saying, &quot;Then I’ll just wait a little longer&quot;</p>
 
 <p>&quot;Husband, your phone is ringing.&quot;</p>
 

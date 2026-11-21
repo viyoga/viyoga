@@ -5,7 +5,7 @@ weight = 295
 chapter = 295
 +++
 
-"Ahhh~ Ahhh~ Ahhh~"
+"Ahhh Ahhh Ahhh"
 
 Vaan's aunt, the clan head's wife, was moaning as Vaan and Eian rammed their shafts into her.
 
@@ -139,7 +139,7 @@ The people had just finished their deeds and were sleeping on the wet futons tog
 
 "Alright, mom, big sis, I need to go now. It was nice talking to you two. Byebye. I love you both." Lith said to the two on the phone with a smile.
 
-"Bye baby~" Lilith said and waved her hand.
+"Bye baby" Lilith said and waved her hand.
 
 "Bye and take care, dear." Lucy said while waving her hand.
 

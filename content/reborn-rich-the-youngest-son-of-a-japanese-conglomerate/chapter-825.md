@@ -30,7 +30,7 @@ chapter = 825
 <p>Kasaoka Koki brought Cup Noodles, sat opposite her, and poured hot Water. He didn't necessarily have to eat with her, but the uncomfortable Feeling of having Evening Meal together actually provoked Kasaoka Koki's rebellious spirit, so he deliberately ate Evening Meal with her.</p>
 <p>It was a Thought full of defiance: 'I'm eating Evening Meal in my own Home, can't I eat if that Woman is here?'</p>
 <p>While waiting for the Cup Noodles to cook, Kasaoka Koki subtly glanced at the Food Matsunaga Yuzuki had brought as takeout; it was stir-fried udon with large diced Beef and noodles. A raw egg yolk was even placed on top, making it look incredibly delicious.</p>
-<p>Wooong~! Wooong~!</p>
+<p>Wooong! Wooong!</p>
 <p>While both were eating their Meal in silence, a Vibration rang out. Kasaoka Koki was eating Cup Noodles while looking at his phone, so the Vibration wasn't from Kasaoka Koki's phone.</p>
 <p>Matsunaga Yuzuki took out her phone from her pocket. She didn't know who the Phone Call was from, but upon seeing the name, Matsunaga Yuzuki's Expression brightened. It was as if a Flower, touched by sunlight, had fully bloomed. Kasaoka Koki thought, 'Has that Woman ever made such an Expression in front of me since our divorce?'</p>
 <p>"Yes, Teacher-nim."</p>
@@ -42,7 +42,7 @@ chapter = 825
 <p>"Just a moment...."</p>
 <p>Matsunaga Yuzuki, who had been on the Phone Call for a moment, saw Kasaoka Koki staring intently at her, frowned slightly, then stood up from the Dining table. And she went into her Room.</p>
 <p>He knew he shouldn't do this, but Kasaoka Koki unconsciously stood up from his Seat and went to the guest Room Matsunaga Yuzuki was using. And he pressed his Sensitive Ear against the closed Door.</p>
-<p>-Long time no see? Of course~!</p>
+<p>-Long time no see? Of course!</p>
 <p>-Lunch or Evening Meal tomorrow? I don't care when. Both? Good...!</p>
 <p>It was a cooing Voice, like a female animal in Heat flattering a Leader male animal. It was a gentle, sweet Voice his Wife had never shown him. He became curious about who the Opponent on the Phone Call was.</p>
 <p>-Understood. See you tomorrow...♥</p>
@@ -65,10 +65,10 @@ chapter = 825
 <p>Kasaoka Koki made a Plan to follow Matsunaga Yuzuki tomorrow. He knew his Action was ugly, but he simply couldn't suppress his Curiosity.</p>
 <p>'I need to personally confirm how worthless the Guy Yuzuki is meeting is.'</p>
 <p>Kasaoka Koki sincerely hoped that Matsunaga Yuzuki would meet a Man inferior to him.</p>
-<p>Matsunaga Yuzuki B-cut~!</p>
-<p>Hangari Muneo Suit + Jeans white T-shirt requested by Gojoy-nim~!</p>
-<p>White T-shirt and Jeans~!</p>
-<p>Old model Otagi Yuka, Saionji Diana USA flag bikini + Jeans + Belly button piercing requested by Hwanbuljeoldae-bulga-nim~!</p>
-<p>Otagi Yuka first~!</p>
-<p>Diana~!</p>
-<p>Kkiyoot~!!</p>
+<p>Matsunaga Yuzuki B-cut!</p>
+<p>Hangari Muneo Suit + Jeans white T-shirt requested by Gojoy-nim!</p>
+<p>White T-shirt and Jeans!</p>
+<p>Old model Otagi Yuka, Saionji Diana USA flag bikini + Jeans + Belly button piercing requested by Hwanbuljeoldae-bulga-nim!</p>
+<p>Otagi Yuka first!</p>
+<p>Diana!</p>
+<p>Kkiyoot!!</p>

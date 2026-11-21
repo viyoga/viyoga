@@ -31,7 +31,7 @@ chapter = 585
 
 <p>“Mom, is it true that you’re pregnant again? Do you know yet if it’s going to be a little brother or a little sister?” Isabel asked, her eyes sparkling as she clutched her mother’s hands.</p>
 
-<p>“Yes… honey, your father hasn’t given me a moment’s rest since he recovered, fufufu~~” The queen gave a soft chuckle, elegantly covering her lips. “We don’t know the baby’s gender yet.”</p>
+<p>“Yes… honey, your father hasn’t given me a moment’s rest since he recovered, fufufu” The queen gave a soft chuckle, elegantly covering her lips. “We don’t know the baby’s gender yet.”</p>
 
 <p>“And my dear son-in-law? Is he already working on giving me grandkids too?” She looked at Qingyi.</p>
 

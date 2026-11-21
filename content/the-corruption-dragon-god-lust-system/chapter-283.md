@@ -51,7 +51,7 @@ chapter = 283
 
 <p>“Put something on, we’re going to land in the city,” Qingyi said, slapping each of them on the ass, eliciting loud moans from both of them.</p>
 
-<p>“Nghnn~~ Okay, husband.” Isabel smiled, pulling out a long dress from her space ring and leaning on Qingyi as she dressed.</p>
+<p>“Nghnn Okay, husband.” Isabel smiled, pulling out a long dress from her space ring and leaning on Qingyi as she dressed.</p>
 
 <p>It was a relatively simple white dress, with a conservative neckline and thin, loose fabric that hid most of her curves, falling softly over her enormous breasts.</p>
 

@@ -5,7 +5,7 @@ weight = 474
 chapter = 474
 +++
 
-<p>“Ahhhhh ~ ” Aryl whimpered, her hips moving without thought, grinding faintly into his thigh. The friction was magnetic, the pressure between her legs growing unbearable.</p>
+<p>“Ahhhhh  ” Aryl whimpered, her hips moving without thought, grinding faintly into his thigh. The friction was magnetic, the pressure between her legs growing unbearable.</p>
 
 <p>Behind her, Vigg let out a shaky breath—one she knew was filled with agony.</p>
 
@@ -33,7 +33,7 @@ chapter = 474
 
 <p>Julian chuckled low, both amused and excited. “Oh, she’ll handle it,” he said darkly, his hand stroking Aryl’s hair now, gently guiding her forward. “Won’t you, Aryl?”</p>
 
-<p>“Mhnn~” Aryl whimpered. Her pussy watered at their voices, wetness already dripping between her thighs. Her tongue darted out, licking her lips as her eyes flicked up—first at Julian, then briefly, shamefully, at her mother.</p>
+<p>“Mhnn” Aryl whimpered. Her pussy watered at their voices, wetness already dripping between her thighs. Her tongue darted out, licking her lips as her eyes flicked up—first at Julian, then briefly, shamefully, at her mother.</p>
 
 <p>Shayla was watching.</p>
 

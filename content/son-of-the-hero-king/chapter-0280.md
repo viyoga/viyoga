@@ -55,7 +55,7 @@ chapter = 280
 <p>Isis was shaking as if I was going to get cramps in her legs because her toes curled up so tightly. Unbearably aroused, she grabbed Sol’s hair tightly in the heat of the moment.</p>
 <p>Whether she was pulling or pushing, her arms were full of strength without her even realizing it but once again Sol didn’t falter. He just held open Isis’s thighs with strength and spread them apart for sucking and hastily whirled his tongue and sucked it all up.</p>
 <p>In the end, what should happen, happened.</p>
-<p>“Ahh~!.”</p>
+<p>“Ahh!.”</p>
 <p>For a moment, a thrill that could not be compared to the petty pleasure of prior experiences hit her whole body. Her back bent like a bow and trembled in waves of convulsions to the point that afterward, she was surprised she was so flexible.</p>
 <p>Raising his upper body, Sol looked down with a smirk as he watched Isis's disheveled appearance while she lost herself in pleasure. It did not need to be said further, but for Sol, the sight of a beautiful woman screaming and losing herself because of him was the most erotic thing possible.</p>
 <p>He wanted to do more. So much more, give her even more pleasure until she went crazy. But now wasn’t the time. He wanted her first time to be not only filled with rough pleasure but also gentle love.</p>

@@ -45,7 +45,7 @@ Alexandra flashed a small smile and kissed Lith's cheek. "Thankyou, darling. But
 
 Lith was about to ask more on it when space fluctuated around him and in the next instant, Arya teleported out of thin air and hugged Lith from behind.
 
-"Heyooo~ What's my lover doing?" She asked while swaying Lith and herself side to side.
+"Heyooo What's my lover doing?" She asked while swaying Lith and herself side to side.
 
 Alexandra knitted her brows as she saw Arya interrupt the two. But, she had learned from the past a bit and didn't attack Arya. The reason being, Arya was family now.
 

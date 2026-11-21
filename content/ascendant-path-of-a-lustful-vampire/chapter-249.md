@@ -9,7 +9,7 @@ chapter = 249
 <p>And that was because it could never BE fair.</p>
 <p>And she knew it.</p>
 <p>After all, they were to duel until exhaustion, which Caius was sure to arrive at first because he was at a lower Magic Circle. Again, just as he had thought when it all started, this seemed like a duel he was not meant to win, but Caius still believed he could make something out of the situation.</p>
-<p>For example, because Cynthia was keeping herself from using her incredible higher circle reflexes and senses, the black smoke robbed her of sight for the one precious second that allowed the few ~Dark Missiles~ darts to catch up with her.</p>
+<p>For example, because Cynthia was keeping herself from using her incredible higher circle reflexes and senses, the black smoke robbed her of sight for the one precious second that allowed the few Dark Missiles darts to catch up with her.</p>
 <p>If she acted as she would at her true Magic Circle, Cynthia could still have reacted to the darts but her pride didn’t let her cheat. At least not in this way.</p>
 <p>Caius could tell the moment that the magical energy of his darts spread all over Cynthia’s insides and began to erode the incredibly ample Mana reserves of hers.</p>
 <p>Cynthia raised a hand and moved it around, harnessing her Mana and taking note of it getting sapped away. It wasn’t at a pace where she was really in any danger of running out but that was only because of her Circle. Faced against a true fellow Third Circle Mage, this spell of Caius’s would have gotten better results.</p>
@@ -39,10 +39,10 @@ chapter = 249
 <p>I wonder if its impressive properties are because it’s a Unique Element or your genius."</p>
 <p>She said the last sentence like it was rhetorical and she didn’t wait for Caius to respond to it before she said,</p>
 <p>"Well, I suppose I did let myself get carried away. Today might be our last time in a Professor-Student capacity. I should spend it being an Academic."</p>
-<p>With that, Cynthia dropped her hand and sprang forward. The gust of wind that followed her movement pointed at the use of a movement spell. Only Caius hadn’t seen her cast one and he had a suspicion that it was the same movement spell she had been using to avoid the ~Dark Missiles~ darts earlier. That it just hadn’t stopped being active even after she was struck by his ~Erratic Fireball~ spell and got slammed by ~Black Hand~.</p>
+<p>With that, Cynthia dropped her hand and sprang forward. The gust of wind that followed her movement pointed at the use of a movement spell. Only Caius hadn’t seen her cast one and he had a suspicion that it was the same movement spell she had been using to avoid the Dark Missiles darts earlier. That it just hadn’t stopped being active even after she was struck by his Erratic Fireball spell and got slammed by Black Hand.</p>
 <p>That would point to an incredible mental fortitude to keep a hold of a spell throughout all that or it could also point to just how much she outclassed Caius that his attacks didn’t even break her concentration on her spell.</p>
 <p>Either way, Caius had a movement spell of his own prepared.</p>
-<p>~Hellsong Dash~</p>
+<p>Hellsong Dash</p>
 <p>The spell circles appeared at his ankles and a flame boost directed forward propelled him backward so he could give himself a bit more time to spellcast.</p>
 <p>He could still sense that his Dark darts were inside Cynthia’s body.</p>
 <p>During her analysis, she had stated she couldn’t detect a connection between the darts and Caius which intrigued him because it definitely was there. He wasn’t supplying the spell his mana—on that she was accurate—but he was still connected to it. And through it, he was connected to the very essence of her Mana reserves. Just not on a level where it was useful to him.</p>

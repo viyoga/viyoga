@@ -21,7 +21,7 @@ chapter = 406
 <p>Hot white splashes landed on the soft, pale mounds and slid slowly down her milky skin, pooling in the deep valley between them.</p>
 <p>"Gulp"</p>
 <p>At that moment, all she could do was swallow. Her slender throat bulged and moved up and down as the first heavy mouthful of cum sank toward her stomach.</p>
-<p>"Gulp~ gulp~ gulp~ gulp~"</p>
+<p>"Gulp gulp gulp gulp"</p>
 <p>She kept swallowing, gulp after gulp, bobbing her head slightly as she sucked on that human cock, milking every drop and savoring its thick, salty taste with each swallow.</p>
 <p>Ethan smiled, one hand resting firmly on the back of her neck, keeping her mouth exactly where he wanted it.</p>
 <p>He could feel the elf’s huge, pale breasts pressed against his knees, the soft flesh molding around them, quivering slightly with every swallow that ran down her throat.</p>
@@ -29,7 +29,7 @@ chapter = 406
 <p>The elven beauty’s lips parted with a single wet pop, and she let the cock slip from her mouth, still glistening with saliva and traces of cum.</p>
 <p>She didn’t pull back. She kept her face right there, nuzzling against that enormous fat cock, feeling its heat against her flushed cheek as it smeared her skin.</p>
 <p>Her hands clasped the base of his penis for a moment, squeezing tightly as she smiled.</p>
-<p>"nghnnn~~ L-Lord Ethan... thank you for gracing this tight little elven throat with your delicious human semen~" she said, her mature, lewd voice coming out slightly hoarse, her cheeks burning red.</p>
+<p>"nghnnn L-Lord Ethan... thank you for gracing this tight little elven throat with your delicious human semen" she said, her mature, lewd voice coming out slightly hoarse, her cheeks burning red.</p>
 <p>It was a little, well, too depraved for her taste. But Faelith was a smart woman.</p>
 <p>She had learned very quickly that Ethan liked that sort of thing, and as the ruler of Greenleaf, she had to do what was best for her city.</p>
 <p>More love from Ethan meant more opportunities to secure resources for her people.</p>
@@ -45,11 +45,11 @@ chapter = 406
 <p>Her dress had slipped down to her hips, and the fabric of her skirt, now hiked up, could no longer cover that voluptuous, full elven ass.</p>
 <p>Ethan gave one of her buttocks a firm slap.</p>
 <p>*Plap*</p>
-<p>"ah~"</p>
+<p>"ah"</p>
 <p>The plump, pale flesh flattened around his palm with a sharp smack, and a heavy tremor rolled across her entire butt, rippling into the other cheek.</p>
 <p>The struck cheek swayed slowly before settling back into place, a pink handprint blooming on the creamy skin.</p>
 <p>Smiling, he pulled her onto his lap.</p>
 <p>His semi-erect cock found its nest between the plump cheeks of her ass, sinking into that warm, soft cleft as the flesh closed around it, while his hands gripped her delicate, slender elven waist.</p>
-<p>"Hmm~...your conquest is complete, my Lord... what do you desire now—more conquest?" Faelith asked with a soft smile, grinding lightly against him, her soft cheeks squeezing around his shaft. "Your borders already reach the western plains."</p>
+<p>"Hmm...your conquest is complete, my Lord... what do you desire now—more conquest?" Faelith asked with a soft smile, grinding lightly against him, her soft cheeks squeezing around his shaft. "Your borders already reach the western plains."</p>
 <p>"I know... I don’t want to draw the attention of the powers of the western plains just yet." Ethan ran a hand absently over her flat stomach, his fingers tracing the smooth, warm skin. "So I’ll just focus on stabilizing the current Goldenveil... we still have a lot of uncontrolled territory."</p>
 <p>Faelith nodded, a pensive expression spreading across her face as she let herself sink into Ethan’s embrace.</p>

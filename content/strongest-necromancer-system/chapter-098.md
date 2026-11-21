@@ -30,7 +30,7 @@ chapter = 98
 <p>"Really? Y-You’re serious?"</p>
 <p>"Of course I’m serious. I never play around when it comes to us."</p>
 <p>Jason spoke with a seriousness beyond anything Gina had ever seen in her life, and she couldn’t stop herself from leaning forward and taking his lips with her own. The kiss was soft and gentle, and Gina didn’t bother to try and deepen it as she just wanted to fully enjoy the moment with Jason. When they separated, Gina held the sides of his neck gently, leaned her head against his, and nodded.</p>
-<p>"Sniff~ Y-Yeah. I’d like that a lot."</p>
+<p>"Sniff Y-Yeah. I’d like that a lot."</p>
 <p>Gina spoke with a husky tone, and Jason couldn’t hold back a teasing chuckle when he realized that she was crying. Gina always cried over the silliest things.</p>
 <p>"You’re such a crybaby."</p>
 <p>Gina hit him on the chest with another wet sniffle!</p>

@@ -36,7 +36,7 @@ chapter = 1852
 <p>"S... sis... what did you... give me..."</p>
 <p>"I’d suggest a slower pace for maximum effect," Black Fang said instead of replying.</p>
 <p>Quinlan obliged, and the slower pace gave the venom time to climb between each plunge, which was worse, so much worse, and Ayame understood then that her sister had not handled poison this long without learning exactly how mercy worked and how to withhold it.</p>
-<p>A sound left her that she would deny making until her dying day. "AAaAHN~!? W... wait, wait, it’s... HYAAH!!" Her spine arched, her vision whited out, and the orgasm that hit her should have been the end.</p>
+<p>A sound left her that she would deny making until her dying day. "AAaAHN!? W... wait, wait, it’s... HYAAH!!" Her spine arched, her vision whited out, and the orgasm that hit her should have been the end.</p>
 <p>It rolled into the next one without a gap. The next one fed the one after it, and her voice gave up on language somewhere between the second and the third.</p>
 <p>By the third minute, or the third century, Ayame’s sense of time had filed for early retirement. The venom stripped her composure in layers: the smugness first, then the commentary, then the tildes, then the words themselves, each one dissolved before the next could take its place.</p>
 <p>What remained was a small woman, glowing and thoroughly outmatched, being handled by two people who had fallen, without discussion, into a rhythm.</p>

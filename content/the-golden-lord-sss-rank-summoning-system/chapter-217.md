@@ -31,10 +31,10 @@ chapter = 217
 <p>Finally, his hand reached the talisman that sealed her pussy like an obscene lock.</p>
 <p>The yellow paper was completely soaked, obscenely stuck to every plump fold of that puffy pussy, molded to the shape of her lips like a wet mask.</p>
 <p>He grabbed it by the edge and pulled slowly.</p>
-<p>"Ah~" A trembling sigh escaped Ophelia’s lips as the paper peeled away from her pale, sensitive skin with a wet, obscene sound.</p>
+<p>"Ah" A trembling sigh escaped Ophelia’s lips as the paper peeled away from her pale, sensitive skin with a wet, obscene sound.</p>
 <p>Shiny strands of love juice formed between the talisman and the soaked flesh, stretching thinner and thinner until they snapped into tiny droplets.</p>
 <p>The perfect, tight pussy was finally revealed in its entirety, while the talisman dissolved into wisps of black smoke between Ethan’s fingers.</p>
-<p>"Hm~ you should have started with the nipples, you hasty boy..." Ophelia complained, the blush deepening on her fair cheeks.</p>
+<p>"Hm you should have started with the nipples, you hasty boy..." Ophelia complained, the blush deepening on her fair cheeks.</p>
 <p>"And think of it as a trade... we both win." She continued, her delicate arms pressing her enormous tits together from either side, her biceps sinking into those mountains of soft flesh and squeezing them hard against one another.</p>
 <p>It was as if she were presenting them to Ethan in an obscene offering. One that he, naturally, had no intention of refusing.</p>
 <p>Without hesitation, the young Lord tore the talismans from her nipples.</p>
@@ -49,5 +49,5 @@ chapter = 217
 <p>The tip of Ethan’s cock collided with Ophelia’s womb at the same moment her ass met the Lord’s lap.</p>
 <p>Her pale buttocks slapped against his thighs with a loud, wet smack, the plush cheeks flattening deeply against him before springing back, the supple flesh quaking from the rebound.</p>
 <p>Her hips lifted again and then plummeted back down with force, the impact sending ripples coursing through the rounded mounds.</p>
-<p>"nghnn~~ fuck!~~ aghnn~~" She moaned, her entire body trembling with pleasure. "Why does it feel like this thing has grown even bigger?" Ophelia asked, her ass colliding against Ethan’s lap with another wet thud, the plush flesh wobbling for long seconds after the impact.</p>
+<p>"nghnn fuck! aghnn" She moaned, her entire body trembling with pleasure. "Why does it feel like this thing has grown even bigger?" Ophelia asked, her ass colliding against Ethan’s lap with another wet thud, the plush flesh wobbling for long seconds after the impact.</p>
 <p>On that cold day, neither of them felt even a hint of the cold.</p>

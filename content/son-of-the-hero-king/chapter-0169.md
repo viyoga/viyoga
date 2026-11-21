@@ -18,7 +18,7 @@ chapter = 169
 <p>Groping her breast from behind, Sol gently weighed them before pinching her slowly hardening nubs through the thin blouse.</p>
 <p>He really wondered how Persephone had such a glamourous body while her three sisters simply looked like high schoolers.</p>
 <p>Of course, since it was rude thinking about other women while having another one in your arms, Sol focused on the task at hand.</p>
-<p>“You can be rougher if you want~!”</p>
+<p>“You can be rougher if you want!”</p>
 <p>Sol didn't need a second invitation. Completely unbuttoning her blouse, he exposed her bra-less breasts to the air and continued to massage them while biting and kissing her neck.</p>
 <p>Putting her on the bed, Sol took a long look at the long-haired beauty. It was like he was looking at a work of art.</p>
 <p>Raising her legs, Sol used his finger to make a tear in her stockings. He did not wish for her to take them off since it looked way more erotic like this. Her glistening vagina devoid of pubic hair, a clear liquid dripping from her slit, wetting her inner thighs below spoke volumes of her current arousal.</p>
@@ -26,7 +26,7 @@ chapter = 169
 <p>Even though Persephone was pretty daring, she still felt a little shame at the way he was observing her most secret place.</p>
 <p>“Heh, don’t be. It’s beautiful. Now then…”</p>
 <p>For a short moment, Persephone was wondering what Sol wished to do, all thought vanished when he took her clit in his mouth and began sucking on it.</p>
-<p>“Ah~!”</p>
+<p>“Ah!”</p>
 <p>A short cry escaped her nose and she reflexively closed her legs, but she was unable to since Sol’s head was in the way.</p>
 <p>Meanwhile, Sol was already pretty used to bring pleasure to women without just using his dick.</p>
 <p>While he continued to gently nibble her clitoris, he used two-fingers to trace the vulva before slowly exploring its exterior.</p>
@@ -44,7 +44,7 @@ chapter = 169
 <p>Slowing down, he worked his hips and grabbed the two large mounds in his hands before pressing the two swollen nipples together toward the center.</p>
 <p>Sol thought that a woman was always at her cutest when in the throes of passion. Fighting against that irresistible urge to let herself go but not willing to show such a shameful sight, before finally being defeated and climaxing.</p>
 <p>Stopping his sucking of her breasts, Sol decided that it was time to accelerate.</p>
-<p>“Ah~! Sl-slow...down. Please!”</p>
+<p>“Ah! Sl-slow...down. Please!”</p>
 <p>Ignoring her cute pleas, his hip loudly slapped against hers.</p>
 <p>“Ugh! so deep!”</p>
 <p>Persephone groaned.</p>
@@ -80,7 +80,7 @@ chapter = 169
 <p>But he still did not stop. He continued thrusting without end. He ejaculated a few times, but not even that stopped him. He wished to make it a night she would never forget.</p>
 <p>Finally, once he was sure that she had really reached her limit, He gathered his strength to release one final roar.</p>
 <p>His arms grasping her still-youthful skin were lifted up as she arched her back. His penis pushed deeper into her, fitting tightly against her cervix. And then he exploded.</p>
-<p>“Ahh~!!”</p>
+<p>“Ahh!!”</p>
 <p>Persephone felt like she was losing her mind. This time, no amount of self-control managed to save her and her vision grew faint before she finally blacked out.</p>
 <p>Breathing roughly, Sol pulled his dick out only once it had gone fully flaccid. Her vagina could not close on its own and a milky liquid flowed stickily out of the gaping hole.</p>
 <p>Seeing her state, Sol smiled awkwardly and felt a little guilty about his lack of control toward the end.</p>

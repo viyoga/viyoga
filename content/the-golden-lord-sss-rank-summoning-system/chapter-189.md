@@ -19,7 +19,7 @@ chapter = 189
 <p>He squeezed hard, watching the pale skin, covered by a black pantyhose, swell up and around his fingers in obscene bulges, then released before bringing down another sharp slap.</p>
 <p>The crack echoed through the room.</p>
 <p>A vivid pink handprint bloomed across her pale skin, the struck cheek flattening under the blow before springing back with a ripple that traveled through the entire plush globe, quivering for a full second after impact.</p>
-<p>"Nghnn~~ f-fuck~!" Ophelia cursed through a moan, arching her back, her ass instinctively pushing up into his hand. "Who the hell are you? You nghnn~~ perverted scoundrel!"</p>
+<p>"Nghnn f-fuck!" Ophelia cursed through a moan, arching her back, her ass instinctively pushing up into his hand. "Who the hell are you? You nghnn perverted scoundrel!"</p>
 <p>Lying like this on an enemy’s lap was worse than death for a woman like her!</p>
 <p>[Ophelia’s loyalty has increased by 5%!]</p>
 <p>[Ophelia’s favor has increased by 5 points!]</p>
@@ -48,7 +48,7 @@ chapter = 189
 <p>He moved slowly, feeling the softness of her plump pussy lips hugging his finger on both sides, the warm wetness leaking from inside and soaking clean through the fabric.</p>
 <p>The pantyhose seemed about to tear under the pressure, the strained material grinding against her sensitive pink interior with every movement, the threads creaking at their limit.</p>
 <p>"Now, tell me, why did your son send you? He must be pretty desperate, huh?"</p>
-<p>"Aghnn~ I’m gonna ghnn~~ fuck... die before I say anything about my son!" Ophelia replied through clenched teeth and gasping moans, her body trembling in his grip.</p>
+<p>"Aghnn I’m gonna ghnn fuck... die before I say anything about my son!" Ophelia replied through clenched teeth and gasping moans, her body trembling in his grip.</p>
 <p>Did that bastard have honey on his hands?</p>
 <p>She shouldn’t be feeling this much pleasure. Not at all!</p>
 <p>"You won’t die." Ethan chuckled, ripping off his own shirt as he watched her loyalty and opinion rise to eighty points.</p>
@@ -57,7 +57,7 @@ chapter = 189
 <p>Her shapely, full, juicy ass landed against his pelvis with a meaty clap, the plush cheeks flattening wide under her own weight, each cheek bulging to either side of his thighs, soft and heavy, settling like two thick cushions on his labs.</p>
 <p>At the same time, a huge pair of pale tits crushed against his bare chest. The heavy mounds compressed between their pressed bodies, her silky skin sliding warm against his muscles as the sheer volume of those huge boobs seemed to have nowhere to go.</p>
 <p>Ethan looked directly into the face of that perfect milf, admiring her breathless expression, her lips glistening with saliva and her cheeks flushed a crimson shade of embarrassment and pleasure.</p>
-<p>"Ah... you bastard... nghnn~~ just kill me already! Your torture won’t work on me!"</p>
+<p>"Ah... you bastard... nghnn just kill me already! Your torture won’t work on me!"</p>
 <p>Ophelia growled the words, legs spread wide, the thick bulge between Ethan’s legs pressing directly against her pussy.</p>
 <p>The bulge throbbed, and her eyes went wide as she clenched her teeth. She could feel the size of it pulsing against her, hot even through the layers between them.</p>
 <p>Wasn’t the world unfair?</p>
@@ -74,7 +74,7 @@ chapter = 189
 <p>[Ophelia’s favor increased by 5 points!]</p>
 <p>[Ophelia’s Loyalty increased by 5%!]</p>
 <p>He felt it clearly when her hips began to roll on his lap, grinding and sliding against his cock, seeking more and more contact.</p>
-<p>"Mhnn~~ that’s a skill, isn’t it? I refuse to believe my mind is that weak."</p>
+<p>"Mhnn that’s a skill, isn’t it? I refuse to believe my mind is that weak."</p>
 <p>"Yes, it’s a skill," Ethan smiled, teasing her stiff nipples with his fingertips.</p>
 <p>He released her breasts and his hands slowly slid down to his pants.</p>
 <p>With a light movement, he freed his cock.</p>

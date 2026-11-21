@@ -31,7 +31,7 @@ Lith’s cock throbbed as she did so, but he didn’t give in. He was at rank 2 
 
 A while later, Lith removed his tongue out and directly put his middle and ring finger inside in one go.
 
-“Mhmm~”
+“Mhmm”
 
 Lilith moaned while having Lith’s dick in her mouth. She didn’t expect two fingers at once and thought that he would do one at a time.
 
@@ -45,7 +45,7 @@ She didn’t want to lose to Lith, as he had a bet with her. She really wanted t
 
 Lith, who was on the verge of climaxing, could feel it being almost there when he felt the suction force on his dick. He didn’t want to lose to his mother and thus he still tried to suppress his climax to the best of his ability. Doing that, he removed both his fingers and then thrust it back, three of them this time, in one go.
 
-“Ommfff~”
+“Ommfff”
 
 Lilith released a muffled moan when she felt three fingers in. She nevertheless still controlled her climax and focused back on making Lith do it.
 
@@ -53,7 +53,7 @@ The two suppressed their own climax to the best of their ability for a few minut
 
 Soon…
 
-“Mhmmmm!~”
+“Mhmmmm!”
 
 *Spurrttt*
 

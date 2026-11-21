@@ -25,13 +25,13 @@ chapter = 33
 <p>"You're beautiful, Gina. Don't ever hide yourself from me."</p>
 <p>Gina felt butterflies surge through her stomach when he spoke those words, but then her entire body jolted in shock as Jason ran his tongue over her core.</p>
 <p>Gina groaned as she put her left hand over her mouth while squeezing the sheets with her other one! She tightened her thighs around Jason's head, and Jason took her thighs in his grip before clamping down on her core and sucking hard.</p>
-<p>"Oohhhh~! Jason!"</p>
+<p>"Oohhhh! Jason!"</p>
 <p>Gina cried out in ecstasy as Jason assaulted her most sensitive part! She put her right hand on Jason's head and tangled it in his hair before pressing him tighter against her core as she buckled her hip up into his mouth!</p>
 <p>Jason ran his tongue over her clit before his tongue found her entrance and sank inside her! Gina immediately jolted upwards and her toes curled into the bed from sheer pleasure!</p>
-<p>"Right there~ Right there~"</p>
+<p>"Right there Right there"</p>
 <p>Gina's voice came out as a breathless, husky sound that drove Jason even further off the edge, and he tightened his hold on Gina's thighs with strength that he didn't know he had before digging his tongue deeper inside her! Gina's face squeezed in torturous pleasure as she felt something rising from her belly every time Jason penetrated her with his tongue, and her mouth widen as Jason suddenly sucked hard on her clit while sinking a finger inside her!</p>
 <p>Gina lost her mind!</p>
-<p>"Shiiiiittt~!"</p>
+<p>"Shiiiiittt!"</p>
 <p>Gina's back arched upward as she bucked her hips into Jason's mouth and came hard! Both her hands were on Jason's head now, and her breasts were bouncing rapidly as her entire body shook from her orgasm!</p>
 <p>Gina continued to call Jason's name, and Jason continued digging his tongue into her core and driving her further off the edge with every second!</p>
 <p>Finally, after almost an entire minute, Gina fell back onto the bed with a suffering groan as she finally came down from her orgasmic high! Jason released her core with a pop and kissed his way up from her lower belly to her six-pack, to her ribs, her breasts, and then her neck.</p>
@@ -40,7 +40,7 @@ chapter = 33
 <p>Jason's erection suddenly poked against Gina's core, and Gina broke the kiss and released heavy breaths while looking into Jason's eyes. Jason had a serious look on his face, and he caressed her cheek softly before he spoke.</p>
 <p>"Tell me if it hurts, okay?"</p>
 <p>Gina swallowed and nodded while opening her legs wider to give him more access, and Jason wasted no time as he found her entrance and slowly began to slide inside her.</p>
-<p>"Mmm~"</p>
+<p>"Mmm"</p>
 <p>Gina closed her eyes tightly and released a low groan as she felt Jason spreading her with his member! Jason felt her nails sinking into his skin, and he ignored the pain as he continued to slide inside.</p>
 <p>Finally, Jason reached a resistance, and then he thrust forward with force!</p>
 <p>Rip!</p>

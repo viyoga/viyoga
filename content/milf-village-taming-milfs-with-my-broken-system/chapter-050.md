@@ -43,7 +43,7 @@ chapter = 50
 
 <p>Also, he wasn’t just doing it for himself... if Arielle wasn’t burdened by the mother-and-son relationship constraint, then her performance would become even fiercer.</p>
 
-<p>&quot;Now, do you believe me, Mom? Let’s keep it our secret, okay~?&quot; Owen slipped his fingers into her armpits... making her turn tomato-red as it was so ticklish.</p>
+<p>&quot;Now, do you believe me, Mom? Let’s keep it our secret, okay?&quot; Owen slipped his fingers into her armpits... making her turn tomato-red as it was so ticklish.</p>
 
 <p>&quot;But how did you do it? It’s just hard to believe...&quot; She just couldn’t believe such a phenomenon; it was unrealistic from her point of view.</p>
 
@@ -57,7 +57,7 @@ chapter = 50
 
 <p>&quot;But... if what you said is true... then you won’t treat me like your mom anymore...&quot; There was a long pause in her voice; she was happy but also feeling sad.</p>
 
-<p>&quot;Of course not, Mom. You will always be my mom, and I am always your son~&quot;</p>
+<p>&quot;Of course not, Mom. You will always be my mom, and I am always your son&quot;</p>
 
 <p>&quot;Really... but you know I’m a stranger, to you.&quot;</p>
 
@@ -85,11 +85,11 @@ chapter = 50
 
 <p>&quot;...&quot;</p>
 
-<p>&quot;Ohh... another silence, so I guess that’s a yes, Mom~. Now, let’s not drag this out any longer!&quot; Owen unbuttoned the clothing that was obscuring her tits.</p>
+<p>&quot;Ohh... another silence, so I guess that’s a yes, Mom. Now, let’s not drag this out any longer!&quot; Owen unbuttoned the clothing that was obscuring her tits.</p>
 
 <p>It was a total sin, a great one, that she was wearing something to hide her melons.</p>
 
-<p>&quot;You are really a slutty and perverted mom, now you are drooling like a beast~&quot; Owen could hear her heavy breathing as she tried her best to control her urges.</p>
+<p>&quot;You are really a slutty and perverted mom, now you are drooling like a beast&quot; Owen could hear her heavy breathing as she tried her best to control her urges.</p>
 
 <p>&quot;I’m not... because you are hot... no... yes, no! Right. It’s hot, the room is hot!&quot; She looked left and right, trying to find a way to escape her predicament.</p>
 

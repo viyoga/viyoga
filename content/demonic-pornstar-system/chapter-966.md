@@ -84,7 +84,7 @@ chapter = 966
 <p>Both girls beamed back at him.</p>
 <p>"And you didn’t even hiss at each other much. You’re becoming inseparable friends," Kaiden added.</p>
 <p>"Master, you’re pushing your luck..." Bastet scoffed.</p>
-<p>"Hahaha! I agree, Darling~" She rubbed Bastet’s ears, eliciting almighty felinid hisses. "This hopeless girl is far too good to me."</p>
+<p>"Hahaha! I agree, Darling" She rubbed Bastet’s ears, eliciting almighty felinid hisses. "This hopeless girl is far too good to me."</p>
 <p>At a red light, the third-row door opened and closed by itself, and Yuna Park was simply present thereafter, sitting very straight in the back with her hands on her knees.</p>
 <p>She was radiating contained joy, because Calypso had informed her, over her professional objection, that it was past six and the mission was now a car ride.</p>
 <p>Bastet removed her ears from the demoness’s reach with what dignity the last minute had left her, and resettled into the middle row, which she had claimed on the way out and converted into a chaise.</p>

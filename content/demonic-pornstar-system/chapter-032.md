@@ -15,7 +15,7 @@ chapter = 32
 <p>It was all too much for Kaiden. He couldn't hold back any longer. After positioning his member at her entrance, he slowly, carefully entered her. Aria was already so drenched that more foreplay wasn't needed at all.</p>
 <p>"Ah! Your penis is entering me!" Aria shouted both excitedly and nervously. Kaiden leaned in, pinning the girl under him, and began making out with her once again. She gripped her hands together behind his head and legs behind his back as she also got into it.</p>
 <p>The deeper he went, the more desperate her tongue movements became, and once he arrived at her hymen, she even bit into his lip, but he bore with it, knowing it was completely unintentional and that she was just that afraid. Kaiden considered it his duty to make this experience as comfortable for her as possible. If he had to suffer a few injuries while doing so, then so be it.</p>
-<p>"Ahh~!" Her muted moans were silenced by his mouth. He had penetrated her.</p>
+<p>"Ahh!" Her muted moans were silenced by his mouth. He had penetrated her.</p>
 <p>Kaiden could feel multiple movements from the two recorders as they focused their equipment on the results of his actions. He dislodged his lips for a moment and smirked at the teary-eyed girl with a visage that told Aria he was incredibly proud of her. "You're officially a woman now, congratulations."</p>
 <p>Instead of responding, Aria needily pulled him back onto her so that she could continue fervently kissing him.</p>
 <p>For a few minutes, the pair stayed as such. Kaiden allowed the muscles of her cavern to reshape themselves so that his girth could be more easily accepted into her folds. Once he felt Aria was ready, Kaiden began gently moving his hips back and forth.</p>

@@ -19,7 +19,7 @@ chapter = 35
 <p>Looking at the certain particular bumps, he aimed for this place, stroking it mercilessly. The effect was spectacular. Her already moist garden was practically overflowing.</p>
 <p>Her moan no longer repressed as she wriggled and let out continuous hot sighs.</p>
 <p>A normal virgin woman wouldn't be so easy to please. Just using your fingers in such a way wouldn't be enough, but, Camelia's body already knew the pleasure of the flesh.</p>
-<p>"Nn~! Please! Ah~ !"</p>
+<p>"Nn! Please! Ah !"</p>
 <p>As his movements increased in speed, the volume of her moan continued to increase, overwhelmed by the sensation of feeling as if something was going to leak out. Sol scooped his finger outwards swiftly, delivering it as the finishing blow as he bent down, and gave a lick to her magic button.</p>
 <p>After undergoing through the continuous torment, this hit summed up as an insurance, making Camelia pass over the limit.</p>
 <p>"....!"</p>
@@ -55,7 +55,7 @@ chapter = 35
 <p>This slow build-up was causing an aching pain in her loin. She could feel herself close to a climax, but it was as if it was missing a piece. This was driving her mad.</p>
 <p>"Please! Just one more!"</p>
 <p>She was reduced to begging for a release, she needed it so much, but Sol was merciless.</p>
-<p>"Hehe~ !"</p>
+<p>"Hehe !"</p>
 <p>Sol looked at her teary face and begging expression before walking toward the large Sofa facing the bed and taking place on it.</p>
 <p>With a movement of his hand, the mana strings that bound Camelia changed from the bondage-style to a simple collar around her neck.</p>
 <p>Tugging a little, he said calmly, "Get up from the bed, and go on all four before walking toward me like a dog."</p>

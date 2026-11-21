@@ -6,11 +6,11 @@ chapter = 415
 +++
 
 <p>Riyala looked at Jason with wonder shining in her eyes, and she saw Jason giving her a confident grin. Riyala’s cheeks reddened as she realized what he had just done to her! This was the most vulnerable that Riyal had ever been, and she was sure that she wouldn’t be able to look at Jason in the future without remembering the things he had just done to her. But no matter how embarrassing this was, Riyala knew that there was no one else in the world that she would want to show this to. She reached down to touch Jason’s cheek and brought him up for another deep kiss.</p>
-<p>"Mmmh~"</p>
+<p>"Mmmh"</p>
 <p>This time, the kiss was softer and more loving, and Riyala expressed just how much she cared for Jason at that moment. Jason caressed Riyala’s cheek before gently cupping her neck kindly, and when they separated, Jason could see pure love shining in Riyala’s eyes.</p>
 <p>"I love you so much, Jason. You’re everything to me."</p>
 <p>Jason could feel a burst of possessiveness coming over his entire body when he heard Riyala say this and leaned down to kiss her one more time. This time, it was hard and intense, and Riyala moaned into his mouth as she enjoyed every moment of it. Jason decided at that moment that Riyala was his and his alone. He already had Gina, but Jason knew he had enough space in his heart to also love Riyala. No one else could have this woman. She was his.</p>
-<p>"Muah~"</p>
+<p>"Muah"</p>
 <p>Riyala’s lips were red and swollen when they finally separated, and Jason ran a finger over his lips as he gave Riyala an intense look and spoke in a deep, low voice.</p>
 <p>"You’re mine, Riyala. From now till the end of time, you’re mine. Do you understand?"</p>
 <p>Riyal’s cheeks heated up when she heard Jason’s declaration, and she felt a smile blooming on her face when she realized what Jason meant. Riyala nodded to Jason with a wider smile, and Jason pecked her one last time before he finally stood up. Riyala watched as Jason took his joggers off and allowed them to drop to the ground before he finally took off his shirt and stood naked in front of her. Riyal sat up in bed, and her eyes trailed over Jason’s toned body with wide, hungry eyes, but her eyes finally landed on Jason’s member, and she felt the heat in her stomach growing into something scorching hot!</p>
@@ -24,7 +24,7 @@ chapter = 415
 <p>Riyala was still new to all this, so Jason wanted to make sure her first experience was a good one. Jason told Riyala to stop, and Riyala released Jason’s member with a hot pop before pulling back. Jason ran a hand through his hair, and he slowly began to climb onto the bed. Riyala moved back as Jason moved in to meet her, and she eventually fell back on the bed with Jason lying between her legs. Jason’s large body covered her own completely, and Riyala couldn’t stop her eyes from trailing over Jason’s chest as well as the Rune that had been carved into the side of his neck. Riyala knew what was about to happen. She had heard about it from the older women many times, and her mother had even told her what sex was like before, but she couldn’t help but feel very nervous at that moment. Riyala couldn’t even look Jason in the eye, and her heart was beating so fast that she thought she would pass out!</p>
 <p>"I’ll be gentle, okay?"</p>
 <p>Riyala finally looked up, and she saw Jason staring down at her with a reassuring gaze. There was something kind about the way he stared at her, and Riyala realized that Jason was trying to help her. A smile bloomed on her face, and Riyal put her arms around Jason’s shoulders and nodded while telling him that she trusted him. Riyala opened her legs wider to give Jason more space, and Jason smiled as he positioned himself and found her entrance. Even before entering her, Jason could already feel an intense heat from down there, but Jason didn’t bother to stop as he slowly started to slide inside her.</p>
-<p>"Mmmmhhh~"</p>
+<p>"Mmmmhhh"</p>
 <p>Riyala bit her bottom lip and moaned deep in her throat as she felt Jason splitting her apart! Jason grunted as the heat increased even more, and he continued to push into Riyala until he felt a resistance against his movement! Jason leaned down and kissed Riyala gently to prepare her for what was coming before he finally thrust forward and entered her!</p>
 <p>Rip!</p>
 <p>"Nnnnnghhh!"</p>

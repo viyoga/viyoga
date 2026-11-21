@@ -26,7 +26,7 @@ chapter = 334
 <p>He rose to his feet, and then, after a pause, he extended his hand toward the transparent wall separating them.</p>
 <p>Alice’s breath caught. Her eyes went wide, shining like twin stars, before she strained forward in her restraints as if trying to cross the barrier herself. She couldn’t, of course, but it didn’t matter. She closed her eyes with a blissful smile, humming happily as he mimed gentle headpats on the other side of the wall.</p>
 <p>"Hang in there, sister," Kaiden murmured softly.</p>
-<p>"Mmnnn~" Alice purred like a pampered cat, melting at the imaginary touch.</p>
+<p>"Mmnnn" Alice purred like a pampered cat, melting at the imaginary touch.</p>
 <p>Kaiden lingered only a moment longer before turning on his heel and leaving the chamber. The heavy doors groaned shut behind him.</p>
 <p>...</p>
 <p>"Your little sister is wild, dude," Rae chuckled as soon as he stepped outside.</p>

@@ -47,7 +47,7 @@ chapter = 860
 <p>"That's good. Let's do that."</p>
 <p>I nodded my Head and took out a glasses case from my pocket. I pulled out the Ruins' glasses from the case and opened my mouth to ask Kijimoto Jurie for her understanding.</p>
 <p>"These glasses are equipment that can reveal Jurie Teacher-nim's abilities. May I check your abilities once?"</p>
-<p>"Such a thing exists? How fascinating. People usually don't know their own abilities well, so I'm curious too. Please take a look, Yamashiro Teacher-nim~!"</p>
+<p>"Such a thing exists? How fascinating. People usually don't know their own abilities well, so I'm curious too. Please take a look, Yamashiro Teacher-nim!"</p>
 <p>As expected of a Mad Scientist, when an item that stimulated her curiosity appeared, Kijimoto Jurie, with a slightly mad glint in her pupils, asked me to look at her. I didn't refuse and immediately put on the Ruins' glasses and looked at Kijimoto Jurie.</p>
 <p>Name: Kijimoto Jurie Lv14</p>
 <p>Power:3 Agility:11 Stamina:8 Resistance:7 Recovery:7 Sensitive Nerves:11 Appearance:17</p>
@@ -77,13 +77,13 @@ chapter = 860
 <p>".... That's what it says."</p>
 <p>"Oh, really? It's similar to what I thought. For example, the Night Cat's Sensation you mentioned, Yamashiro Teacher-nim, is a prime example. I really do instinctively think of the timing to spray poison or escape routes...."</p>
 <p>Perhaps delighted to learn new facts, Kijimoto Jurie chattered to me, explaining what she felt.</p>
-<p>"Now that I know my abilities more clearly, I think I can use them better. Thank you, Yamashiro Teacher-nim~!"</p>
+<p>"Now that I know my abilities more clearly, I think I can use them better. Thank you, Yamashiro Teacher-nim!"</p>
 <p>"Of course, they're Jurie Teacher-nim's abilities, so I should teach you."</p>
 <p>Kijimoto Jurie was thrilled to research how to utilize her newly clarified abilities. Since I couldn't interrupt Kijimoto Jurie's new research, I gulped down the cooled tea and stood up.</p>
-<p>Requested by TheDreaming-nim: Sawayanagi Azuma with breast-covering in the aquarium and Sawayanagi Azuma in embarrassing attire at the Aquarium~!</p>
-<p>Inside the Aquarium~!</p>
-<p>Embarrassing attire~!</p>
+<p>Requested by TheDreaming-nim: Sawayanagi Azuma with breast-covering in the aquarium and Sawayanagi Azuma in embarrassing attire at the Aquarium!</p>
+<p>Inside the Aquarium!</p>
+<p>Embarrassing attire!</p>
 <p>For some reason, only this illustration came out for c-string haha.</p>
 <p>Requested by Hwanbuljeoldae-bulga-nim: Lisa-ttang and Home Ec Teacher, with uterus tattoo + Belly button piercing bikini!</p>
-<p>Starting with Lisa-ttang~!</p>
+<p>Starting with Lisa-ttang!</p>
 <p>Home Ec Teacher</p>

@@ -75,7 +75,7 @@ chapter = 265
 <p>{Endurance: 34}</p>
 <p>{Mana: 102}</p>
 <p>{Magic: 106}</p>
-<p>"I can multitask, Master~" she purred, her voice trembling with anticipation as her fingers laced over his.</p>
+<p>"I can multitask, Master" she purred, her voice trembling with anticipation as her fingers laced over his.</p>
 <p>Without waiting for his command, Bastet began guiding his hand herself while rocking her hips back and forth.</p>
 <p>Luna stared with eyes full of disbelief. "Never thought I’d say this, but if Bastet invested in Endurance instead of Mana and Magic, she could probably easily 1v1 Kai in the sheets... This woman has an incredible libido."</p>
 <p>"Don’t tempt her," Nyx popped a bite of rations dinner into her mouth.</p>

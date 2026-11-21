@@ -15,7 +15,7 @@ chapter = 683
 <p>MONA-RISA: We've hung out a lot in Miyashi, so how about Tokyo?</p>
 <p>I had to go to Korea right after hanging out with Minamoto Risa anyway, so going to Tokyo and heading straight to the airport would be pretty good.</p>
 <p>Ryuta: Sounds good. Let's hang out in Tokyo.</p>
-<p>MONA-RISA: Okay~. You have a good vacation too. I think I'll be busy preparing for college.</p>
+<p>MONA-RISA: Okay. You have a good vacation too. I think I'll be busy preparing for college.</p>
 <p>Minamoto Risa was studying hard to get into Edo University, the best university in Japan. She was ranked second in the entire school in the last exam, the second semester exam, so she was skilled enough to go to Edo University.</p>
 <p>Being ranked second in the entire school at St. Francisco Girls' Academy, which could be considered a prestigious school, was a pretty good score.</p>
 <p>In fact, St. Francisco Girls' Academy, where you could naturally advance to St. Francisco Women's University, didn't really have an atmosphere where people studied that hard.</p>
@@ -25,7 +25,7 @@ chapter = 683
 <p>I finished chatting with Minamoto Risa on the encrypted app and put my phone away. I was walking while chatting, and I've almost arrived. Today was the Jeseodang's information report.</p>
 <p>I had requested some information, so I was heading to a temporarily prepared conference room with Naruse Shiyo, Alik, Otagi Yuka, and Saionji Diana to hear the report on the first investigation.</p>
 <p>For reference, Sakagami Rena couldn't make it because she had a family gathering in the evening. Sakagami Rena was one of the executives of the Jeseodang, but she said she was going to see her family after a long time, and since Asada Ei would give the overall report anyway, I sent her to her family.</p>
-<p>"Sensei~! That's the building!"</p>
+<p>"Sensei! That's the building!"</p>
 <p>Naruse Shiyo pointed to a slightly old three-story commercial building. We rented the office for just one day for the information meeting. I gave the building owner three days' rent for renting it for one day, and he readily agreed.</p>
 <p>The office we rented was an empty office on the third floor. When I went inside, Asada Ei, the information agent of the Jeseodang and the one who was practically leading the Jeseodang, was waiting for us.</p>
 <p>Asada Ei, with her very light bluish-ice-colored hair, pale skin, and expressionless face, bowed her head to me.</p>

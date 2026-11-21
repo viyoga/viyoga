@@ -9,12 +9,12 @@ chapter = 102
 <p>Unlike Korea, in Japan, apartments give off a slightly run-down vibe as residences. In fact, what is called an apartment in Korea is a mansion in Japan, and an apartment in Japan refers to a multi-dwelling house made of lightweight steel frame or wood, not reinforced concrete, with a height of about two to three stories. The two-story house with several people living in it that appears in Japanese anime or dramas is exactly what an apartment is in Japan.</p>
 <p>Until now, I had lived in an apartment because Jinmija Yeosa-nim didn't invest the money Taira Saburo sent her every month and the money she earned herself in a place to live, but diligently saved it in her bank account in order to send me to college and save up for my future marriage fund. Before my possession, not knowing this, I naturally assumed that our house, living in a shabby place, was poor, so I didn't study in the first place. My mom said that when she found out about this, it was when I had just entered my senior year of high school, and she regretted it immensely then.</p>
 <p>After I joined the Taira Group Human Resources Development Institute, the money saved for my tuition became useless, and after Taira Saburo died and I received the inheritance, she used that money to move from an apartment to a mansion. So, perhaps because of that, it didn't really feel like home to me. Because it wasn't the house I had lived in since I was born. Since my mom moved when I was living in the Human Resources Development Institute, she had only come about twice.</p>
-<p>,Ool~! You moved to a good place?"</p>
+<p>,Ool! You moved to a good place?"</p>
 <p>,It seems like this is the best neighborhood in Edogawa Ward?"</p>
 <p>Kazuhiro and Kiyohira said a word each as they got out. These guys were also coming to a newly moved house for the first time while living their social lives, so they looked around with wonder. Saying that there was such a neighborhood in Edogawa Ward.</p>
 <p>Edogawa Ward, along with Adachi Ward and Katsushika Ward, is called the,Shomin 3-ku (Downtown Three Wards)' and is a representative neighborhood where the common people of Tokyo live, but it still had its own wealthy area, and the mansion Jinmija Yeosa-nim moved to was right in that neighborhood.</p>
 <p>We each carried our gifts and went up to the house. Jinmija Yeosa-nim's house was on the 8th floor. Since I had received the key from my mom in advance, I opened the door with the key without ringing the bell, and Jinmija Yeosa-nim was dressed up and sitting on the sofa watching TV. It seemed like she was dressed in advance because our appointment time was approaching.</p>
-<p>,Mom~!"</p>
+<p>,Mom!"</p>
 <p>,Mother!"</p>
 <p>,It's been a while, Ryuta's mother."</p>
 <p>,Oh, you're here?"</p>

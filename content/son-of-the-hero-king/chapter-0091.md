@@ -17,14 +17,14 @@ chapter = 91
 <p>Capturing a free citizen and treating them as a slave was forbidden. What's more, there were so many regulations for their protection that nowadays slaves were more like underpaid servants than anything else.</p>
 <p>Of course, a chimera was no citizen of Lustburg and could even be called an enemy.</p>
 <p>Theresa squinted her eyes at Sol's reaction. Once again she was reminded how different Sol was from his father. Back then, she knew that Mars had an absolute distaste for such a culture. If it wasn't because of his advisor, he would have simply abolished the slavery system rather than creating more regulations.</p>
-<p>"Do not worry. Even though Greed Dike doesn't frown on slavery, I am not the kind to go capture people for entertainment. This girl was born from a fossilized egg I brought back from Gluttony Foss all those years ago during our campaign against Echidna. Back then, I thought that it was just a dead egg. So imagine my surprise when a few years later I got her. Hehe~!"</p>
+<p>"Do not worry. Even though Greed Dike doesn't frown on slavery, I am not the kind to go capture people for entertainment. This girl was born from a fossilized egg I brought back from Gluttony Foss all those years ago during our campaign against Echidna. Back then, I thought that it was just a dead egg. So imagine my surprise when a few years later I got her. Hehe!"</p>
 <p>Even though she was laughing, Sol felt that she was still hiding something.</p>
 <p>"Could you be a little more clear?"</p>
 <p>"Well, I got this egg in a deserted part of Echidna castle. We were being chased down by one of the twelve constellations. Boy, you should have seen it. A giant humanoid spider running being us. The stuff of nightmares I say. So, I was running for my life when I saw this very shiny and round thing. Of course, as a dwarf, the first thing I did was to snatch it then continue fleeing."</p>
 <p>He could feel an urge to slap his face as he heard this tale.</p>
 <p>Still, to have the leisure to steal something while being chased down by one of the constellations.</p>
 <p>"If it's a spider I guess it's the cancer constellation."</p>
-<p>"Was. I don't know if Echidna created another one. But at least the previous cancer constellation got sliced off by Lilith. Hahaha~! You should have seen his face. He didn't even understand how he died."</p>
+<p>"Was. I don't know if Echidna created another one. But at least the previous cancer constellation got sliced off by Lilith. Hahaha! You should have seen his face. He didn't even understand how he died."</p>
 <p>The more he heard her speak, the more a yearning began to burn in his heart.</p>
 <p>He also wished to go out and explore the world. To live through different adventures with trusted companions.</p>
 <p>It might be a little childish and naive, but it was hard to discard such dreams.</p>

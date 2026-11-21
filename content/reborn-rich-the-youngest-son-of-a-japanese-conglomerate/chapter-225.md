@@ -91,7 +91,7 @@ chapter = 225
 <p>They were quite formidable. Can Otagi Yuka really beat the Muyeongdae? If she uses all of her vampire abilities, she might be able to put up a fight, but the Muyeongdae probably has a manual for dealing with vampires too.</p>
 <p>It's not a bad thing for me. It means that Dang So-hwa and Yang Seol-hui are that much safer.</p>
 <p>"Okay. I'll be going now."</p>
-<p>"Yes, please stop by the city branch on your next schedule~!"</p>
+<p>"Yes, please stop by the city branch on your next schedule!"</p>
 <p>Eve smiled and waved her hand as if she knew I was going to LA. I went through the secret passage and left the Amsang building. Not much time has passed yet.</p>
 <p>Then.... I should go back to the Brooklyn Navy Yard to get items.</p>
 <p>----</p>

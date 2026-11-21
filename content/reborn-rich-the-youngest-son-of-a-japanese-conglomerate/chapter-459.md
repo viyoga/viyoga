@@ -6,7 +6,7 @@ chapter = 459
 +++
 
 <p>I was just going to put the glans in, but I don't know if it's because I'd been stimulating it with an egg vibrator the whole way here, or if I was just horny from the start, but there was so much slippery vaginal fluid inside her pussy that my dick slid deep inside, as if gliding.</p>
-<p>"Hyaaahaaang~!! I'm gonna cum!"</p>
+<p>"Hyaaahaaang!! I'm gonna cum!"</p>
 <p>Kurayamada Kirie-ssi came as soon as I put it in. She was leaning on the tree with her arms, and I was holding her waist tightly, so even though Kurayamada Kirie-ssi's legs gave out from the orgasm, she was able to hold on without falling.</p>
 <p>Doing it outdoors has its own charm. Is it the air that's different? Feeling the cool early autumn breeze, listening to the woman's moans, and shoving my dick into her writhing pussy felt different than usual.</p>
 <p>"Hng, hng! Nooo... Haa! I just came♥"</p>
@@ -15,7 +15,7 @@ chapter = 459
 <p>"Hng! It's getting weird...!"</p>
 <p>Kurayamada Kirie-ssi had already reached orgasm several times and was going crazy, and I was also shaking my hips, chasing after the pleasure.</p>
 <p>I was shaking my hips for a while when I heard the sound of jogging man running with the sounds of hoo! hoo! hoo! Then, he must have heard Kurayamada Kirie-ssi's moans, because the sound of his breathing and running stopped.</p>
-<p>"Haaaeuuut~! Hng! It's so big...♥"</p>
+<p>"Haaaeuuut! Hng! It's so big...♥"</p>
 <p>I kept shaking my hips and watched for the jogging man's presence. He could just pass by, but it's human instinct to want to check it out when you hear a woman's moans.</p>
 <p>Jeobeok... Jeobeok....</p>
 <p>As expected, unable to resist his curiosity, the jogging man was slowly walking towards us. But both Kurayamada Kirie-ssi and I were on the verge of orgasm, so even though we felt the approaching jogging man, we didn't stop shaking our hips and kept going.</p>

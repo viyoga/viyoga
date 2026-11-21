@@ -52,5 +52,5 @@ chapter = 1188
 <p>He glanced down at Felicity, still clutching him tightly, face buried against his chest.</p>
 <p>The little princess who wanted to build a bridge between a monster and a monarch.</p>
 <p>"... What have you done, girl?"</p>
-<p>"Ehehehe~!"</p>
+<p>"Ehehehe!"</p>
 <p>She had no proper answer to give.</p>

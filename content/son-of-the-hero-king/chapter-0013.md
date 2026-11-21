@@ -24,7 +24,7 @@ chapter = 13
 <p>Gerald gave an encouraging smile as he understood Sol quite well. One of the many reasons he liked the young lad was the humbleness he wielded toward others, and his respect for the old and wise. Sol was the sort of guy who didn’t let his title get to his head like so many young shitheads from noble houses these days. Truly, these were troubling times for the next generation of the empire.</p>
 <p>"Enough chit-chat. You should already be rather tired. So let's get this done quickly. Anyway, you already grasped the basics and just need more experience, who will you choose this time?"</p>
 <p>"My usual ones. Black and white."</p>
-<p>"Hahaha~!" Another cheerfully loud laugh escaped Gerald's lips as he chortled, "Those two are basically your private property now, they never let anyone else mount them."</p>
+<p>"Hahaha!" Another cheerfully loud laugh escaped Gerald's lips as he chortled, "Those two are basically your private property now, they never let anyone else mount them."</p>
 <p>Sol smiled at his comical accusations. White was his horse. A rare breed of nightmare horse. A rank D species. Black was his wyvern, a rank C species of the Draconic branch.</p>
 <p>Wyverns were an extremely devolved form of Dragons. So much so that in the legend, dragons saw the wyverns as inferior creatures not unlike how humans saw apes. Still, they were cool and since he was half-dragon, all dragon-related species always obeyed him without question.</p>
 <p>"You are right uncle. Let's go."</p>
@@ -71,7 +71,7 @@ chapter = 13
 <p>The woman gave a short bow with her head dipping slightly as she wore a slightly embarrassed expression behind her hood-covered robes, explaining the cause of her rudeness to the heir of the empire.</p>
 <p>"Gatekeeper, please do not mind. How could some silly convention be more important than your health? If it wasn't because of how weak I was I could have simply made the travels by myself. Once again my aunt is doing too much."</p>
 <p>Yes, the distance between the church, where the meeting would take place, and the tower was just about three or four kilometers. It was such a short distance that it was incredible how they were going to use a dimensional portal to reach it. It was a luxury, and an unnecessary one.</p>
-<p>"Ohohoh~! Your Highness, please do not worry. Her majesty is only doing so for your own good. As the last heir of the royal family, your security is paramount to anything else. Tiring my old bones for your protection is in no way a waste."</p>
+<p>"Ohohoh! Your Highness, please do not worry. Her majesty is only doing so for your own good. As the last heir of the royal family, your security is paramount to anything else. Tiring my old bones for your protection is in no way a waste."</p>
 <p>Sol's lips tugged to form a wry smile and left the talk there, not willing to stretch it out much. The old hunchback woman was from the same generation as Gerald, making her old enough to be his grandmother, to say the least. Her position as a gatekeeper was also extremely important. She was responsible for the space protection of the kingdom, after all. Apart from the usual space abilities, she was rather special among the space magic users. Hence the responsibility projected on her was also equivalently big and stressful.</p>
 <p>"Now your majesty, step on this magic circle with your bodyguard and I will send you to the coordinates. At the end of the party, you just have to step on the identical magic circle that is present there and ask your bodyguard to fill it with her mana and it will promptly activate and transfer you back to the tower."</p>
 <p>Nodding curtly at her instructions, Sol proceeded to follow them to a T and stand on the teleportation circle, preparing himself for the headache to come, both literally and figuratively.</p>
@@ -95,7 +95,7 @@ chapter = 13
 <p>Dark Phantom — a higher-tiered magical being.</p>
 <p>Sol's gaze settled on the raven-haired man standing with a smile close to 'that' woman.</p>
 <p>It was a member of the demon race, one of the races of the world, and he was quite highly ranked too at that, with a quality of B+ rank.</p>
-<p>'*Sigh~* I had hoped that I wouldn't have to meet them so soon. Just my luck, her odious face graced me at the entrance'</p>
+<p>'*Sigh* I had hoped that I wouldn't have to meet them so soon. Just my luck, her odious face graced me at the entrance'</p>
 <p>"I am sorry for the display my servant showed. I will be sure to discipline her at a later date."</p>
 <p>Sol answered smoothly while ignoring the nigh perpetual scowl on the face of the woman who was taking the lead. That scowl, however, couldn't do much to hide the mesmerizing beauty she held.</p>
 <p>The Duchess Arachne Milaris of the Milaris family. She was truly a beautiful woman. Even more so in her dark-as-night evening gown and despite her clear lack of womanly assets. To quote a sage of culture, flat was justice.</p>
@@ -105,7 +105,7 @@ chapter = 13
 <p>But the Milaris family was a little bit different. They weren’t outright enemies, but the relationship between that family and the royal family was quite awkward and bitter.</p>
 <p>The reason?</p>
 <p>Well… Arachne Milaris was the original fiancée of his father and the fact that she was neither his mother nor his stepmother gave the answer to how that engagement ended up.</p>
-<p>'*Sigh~* I feel like today will be quite an eventful night.'</p>
+<p>'*Sigh* I feel like today will be quite an eventful night.'</p>
 <p>He sighed for the third time today as he prayed to both Luxuria and Castitas to give him the energy to get through this day with a sane mind.</p>
 <p>———</p>
 <p>[In the Church.]</p>
@@ -119,7 +119,7 @@ chapter = 13
 <p>As the leader of the church, her power was in no way inferior to the royal family. In fact, you could even say that they faintly surpassed the royal family because of the current dismal situation the royal family faced, being without a true leader and all.</p>
 <p>In any normal state, this dissonance would have been quite dangerous and the royal family might have tried to keep the church in check. But this was not the case for Lustburg.</p>
 <p>The reason?</p>
-<p>"Hehe~! My little Sol is finally coming to see me. It has been such a long time. I was beginning to think he had forgotten me. This must be that woman's fault. Lilith was always such a worrywart. Always hogging him all to herself for nonsensical reasons. Don't you think so?"</p>
+<p>"Hehe! My little Sol is finally coming to see me. It has been such a long time. I was beginning to think he had forgotten me. This must be that woman's fault. Lilith was always such a worrywart. Always hogging him all to herself for nonsensical reasons. Don't you think so?"</p>
 <p>Camelia was what one could call a fangirl. And she was head over heels for Sol Dragons Luxuria, the heir of the empire.</p>
 <p>The nun could only awkwardly shuffle around. On one hand, she was already used to the eccentric antics of this mistress of hers, what's more, she had to admit that Sol was really cute and partially agreed with her declarations.</p>
 <p>He was basically the mascot of the nuns at this level.</p>

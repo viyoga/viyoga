@@ -23,7 +23,7 @@ chapter = 83
 <p>But Natasha caught that look and gritted her teeth. She didn’t feed anything special to her female students but all of their bodies had developed perfectly on their own.</p>
 <p>’Calm down, Natasha. Yours is still bigger.’</p>
 <p>"Then I’ll do the back." Dante placed his hands on her back and pressed down gently.</p>
-<p>"Nngh~!" Emma’s body jerked the instant his fingers moved across her muscles. Her eyes went wide and she bit down on the couch cushion to stop any more sounds from coming out.</p>
+<p>"Nngh!" Emma’s body jerked the instant his fingers moved across her muscles. Her eyes went wide and she bit down on the couch cushion to stop any more sounds from coming out.</p>
 <p>’W-WHAT THE HELL?!’ Her mind was screaming. He had only pressed once and her entire body went limp. ’So he really wasn’t lying.’</p>
 <p>"See? Told you." Natasha said from the side with her arms crossed, watching with the expression of someone who had already been through this exact thing.</p>
 <p>Emma didn’t respond. Dante didn’t give her the chance. His hands moved across her back and every spot he touched sent a wave of relief through her body that she had never felt before.</p>

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 808: Mother~ Daughter~ [18+]"
+title = "Chapter 808: Mother Daughter [18+]"
 weight = 808
 [extra]
 chapter = 808
@@ -31,9 +31,9 @@ chapter = 808
 
 <p>Avery flinched but didn’t pull away. At this absurd moment, her mother’s tenderness was strangely comforting.</p>
 
-<p>After a while, Blanche pulled her mouth away and said with a mix of shame and exasperation, &quot;Satisfied now, you bastard~!!!&quot;</p>
+<p>After a while, Blanche pulled her mouth away and said with a mix of shame and exasperation, &quot;Satisfied now, you bastard!!!&quot;</p>
 
-<p>&quot;I love you both~!!!&quot;</p>
+<p>&quot;I love you both!!!&quot;</p>
 
 <p>Luis grinned lecherously, his hands still roaming over their bodies.</p>
 
@@ -85,7 +85,7 @@ chapter = 808
 
 <p>When she saw her mother, Avery shyly lowered her head, continuing to suck but unable to meet her eyes.</p>
 
-<p>&quot;Sister Lei, come here~&quot;</p>
+<p>&quot;Sister Lei, come here&quot;</p>
 
 <p>Luis smoked a post-coital cigarette with a satisfied look, one hand enjoying the little loli’s cute oral service while the other kneaded her snow-white, fragrant young breasts.</p>
 
@@ -137,7 +137,7 @@ chapter = 808
 
 <p>Her breathing quickened, but she suppressed her moans, trying to fight the shame, yet both mother and daughter were once again ignited by Luis’s touch.</p>
 
-<p>&quot;Ahhh~...&quot;</p>
+<p>&quot;Ahhh...&quot;</p>
 
 <p>Blanche couldn’t help crying out.</p>
 
@@ -165,7 +165,7 @@ chapter = 808
 
 <p>He licked her young, alluring pussy like a kiss, making her moan uncontrollably, her face lost in bliss.</p>
 
-<p>&quot;Mmm~...&quot;</p>
+<p>&quot;Mmm...&quot;</p>
 
 <p>Neither mother nor daughter spoke, but they moaned in synchrony, softly, no longer holding back.</p>
 

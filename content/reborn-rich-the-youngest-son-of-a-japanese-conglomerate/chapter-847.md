@@ -23,7 +23,7 @@ chapter = 847
 <p>"Alik, what's wrong?"</p>
 <p>"Shiho mom, Alik learned a new Technology."</p>
 <p>Although Alik spoke proudly, holding his katana, in Egawa Shiho's Eyes, only the garden, charred and ruined by the Lightning, was visible.</p>
-<p>"Alik, I made a separate Training Ground for you, didn't I~!? What will you do if you make such a mess here?!"</p>
+<p>"Alik, I made a separate Training Ground for you, didn't I!? What will you do if you make such a mess here?!"</p>
 <p>"Ah...!"</p>
 <p>At Egawa Shiho's scolding, only then did Alik look around. The Flowers and Grass in the garden were heavily charred, making the Surroundings a mess.</p>
 <p>"Shiho mom, Sorry."</p>
@@ -35,14 +35,14 @@ chapter = 847
 <p>Alik, excited about having learned a new Swordsmanship, holding his swords, ran to the Training Room Egawa Shiho had specially made for him. Egawa Shiho, looking at Alik's Back View, smiled as if she couldn't stop him.</p>
 <p>"Everyone, did you rest well this Weekend?"</p>
 <p>I entered the Classroom and asked, looking at the Students. Already, since it had been a free-for-all after the Test ended, the Students had no such thing as Monday sickness. It was just one of the days they came to play with their Friends.</p>
-<p>"Of course~! Ryuta-cchi, you went to Kofu without us, didn't you?"</p>
+<p>"Of course! Ryuta-cchi, you went to Kofu without us, didn't you?"</p>
 <p>"We like going to Kofu too, why didn't you take us?"</p>
-<p>"That's right, that's right~!"</p>
+<p>"That's right, that's right!"</p>
 <p>Seizawa Shii, having heard it from somewhere, mentioned that I had taken some Students to Kofu City. In response, the Students who couldn't go to Kofu grumbled and made a Commotion. It wasn't for fun, but to make Swords for the Kids, so it wasn't necessarily a Secret, but for some reason, the Students who didn't use cold Weapons seemed to feel a little left out.</p>
 <p>"It wasn't for fun, but more like a Factory tour for Work? Think of it as having gone for something like that."</p>
-<p>"Then I too, for my Work, let me go with Ryuta-cchi sometime~!"</p>
+<p>"Then I too, for my Work, let me go with Ryuta-cchi sometime!"</p>
 <p>"Are you saying you want to do a request together?"</p>
-<p>"Yes~☆"</p>
+<p>"Yes☆"</p>
 <p>It felt like I had somehow gotten entangled by Seizawa Shii, but I had no choice but to nod my Head. Minamoto Risa, although she had a slightly dissatisfied Face, was quiet, because I had promised to take Minamoto Risa and a Sunbae under her who used cold Weapons to meet Ichimonji later, it seemed she was letting it go. With the other Students as well, only after making a promise to do something together did the Commotion subside a little, and only then could I talk about today's main Matter.</p>
 <p>"Let's move on from the Kofu Story now, and from today, I need to do career counseling with a few people at a Time, who wants to go first?"</p>
 <p>In fact, for advancement to higher Education or career paths, the Class Teacher's Role was extremely limited at St. Francis Girls' Academy, so career counseling was merely a formal procedure. It was just like a final tea Time between the graduating Students and the Teacher before they parted ways, perhaps?</p>
@@ -54,7 +54,7 @@ chapter = 847
 <p>The next Student to raise her Hand was Kujo Kina. Having returned from the USA, perhaps not yet adapted to the Time difference, she raised her Hand with a slightly tired-looking Face.</p>
 <p>"Good. Then everyone go up to the second floor.... Shido, go to the Counseling Room on the second floor. I'll grab a few things and head up."</p>
 <p>"Yes."</p>
-<p>"Yes~!"</p>
+<p>"Yes!"</p>
 <p>The Students stood up and rushed up to the club room, and I stopped by the Education Preparation Room to pick up documents like counseling logs and headed to the Counseling Room on the second floor.</p>
 <p>Deureureuk.</p>
 <p>Opening the door of the Counseling Room and entering, Shido Tsubaki was sitting there. I placed the document file on the desk and sat down on the Opposite Side of Shido Tsubaki.</p>
@@ -85,9 +85,9 @@ chapter = 847
 <p>"Yes."</p>
 <p>At my Words, Shido Tsubaki stood up. And she paused as she was about to leave the Counseling Room and stood in front of the door. And she opened her mouth softly.</p>
 <p>"Actually, there's one thing I want to counsel about...."</p>
-<p>Requested by MidNightSKY-nim: Liz and Lisa watching the night sky in a place full of Stars~!</p>
-<p>Starting with Lisa-ttang~!</p>
+<p>Requested by MidNightSKY-nim: Liz and Lisa watching the night sky in a place full of Stars!</p>
+<p>Starting with Lisa-ttang!</p>
 <p>The Atmosphere was so good that I made an Illustration I liked while creating it into a Cover, hehe.</p>
-<p>Liz~!</p>
+<p>Liz!</p>
 <p>She looks like a Demon Lord, hehe.</p>
 <p>The Atmosphere is different from Lisa-ttang, hehe.</p>

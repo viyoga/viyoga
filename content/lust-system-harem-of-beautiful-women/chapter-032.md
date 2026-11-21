@@ -7,7 +7,7 @@ chapter = 32
 
 <p>Luis placed the panties under his nose and inhaled deeply with intoxicated delight. Leah immediately blushed crimson, snatching the panties back and stuffing them into the bag as she scolded shyly, &quot;Brother, don’t be such a pervert. Why are you sniffing my panties?&quot;</p>
 
-<p>&quot;Next time, Brother will do something even more perverted~&quot;</p>
+<p>&quot;Next time, Brother will do something even more perverted&quot;</p>
 
 <p>The younger sister giggled shyly and ran downstairs first, while Luis laughed heartily and followed after her.</p>
 
@@ -15,7 +15,7 @@ chapter = 32
 
 <p>&quot;Brother will put them on for you!&quot;</p>
 
-<p>&quot;Okay~ serve me well~&quot;</p>
+<p>&quot;Okay serve me well&quot;</p>
 
 <p>With that, Luis sat cross legged on the floor, placing her delicate little feet on his lap. This time, Leah wasn’t flustered at all and even stretched out her other foot.</p>
 
@@ -49,11 +49,11 @@ chapter = 32
 
 <p>Luis snapped out of his daze.</p>
 
-<p>Leah cheered and immediately said into the phone, &quot;Just take a taxi to Walmart. Later, my Brother will treat us to something delicious~&quot;</p>
+<p>Leah cheered and immediately said into the phone, &quot;Just take a taxi to Walmart. Later, my Brother will treat us to something delicious&quot;</p>
 
-<p>&quot;Brother is the best, I love you so much~&quot;</p>
+<p>&quot;Brother is the best, I love you so much&quot;</p>
 
-<p>&quot;Avery is my closest friend~&quot;</p>
+<p>&quot;Avery is my closest friend&quot;</p>
 
 <p>Leah was overjoyed, while Luis smiled gently. This time, instead of holding her hand, he wrapped an arm around her. Leah froze for a moment before shyly lowering her head and allowing her Brother to embrace her.</p>
 
@@ -121,7 +121,7 @@ chapter = 32
 
 <p>After entering, they had ordered two cherry juices—one for her classmate—while Luis hadn’t bought anything and had just been sitting there on his phone.</p>
 
-<p>Luis looked at her shy expression and continued teasing, &quot;No, Brother isn’t used to drinking these. As long as you like it, baby~&quot;</p>
+<p>Luis looked at her shy expression and continued teasing, &quot;No, Brother isn’t used to drinking these. As long as you like it, baby&quot;</p>
 
 <p>Leah suddenly felt dazed. She blended right in with the stylish, well dressed young people here, not standing out at all.</p>
 

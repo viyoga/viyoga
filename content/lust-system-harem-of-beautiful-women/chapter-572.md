@@ -39,7 +39,7 @@ chapter = 572
 
 <p>&quot;That... I&#x27;ll need to think about that slowly too.&quot; Seeing how enthusiastic she was, Luis chuckled. &quot;Looks like you&#x27;re determined to succeed, babe.&quot;</p>
 
-<p>&quot;It&#x27;s just that I think your ideas are really good, honey~&quot; Lily smiled a little sheepishly. &quot;Besides, in the time I&#x27;ve gotten to know her, I&#x27;ve found she&#x27;s a really nice person. I think we should be able to get along.&quot;</p>
+<p>&quot;It&#x27;s just that I think your ideas are really good, honey&quot; Lily smiled a little sheepishly. &quot;Besides, in the time I&#x27;ve gotten to know her, I&#x27;ve found she&#x27;s a really nice person. I think we should be able to get along.&quot;</p>
 
 <p>What Lily said was actually true. Although there was a possibility Chloe had been deliberately getting close and trying to please her, overall, her personality was exceptionally good.</p>
 

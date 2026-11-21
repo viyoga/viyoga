@@ -11,7 +11,7 @@ chapter = 7
 <p>For a brief moment, their lips parted, their panting breaths mingling in the small space between them.</p>
 <p>Ethan’s hands moved up Alice’s slim, delicate waist, his fingers mapping every curve and valley of her body until they reached her breasts.</p>
 <p>They closed firmly, feeling the pale, soft mountains completely fill his palms, unable to contain such vastness.</p>
-<p>"Nghn~" A sweet moan escaped Alice’s lips as she arched her back, her hands seeking support on Ethan’s shoulders.</p>
+<p>"Nghn" A sweet moan escaped Alice’s lips as she arched her back, her hands seeking support on Ethan’s shoulders.</p>
 <p>Ethan slid his hand down her breasts, grabbed the tight neckline, and pulled it down.</p>
 <p>There was slight resistance before the thin fabric slid down, her pink nipples popping out like blossoming flower buds, followed by the rest of her huge breasts.</p>
 <p>He grabbed them again, controlling their jiggle.</p>
@@ -21,9 +21,9 @@ chapter = 7
 <p>The beauty shuddered as he applied a little more pressure, her delicate hands rising to cover her flushed face.</p>
 <p>Smiling, Ethan pressed Alice’s luscious tits together, squeezing until her pink, erect nipples touched, before enveloping them with his lips.</p>
 <p>His tongue danced around the sensitive, soft tips, savoring the slightly salty taste of her creamy, sweaty skin as he applied strong suction.</p>
-<p>"Ahn~" A sharp, surprised squeal escaped Alice’s lips.</p>
+<p>"Ahn" A sharp, surprised squeal escaped Alice’s lips.</p>
 <p>She clung even tighter to Ethan, pulling him against her boobs, his face buried in her soft, perfect skin.</p>
-<p>"Nghnn~~ E-Ethan... G-gentler, aghnn~~" Alice gasped, biting her lower lip as she tried to suppress her moans, her eyes closing tightly.</p>
+<p>"Nghnn E-Ethan... G-gentler, aghnn" Alice gasped, biting her lower lip as she tried to suppress her moans, her eyes closing tightly.</p>
 <p>"Ah..." Ethan pulled back gently. Alice’s breasts followed the movement, being pulled until he finally parted his lips.</p>
 <p>A wet pop echoed as her pink nipples were released. Her huge, heavy tits bounced against her delicate torso, swaying slightly.</p>
 <p>He gently held her chin, leaning in to capture her lips once more. He thrust his tongue into her mouth, tasting the sweetness of her saliva.</p>
@@ -38,7 +38,7 @@ chapter = 7
 <p>The skin was soft and perfect, without a single strand or sign of pubic hair to taint it.</p>
 <p>The direct contact of his fingers with the soft, moist, warm skin of her plump vulva made her let out a loud moan, her fingers sinking into Ethan’s golden hair.</p>
 <p>Slowly, he slid his index finger, feeling the softness of that skin until, finally, he thrust it in, sinking it into her pussy.</p>
-<p>"Aghnnnn!~~" Alice arched her back, her eyes squeezing shut and her mouth opening.</p>
+<p>"Aghnnnn!" Alice arched her back, her eyes squeezing shut and her mouth opening.</p>
 <p>Without warning, Ethan moved his hands, sinking them into the soft flesh of her ass, and, as if Alice weighed nothing, lifted her into the air.</p>
 <p>Alice let out a little scream of surprise, but was silenced by his lips. She could only cling to Ethan’s neck to keep her body from falling backward.</p>
 <p>With steady steps, he carried Alice to her bed.</p>

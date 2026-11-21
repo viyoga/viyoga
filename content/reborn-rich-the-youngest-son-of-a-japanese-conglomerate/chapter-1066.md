@@ -79,9 +79,9 @@ chapter = 1066
 <p>Oliver Fitzgerald took the documents and headed to the study, and I was guided by the maid and arrived at an empty room.</p>
 <p>First, I need to tell TG Tech that the patent rights have been roughly agreed upon, and I also need to tell Linxiang that we might be able to supply to the US military unit in Japan.</p>
 <p>I lay down on the bed and waited for Nae Fitzgerald and Arisu to come while telling the story on my phone.</p>
-<p>TheDreaming requested Rinka Sabu 1. Hot spring 2. Mountain trail kick~!</p>
+<p>TheDreaming requested Rinka Sabu 1. Hot spring 2. Mountain trail kick!</p>
 <p>1.</p>
 <p>2.</p>
-<p>Gojoy requested Han Yu-gyeong 1. Covering her breast 2. Sleeping after Yas~!</p>
+<p>Gojoy requested Han Yu-gyeong 1. Covering her breast 2. Sleeping after Yas!</p>
 <p>1.</p>
 <p>2.</p>

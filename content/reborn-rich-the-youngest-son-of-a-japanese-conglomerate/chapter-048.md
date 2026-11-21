@@ -13,7 +13,7 @@ chapter = 48
 <p>Kuriyamada Kirie saw a glamorous glasses beauty and a man going to the tennis court. Seeing them opening the tennis court office with a key, they seemed to be related to the tennis court.</p>
 <p>Kuriyamada Kirie muffled her footsteps and slowly approached the window where the office was visible. And she listened to what the two men and women were saying.</p>
 <p>"Please wear your tennis clothes next time."</p>
-<p>"Hehe~ You want to see me in my tennis clothes?"</p>
+<p>"Hehe You want to see me in my tennis clothes?"</p>
 <p>'Wh-wh-what are they saying!'</p>
 <p>Although her father was a terrorist, Kuriyamada Kirie, who had lived like a maiden in the Kuriyamada family, which was a family with a long history, was shocked to see a man and woman having a secret meeting in the tennis office. She valued her own chastity because she was thinking of giving her first time to the Japanese imperial family.</p>
 <p>Since she was a child, she had never seen or heard such(?) negative things. But today, she saw that negative thing. Kuriyamada Kirie almost took out the 20-centimeter-long small sword she was wearing on her thigh without realizing it.</p>

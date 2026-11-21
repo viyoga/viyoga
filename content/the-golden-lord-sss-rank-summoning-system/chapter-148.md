@@ -22,7 +22,7 @@ chapter = 148
 <p>His cum flooded the valley between their breasts in seconds, gushing out in an absurd amount and painting their skin with pearly liquid that spilled from the four corners where those huge breasts met, thick ropes sliding down the soft curves of their cleavage.</p>
 <p>The two remained still for a moment before parting with soft, satisfied moans.</p>
 <p>Their tits glistened, heavy and slick with cum, thick shiny strands stretching lazily through the air as they connected their creamy skin to each other and to Ethan’s cock at the center of it all.</p>
-<p>"Nghnn~~ sweetheart, you came so much this time, fufufu~~" Elena laughed, trailing her fingers over her black tits now streaked white, her heavy breasts swaying as she scooped up the warm semen and brought it to her lips, savoring it with a low, throaty moan.</p>
+<p>"Nghnn sweetheart, you came so much this time, fufufu" Elena laughed, trailing her fingers over her black tits now streaked white, her heavy breasts swaying as she scooped up the warm semen and brought it to her lips, savoring it with a low, throaty moan.</p>
 <p>Alice blushed at the sight, her eyes drifting to Evelyn, who soon reached her own peak.</p>
 <p>Her entire body trembled as the climax tore through her, and then she collapsed forward, her tanned breasts bouncing against Ethan’s abdomen, her lips parted in a breathless moan, aligned perfectly with his cock.</p>
 <p>She choked, her previously closed eyes flying open as the cum-covered member sank into her throat in one smooth motion, her cheeks hollowing around its thickness.</p>

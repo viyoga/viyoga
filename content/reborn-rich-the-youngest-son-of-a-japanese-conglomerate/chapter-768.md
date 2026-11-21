@@ -32,7 +32,7 @@ chapter = 768
 <p>Even if I had my own ski clothes, my Body Size itself had changed due to the increase in Body Stats, so I would have had to go buy them.</p>
 <p>"Alright. Let's all go buy them."</p>
 <p>In the end, I decided to take all the students except Uenozono Karen to Miyashi's department store. At my Surrender Declaration, all the students except Uenozono Karen, who couldn't go to the ski resort Event, were excited.</p>
-<p>"Yay~ Let's go right now~!"</p>
+<p>"Yay Let's go right now!"</p>
 <p>Seizawa Shii got up excitedly, and the other students followed suit. Even though I hadn't even said homeroom was over yet.</p>
 <p>"But I haven't even prepared a car today...."</p>
 <p>Normally, if I were taking students, I would have rented a van and prepared it separately, but since we were going Impromptu today, there was no time to prepare.</p>
@@ -41,7 +41,7 @@ chapter = 768
 <p>Following the students out of the special class building, a mini bus was parked there, complete with a driver, making it convenient for us to go. It was nice not having to drive myself.</p>
 <p>I comfortably sat down and let the driver take us to Miyashi Prime Mall, Miyashi's only department store.</p>
 <p>My Impression of this department store wasn't good because of the unpleasant incident where Miyoutubers excessively bothered the Female Students there before, but since it was the only high-end department store in Miyashi that St. Francis Girls' Academy students could use, I had no choice but to use it.</p>
-<p>"Oh, you've arrived~!?"</p>
+<p>"Oh, you've arrived!?"</p>
 <p>Minamoto Risa must have contacted them in advance, as the plump, bald Boss, who was in charge of Miyashi Prime Mall, was waiting in the Parking Lot. As we got out, the bald Boss bowed so politely he almost folded in half.</p>
 <p>"We've come to look at ski clothes. We don't need a guide, but there shouldn't be any unpleasant incidents like last time, understood?"</p>
 <p>"How could there be? Since the last incident, we've increased our security agents and strengthened their Education, so nothing like before will happen."</p>
@@ -76,4 +76,4 @@ chapter = 768
 <p>Thud.</p>
 <p>The Phone Call ended with the Words that he would return to Japan soon. Funayama Seigo bowed his Head towards the silent speaker phone.</p>
 <p>Gojoy-nim requested a new model Nagumo Sian Nurse Uniform. I practiced a bit today to make it, so there's a high Possibility of changes hehe.</p>
-<p>Kkiyoot~!!</p>
+<p>Kkiyoot!!</p>

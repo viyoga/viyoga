@@ -107,7 +107,7 @@ Once he was done, he clicked his tongue and said, "I have to abide by the rules,
 
 Without further ado, he sent the three into a well illuminated hall and…
 
-"So amazing!~" Tsuki commented as she found everything around her bright and shiny.
+"So amazing!" Tsuki commented as she found everything around her bright and shiny.
 
 The six were inside a crystal palace of some sort and it seemed really ancient.
 

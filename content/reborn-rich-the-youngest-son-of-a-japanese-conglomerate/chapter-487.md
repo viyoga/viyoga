@@ -5,7 +5,7 @@ weight = 487
 chapter = 487
 +++
 
-<p>This episode contains explicit scenes and illustrations! Please check your surroundings before viewing~!!</p>
+<p>This episode contains explicit scenes and illustrations! Please check your surroundings before viewing!!</p>
 <p>The reason I allowed a relationship with Saionji Diana-ssi was because, although she was a high school student due to repeating a year because of an accident, she was now an adult. So, it didn't violate my vow not to be with a minor, and I also had my principle of not rejecting women who come to me, and I knew that rejecting her after she had courted me so much would cause her great emotional pain.</p>
 <p>When I allowed her my body (?), Eve seemed even happier than Saionji Diana-ssi, who was the one actually doing it with me.</p>
 <p>,Instead! Please do it in the love hotel upstairs!</p>

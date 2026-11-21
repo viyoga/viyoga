@@ -71,7 +71,7 @@ chapter = 65
 
 <p>Arielle slowly moved upward as she finished cleaning his balls and the lower part of the pole.</p>
 
-<p>&quot;Why do you need to put more effort today regarding the festival, Mom? I can just give you what you desire, you know~?&quot; Owen said. He was really curious about how her mind worked.</p>
+<p>&quot;Why do you need to put more effort today regarding the festival, Mom? I can just give you what you desire, you know?&quot; Owen said. He was really curious about how her mind worked.</p>
 
 <p>Arielle already knew that Owen wouldn’t stop—not now that she was already in his grasp.</p>
 
@@ -79,26 +79,26 @@ chapter = 65
 
 <p>Countless things could happen in two days... and harvesting her fruit was only a matter of time.</p>
 
-<p>&quot;Slurp... slurp... I meant what I said, my dear Wen~... slurp... slurp...&quot; Her tongue twisted as it moved with precision around the head.</p>
+<p>&quot;Slurp... slurp... I meant what I said, my dear Wen... slurp... slurp...&quot; Her tongue twisted as it moved with precision around the head.</p>
 
-<p>&quot;Then I will just pound you today, Mom... don’t go to the meeting~,&quot; he offered as his blood began to boil again.</p>
+<p>&quot;Then I will just pound you today, Mom... don’t go to the meeting,&quot; he offered as his blood began to boil again.</p>
 
 <p>&quot;N-no... it won’t happen today or tomorrow...&quot; She finally cleaned everything up as she slowly stood up.</p>
 
-<p>&quot;Heh... then why did you spread your legs last night like a slut, Mom~?&quot; Owen rubbed his cock against her ass—not against her dress, but right against her panties! He made his move as fast as possible, without giving her any time to react.</p>
+<p>&quot;Heh... then why did you spread your legs last night like a slut, Mom?&quot; Owen rubbed his cock against her ass—not against her dress, but right against her panties! He made his move as fast as possible, without giving her any time to react.</p>
 
 <p>&quot;I-it’s... because of Morenne...&quot; She tried her best to get away, but unfortunately, she was too fragile compared to the masculine, lean body of Owen.</p>
 
-<p>&quot;How bad of you to throw the blame onto my Aunt. You are just a real slut who wants to spread her legs wide for her own son, Mom~&quot;</p>
+<p>&quot;How bad of you to throw the blame onto my Aunt. You are just a real slut who wants to spread her legs wide for her own son, Mom&quot;</p>
 
 <p>Owen slipped his hand onto her tits, fondling them as he pleased.</p>
 
 <p>&quot;Ahnn... N-no...&quot;</p>
 
-<p>&quot;Then... why did you agree to give me a blowjob, Mom, while talking to Dad without any protest? Are you saying that I’m the one doing something bad here, Mom~?&quot;</p>
+<p>&quot;Then... why did you agree to give me a blowjob, Mom, while talking to Dad without any protest? Are you saying that I’m the one doing something bad here, Mom?&quot;</p>
 
 <p>&quot;Ahnn... ahnn... ahnn... I didn’t say that... ahnn.&quot;</p>
 
-<p>&quot;Hehe... look how your tits are acting, Mom. They’re already erect, you know~?&quot; Owen pinched her nipples, which were clearly pushing against the dress she was wearing, already completely hard.</p>
+<p>&quot;Hehe... look how your tits are acting, Mom. They’re already erect, you know?&quot; Owen pinched her nipples, which were clearly pushing against the dress she was wearing, already completely hard.</p>
 
 <p>&quot;D-don’t touch them, ahhnn... my dress might get messy, my dear Wen... ahhn...&quot; she said, yet her body was not listening to her words at all, absolutely loving what Owen was slowly doing to her.</p>

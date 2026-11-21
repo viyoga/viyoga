@@ -32,7 +32,7 @@ chapter = 401
 <p>Kaiden’s brow lifted, unsure why none of the Nova Circuit people seemed to be able to act in any professional capacity, but he didn’t speak.</p>
 <p>Caitlyn leaned closer, her grin sharpening. "She’s not awakened yet, though. Poor little girl is a dejected college student with big dreams of awakening. You know, it’s her last few months of hope, but I can tell she’s all but given up."</p>
 <p>The woman was referencing how, save for the initial arrival of the mana apocalypse a decade ago, only children and young adults below the age of 20 had a 15% chance of awakening, save for the one in a million late bloomers.</p>
-<p>The slyness of the woman increased even further as she winked and purred, "All she needs is a hero to help her achieve her dreams. I’m sure if someone can help her, she’d give them her everything... Everything~"</p>
+<p>The slyness of the woman increased even further as she winked and purred, "All she needs is a hero to help her achieve her dreams. I’m sure if someone can help her, she’d give them her everything... Everything"</p>
 <p>Her eyes flicked toward the Valkyries again. "Odin had seven, didn’t he?"</p>
 <p>The air shifted.</p>
 <p>Aria’s hand landed on Kaiden’s. Firm. Possessive. Her glare could’ve cut steel.</p>

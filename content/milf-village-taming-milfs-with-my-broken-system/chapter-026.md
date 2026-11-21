@@ -9,7 +9,7 @@ chapter = 26
 
 <p>Thankfully, the signal had fluctuated at just the right moment.</p>
 
-<p>’Oho, a total pent up hungry MILF, you can’t even lie properly mom~!’ Owen overheard the sweet conversation between Arielle and his said to be ’father’ as her true desires slipped out.</p>
+<p>’Oho, a total pent up hungry MILF, you can’t even lie properly mom!’ Owen overheard the sweet conversation between Arielle and his said to be ’father’ as her true desires slipped out.</p>
 
 <p>Arielle genuinely meant what she said; how could she feign indifference when she was savoring such ecstasy as his massage...her lovely son’s massage</p>
 
@@ -25,7 +25,7 @@ chapter = 26
 
 <p>&quot;Ahhn... y-you are a silly boy...&quot; she said, sounding like a pouting child whose ice cream had just been stolen.</p>
 
-<p>&quot;Then... should I stop? Just say the word, Mom, and I will~&quot; Owen ceased his relentless squeezing and fondling, slowly withdrawing his hands.</p>
+<p>&quot;Then... should I stop? Just say the word, Mom, and I will&quot; Owen ceased his relentless squeezing and fondling, slowly withdrawing his hands.</p>
 
 <p>&quot;N-no... don’t.&quot; Arielle didn’t want him to stop at all.</p>
 
@@ -33,13 +33,13 @@ chapter = 26
 
 <p>Yes, there was absolutely nothing weird about a mother and son sharing a therapeutic massage... definitely.</p>
 
-<p>&quot;You clearly want it... but you’re just being shy, Mom~&quot; Owen was thrilled that she didn’t actually reject him.</p>
+<p>&quot;You clearly want it... but you’re just being shy, Mom&quot; Owen was thrilled that she didn’t actually reject him.</p>
 
 <p>&quot;I-it’s just a massage. You are helping my body relax, so it’s necessary for my b-body.&quot; She was clearly grasping at any justification that popped into her head.</p>
 
 <p>Thinking anymore is bound to be a trap...a good trap.</p>
 
-<p>&quot;Say whatever you want, Mom~&quot; Owen simply enjoyed the moment.</p>
+<p>&quot;Say whatever you want, Mom&quot; Owen simply enjoyed the moment.</p>
 
 <p>He wasn’t doing anything wrong because Arielle herself said it was necessary, and as a obedient son obviously he will obliged.</p>
 
@@ -59,13 +59,13 @@ chapter = 26
 
 <p>Owen’s grin widened, deeply satisfied by her reaction.</p>
 
-<p>’How supportive you are mom~, I don’t think any being will know that you are crazily savoring me..’ he was really amused, as he leaned his pole deeper.</p>
+<p>’How supportive you are mom, I don’t think any being will know that you are crazily savoring me..’ he was really amused, as he leaned his pole deeper.</p>
 
 <p>&quot;Ohoho... how could you lie like that, Mom...&quot; Owen’s low murmur caused her ears to perk up.</p>
 
 <p>&quot;S-shh... I’m not lying, silly...&quot;</p>
 
-<p>&quot;You are a really bad woman, Mom~, lying to Father like that.&quot; He needed to tease her even more!</p>
+<p>&quot;You are a really bad woman, Mom, lying to Father like that.&quot; He needed to tease her even more!</p>
 
 <p>He wasn’t going to stop until she completely surrendered.</p>
 
@@ -75,7 +75,7 @@ chapter = 26
 
 <p>Husband: &quot;Oh, just don’t stay up too late, okay? You need to rest your body properly, darling.&quot;</p>
 
-<p>&quot;Yes... darling, hehe, I will~&quot; she managed to say, her breath hitching from the sheer intensity.</p>
+<p>&quot;Yes... darling, hehe, I will&quot; she managed to say, her breath hitching from the sheer intensity.</p>
 
 <p>Suddenly, Owen could feel a distinct wetness on her nipples!</p>
 
@@ -101,11 +101,11 @@ chapter = 26
 
 <p>Of course, she was fully aware that her breasts were leaking milk.</p>
 
-<p>&quot;How could it be bad, Mom? It tastes absolutely divine~&quot; Owen suckled the fluid off his hand before sliding his fingers right back underneath her.</p>
+<p>&quot;How could it be bad, Mom? It tastes absolutely divine&quot; Owen suckled the fluid off his hand before sliding his fingers right back underneath her.</p>
 
 <p>&quot;N-no... I’m already an old, saggy woman, so it’s bad.&quot; Both of them whispered, while the man remained completely clueless about the entire ordeal happening right under his nose.</p>
 
-<p>&quot;Are you saying that again, Mom? I’ve already heard it countless times, and no matter how many times you repeat it, I won’t buy it~&quot; Owen was not foolish enough to agree with such a bold claim.</p>
+<p>&quot;Are you saying that again, Mom? I’ve already heard it countless times, and no matter how many times you repeat it, I won’t buy it&quot; Owen was not foolish enough to agree with such a bold claim.</p>
 
 <p>A voluptuous MILF with a perfect body saying she was old and saggy?!</p>
 

@@ -69,7 +69,7 @@ chapter = 77
 <p>Athena blushed in anger about this betting she never heard about.</p>
 <p>"You bastard! Who the hell began this betting?"</p>
 <p>All the nobles feel silent before directing their eyes on the Duke.</p>
-<p>"Ohohoh~! To think my loyal soldiers would betray me so easily."</p>
+<p>"Ohohoh! To think my loyal soldiers would betray me so easily."</p>
 <p>He slowly caressed his beard while dodging the murderous eyes of his granddaughter.</p>
 <p>Everyone else began to laugh while Athena began to berates the Duke.</p>
 <p>Looking at them like that, Sol had to admit that he felt envy.</p>

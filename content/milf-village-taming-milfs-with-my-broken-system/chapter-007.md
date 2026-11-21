@@ -37,7 +37,7 @@ chapter = 7
 
 <p>’Shit...how is that a motherly acts? I need to control myself or else my dream life would end.’ Owen controlled his urges, he must take it slowly...a slowburn.</p>
 
-<p>&quot;Hehe... now you are the one thinking bad things! You are a bad mom for lying to me~&quot; Never in his wildest dreams did he think Arielle would say that right in front of his face, acting a little playful like a spoiled brat...though he certainly wasn’t complaining.</p>
+<p>&quot;Hehe... now you are the one thinking bad things! You are a bad mom for lying to me&quot; Never in his wildest dreams did he think Arielle would say that right in front of his face, acting a little playful like a spoiled brat...though he certainly wasn’t complaining.</p>
 
 <p>Getting a mischievous smile and a teasing look while she wagged her finger at him was definitely the best.</p>
 
@@ -47,17 +47,17 @@ chapter = 7
 
 <p>Too bad, that wasn’t going to happen since he was her son... for now.</p>
 
-<p>&quot;Oh my... acting like you are already grown up, when you haven’t even finished your meal~&quot; Arielle pointed to the food on his plate, scolding him gently like a mother trying to feed her spoiled brat.</p>
+<p>&quot;Oh my... acting like you are already grown up, when you haven’t even finished your meal&quot; Arielle pointed to the food on his plate, scolding him gently like a mother trying to feed her spoiled brat.</p>
 
-<p>&quot;Hehe... it’s your fault, Mom. You hugged me so suddenly that I lost my focus on the heavenly dish you specifically cooked for me~&quot; Owen pinched her stomach with a bit more force to make her squeal but she managed to stopped it before it comes out to her mouth...well her body said otherwise...causing her to shift her body because of the hot coursing into her body...plus her relentless pinching.</p>
+<p>&quot;Hehe... it’s your fault, Mom. You hugged me so suddenly that I lost my focus on the heavenly dish you specifically cooked for me&quot; Owen pinched her stomach with a bit more force to make her squeal but she managed to stopped it before it comes out to her mouth...well her body said otherwise...causing her to shift her body because of the hot coursing into her body...plus her relentless pinching.</p>
 
 <p>Having her sensitive sides touched was definitely not something a MILF, especially one like her who’s pent up deep inside...could easily control.</p>
 
-<p>&quot;Oh my... are you saying that my cooking is the best, my dear~?&quot; Arielle wouldn’t let a compliment pass, especially when it was from her boy!</p>
+<p>&quot;Oh my... are you saying that my cooking is the best, my dear?&quot; Arielle wouldn’t let a compliment pass, especially when it was from her boy!</p>
 
 <p>She had been really starved for compliments for many years now, which was one of the core reasons for her deep loneliness.</p>
 
-<p>&quot;It’s the best, Mom... I could eat this forever. Who would even reject such heavenly cooking from a very special mom~&quot; Owen was completely rock hard now... but he still needed to control his urges since it was too soon to make a direct move.</p>
+<p>&quot;It’s the best, Mom... I could eat this forever. Who would even reject such heavenly cooking from a very special mom&quot; Owen was completely rock hard now... but he still needed to control his urges since it was too soon to make a direct move.</p>
 
 <p>He needed to completely melt his mother’s defenses before he could reap her fruit!</p>
 

@@ -20,7 +20,7 @@ chapter = 225
 <p>Kaiden turned toward Bastet next, only to freeze for a second.</p>
 <p>She was wearing a thin, high-slit Arubian-style dancer’s dress. Golden rings shimmered across her sensually wide hips, and her toned, tanned body was practically illuminating the whole room with all the glow it was giving off. The fabric was barely there in places, but somehow made the outfit more elegant than indecent.</p>
 <p>"You do realize we’re fighting vampires, right?" Kaiden asked dryly.</p>
-<p>Instead of responding, Bastet looked down at her bare belly, and a truly satisfied expression materialized on her felinid features. "I look good, don’t I? Master~"</p>
+<p>Instead of responding, Bastet looked down at her bare belly, and a truly satisfied expression materialized on her felinid features. "I look good, don’t I? Master"</p>
 <p>"You do, but-" he admitted, then frowned, spotting something new.</p>
 <p>A dull-silver bracelet on her wrist, etched with ancient scribblings.</p>
 <p>"What’s that?"</p>

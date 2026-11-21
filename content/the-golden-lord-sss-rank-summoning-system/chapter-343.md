@@ -38,7 +38,7 @@ chapter = 343
 <p>With the tips of his thumbs and index fingers, he caught her pink, puffy nipples, pinching and rolling them slowly.</p>
 <p>Ysara’s breath hitched, her back arching on instinct, pressing even more of that softness into his palms.</p>
 <p>"Ah... looks like I won," Ethan said with a chuckle, his chin resting on her shoulder.</p>
-<p>"Nghnn~~ h-hey... you cheated!" Ysara moaned, her voice as annoyed as it was amused.</p>
+<p>"Nghnn h-hey... you cheated!" Ysara moaned, her voice as annoyed as it was amused.</p>
 <p>"No... I used my knowledge to work around my limitations," Ethan teased, releasing her breasts for a moment and giving a gentle, almost weightless pat to the side of one enormous pale mound.</p>
 <p>The heavy globes rolled into each other, the left tit grazing the right, both wobbling obscenely for a long second before settling back into place.</p>
 <p>He turned his face toward Mireya and Evelyn, who were watching him as if he were already a lost cause.</p>
@@ -54,7 +54,7 @@ chapter = 343
 <p>She grabbed Ethan’s right hand, bringing it to her golden lips.</p>
 <p>Her tongue slipped out, hot and wet, gliding along his index finger in one slow lick.</p>
 <p>Then her lips closed around two fingers, cheeks hollowing as she sucked unhurriedly. When she finally pulled back, her mouth was still connected to them by thin, glistening threads of saliva.</p>
-<p>"Hm... There’s also honey here!... Ah... looks like I’m going to have to suck a lot to drain it all out of you, my ’hubby,’ fufufu~" Ysara teased, her voice melting with provocation.</p>
+<p>"Hm... There’s also honey here!... Ah... looks like I’m going to have to suck a lot to drain it all out of you, my ’hubby,’ fufufu" Ysara teased, her voice melting with provocation.</p>
 <p>"Come here, Mireya." She grabbed the huge bulge in Ethan’s pants, squeezing it slowly, gauging its size with her palm. "Come help mommy with your daddy’s monster cock!"</p>
 <p>"M-Mom!" Mireya let out a high-pitched squeal, her purple cheeks turning a fiery shade of pink.</p>
 <p>Her mother hadn’t been that naughty in the past. Was that what more than five hundred years without a man could do to a woman? Or had she just read too many obscene novels?</p>

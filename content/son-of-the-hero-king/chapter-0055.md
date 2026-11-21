@@ -5,7 +5,7 @@ weight = 55
 chapter = 55
 +++
 
-<p>"Heh~So this is the queen of humanity? Your mother is truly incredible."</p>
+<p>"HehSo this is the queen of humanity? Your mother is truly incredible."</p>
 <p>A brown-haired young woman wearing a tight white shirt as well as white pants commented with a chuckle. She was observing the heated stats of the colosseum after Lilith's speech, amusement and amazement clearly visible in her hazel colored eyes.</p>
 <p>Next to her, another person sat while hiding her features with a cloak, strands of purple hair could be seen if looked closely.</p>
 <p>"My mother was always incredible."</p>

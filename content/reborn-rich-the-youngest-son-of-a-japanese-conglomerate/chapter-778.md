@@ -6,8 +6,8 @@ chapter = 778
 +++
 
 <p>When the bus we were on returned to the Resort, snow was lightly falling from the sky. Uh, I clearly remember checking the weather forecast before the trip, and there was no mention of snow during this trip's period, was there?</p>
-<p>"Wow~! Ryuta-cchi, it's snow!"</p>
-<p>"Kyahaha! We can have a snowball fight while getting hit by snow~!"</p>
+<p>"Wow! Ryuta-cchi, it's snow!"</p>
+<p>"Kyahaha! We can have a snowball fight while getting hit by snow!"</p>
 <p>"Ryuta, Alik hates snow...!"</p>
 <p>Some of the Students who got off the bus were as excited as a dog seeing snow, and Alik, who had bad Memories of snow from childhood, whined to me as if disgusted.</p>
 <p>"Ah, it's snow...."</p>
@@ -26,14 +26,14 @@ chapter = 778
 <p>"It will stop soon. Don't worry."</p>
 <p>I comforted an anxious Minamoto Risa, who worried that the last trip before Graduation might be ruined by snow, and called the Students, deciding to go inside the Resort.</p>
 <p>"Stop playing in the snow and let's go inside, it's cold."</p>
-<p>"Ei~! Ryuta-cchi, aren't you too lacking in childlike innocence?"</p>
-<p>"That's right, Teacher~! How about a snowball fight?"</p>
+<p>"Ei! Ryuta-cchi, aren't you too lacking in childlike innocence?"</p>
+<p>"That's right, Teacher! How about a snowball fight?"</p>
 <p>At my Words to go inside, Seizawa Shii and Kujo Kina said they wanted to play a little longer before going in, but I shook my Head.</p>
 <p>"I'm going in, so you guys can play in front of the Resort and then come in."</p>
 <p>"Ei, what's the fun without Ryuta-cchi? I'll just go in."</p>
-<p>"That's right. I was going to hit Teacher-ssi a little, but it's a bit of a shame~!"</p>
+<p>"That's right. I was going to hit Teacher-ssi a little, but it's a bit of a shame!"</p>
 <p>When I told them to play without me and then come, those two troublemakers said they didn't want that. Still, after that, they followed without much complaint. I, who had come to the 3rd floor by elevator, looked around at the Students and opened my Mouth.</p>
-<p>"Everyone rest a bit and come out at 6:50~!"</p>
+<p>"Everyone rest a bit and come out at 6:50!"</p>
 <p>Since lunch Time, we had eaten so much, so we decided to have dinner a little later. Since it was 4:40 now, there was quite a lot of Leisure. Shall I go to the hot spring once more? Yesterday, because of the university students, I couldn't really enjoy it properly.... Now, I could enjoy it leisurely by myself.</p>
 <p>Having nothing particular to do, I, who decided to go to the hot spring, along with a yukata to change into and toiletries, headed to the hot spring.</p>
 <p>I didn't explain it in detail yesterday, but the hot spring at this VIP Resort was an open-air hot spring. Behind the Resort, a winter Forest with accumulated snow stretched out, so there was also the pleasure of enjoying the Scenery.</p>
@@ -95,9 +95,9 @@ chapter = 778
 <p>Takakusaki Athena, who had turned off the Sensual Showerhead, wiped the Dewy Moisture from her Hair with a towel and began drying her Hair with a hairdryer. Takakusaki Athena, who had blown away all the Dewy Moisture with warm air, changed her Clothes and to go to the barbecue area, opened the Door.</p>
 <p>"Let's pull myself together, Athena."</p>
 <p>No matter how kindly he treated her, he was still an Enemy. Takakusaki Athena repeated the Words "Let's pull myself together" and went Outside.</p>
-<p>Requested by Gojoy-nim~! Former Kasaoka Yuzuki, now Matsunaga Yuzuki. Because the old model's art style was so unstable, I intentionally changed the art style a bit~!</p>
-<p>Suit~!</p>
-<p>Underwear~!</p>
-<p>Belly Dancer~!</p>
-<p>Nude~!</p>
-<p>Kkiyoooot~!</p>
+<p>Requested by Gojoy-nim! Former Kasaoka Yuzuki, now Matsunaga Yuzuki. Because the old model's art style was so unstable, I intentionally changed the art style a bit!</p>
+<p>Suit!</p>
+<p>Underwear!</p>
+<p>Belly Dancer!</p>
+<p>Nude!</p>
+<p>Kkiyoooot!</p>

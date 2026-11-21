@@ -5,23 +5,23 @@ weight = 44
 chapter = 44
 +++
 
-<p>&quot;Then cover your mouth, Auntie. I will just gently massage your tense muscles right here. You know that you are only the second person to ever receive my special therapy, so you must be grateful~&quot; Owen whispered.</p>
+<p>&quot;Then cover your mouth, Auntie. I will just gently massage your tense muscles right here. You know that you are only the second person to ever receive my special therapy, so you must be grateful&quot; Owen whispered.</p>
 
 <p>&quot;R-really...but it’s not a m-massage...&quot;</p>
 
-<p>&quot;No Auntie, it’s the common message in the city~&quot;</p>
+<p>&quot;No Auntie, it’s the common message in the city&quot;</p>
 
 <p>&quot;Ahhn...you are making me..bad..&quot;</p>
 
-<p>&quot;You are already bad Auntie, A very treacherous wife and mother~&quot;</p>
+<p>&quot;You are already bad Auntie, A very treacherous wife and mother&quot;</p>
 
 <p>&quot;....&quot; She just stayed silent, as she’s barely holding her moans.</p>
 
-<p>&quot;But...you will become the very best blue-haired MILF Auntie~&quot;</p>
+<p>&quot;But...you will become the very best blue-haired MILF Auntie&quot;</p>
 
 <p>&quot;...M-Milf.. that’s a v-very lewd way of saying that.. Wen..&quot; the words struck into her brain... repeating again and again..</p>
 
-<p>&quot; It’s not lewd Auntie Pam~&quot;</p>
+<p>&quot; It’s not lewd Auntie Pam&quot;</p>
 
 <p>He refrained from biting her earlobe again, but who was to say he couldn’t trail his tongue along her neck instead?</p>
 
@@ -39,7 +39,7 @@ chapter = 44
 
 <p>Sounding much more distinct than her previous, barely audible sniffled moans.</p>
 
-<p>&quot;Pam~? Are you two doing okay over there?&quot; the man called out, just as the news broadcast was about to transition to its most highly anticipated segment.</p>
+<p>&quot;Pam? Are you two doing okay over there?&quot; the man called out, just as the news broadcast was about to transition to its most highly anticipated segment.</p>
 
 <p>&quot;Yes, Uncle... don’t worry about us at all. The hottest headline of the morning is about to be delivered on your screen right now,&quot; Owen called back smoothly, flashing a reassuring smile directly at the clueless pathetic fellow to ensure his attention remained glued to the television.</p>
 
@@ -65,7 +65,7 @@ chapter = 44
 
 <p>Her curves were fully accentuated as she leaned heavily against the counter for support, using both of her hands.</p>
 
-<p>&quot;I’m getting close to my release, Auntie~&quot; Owen whispered, pressing a firm bite against her neck, carefully choosing a spot concealed beneath her long hair to avoid any future suspicion...</p>
+<p>&quot;I’m getting close to my release, Auntie&quot; Owen whispered, pressing a firm bite against her neck, carefully choosing a spot concealed beneath her long hair to avoid any future suspicion...</p>
 
 <p>A deep hickey from her nephew should be hidden from view..</p>
 
@@ -95,11 +95,11 @@ chapter = 44
 
 <p>Her husband’s thing was not only incredibly small, but it also lacked any vitality, looking thoroughly underwhelming and carrying a faint, unappealing musk compared to the pristine, powerful scent radiating right behind her.</p>
 
-<p>&quot;Is this your first time seeing a real weapon like this Auntie~?&quot; Owen whispered smoothly, noting Pamela’s dazed, wide-eyed expression.</p>
+<p>&quot;Is this your first time seeing a real weapon like this Auntie?&quot; Owen whispered smoothly, noting Pamela’s dazed, wide-eyed expression.</p>
 
 <p>&quot;....&quot; She remained completely speechless, far too flustered and ashamed to give voice to her thoughts, especially while knowing her husband was sitting just a few feet away with such an inadequate twig.</p>
 
-<p>&quot;Don’t be shy, Auntie~ You can tell me exactly what you’re thinking, since this is officially our dirty little kitchen secret~&quot; Owen murmured, rubbing his bare cock directly against the soft fabric of her undergarments, teasing the silver lining of her plump curves.</p>
+<p>&quot;Don’t be shy, Auntie You can tell me exactly what you’re thinking, since this is officially our dirty little kitchen secret&quot; Owen murmured, rubbing his bare cock directly against the soft fabric of her undergarments, teasing the silver lining of her plump curves.</p>
 
 <p>&quot;B-but... it’s wrong...&quot; she whimpered softly.</p>
 

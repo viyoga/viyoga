@@ -50,7 +50,7 @@ chapter = 393
 <p>Han Yu-gyeong had the same thought as me this time. For reference, if you choose a random item, a cube made of light appears in front of you, and it shines according to the item's grade, and when the light disappears, the item appears as if it had been there from the beginning. Han Yu-gyeong's choice was Summoning - Master of Taming. When I chose the second one, Summoning - Master of Taming was added to Han Yu-gyeong's status window.</p>
 <p>◆Summoning - Master of Taming "Epic Trait": Increases the probability of taming summoned summons. The tamed summons follow the owner better, all stats of the summons increase by 2, and the efficiency of all stats increases.</p>
 <p>It was a fraudulent trait that increased the probability of taming summoned summons and even increased all stats of the summons by 2, but it was an underrated trait among players because it didn't strengthen the user.</p>
-<p>"Nero, White Bear! Move quickly~!"</p>
+<p>"Nero, White Bear! Move quickly!"</p>
 <p>Han Yu-gyeong summoned Nero and White Bear and made them move. It seemed like both summons were flustered because all their stats suddenly increased by 2. They seemed to be light on their feet but couldn't handle their strengthened abilities.</p>
 <p>"It looks like they haven't adapted to their strengthened abilities yet."</p>
 <p>"Then let's let them adapt and choose the next trait."</p>

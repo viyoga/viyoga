@@ -105,12 +105,12 @@ chapter = 32
 
 <p>’I’m dead…’ He repeated in his mind as he realized where his body was falling. He tried to activate the lightning steps, but it was too late.</p>
 
-<p>“Mmhh~!” A soft moan entered his ears like a heavenly symphony, certainly not from the disgusting voice he had heard when that woman had first spoken.</p>
+<p>“Mmhh!” A soft moan entered his ears like a heavenly symphony, certainly not from the disgusting voice he had heard when that woman had first spoken.</p>
 
 <p>He felt his face surrounded by an incomparable softness as he sank fully into her colossal breasts.</p>
 
 <p>His hands instinctively reached forward, falling on the part of her breasts that his face didn’t cover. The pale, perfect skin spread between his fingers as they sank into that creamy softness.</p>
 
-<p>Nghn~…” another muffled moan escaped Tang Biyue’s lips, the sound resounding off the bathroom walls.</p>
+<p>Nghn…” another muffled moan escaped Tang Biyue’s lips, the sound resounding off the bathroom walls.</p>
 
 <p>’I’m so fucking dead!’ Qingyi’s face finally showed a hint of despair.</p>

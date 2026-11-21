@@ -24,9 +24,9 @@ chapter = 176
 <p>It wasn’t a Mage-Knight Duel without Magic, after all.</p>
 <p>Caius raised his practice sword just in time for defense and just barely managed to keep the pillar from making painful contact with his body. The force backing it still pushed him back though.</p>
 <p>A thick layer of frost now coated his arms and was driving deep into his body, causing sluggishness of a level that he was finding difficult to simply shake off by shaking his head.</p>
-<p>He took one hand off the practice sword and slammed it against the side of the pillar, letting a spell circle blaze to life as he cast ~Fireball~ directly against it.</p>
+<p>He took one hand off the practice sword and slammed it against the side of the pillar, letting a spell circle blaze to life as he cast Fireball directly against it.</p>
 <p>Alas, while the flames of the spell took a chunk out of the pillar, what was left did not lose even a bit of its force. It also didn’t stop pushing Caius back. The chill that backed the spell was beyond what Baler should ordinarily have been capable of. And it was stronger than the Third Circle spell Caius tried to use to contend with it.</p>
-<p>Caius blasted more ~Fireball~ spells. At least, he managed to blast one more before Baler’s leg went swinging at the side of his head.</p>
+<p>Caius blasted more Fireball spells. At least, he managed to blast one more before Baler’s leg went swinging at the side of his head.</p>
 <p>*Bam!*</p>
 <p>The kick connected and Caius went flying, rolling a few times on the ground but quickly back to his feet. There was a large bruise on the side of his face from that one kick and the corner of his lips was cut, and bleeding.</p>
 <p>Only now did he notice that Baler’s leg was coated in ice to increase the effect of his kick.</p>
@@ -42,7 +42,7 @@ chapter = 176
 <p>It would be so terrible, after all, for a student to die under his watch.</p>
 <p>But Caius had a spell prepared.</p>
 <p>One of the easiest he had in his arsenal and the first spell he learned since his arrival in this world;</p>
-<p>~Blindness~</p>
+<p>Blindness</p>
 <p>The purple veil went flying at Baler in the air. He was far too preoccupied with casting as many attacking spells as he possibly could, to avoid the veil or defend himself from it.</p>
 <p>The spell struck him and he lost his sight.</p>
 <p>’Doesn’t matter,’ he decided, and with a battle cry, he let his spells fall in a barrage.</p>
@@ -53,10 +53,10 @@ chapter = 176
 <p>Delia’s eyes were wide in reluctant awe.</p>
 <p>Aurelius’s brows were furrowed as he leaned forward.</p>
 <p>Caius didn’t notice or know about their reactions because he had a plan and was forming the required seals to actualize that plan.</p>
-<p>First, he had used ~Blindness~ to rob Baler of his sight, then he used ~Hellsong Stomp~ for a directionless escape that was good as long as it got him out of the range of the barrage coming down. And that was a daunting task because, the spell circles covered more than half and a quarter of the stage.</p>
+<p>First, he had used Blindness to rob Baler of his sight, then he used Hellsong Stomp for a directionless escape that was good as long as it got him out of the range of the barrage coming down. And that was a daunting task because, the spell circles covered more than half and a quarter of the stage.</p>
 <p>Fortunately, he knew the unstable movement spell of his was well up to the task.</p>
-<p>Anyway, the ~Blindness~ spell was not to stop Baler from seeing him escape the barrage...</p>
-<p>~Dark Missiles~</p>
+<p>Anyway, the Blindness spell was not to stop Baler from seeing him escape the barrage...</p>
+<p>Dark Missiles</p>
 <p>... it was to ensure his next attack was successful.</p>
 <p>The spell circle appeared, carrying an Otherworldly feel as it conjured darts of Dark Magic that went flying at Baler in the air.</p>
 <p>Without his sight, Baler didn’t see the darts and couldn’t attempt a defense on time. He was so hung up on the power he was feeling at the moment and only trained his ears to hear Caius’ cries of pain, that his senses didn’t detect the Darts.</p>

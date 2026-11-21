@@ -25,7 +25,7 @@ chapter = 498
 
 <p>In his arms, he felt something trembling. His hands sank into something squishy, big, warm, and elastic.</p>
 
-<p>“Nghnn~~” He heard a moan, mature and calm, a voice unlike the moans of any of his wives.</p>
+<p>“Nghnn” He heard a moan, mature and calm, a voice unlike the moans of any of his wives.</p>
 
 <p>Qingyi immediately looked down, his eyes meeting those of a woman.</p>
 
@@ -35,7 +35,7 @@ chapter = 498
 
 <p>It took Qingyi only a second to realize who this woman was. His hand rose before falling on that fat, obsidian ass with a slap.</p>
 
-<p>“Aghnn~~” The woman shuddered, her entire body stiffening as a slightly annoyed expression appeared on her beautiful, mature face. She seemed to think for a brief moment before smiling. Her full lips parted, sinking her teeth into Qingyi’s chest and eliciting a sharp groan from him.</p>
+<p>“Aghnn” The woman shuddered, her entire body stiffening as a slightly annoyed expression appeared on her beautiful, mature face. She seemed to think for a brief moment before smiling. Her full lips parted, sinking her teeth into Qingyi’s chest and eliciting a sharp groan from him.</p>
 
 <p>“Argh… crazy woman! You get a human form and already want to devour me?” Qingyi whined, though he was clearly feeling more amusement than pain.</p>
 
@@ -111,7 +111,7 @@ chapter = 498
 
 <p>The base of his cock was aligned with her virgin, tight pussy and his member was pressed against her slim belly, while the tip even passed her belly button.</p>
 
-<p>“That’s nghnn~~ isn’t it too big?” Khaedryss asked, a muffled moan escaping her lips.</p>
+<p>“That’s nghnn isn’t it too big?” Khaedryss asked, a muffled moan escaping her lips.</p>
 
 <p>This was the first time she had seen male genitalia. Whether it was from her own race or from a human.</p>
 

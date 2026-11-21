@@ -13,11 +13,11 @@ chapter = 1994
 <p>A god.</p>
 <p>The woman had said he’d killed a god while he stood there sorting through a sack of fucking loot.</p>
 <p>"He’s met the Goddess too," Seraphiel added, smiling at Marielle. "He even wounded her."</p>
-<p>"He ruined the bitch’s purity~" Vex purred, her pentagram eyes bright with pride.</p>
+<p>"He ruined the bitch’s purity" Vex purred, her pentagram eyes bright with pride.</p>
 <p>"The... Goddess...?"</p>
 <p>Andre’s voice cracked on the word. Marielle felt his arm tighten around her, holding her so hard that the broken stumps of her teeth scraped together.</p>
 <p>She wanted him to tell them to stop. To call them liars. The Goddess watched over Thalorind, heard their prayers, stood above everything they had ever feared. These women were discussing hurting her with the same fond amusement they’d shown while their husband boiled the nest alive.</p>
-<p>"Oh, you girls are making him sound so small~" Lucille purred. "Baby is so much more than that."</p>
+<p>"Oh, you girls are making him sound so small" Lucille purred. "Baby is so much more than that."</p>
 <p>The caramel-haired woman came closer, her bloodied weapons resting at her sides. Marielle shrank against Andre as Lucille bent to meet her eyes.</p>
 <p>Utter sadism shone in that beautiful green gaze. She was enjoying this, taking her time with the woman who had demanded they sacrifice Aurora and then threatened to burn through Sera’s chest.</p>
 <p>Marielle could hear herself breathing through her damaged mouth. Lucille let her struggle for air, smiling until the terrified mage could look at nothing else.</p>

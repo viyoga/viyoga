@@ -10,8 +10,8 @@ chapter = 777
 <p>The special class Kids all ate several slice cakes each, and when I stood at the Counter to pay, the Clerk smiled sweetly and told me the Price.</p>
 <p>Even if there were 13 people, I wondered if it made sense for eating slice cakes to come out to 520,000 Korean won, but perhaps because it was a Tourist Spot, one slice cake was at least 800 yen, up to over a thousand yen, so it was a bit expensive, and the special class Students also ate three or four slices per person, so that Price was indeed correct.</p>
 <p>I also ate five slices and packed several slice cakes to give as a Gift to Liz, so I had nothing to say about the Price.</p>
-<p>"Kyahaha, they're good here~!! I should come again next time!"</p>
-<p>"Ryuta-cchi, it was delicious~!"</p>
+<p>"Kyahaha, they're good here!! I should come again next time!"</p>
+<p>"Ryuta-cchi, it was delicious!"</p>
 <p>"Ryuta, come with me next time...!"</p>
 <p>Everyone seemed satisfied and in a good Mood. Having eaten various precious Desserts, with refined Taste, seeing the special class Students satisfied, it was indeed worthy of being recognized as a famous restaurant. Right, if the Students were satisfied, even if it cost a lot of Money, I couldn't say anything. I happily paid and approached Alik.</p>
 <p>"Next is.... the Ranch, right?"</p>
@@ -24,7 +24,7 @@ chapter = 777
 <p>Ah, I see. They had cleaned the barn in advance and the ventilation was good, so there didn't seem to be much Smell. We bought snacks to give to the cows, Sheep, and horses and decided to Experience feeding them.</p>
 <p>"Ryuta, that calf is cute...!"</p>
 <p>Alik said while feeding cabbage to a calf with beige Hair, similar to herself. As Alik said, it was indeed cute. Its Hair Color was also unique, and like a calf, its large, gentle pupils were also cute.</p>
-<p>When I gently stroked its Neck, it mooed happily, 'Eummeo~!' Bastard, it's cute....</p>
+<p>When I gently stroked its Neck, it mooed happily, 'Eummeo!' Bastard, it's cute....</p>
 <p>Like that, while stroking the calves, foals, and lambs and giving them snacks, the barn Door opened. Wondering if it was a new Customer, I glanced and saw the Person who entered was Takakusaki Athena.</p>
 <p>"Clearly, she seems to have seen a Shiga Kogen Tourist Spot website similar to ours."</p>
 <p>"I knew it, right?"</p>
@@ -37,10 +37,10 @@ chapter = 777
 <p>At our Words, saying it was Fortunate, she turned her Body primly and approached a nearby calf-that was Takakusaki Athena. Minamoto Risa, who was watching from the Side, laughed as if dumbfounded, then looked at me and opened her Mouth.</p>
 <p>"Is she really strong?"</p>
 <p>"If she's strong despite that Appearance, she's even scarier. Without realizing it, I'd let my guard down, wouldn't I?"</p>
-<p>"Hey, I can hear everything~!"</p>
+<p>"Hey, I can hear everything!"</p>
 <p>With her Appearance until now, she didn't look strong at all, as we talked while looking at Takakusaki Athena, but because Takakusaki Athena wasn't far from us, she seemed to have heard everything we said.</p>
 <p>"Sorry. I won't talk about it, so feel free to stroke the calf."</p>
-<p>"Sorry~!"</p>
+<p>"Sorry!"</p>
 <p>Minamoto Risa and I apologized to Takakusaki Athena and then did the next course, the sheep shearing Experience.</p>
 <p>Because it was Winter, we couldn't shear a lot of Sheep's Hair, but we watched one being shorn, and the Ranch employees skillfully sheared the sheep's Hair.</p>
 <p>"Sheep, what if it gets cold?"</p>
@@ -72,7 +72,7 @@ chapter = 777
 <p>At my question, Takakusaki Athena took out a 2-night accommodation ticket for Shiga Kogen VIP Ski Villa Resort from her Wallet and showed me. Even such accommodation tickets come out of Garapon, huh.</p>
 <p>For reference, Garapon is a spinning lottery machine that often appears in anime, and even now in the 2050s, it could still be seen occasionally.</p>
 <p>By the way, isn't it too coincidental? At first, it didn't seem like it, but since even the Accommodation was the same, I couldn't help but be suspicious.</p>
-<p>"Here, even on that Store's SNS, there's a verification Photo, you know~! It's a coincidence, so don't doubt me."</p>
+<p>"Here, even on that Store's SNS, there's a verification Photo, you know! It's a coincidence, so don't doubt me."</p>
 <p>At my suspicious Gaze, Takakusaki Athena, as if stifled, showed me some Store's SNS on her phone and said.</p>
 <p>Looking at the content, it seemed like a Store selling grape-related items, and with the title '2nd Place Winning!', the Shop Owner was photographed giving Takakusaki Athena an accommodation ticket.</p>
 <p>Indeed.... If it were Anyaji, they wouldn't go to such lengths with tricks. They would just attack us at night without infiltrating Takakusaki Athena. By the way, if 2nd Place was an accommodation ticket for the luxury Resort we're staying at, I'm curious about 1st Place?</p>
@@ -89,13 +89,13 @@ chapter = 777
 <p>If I offer her meat, she won't feel more hostility towards us, right? A barbecue of this extent will be quite helpful for greasing the wheels before persuasion.</p>
 <p>"Meat? What kind of meat?"</p>
 <p>"There's Samgyeopsal and Wagyu too...."</p>
-<p>"Good~! Meat is the best!"</p>
+<p>"Good! Meat is the best!"</p>
 <p>...Isn't that too easy? Excitedly jumping around, the Bus carrying Athena soon arrived at the VIP Resort.</p>
-<p>Requested by Hwanbuljeoldae-bulga-nim! Home Economics Teacher-nim's Underwear + Stockings and Belly Dancer~!</p>
-<p>Underwear + Stockings~!</p>
-<p>Belly Dancer~</p>
-<p>Requested by Gojoy-nim! Vivian Taylor's Suit, Underwear, Belly Dancer~!</p>
-<p>Suit~!</p>
-<p>Underwear~!</p>
-<p>Belly Dancer~!</p>
+<p>Requested by Hwanbuljeoldae-bulga-nim! Home Economics Teacher-nim's Underwear + Stockings and Belly Dancer!</p>
+<p>Underwear + Stockings!</p>
+<p>Belly Dancer</p>
+<p>Requested by Gojoy-nim! Vivian Taylor's Suit, Underwear, Belly Dancer!</p>
+<p>Suit!</p>
+<p>Underwear!</p>
+<p>Belly Dancer!</p>
 <p>Uniquely, for her Bangs, Vivian Taylor didn't have any prompts written, but naturally parted them, revealing her forehead, hehehe.</p>

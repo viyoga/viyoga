@@ -74,7 +74,7 @@ chapter = 490
 <p>"Still, isn't it because you're attractive that those people lied and wanted to get close to you, Minamoto? Don't think too badly of them."</p>
 <p>"They don't want to get close to me, they're after my body."</p>
 <p>Minamoto Risa said sarcastically at my words. Well, Minamoto Risa was attractive. She had a pretty face and a great body, so it would be strange if a man didn't have lewd thoughts.</p>
-<p>"Here's your assorted cutlet set~! Enjoy your meal."</p>
+<p>"Here's your assorted cutlet set! Enjoy your meal."</p>
 <p>I also had lewd thoughts about Minamoto Risa, so it wouldn't be beneficial for me to continue this conversation, and fortunately, the food we ordered came out.</p>
 <p>"Hmm...! This is really good?"</p>
 <p>"Right? I'm glad you like it."</p>

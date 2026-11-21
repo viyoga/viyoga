@@ -39,7 +39,7 @@ chapter = 780
 
 <p>Another loud, wet slap echoed off the walls, Yunxi’s eyes rolling back into her head and her tongue slipping from her parted lips, a thin trickle of saliva beginning to drip from the corner of her mouth.</p>
 
-<p>"Nghnn~~ f-fuck! S-so big!" she gasped, clutching her own breasts tightly, her delicate white fingers sinking into that soft flesh as if kneading dough, leaving reddish marks across her milky skin.</p>
+<p>"Nghnn f-fuck! S-so big!" she gasped, clutching her own breasts tightly, her delicate white fingers sinking into that soft flesh as if kneading dough, leaving reddish marks across her milky skin.</p>
 
 <p>Her hair, as white as her skin, long and voluminous like a lion’s mane, had already come completely undone, spreading across the mattress and her delicate shoulders, forming a silky cloak around her trembling body.</p>
 
@@ -53,7 +53,7 @@ chapter = 780
 
 <p>Yunxi’s butt, which had previously been obscenely flattened against his hips with every thrust, was now overcome by nothing but rapid, continuous tremors, her plump flesh quivering nonstop with each frenzied collision of their bodies.</p>
 
-<p>"Nghnn~~ n-no... husband... w-well... not so directly, nghnn~~ ah... hehehe~" Bai Yunxi replied, her voice trailing off into a sweet, dazed giggle.</p>
+<p>"Nghnn n-no... husband... w-well... not so directly, nghnn ah... hehehe" Bai Yunxi replied, her voice trailing off into a sweet, dazed giggle.</p>
 
 <p>Her eyes were clouded with pleasure, and her face wore a mischievous yet adorable expression; her lips parted slightly to reveal her front teeth, giving her an innocent look, as if she were a little rodent.</p>
 

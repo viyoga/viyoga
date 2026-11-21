@@ -49,7 +49,7 @@ chapter = 114
 
 <p>“Do you want to sort this out now or stay like this for a bit longer?” he asked, his fingers circling the nipples of both of them slowly.</p>
 
-<p>“Mmmh~~ I want to stay… but we can’t do that, can we? The girls are waiting for us,” Yunfei replied, but made no move to leave.</p>
+<p>“Mmmh I want to stay… but we can’t do that, can we? The girls are waiting for us,” Yunfei replied, but made no move to leave.</p>
 
 <p>“And this place is going to start collapsing soon. As soon as the crystals turn golden again, we have to get out of here,” Ruxue spoke, her boobs jiggling heavily as she stood up.</p>
 

@@ -13,11 +13,11 @@ chapter = 294
 
 <p>“I beg your pardon for being disrespectful, young Miss Meilin…” Qingyi gave a teasing smile, grabbing her hips.</p>
 
-<p>“W-what are you- nghnn~~ Ah!” A high-pitched squeal escaped Meilin’s lips, her whole body trembling as Qingyi moved her.</p>
+<p>“W-what are you- nghnn Ah!” A high-pitched squeal escaped Meilin’s lips, her whole body trembling as Qingyi moved her.</p>
 
 <p>The next thing she knew, she was sitting on him, her plump, soft buttocks resting on his broad chest as his tongue sank into her pussy.</p>
 
-<p>“Q-qingyi- S-stop Aghnn~~” She moaned, arching her back, her small, rosy tongue leaving her cherry lips.</p>
+<p>“Q-qingyi- S-stop Aghnn” She moaned, arching her back, her small, rosy tongue leaving her cherry lips.</p>
 
 <p>Her long, delicate fingers rested on Qingyi’s head between her legs, gripping his hair as he explored the soft, fat valley of her pussy with his tongue, reaching its pink interior.</p>
 
@@ -33,7 +33,7 @@ chapter = 294
 
 <p>“Hey, don’t say bad things about your future husband!” Qingyi smiled, pressing a little harder, the bulge in his pants pulsing against Meilin’s pussy.</p>
 
-<p>“Mghnn~~ Future husband? What do you mean- Uh?” The young woman’s eyes widened, her words silenced by Qingyi’s lips.</p>
+<p>“Mghnn Future husband? What do you mean- Uh?” The young woman’s eyes widened, her words silenced by Qingyi’s lips.</p>
 
 <p>At first, she struggled to reject, forcing her tongue against his, but that didn’t last long. Her lips opened instinctively, her legs wrapping around his hips and pulling him against her.</p>
 
@@ -45,7 +45,7 @@ chapter = 294
 
 <p>“There was one thing your friend was right about, young miss Meilin…” Qingyi spoke, spinning her around and putting her on all fours, his cock sliding out of his pants.</p>
 
-<p>“Agh!~~” Meilin let out a tiny squeal as she felt that fat, thick rod of flesh hit her buttocks with a wet pop, sliding between the orbs of pale, soft flesh.</p>
+<p>“Agh!” Meilin let out a tiny squeal as she felt that fat, thick rod of flesh hit her buttocks with a wet pop, sliding between the orbs of pale, soft flesh.</p>
 
 <p>She covered her face with her hands, her head pressed against the floor lined with soft palm leaves as her ass rose up, the position making them form a perfect heart shape, looking even bigger than before.</p>
 
@@ -59,17 +59,17 @@ chapter = 294
 
 <p>The reddish tip slowly sank into the fat lips, reaching her pink interior, teasing her with small movements.</p>
 
-<p>“P-please… I nghn~~ I can’t take it anymore… just do it! Oghnn~~ Put it all in!” Meilin begged, feeling her pussy burn with desire.</p>
+<p>“P-please… I nghn I can’t take it anymore… just do it! Oghnn Put it all in!” Meilin begged, feeling her pussy burn with desire.</p>
 
 <p>“As the young miss wishes…” Qingyi smiled, pressing her hips down hard.</p>
 
-<p>“Arghnn~~ So… big~~” A loud moan escaped Meilin’s lips as her virginity was broken, Qingyi’s cock reaching the depths of her womb.</p>
+<p>“Arghnn So… big” A loud moan escaped Meilin’s lips as her virginity was broken, Qingyi’s cock reaching the depths of her womb.</p>
 
 <p>Her ass shook with the impact, jumping forward with a loud slap before bouncing back against his hips.</p>
 
 <p>Their jiggle calmed down for a moment, only to flare up again as he retracted his hips, thrusting forward hard again.</p>
 
-<p>“Oghn~~ damn~~ M-more gentle~~ Q-qingyi… Gen…tler- Aghn!” Meilin moaned uncontrollably as Qingyi lost himself in the voluptuousness of her buttocks, each thrust making them engulf his hips, obscene vibrations spreading through the voluptuous flesh, accompanied by dry claps.</p>
+<p>“Oghn damn M-more gentle Q-qingyi… Gen…tler- Aghn!” Meilin moaned uncontrollably as Qingyi lost himself in the voluptuousness of her buttocks, each thrust making them engulf his hips, obscene vibrations spreading through the voluptuous flesh, accompanied by dry claps.</p>
 
 <p>“Of all my women…” Qingyi leaned towards Meilin, resting his fists on the floor as he increased the speed, decreasing the amplitude.</p>
 
@@ -77,7 +77,7 @@ chapter = 294
 
 <p>He stood on one fist, his other hand trailing down to Meilin’s slim belly, feeling his cock move under the soft, pale skin, forming an obscene bulge.</p>
 
-<p>“You’re not nghnn~~ my husband…” Meilin gasped, her hands moving down her body, reaching her pussy and massaging her clit as Qingyi fucked her even harder.</p>
+<p>“You’re not nghnn my husband…” Meilin gasped, her hands moving down her body, reaching her pussy and massaging her clit as Qingyi fucked her even harder.</p>
 
 <p>“Oh… I am not?” The handsome young man laughed. “What other man but your husband would spill his seed in your womb?”</p>
 

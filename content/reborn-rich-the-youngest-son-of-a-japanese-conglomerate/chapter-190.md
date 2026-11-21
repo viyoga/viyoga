@@ -12,7 +12,7 @@ chapter = 190
 <p>,D, Don't look!</p>
 <p>,I wasn't looking...?</p>
 <p>,A, Are you not looking because my chest is small?!</p>
-<p>,I'm not looking whether it's small or big~!</p>
+<p>,I'm not looking whether it's small or big!</p>
 <p>Actually, if they were big, my eyes would go there without me realizing it.... Kiyona Hori saw Kiyona Mari and I bickering slightly and opened her mouth with a slight smile.</p>
 <p>,Mari, you mustn't become a woman with a small heart just because your chest is small. If you have a kind heart like your older sister, your chest will grow bigger.,</p>
 <p>,What on earth are you talking about? What does having a good heart have to do with chest size!!</p>

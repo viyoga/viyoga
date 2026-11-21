@@ -89,7 +89,7 @@ chapter = 60
 <p class="scene-break">· · ·</p>
 <p>"Beautiful fight."</p>
 <p>Milia murmured in happiness. She knew that Sol was receiving an intense training in Edea's dimension. But, seeing the result completely left her shivering in happiness.</p>
-<p>"A fight? Heh~! I wouldn't really call it a fight. It was more like a display of power and some of their abilities. From the start, the two of them were holding back and didn't want to show too much of their hands."</p>
+<p>"A fight? Heh! I wouldn't really call it a fight. It was more like a display of power and some of their abilities. From the start, the two of them were holding back and didn't want to show too much of their hands."</p>
 <p>"Indeed."</p>
 <p>Milia acquiesced. Setsuna didn't use her Berserker mode. A power that all beast-kin could use. In Sol's case, she also knew about his magic and knew that he could have ended the fight way more easily if he had been willing. What's more, he hadn't activated his core.</p>
-<p>In short, "At the end, this was nothing more than a mating ritual. Fufufu~!"</p>
+<p>In short, "At the end, this was nothing more than a mating ritual. Fufufu!"</p>

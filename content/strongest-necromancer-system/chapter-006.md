@@ -16,7 +16,7 @@ chapter = 6
 <p>Jason began to creep his way through the forest desperately! If he could find a place to hide, like a cave or even a thick bush where he wouldn't be seen, then he could lay in waiting until the Superhumans got there! He just had to survive somehow!</p>
 <p>Jason was as silent as possible as he moved through the forest. The sound of the wolves feeding behind him assured him that he wasn't being followed, and as the sound grew further away, he became more and more confident in his steps as he realized that he was far enough to move faster!</p>
 <p>Jason looked around to find a place to hide and he saw a large shrub at the other side of the forest that was the perfect size for him to crawl into! Jason moved towards it and he parted the shrub.</p>
-<p>Growl~!</p>
+<p>Growl!</p>
 <p>And Jason came face to face with a giant white wolf baring its fangs at him!</p>
 <p>At that moment, the first thought that crossed through Jason's mind, unsurprisingly, was the fact that he was fucked.</p>
 <p>Jason was a calm person, and he always handled situations with as much logic as possible, but there was something about coming face to face with a beast of this size that completely eradicated all forms of logic from the mind of a man! It did strange and incomprehensible things to a man and made him act in ways that couldn't be explained with science no matter how much you tried!</p>

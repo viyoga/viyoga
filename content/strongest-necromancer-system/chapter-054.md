@@ -39,9 +39,9 @@ chapter = 54
 <p>——</p>
 <p>There were fifty workers in the tunnel entrance, and after only two minutes, Jason’s subordinates had killed close to thirty of them in their initial attack, and they were already chasing down the remaining ants that were running away in fear!</p>
 <p>The ants were screeching loudly as they called for help from the soldiers, but the soldiers were all the way on the other side of the forest chasing down the wolves, so there was no one here to help them!</p>
-<p>Buzz~!</p>
-<p>Buzz~!</p>
-<p>Buzz~!</p>
+<p>Buzz!</p>
+<p>Buzz!</p>
+<p>Buzz!</p>
 <p>Jason suddenly heard the unmistakable sound of an Adamantine Ant scout from somewhere below him, and he narrowed his eyes as he saw the scout looking over what was happening.</p>
 <p>The scout’s head swiveled as it surveyed the battle and it was in the middle of debating whether it should go and help the ants below or report the situation back to the other tunnel. Jason could pinpoint the exact moment when the scout chose to report instead!</p>
 <p>Jason immediately sent a message to the ant he was riding, and the ant folded its wings and dived down towards the unsuspecting scout!</p>

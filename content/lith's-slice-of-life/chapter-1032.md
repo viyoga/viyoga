@@ -43,7 +43,7 @@ She looked at the sleeping Lith who was now rubbing her pussy and sucking on her
 
 Mayzin swiped the area in front of her mouth with her index finger. A small tear in space opened up and circled her head, then vanished.
 
-"Ahhhnnn~"
+"Ahhhnnn"
 
 Mayzin stopped forcing herself from moaning and poured it out fully.
 
@@ -83,7 +83,7 @@ After thinking so much, Mayzin's mind slowly turned blank as the orgasm built up
 
 It was here. It was coming. Mayzin's feet curled as she reached the peak of cloud nine.
 
-"Aaaahhh~!"
+"Aaaahhh!"
 
 Mayzin embraced Lith and shook intensely. Her loud moans were proof of her achieving her first orgasm due to a man.
 

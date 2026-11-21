@@ -34,7 +34,7 @@ chapter = 516
 <p>After all, sex was one of the greatest things that could bring life.</p>
 <p>Sol went down on her.</p>
 <p>He shoved his face in like he was trying to stick his lips into her slit, gathered the dripping love juices on his tongue, and produced an obscenely wet sound.</p>
-<p>“Ah~! You…”</p>
+<p>“Ah! You…”</p>
 <p>Persephone let out a delighted sound when she felt his tongue lick her secret place.</p>
 <p>She raised her voice and spoke sweetly while pushing her hips out to get him to lick her some more. His nose rubbed against her sensitive flesh and his heavy breathing blew on it while he shoved his tongue into the lewd hole, stirred it up like his tongue was a spoon, and sucked up the thick female juices.</p>
 <p>Thanks to his rather large experience when it came to this, it didn’t take long for Sol to already bring her close to climaxing.</p>

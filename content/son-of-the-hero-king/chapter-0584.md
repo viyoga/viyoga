@@ -42,7 +42,7 @@ chapter = 584
 <p>Finally, open protests became common as people shouted for Lupus to take off the crown and accept Setsuna back as the official Crown Princess.</p>
 <p>All of those events took only one week.</p>
 <p>In just one week. The capital of Wratharis did not even see the fire of war but it seemed more akin to a powder keg ready to explode than anything else.</p>
-<p>Clang~!!!</p>
+<p>Clang!!!</p>
 <p>“Bastard!! Incompetent fool!! Rebellious Bastard! All the lot of you! They should all be hanged!”</p>
 <p>The rage of Lupus spread through the imperial castle, causing all the servants to cower in fear as they could be killed at the slightest mistake.</p>
 <p>This was always how Lupus behaved. Respect earned through Fear and power.</p>

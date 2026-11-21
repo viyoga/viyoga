@@ -30,7 +30,7 @@ chapter = 1943
 <p>"Told you," Sera sighed, wriggling deeper. "This is the best beach ever! We need to organize a swimsuit party when we have the time."</p>
 <p>"Swimsuit party?" Aurora hummed, sinking in with her friends. "Ah, yes, I remember. One of Quin’s pervy fantasies. Have us dress in skimpy clothes and let him put suncream on us..."</p>
 <p>"Exactly!" Sera beamed, having remembered her lover’s fetishes with crystal clarity.</p>
-<p>"No objections from me~" Serika was instantly game. Sandy, hot beaches sounded right up her alley. Having Quinlan get oily with her was just the cherry on top.</p>
+<p>"No objections from me" Serika was instantly game. Sandy, hot beaches sounded right up her alley. Having Quinlan get oily with her was just the cherry on top.</p>
 <p>As the girls enjoyed the beach, Ayame was staring at the water ahead.</p>
 <p>"You know the barrier’s rule," she said. "You walk into the sea, you black out, and you wake up on the sand a few paces back with a headache and wet boots."</p>
 <p>"I’ve been told that nearly every child in the coastal settlements tries it at least once," Alexios said. "It’s a fun game for them."</p>
@@ -53,7 +53,7 @@ chapter = 1943
 <p>"I’ll leave on an adventure within hours, so Your Majesty may banish me freely."</p>
 <p>"N-not fair!!"</p>
 <p>"This guy..." Ayame sighed, shaking her head. Despite her best efforts, she was grinning from ear to ear.</p>
-<p>"Hubby will remain Hubby, Sovereign or not~" Vex purred, eyes laser focused.</p>
+<p>"Hubby will remain Hubby, Sovereign or not" Vex purred, eyes laser focused.</p>
 <p>"Master’s butt..." Blossom Elysiar was about to begin salivating.</p>
 <p>Kitsara put two fingers in her mouth and whistled loud enough to carry across the whole beach. "Do a swirl, handsome!!"</p>
 <p>Down the line, the governor of Elysaria was looking, kept looking, and then licked her lips. "That brings back memories..." Myrasyn muttered, mind back in a dark cell.</p>

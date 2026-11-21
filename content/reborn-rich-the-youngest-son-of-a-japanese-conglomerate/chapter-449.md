@@ -24,7 +24,7 @@ chapter = 449
 <p>Arisu was rather delighted that I was jealous. Before we knew it, our eyes met, and the speed of our meal began to increase. It was because we wanted to eat quickly and be alone together.</p>
 <p>By the time Deon Hoffman brought his meal, Arisu and I had already finished eating and were about to get up from our seats. Deon Hoffman took his time making coffee, and in the meantime, we had finished our meal. Deon Hoffman opened his mouth to Arisu with a regretful expression as we stood up.</p>
 <p>"Ah.... Arisu, are you leaving?"</p>
-<p>"Yeah, I finished eating, so I have to go on a date with Ryuta. See you later~!!"</p>
+<p>"Yeah, I finished eating, so I have to go on a date with Ryuta. See you later!!"</p>
 <p>It's a bit creepy that he looks at me with regret, but I tried to think that he just wanted to talk to his friend's boyfriend. I just gave a slight nod and left the restaurant with Arisu.</p>
 <p>Hollywood studios sometimes have accommodations next to or within the studio itself, and the studio where Arisu was filming this time had VR filming studios and production-related facilities from the 1st to 3rd floors, and accommodation rooms comparable to hotel suites from the 4th to 5th floors.</p>
 <p>Of course, many Hollywood actors had mansions nearby, so many people didn't stay in the accommodations, but Arisu was renting Fujigasaki Rinka's mansion in Malibu, but she said that she was staying here because the accommodations were comfortable.</p>
@@ -59,7 +59,7 @@ chapter = 449
 <p>I waited next to her until Arisu recovered from her climax and touched her breasts, and she trembled and reached a small climax. Arisu, who had regained her senses, got up from her seat and sat between my legs without me even saying anything.</p>
 <p>"I wanted to see Ryuta's dick. It's been a while."</p>
 <p>"You wanted to see my dick more than me, didn't you?"</p>
-<p>"Hey, why are you saying the obvious? I saw Ryuta often in video calls and photos. I haven't seen your dick~!"</p>
+<p>"Hey, why are you saying the obvious? I saw Ryuta often in video calls and photos. I haven't seen your dick!"</p>
 <p>Arisu was very happy to see my dick, perhaps because she had seen my face often in video calls. Arisu kissed both sides of my glans again, like a baiser.</p>
 <p>Arisu, who had paid her respects(?) to my dick, soon opened her mouth wide and bit down on my glans.</p>
 <p>"Keueut...!"</p>
@@ -76,7 +76,7 @@ chapter = 449
 <p>My dick repeatedly swelled and shrank, shooting out semen. The enormous amount of semen made Arisu's cheeks, which had become hollow from sucking my dick, swell up.</p>
 <p>When the physical space inside her mouth became insufficient, Arisu spat out my dick, and my still ejaculating dick spat out milky white fluid on Arisu's face and head, defiling Arisu.</p>
 <p>Arisu swallowed the semen that filled her mouth, then licked around her lips with her tongue with a blissful expression, and opened her mouth.</p>
-<p>"Aww~♥ I have to wash now...! Ryuta, shall we shower together?"</p>
+<p>"Aww♥ I have to wash now...! Ryuta, shall we shower together?"</p>
 <p>It's been a while since shower sex, so that's good. I smiled and nodded at Arisu's suggestion.</p>
 <p>----</p>
 <p>Arisu's underwear B-cut!</p>

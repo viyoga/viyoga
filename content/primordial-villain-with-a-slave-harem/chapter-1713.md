@@ -28,7 +28,7 @@ chapter = 1713
 <p>Now the collar was gone and a primordial with a unique constitution lay beneath her, and [Eternal Hunger] threw itself toward him with a pull she could not override.</p>
 <p>"I can't pull it back." Her voice cracked. "I don't want to kill you. You must leave."</p>
 <p>Quinlan looked at the woman struggling above him, and the grin sharpened even further, turning sly.</p>
-<p>"I refuse~"</p>
+<p>"I refuse"</p>
 <p>"This is not the time-"</p>
 <p>"You're hungry, right?" His voice came low and steady. "I know your spell, Vex and the others told me about it. [Eternal Hunger]. It wants blood."</p>
 <p>Wind gathered at his fingertips, thin blades of compressed air so precise they hummed, and he drew them across his own shoulder just below the junction of his neck in a single clean motion.</p>

@@ -17,15 +17,15 @@ chapter = 470
 <p>Gina pouted at Jason’s response, and Jason laughed as he stood up and went to grab her around the waist! Jason lifted her into the air, and Gina let out a cry!</p>
 <p>"Ahh, what are you doing!? Let me down! I need to get the rest of the food!"</p>
 <p>Jason ignored Gina’s cries as he carried her around the room, and they both laughed as he eventually threw her down on the couch and landed on top of her. Gina’s hair was thrown all over the place, and her face was flushed red as she laughed happily, and Jason grinned as he leaned down and kissed her softly. Gina moaned into Jason’s mouth, and she ran her hand down his bare chest and back. Jason pulled back from the kiss, and he suddenly grabbed Gina’s hands and held them above her head with one hand, and Gina let out a deep gasp as Jason’s other hand went down between her legs.</p>
-<p>"Uhh~ Jason~ Mmh!"</p>
+<p>"Uhh Jason Mmh!"</p>
 <p>Jason kissed Gina again, and Gina opened her legs to give him more access as she sank into the kiss! A deep moan echoed from her throat, and her hips jolted as she felt Jason sliding a finger inside her.</p>
-<p>"Mmmmmhh~ Faster, baby. Right there. Right there, uhhhh~!"</p>
+<p>"Mmmmmhh Faster, baby. Right there. Right there, uhhhh!"</p>
 <p>Gina felt electricity travel through her body as Jason began to finger her quickly, and her face squeezed in pure lust as she begged him to go faster! Gina felt like a prisoner as Jason held her down, and she could feel an intense orgasm rising from deep inside her! Jason leaned down for another kiss, and Gina whispered softly.</p>
 <p>"Babe, I’m close. Ugh, I’m so close! Fuck!"</p>
 <p>Jason leaned to the side and growled in her ear.</p>
 <p>"Come for me."</p>
 <p>Gina’s eyes widened in shock, and her entire body jolted as she felt an intense orgasm slam into her! Gina’s hip rose in the air, and her wetness absolutely soiled her pants and underwear! Jason continued to pump his finger into her even as she came, and Gina closed her legs around his hand while begging him for mercy! She just came, so she was too sensitive!</p>
-<p>Bzzt~!</p>
+<p>Bzzt!</p>
 <p>Gina suddenly froze when she felt someone passing through the magical shield around their house, and Gina looked up at Jason while breathing heavily. Gina’s face was still flushed, but she also had a look of confusion as she wondered who that could be. Jason smiled as he leaned his head down again.</p>
 <p>"Just ignore them."</p>
 <p>Gina blinked in surprise when she heard Jason say this, and her mouth opened in shock when she realised that Jason had felt the visitors before they even came near the house! Jason knew that someone was coming, and he still made her this aroused!</p>

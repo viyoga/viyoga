@@ -10,7 +10,7 @@ chapter = 1193
 <p>Her tone was distant, almost dreamy, still half-dazed from Quinlan’s earlier outburst and the gentle pressure of his hand against her cheek.</p>
 <p>"Impossible!" Rosie suddenly declared from above, puffing her tiny chest with conviction.</p>
 <p>Quinlan, intending to explain better than the leafy dryad had, raised one hand with palm up in front of the girl.</p>
-<p>Rosie giggled, instantly understanding. "Hehe~!" she chimed, and outside the mansion, her great tree stirred.</p>
+<p>Rosie giggled, instantly understanding. "Hehe!" she chimed, and outside the mansion, her great tree stirred.</p>
 <p>The earth rumbled as thick, living branches began to shift and weave through the night air. One of them reached toward the open window of Felicity’s room, where the princess was still unconscious, collapsed in her bed.</p>
 <p>The moment the branch slithered inside, its aura alone was enough to jolt her awake. Felicity shot upright with a gasp.</p>
 <p>"Wha-!?"</p>
@@ -49,7 +49,7 @@ chapter = 1193
 <p>The room went quiet.</p>
 <p>Felicity’s throat bobbed as she stared at him, torn between shock, confusion, and something else she couldn’t name. Her heart was racing, but not from fear.</p>
 <p>Across from her, Feng smiled softly, eyes gentle and knowing. She’d already read him completely. The man’s fury, his desire to protect, and the way he saw potential where others saw useless failures.</p>
-<p>Rosie, perched on Quinlan’s head, let out a sweet giggle. "Hehe~ Rosie loves it when Papa gets like this!"</p>
+<p>Rosie, perched on Quinlan’s head, let out a sweet giggle. "Hehe Rosie loves it when Papa gets like this!"</p>
 <p>Quinlan extended his free hand toward Felicity.</p>
 <p>The young princess looked at his open palm. She knew exactly what that gesture meant. If she accepted it, there would be no going back. In this world, no mage could serve two masters. A student who took a new teacher severed all ties to the old one.</p>
 <p>And if the separation wasn’t agreed upon by the old master, it would be akin to the student spitting upon their legacy, their bloodline, their creed.</p>

@@ -7,7 +7,7 @@ chapter = 486
 
 <p>[Yeah, back to the normal release time! Yay!]</p>
 
-<p>“Nghnn~~ fuck~~ aghnn~~”</p>
+<p>“Nghnn fuck aghnn”</p>
 
 <p>Seraphine’s eyes widened.</p>
 
@@ -27,11 +27,11 @@ chapter = 486
 
 <p>*Clap*</p>
 
-<p>“Nghnn~~ aghnn~~”</p>
+<p>“Nghnn aghnn”</p>
 
 <p>A loud slap echoed, the perfect mark of a delicate hand appearing on Seraphine’s buttocks while her lips parted in a frightened squeal.</p>
 
-<p>“Looks like big sister loved using hubby’s cock as a trampoline! hehehe~~” Elize laughed, watching the vibrant red take over Seraphine’s face.</p>
+<p>“Looks like big sister loved using hubby’s cock as a trampoline! hehehe” Elize laughed, watching the vibrant red take over Seraphine’s face.</p>
 
 <p>“You… naughty brat!” Seraphine roared, though there was no real anger in her voice.</p>
 
@@ -41,7 +41,7 @@ chapter = 486
 
 <p>Soon, Elize’s dress rose to her hips, revealing full, perfect buttocks. The pale orbs were taken over by a violent ripple as Seraphine’s first slap hit her.</p>
 
-<p>“Nghnnn~~ hubby, save me from my evil big sister!” Elize screamed.</p>
+<p>“Nghnnn hubby, save me from my evil big sister!” Elize screamed.</p>
 
 <p>Another powerful, resounding slap landed on the plump cheeks of her butt. Her whole body trembled, her eyes already watering.</p>
 

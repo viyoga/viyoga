@@ -11,13 +11,13 @@ chapter = 253
 
 <p>Her torso was leaning forward, prevented from falling by nothing but Qingyi’s grip on her ponytail, pulling her against him.</p>
 
-<p>“Oghnn~~ ughnn~~ aghnn~~” In response to Qingyi, Ruxue could only moan, arching her back, lifting her ass a little more and responding to Qingyi’s thrusts, her whole body being thrown forward before returning to his thighs.</p>
+<p>“Oghnn ughnn aghnn” In response to Qingyi, Ruxue could only moan, arching her back, lifting her ass a little more and responding to Qingyi’s thrusts, her whole body being thrown forward before returning to his thighs.</p>
 
-<p>“Nghnn~~” A loud smack echoed, a reddish mark from Qingyi’s hand taking over Ruxue’s pale, juicy ass.</p>
+<p>“Nghnn” A loud smack echoed, a reddish mark from Qingyi’s hand taking over Ruxue’s pale, juicy ass.</p>
 
 <p>“Answer your husband.” He demanded, increasing the speed of his hips.</p>
 
-<p>“How nghnnn~~ should I know? Oghnn~~ scoundrel… womanizer… aghnn~~” Ruxue spoke between gasping moans, her hands going up to her own breasts and squeezing them hard, a gush of milk escaping from the purplish nipples.</p>
+<p>“How nghnnn should I know? Oghnn scoundrel… womanizer… aghnn” Ruxue spoke between gasping moans, her hands going up to her own breasts and squeezing them hard, a gush of milk escaping from the purplish nipples.</p>
 
 <p>She could hardly bear the shame of imagining what obscene expression she was making, but that shame was erased by pleasure.</p>
 

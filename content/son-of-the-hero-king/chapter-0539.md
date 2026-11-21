@@ -46,7 +46,7 @@ chapter = 539
 <p>“*Ahem*”</p>
 <p>Sol took away the panties and threw them in his dimension.</p>
 <p>“Like I said, it was an illusion;”</p>
-<p>“Sigh~Okay. But what about my bra?”</p>
+<p>“SighOkay. But what about my bra?”</p>
 <p>Sol grimaced a little as he looked at the black bra in his hand.</p>
 <p>“Do you want the truth or a lie?”</p>
 <p>“The truth obviously.”</p>

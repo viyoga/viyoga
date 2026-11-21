@@ -23,7 +23,7 @@ chapter = 459
 
 <p>She barely had time to complain. Qingyi pulled his hips back, aligned his cock with her pussy, and then thrust it all the way in.</p>
 
-<p>“Q-Qingyi- aghnnn~~” Aeryn moaned. Her body lost its strength, supported only by Qingyi’s hands as his cock pushed forward, breaking through her virginity and sinking into her tight, wet pussy. His hips only stopped when they finally found the elf’s buttocks. Her entire body was thrown forward, but Qingyi’s grip on her tits forced her back against him, a second wet slap echoing.</p>
+<p>“Q-Qingyi- aghnnn” Aeryn moaned. Her body lost its strength, supported only by Qingyi’s hands as his cock pushed forward, breaking through her virginity and sinking into her tight, wet pussy. His hips only stopped when they finally found the elf’s buttocks. Her entire body was thrown forward, but Qingyi’s grip on her tits forced her back against him, a second wet slap echoing.</p>
 
 <p>“Ah…” Qingyi gasped. “I always imagined that elf pussies were the tightest…”</p>
 
@@ -33,7 +33,7 @@ chapter = 459
 
 <p>Without even giving the elven beauty time to respond, Qingyi began to move his hips, his cock sliding almost to the tip before entering her again.</p>
 
-<p>“Nhghnnn~~ aghnnn~~ f-fuck~~ h-heavenly spirits~~” Aeryn moaned incessantly. Her hands flowed down to her slim belly, feeling that huge cock hit the walls of her womb.</p>
+<p>“Nhghnnn aghnnn f-fuck h-heavenly spirits” Aeryn moaned incessantly. Her hands flowed down to her slim belly, feeling that huge cock hit the walls of her womb.</p>
 
 <p>How was that huge, thick thing fitting inside her?</p>
 
@@ -51,7 +51,7 @@ chapter = 459
 
 <p>Her moans became even more ragged. Her breathing became even more broken as her pussy squeezed tightly around Qingyi’s cock, struggling to milk him dry.</p>
 
-<p>She could already feel that same sensation again. Qingyi’s cock throbbed painfully inside her as she herself reached her limit. “Q-Qingyi… something… something is coming aghnnn~~”</p>
+<p>She could already feel that same sensation again. Qingyi’s cock throbbed painfully inside her as she herself reached her limit. “Q-Qingyi… something… something is coming aghnnn”</p>
 
 <p>Finally, it came.</p>
 
@@ -59,7 +59,7 @@ chapter = 459
 
 <p>The two remained there, together for another moment, their panting breaths united.</p>
 
-<p>“Nghnn~~ Husband is really amazing… To make even this elf-shaped ice stone have such a lustful expression, fufufu~~ I wonder what her proud family would think…” Sapphire recovered, her legs still trembling slightly as she stood up.</p>
+<p>“Nghnn Husband is really amazing… To make even this elf-shaped ice stone have such a lustful expression, fufufu I wonder what her proud family would think…” Sapphire recovered, her legs still trembling slightly as she stood up.</p>
 
 <p>Aeryn looked away, blushing deeply.</p>
 
@@ -77,7 +77,7 @@ chapter = 459
 
 <p>[Stand by the chosen hero.]</p>
 
-<p>The moment she heard that, she froze. She closed her eyes and just tried to hear something, anything, but she heard nothing. “The hubby really must be the chosen hero! Hehehe~~” That erased any lingering doubts Celestia still had.</p>
+<p>The moment she heard that, she froze. She closed her eyes and just tried to hear something, anything, but she heard nothing. “The hubby really must be the chosen hero! Hehehe” That erased any lingering doubts Celestia still had.</p>
 
 <p>The possibility that the chosen hero, who, according to the prophecy, should be the eternal consort of the goddess, was anyone other than Qingyi barely crossed her mind.</p>
 
@@ -95,7 +95,7 @@ chapter = 459
 
 <p>To their surprise, Celestia’s lips immediately curved into a big smile.</p>
 
-<p>“Oh… has hubby already taken even Sister Sapphire and Sister Aeryn? Hubby is truly incomparable, fufufu~~”</p>
+<p>“Oh… has hubby already taken even Sister Sapphire and Sister Aeryn? Hubby is truly incomparable, fufufu”</p>
 
 <p>The two couldn’t help but be shocked as Celestia knelt between them, her lips immediately sealing around the tip of his cock.</p>
 

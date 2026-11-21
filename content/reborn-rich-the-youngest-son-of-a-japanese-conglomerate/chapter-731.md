@@ -41,7 +41,7 @@ chapter = 731
 <p>In fact, I can't transform into the Black Knight now because I don't have Simyeon or Simyeon Bu-gun's combat equipment, but I nodded at Shido Tsubaki's question. I don't need my strength right now. If it's urgent, I can just put on a combat helmet and a cyber suit and run over there.</p>
 <p>,You're still our homeroom teacher. I understand, I'll go now.,</p>
 <p>,Okay, see you at the opening ceremony tomorrow.,</p>
-<p>Shido Tsubaki had a refreshed expression as if something had been resolved. After sending Shido Tsubaki back, I started doing the remaining work. But that didn't last long either. Otagi Yuka, who was short on Semen, came to my house saying, "Sensei-ssi~! Milk!"</p>
+<p>Shido Tsubaki had a refreshed expression as if something had been resolved. After sending Shido Tsubaki back, I started doing the remaining work. But that didn't last long either. Otagi Yuka, who was short on Semen, came to my house saying, "Sensei-ssi! Milk!"</p>
 <p>###</p>
 <p>,Eumnya, eumnya. Sensei-ssi...! I can't drink any more milk.,</p>
 <p>I woke up to Otagi Yuka's sleep talking. It's my first day back to work in a long time. Even though it's a relaxed Saint Francisco Girls' Academy teacher life, I didn't want to go to work after a long time.</p>
@@ -58,9 +58,9 @@ chapter = 731
 <p>,Okay, Sensei-ssi.,</p>
 <p>I put a few slices of bread in the toaster and went to the shower room. When I came out after washing with hot water, the toast was nicely toasted. I grilled eggs, sausages, and bacon and put them on a plate.</p>
 <p>I had consumed quite a few calories thanks to Otagi Yuka, so I had to eat this much from the morning.</p>
-<p>,Eat breakfast~!,</p>
+<p>,Eat breakfast!,</p>
 <p>When I sat at the table and shouted, I heard Otagi Yuka's response, and Otagi Yuka, with a towel wrapped around her head, came and sat down.</p>
-<p>,I'll eat well, Sensei-ssi~!,</p>
+<p>,I'll eat well, Sensei-ssi!,</p>
 <p>,Okay. Eat a lot.,</p>
 <p>Both of them were hungry, so for a while, only the sound of clattering plates and forks hitting each other could be heard.</p>
 <p>,Did you study for the exams during the vacation?,</p>
@@ -69,7 +69,7 @@ chapter = 731
 <p>,Well, okay. Put the dishes in the dishwasher and get ready.,</p>
 <p>I nodded and got up from my seat first. I had to go to work earlier than the students, so I was busier than the still relaxed Otagi Yuka.</p>
 <p>If I changed my clothes and carried my briefcase, I was ready to go to work.</p>
-<p>,Have a good day~!,</p>
+<p>,Have a good day!,</p>
 <p>,You're coming too!,</p>
 <p>I retorted at Otagi Yuka's words, which sounded like she was seeing off her husband to work, and left the house. As I walked through the cool morning air, I saw the Saint Francisco Girls' Academy building, which I hadn't seen in a long time.</p>
 <p>Since I had to participate in a meeting in the faculty room on the first day of the semester, I didn't stop by the special class building and went straight to the faculty room to greet the teachers I hadn't seen in a long time and participate in the meeting.</p>
@@ -79,13 +79,13 @@ chapter = 731
 <p>Deureureuk!</p>
 <p>When the classroom door opened, the special class female students sitting at their desks were all looking at me with sparkling eyes.</p>
 <p>,Ryuta-jji!,</p>
-<p>,,Sensei-nim~!!,,</p>
+<p>,,Sensei-nim!!,,</p>
 <p>,Ryutta...!,</p>
 <p>I was happy to hear the students calling me, even though it had only been two weeks. I smiled and went to the podium.</p>
 <p>,It's been a while, you special class troublemakers.,</p>
-<p>,Woo~! Sensei-ssi is the biggest troublemaker!,</p>
-<p>,Woo! Woo! That's right! Ryuta-jji is the biggest troublemaker~!,</p>
+<p>,Woo! Sensei-ssi is the biggest troublemaker!,</p>
+<p>,Woo! Woo! That's right! Ryuta-jji is the biggest troublemaker!,</p>
 <p>,Ryutta... troublemaker?,</p>
 <p>The sight of them booing at my greeting was like coming home. I smiled and started the morning assembly.</p>
 <p>_____</p>
-<p>Minamoto Risa Furisode~!</p>
+<p>Minamoto Risa Furisode!</p>

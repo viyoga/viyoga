@@ -57,7 +57,7 @@ chapter = 576
 <p>"Ah, really? Ryuta-cchi, you're so smooth with your words."</p>
 <p>Even so, Seizawa Shii seemed quite pleased. The special class students lined up like they were getting lunch from the cafeteria lady, receiving evaluations that they looked good and were pretty one by one, and finished their Korean makeup experience in a good mood.</p>
 <p>Next was the Hyper Entertainment in-house cafeteria experience, which had become quite famous through Mitube and variety shows. We had spent quite a bit of time shopping and getting makeup done, so it was dinner time, and we followed Uenozono Karen up to the cafeteria.</p>
-<p>"Wow~! I saw this on Mitube!"</p>
+<p>"Wow! I saw this on Mitube!"</p>
 <p>"I saw it through a VR experience, so it feels familiar even though it's my first time here in person."</p>
 <p>Some were amazed, and Oofuchi Erika, having seen it several times through VR Dive, familiarly took a tray and lined up. You can come and see places like this building in advance with VR Dive. How fascinating.</p>
 <p>I also lined up and received my meal. Today, galbi-tang (short rib soup) was the main dish, along with several delicious-looking Korean side dishes. They gave a lot of galbi. They put galbi in one bowl that you would normally only see if you ordered at least two servings, so it looked very generous.</p>
@@ -83,8 +83,8 @@ chapter = 576
 <p>"If you're from a prestigious family, you learn dance lessons from a young age.... You just need to apply that well to idol dances like this."</p>
 <p>I see. Everyone was good at dancing. It seemed that they had all learned to dance since they were young.</p>
 <p>________</p>
-<p>Seizawa Shii in Hanbok~!</p>
-<p>Saionji Diana in Hanbok~!!</p>
+<p>Seizawa Shii in Hanbok!</p>
+<p>Saionji Diana in Hanbok!!</p>
 <p>Minamoto Risa in Hanbok!</p>
-<p>Last but not least, the Home Economics Teacher~!!</p>
+<p>Last but not least, the Home Economics Teacher!!</p>
 <p>The Home Economics Teacher looks good in all kinds of Eastern-style clothes. Next time, I should have her try on a cheongsam or an Ao Dai, hehe.</p>

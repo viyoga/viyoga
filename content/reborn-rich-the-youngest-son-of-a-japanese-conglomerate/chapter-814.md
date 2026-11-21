@@ -78,10 +78,10 @@ chapter = 814
 <p>'I'm going to punish you properly from now on, so you have to endure even if it hurts.'</p>
 <p>'Punish me... Punish me a lot, Dad...♥'</p>
 <p>I grabbed Oofuchi Erika's slender waist and slowly started the piston movement.</p>
-<p>Erika B-cut~!</p>
+<p>Erika B-cut!</p>
 <p>There are many images I made, but I only selected the ones that didn't need to have seaweed attached ㅎㅎ</p>
-<p>Nae Fitzgerald in a tank top + dolphin pose, lying down and seducing with bare Feet, requested by I Save I-nim~!</p>
-<p>Nae Mom~!</p>
-<p>Uenozono Karen Belly Dancer and Breast Covering requested by Gojoy-nim~!</p>
-<p>Starting with the Belly Dancer~!</p>
-<p>Breast Covering~!</p>
+<p>Nae Fitzgerald in a tank top + dolphin pose, lying down and seducing with bare Feet, requested by I Save I-nim!</p>
+<p>Nae Mom!</p>
+<p>Uenozono Karen Belly Dancer and Breast Covering requested by Gojoy-nim!</p>
+<p>Starting with the Belly Dancer!</p>
+<p>Breast Covering!</p>

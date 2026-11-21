@@ -75,9 +75,9 @@ chapter = 783
 <p>Seizawa Shii, who suddenly took Impulsive Action, slammed her fist on the luxurious-looking ebony table in the auditorium.</p>
 <p>It was an incredible roar that was hard to believe was made by a delicate girl. The ebony, which was rumored to be sturdy, was instantly smashed by Seizawa Shii's fist, leaving only the legs.</p>
 <p>At that Time, Kotowazuki felt that something was wrong. He felt an ominous feeling that he, who had thought of himself as an overwhelming Predator, could become Prey.</p>
-<p>This is Alik's Lum costume and belly dancer from Those Obnoxious Aliens, requested by Gojoy-nim~!</p>
+<p>This is Alik's Lum costume and belly dancer from Those Obnoxious Aliens, requested by Gojoy-nim!</p>
 <p>Lum Cosplay Alik from Those Obnoxious Aliens!</p>
 <p>Jjirit jjirit</p>
 <p>I don't know if it's well made because I haven't seen Those Obnoxious Aliens, hehe.</p>
-<p>Belly Dancer Alik~!</p>
-<p>Kkiyoot~!</p>
+<p>Belly Dancer Alik!</p>
+<p>Kkiyoot!</p>

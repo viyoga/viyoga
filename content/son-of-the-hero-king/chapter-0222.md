@@ -80,7 +80,7 @@ chapter = 222
 <p>“Sol, tell me, are you a Duke now?”</p>
 <p>“No, why?”</p>
 <p>A sharp glint flashed through her eyes before she began to laugh as if she had gone crazy.</p>
-<p>‘Ah~! Fate is truly unfathomable. Were those goddesses even able to predict this?’</p>
+<p>‘Ah! Fate is truly unfathomable. Were those goddesses even able to predict this?’</p>
 <p>No, she did not think so. But what did it matter? In the end, all she could do was thank this loathsome Fate for having given her a chance.</p>
 <p>But…Should I observe him more?</p>
 <p>From what she had just seen, Sol was truthfully a fine young man. Though he lacked some worldly experience. Still, this was not enough to have an opinion on his personality.</p>
@@ -89,7 +89,7 @@ chapter = 222
 <p>“Call me big sis.”</p>
 <p>“...”</p>
 <p>“...”</p>
-<p>“Okay~Sigh. Big sis….”</p>
+<p>“OkaySigh. Big sis….”</p>
 <p>“Umu. You want to ask why I am laughing?”</p>
 <p>“Yes.”</p>
 <p>“I am just laughing at how helpless we are when we can't help but act like moths drawn toward a flame.”</p>

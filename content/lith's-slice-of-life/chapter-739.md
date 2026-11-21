@@ -101,7 +101,7 @@ With his shaft getting enveloped by a tight softness, Lith answered, "hmm… I'd
 
 "Keep the cloth material around this region velvety and softer. Also, instead of a zipper, you can add buttons." Lith suggested and then started sliding his shaft in and out of Luna's cunt.
 
-Luna thought about it and said, "mhm~… but… won't that have delay you from taking it out."
+Luna thought about it and said, "mhm… but… won't that have delay you from taking it out."
 
 "That's true." Lith agreed. It sure would become a problem while in the heat of the moment.
 

@@ -6,7 +6,7 @@ chapter = 2011
 +++
 
 <p>"Welcome back!"</p>
-<p>"Hiii~!"</p>
+<p>"Hiii!"</p>
 <p>The last greeting came out as a yelp. Its owner clapped a hand over her mouth while her friends waved at him with enough enthusiasm to make the nearby adventurers turn and stare.</p>
 <p>The short-haired woman was waving too. She knew she was being obvious, but he was already looking at them, and when he inclined his helmet toward the women at the board, she felt ridiculously happy.</p>
 <p>He’d seen her.</p>
@@ -28,7 +28,7 @@ chapter = 2011
 <p>Her fingers tightened on her own belt instead.</p>
 <p>Around her, the women who’d been discussing his bedroom habits so freely were suddenly finding it difficult to stand still. One pressed her thighs together while another shifted against her friend’s shoulder, wearing a smile so eager it looked painful.</p>
 <p>"Ladies."</p>
-<p>"Hello~"</p>
+<p>"Hello"</p>
 <p>"Good afternoon, Lord Black."</p>
 <p>"Hi..."</p>
 <p>His red gaze moved over the little gathering.</p>

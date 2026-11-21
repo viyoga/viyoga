@@ -23,13 +23,13 @@ chapter = 484
 <p>Snapping out of it, I got up from my seat and headed to the classroom. When I slid open the classroom door, the students had already packed their bags and were waiting.</p>
 <p>"I'm a little late, sorry!"</p>
 <p>It was only about 3-4 minutes late, but I still had to respect their sense of time for going home and leaving work. I apologized and stood at the teacher's desk.</p>
-<p>"Woo~! Ryuta-cchi, didn't you get too relaxed after resting on the weekend?"</p>
+<p>"Woo! Ryuta-cchi, didn't you get too relaxed after resting on the weekend?"</p>
 <p>"That's right! Thirteen pretty students are waiting for you, Sensei! That's a super happy situation for a man!"</p>
 <p>Seizawa Shii and Uenozono Karen, who came to school after a long time, said something to my apology. Seizawa Shii was the same as ever, and Uenozono Karen doesn't attend often, but she's friendly and cheerful. It didn't seem like she felt awkward seeing me after a long time.</p>
 <p>"There's nothing special to announce today. Ah! There's one thing. Since it's fall now, you can wear long sleeves, cardigans, or vests, so dress warmly. Don't catch a cold."</p>
 <p>The St. Francisco Girls' Academy uniform was just a white shirt, a dark blue skirt, and a blue ribbon lighter than the skirt. The only seasonal change was the difference between short and long sleeves for the white shirt, but in the fall and winter, they could freely wear cardigans or thick coats.</p>
 <p>Of course, outerwear that violated the school rules, such as being too flashy, was excluded, but the young ladies of prestigious families wouldn't wear leopard-print padding anyway; they usually wore plain coats to and from school, and they took off their coats and walked around the school because it was warm inside the building even in winter.</p>
-<p>"Finally, the season of free fashion has come~!"</p>
+<p>"Finally, the season of free fashion has come!"</p>
 <p>Seizawa Shii wore a Lolihime fashion that had nothing to do with the uniform at the beginning of the semester, so I was a little afraid of what she would wear, but I was curious, so I had to wait until she wore it. If it's too much, I can give her a warning.</p>
 <p>"Oh, and did you see the new small gymnasium behind the special class building?"</p>
 <p>I opened my mouth to tell the students that they could use it because the electricity and water were completely connected to the training room during the weekend, and the interior was finished.</p>

@@ -24,9 +24,9 @@ chapter = 754
 <p>"Ryuta, from now on, you shouldn't follow strangers if they say they'll buy you something delicious."</p>
 <p>Alik says with a stern expression at my words of gratitude. Actually, it's similar to the current situation. Taira Kanna isn't a stranger, but I went to meet her because she said she would buy me something delicious, and then I got kidnapped.</p>
 <p>"That's right, Sensei! I think you're too weak for delicious things and women!"</p>
-<p>"This time, you followed the female student council president because she said she would buy you something delicious~!"</p>
+<p>"This time, you followed the female student council president because she said she would buy you something delicious!"</p>
 <p>Saionji Diana and Naruse Shiyo laughed and added to Alik's words. It's true that I'm weak for women, but I don't know if I'm weak for delicious things. Of course, I'm a big eater, but I can endure it as much as I want when I need to. How much of a glutton do they think I am?</p>
-<p>"Ah, Jugun~! Don't forget to contact Sabu-nim."</p>
+<p>"Ah, Jugun! Don't forget to contact Sabu-nim."</p>
 <p>"That's right. I'll go make a call."</p>
 <p>At Sakagami Rena's words, I went back into the room and called Yukiko.</p>
 <p>-Ryuta, are you okay?</p>
@@ -44,7 +44,7 @@ chapter = 754
 <p>Nod.</p>
 <p>At my question, Otagi Yuka nodded instead of spitting out my dick that she was biting. Whether it was because she had a trauma from the debuff being strongly applied because she couldn't absorb my semen while I was kidnapped, she said that she would come to suck Taira Ryuta's special milk in the morning until her thirst for blood was over.</p>
 <p>"Haaah...♥"</p>
-<p>"Jugun-nim~♥"</p>
+<p>"Jugun-nim♥"</p>
 <p>Saionji Diana and Sakagami Rena were lying on either side of me. My hands were placed on their chests, so when I moved a little, they made moaning sounds like sleep talking.</p>
 <p>For reference, yesterday, after sending Alik and Naruse Shiyo back, I mixed bodies with Konoe Akina and Urabe Konoka, who had to go home first.</p>
 <p>Otagi Yuka, Sakagami Rena, and Saionji Diana, who had cut off ties with their families or become independent, generously gave up their bedrooms to their friends. After all, they had a kind of leeway that their seats would be available in the early morning.</p>
@@ -65,7 +65,7 @@ chapter = 754
 <p>When I came out after washing, a plate was placed with thick bacon, well-cooked sunny-side-up fried eggs, and bread with butter on it. I ate breakfast in an instant wearing only my underwear, brushed my teeth, and put on my clothes. Otagi Yuka watched me eat breakfast deliciously and sat down to eat breakfast with a satisfied expression.</p>
 <p>"I'm going to work first, so come so you're not late."</p>
 <p>In response to my words, I heard the voices of the two who had gone into the shower room to wash up. Saionji Diana and Sakagami Rena went into the two shower rooms in this house and were washing up. Otagi Yuka, who had just finished cooking and eating with me, followed me to the entrance to see me off.</p>
-<p>"Sensei, have a good day today~♥ Fheuheu...! It's like we're a married couple?"</p>
+<p>"Sensei, have a good day today♥ Fheuheu...! It's like we're a married couple?"</p>
 <p>Otagi Yuka was still wearing the apron she had put on to cook, but she was only wearing underwear and a large shirt inside the apron, so she had a somewhat newlywed sexy bride feeling. She blushed and was embarrassed because her current appearance and the way she was seeing me off gave off a married couple feeling.</p>
 <p>"Then, shall we have a kiss to see me off to work?"</p>
 <p>"...Eung♥"</p>
@@ -75,7 +75,7 @@ chapter = 754
 <p>Bra top + hot pants + armpit Lisa-ttang, Home Ec Teacher illustration requested by RefundAbsolutelyNotPossible-nim!</p>
 <p>Starting with Lisa-ttang!</p>
 <p>At first, when I searched for bra top, only bras came out like this, so I tweaked the prompt a bit hehe</p>
-<p>Home Ec Teacher~!</p>
-<p>Kkiyot~!</p>
+<p>Home Ec Teacher!</p>
+<p>Kkiyot!</p>
 <p>Seeing-off-to-work Yuka B-cut!</p>
 <p>Bonus Covered Yuka + Naked Apron.</p>

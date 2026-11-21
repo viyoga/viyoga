@@ -23,7 +23,7 @@ chapter = 723
 <p>——</p>
 <p>’Hold on, what!? One million!?’</p>
 <p>Jason jolted in shock when he saw the number of upgrade points he would need to put in before he could upgrade Arcticus from Knight Rank I to Knight Rank II! It was absolutely insane! Jason knew that he had more than enough upgrade points for now, but he still thought that the jump was too steep! If the Knight Rank I required this many upgrade points to move to Rank II, then how many points would he need to put down to go to Rank III!?</p>
-<p>"Mmh~ Jason~"</p>
+<p>"Mmh Jason"</p>
 <p>Hesabeth suddenly shifted around in bed as Jason jostled her slightly, and she pressed her face into the crook of Jason’s neck and wrapped a hand around his chest while raising her pale, soft leg up his thigh. Jason looked down at the sleeping woman with a look of annoyance. He was already stressed out enough about the crazy inflation rate the system was placing on him, and her actions were not helping matters at all!</p>
 <p>’I should just throw her off the bed.’</p>
 <p>This thought passed through Jason’s mind, and Jason just scoffed in amusement before he shook his head and stayed still until he was sure that Hesabeth had gone back to sleep. Once he no longer sensed movement from her, Jason turned back to the system and glared at the ’1,000,000’ again – as if glaring at it would help him change the number.</p>

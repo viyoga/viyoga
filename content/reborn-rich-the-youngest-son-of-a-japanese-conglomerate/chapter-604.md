@@ -7,7 +7,7 @@ chapter = 604
 
 <p>Entering the laundromat, I glanced at the laundry basket Seizawa Shii was holding and saw the gothic lolita-style dress she had worn today. She's already doing laundry for something she wore today? It's November, so she shouldn't have been sweating.</p>
 <p>"You're washing something you wore today right away?"</p>
-<p>"Of course~! Because I'm a neat and tidy Shii-pyo~☆"</p>
+<p>"Of course! Because I'm a neat and tidy Shii-pyo☆"</p>
 <p>Seizawa Shii paused slightly at my question before answering. I don't think so.... I remember she brought a huge pile of laundry when I met her at the laundromat before.</p>
 <p>"But that outfit looks expensive, shouldn't you take it to a better place than a coin laundry?"</p>
 <p>"It's okay if I use the high-end clothes washing machine."</p>
@@ -54,7 +54,7 @@ chapter = 604
 <p>I handed the bag to Seizawa Shii and sat back down on the plastic chair. We quietly ate our food and watched the laundry spinning in the washing machine. We had already eaten dinner, and I didn't intend to eat everything I bought. I bought some for tomorrow morning too.</p>
 <p>"Ryuta-jji, aren't you eating anymore?"</p>
 <p>"I'm going to eat the rest in the morning."</p>
-<p>"Hee~ It's amazing that glutton Ryuta-jji is only eating this much?"</p>
+<p>"Hee It's amazing that glutton Ryuta-jji is only eating this much?"</p>
 <p>"You're more amazing. I should give you the title of glutton now."</p>
 <p>"Calling a cute girl a glutton! That's too much!"</p>
 <p>Seizawa Shii said it was too much, but when I pointed to the bag that was still full of food, her face turned red and she became quiet. By the way, it's amazing that she calls herself a cute girl. Of course, Seizawa Shii was cute from an objective point of view, but still.</p>

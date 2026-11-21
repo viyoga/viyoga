@@ -110,13 +110,13 @@ chapter = 1019
 <p>Liz left behind Words of love and completely scattered into Light, disappearing. I was suddenly hugging empty space.</p>
 <p>Liz's Appearance had completely vanished, making me wonder if it was a Fantasy or a Dream. But it wasn't a Dream. Because the Sticker Photo I took with Liz still remained.</p>
 <p>In the Sticker Photo, Liz, with a heart mark etched, was Smiling at me.</p>
-<p>Liz B-cut~!</p>
+<p>Liz B-cut!</p>
 <p>The Composition is somewhat funny kkeuk kkeuk</p>
 <p>I made it as a scene of approaching for a Kiss, but there was no scene where it appeared, so it's a B-cut hehe</p>
 <p>While making a Cowgirl image, I forgot to take off her panties, so it's a B-cut hehe</p>
-<p>Legs on Body B-cut~!</p>
-<p>Underwear Missionary Position~!</p>
+<p>Legs on Body B-cut!</p>
+<p>Underwear Missionary Position!</p>
 <p>Cowgirl B-cut hehe</p>
-<p>Missionary Position B-cut~!</p>
-<p>Doggy style B-cut~!</p>
-<p>After Sex B-cut~!</p>
+<p>Missionary Position B-cut!</p>
+<p>Doggy style B-cut!</p>
+<p>After Sex B-cut!</p>

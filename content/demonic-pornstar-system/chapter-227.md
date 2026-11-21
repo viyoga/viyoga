@@ -47,17 +47,17 @@ chapter = 227
 <p>...</p>
 <p>*Whirrrrr.*</p>
 <p>A loud mechanical sound cut through the quiet gloom of the room as Vaelira’s mana camera whirled to life above her shoulder. A spinning crystalline orb powered by enchantments and an arcane battery, it framed her face with just the right amount of illumination to make the woman appear as pretty as possible. The moment it activated, her tone shifted: from calm combatant to gleeful entertainer.</p>
-<p>"Hellooo, my little Devotees~" she cooed with a wink. "Welcome back to the Vaelira Show, streaming live from the dungeon of doom~!"</p>
+<p>"Hellooo, my little Devotees" she cooed with a wink. "Welcome back to the Vaelira Show, streaming live from the dungeon of doom!"</p>
 <p>She spun slowly in place, making her camera sweep across the ruins with flair, showcasing the cracked murals, the flickering torches, and the creeping darkness pressing at the edges of their meager light sources.</p>
 <p>And then she turned the lens toward Kaiden.</p>
 <p>"And look who I’m with again!!" she squealed excitedly with a grin, then lowered her voice conspiratorially, "The wonderboy: Kaiden Grey. Both of my dungeon undertakings have happened with him at my side! I can’t help but wonder if it’s fate playing a game..."</p>
 <p>[💬: Wait, isn’t that the guy you said confessed to you in high school?]</p>
 <p>[💬: Kaiden Grey was madly in love with Vaelira??? 💀]</p>
-<p>Vaelira giggled, sounding full of mischief. "Oh, indeed. Kaiden Grey... back then, he was just a nerd like most boys. And, like most boys, he had a big crush on me~ with absolutely zero charm~ Poor thing was so in love."</p>
+<p>Vaelira giggled, sounding full of mischief. "Oh, indeed. Kaiden Grey... back then, he was just a nerd like most boys. And, like most boys, he had a big crush on me with absolutely zero charm Poor thing was so in love."</p>
 <p>The camera zoomed in on her playful pout.</p>
 <p>[💬: "DID YOU REJECT HIM??"]</p>
 <p>[💬: "Omg the man who stormed the net recently had his heart broken by Mistress Vaelira?!"]</p>
-<p>"Hehe~ Don’t say such cruel things about me, little old me... I don’t break hearts~" she sang sweetly. Then, her expression shifted. The smile was still there, but her gaze narrowed, turning more sultry. "But I wonder... now that he’s turned things around so wonderfully, maybe he’d finally be worth my time, and perhaps... even more~?"</p>
+<p>"Hehe Don’t say such cruel things about me, little old me... I don’t break hearts" she sang sweetly. Then, her expression shifted. The smile was still there, but her gaze narrowed, turning more sultry. "But I wonder... now that he’s turned things around so wonderfully, maybe he’d finally be worth my time, and perhaps... even more?"</p>
 <p>Her voice dripped with honeyed suggestion.</p>
 <p>Kaiden didn’t even glance her way because he’d learned to ignore parasites like her. Creatures who spun lies into gold and wove drama like silk, all for the fleeting affection of the chat box, weren’t worth his spending his time on.</p>
 <p>She wanted him to respond so that the drama could blossom fully. So that her stream’s engagement numbers soar. So that she potentially poaches a few of his hundreds of thousands of followers.</p>
@@ -78,7 +78,7 @@ chapter = 227
 <p>The girls each grabbed a bag.</p>
 <p>Kaiden shouldered the heaviest one.</p>
 <p>As he turned back toward the dungeon’s eerie interior, Vaelira clicked her tongue and turned toward Talia.</p>
-<p>"I’ll be a dear and wait outside~ Please have an aide handle my setup."</p>
+<p>"I’ll be a dear and wait outside Please have an aide handle my setup."</p>
 <p>Talia didn’t like the tone of the woman, but far be it from her to ruin the mood of this important undertaking before it even started. So, the guild leader of Runewoven gestured with her hands, and a dungeon aide stepped through the gate in Vaelira’s place, carrying the woman’s camp gear. He didn’t make eye contact with anyone.</p>
 <p>Kaiden’s group returned to the ballroom, already laying out their bedrolls and starting a small, enchantment-fueled cooking fire in the corner of the broken room. When Talia offered to send in an aide to do their camp as well, they refused, saying they might have to set up camp further in, so it would be best if they got acquainted with handling the equipment on their own.</p>
 <p>Soon, three distinct camps took shape.</p>

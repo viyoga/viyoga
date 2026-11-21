@@ -107,11 +107,11 @@ chapter = 52
 
 <p>Her cultivation was simply too high for their weight to get her way, and her position in that world drastically reduced the number of men who would dare to look at her with any emotion other than fear and reverence.</p>
 
-<p>“Ah~” A soft moan escaped her lips as her left hand sank to her breasts, teasing a pink nipple between her delicate fingers.</p>
+<p>“Ah” A soft moan escaped her lips as her left hand sank to her breasts, teasing a pink nipple between her delicate fingers.</p>
 
 <p>Her other hand went down between her soft thighs, dipping between the plump lips of her pussy, the soft mound opening, revealing the pink, untouched interior.</p>
 
-<p>“Mmh… nngh~” She bit her pink lips, an expression of disgust appearing on her face.</p>
+<p>“Mmh… nngh” She bit her pink lips, an expression of disgust appearing on her face.</p>
 
 <p>She stood up, finally accessing her sea of mind and suppressing those desires.</p>
 

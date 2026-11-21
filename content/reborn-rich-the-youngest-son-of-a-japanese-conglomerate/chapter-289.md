@@ -91,7 +91,7 @@ chapter = 289
 <p>Egawa Shiho, realizing her disgraceful behavior at Alik's words, released Alik. Fortunately for Egawa Shiho, the servant who brought Alik had already left the room, so the only ones who saw this disgraceful behavior were Egawa Shiho and Alik.</p>
 <p>"I'm sorry. You were too cute, so I...!"</p>
 <p>"Alik cute?"</p>
-<p>"Yes~! Very cute!!"</p>
+<p>"Yes! Very cute!!"</p>
 <p>Egawa Shiho looked at Alik, who was still expressionless even after hearing that she was cute. If Taira Ryuta had seen it, he would have thought, 'Hmm, she seems happy to be praised!' and patted her head, but Egawa Shiho, who was meeting her for the first time, didn't have enough experience to notice Alik's subtle changes in expression yet.</p>
 <p>"What does Alik want to learn?"</p>
 <p>Egawa Shiho regained her composure and asked Alik again. All the students had fields they wanted to learn. There were various fields such as cleaning, cooking, and tea ceremony, so Egawa Shiho's educational philosophy was to teach mainly the fields they wanted. This was because focusing on the areas they were interested in, while only doing the usual amount in the areas they were not interested in, would increase educational efficiency even more.</p>

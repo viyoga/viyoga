@@ -15,7 +15,7 @@ chapter = 948
 <p>Rip!</p>
 <p>BOOOM!!</p>
 <p>All of a sudden, the rune paper ripped straight in half, and a massive explosion tore through the mansion! Three windows on the lower floors were immediately blown to pieces, and a massive cloud of smoke burst through every hole in the building! Inside the living room, Jason stared at the burnt paper with an irritated expression on his face, and he turned to the side and coughed twice to get rid of the smoke!</p>
-<p>’Hahahahahah~! You idiot! You seemed so sure that I thought you were about to do something extraordinary! Hahahaha~’</p>
+<p>’Hahahahahah! You idiot! You seemed so sure that I thought you were about to do something extraordinary! Hahahaha’</p>
 <p>An annoying voice echoed from inside Jason’s Alternate Dimension, and Jason felt his brow twitch in annoyance as he heard Esdath laughing his ass off! Esdath was sitting on the roof of his house, and Esdath had been watching Jason all this time to see if Jason would actually be able to combine Mana and Qi in a rune! If Jason had actually managed it, then it would’ve been one of the greatest achievements of this century! But Esdath couldn’t stop himself from laughing his ass off when he saw the explosion!</p>
 <p>’Get him.’</p>
 <p>Jason immediately sent a message out, and Esdath let out a scream as he saw Ragnar’s massive shadow falling over him!</p>

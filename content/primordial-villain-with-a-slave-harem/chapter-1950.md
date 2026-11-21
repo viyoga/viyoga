@@ -57,7 +57,7 @@ chapter = 1950
 <p>"&gt; Once they crossed his inner warning curtain, he called his wives through [Master’s Link]. &lt;We’re done. Everyone alright?&gt;</p>
 <p>Ayame replied. "&gt; &lt;Everyone except a certain little lady, who is filing a complaint,&gt; Ayame replied. &lt;Quin, why are you carrying my sister?&gt;</p>
 <p>"&gt; &lt;Why not?&gt;</p>
-<p>Lucille purred."&gt; &lt;Opportunistic as always, I see~&gt; Lucille purred.</p>
+<p>Lucille purred."&gt; &lt;Opportunistic as always, I see&gt; Lucille purred.</p>
 <p>Ayame rode her board out to meet them, her concern easing when she saw Black Fang’s face. Quinlan drew the water from the assassin’s clothes before lowering the screen around them.</p>
 <p>"Big sis, did you forget how to walk?"</p>
 <p>"We’re in the ocean."</p>
@@ -83,7 +83,7 @@ chapter = 1950
 <p>By the time Aurora was satisfied, the ruined meat lay apart from the clean portions. The alchemist stoppered the vial of recovered poison and put it away.</p>
 <p>"Now we can eat it," Aurora announced.</p>
 <p>"Music to my ears." Quinlan floated a long strip of meat off the stone with his wind magic. "Ayame, would you help with the slicing?"</p>
-<p>"Naturally. We can’t trust you to do it right~"</p>
+<p>"Naturally. We can’t trust you to do it right"</p>
 <p>Ayame unsheathed her katana while Black Fang separated the remaining flesh from the bones. Black Fang passed Ayame a clean length, and the Skysplitter’s blade swept through it in a series of gleaming cuts.</p>
 <p>*Shik! Shik! Shik!*</p>
 <p>Thin slices fell onto the smooth stone Quinlan conjured beside her. He cooled the slab with his ice magic while the sisters worked through another portion.</p>
@@ -103,7 +103,7 @@ chapter = 1950
 <p>"Want to try the first bite?"</p>
 <p>"Very much." She opened her mouth, expectant.</p>
 <p>Quinlan shaved a morsel from the browned surface with a thin blade of wind. He cooled it with a gentle current of air before bringing it to her lips.</p>
-<p>"Mmm~" Lucille closed her lips around the offered bite, smiling at him as she chewed.</p>
+<p>"Mmm" Lucille closed her lips around the offered bite, smiling at him as she chewed.</p>
 <p>While the monster cooked, the girls brought out seasonings and plates from their supplies. Ayame’s sashimi circulated through the gathering, and Quinlan shaped benches from the sand so their guests could sit.</p>
 <p>The beastkin lords hesitated beside the new seats. The Obsidian Circle lingered farther back with unused plates while his family crowded around the roast.</p>
 <p>They were being offered lunch by their conqueror, with his brides arguing over which part of the monster looked tastiest. Maelstrom glanced toward the Mediator, who seemed equally uncertain where to sit.</p>

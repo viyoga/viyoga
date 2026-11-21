@@ -40,7 +40,7 @@ chapter = 1186
 <p>Quinlan stepped through the doorway and was immediately hit by the scent of fresh flowers lingering in the air. They provided a pleasant touch, clearly not native to his estate but one of the many comforts his women must have fetched for their royal guest.</p>
 <p>Feng sat cross-legged at the edge of Felicity’s bed with a grin playing on her lips. "Someone’s invading the rooms of teenage girls at night, I see," she teased. The sparkle in her eyes showed that she’d been waiting to throw a jab at the arrogant guy ever since she heard the knock on the door.</p>
 <p>"Jiai!!!" Felicity nearly fainted. "Lord Quinlan invaded no one’s room! I invited him in! How dare you?!"</p>
-<p>"Yeah, yeah~"</p>
+<p>"Yeah, yeah"</p>
 <p>"Hmph!"</p>
 <p>Quinlan ignored the arrogant brat’s nonsense, deciding to deal with the cheeky creature later.</p>
 <p>Instead of acknowledging her words, his gaze swept the room.</p>

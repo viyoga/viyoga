@@ -6,7 +6,7 @@ chapter = 11
 +++
 
 <p>The Chamber was lit with the lively green aura of Kaya’s Nature Magic. The space was just enough for two people but there was very little distance left between them.</p>
-<p>The Vine that pulled Caius in was still around his waist and more vines thrust from the surface within the chamber as though ready to pierce through him. In turn, he had cast the ~Wind Blade~ spell and had it at Kaya’s neck.</p>
+<p>The Vine that pulled Caius in was still around his waist and more vines thrust from the surface within the chamber as though ready to pierce through him. In turn, he had cast the Wind Blade spell and had it at Kaya’s neck.</p>
 <p>Kaya glanced at the Wind Blade,</p>
 <p>"Gonna cut my neck?" She asked with a little smirk.</p>
 <p>"I’d never," Caius told her with a little smile,</p>

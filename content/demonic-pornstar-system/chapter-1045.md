@@ -45,7 +45,7 @@ chapter = 1045
 <p>All women called out to him in perfect sync.</p>
 <p>"Please keep silent in these matters."</p>
 <p>"...Okay."</p>
-<p>"Good~" Nyx purred, then turned toward Yunohana. "So how did it go? I need details."</p>
+<p>"Good" Nyx purred, then turned toward Yunohana. "So how did it go? I need details."</p>
 <p>"His first attempt was rather troubling."</p>
 <p>Kaiden looked at the ceiling while Nyx laughed into her hand.</p>
 <p>"But after a thorough scolding, he became very careful. He did everything; I didn’t even have to touch my hair or towel."</p>

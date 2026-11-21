@@ -11,7 +11,7 @@ At the 100th floor.
 
 The lady in a light armoured suit, called Hope, walked into a luxurious and spacious office. Just as she did that…
 
-"Yaaaa~ Hope-chaaan~ you did a good job again today, hahahaha!" A bluish-silver haired lady wearing a formal white shirt and black pants, and a blindfold on her eyes said while hugging the so-called 'Hope'.
+"Yaaaa Hope-chaaan you did a good job again today, hahahaha!" A bluish-silver haired lady wearing a formal white shirt and black pants, and a blindfold on her eyes said while hugging the so-called 'Hope'.
 
 The lady struggled and tried to get out of the blindfolded lady's embrace.
 
@@ -81,7 +81,7 @@ Arya and Alexandra's ears perked up as they heard this. "Oh? Do tell."
 
 Lucy made a proud smile and said, "little brother is going to ascend to Rank 9 soon. Soon as in, in just a few days or weeks. Mom asked us all to be present there to witness it."
 
-"YAY!~" Arya cheered while Alexandra became fired up as well.
+"YAY!" Arya cheered while Alexandra became fired up as well.
 
 Lucy then said, "we'll meet up with Sister Emilia and go together."
 

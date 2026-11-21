@@ -25,7 +25,7 @@ chapter = 810
 <p>By the time he hit two hundred, his arms were shaking with numerous veins bulging along his forearms. Sweat dripped freely off his chin, and his back felt like it was being roasted alive. Finally, he collapsed flat on the stone.</p>
 <p>"Not bad," Feng said, hopping off with a little bounce.</p>
 <p>"I’ll have to educate my daughters before they get to their teenage years lest they become delinquents like you. It seems you’re hopeless."</p>
-<p>Feng smoothed her robes like she hadn’t just used a human being for a bench. "Sure, sure, Uncle~"</p>
+<p>Feng smoothed her robes like she hadn’t just used a human being for a bench. "Sure, sure, Uncle"</p>
 <p>At that moment, as if summoned by their voices, the old man cracked one eye open from atop his rock. He didn’t move. Didn’t turn. Just spoke, voice flat. ṟã₦ȯβЕs̩</p>
 <p>"Lunch. Meat. Hunt. No tools."</p>
 <p>Then his eye closed again.</p>

@@ -16,7 +16,7 @@ chapter = 341
 <p>Her golden eyes slid slowly from the two girls to Ethan, her lips—the same golden hue—curving into an elegant smile.</p>
 <p>"Where’s Amelia? Don’t tell me you fucked her into a coma? Ah... such a naughty mother and son..." Ysara let out a soft chuckle, and Ethan answered with an amused laugh.</p>
 <p>"She’s in the Golden Tower with Alice and the other mages, devouring every book she can get her hands on," he replied casually, his eyes wandering over Evelyn and Mireya’s curves as they continued trading blows.</p>
-<p>"Ah... classic mage behavior... it was hard to get Amelia out of the Royal Library once she got permission to enter. Luckily, she fell even more in love with the library in the Blue Tower, hehehe~"</p>
+<p>"Ah... classic mage behavior... it was hard to get Amelia out of the Royal Library once she got permission to enter. Luckily, she fell even more in love with the library in the Blue Tower, hehehe"</p>
 <p>"Well, I hope that’s enough to keep her by my side. There are over a million books in there. She’ll want to read every last one of them," Ethan replied, moving closer to Ysara.</p>
 <p>His hand went straight to her slender, delicate waist, fingers sliding possessively over the soft fabric of her dress. "All that’s left is to know what I need to do to keep you..."</p>
 <p>"Hm... is that the price you want for giving me back my Mireya? For me to become your subordinate?"</p>

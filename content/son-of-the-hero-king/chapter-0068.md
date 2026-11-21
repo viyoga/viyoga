@@ -65,4 +65,4 @@ chapter = 68
 <p>"Lilin…"</p>
 <p>"Hum?"</p>
 <p>"Welcome back."</p>
-<p>"Hehe~!" Letting a shy laugh, she answered, "I am back."</p>
+<p>"Hehe!" Letting a shy laugh, she answered, "I am back."</p>

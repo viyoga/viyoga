@@ -45,7 +45,7 @@ chapter = 287
 <p>-Okay....</p>
 <p>I smiled slightly as I watched Nae Fitzgerald, who quickly became sullen at my words. She was still an incredibly cute mama, not her age.</p>
 <p>"So, what's the matter, Nae?"</p>
-<p>-Huh? Hehe.... Ryuta said he's going to Japan with a knife now~</p>
+<p>-Huh? Hehe.... Ryuta said he's going to Japan with a knife now</p>
 <p>Ah, Nae Fitzgerald said she would bring the bombshell to Alik.</p>
 <p>"Do you have a place to stay in Japan?"</p>
 <p>-I guess I'll just have to stay in a hotel. Ryuta is living at Yukiko's house right now, right?</p>
@@ -61,13 +61,13 @@ chapter = 287
 <p>-I'll arrive around the day after tomorrow. I'm taking a late flight tomorrow, and the flight will take a long time...</p>
 <p>"The day after tomorrow? Okay. I'll clear my schedule."</p>
 <p>Hmm, the day after tomorrow... I'll just sit in the office and study and then pick her up at the airport.</p>
-<p>-I'm excited to be in Japan after a long time~! Then, see you the day after tomorrow!</p>
+<p>-I'm excited to be in Japan after a long time! Then, see you the day after tomorrow!</p>
 <p>She was still My Pace, Nae Fitzgerald. In the end, it was about her bringing a knife and asking me to go on a date with her. You could say she had a bouncy feeling that didn't match her age.</p>
 <p>I kept driving, thinking about what I would do on a date with Nae Fitzgerald. After driving for several tens of minutes, I arrived at the Human Resources Development Center and Yukiko greeted me.</p>
 <p>"Ryuta, did you have fun?"</p>
 <p>"Yes, I had a lot of fun."</p>
 <p>Seeing Yukiko wearing a Dongtan-style dress that fit her body perfectly, I wanted to lift her skirt and fuck her right away, but it was impossible because the housekeeper was there. It's a bit of a shame.</p>
-<p>"I'll do it for you later at night~♥"</p>
+<p>"I'll do it for you later at night♥"</p>
 <p>I was annoyed that Yukiko was deliberately swaying her hips and seducing me, telling me to wait until night, but there was nothing I could do. I nodded and went up to my room.</p>
 <p>I had already showered at the pension, so I didn't have much to do, so I decided to do some of the studying that I hadn't been able to do over the weekend.</p>
 <p>No, I'm not even a student, but I have to study like this, so it's a little... no, it's very annoying, but since I've been given a mission, I have to do it properly. Of course, before that....</p>
@@ -84,4 +84,4 @@ chapter = 287
 <p>Lastly, Nagumo Sian was the head of my only friendly force within the Taira Group, excluding Yukiko, and she was very busy, so it was not easy to meet her. It meant that if I didn't meet her this time, I wouldn't know when I would meet her again.</p>
 <p>-------</p>
 <p>B-cuts left over from making Minamoto Lisa's cover!</p>
-<p>I like Gyaru girls~!!</p>
+<p>I like Gyaru girls!!</p>

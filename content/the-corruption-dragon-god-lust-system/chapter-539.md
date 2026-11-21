@@ -79,13 +79,13 @@ chapter = 539
 
 <p>But in his hands, they were just panting, wet beauties, their virgin pussies, fat and tight, already soaked, waiting for his cock.</p>
 
-<p>“Ah… nghnn~~ are you really serious?” Lingxue asked.</p>
+<p>“Ah… nghnn are you really serious?” Lingxue asked.</p>
 
 <p>Her eyes closed instinctively as she felt something grow in Qingyi’s pants, something long and thick.</p>
 
 <p>“About what?”</p>
 
-<p>“About aghnnn~~ taking us both as your wives… even if it’s for Xueyao…”</p>
+<p>“About aghnnn taking us both as your wives… even if it’s for Xueyao…”</p>
 
 <p>“What… you don’t want to?” Qingyi turned his face slightly, his hands still running over her curves.</p>
 
@@ -111,11 +111,11 @@ chapter = 539
 
 <p>Immediately and without any resistance, her mouth opened, taking the bulbous tip into herself, her tongue curling around it as her cheeks sank in with suction.</p>
 
-<p>“M-Matriarch… I can’t resist~~” Lanyin moaned in Qingyi’s hands.</p>
+<p>“M-Matriarch… I can’t resist” Lanyin moaned in Qingyi’s hands.</p>
 
 <p>Looking down, she realized that Lingxue had also lost herself…</p>
 
-<p>“So…” Lingxue let the tip of Qingyi’s cock slip from her lips, her voice sweet and honeyed. “Big~~”</p>
+<p>“So…” Lingxue let the tip of Qingyi’s cock slip from her lips, her voice sweet and honeyed. “Big”</p>
 
 <p>Would she be able to take all of that inside her? Was Xueyao able to handle that?</p>
 

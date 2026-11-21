@@ -5,7 +5,7 @@ weight = 671
 chapter = 671
 +++
 
-<p>"Lady Kitsara is ready to peg me, is she~?" Quinlan mused out loud, his voice laced with amusement as he observed the blindfolded, gagged, and thoroughly restrained foxkin woman.</p>
+<p>"Lady Kitsara is ready to peg me, is she?" Quinlan mused out loud, his voice laced with amusement as he observed the blindfolded, gagged, and thoroughly restrained foxkin woman.</p>
 <p>After uttering her sacrilegious words, despite her best efforts to resist, Kitsara swiftly found herself bound to an intricate contraption with her four limbs stretched and secured by sturdy ropes. The device held her in a vulnerable position, with her arms and legs parted wide apart, giving her tormentor perfect access to any part of her body he so wished to reach.</p>
 <p>"MMMMMM!" Kitsara's muffled protests were swallowed by the gag in her mouth, reducing her words to nothing more than guttural, animalistic noises.</p>
 <p>"Emily, could you bring us a wine bottle and glasses?" Ayame asked the maid, who nodded happily and left the room.</p>

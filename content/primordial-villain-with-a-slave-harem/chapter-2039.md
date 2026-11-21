@@ -20,7 +20,7 @@ chapter = 2039
 <p>"Spending all that time alone with Quin gave you a sharp tongue that will never leave you, hmm, self-proclaimed jade beauty of Zhenwu?"</p>
 <p>She crossed to the bench, gathering her skirt as she settled sideways across Quinlan’s lap. Both arms slipped around his neck, and her golden hair brushed his cheek as she leaned close.</p>
 <p>His hand found the bare thigh exposed by her displaced skirt, stroking its smooth curve while he drew her against him. Her perfect skin pressed against his chest, and her blue eyes were bright with mischief meant for him.</p>
-<p>"Let us begin the meeting, Quin~"</p>
+<p>"Let us begin the meeting, Quin"</p>
 <p>Sera rested her head against his neck with a contented hum. Quinlan took a slow inhale of her hair’s wonderful smell before looking toward the two girls at the table.</p>
 <p>"Let us. But first, Feng, Felicity... As Sera said, Nessa is far too much of an airhead to pose a threat."</p>
 <p>Feng began nodding to him, accepting his decision.</p>

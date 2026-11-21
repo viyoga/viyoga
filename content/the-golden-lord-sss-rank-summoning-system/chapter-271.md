@@ -38,7 +38,7 @@ chapter = 271
 <p>What shocked Aurora the most was, honestly, seeing her master’s full lips claimed by those of that human.</p>
 <p>Their tongues were intertwined in a deep, passionate kiss—wet and brazen, the slick, lewd sounds of their joined mouths utterly shameless in the open air.</p>
 <p>Hearing Aurora’s voice, Arwen finally paused for a moment, her lips parting from Ethan’s with a soft, wet sound, a thin strand of saliva briefly bridging them before snapping.</p>
-<p>"Ah... my naughty human lord... it seems you’ve managed to impress me, hahaha~ I shouldn’t have doubted you..." Arwen sighed, her eyes drifting until they rested on Aurora.</p>
+<p>"Ah... my naughty human lord... it seems you’ve managed to impress me, hahaha I shouldn’t have doubted you..." Arwen sighed, her eyes drifting until they rested on Aurora.</p>
 <p>She pulled away slightly from Ethan and flashed a smile filled with pain, longing, and, at the same time, indescribable happiness.</p>
 <p>She didn’t know how Ethan had managed to do this, but at that moment, it hardly mattered.</p>
 <p>Her heart was beating fast, and she felt as if everything she had lost in death had already been returned to her.</p>

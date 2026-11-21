@@ -18,7 +18,7 @@ chapter = 269
 <p>Of course, the most ideal one would be Nidhogg.</p>
 <p>‘I will talk with Aqua later about this.’</p>
 <p>She was about to continue swimming in her thoughts when she felt something twitch in her while Sol’s large and warm hands covered her breast before sharply pinching her nipples.</p>
-<p>“Ah~!”</p>
+<p>“Ah!”</p>
 <p>Rather than pain, this action prompted Kiyohime to shudder and moan lightly.</p>
 <p>“Focus on me.”</p>
 <p>Even though she was the one mounting him, Kiyohime couldn’t help but feel like he was the one in total control of the situation. This was a rather novel feeling for her.</p>
@@ -26,7 +26,7 @@ chapter = 269
 <p>Slowly adjusting herself, she progressively began to increase her movements. Up and down, left and right, the hot and hard shaft of Sol kept going in and out of her most secret place, eliciting cries and moans of pleasure from her.</p>
 <p>For Sol, the sensations were heavenly. Sometimes she would tighten up and sometimes she would simply keep him warm. Like a velvet glove, she encompassed him in her warmth.</p>
 <p>The more she moved, the higher the pleasure she felt. She could feel that she was slowly reaching the breaking point.</p>
-<p>“Sol…Nn~!”</p>
+<p>“Sol…Nn!”</p>
 <p>Kiyohime uttered his name and kept repeating it again and again, without pause until she felt all the build-up pleasure explode and collapsed on Sol while breathing hard and fast.</p>
 <p>Of course, even though she was done, Sol was far from it. Taking out his penis and moving from underneath her, Sol now stood behind Kiyohime and watched his handiwork.</p>
 <p>Kiyohime was clearly completely out of it now and from her entrance, a copious amount of cloudy white liquid was slowly seeping out, giving her an even more erotic appearance.</p>
@@ -34,15 +34,15 @@ chapter = 269
 <p>‘It has been quite a while.’</p>
 <p>He pondered briefly before shaking his head. Dragon or not, this wasn’t something that should be used without some preparation. He wished for Kiyohime to keep a great memory of their first time together after all.</p>
 <p>Licking his lips, he separated her asscheeks and with one swift stroke, plunged directly in her again.</p>
-<p>“Ah~! Again?”</p>
+<p>“Ah! Again?”</p>
 <p>Sol grinned mercilessly. The continued movement of his hips was an answer on its own.</p>
-<p>"Nn~! Please! Ah~ !"</p>
+<p>"Nn! Please! Ah !"</p>
 <p>Sol chuckled, “You are begging me to stop but your body is rather sincere.”</p>
 <p>Kiyohime felt ashamed but could offer no comeback. Indeed, every time Sol rammed in her, her hole would tighten up, showing how much pleasure he was bringing her.</p>
 <p>“Your insides are shaking like crazy.”</p>
 <p>He firmly held onto her hips as he bore deeper into her. Her juices, mixed with his semen, flowed down from her buttocks. As he continued to thrust, the viscous fluids created a constant moist slapping sound.</p>
 <p>Her lips no longer let out words of protest. Instead, she mewled and moaned in pleasure. He slowly changed the direction of his thrusts as he penetrated deeper. He concentrated on her panting and groaning, and stubbornly hammered into her most sensitive spot.</p>
-<p>“Ah! Aah~!”</p>
+<p>“Ah! Aah!”</p>
 <p>Her insides squeezed and started to spasm. He saw that she was about to climax and plunged deeper into her.</p>
 <p>“!”</p>
 <p>Her body froze and she cried. Her entire body began to tremble. The moment she reached her limits, Sol also let go of all restraint and released himself inside her.</p>
@@ -55,7 +55,7 @@ chapter = 269
 <p>Giving a small laugh, Sol lightly slapped Kiyohime's bubble butt, and resumed his movements.</p>
 <p>One shouldn’t forget who was really the stronger one between the two of them. If Kiyohime really wanted him to stop, then there was nothing that could have been done to force her. She could literally blast him across half the ocean if she so wished after all.</p>
 <p>Bringing his arms towards her round breasts, Sol continued to piston while pinching and toying with her nipples.</p>
-<p>“Ah~! Sl-slow...down. Please!”</p>
+<p>“Ah! Sl-slow...down. Please!”</p>
 <p>Ignoring her cute pleas, his hip loudly slapped against hers.</p>
 <p>“Ugh! so deep!”</p>
 <p>Kiyohime groaned.</p>

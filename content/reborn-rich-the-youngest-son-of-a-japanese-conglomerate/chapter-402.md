@@ -39,7 +39,7 @@ chapter = 402
 <p>Then I have to give it to someone, but the only person I know who uses Strength, Stamina, and Resistance stats, and even uses the Abyss, is just one person. First, I took a picture of the milk pudding.</p>
 <p>Taira Ryuta: Master, come quickly and eat this.</p>
 <p>Taira Ryuta: Photo</p>
-<p>Rinka-ttang: What is this! Did you make it yourself? Amazing~?</p>
+<p>Rinka-ttang: What is this! Did you make it yourself? Amazing?</p>
 <p>Rinka-ttang: I'm a little busy right now! Pack it up nicely and send it to me!</p>
 <p>Taira Ryuta: Then I'll put it in an ice pack and send it to you, so tell me your address.</p>
 <p>Rinka-ttang: Okay, I'll tell you my address, so be sure to send it!!</p>

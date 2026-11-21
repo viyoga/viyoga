@@ -27,7 +27,7 @@ chapter = 288
 <p>Jason’s voice came from the other end of the call.</p>
 <p>[Hey, mum. Sounds like you missed me.]</p>
 <p>Mira’s eyes watered, and she fell to her knees and put her hand over her mouth when she felt her legs go weak! A feeling of pure joy filled her heart, and she couldn’t stop herself from laughing from how happy she was!</p>
-<p>"Welcome back, baby! Sniff~ I missed you so much!"</p>
+<p>"Welcome back, baby! Sniff I missed you so much!"</p>
 <p>....</p>
 <p>Jason stayed on the call with his mother for a while, and he allowed Gina to speak ot Mira as well since JAson knew that Mira was also really worried aboubt Gina. Gina answered a lot of questions about how she was doing, and she just managed to evade any questions about what really happened to her. Mira made Gina promise that they would come visit once things had settled down, and Gina was more than happy to make that promise. Jason and Gina ended up waiting for close to an hour before Riyala finally finished healing the final person, and Jason took some more time talking to Liam about the plans for the Gate raid the next day. Riyala’s mana had been completely depleted by the time she was done with healing everyone and Jason could see that the superhumans there were deeply grateful for what she had done.</p>
 <p>Even though none of the superhumans knew who Riyala was, they shook her hands and laughed with her as they thanked her for her help! But Riyala had a hard time accepting all the praise and thanks since the superhumans didn’t know that she was the reason why the dragon riders had come here in the first place! Riyala wondered if they would still thank her if they knew the truth, and she begged Jason to take her away from there at the first opportunity she had!</p>

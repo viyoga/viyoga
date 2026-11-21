@@ -35,7 +35,7 @@ chapter = 219
 
 <p>Without even asking permission, he grabbed her delicate waist, his fingers sinking into the soft skin as he pulled her onto his lap.</p>
 
-<p>“Nghnn~~ you’re not my husband, you shameless junior,” she moaned, already feeling a large, throbbing bulge pressing against her fat, juicy ass.</p>
+<p>“Nghnn you’re not my husband, you shameless junior,” she moaned, already feeling a large, throbbing bulge pressing against her fat, juicy ass.</p>
 
 <p>“No? And senior was dressed like that for a man who wasn’t even her husband? Doesn’t that make senior a little slut?” he teased, grabbing her huge breasts and squeezing, his hands barely able to encapsulate half their incomparable size.</p>
 
@@ -43,7 +43,7 @@ chapter = 219
 
 <p>In the end, she could only lower her head, blushing deeply.</p>
 
-<p>“I-I’m your senior, you- mghnn~~ should respect me…” She spoke in a trembling voice.</p>
+<p>“I-I’m your senior, you- mghnn should respect me…” She spoke in a trembling voice.</p>
 
 <p>“I’ll respect you, little slut Biyue.” Qingyi finally let go of her breasts, making her think that he would finally give her a break.</p>
 
@@ -61,7 +61,7 @@ chapter = 219
 
 <p>It was certainly one of the tightest pussies he had ever experienced, second only to Ruxue and Qingxue.</p>
 
-<p>“Aghnnn~~” Tang Biyue let out a moan that sounded more like a scream, her body overcome by an explosion of pleasure and pain, her eyes watering as she completely lost the will to struggle.</p>
+<p>“Aghnnn” Tang Biyue let out a moan that sounded more like a scream, her body overcome by an explosion of pleasure and pain, her eyes watering as she completely lost the will to struggle.</p>
 
 <p>[You have taken the purity of an expert with a cultivation far greater than your own and who has guarded herself for over two hundred and fifty years, +1,500,000 lust points!]</p>
 
@@ -85,7 +85,7 @@ chapter = 219
 
 <p>With one final movement, he finally reached orgasm, his cock spurting great bursts of cum into her womb, at the same time as she also orgasmed, her pussy squirting non-stop.</p>
 
-<p>“Mmmmfff~~ ahhh!” she moaned, her body shaking violently as waves of pleasure consumed her.</p>
+<p>“Mmmmfff ahhh!” she moaned, her body shaking violently as waves of pleasure consumed her.</p>
 
 <p>Grunting softly, Qingyi pulled his cock back, which slipped out of Biyue’s tight pussy with a wet pop, a small stream of sperm leaking between the fat, pale outer lips of her pussy.</p>
 

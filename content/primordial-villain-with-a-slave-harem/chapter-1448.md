@@ -62,12 +62,12 @@ chapter = 1448
 <p>She blinked, then focused on Quinlan, who was still holding her in a careful carry. "Master… What's going on?"</p>
 <p>"You passed out while helping me. Do you remember?"</p>
 <p>Her brow creased. Then her eyes lit. "Ah. I was summoned to help you defeat the promiscuous demon."</p>
-<p>"Hello~" Nyxara sang from the side and even waved happily.</p>
+<p>"Hello" Nyxara sang from the side and even waved happily.</p>
 <p>Scar turned her head. "Yeah. Her."</p>
 <p>Then her eyes widened. "Wait. Master. We won?!"</p>
 <p>Quinlan smiled. "Yes. Thanks to you."</p>
 <p>Scar shook her head quickly. "It was only a small part. Any soul soldier could've done it."</p>
-<p>"I doubt that~" Nyxara purred.</p>
+<p>"I doubt that" Nyxara purred.</p>
 <p>"Shush, demon," Scar hissed.</p>
 <p>"For once, I agree with the succubus," Quinlan smiled.</p>
 <p>Scar stiffened and looked away. "Th-thank you, Master. I can walk now."</p>

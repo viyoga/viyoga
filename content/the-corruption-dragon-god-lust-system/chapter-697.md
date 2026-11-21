@@ -11,7 +11,7 @@ chapter = 697
 
 <p>The plump, protruding lips of her vulva—two soft pillows clinging to the metal that concealed the pink interior of her pussy—squeezed against the bulge in his pants, deepening the contact between her clit and the cold metal.</p>
 
-<p>“Nghnn~~ so it’s because of you that the girls made me wear this… undignified thing, right? ♡” she said, rocking her hips in a gentle sway.</p>
+<p>“Nghnn so it’s because of you that the girls made me wear this… undignified thing, right? ♡” she said, rocking her hips in a gentle sway.</p>
 
 <p>She was dying.</p>
 
@@ -27,7 +27,7 @@ chapter = 697
 
 <p>“But it worked a fucking treat… just be careful not to make them jealous when I keep entering the mind world all the time just to fuck you while you wear this slutty ‘armor’…”</p>
 
-<p>“Aghnn~~” Khaedryss blushed, her eyes rolling back as she pressed hard against Qingyi’s chest, her enormous tits smashing flat against his robes, the obsidian flesh squishing against his torso.</p>
+<p>“Aghnn” Khaedryss blushed, her eyes rolling back as she pressed hard against Qingyi’s chest, her enormous tits smashing flat against his robes, the obsidian flesh squishing against his torso.</p>
 
 <p>The ground beneath his hips gave way, sinking into a crater with a powerful thud as their bodies plunged several inches into the soil.</p>
 
@@ -69,11 +69,11 @@ chapter = 697
 
 <p>Then, without hesitation, he took out a small bottle of lubricant, pulled his hips back, and shoved the tip of the bottle into her anus.</p>
 
-<p>“H-hey! What the hell are you—oghnnn~~” Khaedryss shuddered, feeling the icy liquid flood her ass, followed by the pressure of the fat, bulbous head of Qingyi’s cock.</p>
+<p>“H-hey! What the hell are you—oghnnn” Khaedryss shuddered, feeling the icy liquid flood her ass, followed by the pressure of the fat, bulbous head of Qingyi’s cock.</p>
 
 <p>Her high, elegant cheeks flushed a fiery red as she trembled, a shiver cascading down her spine.</p>
 
-<p>“T-that’s not my pussy, you… aghnn~~”</p>
+<p>“T-that’s not my pussy, you… aghnn”</p>
 
 <p>She barely had time to complain. Qingyi’s hands closed over the fullness of her buttocks, right where the perfect orbs tapered into her delicate waist.</p>
 
@@ -85,7 +85,7 @@ chapter = 697
 
 <p>Every inch of Khaedryss’s anus was completely stuffed by the thick, twenty-three-centimeter monster.</p>
 
-<p>“Nghnn~~ fuck! ♡” she grunted and, with a smooth motion, spun around, her supple body flowing like a cat’s as she reversed the roles, pushing Qingyi against the floor.</p>
+<p>“Nghnn fuck! ♡” she grunted and, with a smooth motion, spun around, her supple body flowing like a cat’s as she reversed the roles, pushing Qingyi against the floor.</p>
 
 <p>Of course, he had let her, since she was still well behind him in strength, a problem he wanted to resolve soon.</p>
 

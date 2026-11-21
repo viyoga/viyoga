@@ -1,5 +1,5 @@
 +++
-title = "Chapter 32: Heh, What A Bad Wife You Are, Auntie~\""
+title = "Chapter 32: Heh, What A Bad Wife You Are, Auntie\""
 weight = 32
 [extra]
 chapter = 32
@@ -31,7 +31,7 @@ chapter = 32
 
 <p>&quot;I might be late, Honey!&quot; he shouted back, waving a final farewell to Morenne while riding his machinery.</p>
 
-<p>&quot;Fufu... take your time, Honey, because I need to take my time here as well~&quot; She waved her hands, a sweet, gentle smile gracing her features.</p>
+<p>&quot;Fufu... take your time, Honey, because I need to take my time here as well&quot; She waved her hands, a sweet, gentle smile gracing her features.</p>
 
 <p>She was truly a devoted wife...really.</p>
 
@@ -41,7 +41,7 @@ chapter = 32
 
 <p>How could Morenne act so incredibly boldly?</p>
 
-<p>&quot;Heh, what a bad wife you are, Auntie~&quot; he teased, stepping closer until he stood right beside her, amused by her lustful demeanor.</p>
+<p>&quot;Heh, what a bad wife you are, Auntie&quot; he teased, stepping closer until he stood right beside her, amused by her lustful demeanor.</p>
 
 <p>&quot;Fufu, I am not, Little Wen. You’re letting your imagination run wild...you are becoming a naughty boy as time passes..&quot; She then turned and walked briskly toward the barn.</p>
 
@@ -55,7 +55,7 @@ chapter = 32
 
 <p>Well, not tiny... she just fell a bit short compared to him.</p>
 
-<p>&quot;Right, the wish Aunt...so how about you help me out with it again? Behind the barn, just like before~&quot; The low timber of his voice caused her face to flush like a ripe tomato.</p>
+<p>&quot;Right, the wish Aunt...so how about you help me out with it again? Behind the barn, just like before&quot; The low timber of his voice caused her face to flush like a ripe tomato.</p>
 
 <p>She hadn’t expected her bold facade to be entirely useless against him.</p>
 
@@ -63,11 +63,11 @@ chapter = 32
 
 <p>&quot;Fufu, you are incredibly naughty to speak to your aunt that way, Little Wen.&quot;</p>
 
-<p>&quot;Then are you going to refuse to help me fulfill my desire, Auntie? You started this whole thing, so it’s your responsibility to see it through to the end~&quot;</p>
+<p>&quot;Then are you going to refuse to help me fulfill my desire, Auntie? You started this whole thing, so it’s your responsibility to see it through to the end&quot;</p>
 
-<p>&quot;Fufu... since you put it that way, Little Wen~, I suppose you belong to me now.&quot; She slipped behind the barn, and he followed close behind without a moment’s hesitation.</p>
+<p>&quot;Fufu... since you put it that way, Little Wen, I suppose you belong to me now.&quot; She slipped behind the barn, and he followed close behind without a moment’s hesitation.</p>
 
-<p>&quot;So I will gladly take full responsibility~&quot; She dropped into a squat, her fingers moving slowly to peel down his trousers like a real pro.</p>
+<p>&quot;So I will gladly take full responsibility&quot; She dropped into a squat, her fingers moving slowly to peel down his trousers like a real pro.</p>
 
 <p>’Ohoh! Now this is exactly what I love!’ Owen hadn’t anticipated that she would become this bold entirely of her own volition.</p>
 
@@ -75,13 +75,13 @@ chapter = 32
 
 <p>How could she behave like such a temptress when she had a husband waiting at home?</p>
 
-<p>&quot;Fufu... I know exactly what is running through that mind of yours, Little Wen~&quot; She slowly wrapped her palms around the pulsing, rock-hard shaft.</p>
+<p>&quot;Fufu... I know exactly what is running through that mind of yours, Little Wen&quot; She slowly wrapped her palms around the pulsing, rock-hard shaft.</p>
 
 <p>&quot;Hoh, then why are you acting like such a total slut?&quot; Owen didn’t care what labels he threw at her; if she was daring enough to take the initiative, then a few dirty words certainly weren’t going to hurt her feelings!</p>
 
-<p>&quot;You see~, my husband is incredibly lacking in this particular department...&quot; She pooled some saliva into her palm to make the handjob much slicker and easier.</p>
+<p>&quot;You see, my husband is incredibly lacking in this particular department...&quot; She pooled some saliva into her palm to make the handjob much slicker and easier.</p>
 
-<p>&quot;Hmm... then why don’t you spill the secrets now? You’re completely unstoppable at this point, you know~&quot; Owen felt as though he were dreaming.</p>
+<p>&quot;Hmm... then why don’t you spill the secrets now? You’re completely unstoppable at this point, you know&quot; Owen felt as though he were dreaming.</p>
 
 <p>Morenne was just going with the flow like water.</p>
 

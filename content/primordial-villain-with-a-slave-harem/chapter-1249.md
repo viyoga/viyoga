@@ -43,7 +43,7 @@ chapter = 1249
 <p>"Are you saying Quin’s mommies, Miri and Lumi, are the ideal Milf heroines?" Jasmine giggled.</p>
 <p>"Let’s move on from the topic of giant tits, shall we? Quin doesn’t care for cow udders; he appreciates all sizes equally. Just look at the first girl he tried to flirt with after arriving in our world..." Lucille grumbled while sending Ayame’s modest chest a glance, not too happy with her elven friend. "And we’ll have a chat, just the two of us."</p>
 <p>"Hey, if we want to wake Quin as soon as possible, then maybe we should continue the topic of breasts, no?" Kitsara mused slyly.</p>
-<p>The Slutty Foxy was ignored. Sulking a bit, she decided to change the topic. "So we have nine full women in our midst now. No one is a maiden any longer, hmm? How was it? Tell us~"</p>
+<p>The Slutty Foxy was ignored. Sulking a bit, she decided to change the topic. "So we have nine full women in our midst now. No one is a maiden any longer, hmm? How was it? Tell us"</p>
 <p>Jasmine instantly went deeply red, realizing she had become the new topic of conversation.</p>
 <p>But, surprisingly, as if she no longer oozed anxious virgin girl energy, she managed to still her racing heart very quickly. She raised her hands to her chest, sporting the most tender smile and wistful eyes.</p>
 <p>"It was... wonderful," she sighed, the word came out of her delicate lips rich with emotion.</p>

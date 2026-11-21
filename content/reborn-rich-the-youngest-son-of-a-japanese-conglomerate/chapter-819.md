@@ -79,9 +79,9 @@ chapter = 819
 <p>Athena Mannerheim put her Hands on her Waist as if to ask anything, and made an Expression that she was not hiding anything. I smiled slightly at the sight and opened my Mouth.</p>
 <p>Takakusaki Athena also did separate Learning and made a new Model LORA ㅎㅎㅎ</p>
 <p>Kujo Kina Belly Dancer + Breast Covering requested by Gojoy-nim</p>
-<p>Starting with the Belly Dancer~!</p>
+<p>Starting with the Belly Dancer!</p>
 <p>When I told her to dance, she took a Martial Arts Posture ㅎㅎㅎ</p>
-<p>Breast Covering~!</p>
+<p>Breast Covering!</p>
 <p>I reduced the Muscles a bit because they said they were too much ㅎㅎㅎ</p>
-<p>Kwonma Rinka Sabu cross-legged requested by seungj050-nim~!</p>
-<p>Kkiyot~!</p>
+<p>Kwonma Rinka Sabu cross-legged requested by seungj050-nim!</p>
+<p>Kkiyot!</p>

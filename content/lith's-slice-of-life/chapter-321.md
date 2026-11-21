@@ -11,7 +11,7 @@ The sound of flesh clapping together was being reverberated throughout the bathr
 
 Alexandra's back was against the wall and one of her legs was raised by Lith which revealed her pink pussy being spread by Lith's dick. Her boobs jiggled with each thrust from Lith and she supported herself by wrapping her arms around Lith's neck.
 
-"Darling~ Darling~ Darling~"
+"Darling Darling Darling"
 
 Alexandra moaned out in satisfaction and pleasure with each thrust from Lith. She was feeling too good and couldn't think of anything but Lith.
 
@@ -19,11 +19,11 @@ Lith had his mouth latched onto her neck and was sucking her blood. He was givin
 
 A few minutes later, Alexandra cried out,
 
-"Ahh~ Ahh~ Darling~ I am cumminggg~"
+"Ahh Ahh Darling I am cumminggg"
 
 Spurrrt!
 
-"Ahhhh~"
+"Ahhhh"
 
 Alexandra climaxed and moaned. Her legs gave out and she wasn't able to stand properly.
 

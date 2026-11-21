@@ -66,14 +66,14 @@ chapter = 1732
 <p>The realization hit Ragnar before the healing did.</p>
 <p>This evil bitch wanted to do to him exactly what he'd ordered done to Black Fang.</p>
 <p>"No!"</p>
-<p>"Yes~" she sang and golden light washed over his back and the flesh knitted shut.</p>
+<p>"Yes" she sang and golden light washed over his back and the flesh knitted shut.</p>
 <p>The peeling strips of skin reattached, the muscle sealed, the ooze stopped flowing, and for three seconds the dwarven king's back was starting to look whole again.</p>
 <p>Then the razor returned, and this time it didn't cut lines.</p>
 <p>Quinlan started at the shoulders, the ice edge slipping beneath the skin at the trapezius and separating it from the muscle in a single long pull, peeling an entire sheet of flesh away from the back in one piece.</p>
 <p>The skin came free with a wet, heavy sound that carried farther than the wailing, lifting from the meat and folding outward under its own weight until it hung from Ragnar's flanks like wings made of his own hide, the exposed muscle glistening raw in the winter light.</p>
 <p>The sound that left the dwarf king was beyond wailing. His throat had exceeded its capacity to process what was happening and the noise that came through was high and hitching and gargling on the dark fluid that rose with every convulsion, an animal sound that had no king left in it.</p>
 <p>"Sera."</p>
-<p>"Yes~"</p>
+<p>"Yes"</p>
 <p>Golden light. The skin crawled back and sealed.</p>
 <p>Quinlan reached into his pocket ring and pulled out a vial.</p>
 <p>The glass was small and dark, filled with a liquid so deeply violet it was nearly black.</p>

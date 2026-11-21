@@ -39,7 +39,7 @@ chapter = 785
 
 <p>Back at the community, his mother-in-law and aunt went to the teahouse. Even if they weren’t playing cards tonight, as the boss, she still needed to check in.</p>
 
-<p>&quot;Hubby~...&quot;</p>
+<p>&quot;Hubby...&quot;</p>
 
 <p>The shared bath had kindled their desires. After washing up, they lay on the bed, and Luis pulled his wife into a kiss.</p>
 
@@ -85,9 +85,9 @@ chapter = 785
 
 <p>Ruth panted softly, peeling off her face mask and wiping her face with a wet wipe.</p>
 
-<p>When she looked up, her eyes were full of spring’s allure. Luis sucked on her nipple and said with a lecherous grin, &quot;Mom, take off my clothes~!!&quot;</p>
+<p>When she looked up, her eyes were full of spring’s allure. Luis sucked on her nipple and said with a lecherous grin, &quot;Mom, take off my clothes!!&quot;</p>
 
-<p>&quot;Always up to no good... hmph~&quot;</p>
+<p>&quot;Always up to no good... hmph&quot;</p>
 
 <p>The beautiful mature mother-in-law scolded him coyly, but still obediently began undressing her son-in-law. Luis licked his lips as he stripped completely naked, then promptly pounced on her and pulled off her last tiny pair of panties.</p>
 
@@ -101,7 +101,7 @@ chapter = 785
 
 <p>Though his wife had licked him clean, Luis hadn’t washed, and the scent was still strong. Ruth tasted it as she sucked his cock, then shot her son-in-law a seductive glare.</p>
 
-<p>Luis shamelessly grinned. &quot;Mom, I can’t go too hard with her. You, as her mother, should take on more of the firepower~&quot;</p>
+<p>Luis shamelessly grinned. &quot;Mom, I can’t go too hard with her. You, as her mother, should take on more of the firepower&quot;</p>
 
 <p>&quot;Rascal... hmph!!!&quot;</p>
 
@@ -129,7 +129,7 @@ chapter = 785
 
 <p>Her hands caressed his thighs and body as she repeatedly stuck out her tongue to lick the head of his cock each time it emerged from between her breasts.</p>
 
-<p>&quot;Mom, I want to fuck your mouth~!!!&quot;</p>
+<p>&quot;Mom, I want to fuck your mouth!!!&quot;</p>
 
 <p>After a while of tit-fucking, once she’d recovered a bit, Luis pulled her up.</p>
 
@@ -141,7 +141,7 @@ chapter = 785
 
 <p>And every time he pulled back, her soft tongue immediately chased after the head, licking it eagerly—the interaction was electric.</p>
 
-<p>&quot;Mom, you’re so good... I’m about to cum~&quot;</p>
+<p>&quot;Mom, you’re so good... I’m about to cum&quot;</p>
 
 <p>Under that stimulation, Luis couldn’t hold back anymore. He focused on the building pleasure, thrusting brutally a few times until a bolt of ecstasy shot through his entire body.</p>
 
@@ -159,21 +159,21 @@ chapter = 785
 
 <p>Ruth rested against her son-in-law’s chest only after his cock had gone half-soft, rubbing her slightly sore cheeks.</p>
 
-<p>Luis held his mother-in-law’s plush body, one hand smoking a post-coital cigarette while the other kneaded her heavy breasts. He grinned lecherously, &quot;Hehe~ If Mom likes it, of course I saved up more~&quot;</p>
+<p>Luis held his mother-in-law’s plush body, one hand smoking a post-coital cigarette while the other kneaded her heavy breasts. He grinned lecherously, &quot;Hehe If Mom likes it, of course I saved up more&quot;</p>
 
-<p>&quot;Pfft... who likes that nasty stuff~!&quot;</p>
+<p>&quot;Pfft... who likes that nasty stuff!&quot;</p>
 
 <p>Ruth huffed playfully.</p>
 
-<p>&quot;Mom, tonight I want to do it here~&quot;</p>
+<p>&quot;Mom, tonight I want to do it here&quot;</p>
 
 <p>Luis laughed lewdly, his wandering hand traveling downward, stroking his mother-in-law’s asshole amid her moans.</p>
 
-<p>&quot;Bad boy... isn’t having the front enough for you~&quot;</p>
+<p>&quot;Bad boy... isn’t having the front enough for you&quot;</p>
 
 <p>Ruth said, her face full of spring passion.</p>
 
-<p>&quot;Mom, it’s not enough! I want to fuck every single part of you~!!!&quot;</p>
+<p>&quot;Mom, it’s not enough! I want to fuck every single part of you!!!&quot;</p>
 
 <p>Luis teased her assertively.</p>
 

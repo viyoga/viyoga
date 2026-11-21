@@ -47,7 +47,7 @@ chapter = 273
 
 <p>&quot;A look won’t make me lose any flesh!&quot;</p>
 
-<p>Lily shot her hand back to grope her sister’s chest again, giggling as she said, &quot;You’re my husband’s little wife now, you have to fulfill your duties~&quot;</p>
+<p>Lily shot her hand back to grope her sister’s chest again, giggling as she said, &quot;You’re my husband’s little wife now, you have to fulfill your duties&quot;</p>
 
 <p>The sisters’ playful tussle was indeed full of springtime allure. By the time Luis left the room, he was gritting his teeth so hard they nearly cracked, wishing he could just pounce on them, embrace them both, and make this outrageous situation a reality then and there.</p>
 

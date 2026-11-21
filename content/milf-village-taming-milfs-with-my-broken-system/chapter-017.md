@@ -1,5 +1,5 @@
 +++
-title = "Chapter 17: Ohh... How Are You Going To Help Me? Can We Do That Here Aunt~?"
+title = "Chapter 17: Ohh... How Are You Going To Help Me? Can We Do That Here Aunt?"
 weight = 17
 [extra]
 chapter = 17
@@ -13,7 +13,7 @@ chapter = 17
 
 <p>Its a greatest taboo in the village!</p>
 
-<p>&quot;Hehe... exactly what you heard, Mom. I want to have an unforgettable time with you~&quot; Owen repeated shamelessly as he whispered... looking at her flushed face.</p>
+<p>&quot;Hehe... exactly what you heard, Mom. I want to have an unforgettable time with you&quot; Owen repeated shamelessly as he whispered... looking at her flushed face.</p>
 
 <p>It was completely different from his actual prayer to the wishing well, but who was going to punish his honesty?</p>
 
@@ -25,11 +25,11 @@ chapter = 17
 
 <p>She could feel that theres some fluids leaking inside...it’s a new feeling that she can’t bring anywords to whats happening to her.</p>
 
-<p>&quot;Well... that’s my wish. Can you help me with it~?&quot; Owen poked just below her armpits, right where the squishy, plump titties took over her entire upper body from their sheer size!</p>
+<p>&quot;Well... that’s my wish. Can you help me with it?&quot; Owen poked just below her armpits, right where the squishy, plump titties took over her entire upper body from their sheer size!</p>
 
 <p>&quot;Ekhhn...&quot; A gasping moan escaped her mouth... but she quickly covered her lips to avoid making any further sounds.</p>
 
-<p>&quot;Ohh... I guess Auntie can’t help me~&quot; Owen acted like a hopeless man, projecting the total defeat of a fallen warrior as he slowly walked away.</p>
+<p>&quot;Ohh... I guess Auntie can’t help me&quot; Owen acted like a hopeless man, projecting the total defeat of a fallen warrior as he slowly walked away.</p>
 
 <p>&quot;N-no... Little Wen, I-I can help you...&quot; she said, completely ashamed of herself now.</p>
 
@@ -37,7 +37,7 @@ chapter = 17
 
 <p>But...she can’t back off to what she just said to her Little Wen.</p>
 
-<p>&quot;Ohh... how are you going to help me? Can we do that here Aunt~?&quot; Owen poked her again... he had finally caught something in his net! He hadn’t expected it to be this effective...</p>
+<p>&quot;Ohh... how are you going to help me? Can we do that here Aunt?&quot; Owen poked her again... he had finally caught something in his net! He hadn’t expected it to be this effective...</p>
 
 <p>&quot;O-of course not! Ohh! Forget what I said, Little Wen!&quot; She stood up abruptly... as she began fanning her face with both hands.</p>
 
@@ -67,7 +67,7 @@ chapter = 17
 
 <p>&quot;L-let’s go to my small cabin first... maybe...&quot; She looked left and right as she twirled her fingers, unable to even finish her sentence because she couldn’t bring herself to put those words into her mouth!</p>
 
-<p>&quot;Hehe... okay~&quot; Owen celebrated internally. It was much easier to move boldly than to use his smooth-talking jutsu! It was frying his mind... not to mention it was way too cringe!</p>
+<p>&quot;Hehe... okay&quot; Owen celebrated internally. It was much easier to move boldly than to use his smooth-talking jutsu! It was frying his mind... not to mention it was way too cringe!</p>
 
 <p>Ding!</p>
 
@@ -97,7 +97,7 @@ chapter = 17
 
 <p>Morenne slowly moved into the corner of the barn... her body trembling slightly as she couldn’t believe a taboo scenario like this was about to happen.</p>
 
-<p>&quot; I’m happy that you will fulfill my selfish wish, Auntie~&quot; Owen was already prepared to make his move.</p>
+<p>&quot; I’m happy that you will fulfill my selfish wish, Auntie&quot; Owen was already prepared to make his move.</p>
 
 <p>&quot;Little Wen... this is bad, right? I-I’m married...&quot; she said with hesitation.</p>
 

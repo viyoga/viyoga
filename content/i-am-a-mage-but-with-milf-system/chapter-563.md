@@ -53,7 +53,7 @@ chapter = 563
 
 <p>“Since you asked so nicely,” Julian said with a wicked smile, and then his mouth was on her.</p>
 
-<p>“A-Augh~!” Eleanor cried out, her back arching off the bed as his tongue made contact with her pussy.</p>
+<p>“A-Augh!” Eleanor cried out, her back arching off the bed as his tongue made contact with her pussy.</p>
 
 <p>He planted soft, feather-light kisses along her slick folds, sucking gently at the swollen petals. He licked slowly, parting her and tasting her arousal.</p>
 
@@ -61,7 +61,7 @@ chapter = 563
 
 <p>His tongue explored every fold, every sensitive spot. Eleanor’s hands moved to his hair, gripping tightly, her hips rolling against his mouth.</p>
 
-<p>“Yes,” she gasped. “O-Ohh~ fckk, Julian, you’re sooo—WAAH~!” Her moans were cut short as he sealed his lips around her clit and sucked, making her eyes roll in their sockets.</p>
+<p>“Yes,” she gasped. “O-Ohh fckk, Julian, you’re sooo—WAAH!” Her moans were cut short as he sealed his lips around her clit and sucked, making her eyes roll in their sockets.</p>
 
 <p>“Ahh… Don… Don’t Stoppp.”</p>
 

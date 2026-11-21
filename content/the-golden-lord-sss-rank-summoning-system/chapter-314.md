@@ -20,11 +20,11 @@ chapter = 314
 <p>They might not have been the largest among her sisters’, but they were certainly among the most perfectly shaped.</p>
 <p>Her ass crashed down against his lap with a heavy, wet thud.</p>
 <p>Her plump buttocks flattened against Ethan’s firm thighs for a brief moment, the impact sending shockwaves rippling through the soft flesh, before her cheeks rebounded and lifted back into the air, only to plunge back down onto his cock, swallowing the entire shaft in a single hungry motion.</p>
-<p>"Nghnn~ ah~ f-fuck~ are all humans this big?" Aurora gasped between moans, pressing her palms against Ethan’s firm chest to steady herself.</p>
+<p>"Nghnn ah f-fuck are all humans this big?" Aurora gasped between moans, pressing her palms against Ethan’s firm chest to steady herself.</p>
 <p>Aurora didn’t care about the answer; she’d rather die than know anything other than Ethan’s dick.</p>
 <p>The young Lord, his face buried between the massive tits of the elven healer of the Order of Paladins, replied, "No... most aren’t even close, I’m sure."</p>
 <p>His voice came out muffled by the soft mounds smothering his face, his lips parting slightly before closing hungrily around a puffy, pink nipple, sucking eagerly.</p>
-<p>"Aghnn~~ g-gentler... Lord Ethan..." the elven healer gasped, leaning even further forward and pressing those enormous breasts with redoubled force against his face, nearly drowning him in warm, tender flesh.</p>
+<p>"Aghnn g-gentler... Lord Ethan..." the elven healer gasped, leaning even further forward and pressing those enormous breasts with redoubled force against his face, nearly drowning him in warm, tender flesh.</p>
 <p>Seeing his attention drift away from her, Aurora bit her lower lip, her eyes narrowing with a stubborn determination.</p>
 <p>She wasn’t an especially competitive woman, but still... how could she fall so far behind her sisters?</p>
 <p>Aurora planted both hands firmly on Ethan’s chest and, without hesitating for another second, quickened the rhythm of her hips, riding him with renewed speed.</p>
@@ -33,7 +33,7 @@ chapter = 314
 <p>From the moment the sun set until the moment it rose again, the only thing he did was come inside elven pussies, one after another, resorting to recovery potions to stay firm and hard while drowning in those two hundred elven beauties hungry for human seed.</p>
 <p>The next day, it wasn’t until around noon that he finally finished, exhausted, his heavy mind already overcome by sleep as he used the soft breasts of his beautiful concubines as pillows.</p>
 <p>Unfortunately, he couldn’t sleep for long, for soon a sweet, soft voice came to wake him.</p>
-<p>"Ah... our little husband is such a naughty boy, fufufu~ so this is where he spent the whole night!" Arwen’s silky, sensual voice echoed nearby.</p>
+<p>"Ah... our little husband is such a naughty boy, fufufu so this is where he spent the whole night!" Arwen’s silky, sensual voice echoed nearby.</p>
 <p>"Truly..." Alice’s voice came from right beside her, laced with a playful tone.</p>
 <p>Ethan’s eyes opened slowly, and he let out a weary sigh.</p>
 <p>"How was your night?" he asked with a soft chuckle.</p>

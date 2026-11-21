@@ -31,7 +31,7 @@ chapter = 616
 <p>Even as the clones and swords fought, Lilith and Wukong did not stay idle. With his cloud under his feet and a flying sword under hers, the two of them were zipping around the battlefield exchanging hit and slash one after another, showing the depth of their martial art and weapon technique.</p>
 <p>Because the range of her attack was restricted by her weapon and her swords were blocked by Wukong clones, Lilith found herself in a dangerous position and passiveness as she had to constantly defend against the ever-changing range of Wukong’s magical staff.</p>
 <p>Not only could the Ruyi Jingu Bang grow and shrink at will, it could also be increase and decrease its thickness. Something she learned the hard way as she was swatted like a fly by what looked like a mountain and crashed down.</p>
-<p>Cough~This is not good. I would have been in really bad shape if this was my previous body.</p>
+<p>CoughThis is not good. I would have been in really bad shape if this was my previous body.</p>
 <p>She coughed and cleared her throat from the congested blood and immediately moved away as a giant pillar came down where she previously was. Her body felt horrible but a body recreated with divine energy, dragon blood and phoenix nirvana would never break down so easily.</p>
 <p>Something that would have broken her bones in the past was now just a minor inconvenience.</p>
 <p>I understand now why Sol loves to act like a meat shield.</p>
@@ -90,7 +90,7 @@ chapter = 616
 <p>Wukong did not even bother avoiding her attack. Even if her arm was covered in sword intent, it was impossible for it to be as strong as it would have been had she used a weapon.</p>
 <p>“Haha…”</p>
 <p>He simply laughed and ignored the small amount of pain that was transferred to him before leaning down and headbutting Lilith causing her to stagger.</p>
-<p>“Kuh~!”</p>
+<p>“Kuh!”</p>
 <p>Lilith groaned, her forehead was bleeding. This was proof that not all the changes she received were positive. In the past, cladding herself in sword intent had been one of her strongest techniques as she saw herself as a sword and her King name reflected this reality.</p>
 <p>Now though, she was a sword master and while her strength with a sword in hand increased, her body lost in sharpness.</p>
 <p>I simply need to change gears.</p>

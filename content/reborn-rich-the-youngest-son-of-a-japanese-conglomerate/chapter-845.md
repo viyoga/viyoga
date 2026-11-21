@@ -5,7 +5,7 @@ weight = 845
 chapter = 845
 +++
 
-<p>"I'll be going, Orabeoni~! It's February now, so Graduation is soon. We'll meet at the group meeting soon. Still, don't abandon the name Ryuta. Because you have to marry me with that name♥" Taira Kanna, with a deeply satisfied expression like a full Cat, uttered the chilling word "marriage" and returned to the Tairaga mansion. As Taira Kanna said, since today was Sunday and it was February, Graduation wasn't far off. Japanese graduations usually take place in March, but uniquely, St.</p>
+<p>"I'll be going, Orabeoni! It's February now, so Graduation is soon. We'll meet at the group meeting soon. Still, don't abandon the name Ryuta. Because you have to marry me with that name♥" Taira Kanna, with a deeply satisfied expression like a full Cat, uttered the chilling word "marriage" and returned to the Tairaga mansion. As Taira Kanna said, since today was Sunday and it was February, Graduation wasn't far off. Japanese graduations usually take place in March, but uniquely, St.</p>
 <p>Francis Girls' Academy held theirs a bit earlier, around mid-February. As it was an academy for Young Ladies, it seemed the Graduation was a bit earlier so they wouldn't be kept at school for too long, allowing them to graduate early and receive separate education from prestigious families, or go on a short language study abroad before the university entrance season, or take a luxurious trip before going to university. This cohort's Graduation was on the 16th, a Monday. With only about two weeks left, I had to finish things well.</p>
 <p>It was a slightly bittersweet feeling. Shortly after Taira Kanna left, Naruse Shiyo and Sakagami Rena came to my Home. This was to discuss the Contact received from Athena Mannerheim this morning.</p>
 <p>"Yuka and Diana didn't come?"</p>
@@ -41,4 +41,4 @@ chapter = 845
 <p>At my Words, Sakagami Rena opened her Mouth with an Expression that said there was nothing to Worry about.</p>
 <p>"Since we succeeded in attaching K to Anyaji, I think we can proceed with the Operation we had planned for this. Since we have Time, we can make more thorough Preparations."</p>
 <p>Yes, as Sakagami Rena said, we had meticulously planned to prepare for Anyaji's Attack, so we just needed to push forward with that.</p>
-<p>Requested by MidNightSKY-nim, the Phantom Thief Mother and daughter's nude Zero Two! But... I was too lazy to put seaweed on, so I made them wear panties haha. Starting with Nae Fitzgerald~! Arisu~!</p>
+<p>Requested by MidNightSKY-nim, the Phantom Thief Mother and daughter's nude Zero Two! But... I was too lazy to put seaweed on, so I made them wear panties haha. Starting with Nae Fitzgerald! Arisu!</p>

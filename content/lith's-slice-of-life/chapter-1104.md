@@ -11,7 +11,7 @@ A blonde-haired lady with red eyes was being stared intently by a raven-haired l
 
 Luna didn't say or ask anything. She moved her hand down and unbuttoned Rivera's blouse, quickly having her tits pop out in the open.
 
-She trembled in response, and shook even more intensely when Luna suddenly sucked on her nipple and pulled it while biting it. "Ahhh~!" Rivera moaned and had her pants form a wet spot in between her legs.
+She trembled in response, and shook even more intensely when Luna suddenly sucked on her nipple and pulled it while biting it. "Ahhh!" Rivera moaned and had her pants form a wet spot in between her legs.
 
 Lith felt turned on by what the ladies in front were doing, and the brunt of it had to be handled by the poor Fei. Lith wasn't even shying away anymore or felt any shame. He unzipped his pants and let his erect cock spring into action, catching Fei's eyes.
 

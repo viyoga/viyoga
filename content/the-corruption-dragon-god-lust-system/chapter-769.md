@@ -5,7 +5,7 @@ weight = 769
 chapter = 769
 +++
 
-<p>"AGHN! FUCK~~! FUCK~~! FUCK~~! OH HEAVENS... OGHNN~~ BABY~~ AH... AH... G-GENTLER NGHNN~~ N-NO... F-FASTER! FUCK RUXUE’S FAT LITTLE PUSSY HARD!"</p>
+<p>"AGHN! FUCK! FUCK! FUCK! OH HEAVENS... OGHNN BABY AH... AH... G-GENTLER NGHNN N-NO... F-FASTER! FUCK RUXUE’S FAT LITTLE PUSSY HARD!"</p>
 
 <p>Ruxue’s sweet, obscene voice filled the silence of the spaceship’s cabin, her uncontrolled moans echoing alongside the wet, rhythmic slaps of flesh against flesh.</p>
 
@@ -41,7 +41,7 @@ chapter = 769
 
 <p>He squeezed his eyes shut as the dam finally broke, jet after jet of hot semen erupting from his cock and flooding Ruxue’s tight womb.</p>
 
-<p>"Ah~ so much cum~~ fufufu~" Ruxue gasped, her body going completely limp in his grip, drained of every last shred of strength.</p>
+<p>"Ah so much cum fufufu" Ruxue gasped, her body going completely limp in his grip, drained of every last shred of strength.</p>
 
 <p>She could feel Qingyi’s hot semen flooding her insides, the thick spurts pumping into her one after another until not a single centimeter of space remained.</p>
 
@@ -71,7 +71,7 @@ chapter = 769
 
 <p>Another jet of milk shot from her sensitive nipples, tracing a glistening white arc through the air before pattering back down onto her soft, sweat-slicked skin.</p>
 
-<p>"Nghnn~~ s-stop... they’re sensitive!" she whined, gripping his hand with trembling fingers and gently patting the back of it.</p>
+<p>"Nghnn s-stop... they’re sensitive!" she whined, gripping his hand with trembling fingers and gently patting the back of it.</p>
 
 <p>Qingyi let out a low chuckle, burying his nose against her delicate neck and inhaling the natural scent of her skin. "Yes, let’s take a shower."</p>
 
@@ -79,7 +79,7 @@ chapter = 769
 
 <p>The pearly semen pooled inside her began trickling down her thighs in thick, lazy rivulets.</p>
 
-<p>"Ah~~ you filled me up so much..." she whispered, hopping slightly on her heels.</p>
+<p>"Ah you filled me up so much..." she whispered, hopping slightly on her heels.</p>
 
 <p>Her plump buttocks bounced with each little hop, the soft cheeks parting for a brief moment before slapping back together with a wet, fleshy clap.</p>
 

@@ -36,7 +36,7 @@ chapter = 318
 <p>"This one cost three million, actually," Ethan corrected her in a light, playful tone, drawing closer to his two beautiful wives.</p>
 <p>His hands slid down to both their waists, so slender they seemed too fragile to support the weight of those lush tits, and he pulled the women firmly against him.</p>
 <p>His chest was broad and powerful, yet even so, there wasn’t enough room to accommodate those two enormous pairs of breasts, the plush flesh compressing against him.</p>
-<p>"Nghnn~~ Your dwarf blacksmiths are going to love this place, even though it’s weaker than the original," Arwen purred softly, her nipples hardening under the pressure against his body.</p>
+<p>"Nghnn Your dwarf blacksmiths are going to love this place, even though it’s weaker than the original," Arwen purred softly, her nipples hardening under the pressure against his body.</p>
 <p>"Yes... was it still standing in your era?" Ethan asked, curious.</p>
 <p>"I was the one who destroyed it, actually. After that, the Dwarven Empire collapsed amid a series of bloody civil wars. It wasn’t the main goal, but it worked out well," Arwen replied with a casual shrug, as if commenting on the weather.</p>
 <p>After a brief moment, she noticed the strange looks on Ethan and Elena’s faces.</p>

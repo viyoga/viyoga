@@ -27,7 +27,7 @@ chapter = 133
 <p>Keith was making his way off to the helicopter so he could leave, but suddenly stopped when the ground under his feet shook!</p>
 <p>BOOM!</p>
 <p>A massive explosion echoed from the east and Keith turned to look at it in shock! What the hell was going on here!?</p>
-<p>Skkrt~!</p>
+<p>Skkrt!</p>
 <p>[Lieutenant Keith, come in.]</p>
 <p>Keith put his hand up to his ear once his comm came to life and he furrowed his brow and asked the person on the other line what was going on.</p>
 <p>"Is there another attack?"</p>

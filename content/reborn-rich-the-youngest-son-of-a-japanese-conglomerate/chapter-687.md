@@ -10,7 +10,7 @@ chapter = 687
 <p>I finished up the TG Tech paperwork and submitted the 3rd semester Korean exam questions, and even reviewed the resumes of the executive candidates for my PMC recommended by Asada Ei and Asada Fukushi.</p>
 <p>And in between, I spent time with Otagi Yuka, Sakagami Rena, Urabe Konoka, Saionji Diana, and Seizawa Shii, who visited my house, spending the night with them in bed.</p>
 <p>Of course, not all the bed visitors were able to go on a Christmas date with me, so they grumbled a bit, but I silenced those grumbles with the thick, long truncheon between my legs.</p>
-<p>-♪~ ♬~ ♩~ ♪~</p>
+<p>-♪ ♬ ♩ ♪</p>
 <p>On Christmas Eve morning, I listened to carols and drove to the place I had promised to meet Minamoto Risa.</p>
 <p>The meeting place was in Miyashi's downtown area, away from the Minamoto residence. It was rush hour, so there were a lot of people, but because Minamoto Risa was such a beauty, I could spot her even before I parked the car.</p>
 <p>She was standing there wearing a fancy coat made of real animal fur that the heiresses of conglomerates would wear (well, she really is a conglomerate heiress), and it suited her usual haughty appearance so well.</p>
@@ -18,7 +18,7 @@ chapter = 687
 <p>,Of course I'm not late. I can't let you wait too long in the cold."</p>
 <p>I parked the car and rolled down the window, and Minamoto Risa greeted me with a Christmas greeting and a slight eye smile. She was wearing a coat, but her lower body was in a short skirt and stockings, so it would have been quite cold if she had waited for a long time.</p>
 <p>,Get in."</p>
-<p>,Okay~!"</p>
+<p>,Okay!"</p>
 <p>I was driving a different rented sports car, not the one I usually drive. The Minamoto Group would know my car as the homeroom teacher's, and the date could be canceled by the Minamoto Group before it even started, so I rented a car to prevent them from tracking me right away.</p>
 <p>Of course, if the Minamoto Group wanted to track me, they could, but they wouldn't be able to react quickly enough to interfere with the date. If I want to date Minamoto Risa, I have to put up with this much.</p>
 <p>,You changed your car?"</p>

@@ -77,7 +77,7 @@ chapter = 59
 <p>Their breaths were ragged and their clothes ripped in different places, trickles of blood dripping from each of them. Still, the sharp-eyed ones could see that Sol was clearly having more difficulty breathing than Setsuna.</p>
 <p>The result of the previous clash could be said to have resulted in Sol's defeat. His right arm was partially dislocated and his fingers broken, his chest was punctured and covered in blood. Even though his wounds were already healing, in the long run, they would sap his stamina even more.</p>
 <p>'Sigh, I did not think that it would be this bad. If I didn't have resistance towards magic, the damage I took would be way worse.'</p>
-<p>'Hahaha~I am really transforming into a battle maniac.'</p>
+<p>'HahahaI am really transforming into a battle maniac.'</p>
 <p>Setsuna on the other hand couldn't help but feel giddy with anticipation. It has been a long time since she didn't feel her blood boil in such a way, the knowledge that this fight was a sort of courtship made her even happier. Still, even though she wanted to submit, she would never hold back. Doing so would be an insult to Sol as such,</p>
 <p>"Your highness, I think it's time to accelerate."</p>
 <p>"...Accelerate?"</p>

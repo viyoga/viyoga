@@ -10,7 +10,7 @@ chapter = 379
 <p>"I'll check the surroundings." Raika announced, and she immediately disappeared from Abudha's sight.</p>
 <p>Orianna sighed tiredly while glancing at the retreating form of her youngest 'sister'. Raika was well over a hundred years old, but she was still like a brash brat in her eyes. With a severe inferiority complex toward her and Vex to boot, making the so-called 'Flower Queen' feel like an exhausted senior any time she was forced to be near this black-haired girl whose every cell was made up of overflowing energy.</p>
 <p>Indeed, Orianna was old. How old exactly? Well, she would have to kill you if she answered that question, but she was closer to Black Fang in age than she was to Vex, very much so at that - much to the short, pink-haired woman's annoyance.</p>
-<p>For reference, Raika was ~150 years old, Vex ~200, and Black Fang was slightly over 400.</p>
+<p>For reference, Raika was 150 years old, Vex 200, and Black Fang was slightly over 400.</p>
 <p>"So I see." Vex nodded along to them detailing their stories. "Devil and Ambition, along with their teams, just *puff* disappeared while you were having a snooze fest."</p>
 <p>"That's putting things weirdly, but you understood the gist of it at least." Iris' snarky response only made Vex's amused smile widen.</p>
 <p>"I like you, Wrath." The silver-haired gorgeous woman easily managed to brush off the "Sadly I can't say the same at all." response she received, after which she continued.</p>

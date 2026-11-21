@@ -5,7 +5,7 @@ weight = 613
 chapter = 613
 +++
 
-"Little cousin~"
+"Little cousin"
 
 Alea cheerfully hopped her way towards Lith and stopped after being in front of him.
 

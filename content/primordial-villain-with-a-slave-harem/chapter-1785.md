@@ -34,7 +34,7 @@ chapter = 1785
 <p>His grin widened. "The dogkin are going to sing about that for generations. Pups who aren’t even born yet are going to hear about the girl who out-howled the wolf lord."</p>
 <p>Blossom, finally done delivering her barrage of needy kisses, hummed and burrowed into the side of his neck, her arms winding around him, her whole weight going trusting and boneless against his front.</p>
 <p>"Blossom doesn’t care about such things," she whispered into his skin, her tail still going behind her. Her arms tightened. "But if Master is proud of Blossom, then Blossom is the happiest girl in the whole wide world."</p>
-<p>"Hubby~"</p>
+<p>"Hubby"</p>
 <p>Vex arrived at his back rather than his front, and for once she didn’t wrestle anyone for access to his front.</p>
 <p>She wound both arms around his waist from behind, pressed her cheek flat between his shoulder blades, and settled in like she meant to be removed surgically or not at all, content to let the dog girl keep the embrace she’d earned.</p>
 <p>"Did you see, hubby?" The words came muffled against his spine, thick with pride. "I didn’t demand a single kiss the second I laid eyes on you. I let Blossom have you for as long as she needs. Because I know she deserved it."</p>

@@ -63,7 +63,7 @@ chapter = 701
 
 <p>Staring at that faintly white hymen, he couldn’t hide his excitement and let out a hoarse growl, &quot;Your brother in law was just thinking, when can he enjoy my little Guoguo’s adorable, tight little pussy.&quot;</p>
 
-<p>&quot;So annoying~&quot;</p>
+<p>&quot;So annoying&quot;</p>
 
 <p>&quot;Your brother in law is so big, can it even fit in there??&quot;</p>
 

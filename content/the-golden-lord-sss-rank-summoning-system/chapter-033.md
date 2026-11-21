@@ -28,7 +28,7 @@ chapter = 33
 <p>The number of goblins in that land was truly terrifying.</p>
 <p>’I’ll need to exterminate them all if I want to create a prosperous territory,’ Ethan repeated to himself.</p>
 <p>Not just the three camps around them, he was talking about a complete extermination.</p>
-<p>"You two seem to be getting along well, hehehe~~" A sweet, slightly groggy voice echoed.</p>
+<p>"You two seem to be getting along well, hehehe" A sweet, slightly groggy voice echoed.</p>
 <p>Ethan turned around quickly while Evelyn gave a startled little jump, pushing his hand away from her ass.</p>
 <p>She still hadn’t quite gotten used to that yet.</p>
 <p>Alice gave a sincere little laugh at the sight, elegantly covering her pink lips.</p>

@@ -87,7 +87,7 @@ chapter = 455
 
 <p>In that position, even the plump and soft vulva of her pussy could be seen, struggling to maintain its shape against the tight fabric.</p>
 
-<p>“Oh… look who’s here… fufufu~~” A sweet and mature voice echoed, catching Qingyi’s attention.</p>
+<p>“Oh… look who’s here… fufufu” A sweet and mature voice echoed, catching Qingyi’s attention.</p>
 
 <p>Aeryn stopped her training immediately, blushing softly.</p>
 
@@ -117,7 +117,7 @@ chapter = 455
 
 <p>“Speaking of preparation…” A mischievous smile took over her beautiful face.</p>
 
-<p>“Aeryn seemed really excited about your arrival. She wanted to train with you until your bodies lost their strength, fufufu~~” Qingyi’s eyes focused on Aeryn, who blushed and looked away.</p>
+<p>“Aeryn seemed really excited about your arrival. She wanted to train with you until your bodies lost their strength, fufufu” Qingyi’s eyes focused on Aeryn, who blushed and looked away.</p>
 
 <p>The handsome young man couldn’t help but let his eyes sparkle slightly.</p>
 

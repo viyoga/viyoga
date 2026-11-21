@@ -5,7 +5,7 @@ weight = 654
 chapter = 654
 +++
 
-<p>“Nghnn~~ fuck… what just happened?”</p>
+<p>“Nghnn fuck… what just happened?”</p>
 
 <p>A sweet, sensual voice trembled through a bedroom as a woman with black-painted lips, scarlet-red hair, and matching crimson eyes pressed her back against the door.</p>
 
@@ -87,7 +87,7 @@ chapter = 654
 
 <p>The soft flesh caved beneath his palm before rebounding in a thick, lazy wobble, ripples of impact rolling across the generous cheeks and traveling all the way up to her hips, the print of his fingers briefly blushing pink against her skin through the silk.</p>
 
-<p>“Nghnn~~ h-husband! I’m cooking…” Elize melted instantly, her knees wobbling as she felt Qingyi’s firm grip sink into the pliant curve of her ass.</p>
+<p>“Nghnn h-husband! I’m cooking…” Elize melted instantly, her knees wobbling as she felt Qingyi’s firm grip sink into the pliant curve of her ass.</p>
 
 <p>“I know, love… I can smell the delicious scent of your food even from miles away,” Qingyi murmured with a smile, turning Elize toward him and sealing her lips with a passionate kiss.</p>
 
@@ -99,7 +99,7 @@ chapter = 654
 
 <p>“Big Sis Elize, Qingyi is already ready to bring another big sis to help you in the kitchen, Xue Hao! I’ll personally help him with her! Hahaha,” Rou’er declared, puffing out her chest proudly and drawing a sensual giggle from Elize.</p>
 
-<p>“Is that so? Fufufu~~” Elize laughed, not the least bit concerned by the lovely Rou’er’s words.</p>
+<p>“Is that so? Fufufu” Elize laughed, not the least bit concerned by the lovely Rou’er’s words.</p>
 
 <p>Her delicate fingers reached for an elegant silver spoon, and she scooped up a portion of the steaming contents from the pot.</p>
 

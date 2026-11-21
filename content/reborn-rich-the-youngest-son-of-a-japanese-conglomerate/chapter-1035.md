@@ -36,7 +36,7 @@ chapter = 1035
 <p>The Obsidian Syndicate gang members, who had already been hit by the human missile Attack from the beginning, as if determined not to be hit this time, quickly dodged their Colleague's Corpse.</p>
 <p>"Gotcha!"</p>
 <p>Seizawa Shii grabbed a gang member who had neglected his own Movements to dodge the Corpse. This time, instead of throwing him, she grabbed the gang member's Ankle and began to swing him like a Club.</p>
-<p>Hwiiing~! Puk! Puk! Peok!</p>
+<p>Hwiiing! Puk! Puk! Peok!</p>
 <p>"Kkeuaaaah! Please! Kuaaak!!!"</p>
 <p>"Uwaaah!"</p>
 <p>The Person being hit and the hitting Tool(?) both screamed, making the alley noisy with Commotion. As she wildly swung the human Club, it hit not only People but also the alley Walls, so now, when she swung it, there was no Effect(?).</p>
@@ -85,9 +85,9 @@ chapter = 1035
 <p>Gojoy-nim requested Hanasaki Sayaka 1. Running to greet Arisu 2. Greeting Ryuta-ssi.</p>
 <p>1.</p>
 <p>2.</p>
-<p>RefundNeverPossible-nim requested Tank Top + Hair Tied + Garter Belt + Black Stockings Lisa Teacher Gajeong~!</p>
-<p>Lisa-ttang~!</p>
+<p>RefundNeverPossible-nim requested Tank Top + Hair Tied + Garter Belt + Black Stockings Lisa Teacher Gajeong!</p>
+<p>Lisa-ttang!</p>
 <p>Strangely, if you only put panties or pantyhose on Lisa-ttang, she automatically wears Shorts ㄷㄷ</p>
 <p>I used the same Model, but since Teacher Gajeong's panties come out well, it seems Lisa-ttang's lora has a Problem ㄷㄷ</p>
-<p>Last time's Mummy Costume Liz B-cut~!</p>
+<p>Last time's Mummy Costume Liz B-cut!</p>
 <p>When I first just made it, it came out with black Bandages like this, so I had to add a white prompt hehe.</p>

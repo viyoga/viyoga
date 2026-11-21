@@ -19,7 +19,7 @@ chapter = 550
 <p>Asmodeus though wasn’t worried. In the new era, three people stood the highest chance of becoming gods.</p>
 <p>Tiamat, Sol and Anubis.</p>
 <p>None of them were his enemy and one was even his son-in-law in a way. In fact, thanks to Sol, whoever between them became a god wouldn’t matter since he would be linked to them indirectly through Sol.</p>
-<p>“Hum~Hum~Hum~!”</p>
+<p>“HumHumHum!”</p>
 <p>Humming Quietly Asmodeus vanished from the place. Being able to relax in this time of turmoil was truly a great blessing.</p>
 <p>.</p>
 <p>.</p>

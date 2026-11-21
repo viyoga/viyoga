@@ -81,7 +81,7 @@ chapter = 18
 
 <p>His sleeping dragon, now awake and free of its bonds, rose up and slammed hard into the two plump, perfect mounds of Feiyan’s pussy, the skin pale and smooth.</p>
 
-<p>“Arghn~” Feiyan moaned, her body shuddering as she clung to him even tighter, staring at that colossus betwen her lergs with wide eyes.</p>
+<p>“Arghn” Feiyan moaned, her body shuddering as she clung to him even tighter, staring at that colossus betwen her lergs with wide eyes.</p>
 
 <p>Would it fit inside her?</p>
 
@@ -99,7 +99,7 @@ chapter = 18
 
 <p>“Junior brother, that’s-” Feiyan opened her mouth, but Qingyi didn’t give her time to question. Holding her tightly, he let her fall onto his cock, penetrating her in one go.</p>
 
-<p>“Oghn~~ Mmph!” A raunchy moan escaped her lips, followed by a loud, wet slap as her plump ass slammed into his hips.</p>
+<p>“Oghn Mmph!” A raunchy moan escaped her lips, followed by a loud, wet slap as her plump ass slammed into his hips.</p>
 
 <p>The flesh swayed in waves across her buttocks, the pain of her broken virginity quickly overcome by the pleasure of Qingyi’s cock hitting the walls of her womb.</p>
 

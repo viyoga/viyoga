@@ -49,13 +49,13 @@ chapter = 252
 <p>###</p>
 <p>Ding-dong!</p>
 <p>Early in the morning, the doorbell rang at Fujigasaki Rinka's house. Fujigasaki Rinka, with her hair messed up, yawned loudly and opened the door. Diana Leach, wearing a neat suit, was standing in front of the door.</p>
-<p>,Haaam~! Who is it?"</p>
+<p>,Haaam! Who is it?"</p>
 <p>Diana Leach looked at Fujigasaki Rinka, who was asking without even opening her eyes with her swollen eyes, as if she was dumbfounded, and opened her mouth.</p>
 <p>,Rinka-ssi. It's Diana Leach. You would have recognized me if you had your eyes open."</p>
 <p>,Ah, Diana.... Long time no see. A request?"</p>
 <p>Fujigasaki Rinka must know why she came, but she asked as if she didn't know, and Diana Leach was annoyed and a blood vessel popped out on her temple.</p>
 <p>,I think you can guess. I came to meet Rinka-ssi's disciple."</p>
-<p>,Ah ah~ Ryuta? What should I do? Ryuta left my house this morning to go to Japan, hehe."</p>
+<p>,Ah ah Ryuta? What should I do? Ryuta left my house this morning to go to Japan, hehe."</p>
 <p>She must have expected the FSA to come and sent him away. Looking at her smiling like that, it seemed that she still had resentment about being aggressive at their first meeting.</p>
 <p>,Rinka-ssi, thanks to Rinka-ssi, the FSA director at the time lost his job, and you know that James Fuller-nim, the new director, hasn't done the same aggressive things since he became the new director."</p>
 <p>,Know well? Ah! That? You mean you're still recruiting agents by kidnapping, imprisoning, and coercing them? Of course I know. That's why I sent my disciple away early so he wouldn't have to go through that."</p>

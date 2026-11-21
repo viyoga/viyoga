@@ -59,7 +59,7 @@ Lilith was wearing no panties and her beautiful pussy was right in front of Lith
 
 Lith spread her legs and gave her pussy a light spank, making her shiver.
 
-"Mhm~ baby, not so rough."
+"Mhm baby, not so rough."
 
 Lith didn't heed her calls and immediately inserted his dissatisfied cock into her inviting cunt.
 

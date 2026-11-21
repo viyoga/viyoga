@@ -55,7 +55,7 @@ chapter = 352
 <p>That's too bad. I failed to have sex in the nurse's office and sex in the Director's office, which were both romances in school stories. Well, if I look at this situation positively, it means I can focus more on Yukiko, who must be starving.</p>
 <p>I decided to aim for the next opportunity and returned to the teachers' lounge, spending the day as usual. I had lunch with Kijimoto Jurie during lunchtime, and after lunch, I chatted with the students who came to the teachers' lounge, took care of basic tasks, and before I knew it, the end-of-day assembly time was approaching.</p>
 <p>"I did well today, right?"</p>
-<p>"Yesss~!"</p>
+<p>"Yesss!"</p>
 <p>Seizawa Shii, who would normally have said something, was quiet, perhaps because of what happened at the laundromat yesterday. After all, even though she's dressed as a gyaru, she seems to be a pure young lady inside.</p>
 <p>"I won't be in this town over the weekend, sensei, so don't cause any trouble."</p>
 <p>"Kyahaha! Are you going to train for a sparring match with me?"</p>

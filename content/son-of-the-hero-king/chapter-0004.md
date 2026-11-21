@@ -17,7 +17,7 @@ chapter = 4
 <p>“Ahh! S-seriously…?”</p>
 <p>His blazing rod was twitching with wanton pleasure and it was already soaked with her saliva and his precum, so she must have been sucking him off for a while already.</p>
 <p>Being woken up by a blowjob from a beautiful maid was the kind of upper-class luxury that Sol could only have dreamed of in his past life — never to be enacted in reality. He did wonder deeply if he was, in fact, dreaming this or not, but the sweet, addictive tingling assaulting his lower body was very real and very stimulating — sensations that would be impossible to be felt in a dream, so he had to take the events for what they were; reality.</p>
-<p>“Nh~! You are so hard this morning...*slurp*...And it’s twitching too...such a fantastic cock, you wield, your highness…”</p>
+<p>“Nh! You are so hard this morning...*slurp*...And it’s twitching too...such a fantastic cock, you wield, your highness…”</p>
 <p>Her plump pinkish lips trailing stroked the shaft, the puckered lips intensely sucking at the sensitive head with intermittent rhythm. She seemed to have been trying to milk the cum right out of him with her oral technique, so Sol pleasuringly writhed on the bed from the unbearable pleasure that constantly emanated and spread throughout all his senses.</p>
 <p>Partially because it had been so unexpected for him, he could not fight the urge to ejaculate as scalding pleasure took over his entire body, making his body hot and bothered.</p>
 <p>The tip of her ravenous tongue slowly, sensually, crawled from the base to the head as though licking off the precum flowing from the tip, an obscenely wet sound simultaneously rang throughout the room as she resoundingly suck at his top, his precum mixing with the saliva in her mouth.</p>

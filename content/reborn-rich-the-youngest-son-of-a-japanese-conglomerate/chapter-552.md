@@ -58,7 +58,7 @@ chapter = 552
 <p>"Yeah."</p>
 <p>Naruse Shiyo started to cry, hiccuping, at the words that she didn't need to be in pain anymore. Now that it's over, I was wondering if we could leave, but Yukiko shakes her head as if she knew what I was thinking. Is there something more to do here?</p>
 <p>"The dragon's spirit is dead, but the dragon's body, still sealed in Shiyo's body, remains, so we have to deal with that. Eventually, the seal will eat away at Shiyo's body, so if we leave it as it is, she won't live long."</p>
-<p>I had just said "Yeah" to the question "Am I not going to die now?", but Yukiko-mamang immediately fired a fact attack, saying "Oh no~ You're actually terminally ill." Of course, she's saying that because there's a way, but I feel a bit awkward.</p>
+<p>I had just said "Yeah" to the question "Am I not going to die now?", but Yukiko-mamang immediately fired a fact attack, saying "Oh no You're actually terminally ill." Of course, she's saying that because there's a way, but I feel a bit awkward.</p>
 <p>"There are two ways."</p>
 <p>It's a relief that there are two ways. Naruse Shiyo, who had been very depressed because she was terminally ill, looked at Yukiko again with sparkling eyes when she said there was a way.</p>
 <p>"The first is to completely remove the dragon's body with a magical method. But because the assimilation phenomenon has occurred while sealing the dragon's body for several years, you may lose a part of your body if something goes wrong, and your body will become a bit weak."</p>

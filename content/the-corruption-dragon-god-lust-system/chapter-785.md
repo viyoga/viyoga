@@ -39,7 +39,7 @@ chapter = 785
 
 <p>"Bai Yunxi greets the young lady—" She didn’t have time to finish her sentence, for Qianyao was already standing before her, lips curving into a sweet smile as gentle hands settled on the tigress’s shoulders.</p>
 
-<p>"It’s all right, you don’t need to be so formal. We’re all victims of the same shameless hubby, aren’t we? Ah... he really can’t keep that huge thing of his in his pants, fufufu~"</p>
+<p>"It’s all right, you don’t need to be so formal. We’re all victims of the same shameless hubby, aren’t we? Ah... he really can’t keep that huge thing of his in his pants, fufufu"</p>
 
 <p>"Yes..." Auranys descended from the high gates as well, landing lightly beside them.</p>
 
@@ -91,7 +91,7 @@ chapter = 785
 
 <p>His strong bicep sank deep into her cleavage as the soft mounds parted to welcome him, then closed back in around his muscular arm; the warm flesh wrapping around him and molding to every contour in a sensual squeeze.</p>
 
-<p>Shortly after, with an elegant smile, her eyes fell on Bai Yunxi. "Elize is already preparing breakfast. My husband said you loved her cooking, so she fried some chicken thighs just for you, fufufu~"</p>
+<p>Shortly after, with an elegant smile, her eyes fell on Bai Yunxi. "Elize is already preparing breakfast. My husband said you loved her cooking, so she fried some chicken thighs just for you, fufufu"</p>
 
 <p>The moment she heard that, all of Bai Yunxi’s nervousness melted away.</p>
 

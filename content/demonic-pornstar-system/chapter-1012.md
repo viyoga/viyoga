@@ -41,7 +41,7 @@ chapter = 1012
 <p>"...Do I really have to tell him not to eat otherworldly dungeon mushrooms leading up to a boss room?"</p>
 <p>"Apparently. In all fairness to the kid, been there done that," Scarlet grinned, gulping down more of Yunohana’s tea. "That’s how you learn things fast."</p>
 <p>"...Or by listening to the professionals. Or at least save your mushroom experiments for somewhere safe, with a healer squad on hand."</p>
-<p>"Booooooo... My guild leader is so boooooooooriiiiiiiiiiiiiiing~" Scarlet sang.</p>
+<p>"Booooooo... My guild leader is so boooooooooriiiiiiiiiiiiiiing" Scarlet sang.</p>
 <p>"Are you drunk?"</p>
 <p>"No."</p>
 <p>"...Scarlet."</p>

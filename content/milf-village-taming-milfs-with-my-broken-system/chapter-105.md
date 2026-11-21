@@ -85,7 +85,7 @@ chapter = 105
 
 <p>Thrust...</p>
 
-<p>&quot;Ngh~hnn!!! Ahhn! Ahhnn!! I’m breakingnn~&quot; She felt like the world was crumbling apart as the cock was stripping her entire life away.</p>
+<p>&quot;Nghhnn!!! Ahhn! Ahhnn!! I’m breakingnn&quot; She felt like the world was crumbling apart as the cock was stripping her entire life away.</p>
 
 <p>’What a tight pussy! Is her hymen not fully split?!’ Owen pushed his cock inside; the suction force of her pussy was crazy... it was so tight that he had to use a bit of extra force to shove his cock all the way.</p>
 
@@ -97,6 +97,6 @@ chapter = 105
 
 <p>&quot;It’s normal, just hold your breath for a moment... it will be okay now.&quot;</p>
 
-<p>&quot;Ngh~hhnn!! I can’t control my pussy, Savior!&quot;</p>
+<p>&quot;Nghhhnn!! I can’t control my pussy, Savior!&quot;</p>
 
 <p>She moaned loudly as she released a huge gush of love juices right before he shoved his cock all the way inside.</p>

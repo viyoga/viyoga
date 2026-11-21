@@ -9,7 +9,7 @@ chapter = 513
 <p>But as time passed and civilization advanced, the werewolves disappeared and remained only in the Kurayamada family's bloodline. After the age of barbarism passed, the manifestation of the werewolf trait, losing reason on the full moon, became a problem, and it seems that from then on, it became a tradition to cast out from the family those in whom the werewolf trait in their blood manifested, saying they were cursed.</p>
 <p>,Wait a minute...,.</p>
 <p>Without even realizing it, I was stroking Kirie-yang's head. I didn't even know I had the urge to stroke...! To be honest, even though they were called wolf ears, they looked no different from puppy ears, so they felt good to stroke. The feeling of stroking them was also quite nice.</p>
-<p>,W-What are you doing~!,.</p>
+<p>,W-What are you doing!,.</p>
 <p>,Ah, sorry. I just wanted to stroke them without realizing it...,.</p>
 <p>After apologizing with my hands together to Kirie-yang, who shouted, I went into the room to make sure and looked at Kirie-yang while wearing the glasses from the ruins.</p>
 <p>Name: Kirie Kurayamada Lv13</p>

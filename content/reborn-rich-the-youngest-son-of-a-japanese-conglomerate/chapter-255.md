@@ -61,7 +61,7 @@ chapter = 255
 <p>,I understand, Ryuta-gong. Then...."</p>
 <p>Sawayanagi Tobe led the trainees into the dormitory building. Alik grabbed my pants and fidgeted as if she didn't want to go, but after hearing Sawayanagi Tobe's roar, she ran back to join the group of trainees.</p>
 <p>I also went into the building as I had heard from Sawayanagi Azuma in advance and went to the training staff room on the second floor. In the training staff room, Sawayanagi Azuma and Lianna Holden, the operator of the Seryu unit, were working on something with a computer.</p>
-<p>,Investor-nim~!"</p>
+<p>,Investor-nim!"</p>
 <p>,Oh, handsome guy, hello!"</p>
 <p>The two of them greeted me very happily. I greeted them too and looked around, but there was no one else in the training staff room.</p>
 <p>,Where are the others?"</p>

@@ -107,7 +107,7 @@ chapter = 30
 
 <p>[ &quot;That’s it&quot; my Ass! You are just a lazy fucker...now touch some grass bastard.]</p>
 
-<p>’Bad-tempered right in the morning? You will die early system~’ Owen teased...it’s already common, yes...it is.</p>
+<p>’Bad-tempered right in the morning? You will die early system’ Owen teased...it’s already common, yes...it is.</p>
 
 <p>As for the updates he was really tired of reading those...just some minor updates so he didn’t dwell on them that much.</p>
 

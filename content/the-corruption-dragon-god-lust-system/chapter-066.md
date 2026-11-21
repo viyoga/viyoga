@@ -77,7 +77,7 @@ chapter = 66
 
 <p>His free hand grasped one of her breasts firmly, the creamy skin spilling out between his fingers, while his tongue invaded her mouth voraciously.</p>
 
-<p>“Mmph~~” Elize moaned, but soon pulled her lips away from Qingyi’s. “Not here…”</p>
+<p>“Mmph” Elize moaned, but soon pulled her lips away from Qingyi’s. “Not here…”</p>
 
 <p>“Then where?” He squeezed her breasts a little tighter, his fingers grasping a puffy pink nipple beneath the thin fabric, drawing another moan as sweet as a heavenly symphony from the priestess’s lips.</p>
 
@@ -111,4 +111,4 @@ chapter = 66
 
 <p>His white robes also fell to the rocky floor as he wrapped his arms around her slim waist, his hands sinking into her plump, perfect buttocks with a loud smack.</p>
 
-<p>“Ahh~~” Elize moaned, her lips soon being sealed by Qingyi’s, her huge breasts pressed firmly against his muscular chest.</p>
+<p>“Ahh” Elize moaned, her lips soon being sealed by Qingyi’s, her huge breasts pressed firmly against his muscular chest.</p>

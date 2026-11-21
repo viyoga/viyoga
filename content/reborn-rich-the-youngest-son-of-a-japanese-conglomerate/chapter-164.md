@@ -6,7 +6,7 @@ chapter = 164
 +++
 
 <p>This episode contains a suggestive illustration. Please be mindful of your surroundings.</p>
-<p>,I'm sorry~! Today is the last day I'm busy, so let's have fun starting tomorrow, okay?",</p>
+<p>,I'm sorry! Today is the last day I'm busy, so let's have fun starting tomorrow, okay?",</p>
 <p>Han Yu-gyeong apologized to me once again and left the grilled eel restaurant. Hmm.... Something feels like it's about to come to mind, but I can't quite remember. Because it was difficult to acquire Vanguard in the game, I had only used it once or so until now, so I didn't remember the Vanguard-related events very well.</p>
 <p>Still, judging from how it feels like I almost remember, it seems like it was an event I experienced too. If I didn't remember it at all, it would have been an event I couldn't have experienced. Of course, the problem was that it was frustrating because I almost remembered it....</p>
 <p>,Yong-tae-ya, can I have a drink?",</p>
@@ -17,7 +17,7 @@ chapter = 164
 <p>At my question, Ha Ju-yoon shakes her head. Then, she looks at me and gives me a captivating smile.</p>
 <p>,No, it's just.... Because Yong-tae is in front of me, I suddenly feel like drinking?",</p>
 <p>,Am I some kind of side dish?",</p>
-<p>,Hohoho! You're right, you are a side dish~! Just looking at you makes the alcohol go down so smoothly....",</p>
+<p>,Hohoho! You're right, you are a side dish! Just looking at you makes the alcohol go down so smoothly....",</p>
 <p>I don't know if she usually drinks or not, but it didn't seem like she was very strong with alcohol. I didn't really feel like drinking, so I only had one glass at first, and Ha Ju-yoon had about three glasses, but her face was already red. Wouldn't it be a problem if I took Ha Ju-yoon home while she was staggering and got caught by paparazzi?</p>
 <p>,If you think you're going to get drunk, stop drinking.",</p>
 <p>,Nooo.... I'm, not drunk.",</p>
@@ -47,10 +47,10 @@ chapter = 164
 <p>Sometimes, if you chose the wrong option, you would be attacked on the spot, so I told her to take Dickson and Nero with her. Well, now Han Yu-gyeong's strength is considerable, so even if she's alone, she can get through the early Base Technology event, but still.</p>
 <p>Han Yu-gyeong: Yeah, yeah! Dickson is here and Nero is here too. I also got throwing skills and magic this time, so I'll be fine.</p>
 <p>Jin Yong-tae: Okay, good luck❤️</p>
-<p>Han Yu-gyeong: 🥰 I love you❤️ See you later~!</p>
+<p>Han Yu-gyeong: 🥰 I love you❤️ See you later!</p>
 <p>After I finished KakaoTalking with Han Yu-gyeong, I heard the sound of a bell ringing from the convenience store door, and Ha Ju-yoon came out. She bought so much that she came out with two big bags full. Beer and soju for 10,000 won for 4 cans, jerky, a lot of squid leg snacks, several tubs of Häagen-Dazs.... As expected of a chaebol's daughter-in-law, she didn't seem to sober up even after buying Häagen-Dazs at the convenience store. Usually, even if someone is drunk, they would sober up when they see the price of Häagen-Dazs, but not her.</p>
 <p>Besides that, there were various other things in the bag. It looked quite heavy for Ha Ju-yoon's slender arms to carry, so I took both bags from her.</p>
-<p>,Ayi~! It's mine.",</p>
+<p>,Ayi! It's mine.",</p>
 <p>,I'm holding it for you because it looks heavy.",</p>
 <p>,Ah, really? Hehe.... Let's go home quickly.",</p>
 <p>Ha Ju-yoon pouted slightly when I took the bags, but she quickly calmed down when I said I would hold them for her. I didn't know the way to Ha Ju-yoon's house, so I was walking half a step behind Ha Ju-yoon. Ha Ju-yoon entered a luxury apartment complex at a slightly faster pace. She's walking well even though she's drunk? Isn't she that drunk?</p>

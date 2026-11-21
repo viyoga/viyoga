@@ -19,7 +19,7 @@ chapter = 951
 
 <p>A thick, white strand escaped from where they were joined, stark against her dark skin as it trickled down the inside of her thigh and dripped onto the cabin floor.</p>
 
-<p>"Nghnn~~ fufufu~~ so much semen..." Khaedryss brought one hand to her belly, her voice coming out hoarse and drawling.</p>
+<p>"Nghnn fufufu so much semen..." Khaedryss brought one hand to her belly, her voice coming out hoarse and drawling.</p>
 
 <p>Her delicate fingers glided over her obsidian skin—smooth and glistening with sweat—tracing slow circles over her belly.</p>
 

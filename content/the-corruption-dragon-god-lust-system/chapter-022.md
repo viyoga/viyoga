@@ -11,7 +11,7 @@ chapter = 22
 
 <p>“Junior brother?” Qingyi interrupted her, squeezing her breasts tightly.</p>
 
-<p>“Ngh~” she moaned, clutching his hands over her breasts.</p>
+<p>“Ngh” she moaned, clutching his hands over her breasts.</p>
 
 <p>“For the husband, to be useful for the husband,” she corrected herself, a little breathless, her voice sweet and slurred, making Qingyi laugh lightly.</p>
 

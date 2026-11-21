@@ -27,7 +27,7 @@ chapter = 252
 <p>"Didn't mother buy you many?" Ansel inquired.</p>
 <p>"Those won't do!" Seraphina's face changed instantly at Ansel's words. "I'm no little princess!"</p>
 <p>Young Hydral watched Seraphina with a smile brimming with amusement. "But they are indeed beautiful."</p>
-<p>"They're not as beautiful as the ones you make... Make me another one now, please~"</p>
+<p>"They're not as beautiful as the ones you make... Make me another one now, please"</p>
 <p>Soon, Seraphina, donning a black cinched waistcoat, hands in pockets, and kicking her platform boots, twirled with satisfaction.</p>
 <p>"How do I look? Do I look good?" she asked Ansel and Marlina, her eyes sparkling with anticipation.</p>
 <p>"You look good, indeed..." Ansel stroked his chin, "but it reminds me of something else."</p>

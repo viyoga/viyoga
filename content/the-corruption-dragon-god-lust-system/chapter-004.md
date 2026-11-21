@@ -9,7 +9,7 @@ chapter = 4
 
 <p>[Mo Feixue’s Corruption increased by 5 points, +1 lust points].</p>
 
-<p>“Nghhn~~” A long moan escaped Feixue’s lips as Long Qingyi’s strong fingers massaged her tiny delicate feet.</p>
+<p>“Nghhn” A long moan escaped Feixue’s lips as Long Qingyi’s strong fingers massaged her tiny delicate feet.</p>
 
 <p>“I-I don’t think this is…” Her stuttering voice was cut off as his hands moved up, past her heels and into her soft calves.</p>
 
@@ -27,9 +27,9 @@ chapter = 4
 
 <p>[Mo Feixue’s lust increased by 10%].</p>
 
-<p>“Haaah~” she moaned softly as he grabbed her thighs, right at the pile of plump, pale flesh squeezed by the tight socks.</p>
+<p>“Haaah” she moaned softly as he grabbed her thighs, right at the pile of plump, pale flesh squeezed by the tight socks.</p>
 
-<p>“Q-qingyi… mmph~” She tried to form words, but failed, his fingers slowly pulling her stockings down , revealing the pale, slightly moist skin beneath.</p>
+<p>“Q-qingyi… mmph” She tried to form words, but failed, his fingers slowly pulling her stockings down , revealing the pale, slightly moist skin beneath.</p>
 
 <p>Qingyi pulled her off the bench as he knelt down, keeping her standing in front of him.</p>
 
@@ -37,7 +37,7 @@ chapter = 4
 
 <p>The two globes of pale, perfect flesh fit exactly into his hands, as if they had been sculpted especially for his touch.</p>
 
-<p>“Ughn~” An intense moan escaped Feixue’s lips as Qingyi squeezed her buttocks tightly and brought his face close to her legs, planting a soft kiss in to the sweaty skin.</p>
+<p>“Ughn” An intense moan escaped Feixue’s lips as Qingyi squeezed her buttocks tightly and brought his face close to her legs, planting a soft kiss in to the sweaty skin.</p>
 
 <p>[You touched a noble girl indecently behind her older brother’s back, +3 lust points].</p>
 
@@ -63,7 +63,7 @@ chapter = 4
 
 <p>“I’m saying…” He interrupted his own sentence and moved his fingers to her pussy, sinking a single finger between the plump mountains of her moist vulva.</p>
 
-<p>“W-we can’t– Mmmhh~… Hnnng~” Feixue’s words evaporated like mist as Qingyi inserted a second finger.</p>
+<p>“W-we can’t– Mmmhh… Hnnng” Feixue’s words evaporated like mist as Qingyi inserted a second finger.</p>
 
 <p>The young woman’s body shuddered violently, almost collapsing under the invasive pleasure, forcing her to cling to his white robes to keep from falling.</p>
 
@@ -81,7 +81,7 @@ chapter = 4
 
 <p>Then he sat down on the bench and pulled her onto his lap, her pussy perfectly aligned with the powerful, throbbing mound beneath his pants.</p>
 
-<p>“Nghn~~ Ahhh~~ W-we can’t do that…” She finally managed to articulate, but without offering any real resistance.</p>
+<p>“Nghn Ahhh W-we can’t do that…” She finally managed to articulate, but without offering any real resistance.</p>
 
 <p>Feixue pressed her face against Qingyi’s firm chest, her whole body trembling as an unfamiliar, but delicious tingling took hold of her moist valley.</p>
 
@@ -91,7 +91,7 @@ chapter = 4
 
 <p>Her eyes widened, How could it fit inside her?</p>
 
-<p>“M-my wedding… it’ll be soon, they’ll find out– Ahhh~… Mmmph~” she protested weakly, but still moved her hips towards Qingyi, crushing his member between her pussy and his belly.</p>
+<p>“M-my wedding… it’ll be soon, they’ll find out– Ahhh… Mmmph” she protested weakly, but still moved her hips towards Qingyi, crushing his member between her pussy and his belly.</p>
 
 <p>Every twinge of pleasure in her swollen clit drew debauched moans from her quivering pink lips.</p>
 
@@ -105,7 +105,7 @@ chapter = 4
 
 <p>He then slid his member into the tight space between her legs, squeezing it between her fat pussy and plump thighs.</p>
 
-<p>“oh heavens~… Mmmm~” she whispered, his every move making her toes curl.</p>
+<p>“oh heavens… Mmmm” she whispered, his every move making her toes curl.</p>
 
 <p>[Mo Feixue’s Corruption increased by 25 points, +5 lust points].</p>
 

@@ -15,7 +15,7 @@ The door of the room they were in creaked open and a tall blue-haired elven lady
 
 "Your Majesty, he's here." Jasmine said calmly.
 
-Agalea smiled in response and Alea did the same thing as well. She giggled and said, "little cousin is here~"
+Agalea smiled in response and Alea did the same thing as well. She giggled and said, "little cousin is here"
 
 "That's right, dear. Let's go greet him." Agalea said and got up from her seat.
 
@@ -53,7 +53,7 @@ And Lith's analysis was absolutely right as in the next second, he heard:
 
 ReadNovelFullcomno/vel//bi/n[./]net'
 
-"Guess who?~"
+"Guess who?"
 
 A warm feeling swept on his face as something soft was touching him. 
 

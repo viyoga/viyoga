@@ -64,7 +64,7 @@ chapter = 721
 <p>Han Yu-gyeong must have asked me because she didn't trust the other successors of the Shin-gang Group. At my answer, she said, ,I knew it, right?, and muttered that she had to be careful.</p>
 <p>,But they won't be able to do things openly, so you only need to be careful of assassinations and attacks.,</p>
 <p>There won't be any major conflicts while Han Mun-gang is alive, but there have always been fights to the extent of throwing jabs at each other. Later, when Han Mun-gang dies and the succession war begins in earnest, the fight will be so big that it can really be called a war, but it's not time to worry about a big fight yet because Han Mun-gang hasn't died yet.</p>
-<p>-Hing~ My head hurts. I want to see Yong-tae....</p>
+<p>-Hing My head hurts. I want to see Yong-tae....</p>
 <p>,We're meeting tomorrow. Just be patient.,</p>
 <p>Han Yu-gyeong was whining, so I soothed her, but Han Yu-gyeong was reminded of the fact that she would be meeting Jinmija Yeosa together tomorrow, and she was silent for a moment.</p>
 <p>-I'm nervous.... What if my mother doesn't like me?</p>

@@ -17,7 +17,7 @@ chapter = 361
 <p>Jason released a calm sigh as he felt his excitement take a back seat, and it was instead replaced with a hungry drive. The system was right. He couldn’t just daydream about power all day long. If he didn’t put in the work for it, then he was going to remain as some mortal nobody for the rest of his life. If he was even going to stand a chance against those bastard Primordials and the Celestials, then he needed to get stronger faster.</p>
 <p>’I know my subordinates can go into Gates alone. I’ll have to start sending them into other countries or even other worlds to help me clear more gates. The gates in America won’t be enough.’</p>
 <p>Jason nodded to himself once he decided on that, and he realized that he couldn’t wait to get back into another fight. Since when had he become so addicted to the feeling of winning a battle? It was almost like Jason felt uncomfortable whenever he wasn’t in the middle of a fucking fight. Jason chuckled to himself at that thought, and he was about to check something else in his system.</p>
-<p>’Help me~!’</p>
+<p>’Help me!’</p>
 <p>Jason paused as a voice suddenly echoed through his mind! Jason’s eyes narrowed as he immediately recognized the voice as the same one that had been whispering to him all this time, and he was surprised when the voice suddenly came up again!</p>
 <p>’I need your help! Please!’</p>
 <p>"Who the hell is this?"</p>

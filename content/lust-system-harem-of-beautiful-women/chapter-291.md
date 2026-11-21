@@ -57,7 +57,7 @@ chapter = 291
 
 <p>&quot;I was surprised to see you too. I never expected that little moocher to actually be a wealthy heiress from a prominent family.&quot;</p>
 
-<p>&quot;Not at all~ I just want to be self reliant.&quot;</p>
+<p>&quot;Not at all I just want to be self reliant.&quot;</p>
 
 <p>Rococo fell silent for a long moment on the other end, then said softly, &quot;Brother in law... my mother would like to invite you to dinner.&quot;</p>
 

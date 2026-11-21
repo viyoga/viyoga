@@ -35,7 +35,7 @@ chapter = 53
 
 <p>She was losing her sanity to the boy she raised, as it was thoroughly melting her remaining defenses.</p>
 
-<p>&quot;Ahnn... take it all, ehe, enjoy my milk, my dear Wen~&quot;</p>
+<p>&quot;Ahnn... take it all, ehe, enjoy my milk, my dear Wen&quot;</p>
 
 <p>Owen closed his eyes as he smoothly transitioned to the other side.</p>
 
@@ -43,13 +43,13 @@ chapter = 53
 
 <p>He then lightly pinched the erect nipples, twisting them with gentle care.</p>
 
-<p>&quot;Nghh~nn... so good, harder, my dear Wen... please tease it harder...&quot;</p>
+<p>&quot;Nghhnn... so good, harder, my dear Wen... please tease it harder...&quot;</p>
 
 <p>&quot;Supp, you’re something, Mom&quot;</p>
 
 <p>&quot;N-no... I’m not... ahnn, just, just a practice... ahhnn.&quot;</p>
 
-<p>&quot;Supp... what kind of practice are you talking about, Mom~?&quot;</p>
+<p>&quot;Supp... what kind of practice are you talking about, Mom?&quot;</p>
 
 <p>&quot;To help out you spoiled boy... ahnn... ahnn.&quot;</p>
 
@@ -79,7 +79,7 @@ chapter = 53
 
 <p>&quot;Oh... so you’re admitting that you belong to me completely now. That means I can savor you all day and night without ever stopping, right, Mom?&quot; Owen retaliated, lightly flicking the erect nipples and sending a sharp jolt of electricity straight through her core.</p>
 
-<p>&quot;Ahhnn... w-who knows? Perhaps you will~&quot; Arielle countered, refusing to remain entirely on the defensive.</p>
+<p>&quot;Ahhnn... w-who knows? Perhaps you will&quot; Arielle countered, refusing to remain entirely on the defensive.</p>
 
 <p>While he had been thoroughly occupied with her titties, her hands had already deftly slid his upper garments from his shoulders.</p>
 

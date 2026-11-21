@@ -21,11 +21,11 @@ chapter = 383
 
 <p>[You fucked a woman of much higher origin than yours! +10 billion lust points]</p>
 
-<p>“Aghnn~~!” A guttural moan escaped Qianyao’s lips, her body seized by a shock of overwhelming pleasure, every drop of her being shuddering as she felt Qingyi’s cock.</p>
+<p>“Aghnn!” A guttural moan escaped Qianyao’s lips, her body seized by a shock of overwhelming pleasure, every drop of her being shuddering as she felt Qingyi’s cock.</p>
 
 <p>Twenty-three centimeters, all inside her, reaching the walls of her womb, a thick, elongated bulge appearing in her slim belly, moving with Qingyi’s every movement inside her.</p>
 
-<p>“Ah… nghnn~~ aghnn~~” She leaned on Qingyi’s chest, “T-too big…. Too big…”</p>
+<p>“Ah… nghnn aghnn” She leaned on Qingyi’s chest, “T-too big…. Too big…”</p>
 
 <p>She repeated breathlessly, her cloudy eyes focused on Qingyi’s, the sun dropping over the horizon and with it, the temperature dropping too.</p>
 
@@ -45,7 +45,7 @@ chapter = 383
 
 <p>The sounds of him fucking Qianyao filled the entire forest, muffled only by the talisman Qingyi had used.</p>
 
-<p>“Ngghnn~~ oghnn~~” Qianyao moaned, feeling her pussy being fucked, her lips opening obscenely.</p>
+<p>“Ngghnn oghnn” Qianyao moaned, feeling her pussy being fucked, her lips opening obscenely.</p>
 
 <p>“F-faster… Shameless husband-” She begged lowly, drawing a smile from Qingyi.</p>
 
@@ -53,7 +53,7 @@ chapter = 383
 
 <p>She shuddered, pushing her hands against Qingyi’s chest and lifting her torso, giving his abdomen a light punch.</p>
 
-<p>“I told you to go faster… you~~ shameless husband~~ fas- nghnnn~~ TER…” Qianyao moaned, Qingyi’s speed suddenly increasing.</p>
+<p>“I told you to go faster… you shameless husband fas- nghnnn TER…” Qianyao moaned, Qingyi’s speed suddenly increasing.</p>
 
 <p>She arched her back, only prevented from falling only by Qingyi’s hands on her hips.</p>
 

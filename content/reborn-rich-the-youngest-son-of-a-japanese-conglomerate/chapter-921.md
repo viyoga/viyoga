@@ -14,7 +14,7 @@ chapter = 921
 <p>"I'll order what I want, okay?"</p>
 <p>The two of them were talking with serious Expressions about who would go first with me, so they didn't seem to be thinking about choosing Dinner. Since they had worked hard today, I thought we should cut some meat, so I ordered Steak.</p>
 <p>While preparing the Wine, Drinks, and side dishes, the delivery arrived, so we immediately began our Meal.</p>
-<p>"Thank you, Teacher-ssi~!"</p>
+<p>"Thank you, Teacher-ssi!"</p>
 <p>"I will eat well, Master!"</p>
 <p>Although it was delivery, since it was ordered from a high-end Steak restaurant, the Steak was quite delicious. As expected of Miyashi, which has many wealthy people, there were many high-end Steak restaurants nearby.</p>
 <p>"So, what did you decide?"</p>
@@ -63,7 +63,7 @@ chapter = 921
 <p>"Haaht! Give it to me, quickly give it to me...! Master's Haaht hot Baby Juice...! Inside me, Haaht! Uh-eung...!"</p>
 <p>Sakagami Rena stopped her Hip Movements and completely collapsed onto my Cock. As she completely collapsed, my Cock, as if lifting her Cervix, went deep inside, and Sakagami Rena reached Climax.</p>
 <p>I also, as if being tightly squeezed by a hand, as Sakagami Rena's Intravaginal contracted, couldn't hold back my Ejaculation and immediately began to pour Semen into her Cervix.</p>
-<p>"Haa-aa-aang~! Master-nim...♥ Haaht! Inside my belly, Haaht! It's warm...!"</p>
+<p>"Haa-aa-aang! Master-nim...♥ Haaht! Inside my belly, Haaht! It's warm...!"</p>
 <p>Sakagami Rena, with her waist raised, trembling, feeling my Ejaculation, went through Climax multiple Times.</p>
 <p>After feeling Climax for a while, as if her strength was depleted, Sakagami Rena collapsed onto my Upper Body. I had Ejaculated once, but Sakagami Rena kept feeling Climax, and her Pussy contracted and twitched, stimulating my Cock embedded inside, so my Cock had no chance to go soft.</p>
 <p>I hugged Sakagami Rena, who was lying leaning on me, tightly and began to sway my hips.</p>
@@ -74,12 +74,12 @@ chapter = 921
 <p>Sakagami Rena screamed loud enough to shake the Room, but there was no one to help her. Thus, Sakagami Rena, until she briefly lost consciousness, had no choice but to be relentlessly pounded.</p>
 <p>Today's B-cut!</p>
 <p>Actually, I made many Illustrations, but it's troublesome to put the seaweed, so I'm only uploading one B-cut haha.</p>
-<p>Requested by TheDreaming-nim: Kiyona Hori 1. A barely clothed Maid awkwardly smiling 2. A Maid serving with her breasts on a tray~!</p>
+<p>Requested by TheDreaming-nim: Kiyona Hori 1. A barely clothed Maid awkwardly smiling 2. A Maid serving with her breasts on a tray!</p>
 <p>1.</p>
 <p>2.</p>
-<p>"Not like that, please put your breasts completely on the tray~!"</p>
+<p>"Not like that, please put your breasts completely on the tray!"</p>
 <p>"Like this?"</p>
 <p>The last one is serving with food haha. Hori's model Figure is incredibly good. It seems worth researching haha.</p>
-<p>Requested by Gojoy-nim: The Illustration of Nagumo Sian inducing her to grab her buttocks or breasts was complex (the inducing part), so I just made it as the result, a tightly gripped Appearance~!</p>
+<p>Requested by Gojoy-nim: The Illustration of Nagumo Sian inducing her to grab her buttocks or breasts was complex (the inducing part), so I just made it as the result, a tightly gripped Appearance!</p>
 <p>Buttocks grab!</p>
-<p>Breast grab~!</p>
+<p>Breast grab!</p>

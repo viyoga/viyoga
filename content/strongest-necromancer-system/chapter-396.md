@@ -16,7 +16,7 @@ chapter = 396
 <p>The dinner table was a lot more lively after that, and the girls were all talking about what had happened in Radagan and how the fighting had gone, and by the time Jason came back, Maya had moved closer to Riyala, and she was looking at the scales on her cheeks and her sharp teeth with awe on her face!</p>
 <p>"The scales are like heat regulators. They help me retain heat even in cold environments, and they’re also really strong, so they don’t break easily. My diet is mostly meat, so that’s why my teeth are so sharp. I can tear into you with one bite."</p>
 <p>Riyala acted like she was going to bite Maya, and Maya laughed before she touched Riyala’s scales with a wide smile!</p>
-<p>"You’re so cool~!"</p>
+<p>"You’re so cool!"</p>
 <p>Riyala blushed at the praise.</p>
 <p>"I just hope you’re not after my onii-chan as well. If you try to take him from me, I’ll kick your ass!"</p>
 <p>Riyala’s expression immediately turned awkward when she heard Maya say this, and she chuckled in distress as the little girl glared up at her like some sort of judge! Mira told Maya to watch her language or she would ground her, and Maya cried out in fear as she quickly apologized! Jason stood behind his mother and put his hands on her shoulders before saying:</p>

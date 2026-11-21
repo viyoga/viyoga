@@ -40,7 +40,7 @@ chapter = 850
 <p>To bring it up and say let's meet today, Sakagami Rena's Father, Sakagami Ginshiro, seemed to have quite an impatient Personality. And since I had to give a definite answer about whether I could go or not for them to prepare to welcome me, it seemed she hastily opened the door during counseling.</p>
 <p>"I think it would be fine if you came to our Home around 6 o'clock, which is dinner Time."</p>
 <p>"Understood. I'll go to match that Time."</p>
-<p>"I'm done with counseling too, so shall I slowly get up...! Teacher-ssi, see you in the club room~!"</p>
+<p>"I'm done with counseling too, so shall I slowly get up...! Teacher-ssi, see you in the club room!"</p>
 <p>As it was decided that I would go to the Sakagami Family today, Otagi Yuka also said counseling was over and stood up from her seat. Perhaps because she couldn't help but be compared with the Otagi Family who had disowned her, her Expression wasn't very good. I'll have to give her some Comfort later. Since she'll come for blood replenishment tonight too, you know.</p>
 <p>Although the Sakagami Family was a ninja Family, the Sakagami Family's Miyashi mansion outwardly appeared to be an ordinary Japanese-style mansion. Compared to the Size of giant Family mansions like Minamoto or Kujo, it was smaller, but it was well-built in a traditional-looking style. Well, I don't know much about architectural methods, you know.</p>
 <p>"L-Liege/Master. Oh, you've come?"</p>
@@ -70,13 +70,13 @@ chapter = 850
 <p>It wasn't that I didn't understand Sakagami Ginshiro's Words. No matter how much it was a ninja Family, if a 20-year-old Daughter who had just become an Adult said she was serving some man and becoming independent, it would rather be strange if they didn't care.</p>
 <p>"Sorry, but may I Test Teacher-nim?"</p>
 <p>The Word 'Test' came out, and seeing Sakagami Ginshiro's Expression, his kind Attitude until now was gone, and he was looking at me with an Expression as if looking at a daughter-thief, saying, "I can never give my Daughter!"</p>
-<p>Requested by Hogamyudonggolbaengi-nim: Home Ec Teacher and Alik, wearing Management Swimsuits~!</p>
-<p>Starting with Alik~!</p>
+<p>Requested by Hogamyudonggolbaengi-nim: Home Ec Teacher and Alik, wearing Management Swimsuits!</p>
+<p>Starting with Alik!</p>
 <p>Alik with animal ears suddenly popping out hehehe</p>
-<p>Home Ec Teacher~!</p>
-<p>Requested by TheDreaming-nim: Ryuta fighting, wrapped in Genesis Chaos, Gold Sun version and Gold Sun released version~!</p>
-<p>Gold Sun~!</p>
+<p>Home Ec Teacher!</p>
+<p>Requested by TheDreaming-nim: Ryuta fighting, wrapped in Genesis Chaos, Gold Sun version and Gold Sun released version!</p>
+<p>Gold Sun!</p>
 <p>Black Hair, no Tanning Ryuta</p>
 <p>I tried to make the Genesis Chaos Gi feel like it was mixed with purple and dark blue, but it didn't turn out well hehe.</p>
-<p>Requested by ISaveI-nim: Alik wearing a Geobukseon-ryu Martial Arts Uniform~!</p>
+<p>Requested by ISaveI-nim: Alik wearing a Geobukseon-ryu Martial Arts Uniform!</p>
 <p>Alik dressed a little provocatively especially today ㄷㄷ</p>

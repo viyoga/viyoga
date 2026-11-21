@@ -24,7 +24,7 @@ chapter = 702
 <p>I wiped my mouth with the back of my hand in response to Nae Fitzgerald-ssi's question. In that case, I'd have to pick someone to go first in another way.</p>
 <p>"I'll start with my aunt Nae, who came all the way from America."</p>
 <p>I chose Nae Fitzgerald-ssi as the first person to go with me. She had come a long way on a plane from America, and she had a deal with me today, so I needed to give her some hospitality.</p>
-<p>"Kyaa~! That's Ryuta for you!"</p>
+<p>"Kyaa! That's Ryuta for you!"</p>
 <p>"Yong-tae, whatyaa...!"</p>
 <p>Of course, Nae Fitzgerald-ssi was as excited as if she had won the lottery at my words, and Ha Ju-yoon-ssi was slightly disappointed. I opened my mouth to appease Ha Ju-yoon-ssi.</p>
 <p>"We're not Swedish, we have to treat our guests. She came all the way from America."</p>
@@ -88,7 +88,7 @@ chapter = 702
 <p>"It's true that our Ryuta's semen is warm and nice. I also want to quickly receive Ryuta's warm semen inside...♥"</p>
 <p>She said she wanted to receive it inside quickly, which was subtly, no, openly dirty talk. It was so dirty that my dick, which was slowly losing strength from cumming for the third time, started to regain its strength.</p>
 <p>"Haaheut...! Nae's dirty talk made Yong-tae's dick bigger inside...!"</p>
-<p>"Oh, really? Ehehe, I'll be able to receive it right away. This time, please do it doggy style~!"</p>
+<p>"Oh, really? Ehehe, I'll be able to receive it right away. This time, please do it doggy style!"</p>
 <p>This time, Nae Fitzgerald-ssi was tempting me by getting on all fours in a doggy position. It's true that you have to change positions every time to not get bored.</p>
 <p>I pulled my dick out of Ha Ju-yoon-ssi's pussy to answer Nae Fitzgerald-ssi's request.</p>
 <p>Jureureuk...!</p>

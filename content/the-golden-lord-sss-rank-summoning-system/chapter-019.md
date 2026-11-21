@@ -1,5 +1,5 @@
 +++
-title = "Chapter 19: One hundred push-ups, one second touching them~~ 18+"
+title = "Chapter 19: One hundred push-ups, one second touching them 18+"
 weight = 19
 [extra]
 chapter = 19
@@ -27,7 +27,7 @@ chapter = 19
 <p>So, it wasn’t just by leveling up that he could increase his power.</p>
 <p>Evelyn herself was surprised to see his speed increase, his body suddenly filling with renewed vitality.</p>
 <p>They continued to run for hours on end until, finally, she began to tire.</p>
-<p>"ah~~ that’s enough..." The beauty stopped, watching Ethan collapse face down on the ground, breathing heavily.</p>
+<p>"ah that’s enough..." The beauty stopped, watching Ethan collapse face down on the ground, breathing heavily.</p>
 <p>A satisfied smile spread across her face as she stretched, her body drenched in sweat, her breasts almost slipping out of her cleavage.</p>
 <p>She was, honestly, very surprised by him, and positively so.</p>
 <p>Before being summoned there, she was, after all, a noble.</p>
@@ -44,10 +44,10 @@ chapter = 19
 <p>A system notification arrived, but he barely had time to be happy when he felt her approaching, and soon after, her weight, her plump and perfect buttocks pressing against his back.</p>
 <p>Even as an aura user, it was difficult to do push-ups with so much weight, being so tired.</p>
 <p>Evelyn just stood there, her body rising with Ethan’s slow and difficult push-ups.</p>
-<p>"Hmm... I know! Hahaha~~" She laughed, an idea popping into her mind.</p>
+<p>"Hmm... I know! Hahaha" She laughed, an idea popping into her mind.</p>
 <p>Her hands flowed down to the neckline of the small leather top, pulling it just enough to reveal the curve of the areola surrounding a soft, pink nipple.</p>
 <p>She grabbed the soft, perfect orb, her fingers sinking into the flesh.</p>
-<p>"One hundred push-ups, one second touching them~~. If you hit a thousand, I’ll let you touch them for a whole ten seconds!" She declared confidently, but clearly joking.</p>
+<p>"One hundred push-ups, one second touching them. If you hit a thousand, I’ll let you touch them for a whole ten seconds!" She declared confidently, but clearly joking.</p>
 <p>Given Ethan’s current difficulty, she didn’t think he would even make it past fifty.</p>
 <p>Unfortunately for her, she forgot the power a man could gain when given the right stimulus.</p>
 <p>That big, round ass and those huge tits were the best stimulus Ethan could get.</p>

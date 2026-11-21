@@ -11,7 +11,7 @@ chapter = 357
 <p>The first reason for their awkwardness was that the two of them were partially avoiding each other for some time already. While their relationship became better, the wounds Nent inflicted on Kiyohime could simply never heal no matter how long it may take, maybe nothing would change throughout their lifetimes.</p>
 <p>No matter how you tried to repair it, a broken plate would never go back to its normal state. Nent understood that, if not for the existence of Sol, Kiyohime would simply hate her down to her very bones. Now, at least, she tried to hold herself back and bare with her so she had no complaints.</p>
 <p>The second reason for their awkwardness was definitely the small pink-skinned ball of chaos that was humming as she swam in the bath with no care in the world.</p>
-<p>“Hmm~ Hmmhmm~ Hmm~ Hmmhmm~”</p>
+<p>“Hmm Hmmhmm Hmm Hmmhmm”</p>
 <p>At first glance, she may merely seem like a cute girl with an exotic skin color. But all of them knew that behind this face was a dangerous Titaness that once stood on the side of chaos.</p>
 <p>In a way, it was incredible how obtuse this Titaness was but for Kiyohime and Nent, who actually fought her kind since the day they were born, they couldn’t help but feel tense in her mere presence.</p>
 <p>The only reason they were not being outright hostile was that they knew that one of the reasons the war went so well was because of the intel that this Titaness gave them.</p>

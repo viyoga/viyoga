@@ -36,7 +36,7 @@ chapter = 465
 <p>He poured a glass for himself and another for her, settling into the wide armchair.</p>
 <p>The red wine filled the glass, as clear as diamond crystal, gently reflecting the drink’s deep color.</p>
 <p>“Yes.” Ethan nodded, taking a sip and letting the flavor spread across his tongue. “I can ask him to prepare a few bottles for you before you leave for your kingdom… I can send a legion with you as well—five thousand men. But, well, I very much doubt your people will be happy to see you return to the palace with a human army in tow.”</p>
-<p>“Fufufufu~ It’s true.” Carmilla laughed, her free hand covering her lips for a moment.</p>
+<p>“Fufufufu It’s true.” Carmilla laughed, her free hand covering her lips for a moment.</p>
 <p>“But you needn’t trouble yourself over that. The Eternal Mountain was never suited to human armies in any case. I could, however, send a company of purebloods to you, should you wish it. The most loyal among them.”</p>
 <p>The beautiful vampire queen held the goblet between her long, pale, delicate fingers as she lowered her shapely, plump, juicy buttocks onto Ethan’s lap.</p>
 <p>She shifted, adjusting her weight, and that heavy ass slid slowly over him, warm and full, each cheek rolling in turn against his thigh before settling with a gentle, lingering wobble.</p>

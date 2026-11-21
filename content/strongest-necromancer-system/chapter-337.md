@@ -22,7 +22,7 @@ chapter = 337
 <p>The dragon growled at Riyala again, and the pressure in the air began to rise as it spread its large wings to the side! Riyala felt Fenrir twitch under her as he felt the pressure increasing as well, and Riyala’s eyes widened when she saw that the dragon was getting ready to unleash fire! Didn’t it hear what she said!?</p>
 <p>"W-Wait! Wait!"</p>
 <p>The dragon didn’t even look like it had heard her words as it reared its head back, and Riyala put her hands up as Fenrir quickly prepared to dash to the side, but a voice calmly spoke up from all around the forest and stopped everyone in their tracks.</p>
-<p>"Bring her to me~"</p>
+<p>"Bring her to me"</p>
 <p>The voice was calm and aged, like something you would hear from an elder who had lived for many lifetimes, and the moment Riyala heard the voice, she felt the pressure in the entire forest slowly falling back down. Riyala slowly dropped her hands while opening her eyes, and she saw that the large red dragon was giving her a nasty look in irritation, but it was not attacking her for some reason. The dragon gave her a dismissive glance before it turned away and started to walk, and Riyala wondered what the hell just happened! Fenrir was still snarling angrily at the red dragon, but it was no longer trying to run since the pressure had dropped. Something impacted Riyala’s back and pushed her and Fenrir forward, and Fenrir turned around angrily to snarl at the dragon there! The dragon had pushed them to tell them to move, and Fenrir was obviously not happy about being bullied!</p>
 <p>Riyala petted Fenrir on the side as she finally felt her heartbeat starting to come down again, and she spoke.</p>
 <p>"Let’s just follow them. I need to speak to whoever that was. Please."</p>

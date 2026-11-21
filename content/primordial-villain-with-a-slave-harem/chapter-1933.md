@@ -20,7 +20,7 @@ chapter = 1933
 <p>"Bloodfather’s mark, confirmed." She stopped, then went on, flat, the voice she kept for cargo manifests. "Class augmentation. Within the Bloodfather’s domain, the realm’s roads, records, and borders answer to your seal."</p>
 <p>Nobody in the room said anything.</p>
 <p>"That’s it?" Kitsara asked. "That’s the whole line?"</p>
-<p>"That’s the whole line," Jasmine agreed. Then the window scrolled under her eyes, and the governor’s eyebrows climbed. "Oh. There’s a second page~"</p>
+<p>"That’s the whole line," Jasmine agreed. Then the window scrolled under her eyes, and the governor’s eyebrows climbed. "Oh. There’s a second page"</p>
 <p>She read the second page in the same voice, and it thinned halfway through.</p>
 <p>"The realm is the steward’s labyrinth. The wealth and prosperity of the nation feed its steward. As the realm grows..." Her thumb stopped on the seal. "...so do I. I can enhance my summons, their variety, their numbers..."</p>
 <p>Nobody said anything to that either.</p>
@@ -40,7 +40,7 @@ chapter = 1933
 <p>"...Damn. This girl is a badass," Lucille giggled.</p>
 <p>"You’re not a mere governor anymore," Vex whispered, thrilled.</p>
 <p>"She became a magic landlord," Iris said flatly, from the wall.</p>
-<p>"A tyrannical magic landlord~" Ayame corrected with a purr.</p>
+<p>"A tyrannical magic landlord" Ayame corrected with a purr.</p>
 <p>Serika’s laugh came first and loudest. Lucille crossed to the bed and gathered the governor into her arms, and Jasmine let herself be gathered.</p>
 <p>Over the Bloodmonger’s shoulder she caught Quinlan’s eye and mouthed "I love you."</p>
 <p>Quinlan watched her for a good moment, full of affection.</p>

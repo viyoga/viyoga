@@ -30,11 +30,11 @@ chapter = 357
 <p>Click...!</p>
 <p>I opened the door and went inside, and I could hear Sawayanagi Seari and Mimata Chieri talking and laughing. What are they doing that's making them so excited?</p>
 <p>The sound was coming from the bedroom. I opened the bedroom door and saw Sawayanagi Seari and Mimata Chieri lying together, dressed in sexy lingerie, waiting for me.</p>
-<p>"Ryuta-nim! Come here~!"</p>
-<p>"Ah, Sunbae-nim! The perverted Sunbae-nim prepared in advance before we could be attacked~!"</p>
+<p>"Ryuta-nim! Come here!"</p>
+<p>"Ah, Sunbae-nim! The perverted Sunbae-nim prepared in advance before we could be attacked!"</p>
 <p>What are you two talking about? But it was even funnier that I was taking off my clothes like Pavlov's dog. But there probably aren't many adults who can resist when two beautiful women are waiting in their underwear right in front of them.</p>
 <p>"As expected, the tanned body is more powerful."</p>
-<p>"I like Ryuta-nim no matter what~♥"</p>
+<p>"I like Ryuta-nim no matter what♥"</p>
 <p>Mimata Chieri, who likes netorare, naturally liked me more because I was closer to being a gold-tanned guy, and Sawayanagi Seari seemed to like me just for being me.</p>
 <p>"First, the two of us will serve Sunbae-nim together."</p>
 <p>It seemed that they had already made a sex plan while I was talking to Sawayanagi Sinya, because as soon as I took off all my clothes, they led me to the bed and started caressing me.</p>

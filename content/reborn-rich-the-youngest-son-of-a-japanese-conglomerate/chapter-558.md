@@ -28,7 +28,7 @@ chapter = 558
 <p>Naruse Shiyo-ssi came to school the day after Yukiko left. As Yukiko said, her assimilation rate had increased while sealing the Black Dragon for six years, and Yukiko said that she had almost completely returned to human form right before Yukiko left yesterday.</p>
 <p>So, she was able to come to school much sooner than I had initially thought. When Naruse Shiyo-ssi came to school, all the students greeted her warmly, and Naruse Shiyo-ssi seemed quite touched by it.</p>
 <p>,Shiyo-ppuyo, are you feeling okay?!"</p>
-<p>,Shiyo-chan, I was worried because you suddenly stopped answering your LINE messages~!"</p>
+<p>,Shiyo-chan, I was worried because you suddenly stopped answering your LINE messages!"</p>
 <p>,I'm sorry for making everyone worry."</p>
 <p>I was leaning against the classroom door, watching Naruse Shiyo-ssi and the students with a pleased expression, when Minamoto Lisa-ssi approached.</p>
 <p>,You helped Naruse-ssi with her situation, didn't you?"</p>
@@ -72,9 +72,9 @@ chapter = 558
 <p>Actually, it didn't matter if the students knew it was the PMC certification. Because it was such a difficult certification to obtain, some high-ranking people who wanted to have a personal PMC hired people with PMC certifications at high wages, so there were quite a few people who tried to obtain it simply as a spec, not for the purpose of establishing a PMC directly.</p>
 <p>,Ryuta-jji, you're a teacher and you're working hard on other studies?"</p>
 <p>,I'm a contract worker, so I have to work hard in case I get fired."</p>
-<p>,Teacher! If you get fired, come to our agency! The president told me to ask you for sure~! He became a fan after watching the vlog you were on!"</p>
+<p>,Teacher! If you get fired, come to our agency! The president told me to ask you for sure! He became a fan after watching the vlog you were on!"</p>
 <p>The classroom was quiet for a moment at the mention of the contract worker, but it became noisy again at Uenozono Karen-ssi's words. As the vlog from the sports day became quite a hot topic, Uenozono Karen-ssi's agency president seemed to be very interested in me. There aren't many guys in Japan with a mask and a good body like this.</p>
-<p>,Woo~! I'm against Ryuta-jji becoming a celebrity!"</p>
+<p>,Woo! I'm against Ryuta-jji becoming a celebrity!"</p>
 <p>,That's right! Please be our teacher only!"</p>
 <p>Normally, I would have said it would be fun and told them to try it, but the students were against me becoming a celebrity. I didn't have any intention of becoming a celebrity in the first place, so I smiled and waved my hand.</p>
 <p>,I have no intention of doing it either. Work hard today and see you at the end of the day."</p>

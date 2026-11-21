@@ -7,10 +7,10 @@ chapter = 291
 
 <p>Nae Fitzgerald-ssi didn't use a regular airplane, but came on a private jet. The only business Nae Fitzgerald-ssi has is the luxury brand Légion, but that company is doing well, and she stole so many things that she had more than enough wealth to run a private plane.</p>
 <p>When I went to Haneda Airport, Nae Fitzgerald-ssi was already there. She was wearing simple jeans and a white shirt, and had a bag that looked like a golf bag on her back, which probably contained Cheongcheonbyeokryeok (thunderbolt) in it.</p>
-<p>"Ryuta~! I missed you!"</p>
+<p>"Ryuta! I missed you!"</p>
 <p>A beautiful woman with lemon-colored bright blonde hair and light green beautiful eyes shouted at me and hugged me, and attention was quickly drawn, but the concentration of the busy crowd did not last long. They quickly took their eyes off us and went their way.</p>
 <p>"Have you been well?"</p>
-<p>"Yeah, I've been doing well~! I also got a few things~!"</p>
+<p>"Yeah, I've been doing well! I also got a few things!"</p>
 <p>Seeing that there were no articles about the Phantom Thief François in the media, it seemed that the museums or collectors who had been robbed by Nae Fitzgerald-ssi had not reported it. In the case of museums, they wouldn't want to publicize that they had been robbed, and the collector probably had treasures stolen that they had obtained through illegal means. That's why there are no articles.</p>
 <p>"Shall we go to the hotel first?"</p>
 <p>"Yes."</p>
@@ -20,7 +20,7 @@ chapter = 291
 <p>"I guess it is a date. But right now, it's an undersea tunnel, so there's not much to see, right?"</p>
 <p>The Tokyo Bay Aqua-Line is an undersea tunnel for two-thirds of the way from Tokyo, and the rest is a road built on the sea, but now it's the beginning, not long after departing from the airport, so there's nothing to see inside the undersea tunnel.</p>
 <p>It was just a tunnel... The road just kept going, so it didn't feel like a date.</p>
-<p>"No~! It's dark and cozy."</p>
+<p>"No! It's dark and cozy."</p>
 <p>"I guess that's true."</p>
 <p>It's cozy because it's just the two of us in the car. Nae Fitzgerald-ssi subtly said this and put her hand on the middle of my pants.</p>
 <p>"Want me to make you feel good while you drive?"</p>
@@ -84,7 +84,7 @@ chapter = 291
 <p>The topic was Ha Ju-yoon-ssi's divorce, which was the hottest news recently. I didn't know, but even after the divorce, she was being attacked by the newspaper company that Shinkang Group owned. I should help a little later.</p>
 <p>"Besides, they made me take down the advertisement I was doing."</p>
 <p>"Ah, I see.... Then, would you like to advertise for our company?"</p>
-<p>"Advertiser-nim~!!"</p>
+<p>"Advertiser-nim!!"</p>
 <p>Nae Fitzgerald-ssi is also the president, so she can give advertisements. Besides, it's a luxury brand, so it will be of great help to Ha Ju-yoon-ssi's image.</p>
 <p>Well, I made Ha Ju-yoon-ssi on the same side as planned in advance, but I was being a little alienated because the two were talking. So, I let the two talk and I was looking at my phone.</p>
 <p>"Then...."</p>

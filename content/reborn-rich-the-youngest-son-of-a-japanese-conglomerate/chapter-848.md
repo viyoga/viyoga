@@ -38,24 +38,24 @@ chapter = 848
 <p>"Next, I just need to call Kina, right?"</p>
 <p>"Yes, please."</p>
 <p>Shido Tsubaki once again bowed her Head, then left the Counseling Room. After waiting a little, Kujo Kina entered, opening the door noisily.</p>
-<p>"Kyahaha! Counselor No. 2 has arrived~!"</p>
+<p>"Kyahaha! Counselor No. 2 has arrived!"</p>
 <p>Kujo Kina, who appeared laughing heartily, flipped the Chair opposite me backwards. Kujo Kina, sitting with her Legs spread wide, crossed her Arms and, with a sly Expression, looked at me and opened her mouth.</p>
 <p>"What are you curious about regarding me, Teacher?"</p>
 <p>"It's just a formal career counseling. I told you earlier."</p>
 <p>"Kyahaha, was that so?"</p>
 <p>Actually, besides counseling, there were other Stories to share with Kujo Kina. First, shall I quickly finish the counseling? Before that....</p>
 <p>"While counseling, what's with your Legs spread wide? Sit properly."</p>
-<p>"Kyahaha! My panties aren't even showing, so let's just talk quickly and finish it~!"</p>
+<p>"Kyahaha! My panties aren't even showing, so let's just talk quickly and finish it!"</p>
 <p>Kujo Kina seemed to have no intention of listening to my Words. As Kujo Kina said, her panties weren't visible, but it was quite precarious. If she has no intention of listening, I should quickly finish the Story.</p>
 <p>"Alright, let's quickly finish the counseling first. You've decided to go to St. Francis Women's University.... What will you do after university?"</p>
 <p>"I'm thinking of starting a franchise GYM Business.... Of course, my main will be Fist Technique Training, but still, since I'm a Daughter of the Kujo Family, I feel like I should do something nominally."</p>
 <p>I thought she had no thoughts at all, but still, she was thinking about the future. From the regret of the cool-headed Shido Tsubaki to Kujo Kina thinking about the future, I'm seeing new Aspects because of counseling.</p>
-<p>"Unexpectedly, you're thinking about the future? I thought you'd just live saying, 'I'm solely on the path of martial arts~!'"</p>
+<p>"Unexpectedly, you're thinking about the future? I thought you'd just live saying, 'I'm solely on the path of martial arts!'"</p>
 <p>"Kyahaha! How on earth do you see me, Teacher? Although I like martial arts, I have to prepare a way to live, don't I?"</p>
 <p>I must have seen Kujo Kina too simply. I felt like I had ignored her too much, so I honestly apologized.</p>
 <p>"It's alright. Instead, please tell me something that would be helpful for my franchise GYM Business."</p>
 <p>"There are also things like protein or those that help with Athleticism. How about doing that together? If you sell them in vending machines as single-use items, they'll sell well, won't they?"</p>
-<p>"Oh~! There was such a Method?! Thank you, Teacher. I'll have to try implementing the idea Teacher-nim gave me."</p>
+<p>"Oh! There was such a Method?! Thank you, Teacher. I'll have to try implementing the idea Teacher-nim gave me."</p>
 <p>When I presented a simple idea that anyone could do, Kujo Kina was extremely satisfied.</p>
 <p>"This much is enough for career counseling...."</p>
 <p>"Is it over? Can I go back? I was playing a board game with the Kids."</p>
@@ -77,6 +77,6 @@ chapter = 848
 <p>"I've delivered all the Information, and what's updated periodically, I'll send it via Line, so share it with the old man Yoda."</p>
 <p>"That's easy. If Anyaji really invades, I'll also participate, so prepare a suitable Opponent for me, Teacher."</p>
 <p>I didn't expect even Kujo Kina to step forward to fight. Anyaji's ganbu would be difficult, but the lower-ranked Fist Technique practitioners called Musung, she would be able to face sufficiently. I, wearing a satisfied Smile with the joining of new power, ended the counseling.</p>
-<p>Kujo Kina B-cut~!</p>
-<p>Muko Neika new model Remake~!</p>
-<p>Hoit~!</p>
+<p>Kujo Kina B-cut!</p>
+<p>Muko Neika new model Remake!</p>
+<p>Hoit!</p>

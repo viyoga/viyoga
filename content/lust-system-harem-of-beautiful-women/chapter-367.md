@@ -39,7 +39,7 @@ chapter = 367
 
 <p>Back at her place, Luis sternly instructed, &quot;Dinner is here. Don’t eat any of that random, unhealthy messy stuff. Just heat it up a little and it’s ready to eat, understand?&quot;</p>
 
-<p>&quot;Understood~ I’ll be obedient.&quot;</p>
+<p>&quot;Understood I’ll be obedient.&quot;</p>
 
 <p>Chloe appeared on the surface to be a meek, long-suffering little wife, but in her heart, she was already blossoming with joy.</p>
 

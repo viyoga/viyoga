@@ -13,9 +13,9 @@ chapter = 304
 <p>"Fuck."</p>
 <p>Jason didn’t even need to turn around to know that Gina was just as shocked as he was! Jason looked down at the sword with a heavy glare, but no matter how much he tried, he couldn’t help but be impressed by the amount of power rolling off the sword at that moment! Jason hadn’t felt any power at all from the sword before, but now, he could tell that it was filled to the fucking brim with power! The sword was vibrating in Jason’s hand in a way that was almost alive, and Jason had a feeling that the sword was desperate to release even more power, but Jason did his best to hold it back so it didn’t go too far.</p>
 <p>Jason could already tell that this was far too much power, and if he went any further than this, he might lose control! Jason narrowed his eyes at the blade, and he tried his best to reduce the amount of power coming off the sword. The sword easily responded to Jason’s commands, and Jason watched as the sword blade reduced in size until it was only about a meter long and a few centimeters wide, like a regular sword! Jason nodded while looking over the blade made from purple light.</p>
-<p>"Freedom~!"</p>
-<p>"Let us out~!"</p>
-<p>"I want to live~!"</p>
+<p>"Freedom!"</p>
+<p>"Let us out!"</p>
+<p>"I want to live!"</p>
 <p>"Give me life!"</p>
 <p>He brought the blade closer to himself when he heard some strange voice moaning from the blade, and Jason was shocked when he saw various faces floating about inside the purple sword! The faces looked twisted and bent, almost like they were being tormented and Jason quickly asked Azrael what those faces were. Azrael was about to answer, but the sword suddenly spoke up.</p>
 <p>"So you don’t even know what you’re doing!? You’ve called on the tormented souls from the [River of the Afterlife], and you’re using them like this without even knowing what effects they’ll have on you!? Haha! You’ll go mad really soon! I’m sure of it! In fact, with these many souls, you should already start feeling the madness creeping in! Right!?"</p>

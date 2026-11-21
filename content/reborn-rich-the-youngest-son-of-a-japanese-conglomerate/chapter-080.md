@@ -74,15 +74,15 @@ chapter = 80
 <p>It definitely felt narrower and tighter than before, probably because she had surgery to enhance her sexual organ.</p>
 <p>,Haaak!!"</p>
 <p>,You like it this much after only a week?"</p>
-<p>,Heeeuuung! I like it so, so much~!! My husband can't even compare...! Haaang!!!"</p>
+<p>,Heeeuuung! I like it so, so much!! My husband can't even compare...! Haaang!!!"</p>
 <p>The enhanced pussy+1 of Shinoe Misano, who had surgery, definitely felt good. Also, since I had called her out during work, I didn't try to hold back and sprayed my semen inside Shinoe Misano's pussy as it was.</p>
-<p>,Heeueeeaaang~ It's warm...!"</p>
+<p>,Heeueeeaaang It's warm...!"</p>
 <p>Not caring that Shinoe Misano had gone, I pulled out my dick and gave it to Shinoe Misano to suck. Shinoe Misano naturally sucked and cleaned my dick even though she had climaxed. No, why did you try to reject me when you're so used to cleaning my dick even when you're this out of it?</p>
 <p>,Spread them."</p>
 <p>I took out a small pack of wet wipes that I usually carry around and wiped Shinoe Misano's pussy. I suddenly thought about why I had tried to act like an owner to Shinoe Misano just now. Yeah, I didn't like that Shinoe Misano prioritized her husband over me. In my head, I was like, 'Well, he's her husband, so I can understand,' but in my heart, I felt annoyed.</p>
 <p>I couldn't help but laugh at my possessiveness, which was like a child showing off. Yeah, any woman who has a relationship with me has to prioritize me. I threw the wet wipe, which was covered in my Semen, into the trash can with that selfish thought.</p>
 <p>--------------------------</p>
-<p>It's been a while since Shinoe Misano's Yasushin Memorial Shinoe Misano illustration~!</p>
+<p>It's been a while since Shinoe Misano's Yasushin Memorial Shinoe Misano illustration!</p>
 <p>Shinoe Misano means tennis wear....!</p>
 <p>No bra, nipple sticking out Shinoe Misano</p>
 <p>I made it with the drawing style I usually use, but it became similar to Yukiko, so I tried making it with a different drawing style!</p>

@@ -39,7 +39,7 @@ chapter = 589
 
 <p>Her pussy closed on Julian’s mouth, and he instinctively began to pleasure her with his tongue. She tasted exactly as he remembered.</p>
 
-<p>“Mmhh~~ ” Her immediate gasp of pleasure told him she’d been anticipating this moment and had been aroused even before entering his chambers.</p>
+<p>“Mmhh ” Her immediate gasp of pleasure told him she’d been anticipating this moment and had been aroused even before entering his chambers.</p>
 
 <p>“That’s it,” Cecilia breathed, her hips beginning a slow roll against his face. “Use that tongue on me. Let me feel your power.”</p>
 

@@ -25,7 +25,7 @@ Emilia didn't say anything to that and simply lay still. She knew that whatever 
 
 Lith didn't tease his soon to be wife further and having her in his embrace, he slid his hand down further and further until he finally reached her fleshy folds.
 
-"Ah~" Emilia moaned as Lith rubbed his finger on her bare pussy.
+"Ah" Emilia moaned as Lith rubbed his finger on her bare pussy.
 
 This was too much for her and she ended up having a small orgasm. All this teasing that Lith did before had already put her on the edge and now it got released as his fingers touched her.
 
@@ -47,7 +47,7 @@ Emilia laid on Lith's body and closed her eyes to not see what was happening.
 
 Lith rubbed his fingers on her pussy slit and then touched her clit with his index finger.
 
-"Ah~ It's sensitive…" Emilia said in a low voice while having her eyes closed.
+"Ah It's sensitive…" Emilia said in a low voice while having her eyes closed.
 
 "Alright, I'll be careful." Lith assured her and touched the region around her clit and didn't rush to it directly.
 
@@ -57,7 +57,7 @@ While doing that, his other hand was kneading her breasts and a few seconds of p
 
 He stopped rubbing her slit and instead shoved his two fingers inside Emilia's drippjng wet pussy.
 
-"Ahh~" Emilia moaned.
+"Ahh" Emilia moaned.
 
 Lith slid his fingers in and out of her soft, warm and narrow cave and continued to play with her breasts.
 
@@ -115,15 +115,15 @@ Lith was yet to feel tired and the same was for Emilia. Both felt as if this was
 
 Lith decided to change things a bit and he inserted three fingers inside her pussy to finger fuck her.
 
-"Ahhh~"
+"Ahhh"
 
-"Not one more… Ah~"
+"Not one more… Ah"
 
 Lith made Emilia's face turn to him and sealed her lips with his. His three fingers thrust in and out of her sloppy wet vagina while his thick hard rod pounded her tight and soft anal walls.
 
 While the two went on to do this, a few thousand metres away from them…
 
-"Ahh~… Darling~..."
+"Ahh… Darling..."
 
 .....
 

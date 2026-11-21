@@ -41,8 +41,8 @@ chapter = 520
 <p>After that, we had a pleasant meal. The food we ordered was delicious, and the food the Cheongsim Hall members made was also delicious (for reference, Nishiike Neiko made okonomiyaki. It was delicious too.). I overate quite a bit, but since the students had ordered so much food, Alik packed all the leftovers into the airtight containers he had brought.</p>
 <p>Most of the students had chefs cooking for them at home, so only I, Saionji Diana, and Otagi Yuka packed food. For reference, Otagi Yuka, being a vampire, ate like a normal human, only needing blood from time to time. Of course, she didn't need to suck blood now because she was getting it from my semen.</p>
 <p>,We'll do this again tomorrow, so get some rest today."</p>
-<p>,Okay~! I'm off, Ryuta-cchi!"</p>
-<p>,Goodbye, seonsaengnim~!"</p>
+<p>,Okay! I'm off, Ryuta-cchi!"</p>
+<p>,Goodbye, seonsaengnim!"</p>
 <p>The students finished cleaning up and went home. I stayed behind to talk to Shimokawabe Airen about the drugs, and Alik was sitting next to me, looking at me with an innocent expression.</p>
 <p>,Ryuta, go with Alik."</p>
 <p>,Okay. Let's talk to Shimokawabe seonsaengnim for a bit before we go."</p>

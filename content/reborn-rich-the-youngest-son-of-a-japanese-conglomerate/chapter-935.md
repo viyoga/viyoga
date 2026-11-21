@@ -7,10 +7,10 @@ chapter = 935
 
 <p>and breast chapter check contains exposure please surroundings this your</p>
 <p>I, who came out of Genbaki's Hospital Room, looked around at the hospitalized Joseodang agents and encouraged them, and since I had come for a hospital visit, I also stopped by the Hospital Room where the Gwonmaeng people were hospitalized.</p>
-<p>"Yo, Teacher~!"</p>
+<p>"Yo, Teacher!"</p>
 <p>As I opened the Hospital Room door where the Gwonmaeng people were hospitalized, Kujo Kina also happened to be visiting, and waved her Hand at me. Kujo Kina was looking around at the Gwonmaeng people with the Yoda old man.</p>
 <p>"Did you come for a hospital visit?"</p>
-<p>"Of course~! They are all Sabu's friends. They are all comrades who fought with Anyaji...!"</p>
+<p>"Of course! They are all Sabu's friends. They are all comrades who fought with Anyaji...!"</p>
 <p>Listening to Kujo Kina's Words, I greeted the Gwonmaeng martial artists who were lying down. The place that suffered the most harm in this battle with Takakusaki Gengo was Gwonmaeng. They took on Hojo Otoji, Anyaji's second-in-command, and several people were seriously injured, and although they were a bit of a hindrance, they also stood in the Vanguard in the battle with Takakusaki Gengo, so they had the most injured people.</p>
 <p>Fortunately, perhaps because there were no casualties, the Atmosphere in the Hospital Room wasn't too bad.</p>
 <p>"I don't know if you heard, but those who were stabbed by tentacles...."</p>
@@ -18,7 +18,7 @@ chapter = 935
 <p>Because they were Gwonmaeng martial artists who fought in the front, there were quite a few people stabbed by Takakusaki Gengo's tentacles, so when I told him what I had heard from Shimokawabe Airen earlier, the Yoda old man said he had already heard it.</p>
 <p>"Don't worry about the Treatment fees."</p>
 <p>Since there's no harm in maintaining a good Relationship with Gwonmaeng, I decided to take Responsibility for the Gwonmaeng martial artists' Treatment fees. Fujigasaski Rinka is also affiliated with Gwonmaeng, so she's not a stranger; I can do at least this much.</p>
-<p>"Ah~! I was going to pay...!"</p>
+<p>"Ah! I was going to pay...!"</p>
 <p>Kujo Kina was also a Young Lady from a wealthy Family, so when I said I would pay the Treatment fees, she made a regretful Expression.</p>
 <p>"You can just come often and buy them delicious things."</p>
 <p>"Ah...! There was such a Method. Teacher, are you a Genius?"</p>
@@ -64,7 +64,7 @@ chapter = 935
 <p>With Fujigasaski Rinka, the Yoda old man, Seizawa Shii, and Otagi Yuka, I thought they could probably crush a small PMC in an hour. Plus, there were Kujo Kina and Seiwa Rieko.... If what I was thinking worked out well, two more Combatants would be added, so I felt I wouldn't have to worry anymore.</p>
 <p>So, I went back to Sabu's Hospital Room, briefly explained the Situation and said my greetings, then headed alone to the Dark Merchant's Hall. Alik and Naruse Shiyo decided to stay with their Sabu, Seizawa Shii, Otagi Yuka, and Seiwa Rieko decided to coordinate their schedule with Fujigasaski Rinka, and Konoe Akina headed to her Family mansion because of Family matters.</p>
 <p>As I took a Taxi alone to the Dark Merchant Branch, Eve, wearing a China Dress, greeted me. By the way, did she meet the Musashi Takuro old man in that outfit?</p>
-<p>"Ryuta-nim~!"</p>
+<p>"Ryuta-nim!"</p>
 <p>"Eve."</p>
 <p>I gave a slight bow to Eve, who was greeting me, and looking around, Saionji Diana wasn't there. Where did she go?</p>
 <p>"Where's Diana?"</p>
@@ -86,12 +86,12 @@ chapter = 935
 <p>Of course, I didn't intend to receive shares just by becoming the Boss. Even if TG Tech's Technology was used, royalties could be paid for it, so it seemed I would only receive shares if I proceeded with an Investment.</p>
 <p>"Uhuhuhu, then.... Shall we start the Negotiation?"</p>
 <p>Eve looked at me, smiling slightly ominously. Seeing Eve's smiling Appearance, the share Negotiation didn't seem like it would be easy.</p>
-<p>Requested by MidNightSKY-nim: Seizawa Shii surprised by seeing her own Strength measurement, and Linling happy to receive a gift~!</p>
-<p>Shii first~!</p>
-<p>Linling happy to receive a gift~!</p>
+<p>Requested by MidNightSKY-nim: Seizawa Shii surprised by seeing her own Strength measurement, and Linling happy to receive a gift!</p>
+<p>Shii first!</p>
+<p>Linling happy to receive a gift!</p>
 <p>The last one is even tiny Linling haha.</p>
-<p>Requested by TheDreaming-nim: 1. Lianna Holden pressing her breasts inside a Phone Call Box, and 2. Lianna Holden running on the Street~!</p>
+<p>Requested by TheDreaming-nim: 1. Lianna Holden pressing her breasts inside a Phone Call Box, and 2. Lianna Holden running on the Street!</p>
 <p>1.</p>
 <p>2.</p>
 <p>There are many characters who can't run well (when creating with AI), but Lianna Holden runs well hehehe.</p>
-<p>Requested by Yourigo-nim: Diaper Alik has been replaced with Cute Panties Alik~!</p>
+<p>Requested by Yourigo-nim: Diaper Alik has been replaced with Cute Panties Alik!</p>

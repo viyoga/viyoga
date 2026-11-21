@@ -28,7 +28,7 @@ chapter = 632
 <p>In fact, if North China accepted South China's demands, the war wouldn't escalate, but it was questionable whether North China would accept the demands.</p>
 <p>South China's demand was simple. Arrest the Red Revolution Front, which committed this crime, and send them to South China. Some argued that sending one terrorist group to the victim country would prevent a war, while others said it was an unreasonable demand from South China that infringed on the country's right to punish.</p>
 <p>I knew that the Red Revolution Front was being supported by North China, so I was convinced that they wouldn't send the Red Revolution Front to South China because North China could end up taking all the blame for this cyber zombie incident.</p>
-<p>"Sensei~! Did you wait long?"</p>
+<p>"Sensei! Did you wait long?"</p>
 <p>"No, I was looking at my phone for a while, so I didn't even realize the time."</p>
 <p>Urabe Konoka came out after changing her clothes while I was checking the articles on my phone. She was wearing a simple outfit of a long-sleeved polo shirt and jeans, but it suited her quite well because of her beautiful figure. Urabe Konoka's trademark red headband also suited her surprisingly well.</p>
 <p>"Let's have breakfast here."</p>
@@ -39,7 +39,7 @@ chapter = 632
 <p>The breakfast prepared in advance by the Urabe family wasn't particularly special. But it was made up of very comforting foods, so it was a kind and gentle morning.</p>
 <p>Sweet wagashi came out for dessert, and we sat and chatted while eating, then brushed our teeth for a while and met again.</p>
 <p>"Shall we really go now?"</p>
-<p>"Yes~"</p>
+<p>"Yes"</p>
 <p>I started driving with Urabe Konoka in the car. Our date course this time was the villa district on the outskirts of Miyashi.</p>
 <p>Miyashi's wealthy neighborhoods, famous as villa cities, were in two places: the area around St. Francis Girls' Academy, where large mansions were gathered, and the area on the eastern outskirts of Miyashi, where moderately sized villas were gathered.</p>
 <p>It was a place where beautiful villas were gathered, giving it the feeling of a European resort city, with many delicious high-end restaurants and cafes with a good atmosphere.</p>

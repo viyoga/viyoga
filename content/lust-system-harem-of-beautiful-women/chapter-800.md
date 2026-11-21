@@ -51,7 +51,7 @@ chapter = 800
 
 <p>She couldn’t help but imagine what this bastard would do to her. Her body grew aroused instantly, her panties soaked through in a matter of moments, it was almost absurd.</p>
 
-<p>&quot;Baby, I’ve missed you so much~...&quot;</p>
+<p>&quot;Baby, I’ve missed you so much...&quot;</p>
 
 <p>Luis climbed onto the bed directly. Ignoring her faint resistance, he pulled down her camisole strap, and her full, plump breasts bounced free.</p>
 
@@ -83,11 +83,11 @@ chapter = 800
 
 <p>Panting, he lined up his cockhead with her slippery slit and thrust home in one powerful stroke.</p>
 
-<p>&quot;Ahhh~...&quot;</p>
+<p>&quot;Ahhh...&quot;</p>
 
 <p>Hela couldn’t help crying out, then bit her lip and gasped. &quot;Bastard... you went all the way in at once...&quot;</p>
 
-<p>&quot;Do you like it~...&quot;</p>
+<p>&quot;Do you like it...&quot;</p>
 
 <p>&quot;Yes!!!&quot;</p>
 
@@ -161,7 +161,7 @@ chapter = 800
 
 <p>Nancy went into the room and said sweetly, &quot;Mom, let me put a hydrating mask on you, this one’s about done.&quot;</p>
 
-<p>&quot;Okay~...&quot;</p>
+<p>&quot;Okay...&quot;</p>
 
 <p>Hela responded vaguely. She’d finally caught her breath.</p>
 

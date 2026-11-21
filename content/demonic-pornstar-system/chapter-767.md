@@ -56,8 +56,8 @@ chapter = 767
 <p>A slow, wrecked, entirely unrepentant grin spread across her face.</p>
 <p>"...rematch."</p>
 <p>She pushed up onto her elbows, winced, and kept going anyway. "...demand. A rematch. I wasn’t ready. I was distracted. The bell was loud. Many factors."</p>
-<p>*Jingle~*</p>
-<p>*Jingle~*</p>
+<p>*Jingle*</p>
+<p>*Jingle*</p>
 <p>The bell jingled softly as she crawled across him.</p>
 <p>The Storm Valkyrie planted her knees on either side of Kaiden’s hips and looked down at him with that same smug gremlin grin. She was still fucked stupid and her grin knew it. The grin was not the grin of a woman who cared about the outcome. The grin was the grin of a woman who had already lost, thoroughly enjoyed losing, and had decided that losing again sounded even better than the first one.</p>
 <p>Kaiden looked up at her.</p>

@@ -31,17 +31,17 @@ chapter = 35
 
 <p>&quot;Y-you already cummed two... times...&quot;</p>
 
-<p>&quot;I can last for countless times, Aunt~ so it’s nothing to be amazed by...&quot;</p>
+<p>&quot;I can last for countless times, Aunt so it’s nothing to be amazed by...&quot;</p>
 
 <p>&quot;I’m... not... amazed...&quot; She turned her head away while gulping hard.</p>
 
 <p>The thing right in front of her face was like heaven and earth compared to her husband’s tool.</p>
 
-<p>&quot;Oh, then don’t you want it anymore, Aunt~?&quot; Owen touched her chin; he wanted to see her expression.</p>
+<p>&quot;Oh, then don’t you want it anymore, Aunt?&quot; Owen touched her chin; he wanted to see her expression.</p>
 
 <p>&quot;N-no, I w-want it...&quot;</p>
 
-<p>’Whoa!! Not even trying to hide your feelings... hoho, how pent-up you must be feeling, Aunt, to say that~’</p>
+<p>’Whoa!! Not even trying to hide your feelings... hoho, how pent-up you must be feeling, Aunt, to say that’</p>
 
 <p>&quot;Then please give me another, Aunt... It’s still as rigid as a metal pole even after giving me two blowjobs. I think you need to take full responsibility for working it up into this state.&quot; Owen slapped her cheeks with it again, letting the heavy, thick cock bounce against her soft skin.</p>
 
@@ -53,11 +53,11 @@ chapter = 35
 
 <p>Still, the danger felt palpable, considering this was her very first time... no, second time, keeping such a dirty little secret from her husband.</p>
 
-<p>&quot;Shh... do you want Uncle to hear your loud voice? He’s right nearby, you know~&quot; Owen made a shushing gesture, pressing a finger to his lips while never halting his relentless teasing.</p>
+<p>&quot;Shh... do you want Uncle to hear your loud voice? He’s right nearby, you know&quot; Owen made a shushing gesture, pressing a finger to his lips while never halting his relentless teasing.</p>
 
 <p>He began rubbing his shaft against her forehead, and she instinctively sniffed the unique, masculine scent of his potent rod as if it were an intoxicating perfume.</p>
 
-<p>&quot;You’re even sniffing my weapon, Auntie... just wrap your lips around it already so we can finish before time runs out~&quot; Owen was entirely prepared to walk this tightrope, as long as he could drive Morenne to pleasure him again.</p>
+<p>&quot;You’re even sniffing my weapon, Auntie... just wrap your lips around it already so we can finish before time runs out&quot; Owen was entirely prepared to walk this tightrope, as long as he could drive Morenne to pleasure him again.</p>
 
 <p>If this kept up, bedding her while her husband slept soundly after a grueling day of hard labor in the rice fields wouldn’t be impossible at all!</p>
 

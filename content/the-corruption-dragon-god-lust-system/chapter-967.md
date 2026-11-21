@@ -47,7 +47,7 @@ chapter = 967
 
 <p>He kept a firm seal around the nipple, sucking without pause, until he finally felt Mingzhu’s milk—creamy and sweet—flood his lips in a warm torrent.</p>
 
-<p>"Onn~~ w-wait... is that milk? H-how?" Shock filled Mingzhu’s face, and she suddenly pulled away, her whole body jerking backward.</p>
+<p>"Onn w-wait... is that milk? H-how?" Shock filled Mingzhu’s face, and she suddenly pulled away, her whole body jerking backward.</p>
 
 <p>The nipple slipped from his lips with a wet pop, a thin stream of milk trailing behind it.</p>
 
@@ -79,7 +79,7 @@ chapter = 967
 
 <p>The thin fabric of their garments did very little to separate them. It was almost as if it weren’t even there.</p>
 
-<p>"B-be gentle~~"</p>
+<p>"B-be gentle"</p>
 
 <p>She managed to squeeze those two words from her lips, her voice shaky and muffled. But they were enough to make Qingyi’s face light up, a slow smile spreading across it as his hands slid down her back.</p>
 
@@ -103,7 +103,7 @@ chapter = 967
 
 <p>Qingyi slipped two fingers under the side and pulled firmly. The panties left Mingzhu’s body with a short snap, dragging across the soft swell of her buttocks and making the plump flesh quiver before he tossed them aside.</p>
 
-<p>"Ahnn~~ you know... you could’ve just asked me to take off my clothes with Qi..." Mingzhu said, her voice slightly choked up, glancing up at him with red cheeks. "You don’t have to rip my dress every time."</p>
+<p>"Ahnn you know... you could’ve just asked me to take off my clothes with Qi..." Mingzhu said, her voice slightly choked up, glancing up at him with red cheeks. "You don’t have to rip my dress every time."</p>
 
 <p>The complaint drew a low, amused laugh from Qingyi, his hand already sliding down her waist in a slow caress. His fingers glided over the smooth, warm skin of her belly, feeling it dip with each shallow breath, until they stopped just above her plump mons pubis.</p>
 

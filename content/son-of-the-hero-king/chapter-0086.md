@@ -12,9 +12,9 @@ chapter = 86
 <p>Finally, after a silent contest, the maid with cow horns on either side of her head asked with a smiling face.</p>
 <p>"So, you are telling me that even with all the time I have given you there is still no definite proof about the Gorfard having an alliance with the believer of the Crimson lady?"</p>
 <p>The middle-aged man adjusted his monocle and with a jester smile, nodded,</p>
-<p>"Indeed. Ohoh~! What can we say? They are truly careful. I guess we will have to rely on you when the prince visits the place."</p>
+<p>"Indeed. Ohoh! What can we say? They are truly careful. I guess we will have to rely on you when the prince visits the place."</p>
 <p>The smile on Milia's face never changed despite the antics of the one facing her. Inwardly though, she was wondering whether she could kill him or not.</p>
-<p>"Oh~ Sloppy~Sloppy~. I can feel your killing intent so easily. It seems like those years of peace while serving him really dulled you. I am quite disappointed. Or perhaps is he that important to you? Minos must be turning in his-"</p>
+<p>"Oh SloppySloppy. I can feel your killing intent so easily. It seems like those years of peace while serving him really dulled you. I am quite disappointed. Or perhaps is he that important to you? Minos must be turning in his-"</p>
 <p>He didn't manage to finish his sentence before feeling a sharp edge over his throat and a slight prickling sensation.</p>
 <p>Raising his head, he crossed his eyes with cold eyes devoid of any emotion in them.</p>
 <p>"I forbid you from insulting him."</p>
@@ -24,7 +24,7 @@ chapter = 86
 <p>He feared many things. But death wasn't one of them.</p>
 <p>–After all, there were so many things worse than death in this world.</p>
 <p>Edgar chuckled merrily before pushing away the dagger from his throat while looking at Milia.</p>
-<p>"Scary~Scary~ I was completely unable to react. Seems like I was wrong about you being rusted. Should I say, as expected of the only successful experiment?"</p>
+<p>"ScaryScary I was completely unable to react. Seems like I was wrong about you being rusted. Should I say, as expected of the only successful experiment?"</p>
 <p>Milia's expression became colder at those words for a few seconds before slowly going back to the previous smiling one.</p>
 <p>"Why are you trying to test me?"</p>
 <p>Wiping the trace of blood from his throat with a handkerchief, his lips curled in a mocking smile, "... Guess."</p>
@@ -68,7 +68,7 @@ chapter = 86
 <p>"Soon, something very exciting may happen in the city. I need to make enough preparation to welcome the guests when it happens."</p>
 <p>Chloe frowned before also observing the gate. She stared at it for a short while before understanding dawned in her eyes. Said understanding was soon replaced by absolute dread.</p>
 <p>"Is this the true reason why you made this game of hiding your power?"</p>
-<p>Camelia smiled, "Fufufu~ who do you take me for? I am not a goddess you know? I can't see the future. My plan was only created to reel in some small fish and a rabid dog. Who would have thought that I could also catch some heretics? I guess this is what it means to be blessed by Lady Luck."</p>
+<p>Camelia smiled, "Fufufu who do you take me for? I am not a goddess you know? I can't see the future. My plan was only created to reel in some small fish and a rabid dog. Who would have thought that I could also catch some heretics? I guess this is what it means to be blessed by Lady Luck."</p>
 <p>Chloe chuckled helplessly while covering her face with her hands.</p>
 <p>The more time passed and the more she wondered if she made the right choice in choosing Lustburg to get more experience.</p>
 <p>"Oh, little Chloe, don't make such a face. You make me feel like I am the bad guy. You should be happy you know? Killing heretics is always a good way to get more blessings. Besides,"</p>
@@ -76,7 +76,7 @@ chapter = 86
 <p>Chloe didn't know what feelings she should have currently, but happiness was definitely not one of them.</p>
 <p>Thankfully, the fear she felt also receded greatly.</p>
 <p>"Lustburg is destined to face a storm."</p>
-<p>"The coming of a great king cannot happen without a storm to overcome. Soon, Lustburg will welcome a new hero king. Fufufu~! It will be beautiful. I hope he will reward me! Ah~! I can't wait for it~!"</p>
+<p>"The coming of a great king cannot happen without a storm to overcome. Soon, Lustburg will welcome a new hero king. Fufufu! It will be beautiful. I hope he will reward me! Ah! I can't wait for it!"</p>
 <p>Chloe could only turn her head to not see the current expression of Camelia.</p>
 <p>'Perhaps I should have visited the demons? It couldn't have been worse, right...?'</p>
 <p class="scene-break">· · ·</p>

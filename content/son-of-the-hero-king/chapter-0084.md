@@ -64,7 +64,7 @@ chapter = 84
 <p>Sol smiled. He knew where her insecurities were coming from.</p>
 <p>"Honestly, your body is indeed one of the less curvy than the other. But– I still think that you are the most beautiful in my heart."</p>
 <p>He could see Medea deflate a little during the first part of his words before changing into joy at the last part.</p>
-<p>"Sol~!"</p>
+<p>"Sol!"</p>
 <p>Hugging him tightly, Medea screamed his name while her body began to shiver for a few seconds.</p>
 <p>This scene astonished him,</p>
 <p>'She is cumming?'</p>
@@ -78,22 +78,22 @@ chapter = 84
 <p>He coated his fingers with the love juices flowing from her vagina and rubbed all over the inner labia that had swollen out in arousal.</p>
 <p>“Ah, ahh… ah, ahn.”</p>
 <p>His finger stimulated her softened flesh in every direction like he was stirring her up. A ticklish pleasure soon ruled her crotch.</p>
-<p>"Ah~... something, something entered."</p>
+<p>"Ah... something, something entered."</p>
 <p>"It’s just a finger. If it hurts then tell me."</p>
 <p>"It doesn't… hurt...Please… Don't stop."</p>
 <p>She had never known how sensitive that part of her body was. She felt as if all her body was on fire.</p>
 <p>She stifled a scream of pleasure when his fingers captured her clitoris. His thumb and forefinger pinched and lightly rolled around the pleasantly hard flesh bud.</p>
-<p>“Ah~!"</p>
+<p>“Ah!"</p>
 <p>The stimulation was too powerful, so her limbs trembled uncontrollably. He gave a focused vibration to the clitoris held between his two nectar-soaked fingers.</p>
 <p>“You appear to be sensitive here.”</p>
-<p>“Ah…stop. N-no, wh-what? I…this feels weird…I! Ah~ ! .”</p>
+<p>“Ah…stop. N-no, wh-what? I…this feels weird…I! Ah ! .”</p>
 <p>Every woman’s clitoris was sensitive and he was attacking more than just that. He also massaged her left breast, brought the nipple into his mouth, and rolled it around while soaking it with saliva.</p>
 <p>Medea experienced her second climax of the day. One that lasted even longer than the previous one.</p>
 <p>“That should be good enough.” He said after seeing her refocus.</p>
 <p>He stripped off his clothing to reveal the fit body created thanks to all the training. His penis was also revealed. Seeing it left Medea speechless.</p>
 <p>Medea trembled in embarrassment and worry as he grabbed her slender ankles and spread her thighs wide enough to see what lay between them. He brought his manly cock right up to the hidden red flowers sitting open at her crotch.</p>
 <p>The tip of his hard erection pressed against the nectar-wet valley and his precum mixed with the sexual juices flooding her maiden slit.</p>
-<p>“Nn~!"</p>
+<p>“Nn!"</p>
 <p>She had already been brought to climax twice by Sol's skilled caress, so she did not have the strength left to even lift a finger and could only breath heavily while staring at him.</p>
 <p>Sol, too before going for the last thrust, looked at Medea. His eyes filled with tender love but also a question in it. He was clearly showing that even though it would be hard if she wanted to stop, he wouldn't force her.</p>
 <p>This, more than anything, made Medea melt even more.</p>

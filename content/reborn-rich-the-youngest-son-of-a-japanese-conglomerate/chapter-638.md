@@ -8,7 +8,7 @@ chapter = 638
 <p>Before I knew it, it was the end of class, and the special class was turned upside down by my statement. It was because I asked for 100 sets of the photo cards I was in.</p>
 <p>,Hey.... Minamoto Risa, I'll buy my photo card sets with money, so could you prepare about... 100 sets?</p>
 <p>I figured I needed at least 60 sets when calculating 2-3 sets per person to give photo card gifts to, so when I said 100 sets to be generous, it caused an uproar.</p>
-<p>,Ahahahaha! Seriously, Ryuta-cchi! Are you a narcissist? You're thinking of collecting 100 sets of your own photo cards? So funny~☆</p>
+<p>,Ahahahaha! Seriously, Ryuta-cchi! Are you a narcissist? You're thinking of collecting 100 sets of your own photo cards? So funny☆</p>
 <p>,Teacher, even so, 100 sets seems a bit much.</p>
 <p>,Sensei, what the hell do you need 100 sets for? You're not gonna use it once and throw it away, are you?</p>
 <p>As expected, 100 sets seemed a bit too much. But I couldn't become a narcissistic pervert who's satisfied looking at his own pictures, so I had to make excuses.</p>
@@ -66,7 +66,7 @@ chapter = 638
 <p>●Kkyuri Kkyung: I was only going to collect one set, but after seeing this post today, I'm going to collect 2 sets!</p>
 <p>●Goddess of the Moon Diana: I heard from the neighborhood that there's a cafe in the special class building where you can exchange cards. If you exchange there, you'll be able to match the sets quickly.</p>
 <p>●Ryuko-tan: What if they don't release enough club collections to match 2 sets? That's the biggest problem.</p>
-<p>●Cherry-chan: I'm going to match 3 sets, including the evangelism one~♥</p>
+<p>●Cherry-chan: I'm going to match 3 sets, including the evangelism one♥</p>
 <p>,Certainly.... That makes sense.</p>
 <p>Taira Kanna nodded as if she made sense after reading the post. Taira Kanna hadn't thought of dividing it into appreciation and storage until now, and she thought she only needed to collect one set.</p>
 <p>,I'm going to match two sets, no.... three sets.</p>

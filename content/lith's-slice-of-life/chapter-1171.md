@@ -9,7 +9,7 @@ A week later.
 
 Qing Mei Sect.
 
-*Staareee~*
+*Staareee*
 
 fanny was giving her mother weird glances as she sat beside her around a round table, drinking tea.
 

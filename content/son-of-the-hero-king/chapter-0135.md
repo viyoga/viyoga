@@ -46,13 +46,13 @@ chapter = 135
 <p>Leaving with a dark face, his fur bristling with sparks of lightning, he looked like a beast ready to shred everything to pieces.</p>
 <p class="scene-break">· · ·</p>
 <p>[Wratharis; Temple]</p>
-<p>“Kukuku! Hahaha! I knew it. That cunning woman would never weaken herself so obviously. Ha~! I really wish I could see the face that stupid bastard and those guys from the council must be making.”</p>
+<p>“Kukuku! Hahaha! I knew it. That cunning woman would never weaken herself so obviously. Ha! I really wish I could see the face that stupid bastard and those guys from the council must be making.”</p>
 <p>While the atmosphere in the castle was dark and oppressive, in the depth of the temple of Patientia, the atmosphere was the complete opposite.</p>
 <p>Sitting with her log crossed on the Tatami, Kiku Patientia was happily chugging down the alcohol in the bottle she held as if it was water.</p>
 <p>Even though she was worried about the actions of the Wings of Freedom, it wasn’t as if it was their first time to attack a kingdom. What’s more, from the information she received, they had been perfectly repelled.</p>
-<p>“Puwa~! Sake definitely feels better when you are in a good mood. Don’t you think so as well, Shuten?”</p>
+<p>“Puwa! Sake definitely feels better when you are in a good mood. Don’t you think so as well, Shuten?”</p>
 <p>Saying so she looked at the small girl wearing so little clothes she might as well be naked. The only thing really covering her being a large kimono.</p>
-<p>“Umu. Your Sake is really the best. Even the Monkey wine of the stone monkey clan barely compares. Kakaka~!”</p>
+<p>“Umu. Your Sake is really the best. Even the Monkey wine of the stone monkey clan barely compares. Kakaka!”</p>
 <p>Narrowing her eyes at the nonchalance the small Oni was showing, Kiku decided to stop beating around the bush.</p>
 <p>“Tell me, why did you come? I thought that you were on that pup side?”</p>
 <p>“*Sigh* Kiku, dear Kiku, this is why despite all your power, your clan is on a steady decline. You are too straightforward. On his side? Please, in this world, there are neither eternal enemies, nor allies. One must always fight for their best interests.”</p>

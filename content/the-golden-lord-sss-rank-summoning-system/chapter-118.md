@@ -15,7 +15,7 @@ chapter = 118
 <p>He’d already used plenty with Alice and Evelyn over the past few months, but what was left was more than enough.</p>
 <p>With Mireya’s back to him, he seized her enormous purple tits with both hands.</p>
 <p>He didn’t remove the bikini, keeping it there to squeeze her breasts together in an obscene embrace. The thin fabric strained against the sheer mass of them, the straps biting into her skin as his fingers dug in and pushed the heavy flesh together.</p>
-<p>"Aghnn~~ What the hell is this cold stuff? I order you to stop immediately, you bastard!"</p>
+<p>"Aghnn What the hell is this cold stuff? I order you to stop immediately, you bastard!"</p>
 <p>Ethan ignored her. His hands ran over her full breasts from bottom to top, squeezing and feeling the flesh slip through his grip, now covered in a shiny layer of lubricant.</p>
 <p>Each pass made the massive globes wobble in his palms, the slick surface catching the light.</p>
 <p>With a smirk, he brought his hands to the underside of her purple globes and gave them small, repeated pats.</p>

@@ -61,7 +61,7 @@ chapter = 158
 <p>As they walked side by side, Evora continued to appraise Ansel from time to time, her gaze increasingly satisfied.</p>
 <p>"Your pact head," she suddenly said, "Seraphina Marlowe, where is she?"</p>
 <p>"Resting."</p>
-<p>"Resting... I see~" The woman's lips curled up slowly, reaching out to tilt Ansel's chin. "You were quite formidable three years ago. I wonder how you are now."</p>
+<p>"Resting... I see" The woman's lips curled up slowly, reaching out to tilt Ansel's chin. "You were quite formidable three years ago. I wonder how you are now."</p>
 <p>"Your Highness," Ansel gently pushed away Evora's hand, "please refrain from making such highly suggestive remarks."</p>
 <p>"Hah, it was the servant I sent to you who said that, not my concern."</p>
 <p>Evora seemed quite pleased. "You have no idea how happy her response made me. Ansel... before that, I always thought you were a truly unfeeling monster. Her answer made me realize that you still have desires, and quite strong ones at that."</p>

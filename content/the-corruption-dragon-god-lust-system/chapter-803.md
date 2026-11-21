@@ -103,7 +103,7 @@ chapter = 803
 
 <p>"Ah... you can’t go even a second without wanting to smother your husband to death?" he muttered, his voice muffled by the tight embrace of those incomparable pale tits.</p>
 
-<p>"Nghnn~~" Ruxue’s purple eyes glowed with an almost childlike delight.</p>
+<p>"Nghnn" Ruxue’s purple eyes glowed with an almost childlike delight.</p>
 
 <p>Her lips, the same shade, curved into a languid smile.</p>
 
@@ -113,4 +113,4 @@ chapter = 803
 
 <p>Without wasting a second, she leaned down and claimed his lips in a hungry kiss, her tongue slipping past them to explore her husband’s mouth.</p>
 
-<p>"Ah... the girls are going to go crazy when they see you, you know? Fufufu~" She let out a soft, mischievous giggle, melting against the lips of the man she had, over time, come to truly love.</p>
+<p>"Ah... the girls are going to go crazy when they see you, you know? Fufufu" She let out a soft, mischievous giggle, melting against the lips of the man she had, over time, come to truly love.</p>

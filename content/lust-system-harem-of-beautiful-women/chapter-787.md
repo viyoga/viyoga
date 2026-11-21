@@ -81,7 +81,7 @@ chapter = 787
 
 <p>Sucking in her son-in-law’s intoxicating scent, Ruth’s eyes were already brimming with lust.</p>
 
-<p>&quot;Ahhh~&quot;</p>
+<p>&quot;Ahhh&quot;</p>
 
 <p>Luis couldn’t wait any longer and pushed her down. Under his mother-in-law’s hungry gaze, he lifted her legs, bent down to kiss her while thrusting deep inside, drawing a satisfied, wanton moan from her.</p>
 
@@ -95,7 +95,7 @@ chapter = 787
 
 <p>&quot;So amazing... are you trying to fuck me to death...&quot;</p>
 
-<p>&quot;I can’t take it... ahhh, it feels so good~&quot;</p>
+<p>&quot;I can’t take it... ahhh, it feels so good&quot;</p>
 
 <p>Luis went full throttle, fucking her wildly. Such ferocious sex made Ruth instantly surrender to ecstasy. At her age, with desires burning like fire, she simply couldn’t withstand this beast-like union.</p>
 
@@ -105,7 +105,7 @@ chapter = 787
 
 <p>The sheets beneath their joining were soaked with her love juices, a testament to just how intensely satisfying the experience was for her.</p>
 
-<p>&quot;Ahhh~&quot;</p>
+<p>&quot;Ahhh&quot;</p>
 
 <p>As Ruth reached her third orgasm, Luis’s eyes were bloodshot as he mustered all his strength and thrust deep inside.</p>
 
@@ -137,7 +137,7 @@ chapter = 787
 
 <p>He’d cum three times in an hour, and with all the recent indulgence, his stamina had dropped to 8.5. The System was worried he might one day end up dead on a woman’s belly from overexertion.</p>
 
-<p>&quot;Mom... how are you feeling~?&quot;</p>
+<p>&quot;Mom... how are you feeling?&quot;</p>
 
 <p>Luis held his mother-in-law close and asked gently.</p>
 
@@ -151,7 +151,7 @@ chapter = 787
 
 <p>Ruth propped herself up and knelt between her son-in-law’s thighs, eagerly savoring his cock with relish.</p>
 
-<p>&quot;Third time... and you still came so much~&quot;</p>
+<p>&quot;Third time... and you still came so much&quot;</p>
 
 <p>Ruth murmured as she licked away the thick, fragrant semen mixed with her own love juices.</p>
 

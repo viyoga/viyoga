@@ -24,7 +24,7 @@ chapter = 456
 <p>He did have experience in his previous world. But all those experiences he could ever have paled in front of what Milia made him feel during their first time together.</p>
 <p>It had been quite a life-changing experience for him, to say the least.</p>
 <p>Milia smiled softly as she opened the front of Sol’s pants and fished out his already-hardened penis. It felt hot and heavy in her hands. The shape of the blood vessels pulsating along the length made her heart pound heavily. She began to gently handle the organ and fondled it like it was the greatest treasure in the world.</p>
-<p>“My, my~ Every time I look at it, I wonder how this thing can go inside me.”</p>
+<p>“My, my Every time I look at it, I wonder how this thing can go inside me.”</p>
 <p>It looked like a massive spear that wished to tear her apart from the inside. Her cheeks became flushed again as she leaked out a hot sigh at the thought of feeling this inside of her.</p>
 <p>She was quite startled when she felt a hand go around her body and couldn’t help but look up at Sol, “Stop. I am pretty sure none of us needs any more foreplay at this point.”</p>
 <p>Sol was one who would usually take all the time in the world necessary to bring pleasure to his partner. But Milia’s had gone above and beyond a few moments ago. The only thing that could rival that powerful climax in his mind was the moment when Nefertiti shared the pleasure between all of them.</p>
@@ -33,7 +33,7 @@ chapter = 456
 <p>But beneath her large skirt, this reality couldn’t be any more different.</p>
 <p>“You like this, right?”</p>
 <p>Milia grinned as she watched Sol’s entranced expression when he felt his hardened shaft press against her garden while his vision was being obstructed by her skirt.</p>
-<p>“Ahem~ You slander me. I do not understand your insinuations.”</p>
+<p>“Ahem You slander me. I do not understand your insinuations.”</p>
 <p>“Heh…”</p>
 <p>Milia snickered out loud at the shamelessness of her lover and lord. She had observed some of Sol’s small fetishes and knew that this situation where one could see nothing about what was happening below greatly aroused him to an abnormal degree.</p>
 <p>“Oh?”</p>
@@ -41,10 +41,10 @@ chapter = 456
 <p>He was being teased now, was he? A grin formed on his face at that thought…</p>
 <p>‘Now, now, we couldn’t have that, can we?’</p>
 <p>“You do know… That I know about what is in your room, right?”</p>
-<p>“Wha ~ Ah~!”</p>
+<p>“Wha  Ah!”</p>
 <p>Milia was not able to finish her sentence as Sol placed his hand around her hips and made her plunge down on his massive girth.</p>
 <p>She gasped for breath. Her private place was so wet from her earlier orgasm that he penetrated her with no problem whatsoever, even though the considerable girth and length that he packed beneath. But even after that, it wasn’t that there were no effects whatsoever. His massive member was packed enough to make her falter for a moment.</p>
-<p>“Wai~ Ah~ Your Highness~!”</p>
+<p>“Wai Ah Your Highness!”</p>
 <p>She could feel her moist and slithery insides clench his unruly shaft wildly as it filled her stomach while leaving no gaps unattended. As she trembled and tried to get used to the sensation she had missed for so long, Milia tried to get her words out but with no success in sight.</p>
 <p>All she could do was let herself be swept away by the waves of pleasure as she hugged Sol with a troubled groan. With her so close, the sound of her lustful groans filled his ears like heavenly music, making Sol grind even faster along her depths.</p>
 <p>He grabbed the front part of her robe with his teeth and tore the clothes apart like a beast going at the flesh of its prey. Her breasts, now free from their cumbersome restraints, were as impressive as always. The way they bounced proudly seemed to go against all the laws of gravity that Sol had been taught in his past life. No matter how much time had passed, and no matter how many mysteries and sights he witnessed through his journeys, this one, in particular, never ceased to amaze even once.</p>
@@ -52,14 +52,14 @@ chapter = 456
 <p>When Milia tried to put a word in again, Sol brought his teeth down with a laser focus and bit down gently on her nipples, but with enough force to make her moan rather than scream in displeasure. He then proceeded with playing around with her other breast, massaging it with all his skills.</p>
 <p>The numbing sensation coming from her breasts made Milia distracted enough that she was unable to express herself correctly.</p>
 <p>Taking off his mouth, he brought it to her collarbones and nibbled for a bit before muttering,</p>
-<p>“Milia, oh dear Milia~ I am constantly moving through the whole tower using my dimension. You seriously thought I wouldn’t notice them?”</p>
+<p>“Milia, oh dear Milia I am constantly moving through the whole tower using my dimension. You seriously thought I wouldn’t notice them?”</p>
 <p>Milia’s collection had been quite…. Interesting. To put it mildly. That was all he was willing to say about them. Sol didn’t know what was more disturbing about this scenario.</p>
 <p>The fact that Milia basically had a whole room dedicated to worshiping him with pictures, sculptures, diary entries about his days, objects he owned in the past and so much more…</p>
 <p>…Or the fact that all he felt after having witnessed such an eerie and goosebump-inducing sight was that Milia was pretty cute in her own right.</p>
 <p>Sol chuckled as he kissed her fully on the lips. “I don’t mind them, you know?”</p>
 <p>He was surrounded by crazy women. This was a reality that he could either embrace or reject.</p>
 <p>He chose to embrace it lovingly with no hesitation whatsoever.</p>
-<p>“Ah~!”</p>
+<p>“Ah!”</p>
 <p>Milia was left speechless but soon, hearts seemed to shine in her eyes as her libido shot through the roof at that statement.</p>
 <p>Sol may have seen her collection, but he did not push her away. That alone was like the greatest gift in the world for her.</p>
 <p>Like a string that had completely snapped for good, her reasoning broke thoroughly. All she wished now was to share this overwhelming and overflowing love in her chest with her most cherished and dearest person in the entirety of existence. She was once again affirmed of the fact that Sol was… everything to her.</p>

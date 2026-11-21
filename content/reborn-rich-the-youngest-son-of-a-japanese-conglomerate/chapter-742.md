@@ -87,4 +87,4 @@ chapter = 742
 <p>When I made it with a new model, her eyes were more exposed than I thought ㄷㄷㄷ But since I made it anyway, I tried some new things with the new model hehe</p>
 <p>Saionji Diana with a cyber implant prosthetic arm for combat!</p>
 <p>Saionji Diana threatening to shoot you if you don't recommend it....! She pointed a gun at me too, so I had no choice but to self-recommend ㅠㅠ</p>
-<p>The rest of the characters requested by RefundAbsolutelyNotAllowed-nim will be uploaded tomorrow~!</p>
+<p>The rest of the characters requested by RefundAbsolutelyNotAllowed-nim will be uploaded tomorrow!</p>

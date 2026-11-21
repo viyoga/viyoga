@@ -101,7 +101,7 @@ He sneered, but didn't call Lith out for it. He would first taste and see how it
 
 The old man took hold of a pair of chopsticks and was about to grab a golden cube when…
 
-"Mmffhhh~…."
+"Mmffhhh…."
 
 A soft moan disturbed him.
 
@@ -133,7 +133,7 @@ To this day, Miwa was still getting royalties for her poison concoction.
 
 Lith almost had a tear in his eyes.
 
-"Mhm-hmm~…"
+"Mhm-hmm…"
 
 "…"
 

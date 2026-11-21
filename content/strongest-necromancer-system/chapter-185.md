@@ -17,7 +17,7 @@ chapter = 185
 <p>Jason released a huff and smiled. It was obvious he wasn’t okay, but as far as he was concerned, it didn’t matter. All that mattered now was getting Gina back. Jason stood up, and he gave Riyala his hand to help her up while saying,</p>
 <p>"Yeah, I’m fine. I was just a little tired. Come on."</p>
 <p>Jason helped her to her feet, and then he began walking towards the artefacts that his subordinates had gathered—</p>
-<p>"Help me~"</p>
+<p>"Help me"</p>
 <p>Jason suddenly stopped in his tracks as he heard something echo in his ear. He turned around sharply to glance at Riyala, and he saw her giving him a curious look. Riyala asked Jason if there was something wrong, and Jason shook his head ’no’. He ran a hand through his hair and tried to listen for the voice again, but he didn’t hear anything. What the hell was that?</p>
 <p>’It sounded like a woman asking for help. I don’t recognize the voice.’</p>
 <p>Jason quickly turned to the system and asked it if it recognized the voice he just heard, and the system sent a response back.</p>

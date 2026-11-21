@@ -143,7 +143,7 @@ chapter = 791
 
 <p>Chloe seemed the least competitive, but she was actually the most open. She gazed at Luis with tender eyes and said,</p>
 
-<p>&quot;I can’t breastfeed tonight since I’ve been drinking. Looks like I can sleep on my own, huh~&quot;</p>
+<p>&quot;I can’t breastfeed tonight since I’ve been drinking. Looks like I can sleep on my own, huh&quot;</p>
 
 <p>It sounded like a refusal, but it was actually a subtle invitation.</p>
 

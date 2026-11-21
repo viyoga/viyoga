@@ -5,7 +5,7 @@ weight = 584
 chapter = 584
 +++
 
-<p>“Ah~~ Q-Qingyi…” Auranys gasped, calling out his name as she felt the pressure of his huge, throbbing cock against her divine pussy, her plump, pale vulva clinging to his glans.</p>
+<p>“Ah Q-Qingyi…” Auranys gasped, calling out his name as she felt the pressure of his huge, throbbing cock against her divine pussy, her plump, pale vulva clinging to his glans.</p>
 
 <p>Her delicate, rosy knees sank into the soft mattress, her beautiful porcelain face flushed with a deep red blush.</p>
 
@@ -23,7 +23,7 @@ chapter = 584
 
 <p>She felt the exact moment Long Qingyi’s cock broke her virginity and then continued pushing forward, inch by inch, stopping only when he reached the depths of her divine womb.</p>
 
-<p>“Aghnnn~~” The goddess’s lips parted in an obscene moan, her eyes widening and her tongue slipping out.</p>
+<p>“Aghnnn” The goddess’s lips parted in an obscene moan, her eyes widening and her tongue slipping out.</p>
 
 <p>The pain of losing her virginity lasted only a moment, soon replaced by an intense wave of pleasure.</p>
 
@@ -61,7 +61,7 @@ chapter = 584
 
 <p>He pulled his hips back and then thrust everything forward again.</p>
 
-<p>“Nghnn~~ Q-Qingyi… g-gentle…” Auranys moaned into the mattress. Qingyi didn’t respond, merely moving her hands to grab Auranys’ wrists.</p>
+<p>“Nghnn Q-Qingyi… g-gentle…” Auranys moaned into the mattress. Qingyi didn’t respond, merely moving her hands to grab Auranys’ wrists.</p>
 
 <p>Without hesitation, he pulled her towards himself, using her arms as leverage to lift her torso, her fat, perfect tits hanging down from her body.</p>
 
@@ -79,7 +79,7 @@ chapter = 584
 
 <p>A slap echoed as the enormous mountains of flesh struck her torso, a violent ripple overtaking the vast orbs and a jet of milk escaping from her pink nipples.</p>
 
-<p>“Aghnn~~ fuck~~ this huge thing is going to nghnn~~ tear me in half” Auranys’ eyes rolled back, filled with pleasure, her tongue slipping from her lips in an obscene expression.</p>
+<p>“Aghnn fuck this huge thing is going to nghnn tear me in half” Auranys’ eyes rolled back, filled with pleasure, her tongue slipping from her lips in an obscene expression.</p>
 
 <p>With a firm grip on her ass, Qingyi pulled back and then thrust it all the way in again, reveling in every moan from the goddess.</p>
 
@@ -95,7 +95,7 @@ chapter = 584
 
 <p>“Ah…” Qingyi relaxed before pulling back, his cock slipping out of the tight grip of that perfect pussy with a soft pop.</p>
 
-<p>“Nghnn~~ Qingyi…” Auranys placed her hand on her own cum-filled womb.</p>
+<p>“Nghnn Qingyi…” Auranys placed her hand on her own cum-filled womb.</p>
 
 <p>“Look what you’ve done to me…” She gasped and, with some difficulty, rolled onto her back on the bed.</p>
 
@@ -109,7 +109,7 @@ chapter = 584
 
 <p>He savored her milk before moving up to her lips, kissing her.</p>
 
-<p>“nghnn~~” Auranys moaned against his lips, and when they parted, she flashed a sweet smile.</p>
+<p>“nghnn” Auranys moaned against his lips, and when they parted, she flashed a sweet smile.</p>
 
 <p>“N-no… it felt good…” She looked away immediately, blushing deeply.</p>
 

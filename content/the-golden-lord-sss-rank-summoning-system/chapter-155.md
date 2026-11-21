@@ -19,14 +19,14 @@ chapter = 155
 <p>After a few moments, he finally came in her mouth.</p>
 <p>Her cheeks puffed out, lips sealing tightly as she squeezed her massive, soft breasts around the base of his shaft.</p>
 <p>The heavy mounds pillowed around him, dark skin stretched taut where her fingers dug in, trembling under the force of her grip.</p>
-<p>"Gulp~~ Gulp~~ Gulk..."</p>
+<p>"Gulp Gulp Gulk..."</p>
 <p>Her throat, still groggy with sleep, struggled and failed to handle it all.</p>
 <p>Long strands of cum escaped, dripping from the corners of her lips and painting her two huge tits with sticky white trails that gleamed against her dark skin.</p>
-<p>"Aghnnn~~"</p>
+<p>"Aghnnn"</p>
 <p>A muffled moan escaped as she lifted her breasts and let them drop heavily onto Ethan’s lap.</p>
 <p>The two massive globes bounced from the impact with a wet, meaty slap, the dense flesh rippling in thick, lazy waves that traveled across every inch of their surface.</p>
 <p>Her fingers sank back into the dark skin now glazed with cum, kneading the heavy mounds slowly as thick white ropes trickled down the deep valley of her cleavage.</p>
-<p>"Thanks for the meal, hubby... I hope this little gift helps you start your day off right, fufufu~~ "</p>
+<p>"Thanks for the meal, hubby... I hope this little gift helps you start your day off right, fufufu "</p>
 <p>She smiled maturely, her long fingers covering her cum-slicked lips as she let out a high-pitched, sweet, delicate burp.</p>
 <p>She blushed at the adorable sound that had escaped her own lips, her free hand resting gently on her stomach, now filled with Ethan’s seed.</p>
 <p>"Oops... looks like I drank too much of hubby’s milk," she sighed with satisfaction, slowly rising from the bed.</p>

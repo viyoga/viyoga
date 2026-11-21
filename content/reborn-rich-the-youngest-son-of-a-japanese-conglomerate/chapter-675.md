@@ -85,5 +85,5 @@ chapter = 675
 <p>"There are people passing by here, so let's go inside and talk."</p>
 <p>I didn't want a more difficult situation to arise here, so I went inside the house with both of them.</p>
 <p>____________</p>
-<p>Oofuchi Erika~!</p>
+<p>Oofuchi Erika!</p>
 <p>She should be wearing a VR helmet, but the helmet has been omitted hehe</p>

@@ -73,7 +73,7 @@ However, just moments later, a black-haired couple walked towards Avelyn and Ral
 
 Avelyn, looking at the duchess coming close to her, smiled and waved back. 
 
-"hello~" She said sweetly.
+"hello" She said sweetly.
 
 Looking at the Duke and duchess arrive, Ralph too greeted them, saying, 
 

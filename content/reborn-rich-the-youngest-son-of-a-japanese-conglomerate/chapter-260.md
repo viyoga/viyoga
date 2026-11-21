@@ -10,12 +10,12 @@ chapter = 260
 <p>Sawayanagi Azuma and Lianna Holden were sprawled out on the bed. Still, Sawayanagi Azuma's education was successful overnight.</p>
 <p>Lianna Holden was quite an excellent student. Perhaps because she was a PMC soldier, even though she was an operator, her body was flexible and she used her body well, so she followed Sawayanagi Azuma's teachings well, and her sensitivity was so good that she could enjoy sex itself.</p>
 <p>Still, a virgin is a virgin, so she retired quickly, so I, who still had stamina left, had no choice but to harass Sawayanagi Azuma. In the end, Lianna Holden woke up and I stacked them both and took turns pounding them, so now they are both incapacitated on good terms.</p>
-<p>,Heuaahm~!'</p>
+<p>,Heuaahm!'</p>
 <p>I yawned, stretched roughly, and then threw myself between the two women's naked bodies and lay down. When I wake up, I should contact Han Yu-gyeong and tell her about the future.</p>
 <p>###</p>
 <p>After parting ways with the Seryutai members and trainees, I returned to the Talent Development Center home and had a video call with Han Yu-gyeong on my computer. Han Yu-gyeong on the screen was at the company, as I could see the monitor behind her, and she was wearing a white shirt and a black skirt.</p>
 <p>Han Yu-gyeong's face was bright, as if she was glad to see my face because we had only been talking on the phone or KakaoTalk. Hmm, she's still pretty... I'm just using the camera attached to the computer, but Han Yu-gyeong seems to be taking pictures with a separate, good camera because she wants to look prettier to me.</p>
-<p>-Yong-tae-ya~!</p>
+<p>-Yong-tae-ya!</p>
 <p>,Yeah, how have you been?'</p>
 <p>-Do you know how worried I was when I heard you were in LA, Yong-tae? I was going to fly over there right away...!</p>
 <p>Han Yu-gyeong started nagging me as soon as I greeted her. Of course, it's natural to be worried because a disaster that killed 26,000 people happened... But I don't have any injuries, and even if I do get hurt, I recover. Han Yu-gyeong had nothing to worry about.</p>
@@ -76,5 +76,5 @@ chapter = 260
 <p>-Eung, we're both scared of our grandfathers....</p>
 <p>Han Yu-gyeong, who has a scary grandfather like me, nodded with an understanding look at my words.</p>
 <p>,I'll contact you again.'</p>
-<p>-Eung, I'll buy something Yong-tae likes when I go to Tokyo~!</p>
+<p>-Eung, I'll buy something Yong-tae likes when I go to Tokyo!</p>
 <p>We waved our hands at each other and ended the video call. There were a few more items to discuss with Han Yu-gyeong and I was going to contact Ha Ju-yoon, but I should talk about that later. I have to start preparing now to get there on time for dinner.</p>

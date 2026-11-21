@@ -81,4 +81,4 @@ chapter = 729
 <p>"Liege/Master...! I'm sorry. Your Liege/Master's sausage looks so delicious, I can't hold back any longer."</p>
 <p>"My Partner, the milk that comes from your Partner's tip is truly the delicacy of the World♥"</p>
 <p>Although I grumbled about being hungry, everyone was already in Heat/Rut (Simyeonui ttal had already Possessed Urabe Konoka). I, as if there was nothing I could do, erected my cock.</p>
-<p>Christmas Special Gift Box Han Yu-gyeong~! I tried making them with different models hehehe Lisa-ttang supporting her breasts, requested by Hwanbuljeoldaebulga-nim, and Class Teacher will be uploaded tomorrow~!</p>
+<p>Christmas Special Gift Box Han Yu-gyeong! I tried making them with different models hehehe Lisa-ttang supporting her breasts, requested by Hwanbuljeoldaebulga-nim, and Class Teacher will be uploaded tomorrow!</p>

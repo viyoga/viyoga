@@ -14,7 +14,7 @@ chapter = 409
 <p>"What for?" he asked after turning fully to face her. "You haven’t done anything wrong."</p>
 <p>Naira lifted her head, meeting his eyes. "I’m sorry for being afraid of you. I treated you like a bad man even after you saved me from the monsters!"</p>
 <p>Aria clasped her hands together and sighed dreamily. "See? We already told you, he’s a total sweetheart under all that confident, masculine stuff men like to display. It makes them feel good about themselves."</p>
-<p>"I couldn’t have said it any better~" Bastet purred. "Master is the best man in the whole world!"</p>
+<p>"I couldn’t have said it any better" Bastet purred. "Master is the best man in the whole world!"</p>
 <p>Nyx and Luna only giggled, sending Kaiden an emotion-filled look.</p>
 <p>Diaz and Thomas both closed their eyes at the same time, feeling full of self-pity. Then, after a soul-cleansing internal sigh, their eyelids parted, and the two men exchanged a look that could only be described as pure pain.</p>
 <p>Diaz already knew it, and now so did Thomas. Being in the same group as Valhalla’s Sinners came with many pros and cons. Namely, they were very strong and competent, but their dynamic would make any man seethe with envy.</p>

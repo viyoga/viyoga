@@ -9,7 +9,7 @@ chapter = 54
 <p>Felix rolled his shoulder once and looked down at what was left of his shirt. Half of it was hanging off him in strips and the other half was gone entirely.</p>
 <p>He didn’t seem bothered by it.</p>
 <p>But someone was.</p>
-<p>"Not bad at all~" Petra licked her lips as her eyes traced down Felix’s body slowly, from his chest to his abs to the lines that disappeared below his waistband.</p>
+<p>"Not bad at all" Petra licked her lips as her eyes traced down Felix’s body slowly, from his chest to his abs to the lines that disappeared below his waistband.</p>
 <p>’Why is it so goddamn durable!?’ She bit the corner of her lip in frustration, silently cursing his pants for surviving that clash.</p>
 <p>But an exciting thought crossed her mind as she watched Felix’s hardened body shift back to its normal state.</p>
 <p>’Can he make ’that’ rock hard too?’ A jolt of current shot through her body and a obsessive look flashed in her violet eyes.</p>

@@ -29,7 +29,7 @@ chapter = 910
 <p>"Yes, sit."</p>
 <p>"Yes."</p>
 <p>I greeted the Grand Duke geezer, then took my Seat. Next to me sat Yukiko-ssi, my stepmother, with Pink Hair. Yukiko-ssi's name was unusual because she was a Woman who had married from a Foreign Country. They said it was an Island country somewhere... I can't remember the exact place name.</p>
-<p>"Ryuta, no, Dante, good morning~♥"</p>
+<p>"Ryuta, no, Dante, good morning♥"</p>
 <p>Yukiko-ssi rarely had good Moods since her Father, whom she had never even seen, died, but today she seemed to be in a very good Mood. But what's with Ryuta? My name is Dante....</p>
 <p>"Good morning, Mother."</p>
 <p>I greeted Yukiko-ssi, then ate breakfast. As expected of the Northern Grand Duke's dining table, breakfast was luxurious from the start. Of course, it wasn't like grilled meat was served from the morning in an overwhelming way, but each ingredient was a Luxury item, and the dish was also neat without any unpleasant smells. When I was an adventurer, I only ate Dry black bread, but since coming here, I've been enjoying quite a luxury.</p>
@@ -67,13 +67,13 @@ chapter = 910
 <p>"Hmph...♥ You won't have time after morning sex, will you?"</p>
 <p>Ah...! So that's what it was? Well, because of Dan Jiyo, no, Danjo geezer's mission, I met Yukiko after a long time, and we have to part today, but even in the early morning, we can't skip intertwining our bodies.</p>
 <p>"Then, shall we try the Succubus Subjugation we couldn't finish earlier?"</p>
-<p>"Kyaaak~! If I touch the Yongsa-nim's Seonggeom, I'll dieee♥"</p>
+<p>"Kyaaak! If I touch the Yongsa-nim's Seonggeom, I'll dieee♥"</p>
 <p>I confidently set out for Succubus Subjugation, but in the end, it was I who was subjugated. After being tormented by Yukiko for a long time, my Legs trembled, and I could barely go to School.</p>
 <p>After-school club room.</p>
 <p>For the first time in a long time, most of the Students, including Class Teacher Yamashiro Ryuta, gathered. The purpose was just to chat and spend a relaxed day.</p>
-<p>"Ryuta-jji~☆ Look at this~!"</p>
+<p>"Ryuta-jji☆ Look at this!"</p>
 <p>"Ryuta...! This is delicious...."</p>
-<p>"Hey, Teacher~! How about going to the gym for a spar?"</p>
+<p>"Hey, Teacher! How about going to the gym for a spar?"</p>
 <p>It was the usual boisterous club room of the Date Experience Club. But at some Moment.... Suddenly, one side of the club room's space began to warp.</p>
 <p>Woong...!</p>
 <p>The first to notice something strange was Otagi Yuka, who was close to the Anomaly in space.</p>
@@ -94,7 +94,7 @@ chapter = 910
 <p>"N-no! I'm a Virgin!!"</p>
 <p>She shouted as if protesting the sudden 'Mom' remark, but in fact, she wasn't a Virgin. But she was certainly not a mom either....</p>
 <p>"What are you talking about...?"</p>
-<p>"Ah~! That's right. Mom isn't my mom yet. I'm Minamoto Lisa's Daughter from the future."</p>
+<p>"Ah! That's right. Mom isn't my mom yet. I'm Minamoto Lisa's Daughter from the future."</p>
 <p>From the future?! Anyone would call it a lie, but because of the way this girl just appeared, everyone was looking back and forth between the girl and Minamoto Lisa with expressions of 'no way'.</p>
 <p>"Gulp...! Th-then...."</p>
 <p>"Who's your Dad?"</p>
@@ -107,7 +107,7 @@ chapter = 910
 <p>Everyone was surprised by the Bomb Declaration once again. This meant that Minamoto Lisa and Seizawa Shii had married the same man, and everyone's Gaze turned towards Yamashiro Ryuta. The girl who had appeared across time followed the other Students' Gazes and looked at Yamashiro Ryuta.</p>
 <p>"D-daaad!!"</p>
 <p>The girl leaped up with physical Ability unbelievable for a child and embraced Yamashiro Ryuta's Face. It was like a face-hugger from some Alien movie, but everyone looked at the Appearance cutely.</p>
-<p>Yamashiro Ryuta flustered and struggled, but soon patted the girl's back. The girl was crying, "Euaang, Dad~!" and shedding Tears.</p>
+<p>Yamashiro Ryuta flustered and struggled, but soon patted the girl's back. The girl was crying, "Euaang, Dad!" and shedding Tears.</p>
 <p>"D-daaad! Why haven't you come back! I missed you!! Euaaaang!"</p>
 <p>Minamoto Lisa heard the girl's Crying and glared at Yamashiro Ryuta. The thought, 'This man has a child, yet he doesn't come Home so much that she cries as soon as they meet?' unconsciously entered her mind.</p>
 <p>However, Minamoto Lisa was startled by what she had just thought. She hadn't even married Yamashiro Ryuta yet, and it wasn't certain that this child was hers. Although she did resemble her a little, no, a lot.</p>
@@ -130,14 +130,14 @@ chapter = 910
 <p>It was a name taken one character each from Yamashiro Ryuta and Minamoto Lisa. Minamoto Lisa had a shameful dream, but she gained a hint about her future Daughter's name.</p>
 <p>On the chest of the St. Francis Girls' Academy school uniform hanging in Minamoto Lisa's wide room, where her Emotions were on a Rollercoaster Ride, was a strand of pink blonde Hair, a little shorter than Minamoto Lisa's Hair.</p>
 <p>Side story B-cut!</p>
-<p>Alik waking me up in various versions~!</p>
-<p>Dream Boss Yukiko~!</p>
+<p>Alik waking me up in various versions!</p>
+<p>Dream Boss Yukiko!</p>
 <p>Minamoto Lisa's Daughter?? Ryuri's tanned Skin isn't from Tanning, but because she often played Outside haha.</p>
 <p>TheDreaming-nim requested: Captured Otagi Yuka 1. Village Scene 2. On Stage.</p>
 <p>1.</p>
 <p>2.</p>
 <p>When I put a crown of Thorns on her, most of them came out as 'covered Yuka' haha.</p>
-<p>MidNightSKY-nim requested: Ryuta shooting lasers with Creation Chaos and Rinka Sabu who accepted Creation Chaos~!</p>
-<p>Ryuta first~!</p>
-<p>Rinka Sabu~!</p>
+<p>MidNightSKY-nim requested: Ryuta shooting lasers with Creation Chaos and Rinka Sabu who accepted Creation Chaos!</p>
+<p>Ryuta first!</p>
+<p>Rinka Sabu!</p>
 <p>Sabu's second image is a bit scary....</p>

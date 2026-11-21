@@ -29,7 +29,7 @@ chapter = 704
 
 <p>&quot;But you’re not allowed to bear all the pressure alone. If you run into any trouble, you have to tell me, understand?&quot;</p>
 
-<p>&quot;I understand, you bad man~ I’ve really missed you too!!&quot;</p>
+<p>&quot;I understand, you bad man I’ve really missed you too!!&quot;</p>
 
 <p>Her tone was rarely this sweet, this blissfully sweet enough to make a person’s bones tingle with pleasure.</p>
 

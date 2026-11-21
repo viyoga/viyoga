@@ -50,7 +50,7 @@ chapter = 1817
 <p>Why do they react like that to a human in casual clothes strolling through an elven capital?</p>
 <p>They should be standing at attention, preparing for conflict. Yet the elves were responding to him like he’d carried the spring in with him.</p>
 <p>"What’s going on?"</p>
-<p>Seraphiel noticed because Seraphiel always noticed when women reacted to her man. She hooked her arm through his, blue eyes bright with interest. "Quin~ We’re on a business trip... You know that, right?"</p>
+<p>Seraphiel noticed because Seraphiel always noticed when women reacted to her man. She hooked her arm through his, blue eyes bright with interest. "Quin We’re on a business trip... You know that, right?"</p>
 <p>"How can you blame me? I have done nothing."</p>
 <p>"Their ears go low when you pass," Kaelira said from his other side, quiet and focused. "They’re being pulled toward you."</p>
 <p>"They all feel the same thing," Rosie observed from atop Myrasyn’s shoulders, chin propped on the queen’s crown. "Warm."</p>

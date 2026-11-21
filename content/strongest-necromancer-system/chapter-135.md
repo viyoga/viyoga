@@ -12,11 +12,11 @@ chapter = 135
 <p>’I shouldn’t jump to conclusions. I’m not sure where I am, so it’s possible I’m not back on Radagan. But if I was captured, then... I’ll bite my tongue and kill myself.’</p>
 <p>The princess came to a resolute decision as the last traces of her unconscious drowsiness began to filter out from her mind, and she finally decided to open her eyes. It was a slow and tiring process for her to finally open them, and she couldn’t help but wince at the slight pain that shot through her body when she tried to shift on the bed.</p>
 <p>She turned her head to the left where a window looked out into a sprawling city, and she felt her brow furrow in shock at the sight she saw there. Even if the princess was still half-asleep, she was at least certain of the fact that she was no longer back in her world. There was nowhere in Radagan where you would find such buildings.</p>
-<p>Growl~!</p>
+<p>Growl!</p>
 <p>A sound from her other side made the princess jump in shock as she turned to see what was there and her eyes widened when she saw two large wolves looking at her with glaring red eyes.</p>
 <p>’Moonlight Wolves! What in the world are Moonlight Wolves doing here!? Where am I!?’</p>
 <p>The princess was justifiably terrified of the large wolves that towered over her like mountains! Each one of them had enough power to rip her to shreds, and she swallowed desperately as she began trying to move back! But one of the wolves suddenly pounced toward her and the princess yelled in fear and raised her hand to protect her face!</p>
-<p>Lick~!</p>
+<p>Lick!</p>
 <p>The princess blinked in shock as she felt a wet tongue run along the side of her face and she slowly dropped her hand down to see the large wolf giving her a friendly look as it panted playfully! The princess slowly felt a smile spread on her face as she stretched one hand out and the wolf nuzzled its face in her palm and then released a low yip!</p>
 <p>The other wolf came close and licked her face as well, and the princess laughed happily as she petted them both. She still didn’t know where she was or what was going on around her, but at least she was sure of one thing—she was safe here.</p>
 <p>...</p>

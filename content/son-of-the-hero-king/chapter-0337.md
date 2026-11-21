@@ -16,7 +16,7 @@ chapter = 337
 <p>Of course, there was also the fact that many of his women were rather unstable in the mental department and he didn’t know what they could do if they felt like they were being ignored or worse being abandoned…</p>
 <p>After being called out, Sol did not show a flustered expression. Lying was useless so all he could do was apologize for his wrongdoings, so he did…</p>
 <p>“I am sorry.”</p>
-<p>“Tututu~ Saying sorry isn’t enough, you know. Now you have to promise me to leave everything up to me for tonight, deal?”</p>
+<p>“Tututu Saying sorry isn’t enough, you know. Now you have to promise me to leave everything up to me for tonight, deal?”</p>
 <p>Sol grinned at her inquiry, “I will let you have your way with my body, madam.”</p>
 <p>The two of them laughed lightly as Skuld moved around until she found the most ideal position.</p>
 <p>She faced him, spreading her legs wide and placing them on either sides, and stood above the rod standing up from his crotch. She had already pulled down the top of her white dress, so her boobs were now exposed for him to witness and relish, adding to her allure and seductivity.</p>

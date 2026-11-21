@@ -5,7 +5,7 @@ weight = 977
 chapter = 977
 +++
 
-"Mhmm~…"
+"Mhmm…"
 
 Lucifer let out hushed moans as Lith pinned her to the glass wall and licked his way down on her body.
 
@@ -33,7 +33,7 @@ Lith finally dived in and kissed Lucifer's flower, making her tremble.
 
 Lucifer involuntarily clamped her legs as Lith licked her, but he gently pushed them apart and sucked on her sensitive pink pearl.
 
-"Ahh~" Lucifer moaned and clamped her legs again.
+"Ahh" Lucifer moaned and clamped her legs again.
 
 Lith parted them once again and continued to taste his lover's sweet, succubus pussy.
 
@@ -63,7 +63,7 @@ Lucifer nodded, somewhat nervous, but she didn't show it on her face. Instead, s
 
 Lith blinked in befuddlement. "It'll hurt."
 
-"Doesn't matter, just do—NGGHHHH~!"
+"Doesn't matter, just do—NGGHHHH!"
 
 Lith didn't let her stay in suspense anymore and thrust his cock deep inside her cunt in one powerful thrust.
 

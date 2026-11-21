@@ -66,7 +66,7 @@ chapter = 382
 <p>"Heueueeang...♥ Don't tease meee, put it in quickly...!"</p>
 <p>If you beg me to put it in like that, I have to put it in. When I pushed my waist forward slightly, my dick penetrated into the deepest part of Han Yu-gyeong's pussy with a swoosh.</p>
 <p>Han Yu-gyeong's pulling force was added to the force of my waist pushing, so my dick penetrated into her pussy more strongly than I intended. At once, my glans hit her cervix, and Han Yu-gyeong reached an incredible climax.</p>
-<p>"Haaaang! Heueuhat! Too strong~! Heuung!"</p>
+<p>"Haaaang! Heueuhat! Too strong! Heuung!"</p>
 <p>Han Yu-gyeong turned her eyes white and hugged me tightly. I didn't hold back and moved my waist to keep Han Yu-gyeong in a state of climax (?).</p>
 <p>"Heuaahang...! Yong-tae-ya...! I, heueut! I'm going crazyhaang♥ I'm becoming strange...!"</p>
 <p>Han Yu-gyeong scratched my back and told me the size of the pleasure she was feeling, and since I was a healthy dick that had already ejaculated once, I didn't reach ejaculation easily and continued to ravage Han Yu-gyeong's vagina.</p>

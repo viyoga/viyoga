@@ -32,7 +32,7 @@ chapter = 344
 <p>The next task is to appoint a class president and vice president. Except for three people, all the students belong to the Date Experience-Meditation Club, and there are a president and vice president, but the class president and vice president are different, so I have to tell the kids.</p>
 <p>The rest was just useless routine work. I sat down and worked for a while, and then it was time for the morning assembly, so I took the attendance book and entered the classroom.</p>
 <p>"Good morning."</p>
-<p>"Yes, sensei~!"</p>
+<p>"Yes, sensei!"</p>
 <p>"Ryuta-jji, you look a little tired today?"</p>
 <p>"Did you do something naughty?"</p>
 <p>When I greeted them, some of them looked at me with sly expressions. It seemed like they were doing it because I left with Kijimoto Jurie yesterday.</p>
@@ -53,7 +53,7 @@ chapter = 344
 <p>The female student who raised her hand to be the vice president was Shido Tsubaki. She was the former head of the newspaper club, and the look in her eyes behind her glasses was the kind that said, 'I know all your secrets,' so she was a bit uncomfortable. Of course, she doesn't know that I'm Taira Ryuta, but I can't help but feel uncomfortable with reporters.</p>
 <p>"Anyone opposed?"</p>
 <p>As expected, there was no one. I didn't know the class president and vice president would be decided so quickly.</p>
-<p>"Now that the class president and vice president have been decided, everyone clap~!"</p>
+<p>"Now that the class president and vice president have been decided, everyone clap!"</p>
 <p>Everyone clapped at my words. Most of them were clapping insincerely and waiting for my next words because they were more interested in the picnic next week than the class president and vice president.</p>
 <p>"Then, you two come out and decide on the picnic location with the kids."</p>
 <p>At my words, both of them came forward and stood in front of the podium. I went to the side in advance and sat in an empty chair.</p>

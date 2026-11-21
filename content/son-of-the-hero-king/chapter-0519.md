@@ -53,7 +53,7 @@ chapter = 519
 <p>After taking out his penis fully, he chuckled when Setsuna gave a disappointed cry before slamming his whole length back in one stroke.</p>
 <p>Setsuna cried out her voice melting. She could feel his penis reach even further inside of her.</p>
 <p>At the same time, she could feel him bring his hand forward and start teasing her vagina through the special panties Persephone gave her.</p>
-<p>“Sol~!”</p>
+<p>“Sol!”</p>
 <p>The thick shaft spread the skin around the entrance. The head rubbed all over the inner walls. The tip thrust deep, deep inside her.</p>
 <p>Every time it went inside and outside of her body, she felt like her entire body was being turned inside out from that point.</p>
 <p>Pleasure filled Setsuna's mind as she approached her orgasm.</p>

@@ -47,7 +47,7 @@ chapter = 1105
 <p>Bastet uncrossed her ankles.</p>
 <p>"Shall we, Master?"</p>
 <p>"Would you?"</p>
-<p>"With pleasure~" Calypso slipped away from his side and dropped from the roof.</p>
+<p>"With pleasure" Calypso slipped away from his side and dropped from the roof.</p>
 <p>She landed on the paving with a heavy thump, bending her knees before straightening in front of the approaching group.</p>
 <p>Bastet followed in a flutter of gold-threaded silk, landing on the balls of her bare feet. Her knees yielded beneath her, then she straightened in one graceful motion, her skirts settling around her legs.</p>
 <p>The woman in the cardigan stopped beckoning.</p>

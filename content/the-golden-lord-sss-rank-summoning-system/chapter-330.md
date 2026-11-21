@@ -23,7 +23,7 @@ chapter = 330
 <p>For the unawakened, drinking that heavily was usually enough to wipe away any memory of such an intense night.</p>
 <p>For experts, however, such a thing was extremely rare, no matter how much they drank.</p>
 <p>"He’s my son!"</p>
-<p>"And you seemed to really enjoy it, fufufu~" Ysara let out a soft chuckle, the melodic sound echoing through the hot steam of the bathroom.</p>
+<p>"And you seemed to really enjoy it, fufufu" Ysara let out a soft chuckle, the melodic sound echoing through the hot steam of the bathroom.</p>
 <p>She seemed to be taking it all in stride, though her cheeks were also flushed—a color even the warm water couldn’t hide.</p>
 <p>"You..." Amelia clenched her teeth. "I was drunk, and it was your fault! How can you be so carefree after—"</p>
 <p>The golden-haired beauty froze mid-sentence.</p>
@@ -43,7 +43,7 @@ chapter = 330
 <p>Amelia melted against Ethan as his tongue slipped past her lips, dancing with hers in a slow, passionate kiss.</p>
 <p>Meanwhile, Ethan gripped Ysara’s shoulders, gently guiding her downward.</p>
 <p>For a moment, Ysara stared at him as if he were a madman, but the very next instant, a soft, teasing smile curled across her lips.</p>
-<p>"Are you saying you’re going to take responsibility for your mommy and auntie? Fufufu~"</p>
+<p>"Are you saying you’re going to take responsibility for your mommy and auntie? Fufufu"</p>
 <p>Ethan pulled his lips away from Amelia’s for a moment.</p>
 <p>The blonde beauty remained breathless, her tongue chasing Ethan’s out of her mouth as a glistening thread of saliva stretched between them, connecting them for a lingering heartbeat before snapping softly.</p>
 <p>"Why wouldn’t I? Do I look like such a coward?" Ethan asked with a chuckle.</p>
@@ -62,4 +62,4 @@ chapter = 330
 <p>Slowly, she pushed further, feeling the head reach the depths of her throat, and then, with a slight adjustment of her posture, sink all the way in.</p>
 <p>Her lips touched the base of his cock, a long, cylindrical bulge visibly distorting the delicate skin of her throat.</p>
 <p>Finally, she pulled back, still connected to his member by long, thick strands of saliva that stretched from her glistening lips as she gasped for air.</p>
-<p>"Mghnnn~ my little Ethan’s huge cock is truly delicious!"</p>
+<p>"Mghnnn my little Ethan’s huge cock is truly delicious!"</p>

@@ -83,7 +83,7 @@ chapter = 1069
 <p>"Who are you?!"</p>
 <p>"Such a Question shouldn't it be asked by the Head of Household or a Security Guard?"</p>
 <p>Taira Gensuke, seeing the Silver-haired Woman blocking his Path, his Eyes gleamed. It was a familiar Face. It was clearly Takakusaki Athena, the adopted daughter of Taira Gensuke's martial arts teacher/master Takakusaki Gengo, glaring at him.</p>
-<p>Urabe Konoka, Athena B-cuts~!</p>
-<p>Konoka first~!</p>
-<p>Athena~!</p>
+<p>Urabe Konoka, Athena B-cuts!</p>
+<p>Konoka first!</p>
+<p>Athena!</p>
 <p>Perhaps because Athena's appearance itself is innocent, scenes of her glaring don't come out well hehehe</p>

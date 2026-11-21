@@ -17,16 +17,16 @@ chapter = 1825
 <p>Firelight moved over the muscles of his back like the light had opinions. Elowen realized she had been staring for some time, and made no move to stop.</p>
 <p>Her posture melted by degrees from parade attention into something that belonged on a tavern bench. A dwarven apprentice offered her water. She drank it without checking it for anything.</p>
 <p>"He is..." she began, to no one.</p>
-<p>"Mm~ he is," Seraphiel agreed warmly, from right beside her, and Elowen jolted hard enough to slop the water. The Holy Son’s first elf had settled onto the same bench at some point, chin propped on her palm, thoroughly enjoying both shows at once. "Terrible, isn’t it? He does this everywhere we go. You spend an hour deciding what he is, and then he ruins your notes."</p>
+<p>"Mm he is," Seraphiel agreed warmly, from right beside her, and Elowen jolted hard enough to slop the water. The Holy Son’s first elf had settled onto the same bench at some point, chin propped on her palm, thoroughly enjoying both shows at once. "Terrible, isn’t it? He does this everywhere we go. You spend an hour deciding what he is, and then he ruins your notes."</p>
 <p>"I have no idea whatever you might be talking about," Elowen said, with enormous dignity, watching him wipe his forearm across his brow.</p>
-<p>"Is that so~"</p>
+<p>"Is that so"</p>
 <p>It was the question that finally pulled the First Hammer off the forge’s edge. Brokk crossed to the guests’ bench, planted herself in front of the lounging first elf with her arms folded, and asked it with the growl scraped down to honest bafflement.</p>
 <p>"The crown’s rack stood open to her. Adamantite. Cores no hammer alive has been granted, and she walked past them for hearth-steel and cart-spring iron." Her eyes never left the forge. "Why."</p>
-<p>"What do you mean~? Kaeli already said it, weren’t you paying attention?" Seraphiel’s purring reached new heights, enjoying her role in this showoff. "Those two have a rule about the good stuff. The piece has to deserve the metal, and today’s..." she gestured at the forge, at the sweat and the fire and the impossible weld, with the same lazy warmth she’d give a picnic spread, "...just a quick little piece to show off, basically. They don’t spend adamantite on a souvenir."</p>
+<p>"What do you mean? Kaeli already said it, weren’t you paying attention?" Seraphiel’s purring reached new heights, enjoying her role in this showoff. "Those two have a rule about the good stuff. The piece has to deserve the metal, and today’s..." she gestured at the forge, at the sweat and the fire and the impossible weld, with the same lazy warmth she’d give a picnic spread, "...just a quick little piece to show off, basically. They don’t spend adamantite on a souvenir."</p>
 <p>Brokk stared at her.</p>
 <p>Then she looked back at the forge, at the one craftsman in two bodies, at the lamination her hall’s treatises called impossible, at the salute still rolling around the tiers, and did the math every master in earshot was doing whether they wanted to or not.</p>
 <p>That was the doodle. Then what was them being serious?!</p>
-<p>As if perfectly reading the dwarf’s thoughts, Seraphiel pointed toward Quinlan with one dainty finger. "She is~"</p>
+<p>As if perfectly reading the dwarf’s thoughts, Seraphiel pointed toward Quinlan with one dainty finger. "She is"</p>
 <p>Or, to be more specific, she was pointing at the towel soaking up sweat on her half-naked lover, the garment that was previously his armor.</p>
 <p>"...Ancestors preserve us," the First Hammer said, with feeling, and went back to her post. Then she caught herself. "Wait, she?"</p>
 <p>"She has too much personality to be a mere thing, so Quin decided Synchra was a female," Sera giggled.</p>

@@ -93,7 +93,7 @@ chapter = 137
 
 <p>At the crack of dawn, he tried tiptoeing out to find his mother-in-law. But the moment he moved, Lily clung to him, her full, beautiful breasts pressing against his body. She murmured drowsily, &quot;Husband... no need to get up and make breakfast. I’ll eat later downstairs.&quot;</p>
 
-<p>&quot;Husband... you’re hard~ Let me hold you a bit longer... I want to taste it!!&quot;</p>
+<p>&quot;Husband... you’re hard Let me hold you a bit longer... I want to taste it!!&quot;</p>
 
 <p>Even though his wife had misunderstood, Luis still enjoyed the early morning intimacy.</p>
 

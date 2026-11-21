@@ -6,7 +6,7 @@ chapter = 868
 +++
 
 <p>Next, the Female Student who took out a box was Naruse Shiyo. Seeing her carefully carry the box so it wouldn't shake, it seemed she had made a chocolate with many decorative elements.</p>
-<p>"Teacher-nim~! What I prepared is...!"</p>
+<p>"Teacher-nim! What I prepared is...!"</p>
 <p>What Naruse Shiyo took out of the box was a cute deformed Dragon-shaped chocolate. Perhaps using food coloring, it was made with green and blue to resemble Dragon skin, and its Size was quite large for a chocolate, almost the Size of a Forearm. It seemed she had made a Dragon-shaped chocolate symbolizing herself as a Half-Dragon.</p>
 <p>"It's a Fairy Dragon-shaped chocolate."</p>
 <p>I thought she had just made an SD version of a Dragon, but is there such a thing as a Fairy Dragon? Still, it was a cuter chocolate gift than the Eyeball chocolate Konoe Akina had just given me as a gift, which was Fortunate.</p>
@@ -18,7 +18,7 @@ chapter = 868
 <p>The Fairy Dragon chocolate's Neck was sliced with a somewhat Goosebumps-inducing sound. If you think about it, isn't this quite cruel? Naruse Shiyo herself is a Half-Dragon, yet she's slicing up a Dragon.</p>
 <p>"Huh?"</p>
 <p>I didn't notice at first, but the cross-section was a bit strange. It seemed to show the flesh part, probably made of Pink chocolate with strawberries, and marbling (?) made of white chocolate. And every time the Fairy Dragon's Neck was cut, jam made from a red-fleshed fruit spurted out like Blood.</p>
-<p>"Now. Please try it~!"</p>
+<p>"Now. Please try it!"</p>
 <p>Naruse Shiyo, having brought a Plate at some point, offered me a slice of the cut chocolate. It was a chocolate shaped like bloody raw pork Neck meat. Even the other special class Students around made Expressions of Astonishment upon seeing what was on the Plate.</p>
 <p>"Uh, I'll eat it well."</p>
 <p>Having already eaten Konoe Akina's Eyeball, I had no choice but to eat Naruse Shiyo's raw meat (?) chocolate. I picked up the Pink chocolate, smeared with sticky red jam, with a fork and put it in my mouth. The jam dripping down felt like Blood, but as I Forcibly ate it, it was indeed chocolate-flavored.</p>
@@ -28,7 +28,7 @@ chapter = 868
 <p>When I said it was delicious, Naruse Shiyo twisted her Body and rejoiced. As expected, the other Students also took a bite to Taste it, and left reviews saying it was somewhat difficult to look at, but quite edible.</p>
 <p>"Next is my chocolate, Liege/Master!"</p>
 <p>Next in order was Sakagami Rena. Sakagami Rena also brought a rather large box, looking uneasy, and like Naruse Shiyo, she seemed careful not to let it shake.</p>
-<p>"What I made is... my loyalty, thinking of my Liege/Master~!"</p>
+<p>"What I made is... my loyalty, thinking of my Liege/Master!"</p>
 <p>When she opened the box with a 'Ta-da!', a Heart lay inside. It wasn't a Heart-shaped chocolate, but a real Heart, throbbing and beating.</p>
 <p>"Th-this, is this really a Valentine's Day gift? It's not chocolate."</p>
 <p>"It is chocolate!"</p>
@@ -41,7 +41,7 @@ chapter = 868
 <p>Why cast Illusion Magic on a Valentine's chocolate.... So, this throbbing and beating Heart right before my Eyes is due to Illusion Magic, right?</p>
 <p>Glancing at the other Students, seeing them looking at Sakagami Rena with Expressions of disbelief, it seemed the beating Heart was visible to the Students' Eyes as well.</p>
 <p>"Quickly, please eat my loyalty, Liege/Master!"</p>
-<p>"Hurry~!" Sakagami Rena pushed the throbbing Heart right in front of my Nose. Still, it was a gift, and I didn't want to show too much reluctance, so I took the Heart in my Hand and bit into it with a kwadeuk.</p>
+<p>"Hurry!" Sakagami Rena pushed the throbbing Heart right in front of my Nose. Still, it was a gift, and I didn't want to show too much reluctance, so I took the Heart in my Hand and bit into it with a kwadeuk.</p>
 <p>Fortunately, it didn't seem to be Illusion Magic that deceived my Tongue's Touch or Taste, and it tasted like ordinary delicious chocolate. However, even now, when I looked with my Eyes, it appeared as if I had taken a bite out of a Heart. It was still throbbing and beating, so to the surrounding special class Students, it would look like a Scene of me chewing and eating a real Heart.</p>
 <p>"Haa.... My Liege/Master... my loyalty... You ate it...!"</p>
 <p>Sakagami Rena had a 'pyong-gan' (captivated) Expression as she watched me with the Heart-shaped chocolate. I don't know why she was like this, but if she was happy, that's what mattered.</p>
@@ -96,7 +96,7 @@ chapter = 868
 <p>I sent a Text Message to everyone saying I had received the chocolates well, and started Studying for the PMC certification Test again.</p>
 <p>Before I knew it, lunchtime passed (I skipped lunch because I had eaten chocolate and Omelet Rice). The Doorbell rang again. Since Oofuchi Erika was supposed to arrive around this Time, I opened the Door without asking who it was.</p>
 <p>"Hello, Yamashiro Teacher-nim."</p>
-<p>"Hello, Teacher-nim~!"</p>
+<p>"Hello, Teacher-nim!"</p>
 <p>It wasn't just Oofuchi Erika who came. She was with Oofuchi Erika's mom, Daigo Terue.</p>
 <p>"Welcome."</p>
 <p>I ushered the Mother and daughter into the Home. The Mother and daughter, looking busy, handed me a box, and when I opened it, there was a hen-shaped chocolate and a Chick-shaped chocolate inside, all at once.</p>
@@ -107,9 +107,9 @@ chapter = 868
 <p>Since I had eaten a lot of chocolate today, and needed to burn some calories, I dragged the two Pervert Mother and daughter into my Bedroom.</p>
 <p>Urabe Konoka's and Lizhael's chocolate gifts were already uploaded in Chapter 780, Side story 3, hehe.</p>
 <p>Alik B-cut!</p>
-<p>Requested by Gojoy-nim: Nakanoin Rina's belly dancer and breast-covering~!</p>
-<p>Belly dancer~!</p>
-<p>Breast-covering~!</p>
-<p>Requested by TheDreaming-nim: Gokado Hanako's park fountain outdoor exposure A-cut B-cut~!</p>
-<p>A-cut~!</p>
-<p>B-cut~!</p>
+<p>Requested by Gojoy-nim: Nakanoin Rina's belly dancer and breast-covering!</p>
+<p>Belly dancer!</p>
+<p>Breast-covering!</p>
+<p>Requested by TheDreaming-nim: Gokado Hanako's park fountain outdoor exposure A-cut B-cut!</p>
+<p>A-cut!</p>
+<p>B-cut!</p>

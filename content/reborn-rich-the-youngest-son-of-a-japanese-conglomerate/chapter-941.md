@@ -61,18 +61,18 @@ chapter = 941
 <p>The Appearance of people split in half, with sunken breasts, or pierced Furrowed Brows, indicated that the opponent possessed immense Super Strength, and the Appearance of limbs severed by something told her that the Killer possessed superpowers. As a Kendo Expert, looking at the severed Limbs' cross-sections, it was clear they were not cut by a Sword.</p>
 <p>"The World is getting more dangerous. Shimokawabe seonsaengnim, you're pretty, so be careful!"</p>
 <p>It felt a bit strange for her to be told to be careful, knowing her Skill to some extent, but since she had excluded Kijimoto Jurie from the realm of Normal People ever since seeing her crazed Expression earlier, Shimokawabe Airen said 'Thank you for your worry' and bowed her Head.</p>
-<p>"Well then, see you tomorrow~!"</p>
+<p>"Well then, see you tomorrow!"</p>
 <p>"Yes, please go carefully."</p>
 <p>With a 'Deureureuk' sound, the Door closed, and after Kijimoto Jurie left, Shimokawabe Airen picked up her phone and looked at the Corpses from the Village A Murder Incident once more.</p>
 <p>And seeing the traces left on those Corpses, Shimokawabe Airen created a virtual Enemy, closed her Eyes, and began to fight that virtual Enemy.</p>
 <p>Since the Doctor had told her not to move her Body but hadn't told her not to engage in virtual battles, Shimokawabe Airen relentlessly simulated a battle in her Head against the imaginary Killer of the Village A Murder Incident.</p>
-<p>Requested by TheDreaming-nim: Shimokawabe Mikiyo Interview in the swimming pool 1. Lower Body hidden by water Situation 2. Hands covering Situation~!</p>
+<p>Requested by TheDreaming-nim: Shimokawabe Mikiyo Interview in the swimming pool 1. Lower Body hidden by water Situation 2. Hands covering Situation!</p>
 <p>1.</p>
 <p>Her Appearance is like she's reaching out her Hand saying 'Give me the Camera' haha.</p>
 <p>2.</p>
 <p>Since it was about covering with Hands, I changed it to a Scene where she's almost lying down but standing haha.</p>
-<p>Requested by MidNightSKY-nim: Alik singing and dancing in a Talent Show Conversation, Ryuta in extreme rage seeing the bed Shii broke~!</p>
-<p>Alik~!</p>
+<p>Requested by MidNightSKY-nim: Alik singing and dancing in a Talent Show Conversation, Ryuta in extreme rage seeing the bed Shii broke!</p>
+<p>Alik!</p>
 <p>For a Talent Show, the Stage feels quite grand haha.</p>
-<p>Enraged Ryuta~!</p>
+<p>Enraged Ryuta!</p>
 <p>It seems the broken bed wasn't part of the Learning haha.</p>

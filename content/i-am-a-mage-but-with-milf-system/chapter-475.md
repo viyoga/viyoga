@@ -27,7 +27,7 @@ chapter = 475
 
 <p>Rather, it made her thighs twitch.</p>
 
-<p>“Hmm… ~” She whimpered softly, her eyes fluttering shut for a second as a rush of shame and arousal hit her all at once. She should’ve felt disgusted.</p>
+<p>“Hmm… ” She whimpered softly, her eyes fluttering shut for a second as a rush of shame and arousal hit her all at once. She should’ve felt disgusted.</p>
 
 <p>But gods… she didn’t.</p>
 

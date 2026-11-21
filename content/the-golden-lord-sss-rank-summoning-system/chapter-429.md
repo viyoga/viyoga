@@ -23,7 +23,7 @@ chapter = 429
 <p>Half of it landed inside her mouth. The other half hit her chin and ran down her neck.</p>
 <p>The white liquid crept slowly down her dark skin, an obscene contrast, as she closed her lips and swallowed with a sigh full of pleasure.</p>
 <p>His strong taste lingered in her throat.</p>
-<p>"Ah... so much cum, fufufu~~"</p>
+<p>"Ah... so much cum, fufufu"</p>
 <p>She looked down. Her black tits were covered in semen, white puddles pooling at the top and lazily trickling down their curves.</p>
 <p>Slowly, she loosened her arms, and her breasts parted with a wet little sound.</p>
 <p>The enormous, perfect black globes swayed heavily as they came apart, settling against her ribs with a slow, weighty wobble, their base still pressed against Ethan’s pelvis.</p>
@@ -42,7 +42,7 @@ chapter = 429
 <p>The plump buttock flattened under her hand, the soft flesh spreading out around her fingers, and in the next instant it sprang back, bouncing hard.</p>
 <p>The shockwave coursed through her entire ass, setting the other cheek quivering along with it and rolling down into the backs of her thick thighs.</p>
 <p>The handprint remained there, hot and stinging on her dark skin.</p>
-<p>"Nghnn~~ H-hey! Be gentle!" Elena complained, almost choking from the shock.</p>
+<p>"Nghnn H-hey! Be gentle!" Elena complained, almost choking from the shock.</p>
 <p>Her tits jolted in her hands, heaving up and settling back with a wobble, more strands of cum dripping.</p>
 <p>"Gentle, my ass! So that’s why you woke up so early, isn’t it?" Evelyn grunted, already climbing onto the bed, the towel slipping off her shoulders and landing forgotten at its foot.</p>
 <p>The mattress creaked and sank beneath her.</p>
@@ -54,7 +54,7 @@ chapter = 429
 <p>Her white panties stretched tight, the fabric digging deep into the cleft between her buttocks.</p>
 <p>Her abdominal muscles were well-defined, each ridge visible beneath her tanned skin—powerful yet soft and delicate.</p>
 <p>A strength that in no way detracted from her femininity.</p>
-<p>"Ah~ that’s called strategy, you brute," Elena grunted.</p>
+<p>"Ah that’s called strategy, you brute," Elena grunted.</p>
 <p>She kept her left hand pressed against the side of her left breast—still resting against his cock—and freed her right.</p>
 <p>With her free hand, she slapped Evelyn’s round ass in return, though with much less force.</p>
 <p>The slap came out muffled, more of a soft pat than a smack. Evelyn’s buttock swayed slowly and heavily under her palm, the soft cheek rolling gently from side to side before settling back into place.</p>

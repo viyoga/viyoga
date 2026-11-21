@@ -5,7 +5,7 @@ weight = 771
 chapter = 771
 +++
 
-<p>"Gulk~~ Gulp... Gulp... Gulp... Gulp..." Rou’er’s delicate throat worked eagerly, contracting with each thick, hot spurt as Qingyi’s cock throbbed against her tongue, shooting cum straight into her mouth.</p>
+<p>"Gulk Gulp... Gulp... Gulp... Gulp..." Rou’er’s delicate throat worked eagerly, contracting with each thick, hot spurt as Qingyi’s cock throbbed against her tongue, shooting cum straight into her mouth.</p>
 
 <p>She swallowed greedily, six thick spurts sliding down her throat one after another, until she finally gave in and fell backward.</p>
 
@@ -17,7 +17,7 @@ chapter = 771
 
 <p>She leaned forward slightly, capturing the cock between her delicate fingers and calmly running her tongue along its entire length, licking up every stubborn drop that had been left behind until it glistened with nothing but her saliva.</p>
 
-<p>"Hm... now I am, hehehe~" Rou’er let out a cheerful, satisfied giggle as she stood up with a mischievous little smile on her face.</p>
+<p>"Hm... now I am, hehehe" Rou’er let out a cheerful, satisfied giggle as she stood up with a mischievous little smile on her face.</p>
 
 <p>With a slight wave of her hands and a flow of Qi, she washed the cum from her face and chest, returning to her usual radiant and flawless appearance, as if none of it had ever happened.</p>
 
@@ -27,11 +27,11 @@ chapter = 771
 
 <p>He squeezed possessively, his fingers digging even deeper, drawing a gasping, trembling sigh from her.</p>
 
-<p>"W-well, nghnn~~ we’re just putting the finishing touches on things... everything should be ready for the wedding next month." She leaned back, resting her head against her husband’s firm chest, letting herself be enveloped by his warmth.</p>
+<p>"W-well, nghnn we’re just putting the finishing touches on things... everything should be ready for the wedding next month." She leaned back, resting her head against her husband’s firm chest, letting herself be enveloped by his warmth.</p>
 
 <p>"Good. Are the other girls okay with the triple wedding?" he asked, slowly stroking her pink hair, twirling a strand between his fingers.</p>
 
-<p>Rou’er nodded with a nasal sound, rubbing her face against his chest. "Yes! Yunxi is the most excited, hehehe~~ we can’t wait for next month to come—big brother Qingyi won’t be late, right?"</p>
+<p>Rou’er nodded with a nasal sound, rubbing her face against his chest. "Yes! Yunxi is the most excited, hehehe we can’t wait for next month to come—big brother Qingyi won’t be late, right?"</p>
 
 <p>"No." He gave a low chuckle and, gripping Rou’er’s generous hips firmly, helped her to her feet.</p>
 
@@ -43,7 +43,7 @@ chapter = 771
 
 <p>"Ah... your big brother needs to focus on his cultivation a bit now... are you really satisfied with that, or do you want a little more?"</p>
 
-<p>"Rou’er always wants a little more, hehehe." She replied in an adorable, mischievous voice. "But today, I’ll take pity on my future husband, hehehe~"</p>
+<p>"Rou’er always wants a little more, hehehe." She replied in an adorable, mischievous voice. "But today, I’ll take pity on my future husband, hehehe"</p>
 
 <p>With a soft giggle, Rou’er finally left the cultivation room, leaving Qingyi alone.</p>
 

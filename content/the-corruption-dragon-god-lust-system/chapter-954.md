@@ -93,7 +93,7 @@ chapter = 954
 
 <p>They weren’t the largest breasts in Qingyi’s harem, but they were more than enough to fill his hands, with plenty left over to spill past it.</p>
 
-<p>"I-I~ ah~ Q-Qingyi..." Mingzhu closed her eyes tightly, her legs going wobbly beneath her.</p>
+<p>"I-I ah Q-Qingyi..." Mingzhu closed her eyes tightly, her legs going wobbly beneath her.</p>
 
 <p>She turned her face toward him, perhaps to complain, but his lips claimed hers before any words could escape.</p>
 
@@ -101,7 +101,7 @@ chapter = 954
 
 <p>A muffled whimper vibrated against his lips as her body slowly went soft, melting back into his chest.</p>
 
-<p>"Ah~" When their lips parted, a thin thread of saliva stretched between their mouths for a moment before snapping.</p>
+<p>"Ah" When their lips parted, a thin thread of saliva stretched between their mouths for a moment before snapping.</p>
 
 <p>Qingyi laughed softly and released her breasts.</p>
 

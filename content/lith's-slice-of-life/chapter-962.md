@@ -47,7 +47,7 @@ His method seemed to have worked with how Lilith stood in a daze and had a faint
 
 Lith walked with Alea into his bedroom.
 
-Alea wrapped her arms around his shoulder and said with a big smile, "Little cousin, I didn't get to say it before, but I missed youuuuu~"
+Alea wrapped her arms around his shoulder and said with a big smile, "Little cousin, I didn't get to say it before, but I missed youuuuu"
 
 The cute elf's pointy ears twitched in response to her happy comment. Her emerald eyes twinkled brightly, and her face beamed with joy as she said that.
 
@@ -73,7 +73,7 @@ Alea moaned once again and held Lith's head, trying to push him away from her se
 
 Lith stayed on his ground and after licking, biting, and pulling both of her nipples to his heart's content, licked his way down to her bald, smooth nethers.
 
-"Ah… Lith~…" Alea softly called out as Lith's hot breath was felt on her exposed flower.
+"Ah… Lith…" Alea softly called out as Lith's hot breath was felt on her exposed flower.
 
 Lith parted Alea's legs and had a look at her glistening pussy.
 
@@ -83,7 +83,7 @@ The labias were slightly parted and the small fuckhole was contracting and relax
 
 Broadening his tongue, Lith gave Alea's pussy a long lick, making her body shiver.
 
-"Ahh~" Alea moaned and clamped her legs.
+"Ahh" Alea moaned and clamped her legs.
 
 Lith parted them again and went back to tasting the sweet juices slowly seeping out. Oh how much he had missed this taste.
 

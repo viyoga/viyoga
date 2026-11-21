@@ -56,7 +56,7 @@ chapter = 36
 <p>“Relax. I haven’t even started.”</p>
 <p>Even half of half of his thing had not entered her yet. He had only slightly pushed the crown in, but her body was too tight and it didn’t seem it would be able to stretch out further. The pleasure felt more like pain and it was very hard stopping himself from just thoughtlessly pushing himself into her.</p>
 <p>He lowered himself onto her and locked lips. He sucked on her small soft lips, taunting her with his tongue. He squeezed and massaged her breasts with his hand. Once he soothed her a little, her tense muscles relaxed. When he could feel some room to move again, he pushed himself forward a bit more. A sharp pain shot through her body and Camelia gripped onto his shoulders with greater strength, to the point her fingertips paled.</p>
-<p>“Ooh~!”</p>
+<p>“Ooh!”</p>
 <p>Camelia’s breaths became rough as if she was lacking air. He kept moving forward bit by bit without pause. He gradually filled her more and more, until he reached a thin wall. Once he broke through that frail wall, he was able to slide himself in with ease.</p>
 <p>“…!”</p>
 <p>Severe pain. It felt like her body would split in two. It was different from the pain of being spanked or the like or pain from a wound on the battlefield. It was a pain all women had to go through. Even Camelia, despite her years of training, couldn't help but grit her teeth at this pain.</p>
@@ -78,7 +78,7 @@ chapter = 36
 <p>“Hic!”</p>
 <p>She wrapped her arms around him and held him tight.</p>
 <p>“Hey, don’t cry.”</p>
-<p>“But I’m so happy~!”</p>
+<p>“But I’m so happy!”</p>
 <p>He wiped the tears from her eyes while a simple thought occurred to him.</p>
 <p>'She’s mine and she’ll never betray me.'</p>
 <p>At the same time, her vagina began to tremble like crazy. The bumpy folds crawled all over his cock. It felt so good that he held her tight in his arms.</p>
@@ -98,7 +98,7 @@ chapter = 36
 <p>“Your insides are shaking like crazy.”</p>
 <p>He firmly held onto her hips as he bore deeper into her. Her juices, mixed with bits of blood, flowed out from her down to her buttocks. As he continued to thrust, the viscous fluids created a constant moist slapping sound. Their point of connection had residual blood splattered here and there.</p>
 <p>Her lips no longer let out cries of pain. Instead, she mewled and moaned in pleasure. He slowly changed the direction of his thrusts as he penetrated deeper. He concentrated on her panting and groaning, and stubbornly hammered into her most sensitive spot.</p>
-<p>“Ah! Aah~!”</p>
+<p>“Ah! Aah!”</p>
 <p>Her insides squeezed and started to spasm. He saw that she was about to climax and plunged deeper into her.</p>
 <p>“!”</p>
 <p>Her body froze and she cried. Her entire body began to tremble. The moment she reached her limits, Sol also let go of all restraint and released himself inside her.</p>

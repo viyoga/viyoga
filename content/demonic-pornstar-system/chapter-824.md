@@ -28,7 +28,7 @@ chapter = 824
 <p>Then his cock slapped her across the cheek.</p>
 <p>She blinked.</p>
 <p>Looked at it, fully erect, throbbing violently, making no secret of what five women pressed against every inch of him were doing to him, and her grin spread wide and hungry as her tongue slid out and traced the underside from base to tip.</p>
-<p>"My besties are doing such a wonderful job up there, aren’t they Kai~?" she murmured against his shaft, her breath hot. Her fingers never stopped between her legs. "Let me pitch in~"</p>
+<p>"My besties are doing such a wonderful job up there, aren’t they Kai?" she murmured against his shaft, her breath hot. Her fingers never stopped between her legs. "Let me pitch in"</p>
 <p>Her lips parted, and she took him in one slow, deep slide that didn’t stop until her nose pressed against his stomach.</p>
 <p>Behind him, Calypso and Bastet had never stopped working.</p>
 <p>The demoness’s breasts rolled warm and heavy up his spine in salve-laden passes, her red skin drawing the last bruising from his back while her tail kept its coil around his thigh, and Bastet’s tanned body pressed against his arm in long strokes, her lathered curves cleaning what Calypso’s heat was healing.</p>
@@ -36,16 +36,16 @@ chapter = 824
 <p>Calypso’s golden eyes drifted to Luna’s trembling flower. To Aria’s fluid mess on his thigh. Down to the eager bobbing of pink hair between his legs.</p>
 <p>"Hmm." She looked at Bastet. "We can’t have the Valkyries out-slut us, can we?"</p>
 <p>Bastet’s ear twitched. She looked back. "I don’t know if such a term exists, but... I refuse to be a lesser slut for Master than any other being in existence!"</p>
-<p>"That’s the spirit~" Calypso grinned and they moved as one, each claiming an ear.</p>
+<p>"That’s the spirit" Calypso grinned and they moved as one, each claiming an ear.</p>
 <p>Calypso’s lips found his right, her fangs grazing the lobe as her breasts pressed against his arm.</p>
-<p>"Darling~" she breathed, and the word was a vibration inside his skull. "Can you feel all of us... every single one, wet and warm and yours~ I can’t wait to experience what being sucked on like that feels like~"</p>
+<p>"Darling" she breathed, and the word was a vibration inside his skull. "Can you feel all of us... every single one, wet and warm and yours I can’t wait to experience what being sucked on like that feels like"</p>
 <p>Bastet took his left ear between her teeth, her tongue tracing the shell, her tanned breasts dragging hot against his shoulder. "Master..." The purr rolled through the word and sank into his skin. "I also want to try, but... I’m ready to give you real milk, just say the word... My heart, my body, all of it is yours..."</p>
 <p>He could hear all of it. Two purring monster girls, two moaning human girls, and a fifth getting really sloppy between his thighs.</p>
 <p>Nyx worked him with deep, steady bobs that bottomed against her throat on every pass, her pink hair sticking to her flushed cheeks, drool running down her chin as her fingers stayed buried between her own legs, matching pace with the moans above her.</p>
 <p>Her throat squeezed around him every time one of the girls cried out, her muffled whimpers vibrating through his shaft in pulses that made his stomach clench, and she could feel it building in the way his cock throbbed heavier against her tongue with every pass.</p>
 <p>"Ahhn...!! Kai, I’m- a really big one is building, I can feel it- haah...!!" Aria gasped, nails raking his scalp.</p>
 <p>"I can’t hold it!!" Luna’s voice broke.</p>
-<p>"Come for us, Darling~" Calypso’s whisper went raw against his ear.</p>
+<p>"Come for us, Darling" Calypso’s whisper went raw against his ear.</p>
 <p>"...Master." Bastet’s voice, barely a breath, cracked on the word. "I want your seed..."</p>
 <p>The Gluttony siphon pulsed once, hard, through both Valkyries at the same time, and Luna screamed first, her entire body locking rigid against him as the orgasm ripped through her from breast to soaking thighs, her voice cracking into a sound that was half sob and half profanity.</p>
 <p>Aria followed half a breath later, her spine arching so hard her silver hair swept the bed as a moan left her that carried more love than language.</p>

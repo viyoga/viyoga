@@ -20,7 +20,7 @@ chapter = 442
 <p>Ethan was already on his feet by then, Arwen having cast a few spells of her own to wake him up and clean him off. He smiled at her.</p>
 <p>"It’s late... we should already be in Fallenwinter by now," Evelyn said to Ethan, but her eyes soon drifted to Arwen, who was walking toward her, still naked and in no hurry at all.</p>
 <p>The two women exchanged affectionate kisses on the cheeks and a brief hug, Arwen’s bare breasts flattening gently against Evelyn’s clothed chest.</p>
-<p>"Sorry, dear, we just had a really long night, fufufu~" Arwen teased, walking past Evelyn to gather the clothes scattered across the floor.</p>
+<p>"Sorry, dear, we just had a really long night, fufufu" Arwen teased, walking past Evelyn to gather the clothes scattered across the floor.</p>
 <p>She bent down without any ceremony and then straightened up with the dress in her hands.</p>
 <p>"Yes," Ethan nodded, already pulling a set of clothes from the space ring and beginning to get dressed.</p>
 <p>His chest was covered in scratch and bite marks, red lines running all the way down to his stomach.</p>

@@ -101,7 +101,7 @@ At the corner of Arena J.
 
 Emilia made muffled noises due to having her face stuck in between Arya’s boobs.
 
-“Yaaaah~ it went much better than I expected haha. Sel, what made him change? He first killed someone accidentally then became soft, then did a slightly serious battle and in later rounds straight up massacared his opponents.
+“Yaaaah it went much better than I expected haha. Sel, what made him change? He first killed someone accidentally then became soft, then did a slightly serious battle and in later rounds straight up massacared his opponents.
 
 He felt too much of a softie to me before but now I can actually see a little bit, the balance he has. He is both gullible and ruthless hahahaha. I like it!
 
@@ -121,7 +121,7 @@ Smoooooch!
 
 Arya cupped Emilia’s face and gave her a deep and long kiss on her lips. Emilia obviously put up her struggle but couldn’t get off. Arya let go and walked away in a cheerful tone and said from far away
 
-“…See ya, bestie. Byeeee~”
+“…See ya, bestie. Byeeee”
 
 “ARGH STUPID LIZARD! I HATE YOU! I HATE YOU!” Emilia went after Arya while cursing at her.
 

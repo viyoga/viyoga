@@ -78,20 +78,20 @@ chapter = 1032
 <p>The Demon Woman, who shouted in Japanese once more, fiercely swung a Weapon that was neither a Sword nor a Spear.</p>
 <p>-Shiyo-style Dragon Claw Flow: Hundred-Mile Dragon Flash.</p>
 <p>At that Moment, a white light erupted from the Weapon the Demon Woman wielded.</p>
-<p>Naruse Shiyo B-cut~!</p>
+<p>Naruse Shiyo B-cut!</p>
 <p>Honestly, to someone who doesn't know she's a Dragon-human, she really does look like a Demon hehehe.</p>
-<p>MidNightSKY-nim requested Waterbomb attire Shii Lisa~!</p>
-<p>Shii~!</p>
-<p>Lisa-ttang~!</p>
+<p>MidNightSKY-nim requested Waterbomb attire Shii Lisa!</p>
+<p>Shii!</p>
+<p>Lisa-ttang!</p>
 <p>RefundNeverPossible-nim requested Crop Top + Pantyhose Lisa, Teacher Gajeong (Lisa's model) made from the original illustration.</p>
-<p>Lisa~!</p>
-<p>Teacher Gajeong~!</p>
+<p>Lisa!</p>
+<p>Teacher Gajeong!</p>
 <p>Strangely, illustrations with only Pantyhose don't seem to come out ㄷㄷㄷ</p>
-<p>TheDreaming-nim requested Herta Vogel 1. Appearance stuck in the Wall 2. Breast being touched~!</p>
+<p>TheDreaming-nim requested Herta Vogel 1. Appearance stuck in the Wall 2. Breast being touched!</p>
 <p>1.</p>
 <p>Since the Background is an Art Museum (prompted as Art Museum), her Hair Dyeing and paint appear on the Wall hehe.</p>
 <p>2.</p>
-<p>Chomisaemeonji-nim requested 1. Liz taking off her Top 2. Liz taking off her Bottoms~!</p>
+<p>Chomisaemeonji-nim requested 1. Liz taking off her Top 2. Liz taking off her Bottoms!</p>
 <p>1.</p>
 <p>2.</p>
-<p>Due to a Pantyhose Pussy error, I'm only uploading two images each~!</p>
+<p>Due to a Pantyhose Pussy error, I'm only uploading two images each!</p>

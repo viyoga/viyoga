@@ -59,7 +59,7 @@ chapter = 281
 <p>I didn't know anything about the Kujo Group or Black Tech's movements, so I should ask about it on the Dark Web app.</p>
 <p>After that, instead of talking about serious matters, I was surrounded by women and only had pleasant, everyday conversations.</p>
 <p>My master, Fujigasaki Rinka, was laughing kyaha ha! and pouring sweet potato shochu into her mouth. The trainees were watching and secretly sipping alcohol. Of course, other people knew as much as I did, but it seemed like they were just letting it go today.</p>
-<p>,Ryuta, ah~!</p>
+<p>,Ryuta, ah!</p>
 <p>,Ryuta-nim, open your mouth♡</p>
 <p>Even if I just stayed still, Alik and Konoe Akina put meat in my mouth, and I just had to talk happily.</p>
 <p>The only thing I regretted was that getting drunk was treated as an abnormal state, and I didn't get drunk at all because of the characteristic "Abyss-Wound Body." Everyone else is drunk and having fun, but I'm the only one who's sober....</p>

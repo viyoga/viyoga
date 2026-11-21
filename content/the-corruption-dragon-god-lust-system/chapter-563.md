@@ -29,7 +29,7 @@ chapter = 563
 
 <p>Immediately, his body began to burn, his Qi reserves rapidly increasing.</p>
 
-<p>“Hm~~” Ruxue’s eyes closed, long-lost memories returning to her mind.</p>
+<p>“Hm” Ruxue’s eyes closed, long-lost memories returning to her mind.</p>
 
 <p>She couldn’t even remember how long ago it was.</p>
 

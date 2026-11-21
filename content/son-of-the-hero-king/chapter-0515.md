@@ -36,14 +36,14 @@ chapter = 515
 <p>But sometimes, one had to go crazy.</p>
 <p>“Oh?”</p>
 <p>From the way, Sol’s eyebrows rose into prominent arcs at the sudden challenge. She was sure that she might regret this but then again. One had to go in a blazing glory.</p>
-<p>“Fufufu~ I always had to hold myself back in the past. So I guess I won’t let you sleep either.”</p>
+<p>“Fufufu I always had to hold myself back in the past. So I guess I won’t let you sleep either.”</p>
 <p>Persephpne’s eyes shone with a beautiful green light and after she proceeded to disrobe Sol completely in a flash she couldn’t help but chuckle as she looked at his member standing straight like a pillar.</p>
 <p>“It seems like the little guys down here are happy to see us.”</p>
 <p>She leaned forward and rubbed her cheek against his chest as if to rub off his sweat, and licked at his skin.</p>
 <p>This was her first time with Sol since he came back from the Astral realm and she wished to savor every moment.</p>
 <p>She gently ran her tongue tip along his chest then she sucked with her lips and held his nipple gently between her teeth.</p>
 <p>When she squeezed a bit with her teeth, the pressure on his nipple grew and she left teeth marks on it.</p>
-<p>“Fufufu~! I love how considerate you are. Even making sure to relax your body as much as possible.”</p>
+<p>“Fufufu! I love how considerate you are. Even making sure to relax your body as much as possible.”</p>
 <p>Despite looking human, Sol’s body was anything but. Biting him would have more than likely resulted in her teeth breaking normally.</p>
 <p>Setsuna, kneeling on the side, observed the way Persephone moved and acted. The way she teased him and made sure to bring him pleasure.</p>
 <p>It was like a gate to a new world was opening wide in front of her and giving her knowledge of a new world. The like she could have never imagined.</p>

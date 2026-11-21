@@ -5,14 +5,14 @@ weight = 220
 chapter = 220
 +++
 
-<p>"Ara?" she giggled with her tail swaying in hypnotic arcs behind her plump rear. "I sense a great deal of inner turmoil! Do you suffer from trauma, perhaps?~ Poor boy~"</p>
+<p>"Ara?" she giggled with her tail swaying in hypnotic arcs behind her plump rear. "I sense a great deal of inner turmoil! Do you suffer from trauma, perhaps? Poor boy"</p>
 <p>Her tone was mocking, though not cruel. Just amused. Like a cat toying with a mouse that thought it was a wolf.</p>
 <p>Jack’s face twisted into a scowl.</p>
 <p>"Watch your mouth, freak," he snarled. "This is our guild. I don’t care what you used to be! You’re tame now. A pet on a leash."</p>
 <p>Instead of taking offense at the man’s incredibly rude comments, Bastet gave a pleased sigh and leaned into Kaiden’s shoulder, moving up and down needily. Her golden feline eyes became half-lidded in bliss as her cheek pressed into the fabric of his jacket. Her purrs grew louder, silk-soft but unmistakable, more than simple purrs: those were the purrs of a wildcat ready to go into heat at a moment’s notice.</p>
 <p>"Yeah... I used to be a feral woman, I won’t deny that. But truth be told..."</p>
 <p>She looked up at Kaiden with sultry eyes, her tail flicking with dangerous delight.</p>
-<p>"I quite like being a pet. His pet. Master gives such good scratches~ And..."</p>
+<p>"I quite like being a pet. His pet. Master gives such good scratches And..."</p>
 <p>She paused, glancing sidelong at Jack as her honeyed voice lowered, no longer pleasant.</p>
 <p>"He’s very protective of what he considers his."</p>
 <p>Kaiden’s eyes met Jack’s. These eyes weren’t the warm, teasing ones his fans saw on their recent streams. Nor the tired, thoughtful ones he showed the girls when planning streams or their future moves.</p>
@@ -28,7 +28,7 @@ chapter = 220
 <p>Then another.</p>
 <p>Kaiden didn’t need to say anything.</p>
 <p>Bastet, purring even louder now, dragged her hand slowly down Kaiden’s chest toward the part of his body that played the main role in her subjugation.</p>
-<p>"Oooh~ You’re really making that face, Master~ Can I please get into it now? Must I wait for later~?"</p>
+<p>"Oooh You’re really making that face, Master Can I please get into it now? Must I wait for later?"</p>
 <p>Luna sighed deeply but grinned nonetheless. The rest of the Valkyries more or less shared the sentiment, liking the attitude of their perpetually horny tanned kitten. Kaiden’s possessive, overprotective nature was something they’d long since gotten used to, so it was no shock to any of them.</p>
 <p>"Enough." Vaelira finally spoke.</p>
 <p>Her voice was quiet, but cold.</p>
@@ -46,7 +46,7 @@ chapter = 220
 <p>Vaelira’s eyes slid toward them. She said nothing at first, only watched. Measured.</p>
 <p>Then, as if she hadn’t just witnessed the equivalent of a public domination ritual, she tilted her head and moved on. "My old classmates will be ashamed when they see you at the next reunion. So many of them looked down on you, remember?"</p>
 <p>Kaiden huffed once, almost amused. "Yeah, with you at the lead, I remember perfectly well. I have no plans of showing up to that event, have fun with your cronies."</p>
-<p>"Mm," Vaelira mused, nodding with faux politeness. "Well, I did apologize already and am more than happy to do it again if it’ll help. Anyhow, my parents would be very interested in meeting you. Business talks, of course. Though perhaps more than money could be on the line~"</p>
+<p>"Mm," Vaelira mused, nodding with faux politeness. "Well, I did apologize already and am more than happy to do it again if it’ll help. Anyhow, my parents would be very interested in meeting you. Business talks, of course. Though perhaps more than money could be on the line"</p>
 <p>Before she could continue that sultry statement of hers, Aria cut in.</p>
 <p>"I’m sure they would. They can get in line."</p>
 <p>Vaelira’s brow arched as she turned her head toward the Moon Valkyrie.</p>

@@ -38,7 +38,7 @@ chapter = 670
 <p>“You are quite the narcissist,” Pandora could not help but complain.</p>
 <p>“Well, is it really narcissism if it’s true?” He asked with a raised eyebrow as if challenging her to find even a single fault in his words.</p>
 <p>“You were definitely not gentle the first time we met.” Pandora definitely did not shy away from using his weakness against him, causing Sol to cough to hide his embarrassment.</p>
-<p>“Ahem~ Let’s just say, I played a little rougher than usual.” He hugged her closer with his left arm while his left arm slowly trailed down until it reached her lower part. “Also, I remember distinctly someone acting like they had everything under control before fainting helplessly.”</p>
+<p>“Ahem Let’s just say, I played a little rougher than usual.” He hugged her closer with his left arm while his left arm slowly trailed down until it reached her lower part. “Also, I remember distinctly someone acting like they had everything under control before fainting helplessly.”</p>
 <p>He gently pinched the quivering bud between her legs, causing Pandora to pant and twitch. At the same time, his other hand climbed up and cupped her bountiful breast.</p>
 <p>“I… I thought we… were supposed to talk.” Talking was difficult for Pandora as she felt her temperature rise.</p>
 <p>“Well…” Sol muttered sultrily in her ears, “We have all the time in the world to talk with our bodies.”</p>

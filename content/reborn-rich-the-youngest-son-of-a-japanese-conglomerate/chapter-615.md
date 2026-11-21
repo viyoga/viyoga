@@ -12,7 +12,7 @@ chapter = 615
 <p>"I'll get off here."</p>
 <p>From the start, it was far from a paved road, so we couldn't approach any closer. Since I got in the car directly from the Kujo residence, it wasn't my car but a vehicle with a driver attached to the Kujo mansion. I was glad I didn't bring my own car because the road conditions were terrible.</p>
 <p>"Come to think of it, I saw a ghost near Aokigahara once."</p>
-<p>"Aii~! Don't tell me stories like that, Sensei. It's scary...!"</p>
+<p>"Aii! Don't tell me stories like that, Sensei. It's scary...!"</p>
 <p>Kujo Kina was horrified when I brought up the story that suddenly came to mind. Contrary to her appearance, she seemed to be afraid of ghost stories. She looks like she could destroy a ghost with one blow, though.</p>
 <p>Kiiiik...!</p>
 <p>Suddenly, the dilapidated wooden door of the old house opened with an unpleasant sound. Kujo Kina let out a small kyaa at the creepy noise and clung to me. Hmm, even a muscular woman has soft breasts. I enjoyed the sensation of Kujo Kina's chest against my arm as I approached the old house.</p>

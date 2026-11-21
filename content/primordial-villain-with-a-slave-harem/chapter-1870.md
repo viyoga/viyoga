@@ -10,9 +10,9 @@ chapter = 1870
 <p>"Say it."</p>
 <p>"Say what?"</p>
 <p>"The part where you think ’somebody’ handed it to me."</p>
-<p>"Insecure, are we~? I’d never say such a thing," Ayame purred, full of joy.</p>
+<p>"Insecure, are we? I’d never say such a thing," Ayame purred, full of joy.</p>
 <p>"Eat shit."</p>
-<p>"No, thanks~" Ayame grinned, shaking her head at this impossible girl. "Listen to my wisdom, young lady."</p>
+<p>"No, thanks" Ayame grinned, shaking her head at this impossible girl. "Listen to my wisdom, young lady."</p>
 <p>Iris sent her the nastiest of looks.</p>
 <p>Ayame blew her a kiss and delivered the wisdom.</p>
 <p>"Just enjoy your revenge, shed good blood, bash some skulls, and stop thinking useless thoughts.</p>

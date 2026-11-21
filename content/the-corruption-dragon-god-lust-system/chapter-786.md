@@ -41,7 +41,7 @@ chapter = 786
 
 <p>"Ah... thank you, big sis Elize, this is truly amazing! The husband is lucky to have you as one of his wives!" Yunxi said, licking her fingers without any ceremony, using her Qi to disintegrate the bones into a fine powder that quickly dissipated into nothing.</p>
 
-<p>"Hehehe~, I know," Elize replied with a refined little chuckle, beckoning Yunxi and the other girls to sit down at the table.</p>
+<p>"Hehehe, I know," Elize replied with a refined little chuckle, beckoning Yunxi and the other girls to sit down at the table.</p>
 
 <p>"Come on, I’ve already sent sound transmissions for the others to come eat," she added, grabbing the collar of Qingyi’s shirt with a mischievous expression.</p>
 
@@ -63,7 +63,7 @@ chapter = 786
 
 <p>"Hey, that’s not fair—you didn’t even ask us to help!" A sweet, adorable voice rang through the kitchen as Bai Xueyao entered, accompanied by Linyue and Nianxue.</p>
 
-<p>"First come, first served, fufufu~~" Elize let out another soft, teasing giggle, leaning a little closer to Qingyi and pressing a tender kiss to his lips.</p>
+<p>"First come, first served, fufufu" Elize let out another soft, teasing giggle, leaning a little closer to Qingyi and pressing a tender kiss to his lips.</p>
 
 <p>Bai Xueyao seemed a little upset at first, but soon her eyes fell on Yunxi, and a spark of curiosity replaced her pout.</p>
 

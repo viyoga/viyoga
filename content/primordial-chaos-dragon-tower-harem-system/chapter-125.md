@@ -111,4 +111,4 @@ chapter = 125
 <p>Having read about all these amazing features, he wanted to know just how much he would be unlocking in the future.</p>
 <p>[The Master can take a seed and align it with the current level of the Tower, then imagine it growing and blossoming into a towering tree with countless ripe fruits.</p>
 <p>After that, imagine millions of those trees spread across a million acres of land. This is about to cover the intermediate nature of the Tower.]</p>
-<p>"Damn~"</p>
+<p>"Damn"</p>

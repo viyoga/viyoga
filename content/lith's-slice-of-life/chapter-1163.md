@@ -111,7 +111,7 @@ To Yam's surprise, the beautiful girl wasn't there when he turned.
 
 Right when he thought something had gone wrong…
 
-"Me… yaow~"
+"Me… yaow"
 
 A seductive voice rang in Yam's ears as a chill went down his spine.
 
@@ -119,7 +119,7 @@ Someone wrapped their arms around his body and he felt himself hitting his back 
 
 Right beside his ears, he felt someone's face creeping closer.
 
-"Fuuuuu~"
+"Fuuuuu"
 
 "Hiiiiiii—!"
 

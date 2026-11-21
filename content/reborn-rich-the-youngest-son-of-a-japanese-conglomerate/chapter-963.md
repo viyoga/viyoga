@@ -48,7 +48,7 @@ chapter = 963
 <p>Ah...! This is how it should be done.</p>
 <p>"Like this.... Lie down. Ah, like that. Uh, good...!"</p>
 <p>I had Otagi Yuka lie on the bottom and Seizawa Shii lie on top of her, creating a pussy sandwich Intimate Posture. The sight of two tightly closed pussies overlapping and pressing against each other gave off an incredibly provocative feeling.</p>
-<p>"Oh, what is this, Ryuta-cchi~! This posture is too erotic...!"</p>
+<p>"Oh, what is this, Ryuta-cchi! This posture is too erotic...!"</p>
 <p>"That's right, Ryuta-ssi, no matter how much of a Pervert you are, this is...!"</p>
 <p>The two were flustered, but I was quite satisfied. Because it was such an erotic Appearance that just looking at it made my cock feel like it would burst.</p>
 <p>"I'm going to put my cock between both your pussies and do sumata. And I'll put my cock into the one who endures climax first. Understood? The one who climaxes first will get my cock later."</p>
@@ -73,14 +73,14 @@ chapter = 963
 <p>TheDreaming-nim requested Urabe Konoka's Park Exposure. 1. Herself 2. Liz Possession</p>
 <p>1.</p>
 <p>2.</p>
-<p>Gojoy-nim requested Ha Ju-yoon's Casual Attire and Underwear~!</p>
-<p>Casual Attire~!</p>
+<p>Gojoy-nim requested Ha Ju-yoon's Casual Attire and Underwear!</p>
+<p>Casual Attire!</p>
 <p>As expected of Han Yu-gyeong's mom, she's comfortably dressed in similar attire to Han Yu-gyeong at Home hehe.</p>
-<p>Underwear~!</p>
-<p>MidNightSKY-nim requested Tsukiyo and Alik's Battle of Nerves...! Since simultaneous requests for illustrations of two people are not accepted, I made them separately~!</p>
-<p>Alik~!!</p>
-<p>Tsukiyo~!</p>
-<p>Geom-eunkkaemuk-nim requested Hanako's Casual Clothes and Underwear~!</p>
-<p>Casual Clothes~!</p>
-<p>Underwear~!</p>
-<p>Kkiyot~!</p>
+<p>Underwear!</p>
+<p>MidNightSKY-nim requested Tsukiyo and Alik's Battle of Nerves...! Since simultaneous requests for illustrations of two people are not accepted, I made them separately!</p>
+<p>Alik!!</p>
+<p>Tsukiyo!</p>
+<p>Geom-eunkkaemuk-nim requested Hanako's Casual Clothes and Underwear!</p>
+<p>Casual Clothes!</p>
+<p>Underwear!</p>
+<p>Kkiyot!</p>

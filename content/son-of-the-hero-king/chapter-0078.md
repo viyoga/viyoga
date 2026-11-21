@@ -12,7 +12,7 @@ chapter = 78
 <p>"Your highness, how was the dinner?"</p>
 <p>At his right, the Duke asked with a tranquil smile.</p>
 <p>"I must admit that it was refreshingly interesting. I thank you for this invitation."</p>
-<p>"Ohohoh~! This old man is truly happy if it pleased you."</p>
+<p>"Ohohoh! This old man is truly happy if it pleased you."</p>
 <p>Sol returned an affable smile and waited for this old man to finish his thoughts.</p>
 <p>"Then, your highness, could I ask for a meeting between the two of us, I would like to discuss important matters."</p>
 <p>Saying so, he rose from his seat and bent down slightly.</p>

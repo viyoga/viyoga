@@ -38,7 +38,7 @@ chapter = 935
 <p>"I received a message," Alexandra said. "Before we came inside."</p>
 <p>"Why didn’t you tell us sooner?" Nyx asked slyly.</p>
 <p>"I’ve been waiting for the right moment to make the reveal," she replied with dancing eyes.</p>
-<p>"Ooh~ Very dramatic~"</p>
+<p>"Ooh Very dramatic"</p>
 <p>The blonde beauty ignored her purring childhood friend and instead held up her phone and read aloud.</p>
 <p>"’Miss Seren. I apologize for bothering you. Kira gave me your phone number... My former agent released a statement today that does not reflect what happened, and while I terminated his contract, what’s out there cannot be deleted. Thankfully, your producers captured what happened inside the tent. At my request, they agreed to release it, should you give the green light. I hope the full recording will show the truth so Luna, Kaiden, and Eclipse at large won’t suffer backlash. I am asking you to allow your producers to release it. The public should see the truth, and I should face it. I’m sorry. Vanessa Sloan.’"</p>
 <p>The table was quiet for a moment.</p>

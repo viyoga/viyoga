@@ -63,11 +63,11 @@ Lilith on the side looked at her children having a go with each other. She didn�
 
 Lith feeling that she had adjusted to his size started gently thrusting his hips back and forth.
 
-“Ahh~”
+“Ahh”
 
 Lucy moaned slightly after feeling his thrusts. Lilith then pinched her daughter’s nipples and bit her neck and started sucking her blood.
 
-“Ohhhhh~”
+“Ohhhhh”
 
 Lucy moaned a lot more than before.
 
@@ -87,7 +87,7 @@ Lucy kept moaning more and more loudly.
 
 Lith kept going faster and after two minutes
 
-“Ahhhhhhh~”
+“Ahhhhhhh”
 
 Lucy arched her back and her eyes rolled backward and climaxed along with Lith and Lith felt his mind go blank for the second time. He collapsed onto her.
 

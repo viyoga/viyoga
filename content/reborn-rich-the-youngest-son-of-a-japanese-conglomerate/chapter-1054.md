@@ -68,14 +68,14 @@ chapter = 1054
 <p>"Please give me my phone."</p>
 <p>"Here it is."</p>
 <p>Because it could be damaged during battle, I had only carried an earpiece communicator, and left my phone at the Command post, so I received the phone from the Jooseodang agent. And immediately, I made a Phone Call to Diana Lich, the Deputy Director-General of the Federal Superpower Management Department.</p>
-<p>TheDreaming-nim requested Athena in The Cabin 1. Hands tied behind her back 2. Kneeling naked~!</p>
+<p>TheDreaming-nim requested Athena in The Cabin 1. Hands tied behind her back 2. Kneeling naked!</p>
 <p>1.</p>
 <p>I don't know why her Ankles are also tied ㅎㅎ</p>
 <p>2.</p>
-<p>Chomisaemeonji-nim requested Liz in a miniskirt and Liz in a Military Uniform~!</p>
-<p>Miniskirt~!</p>
+<p>Chomisaemeonji-nim requested Liz in a miniskirt and Liz in a Military Uniform!</p>
+<p>Miniskirt!</p>
 <p>I only entered "miniskirt," but it came out looking like a Suit ㅎㅎ</p>
 <p>Miniskirt + Shirt</p>
-<p>Military Uniform~!</p>
+<p>Military Uniform!</p>
 <p>Skirt VER.</p>
 <p>Pants VER.</p>

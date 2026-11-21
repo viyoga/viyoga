@@ -11,7 +11,7 @@ Chaptrer 700 The Chosen Ones
 
 Staring at each other for a few minutes, the cheerful green-haired girl broke the ice and said,
 
-"hello, everyone~"
+"hello, everyone"
 
 "I am Tsuki, nice to meet you all."
 
@@ -41,7 +41,7 @@ Tsuki, noticing the white-haired girl look at her, said, "…please?"
 
 "Ariel." The girl didn't say anything more than this.
 
-"hello Ariel~~~" Tsuki said warmly.
+"hello Ariel" Tsuki said warmly.
 
 Ariel didn't respond to this.
 

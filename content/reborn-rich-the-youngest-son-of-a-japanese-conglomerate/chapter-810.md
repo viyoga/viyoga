@@ -37,7 +37,7 @@ chapter = 810
 <p>I didn't care how suffocated Kurayamada Kirie was; I just felt the pleasure from my cock and shook her by the ears.</p>
 <p>"Kueu-eut...! I'm cumming...!"</p>
 <p>I pulled my cock from Kurayamada Kirie's throat and moved it to her mouth, then began to Ejaculate so she could fully taste my Semen.</p>
-<p>Bwoo-oot~! Bwoo-oot! Bwoo-oo-oot!</p>
+<p>Bwoo-oot! Bwoo-oot! Bwoo-oo-oot!</p>
 <p>An enormous amount of Semen erupted from my urethra, and Kurayamada Kirie was busy gulping it down.</p>
 <p>After a rather long Ejaculation, Kurayamada Kirie, as if the Semen was too precious to waste, sucked my cock clean, even drawing out the Semen remaining in my urethra. After spitting my cock out of her mouth, she looked at me.</p>
 <p>"Beeeh...♥"</p>
@@ -85,11 +85,11 @@ chapter = 810
 <p>"Since I'll have to exert myself today, order a few more steaks."</p>
 <p>"That's simple enough."</p>
 <p>At my Demand, Kurayamada Kirie, as if it were nothing, called the waiter and ordered five more 1-pound (454-gram) Steaks. Looks like I'll have to expend a lot of protein today, no backing out now.</p>
-<p>Gojoy-nim requested Lara Sinclair Belly Dancer, Breast Covering~!</p>
-<p>Breast Covering~!</p>
-<p>MidNightSKY-nim requested Yuka using Blood Spear and Blood Sword~!</p>
-<p>Blood Sword~!</p>
-<p>Blood Spear~!</p>
+<p>Gojoy-nim requested Lara Sinclair Belly Dancer, Breast Covering!</p>
+<p>Breast Covering!</p>
+<p>MidNightSKY-nim requested Yuka using Blood Spear and Blood Sword!</p>
+<p>Blood Sword!</p>
+<p>Blood Spear!</p>
 <p>It doesn't really feel like it's made of Blood, haha.</p>
-<p>Neosblue-nim requested Alik in Great Mazinger's Thunder Break pose, but I couldn't find good references for the Great Mazinger pose, haha. So I made it with Great Mazinger pointing with his Index Finger when using Thunder Break~!</p>
-<p>Kkiyot~!</p>
+<p>Neosblue-nim requested Alik in Great Mazinger's Thunder Break pose, but I couldn't find good references for the Great Mazinger pose, haha. So I made it with Great Mazinger pointing with his Index Finger when using Thunder Break!</p>
+<p>Kkiyot!</p>

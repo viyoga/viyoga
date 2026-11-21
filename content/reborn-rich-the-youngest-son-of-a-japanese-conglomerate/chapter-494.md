@@ -56,9 +56,9 @@ chapter = 494
 <p>However, despite following along smoothly, it was quite burdensome because it was 'couple' yoga, so there were many times when we had to do poses together. Even though I had released some because of Kijimoto Jurie today, my body was constantly close to Konoe Akina, with her rich fragrance, so I was on the verge of getting an erection.</p>
 <p>After sticking together and taking various poses, I was completely erect. This was because that sly Konoe Akina was subtly stroking and touching me even while taking the yoga poses.</p>
 <p>Fortunately, I was wearing jeans, so it wasn't as noticeable as it would have been in yoga clothes, but given my size, both the yoga instructor who was watching from outside the screen and Konoe Akina must have noticed.</p>
-<p>"Then please use us again next time~!"</p>
+<p>"Then please use us again next time!"</p>
 <p>After finishing nearly an hour of couple's yoga, the screen turned off with the instructor's greeting. Whether the screen was off or not, Konoe Akina and I were slightly out of breath as we looked at each other. As our faces got closer while looking into each other's eyes, the phone started ringing.</p>
-<p>~♪~♬</p>
+<p>♪♬</p>
 <p>We didn't stop at the sound of the phone ringing and kissed. Even while we were kissing passionately and deeply, the phone kept ringing, and Konoe Akina's phone also rang, so we had no choice but to stop kissing.</p>
 <p>"Did something happen?"</p>
 <p>"I wonder...."</p>

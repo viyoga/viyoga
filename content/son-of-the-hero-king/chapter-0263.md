@@ -22,7 +22,7 @@ chapter = 263
 <p>“Let’s go, darling. The old witch should be waiting for us. It’s time for me to show you how I can really help you.”</p>
 <p>Skuld grinned.</p>
 <p>The endearing sight prompted Sol to nod. Though he couldn’t help but feel a little chill go down his spine—He had the feeling that he wouldn’t like what would follow.</p>
-<p>‘Fufufu~!’</p>
+<p>‘Fufufu!’</p>
 <p>Skuld grinned while following behind a clearly uneasy Sol. His instincts were really sharp. What would happen next wouldn’t be to his taste.</p>
 <p>But it was necessary. This was in fact one of the most necessary steps to success and she wouldn’t jeopardize it even though it would hurt her heart.</p>
 <p>What really made her happy though was that she had managed to plant a seed of interest in Verdandi and Ud’s hearts. The sharing of their sensation had no limit of distance. Even if Ud was at the end of the universe, she would have still felt all Skuld felt last night.</p>

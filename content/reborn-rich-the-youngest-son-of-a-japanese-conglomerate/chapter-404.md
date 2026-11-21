@@ -85,4 +85,4 @@ chapter = 404
 <p>"Konoe, there's something I want to talk about regarding tomorrow's Ratflix viewing experience..."</p>
 <p>----</p>
 <p>Saionji Diana-ssi in Hanbok for the New Year!</p>
-<p>Kkiooot! Please also check out the Gyaru duo Hanbok posted in the announcement~!!</p>
+<p>Kkiooot! Please also check out the Gyaru duo Hanbok posted in the announcement!!</p>

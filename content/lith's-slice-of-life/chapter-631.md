@@ -27,7 +27,7 @@ After Lucifer was satisfied, Lith was about to take his dick out of her and ques
 
 Lucifer didn't want to let go of the warmth she felt from Lith's dick inside her. It was her first time and wanted to enjoy it as much as possible.
 
-"Alright, you kept your word. Good nephew~" Lucifer chuckled and gave Lith a kiss.
+"Alright, you kept your word. Good nephew" Lucifer chuckled and gave Lith a kiss.
 
 As promised, she continued explaining the things she had left.
 

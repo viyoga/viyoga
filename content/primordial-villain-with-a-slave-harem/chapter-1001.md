@@ -48,6 +48,6 @@ chapter = 1001
 <p>Behind her trailed the rest of her contingent.</p>
 <p>Lyra arrived looking like she hadn’t slept the whole week. Behind her, Shallan, the Tempest Empress, was muttering under her breath, face completely blank from exhaustion. Even Liora, who never looked anything less than celestial, had her staff slung sideways as if she’d been dragged across realms.</p>
 <p>"Why do your companions look as if they were undead, my love?" Quinlan inquired of Jasmine with a wry smile.</p>
-<p>"Hmm? I have no idea whatever you could mean, husband~"</p>
+<p>"Hmm? I have no idea whatever you could mean, husband"</p>
 <p>Turns out, Jasmine’s week-long escapade into the capital had come with a price, and the others were the ones paying it. She’d used her experience, her resources, and her class’s loopholes to do her bidding... which included ’utilizing’ her bodyguards for nearly every deal, transaction, and auction she raced through over the week.</p>
 <p>And that wasn’t all.</p>

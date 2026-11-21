@@ -34,7 +34,7 @@ chapter = 256
 <p>,No! It was helpful just to have Investor-nim come and tell us what the future will be like."</p>
 <p>Sawayanagi Azuma's ability is in the future prediction category, but it's the ability to see fragmentary scenes or situations, so knowing how the overall situation I told her about would proceed seemed quite helpful.</p>
 <p>,Then let's have a company dinner today. I'll pay."</p>
-<p>,Wow~! Chicken!"</p>
+<p>,Wow! Chicken!"</p>
 <p>,Meat, meat!"</p>
 <p>,Alik wants to eat pizza...!"</p>
 <p>At my words, the trainees who had been silent until now shouted and called out the menus they wanted to eat. Sawayanagi Azuma's expression darkened slightly at the sudden company dinner announcement. Um? Is it not time for a company dinner?</p>
@@ -42,7 +42,7 @@ chapter = 256
 <p>,It's not that.... Okutama Town is a rural area, so there are stores, but there aren't any really delicious places."</p>
 <p>Ah, that's why her expression wasn't good? She must have wanted to eat something delicious since it's been a long time since we had a company dinner.</p>
 <p>,But there will be chicken places, meat places, and pizza places, so let's eat everything. We can have another company dinner on the day the training ends."</p>
-<p>,Then that would be good. Everyone~! Get ready to go~!"</p>
+<p>,Then that would be good. Everyone! Get ready to go!"</p>
 <p>Sawayanagi Azuma kindly told the trainees to prepare, like a kindergarten teacher. But the trainees prepared very quickly, as if they had received an order from a very scary superior.</p>
 <p>,They listen very well?"</p>
 <p>,Haha, that's because boss beats the kids up a lot during training!"</p>

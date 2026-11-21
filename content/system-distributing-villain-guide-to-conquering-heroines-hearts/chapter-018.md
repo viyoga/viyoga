@@ -38,7 +38,7 @@ chapter = 18
 <p>"I’ll work hard to make us strong too."</p>
 <p>****</p>
 <p>Thirty minutes later, Natasha stepped out of the kitchen, humming to herself while carrying the soup.</p>
-<p>"Hmm~ Hmm~" She climbed the stairs with a smile. ’I wonder if he’s awake yet...’</p>
+<p>"Hmm Hmm" She climbed the stairs with a smile. ’I wonder if he’s awake yet...’</p>
 <p>In no time, she was standing right in front of his bedroom door.</p>
 <p>She knocked a few times but got no reply. So she reached for the knob, only to stop her hand midway.</p>
 <p>’What if he doesn’t remember anything at all?’</p>

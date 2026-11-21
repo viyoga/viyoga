@@ -64,5 +64,5 @@ chapter = 113
 <p>Her fingers dug into the plush curves of their waists, and she yanked them flush against her body without warning.</p>
 <p>Pressed together side by side, three large, perfect pairs of breasts met in an obscene display.</p>
 <p>Heavy mounds squished against one another, their cleavages deepened as their tits compressed between their bodies, the supple skin pressing so tightly together that their combined curves formed one continuous, lewd expanse of flesh, dark, tanned and pale.</p>
-<p>"My lord truly never ceases to amaze us..." Elena voice came out low and sweet as she tilted her head. "...but don’t you think you need a bath to wash off all that orc blood? Fufufu~~ ♡"</p>
+<p>"My lord truly never ceases to amaze us..." Elena voice came out low and sweet as she tilted her head. "...but don’t you think you need a bath to wash off all that orc blood? Fufufu ♡"</p>
 <p>A sensual giggle slipped from her lips, and Ethan’s eyes shone brightly.</p>

@@ -49,7 +49,7 @@ chapter = 546
 
 <p>She felt one of his hands move, passing over her knees and then her soft, shapely thighs. The hand finally reached her hips, lifting her dress and revealing large patches of creamy blue skin.</p>
 
-<p>“Nghnn~~” A sharp sigh, almost a moan, escaped her lips. Her eyes closed instinctively under the warm, protective touch.</p>
+<p>“Nghnn” A sharp sigh, almost a moan, escaped her lips. Her eyes closed instinctively under the warm, protective touch.</p>
 
 <p>“Do you know what this means?” Qingyi asked, his other hand flowing down to Nianxue’s breasts.</p>
 
@@ -65,17 +65,17 @@ chapter = 546
 
 <p>“Ah!” A sharp squeal escaped her pink lips. Her body bounced on the soft mattress, her fat, perfect tits rippling against her delicate torso.</p>
 
-<p>“W-what are you, nghnnn~~ doing?” Nianxue barely had time to question as his hands flowed down to the soft skin of her thighs, forcing her legs apart.</p>
+<p>“W-what are you, nghnnn doing?” Nianxue barely had time to question as his hands flowed down to the soft skin of her thighs, forcing her legs apart.</p>
 
 <p>The dress was already at her hips and her open legs revealed her virgin, untouched pussy.</p>
 
 <p>Qingyi leaned over her, his tongue leaving his lips and sinking into that plump, soft valley, eliciting a long, obscene moan from the girl.</p>
 
-<p>“H-hubby… aghnn~~” She clung to the soft sheets of the bed, her back arching as an explosion of sensations never felt before spread through her body.</p>
+<p>“H-hubby… aghnn” She clung to the soft sheets of the bed, her back arching as an explosion of sensations never felt before spread through her body.</p>
 
 <p>“Ah… do you like that?” he asked before going down again, his tongue circling his partner’s clitoris in a quick circular motion.</p>
 
-<p>“Y-yeah… I… like that-oghnnn~~” Nianxue nodded shyly, her fingers white from the force with which she clenched her fists, each movement of Qingyi’s eliciting another moan from her lips.</p>
+<p>“Y-yeah… I… like that-oghnnn” Nianxue nodded shyly, her fingers white from the force with which she clenched her fists, each movement of Qingyi’s eliciting another moan from her lips.</p>
 
 <p>She had to admit… this was even better than Elize’s food!</p>
 
@@ -89,7 +89,7 @@ chapter = 546
 
 <p>A soft snap echoed as the member, freed and already hard as steel, struck the fat, perfect lips of the virgin pussy, eliciting another moan from Nianxue.</p>
 
-<p>“So big… will it fit inside me?~~” she questioned, grabbing her own enormous breasts and squeezing them hard, her delighted fingers sinking into the soft, vast flesh.</p>
+<p>“So big… will it fit inside me?” she questioned, grabbing her own enormous breasts and squeezing them hard, her delighted fingers sinking into the soft, vast flesh.</p>
 
 <p>It was exactly as her older sisters had told her.</p>
 
@@ -103,7 +103,7 @@ chapter = 546
 
 <p>His huge cock plowed its way into that tight pussy, breaking through the girl’s virginity and hitting the walls of her womb.</p>
 
-<p>“Oghnn~~ hubby~~ so nghnn~~ full…” Nianxue moaned, salivating as her body bounced with the impact of his thrusts.</p>
+<p>“Oghnn hubby so nghnn full…” Nianxue moaned, salivating as her body bounced with the impact of his thrusts.</p>
 
 <p>Her huge breasts were thrown upward before bouncing back against her body, undulating like large, full, soft water balloons.</p>
 

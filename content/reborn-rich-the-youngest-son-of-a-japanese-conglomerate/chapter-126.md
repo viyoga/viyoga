@@ -9,7 +9,7 @@ chapter = 126
 <p>,Here it is."</p>
 <p>,We have to go all the way there?"</p>
 <p>When I showed him my smartphone, Kazuhiro-kun spoke with a slightly annoyed expression. But before I knew it, he changed his expression and was excitedly taking pictures of the forest scenery. The narrow forest path, which was not maintained at all, and the trees that soared high into the sky, blocking the sunlight, gave off an eerie and mysterious feeling. More than anything, after living in the city and only breathing polluted air, breathing the clear air of the forest felt refreshing.</p>
-<p>,I have to post this too~!"</p>
+<p>,I have to post this too!"</p>
 <p>I chuckled at Kazuhiro-kun and followed the forest path, looking at the GPS signal. Following the forest path, a fork in the road appeared.</p>
 <p>,Hyung-nim, which way should we go? Ah, should I ask on the 7channel bulletin board?"</p>
 <p>,Why ask the bulletin board? Just look at the GPS."</p>

@@ -24,7 +24,7 @@ chapter = 391
 <p>"What method do you have in mind?"</p>
 <p>"Trial and error."</p>
 <p>She gasped with shock once she understood my meaning. "W-w-w-wait!!!" Alas, it was all too late. My hips were already reeled back all the way so that only the very tip of my penis was still lodged inside her. Despite her fervent pleading for mercy, I had none to give. I roleplayed a battering ram as I swung my heavy log at her castle's gates.</p>
-<p>Her body jolted in response to the sudden intrusion, and a banshee's shriek tore from her lips. "ARGHHHHHHHHHHHHH!~~~" However, by the time her screaming came to a halt, it was no longer as if she'd just suffered a crippling wound on the battlefield, but one of pure pleasure.</p>
+<p>Her body jolted in response to the sudden intrusion, and a banshee's shriek tore from her lips. "ARGHHHHHHHHHHHHH!" However, by the time her screaming came to a halt, it was no longer as if she'd just suffered a crippling wound on the battlefield, but one of pure pleasure.</p>
 <p>Yep.</p>
 <p>"What… What the hell… is going on?!" She asked between greedy gasps for air. Her eyes were tearing up so much so that an entire flood could be seen pouring down her delicate cheeks.</p>
 <p>I grinned from ear to ear at the finding of my research.</p>

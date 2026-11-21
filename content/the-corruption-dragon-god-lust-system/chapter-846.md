@@ -5,7 +5,7 @@ weight = 846
 chapter = 846
 +++
 
-<p>"Mmm~~ My hubby is almost as delicious as a chicken drumstick!" An excited voice rang out, muffled and wet, the words stifled around Qingyi’s throbbing cock.</p>
+<p>"Mmm My hubby is almost as delicious as a chicken drumstick!" An excited voice rang out, muffled and wet, the words stifled around Qingyi’s throbbing cock.</p>
 
 <p>The owner of that lewd voice was none other than Bai Yunxi.</p>
 
@@ -17,7 +17,7 @@ chapter = 846
 
 <p>Her striped tail fluttered excitedly behind her, betraying just how eagerly she was enjoying her feast.</p>
 
-<p>"Hmm... can’t you, nghnn~~, suck it without saying those embarrassing things?" Margareth asked, a soft gasp escaping her parted lips.</p>
+<p>"Hmm... can’t you, nghnn, suck it without saying those embarrassing things?" Margareth asked, a soft gasp escaping her parted lips.</p>
 
 <p>Her entire body shuddered when Qingyi squeezed her breasts a little harder, his fingers sinking deep into the pillowy white flesh, milking them with greedy, possessive strokes.</p>
 

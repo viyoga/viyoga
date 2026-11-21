@@ -55,7 +55,7 @@ chapter = 176
 <p>"Oh my, oh my!"</p>
 <p>Son Na-ri exclaimed like an ahjumma and continued watching the music video. Han Yu-gyeong and the others were also quietly watching the music video.</p>
 <p>The song was about the pain of forbidden love. The vocals were good, so it matched the music video well and captured the poignant atmosphere well. The alley fight scene and some classroom scenes that were filmed at the filming location alternated, and the song ended with the last scene being me, as a college student, visiting Ha Ju-yoon's house and kissing her.</p>
-<p>"Wow~! The song was good. The music video was good too."</p>
+<p>"Wow! The song was good. The music video was good too."</p>
 <p>"Are you originally majoring in acting? Your acting is pretty good?"</p>
 <p>"Huuuck...! It's touching."</p>
 <p>Son Na-ri and Hong Su-yeon exclaimed, and Lee Ji-soo even shed tears, not sure what was so touching. Han Yu-gyeong was silent, perhaps because of the kiss scene. After a moment of silence, Han Yu-gyeong opened her mouth.</p>

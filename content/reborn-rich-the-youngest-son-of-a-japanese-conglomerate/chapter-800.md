@@ -7,7 +7,7 @@ chapter = 800
 
 <p>"Idiot, Moron, Cretin! Bastard!"</p>
 <p>Minamoto Lisa, needlessly playing hard to get, shook her Legs while being held in a Princess carry. For reference, she said 'Bastard' in Korean language. Perhaps because it was profanity, she was incredibly fluent. A perfect score in the Korean language subject in the upcoming Test is certain.</p>
-<p>"Oh~! A Young Lady of the Minamoto Family shouldn't use such harsh Words~!"</p>
+<p>"Oh! A Young Lady of the Minamoto Family shouldn't use such harsh Words!"</p>
 <p>"Are you mocking me by saying you're Taira?"</p>
 <p>At my Words, Minamoto Lisa needlessly grumbled. Now that she knew I was Taira, it seemed she was complaining about that.</p>
 <p>"For now, I'm Yamashiro Ryuta, the special class Class Teacher."</p>
@@ -42,7 +42,7 @@ chapter = 800
 <p>"Keueut...! I'm cumming...!"</p>
 <p>With Minamoto Lisa working so hard to stroke me, I felt I should show her the Result(?), so I didn't hold back and immediately ejaculated semen.</p>
 <p>"Ugh...!"</p>
-<p>Byuut~! Byuut~! Byuut!</p>
+<p>Byuut! Byuut! Byuut!</p>
 <p>Minamoto Lisa quickly lowered her Head and took my glans into her Mouth. To avoid spilling the semen erupting from my cock, she swallowed it, gulping, while continuously stroking my cock with her Hand, helping the Ejaculation.</p>
 <p>"It feels good, Lisa...."</p>
 <p>"Heung, Idiot. Perverted cock...!"</p>
@@ -96,14 +96,14 @@ chapter = 800
 <p>At Minamoto Lisa's earnest Request, I placed my Hand on her Pantyhose. And without mercy, I tore the part covering her pussy.</p>
 <p>Gojoy-nim requested Dang So-hwa's casual attire, underwear attire.</p>
 <p>Casual Attire, actually, as a Boss of the underworld and a Boss of a construction company, she wears Suits a lot, but Suits are boring, so I'm uploading a Qipao instead haha</p>
-<p>Underwear~!</p>
+<p>Underwear!</p>
 <p>The last one, by chance, her Head covered her breasts haha</p>
-<p>Hwanbuljeoldae-bulga-nim requested Lisa, Home Teacher's tube top bikini Armpit Jjal~!</p>
-<p>Lisa-ttang~!</p>
+<p>Hwanbuljeoldae-bulga-nim requested Lisa, Home Teacher's tube top bikini Armpit Jjal!</p>
+<p>Lisa-ttang!</p>
 <p>Home Teacher</p>
 <p>Tank tops, tube top bikinis don't come out well haha</p>
 <p>Gwichaniseuteu Jeong Seo-ha-nim requested Gokado Hanako (appearing in the Driver's license chapter) date attire, underwear attire.</p>
 <p>Date Attire</p>
-<p>Underwear~!</p>
-<p>Bonus NTL Suggestion Scene~!</p>
-<p>seungj050-nim requested Lizhael's cheerleader twerking.... but Lizhael-nim said she wouldn't twerk to maintain her Dignity~!</p>
+<p>Underwear!</p>
+<p>Bonus NTL Suggestion Scene!</p>
+<p>seungj050-nim requested Lizhael's cheerleader twerking.... but Lizhael-nim said she wouldn't twerk to maintain her Dignity!</p>

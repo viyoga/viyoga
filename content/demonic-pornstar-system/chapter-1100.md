@@ -30,7 +30,7 @@ chapter = 1100
 <p>Behind him, Aria and Nyx were already getting up, while Alexandra offered to help Taigi gather the others.</p>
 <p>By the time Kaiden returned with Alice and Bastet, the family had assembled by the palace doors. Calypso was adjusting the collar of Yunohana’s dress with great concentration, earning a patient smile from the shrine maiden, while Luna waited beside them with her hands in her pockets.</p>
 <p>"Everybody ready?" he asked.</p>
-<p>"Very," Calypso answered, letting Yunohana go. "Lead on, Commander~"</p>
+<p>"Very," Calypso answered, letting Yunohana go. "Lead on, Commander"</p>
 <p>Taigi bowed to the family, then turned toward the path into the forest.</p>
 <p>...</p>
 <p>Kaiden smelled the cooking before the houses came into view.</p>

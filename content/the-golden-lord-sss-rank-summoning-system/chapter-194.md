@@ -8,17 +8,17 @@ chapter = 194
 <p>Ethan woke up early, two beauties still asleep in his arms, his hands resting on their full, shapely asses.</p>
 <p>He squeezed gently, fingers sinking deep into the warm, creamy flesh, the supple cheeks molding around his grip before slowly springing back into shape as he eased his grip.</p>
 <p>Two pairs of eyes fluttered open slowly, accompanied by soft, sleepy moans.</p>
-<p>"Ah~ Ethan..." Alice was the first to stir, leaning over him and sealing his lips with a sweet, lingering kiss. "Good morning, love♡" she whispered, smiling tenderly.</p>
+<p>"Ah Ethan..." Alice was the first to stir, leaning over him and sealing his lips with a sweet, lingering kiss. "Good morning, love♡" she whispered, smiling tenderly.</p>
 <p>He returned the smile, gently kneading her ass, his fingers tracing the soft skin still warm from sleep.</p>
 <p>Beside them, Evelyn also woke. Still groggy, she pushed herself up until she was kneeling on the bed, her palms pressed flat against Ethan’s chest.</p>
 <p>Soft light streamed through the window, bathing her voluptuous body in a warm glow.</p>
 <p>The pale patches of untanned skin glowed faintly, reflecting the morning sun with a snowy hue, contrasting against the golden, sun-kissed flesh that looked as if drizzled in honey, both halves divided by obscene tan lines.</p>
-<p>"Nghnn~~ I can tell someone woke up excited today," Evelyn giggled softly. "I hope it’s excitement to train, or maybe..."</p>
+<p>"Nghnn I can tell someone woke up excited today," Evelyn giggled softly. "I hope it’s excitement to train, or maybe..."</p>
 <p>Her hands began to wander, sliding first over Ethan’s sculpted abdomen before slowly creeping toward his groin.</p>
 <p>Her slender fingers wrapped around a shaft already thick, hard, and throbbing with morning heat.</p>
 <p>She squeezed firmly, drawing a pained groan from her husband.</p>
 <p>"Ah... do you want to decapitate your man’s lower head?" he asked, pleasure and a hint of pain mingling in his voice.</p>
-<p>"No, Alice would never forgive me if I destroyed her favorite toy, fufufu~" Evelyn replied, sliding her hand up and down his hardened cock, her fingers gliding to the tip before returning to the base.</p>
+<p>"No, Alice would never forgive me if I destroyed her favorite toy, fufufu" Evelyn replied, sliding her hand up and down his hardened cock, her fingers gliding to the tip before returning to the base.</p>
 <p>"I-it’s your f-favorite toy!" Alice exclaimed, her face flushing red with embarrassment. "N-not mine!"</p>
 <p>She looked away, too flustered to notice the mischievous gleam that had taken over Evelyn’s face.</p>
 <p>"Exactly! So my favorite toy’s morning erection is all mine!" Evelyn declared excitedly.</p>

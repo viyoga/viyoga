@@ -11,7 +11,7 @@ chapter = 428
 <p>Calypso’s eyes widened, and a deep blush instantly spread across her delicate cheeks. She loved it. She could already imagine how her man would look in that sleek, powerful getup.</p>
 <p>With the clothes now materialized, she resumed her mission. She maneuvered her hands carefully, still supporting his head on her thighs. She worked the trousers over his legs, gently pulling them up his thighs.</p>
 <p>Kaiden, who’d been conscious ever since the rapid kisses of Calypso reached him, watched the entire display with an amused smile. He was feeling extra weak and utterly drained after the transformation, ensuing battle, and the lengthy sexual encounter, so it felt intensely good to be pampered like this.</p>
-<p>"Hold still, Darling~" Calypso whispered, her brow furrowing in concentration as she worked the trousers past his waist. "You will look magnificent." She secured the waistband with a click.</p>
+<p>"Hold still, Darling" Calypso whispered, her brow furrowing in concentration as she worked the trousers past his waist. "You will look magnificent." She secured the waistband with a click.</p>
 <p>Next came the shirt and armor, which she lovingly fitted over his torso and arms, smoothing the fabric out. Her touch was tender yet claiming every inch of him with the act of dressing.</p>
 <p>"Perfect❤️!" she squealed. With her Darling now decent, safe from the gaze of lesser women, she returned to happily stroking his dark hair, the content look of a woman who had won the most important battle of her life settling on her gorgeous demonic face.</p>
 <p>The red veil Calypso had maintained around them fully receded.</p>

@@ -6,13 +6,13 @@ chapter = 755
 +++
 
 <p>"I heard you were off sick yesterday, are you feeling a bit better?"</p>
-<p>"Korean language Teacher-nim~! Are you okay?"</p>
+<p>"Korean language Teacher-nim! Are you okay?"</p>
 <p>"I'm better now. Thank you for your concern."</p>
 <p>I, who had returned to work after just one day, received worries from many people. I came to the special class building, receiving greetings and concerns about my well-being from the Security Guard at the school's main gate, with whom I usually made small talk, and from the Female Students who were arriving early for school.</p>
 <p>"First, there are no faxes that have come in...."</p>
 <p>I, who had come to the education preparation room, checked the faxes, placed my luggage in my seat, then left the education preparation room again and headed towards the Infirmary across the hall.</p>
 <p>Ttok-ttok</p>
-<p>"Yes~!"</p>
+<p>"Yes!"</p>
 <p>As I knocked on the door, Kijimoto Jurie's gentle Voice was heard. Kijimoto Jurie Teacher-nim is diligent too. Even though she's an infirmary Teacher-nim with less Work than the Class Teacher, she comes to work earlier than me.</p>
 <p>I opened the Infirmary door and entered. Upon entering the Infirmary, Kijimoto Jurie was there, busily working, typing away on a keyboard.</p>
 <p>"What are you doing?"</p>
@@ -56,16 +56,16 @@ chapter = 755
 <p>Although it had only been one day since I hadn't come to school, I was glad to see the Students, so I greeted them with "It's been a while."</p>
 <p>"It's only been one day, did you miss us?"</p>
 <p>"Yeah, because my Body was sick, I missed our special class troublemakers. Usually, they're a pain, you know."</p>
-<p>"Ah~! What the, Ryuta-jji! That's too much!"</p>
+<p>"Ah! What the, Ryuta-jji! That's too much!"</p>
 <p>"Still, it's fortunate that you missed us even when you were sick!"</p>
 <p>I stood at the Podium, exchanging Comic dialogue with the special class Students. There was no need to call attendance, as everyone was present.... There were no specific announcements from the school, but there was an announcement just for our class. It was about the ski resort Travel coming up next week.</p>
 <p>"You know we're using the one-day Vacation pass we got from winning the sports competition to go to the ski resort next Friday, right?"</p>
 <p>"Ah, that's right!"</p>
-<p>"That sounds fun~! Ryuta-jji, are you good at skiing?"</p>
+<p>"That sounds fun! Ryuta-jji, are you good at skiing?"</p>
 <p>"Alik, snow.... I'm used to it."</p>
 <p>Since we were planning to use the Vacation pass next Friday, finish academy on Thursday, and then depart for a 3-night, 4-day ski resort Travel from Thursday to Sunday, I had to tell the Students in advance to submit their Vacation passes.</p>
 <p>"Since you need to use a Vacation pass to go on the ski resort Travel, please submit your Vacation pass today if possible. You can submit it up to three days before, but you might forget after the Weekend."</p>
-<p>"Got it~!"</p>
+<p>"Got it!"</p>
 <p>"Okay!"</p>
 <p>"I'll definitely submit it, Teacher-nim...!"</p>
 <p>Perhaps because it had been a long time since the class went out together, the Students looked very excited. Of course, Uenozono Karen, who was planning to use her Vacation pass for Entertainment Industry engagements, had a regretful Expression because she couldn't join her Friends.</p>
@@ -86,14 +86,14 @@ chapter = 755
 <p>"I've hidden your phone on my Body. Try to find it, Orabeoni♡"</p>
 <p>I wondered why the Student Council Students weren't there, but it seemed it was to play such an Erotic Prank. Hmm, where did she hide the phone...? It was pretty obvious, actually. It would be one of two places.</p>
 <p>I strode purposefully towards Taira Kanna. And extended my hand. What I chose was the Button of Taira Kanna's School Uniform Shirt. I was going to search inside her Cleavage, thinking, 'Surely she wouldn't have put it inside her Pussy, would she?'</p>
-<p>"...♡ What is it suddenly, Orabeoni~! Aren't you being too Erotic?"</p>
+<p>"...♡ What is it suddenly, Orabeoni! Aren't you being too Erotic?"</p>
 <p>As I unbuttoned all the Buttons, Taira Kanna's Cleavage became visible. But my phone was not tucked between Taira Kanna's breasts as I had expected.</p>
 <p>Surely not.... Did she really "store" it down there? At my Astonishment Expression, Taira Kanna chuckled softly. Taira Kanna's Hand moved down towards her skirt and went into her pocket. In Taira Kanna's beautiful Hand, which emerged from her pocket, was my smartphone.</p>
 <p>"Orabeoni, Byeontae...♡"</p>
 <p>I had been completely fooled by Taira Kanna's Wordplay. It seemed Taira Kanna was the only Woman who could Mockery me like this.</p>
 <p>Minamar2-nim requested a Gyaru Illustration of Minamoto Lisa before Tanning!</p>
 <p>When I first made it, I thought, "Huh? Why does it feel different?" but then I realized that the settings had changed after updating the AI Program ㄷㄷㄷ The Furisode Illustration of Lisa-ttang in the recently uploaded oejeon was also different from the usual feeling because of that ㅠㅜㅠ</p>
-<p>So, here's the re-made Lisa-ttang White Gyaru image~!</p>
-<p>Gyaru Peace~!</p>
-<p>A slightly more daring Gyaru Lisa-ttang in Miyashiro Municipal High School Uniform~!</p>
+<p>So, here's the re-made Lisa-ttang White Gyaru image!</p>
+<p>Gyaru Peace!</p>
+<p>A slightly more daring Gyaru Lisa-ttang in Miyashiro Municipal High School Uniform!</p>
 <p>Kkiyoo-oot, I liked them so much I made a lot of them ///////.</p>

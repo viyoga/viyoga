@@ -27,7 +27,7 @@ chapter = 798
 
 <p>His cockhead lined up, and he slid in smoothly, enjoying the tight, wet grip of his mother-in-law’s cunt.</p>
 
-<p>&quot;Ahhh~...&quot;</p>
+<p>&quot;Ahhh...&quot;</p>
 
 <p>Ruth couldn’t help crying out, then bit her lip in shame.</p>
 
@@ -47,11 +47,11 @@ chapter = 798
 
 <p>Still, their modesty made changing positions difficult, a frustrating point.</p>
 
-<p>&quot;I... I’m going to bed now, okay~...&quot;</p>
+<p>&quot;I... I’m going to bed now, okay...&quot;</p>
 
 <p>Eloise whimpered, her voice trembling like she might cry. It was all too intense.</p>
 
-<p>&quot;Go ahead. Goodnight~&quot;</p>
+<p>&quot;Go ahead. Goodnight&quot;</p>
 
 <p>Luis kissed her deeply, then let her go.</p>
 
@@ -79,7 +79,7 @@ chapter = 798
 
 <p>Tiptoeing back to the guest room, he held his tender little cousin and slept soundly, it was incredibly comfortable.</p>
 
-<p>&quot;Brother-in-law~...&quot;</p>
+<p>&quot;Brother-in-law...&quot;</p>
 
 <p>Ariana was woken up. After turning off the alarm, she realized she was in Luis’s arms and let out a happy murmur.</p>
 
@@ -157,7 +157,7 @@ chapter = 798
 
 <p>The frustrating part was that the treatment would take a long time, and they’d decided to travel as well, no telling when they’d be back. That mission was temporarily stuck.</p>
 
-<p>&quot;Brother-in-law~!!!&quot;</p>
+<p>&quot;Brother-in-law!!!&quot;</p>
 
 <p>Avery got into the back seat first, calling out sweetly. Her innocent, cute face was full of loving longing.</p>
 

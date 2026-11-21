@@ -68,7 +68,7 @@ chapter = 538
 <p>He had played enough and he had a war to fight after all.</p>
 <p>Ten hesitated. She truly didn’t want to speak more and give important information by accident.</p>
 <p>But, she had already chosen her side long ago. It would be stupid of her to backtrack now.</p>
-<p>“Sigh~I hope I am not making the wrong choice here.”</p>
+<p>“SighI hope I am not making the wrong choice here.”</p>
 <p>“Trust me. What you are doing now will change the witch world. I have no intention to use you guys as subordinates or as war potential. You will simply be once again the subjects of Lustburg and this time nothing will change this. As long as I am alive.”</p>
 <p>She nodded.</p>
 <p>Those words coming from someone who had a nearly eternal lifespan were truly quite convincing.</p>

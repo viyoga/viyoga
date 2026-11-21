@@ -11,7 +11,7 @@ chapter = 1112
 <p>Agiel swallowed and nodded to Jason, and Jason leaned down and kissed her again. Agiel wrapped her hands around Jason’s neck as she deepened the kiss, and Agiel felt her nipples growing harder as they rubbed against Jason’s chest. Jason aligned himself with Agiel’s entrance, and he slowly began to slide into her, and Jason was shocked by how fucking wet Agiel was! It felt like he was sliding into fucking jelly! Agiel’s toes dug into the dirt as she felt Jason splitting her entrance apart.</p>
 <p>"UUUHH!"</p>
 <p>Agiel threw her head back and let out a long, guttural sound, and Jason gently kissed her neck as he continued to enter her! Agiel’s nails pressed into Jason’s shoulder blade, and she grit her teeth as she felt Jason hit something inside her, and Jason leaned forward and kissed Agiel before he pushed through the obstacle!</p>
-<p>Rip~!</p>
+<p>Rip!</p>
 <p>"MMMMHHH!"</p>
 <p>Agiel grunted in pain as she felt something rip inside of her, but Jason easily swallowed her scream, and he stayed still to give Agiel time to ride out the pain. Agiel’s core was throbbing, and there were goosebumps travelling across Agiel’s entire body, but Agiel was just so fucking tight, and it was taking all of Jason’s strength not to move yet! It took a few more seconds before Agiel finally felt comfortable enough to continue, and she ran her hand into Jason’s hair as she whispered.</p>
 <p>"I’m ready, love. You can move."</p>
@@ -42,5 +42,5 @@ chapter = 1112
 <p>"Can you keep going?"</p>
 <p>Agiel swallowed nervously when she saw the predatory look in Jason’s eyes! Jason looked like a fucking beast in that moment, and Agiel felt like a rabbit that was about to be devoured! But the feeling of pleasure from Jason’s movement sent electric signals up her spine, and Agiel nodded while biting her bottom lip! If Jason wanted to keep going, then she would go all night for him! Jason grinned, and he braced himself against the ground with one elbow and took Agiel’s left thigh in his other hand before he thrust forward with intensity!</p>
 <p>BAM!</p>
-<p>"UGH! Yes~!"</p>
+<p>"UGH! Yes!"</p>
 <p>Agiel moaned loudly, and she kissed Jason hard as the sound of skin slapping against skin echoed through the forest!</p>

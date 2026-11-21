@@ -93,7 +93,7 @@ chapter = 143
 
 <p>&quot;Yes, Mom, absolutely.&quot;</p>
 
-<p>&quot;Yay! Hehe, well then, you can definitely expect me to put on some incredible private shows for you later, my dear husband~&quot; Arielle purred, taking the initiative to lean in and slowly lick along the side of his neck.</p>
+<p>&quot;Yay! Hehe, well then, you can definitely expect me to put on some incredible private shows for you later, my dear husband&quot; Arielle purred, taking the initiative to lean in and slowly lick along the side of his neck.</p>
 
 <p>The playful battle between the two of them was far from over! The night was still incredibly young, and it was officially time to prepare for another intense, passionate round.</p>
 

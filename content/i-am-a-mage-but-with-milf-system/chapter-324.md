@@ -39,29 +39,29 @@ chapter = 324
 
 <p>He gripped her hips and thrust inside his cock inside her in one strong, urgent motion.</p>
 
-<p>“Aaahh~!” She moaned, her body arching as he filled and stretched her completely.</p>
+<p>“Aaahh!” She moaned, her body arching as he filled and stretched her completely.</p>
 
-<p>“So forceful,” she teased breathlessly, her fingers digging into his shoulders. “Mmmhh~Couldn’t take the teasing anymore, my lord?”</p>
+<p>“So forceful,” she teased breathlessly, her fingers digging into his shoulders. “MmmhhCouldn’t take the teasing anymore, my lord?”</p>
 
 <p>Julian didn’t answer with words. Instead, he pulled back just enough before slamming into her again, harder this time, taking what he had been craving.</p>
 
-<p>“Ahh~ yes!” Emma moaned, her head falling back as pleasure surged through her.</p>
+<p>“Ahh yes!” Emma moaned, her head falling back as pleasure surged through her.</p>
 
 <p>The oil made every movement smooth and sensual—his cock easily reaching deep inside her as he fucked her like a wild beast.</p>
 
 <p>Her legs wrapped around his waist, pulling him in deeper. Her nails dug down his back, leaving red marks along the way.</p>
 
-<p>“Mmm ~ ahhh ~ that’s more like it,” she whispered in his ear before biting his earlobe.</p>
+<p>“Mmm  ahhh  that’s more like it,” she whispered in his ear before biting his earlobe.</p>
 
 <p>Julian’s grip tightened on her hips and fucked her relentlessly. Every thrust pushed her to her limits, making her breath ragged and her body shaking in pleasure.</p>
 
 <p>“You wanted to tease?” he growled, his lips kissing her neck before biting down just enough to make her jerk.</p>
 
-<p>“Ahh ~ ahhh ~ Julian!” Emma moaned, her body shaking with each deep, demanding thrusts.</p>
+<p>“Ahh  ahhh  Julian!” Emma moaned, her body shaking with each deep, demanding thrusts.</p>
 
 <p>Julian leaned down and capturing her mouth in a rough kiss, silencing her moans.</p>
 
-<p>“Mmm~ahh—mmnhh!” her muffled moans filled the room as she met every thrust desperately.</p>
+<p>“Mmmahh—mmnhh!” her muffled moans filled the room as she met every thrust desperately.</p>
 
 <p>Their bodies moved in perfect rhythm, the extra addition of the slick oil leaving them both breathless.</p>
 
@@ -71,7 +71,7 @@ chapter = 324
 
 <p>Emma’s body tensed beneath him, her legs squeezing around his waist as the pleasure reached its peak.</p>
 
-<p>“Julian ~ ahh ~I’m ~ I’m cummi~!”</p>
+<p>“Julian  ahh I’m  I’m cummi!”</p>
 
 <p>Before she could finish, he captured her lips again. Her pussy clenched and pulsed violently around his cock as she finally fell over the the edge.</p>
 
@@ -81,7 +81,7 @@ chapter = 324
 
 <p>His thrusts turned frenzied as he buried his cock deep inside her.</p>
 
-<p>“Ahhh ~ Emma!” Julian groaned, his body tensing before he spilled inside her, filling her with his hot cum.</p>
+<p>“Ahhh  Emma!” Julian groaned, his body tensing before he spilled inside her, filling her with his hot cum.</p>
 
 <p>But it didn’t stop. The pleasure kept building, and his body continued to spurt thick ropes of cum.</p>
 
@@ -99,7 +99,7 @@ chapter = 324
 
 <p>Julian slowly lifted his head and kissed along Emma’s collarbone before moving lower. He kissed her nipples, his tongue darting out, swirling around it. “That was good.”</p>
 
-<p>Emma smirked, her fingers curling in his hair. “Mmmhh ~ I suppose that means you enjoyed your massage, my lord?”</p>
+<p>Emma smirked, her fingers curling in his hair. “Mmmhh  I suppose that means you enjoyed your massage, my lord?”</p>
 
 <p>Julian chuckled, planting another kiss to her breast before murmuring, “I might just have to get another one soon.”</p>
 

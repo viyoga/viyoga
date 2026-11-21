@@ -25,7 +25,7 @@ chapter = 198
 <p>So much vaginal fluid was already flowing from her pussy that foreplay was unnecessary. I put my body between Sawayanagi Azuma's spread legs instead of my face. I rubbed my dick against her pussy a few times as if on a water slide, and unable to endure it any longer, she lowered her hand, grabbed my dick directly, and placed it at her vaginal entrance.</p>
 <p>"Aying, don't tease me.... Please put in Investor-nim's big dick."</p>
 <p>I can't not put it in when she's acting so cute. Sawayanagi Azuma had already aimed well, so I just needed to put strength in my butt and push forward slightly. It had been a while since I had sex with Sawayanagi Azuma, so her vagina had become quite tight. Sawayanagi Azuma's pussy was quite tight despite the abundance of vaginal fluid.</p>
-<p>"Haa-eung~! It feels so full, Investor-nim, your dick seems to have gotten bigger♥"</p>
+<p>"Haa-eung! It feels so full, Investor-nim, your dick seems to have gotten bigger♥"</p>
 <p>"Azuma-ssi's pussy seems to have gotten tighter?"</p>
 <p>"Euheung....! Do you like it tighter?"</p>
 <p>"Yeah, I like it."</p>
@@ -54,7 +54,7 @@ chapter = 198
 <p>Nagumo Sian nodded and replied to my question. It certainly wasn't something that would happen immediately, so Mimata Chieri would stay in Daisen City and resolve it well.</p>
 <p>"Stop talking about work and let's eat. Food is not tasty when it's cold."</p>
 <p>"Yes, I will enjoy the meal."</p>
-<p>"I'll eat well~!"</p>
+<p>"I'll eat well!"</p>
 <p>The food was delicious. It was more elaborate and delicious than lunch, as if it had been prepared with much more care. We enjoyed the meal happily. We finished the meal and went to our respective rooms, and Mimata Chieri also received a room and left a word in my ear before entering her room.</p>
 <p>"Sunbae-nim, I'll enjoy watching the video♥"</p>
 <p>Her face was already flushed with anticipation, as if she had already received my sex video from Sawayanagi Azuma. She would probably go into her room, watch the video, masturbate a lot, and then come to my room and ask me to fuck her the same way as in the video.</p>
@@ -84,10 +84,10 @@ chapter = 198
 <p>"Okay. Go quickly so you're not late."</p>
 <p>"Sunbae-nim, I'll finish up quickly and go too!"</p>
 <p>"Please take care of the contract, Sunbae-nim."</p>
-<p>"Leave it to me~!"</p>
+<p>"Leave it to me!"</p>
 <p>I said goodbye and got into the car that Nagumo Sian had prepared. All the Seryutai personnel boarded, and we headed to the airport. The boxes containing Tang Sohwa and Yang Syuexi were in the trunk. Both of them had been given sleeping pills and were asleep, so they wouldn't wake up and cause a ruckus in the middle.</p>
 <p>"I'm looking forward to the new unit members."</p>
-<p>"I want to see them too~!"</p>
+<p>"I want to see them too!"</p>
 <p>Sawayanagi Seari agreed with Sawayanagi Azuma's words. Everyone was showing great anticipation for receiving new unit members.</p>
 <p>"Everyone worked hard on this mission."</p>
 <p>I looked around at everyone and said. It was quite a difficult task, but I was glad that we succeeded in the mission without anyone getting hurt.</p>

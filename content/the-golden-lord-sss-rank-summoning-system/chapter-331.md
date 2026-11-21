@@ -24,15 +24,15 @@ chapter = 331
 <p>Ethan pulled his hips back, just enough to keep the head of his cock trapped between Ysara’s pink lips.</p>
 <p>He wanted her to taste his cum, to feel each hot spurt filling that royal mouth until there was no space left, forcing her to swallow it all obediently.</p>
 <p>The first jet of cum splashed against the roof of Ysara’s mouth—thick, viscous—and the second forced her to swallow immediately, her cheeks bulging with the flood of semen as she fought not to let a single drop escape past the corners of her lips.</p>
-<p>"Gulp~ Gulp~ Gulp~ Gulp~ Gulp~"</p>
+<p>"Gulp Gulp Gulp Gulp Gulp"</p>
 <p>She didn’t choke for even a second, swallowing that inhuman amount of cum with obedience, each gush sliding down her throat in a voracious pull, her slender neck visibly contracting with every swallow.</p>
 <p>Ethan’s fingers, previously clenched tightly around those snow-white strands, finally relaxed, and his cock slipped from Ysara’s full lips with a wet pop, a thick thread of saliva and semen still connecting the two.</p>
 <p>Gripping the base of his still-throbbing cock, he immediately guided it to Amelia’s lips, which were already half-open.</p>
 <p>There, he unleashed two final shots, the thick cum flooding his own mother’s mouth.</p>
 <p>She shuddered from head to toe as that sticky heat invaded her tongue.</p>
 <p>When the cock finally left those pink lips, a third spurt struck Amelia’s delicate collarbone, the thick pearl of cum trickling slowly down her smooth skin until it vanished into the deep valley between her massive, round tits, painting shiny trails that meandered lazily down her ample flesh.</p>
-<p>"Aghnnn~~ how the hell does that much cum fit in there?" Ysara asked, incredulous, groping Ethan’s heavy balls with fingers that were still trembling.</p>
-<p>"Gulp~ mghnn~~ are you sure that’s the question you should be asking?" Amelia retorted, swallowing the rest, feeling the strangely sweet taste of her son’s semen take over her entire mouth.</p>
+<p>"Aghnnn how the hell does that much cum fit in there?" Ysara asked, incredulous, groping Ethan’s heavy balls with fingers that were still trembling.</p>
+<p>"Gulp mghnn are you sure that’s the question you should be asking?" Amelia retorted, swallowing the rest, feeling the strangely sweet taste of her son’s semen take over her entire mouth.</p>
 <p>Turning slowly, Ysara met her friend’s flushed, angry face.</p>
 <p>"Slutty slut!" Amelia declared, pointing an accusing finger.</p>
 <p>"Hm... you sure do complain a lot for someone who’s covered in her own son’s cum and... well... still swallowed every drop so obediently..." Ysara teased, bringing her fingertips to her lips and savoring the lingering taste of Ethan’s cock that still remained there.</p>

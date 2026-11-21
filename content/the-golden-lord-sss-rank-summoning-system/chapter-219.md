@@ -72,12 +72,12 @@ chapter = 219
 <p>His grip tightened around thick tufts of her curls, and the beautiful maid shuddered beneath the sudden pressure, a muffled moan vibrating sweetly around his cock.</p>
 <p>Her blue eyes flew wide as his cock throbbed hard against her tongue, and in the next instant a thick, scalding flood of cum erupted into her mouth, filling her in heavy, fat spurts.</p>
 <p>Her cheeks puffed out at once, unable to contain the sheer volume.</p>
-<p>"Mhpff~ glup~ glup~~"</p>
+<p>"Mhpff glup glup"</p>
 <p>Rosalyn swallowed greedily, muffled moans humming in her throat as she worked to drain every last drop. Even so, a few strands escaped past her stretched lips.</p>
 <p>Thick, pearly rivulets trailed down her chin and onto her breasts, sliding slowly over the full, pale orbs and staining the maid’s deep cleavage with hot, glistening streaks of cum.</p>
 <p>After long moments of patient milking, Rosalyn finally drained him to the last drop, and Ethan loosened his grip.</p>
 <p>His cock slid free of her mouth with a loud, wet pop, still hard and glistening, slick with saliva and semen.</p>
-<p>"Nghnn~ Lord Ethan came so much today, hehe~..."</p>
+<p>"Nghnn Lord Ethan came so much today, hehe..."</p>
 <p>She purred the words, leaning forward to press one final, lingering kiss against the sensitive tip of his cock.</p>
 <p>With elegance, she rose to her feet, smoothing the front of her uniform before turning her back to him.</p>
 <p>In one fluid motion, she grabbed the hem of her skirt and hiked it up well above her waist, offering her full, plump ass to her master, the soft flesh trembling in lewd invitation.</p>

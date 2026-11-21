@@ -33,7 +33,7 @@ chapter = 9
 
 <p>It took everything she had not to moan out loud.</p>
 
-<p>&quot;Hehe, let’s forget about Father. He isn’t here anyway~&quot; Owen was honestly getting a little irritated hearing that freaking pathetic father shit again and again...</p>
+<p>&quot;Hehe, let’s forget about Father. He isn’t here anyway&quot; Owen was honestly getting a little irritated hearing that freaking pathetic father shit again and again...</p>
 
 <p>Hell, it was spoiling the buildup tension every time those words popped out!</p>
 
@@ -53,17 +53,17 @@ chapter = 9
 
 <p>&quot;Okay, I will teach you, Mom,&quot; he spoke with pure seriousness, like a teacher trying his best to instruct a brat in middle school.</p>
 
-<p>&quot;Oh my... then how about I become your student for now, my dear Owen~?&quot; Arielle was a MILF, after all...she couldn’t just be the one getting teased every single time, right... so instead of being shy, why not just play along with everything?</p>
+<p>&quot;Oh my... then how about I become your student for now, my dear Owen?&quot; Arielle was a MILF, after all...she couldn’t just be the one getting teased every single time, right... so instead of being shy, why not just play along with everything?</p>
 
 <p>It was just a mom and son bonding... but in a much wilder way!</p>
 
-<p>&quot;Hoho, now you are acting like a student? Are you really interested in learning such lewd stuff mom~?&quot; Owen teased her, wanting to see her shy reaction... but instead, he received a mischievous smirk!</p>
+<p>&quot;Hoho, now you are acting like a student? Are you really interested in learning such lewd stuff mom?&quot; Owen teased her, wanting to see her shy reaction... but instead, he received a mischievous smirk!</p>
 
 <p>How could she act so playful right after she had just said it wasn’t the norm in the village?!</p>
 
 <p>Owen was forced to gulp hard internally; maybe he could move much wilder now.</p>
 
-<p>&quot;Oh my... oh my, I didn’t mean it, my dear Wen. Ohh! Maybe teacher Wen~?&quot; Her bold response made his cock bulge even more.</p>
+<p>&quot;Oh my... oh my, I didn’t mean it, my dear Wen. Ohh! Maybe teacher Wen?&quot; Her bold response made his cock bulge even more.</p>
 
 <p>It was twitching now... moving up and down, pressing right against her ass, which made her ears turn completely pink.</p>
 
@@ -75,6 +75,6 @@ chapter = 9
 
 <p>&quot;Before that, Mom... feed me first. How can I explain the trends of the city when my stomach is empty, right?&quot; Owen spoke as he looked at her with pleading eyes... she wouldn’t be able to say no, even if the world were about to explode into smithereens.</p>
 
-<p>&quot;Oh my, oh my! How could I forget that? Then I will feed my spoiled boy first, and you can share the knowledge you gained from the city afterward~&quot; Arielle wasn’t completely comfortable... as she veered her ass from time to time, secretly savoring the friction beneath her!</p>
+<p>&quot;Oh my, oh my! How could I forget that? Then I will feed my spoiled boy first, and you can share the knowledge you gained from the city afterward&quot; Arielle wasn’t completely comfortable... as she veered her ass from time to time, secretly savoring the friction beneath her!</p>
 
 <p>&quot;Hehe... I can teach you while you feed me, Mom.&quot; Owen wasn’t about to let the opportunity for multitasking pass him by.</p>

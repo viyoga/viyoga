@@ -23,7 +23,7 @@ chapter = 374
 <p>A smirk formed on her face. She had never cared what men thought when looking at her. But she was very conscious of Sol’s opinion.</p>
 <p>Once Sol stepped into the bath with the girls, Nent approached him with great strides. Once she reached him, literally throwing herself at his body, her hand began to run along his skin. He also felt her enormous tits and Skuld’s smaller ones squishing against him as they fully smothered him with their bodies.</p>
 <p>Clearly, Skuld also decided to not wait anymore.</p>
-<p>“Hehehe~! Let’s warm ourselves in body and soul. I will wash every nook and cranny of your body, darling.”</p>
+<p>“Hehehe! Let’s warm ourselves in body and soul. I will wash every nook and cranny of your body, darling.”</p>
 <p>“You know that you sound like an old pervert speaking like that, right?”</p>
 <p>“Don’t care.”</p>
 <p>Skuld giggled as she began to sniff his body and scent. His scent brought a sense of peace to her inner heart, brimming with the aura of chaos. Contrary to what others may believe, even if Sol went away, she would not be rendered unable to function or become crazy. She had already lived more than ten thousand years with just the thought of seeing him again even once.</p>
@@ -48,7 +48,7 @@ chapter = 374
 <p>Skuld straddled his legs and began moving her butt in erotic rhythms. There was no penetration, but it was basically just a ruse as they did everything else possible.</p>
 <p>Sol was basically being drowned in pleasure in the best possible way. Everywhere he looked, he could only witness a delightful sight.</p>
 <p>Nefertiti seemed to be the only one truly intent on washing his body. But the way she was sensually caressing and serving him only added to his excitement.</p>
-<p>"Haa~~! Nn~!"</p>
+<p>"Haa! Nn!"</p>
 <p>On his back, Nent was moving faster as she rubbed her breasts and pointy nipples against his back. Just pushing those pointy pairs against his muscular body had already excited her so much to the point of almost making her lose her reasoning.</p>
 <p>Things just began to go crazier with each passing second. While Nent was in the throes of passion, the other girls gradually began to feel the same in one way or another. Even though they had practically done nothing yet. They could also feel Skuld's euphoria as she was being kissed by Sol.</p>
 <p>The same went for everyone. Each of them was feeling the pleasure received by everyone else and once that pleasure was registered by their brains, this sensation would be shared with everyone else once again, creating an endless back and forth.</p>
@@ -57,7 +57,7 @@ chapter = 374
 <p>A feverish sensation of delight began to take over their sanity as they continued to move with the sole intent of seeking even more pleasure from each other.</p>
 <p>One wrapped her lips around his dick and refused to let go, one brought his hand to her pussy, and one had him suck on her breasts. The heat of their bodies was greater than the heat of the steamy hot water.</p>
 <p>He thought he was going to ascend into heaven right then and there. Their plump and springy thighs as his seat and their naked embrace as his source of heavenly pleasure.</p>
-<p>“Darling~!”</p>
+<p>“Darling!”</p>
 <p>Skuld took his penis lovingly in her hands and rubbed her cheek against it with loving care.</p>
 <p>Then she started licking it again. Her blowjob gradually heated up until she placed the cock atop her tongue and swallowed it deep into her throat.</p>
 <p>Before he even registered what was happening, Skuld was replaced by Nent.</p>

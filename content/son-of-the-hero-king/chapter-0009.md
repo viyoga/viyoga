@@ -21,9 +21,9 @@ chapter = 9
 <p>“You don’t have to do anything. Just lay down, relax, and let me do all the work. Just enjoy the service, your highness.”</p>
 <p>Saying so, her nimble hand dexterously entered his pants as she fished out his now slowly hardening mast, adjusting her position over him, slowly lowering herself.</p>
 <p>Since she was still fully wearing her attire, it was impossible to see what was happening under her skirt, but somehow, that single restriction made the situation far more arousing than it could have ever been. Once she finally reached his dick, he was surprised to feel no obstruction barring his schlong from feeling up her drooling snatch.</p>
-<p>“Fufufu~! I was in such a hurry that I forgot to put on my panties.”</p>
+<p>“Fufufu! I was in such a hurry that I forgot to put on my panties.”</p>
 <p>The bulbous head of his fully hardened mast slowly parted the drenched lips of her wet pussy, the heat and the slickness making him aware of how wet she already was despite him not even touching her prior to her visit. Then, in one swoop, she completely lowered herself and buried his penis to the hilt, its head reaching the very depths of her snatch, hitting her cervix.</p>
-<p>“Ah~!”</p>
+<p>“Ah!”</p>
 <p>It was impossible to tell who moaned first but looking at the expression of bliss plastered on both of their faces it was clear that both of them did it at nigh the same time.</p>
 <p>“Your highness, you are so very big. Even after having it in me yesterday, I am still not totally accustomed to it.”</p>
 <p>She did some slight probing movements with her hips as she spoke those depraved words, stroking Sol's ego. All this time, Sol could only watch her actions with an entranced expression on his face. Finally, looking at his face with an impish smile, full of mischief, she opened the front part of her maid dress, letting out her bountifully heavy breasts that seemed to defy gravity.</p>

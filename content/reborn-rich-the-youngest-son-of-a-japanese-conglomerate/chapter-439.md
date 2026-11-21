@@ -33,7 +33,7 @@ chapter = 439
 <p>Even though people had died, I was still hoping that it wasn't someone we knew. Of course, I had asked Kurayamada Kirie and Konoe Akina to take care of the special class, so our class would be fine, and I would have contacted Taira Kanna in advance to prepare, so there would be no deaths.</p>
 <p>"One of the 3rd grade teachers passed away. The calligraphy teacher..."</p>
 <p>Ah, I thought it was Kurayamada Kirie who died while blocking the enemies because she was a 3rd grade teacher, but it wasn't. It was a strange feeling that I didn't know whether to be relieved or not. Still, I should be relieved that the person who was asked a favor by me didn't die.</p>
-<p>"Ryuta-nim~!"</p>
+<p>"Ryuta-nim!"</p>
 <p>"My lord!"</p>
 <p>While we were talking about the current situation, Eve and Sakagami Rena finished sniping and ran towards me, calling me.</p>
 <p>"Eve, you worked hard. Sakagami, good job."</p>

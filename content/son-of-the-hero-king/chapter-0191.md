@@ -35,7 +35,7 @@ chapter = 191
 <p>Once they made sure all the perpetrators were dead, they dealt with the people saved in the same way as the previous ones.</p>
 <p>Thinking about Sol's stiff expression as he kept receiving their thanks, she couldn't help but laugh.</p>
 <p>After all, she knew very well that he hadn't stormed Rio out of some sense of justice. He simply wanted to use her as a way to sharpen himself. Saving them had just been a byproduct of his actions.</p>
-<p>"Hehe~! Seems like someone had a good day!"</p>
+<p>"Hehe! Seems like someone had a good day!"</p>
 <p>Buzzing all around, Sheherazade let out a bell-like laugh as she mocked Isis openly. When she fused with Isis, she could still see, feel and hear everything.</p>
 <p>Isis blushed a little and shook her head in denial, "What are you talking about? This is just your imagination!"</p>
 <p>She took a pillow and throw it at Sheherazade who deftly avoided it,</p>

@@ -13,13 +13,13 @@ chapter = 305
 <p>At my question, Seari raised her hand into the air and scattered the still unfaded purple flowers into the air. It must be a very difficult technique because she has to control each flower, but it seemed that her abilities were greatly enhanced because the fairy's body had awakened.</p>
 <p>She'll become even stronger if she levels up in the future. Because Seari had the highest potential in Seryu-tai. Later, she could summon powerful tornadoes and even defeat an entire battalion by herself.</p>
 <p>"Let's go back now, everyone will be worried."</p>
-<p>"Aww~ I want to be with Ryuta-nim a little longer?"</p>
+<p>"Aww I want to be with Ryuta-nim a little longer?"</p>
 <p>Seari was sulking, but seeing her get up from her seat, it seemed that she secretly wanted to show her changed appearance to her colleagues in Seryu-tai.</p>
 <p>"But... what about the ears?"</p>
 <p>"The ears... I wonder? What should we do?"</p>
 <p>Is she asking me? If there's no way to hide her pointed ears on her own, I have no choice but to do what I was thinking.</p>
 <p>"First, take a shower and wait. I have to buy clothes anyway, so I'll buy something that can cover your ears while I'm buying clothes."</p>
-<p>"Okay~!"</p>
+<p>"Okay!"</p>
 <p>Because Seari was naked as her fairy body awakened, I went out of the love hotel to buy clothes.</p>
 <p>It was already late at night, but because it was a downtown area in Tokyo, there was a 24-hour shopping mall that was open late at night.</p>
 <p>I bought some clothes that roughly fit Seari and bought over-ear headphones that completely cover the ears from a place that sells electronics.</p>
@@ -29,7 +29,7 @@ chapter = 305
 <p>When I gave her the clothes and headphones, Seari was overjoyed. Just like with the seed gift, her reaction was so generous that it was fun to give her gifts.</p>
 <p>When she put on the clothes and headphones, Seari's ears weren't that noticeable. That's because I bought the largest over-ear type headphones from the electronics store.</p>
 <p>After Seari put on her clothes, we left the love hotel. Seari felt sorry for the flowers that had fallen on the bed and floor, so she took out the ones that had been crushed when we overlapped our bodies and put them in the shopping bag that contained the clothes. Of course, I also took the black shopping bag containing the seeds.</p>
-<p>"Eumheungheung~♪"</p>
+<p>"Eumheungheung♪"</p>
 <p>Seari was humming and skipping. Her steps were strangely light, so when I walked at a jogging pace, it was so fast that I could barely keep up. She's probably unconsciously receiving help from the wind.</p>
 <p>"Seari, you're suspiciously fast, so let's go a little slower."</p>
 <p>It's not a problem for me to match Seari's speed, but this is still a crowded downtown area in Tokyo. If a pretty girl is bouncing around at an incredible speed, she'll get a lot of attention.</p>
@@ -37,15 +37,15 @@ chapter = 305
 <p>Seari slowed down her walking speed at my words. She's lived as a kid for over twenty years, so the world must look different. Also, because of the nature of the fairy's body, she won't age any faster than this.</p>
 <p>"Ah, I didn't show you this, did I? I was so surprised at this time!"</p>
 <p>I took out my phone and showed her the picture of Seari covered in flowers from earlier. Of course, I'm holding those flowers in a shopping bag now, but seeing the flowers piled up in the shape of a person lying down must feel different.</p>
-<p>"Wow, it's pretty~!"</p>
+<p>"Wow, it's pretty!"</p>
 <p>"Yeah, Seari, you were born in a flower garden."</p>
 <p>"Ehehehe♥"</p>
 <p>She really likes it when I give her a slightly cheesy comment. Seari is like a mascot who has received a lot of love within Seryu-tai, but it seems that she likes slightly cheesy comments because she has never received this kind of affection that a man can give.</p>
 <p>"Oh, we've arrived."</p>
-<p>"Seari-ttang~! I've been waiting... huh?"</p>
+<p>"Seari-ttang! I've been waiting... huh?"</p>
 <p>Kiyona Mari, who was waiting at the Seryu Military Company building, ran over but froze at Seari's changed appearance. It's natural to be surprised because she suddenly turned from a girl into a woman, but she's completely frozen like a hero who saw Medusa?</p>
 <p>After a while, Kiyona Mari, who was released from her petrification(?), pushed us both in the back and pushed us into the conference room of Seryu Military Company and called all the people who were there now.</p>
-<p>"Honey~! Uh...?"</p>
+<p>"Honey! Uh...?"</p>
 <p>"Ryuta-ssi! Seari...?"</p>
 <p>As expected, everyone was surprised to see Seari, who had grown up, and came into the conference room.</p>
 <p>"Then, would you like to explain now?"</p>
@@ -65,7 +65,7 @@ chapter = 305
 <p>When I asked her before, she said that she only tells the future of the war situation when she goes on missions with the Seryu-tai members, and she doesn't tell the future of each member for the sake of their privacy.</p>
 <p>"I've said everything I need to say, and it's late, so I'll go back."</p>
 <p>"Ah...!"</p>
-<p>"Honey~! Since it's late anyway, stay over!"</p>
+<p>"Honey! Since it's late anyway, stay over!"</p>
 <p>When I said I was leaving, Sawayanagi Seari and Lianna Holden grabbed me with regret. Kiyona Hori was also looking at me from behind with a regretful look.</p>
 <p>"I have something to do in Tokyo again tomorrow, so let's see each other then."</p>
 <p>"Okay. Be careful going back, Ryuta-nim!"</p>

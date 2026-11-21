@@ -9,7 +9,7 @@ chapter = 149
 
 <p>His cock was deep in the throat of one of the priestesses, the cheeks of her beautiful face sinking as she sucked voraciously.</p>
 
-<p>“Nghn~~ Did the husband miss us?” Elize moaned, feeling Qingyi’s tongue dance around her nipples, sucking every last drop of her sweet nectar.</p>
+<p>“Nghn Did the husband miss us?” Elize moaned, feeling Qingyi’s tongue dance around her nipples, sucking every last drop of her sweet nectar.</p>
 
 <p>His hands massaged her big, heavy, pale mountains, barely managing to encapsulate a fraction of that luscious flesh.</p>
 

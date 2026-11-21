@@ -6,7 +6,7 @@ chapter = 405
 +++
 
 <p>As Sol walked into the monochrome world of his dimension, he smiled as he thought about what kind of expression Pandora would show once she entered the Tower of Babel.</p>
-<p>“Busy~Busy~Busy.”</p>
+<p>“BusyBusyBusy.”</p>
 <p>Sol hummed slowly as he arranged his future schedule.</p>
 <p>Dealing with the goddess, Healing Lilith, dealing with the witches, signing a contract with Setsuna, preparing the coronation ceremony, preparing supplies for war, and discussing with Pandora about an alliance. Discussing with Kiku and Shouten about an alliance with the Church of Wratharis. Visiting Southern pride to discuss with the King and Queen.</p>
 <p>Then there would be the actual war. Sol did not like how the war was nothing more than a game for some people. But he knew that it was something he could not escape from.</p>

@@ -17,7 +17,7 @@ chapter = 1195
 <p>"50?"</p>
 <p>Pat-pat-pat.</p>
 <p>Quinlan’s vein throbbed. "Are you telling me my newborn daughter is stronger than me?!"</p>
-<p>"Hehe~" Rosie cooed, unfazed.</p>
+<p>"Hehe" Rosie cooed, unfazed.</p>
 <p>Then she raised a fist into the air, "Not stronger, Papa is the strongest!" After which came a sly smirk, "But I am indeed higher level."</p>
 <p>"... 60?"</p>
 <p>Pat-pat-pat.</p>
@@ -29,7 +29,7 @@ chapter = 1195
 <p>Rosie giggled again, patting his forehead. "It’s not hiding. It’s just... untapped. Until someone attacks you, my powers are dormant."</p>
 <p>Quinlan groaned, both exasperated and thoroughly impressed, as Rosie’s smugness radiated from her tiny frame. The patting, the teasing, the unapologetic pride... it was infuriating... and somehow telling him that this was indeed his daughter. He would’ve acted in the exact same manner if their places were to be swapped.</p>
 <p>"You’re impossible..." He couldn’t hide the smallest trace of a proud smile.</p>
-<p>"Hehe~" Rosie giggled while bouncing lightly in his grip. "But Papa loves me anyway!"</p>
+<p>"Hehe" Rosie giggled while bouncing lightly in his grip. "But Papa loves me anyway!"</p>
 <p>But soon, Quinlan’s brow furrowed as he processed Rosie’s words.</p>
 <p>He leaned back in his chair. "You said your powers remain dormant until something attacks me. Then why didn’t you evolve to accompany me into battle? You know the dangers I face aren’t trivial. If you were my guardian, shouldn’t you come with me?"</p>
 <p>Rosie shook her head vigorously, so much so that her leafy hair was whipping in the air. "I am not your babysitter!" Her voice was firm, tinged with a rare seriousness that contrasted with her usual attitude.</p>
@@ -45,7 +45,7 @@ chapter = 1195
 <p>He exhaled slowly. "You really planned all of this. You weren’t just surviving, you were calculating, growing, anticipating every possibility..."</p>
 <p>Rosie nodded as a mischievous glint appeared in her eyes again. Her cutesy voice and manner of speech returned. "Of course, Daddy! Rosie is the firstborn daughter of the Great Quinlan Elysiar! She refuses to be a disappointment!"</p>
 <p>Quinlan couldn’t hide a smirk, though it was mixed with exasperation.</p>
-<p>Rosie giggled softly, patting his head again. "Hehe~ Don’t worry! You’re still the strongest, after all. No adorable and loving daughter would trample all over the masculinity of her father."</p>
+<p>Rosie giggled softly, patting his head again. "Hehe Don’t worry! You’re still the strongest, after all. No adorable and loving daughter would trample all over the masculinity of her father."</p>
 <p>"... Whatever shall I do with you?" Quinlan shook his head with a smirk tugging at his lips despite her rather smug attitude. The tiny powerhouse in his arms had once again reminded him just how much he underestimated her... and how impossibly clever, devoted, and dangerous she truly was.</p>
 <p>"So what about Mimi? If Serika learns she’s an extension of your will, she will be very sad."</p>
 <p>Rosie shook her head with immense force. "Mimi is my creation, but not my minion! She has her own persona, derived from her soul! I did not influence her in any way! That’s why she is akin to a true newborn; I refused to impart my experiences and knowledge into her despite it being a tradition for Geims. I knew it might influence who she is and who she becomes. Without such influence, she will grow to become the person she was meant to be."</p>

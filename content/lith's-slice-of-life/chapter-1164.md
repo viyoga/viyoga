@@ -67,7 +67,7 @@ The two turned back to look at the pond and Yam mustered up courage to make his 
 
 When she noticed that, she got closer to him and placed his hand right on her perky butt, making him blush harder.
 
-"Fufu… that's a cute reaction~"
+"Fufu… that's a cute reaction"
 
 Elara's hand moved to wrap around Yan's waist as well.
 

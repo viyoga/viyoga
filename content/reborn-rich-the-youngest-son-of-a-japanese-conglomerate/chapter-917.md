@@ -65,7 +65,7 @@ chapter = 917
 <p>First, Tsukiyo's very first Goal was the orphanage where Tsukiyo had lived. After killing the orphanage Boss-Teacher and resolving the biggest Cause of her suicide, she planned to seek out the Students who had tormented Tsukiyo at School, one by one.</p>
 <p>A few days later, in a beach Village, due to the sudden Deaths of several villagers, it became a Topic that a serial Murderer had appeared in this small beach Village.</p>
 <p>Tsukiyo B-cut!</p>
-<p>Neosblue-nim requested Alik Using a naginata~! The Request for a naginata with blades on both sides, blocking Sabu's Attack, was deleted due to illustration rules haha.</p>
-<p>Gojoy-nim requested Nagumo Sian's breast covering and buttocks showing~!</p>
+<p>Neosblue-nim requested Alik Using a naginata! The Request for a naginata with blades on both sides, blocking Sabu's Attack, was deleted due to illustration rules haha.</p>
+<p>Gojoy-nim requested Nagumo Sian's breast covering and buttocks showing!</p>
 <p>breast covering!</p>
-<p>buttocks showing~!</p>
+<p>buttocks showing!</p>

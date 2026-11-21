@@ -45,7 +45,7 @@ chapter = 1844
 <p>Then Captain Rin of the western wall bowed once more to Ayame and Quinlan, deep and unhurried, the bow of a surrender given honestly, and jogged off through the snow after the Elder, toward a duchy that had orders again.</p>
 <p>Quinlan watched her go. "She looks promising."</p>
 <p>"Mm. She’ll do." Ayame reclaimed his arm, and her attention had already left the city entirely. When she looked up at him, the shine from the bottom of the hill was back, twice as bright and twice as dangerous.</p>
-<p>"Now then~" she hummed. "About that debt of yours."</p>
+<p>"Now then" she hummed. "About that debt of yours."</p>
 <p>...</p>
 <p>The Fujimori estate received its heir in silence.</p>
 <p>What staff remained pressed themselves to the walls of the winter courtyards and bowed to Ayame as she passed. She acknowledged none of it. Her evening held only one item, and none of them were on it.</p>
@@ -54,7 +54,7 @@ chapter = 1844
 <p>Her gaze crossed all of it at the same even pace it crossed everything else. Then she looked away from the last roof and did not look back, and the house of Fujimori got no more out of her than her father’s grave had.</p>
 <p>Ayame met her sister’s eyes and held them for a breath. Nothing crossed between them that a third person could have named, but Black Fang turned toward the dark and disappeared.</p>
 <p>Quinlan considered the nothing she left behind. "So that’s what the poison bath bought."</p>
-<p>"Hehe~ Yes, I asked her for privacy when the time came..."</p>
+<p>"Hehe Yes, I asked her for privacy when the time came..."</p>
 <p>Quinlan’s grin came out slow, and his hand found the small of her back.</p>
 <p>The dawn dojo stood at the head of the estate’s oldest courtyard.</p>
 <p>Ayame slid its doors open with both hands, and the hall breathed out at her: brazier warmth, pine smoke, a floor polished dark by generations of bare feet, and racks of training steel and ironwood lining the walls in ordered ranks. On the far side, a second set of doors stood open to the snow garden, where moonlight lay across the veranda like a second floor.</p>
@@ -63,4 +63,4 @@ chapter = 1844
 <p>"The leader sets the terms."</p>
 <p>"So we should ask Kaede."</p>
 <p>She sent him a sly look, stepping forward, one pointer finger landing on his stomach. "Stop playing dumb with me, Quin. I know I said Kaede was the leader, but we all know..."</p>
-<p>Her finger raced up and found his heart. "...that just like with the rest of the continent, we are the real bosses. Or will be soon enough~"</p>
+<p>Her finger raced up and found his heart. "...that just like with the rest of the continent, we are the real bosses. Or will be soon enough"</p>

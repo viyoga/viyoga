@@ -6,7 +6,7 @@ chapter = 1024
 +++
 
 <p>"He ran away..." Aria muttered.</p>
-<p>"Mom for the rescue~" Nyx was having a great time.</p>
+<p>"Mom for the rescue" Nyx was having a great time.</p>
 <p>Vespera sat at her desk with an open folder in front of her. Her eyes went straight to his face, examining him closely enough that he found himself sitting up for her.</p>
 <p>"Are you hurt?"</p>
 <p>"I’m fine. Everything’s healed."</p>
@@ -35,7 +35,7 @@ chapter = 1024
 <p>"..."</p>
 <p>"Hahahaha!!" Calypso couldn’t hold it any longer. "You’re the best, Shadow Mommy."</p>
 <p>"You should’ve heard the receptionist chicks when we arrived," Luna put in. "Everyone was talking about your son."</p>
-<p>"One of the staff covered her neck when he walked past~" Nyx added, smiling into her cup.</p>
+<p>"One of the staff covered her neck when he walked past" Nyx added, smiling into her cup.</p>
 <p>"..." Kaiden glanced at the traitors before facing his mother again. "I was perfectly nice to her."</p>
 <p>Vespera’s gaze softened at that. "I know."</p>
 <p>"But I also watched someone kill the vampire before you could stop them," Vespera continued.</p>

@@ -71,7 +71,7 @@ chapter = 1088
 <p>"Yes, they have departed in the direction of Chiba. This would be Scenario 3, as we thought."</p>
 <p>**-Well done. You may return now, Fuma.**</p>
 <p>Taira Kanna's Voice was heard through the Earphones Fuma Kai had in his ear. Because he had to confirm how Taira Jiro would act after receiving his information, Fuma Kai had waited instead of leaving immediately.</p>
-<p>Requested by Gojoy-nim: Nae Fitzgerald and Taira Kokoro, met at the 49th-day memorial~!</p>
-<p>Nae~!</p>
+<p>Requested by Gojoy-nim: Nae Fitzgerald and Taira Kokoro, met at the 49th-day memorial!</p>
+<p>Nae!</p>
 <p>Nae's Hairstyle changes when using the funeral attire LORA hehe.</p>
-<p>Kokoro~!</p>
+<p>Kokoro!</p>

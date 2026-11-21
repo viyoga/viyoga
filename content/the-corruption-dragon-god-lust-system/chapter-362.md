@@ -5,7 +5,7 @@ weight = 362
 chapter = 362
 +++
 
-<p>“nghnn~~ D-did you see it?” Qianyao’s beautiful golden eyes slowly opened, a little relieved to realize that Qingyi wouldn’t take advantage of the situation to kill her.</p>
+<p>“nghnn D-did you see it?” Qianyao’s beautiful golden eyes slowly opened, a little relieved to realize that Qingyi wouldn’t take advantage of the situation to kill her.</p>
 
 <p>[Qianyao’s Corruption increased by 2 points, +50 million lust points]</p>
 

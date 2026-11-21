@@ -63,7 +63,7 @@ The two girls noticed Lith and Emilia entering and they were about to greet them
 
 They both looked so stunning together. Lith looked extremely handsome to the maids and Emilia also looked very gorgeous. For a second the maids became speechless but they soon regained their composure, bowed and said with a happy smile,
 
-“Welcome, dear guests!~ This way please.”
+“Welcome, dear guests! This way please.”
 
 They showed Lith and Emilia their way and the two got towards the reception of the place.
 
@@ -109,7 +109,7 @@ Emilia shook her head and said, “it’s fine. We came here for this so let’s
 
 She bent forward and took a sip of the parfait after saying so.
 
-“Mhm~” Emilia said as she felt the taste of the parfait. It was simply too amazing.
+“Mhm” Emilia said as she felt the taste of the parfait. It was simply too amazing.
 
 Lith, getting approval from Emilia already, didn’t shy away either and had the parfait. As he did so, the various different flavours present in it exploded in his mouth and gave him a nice experience and taste.
 

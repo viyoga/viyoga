@@ -73,7 +73,7 @@ chapter = 717
 <p>,I'm used to spending every year-end with my family, so it feels strange to be alone.</p>
 <p>,How about feeling strange in a different way by being with me?</p>
 <p>Ha Ju-yoon's expression looked a little depressed, so I tried to cheer her up by mixing in a joke.</p>
-<p>,Aish~! That's not why I asked you to meet~! I just thought you were alone today too, Yong-tae, so I asked you to have a meal with me.</p>
+<p>,Aish! That's not why I asked you to meet! I just thought you were alone today too, Yong-tae, so I asked you to have a meal with me.</p>
 <p>,Thank you for thinking of me, Noona.</p>
 <p>,Yeah. Let's eat now.</p>
 <p>We exchanged greetings and had a brief conversation before starting our meal. The food was quite delicious, as it was a restaurant that celebrities often used.</p>

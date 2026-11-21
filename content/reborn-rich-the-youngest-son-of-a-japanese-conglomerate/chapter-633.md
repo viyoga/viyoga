@@ -43,7 +43,7 @@ chapter = 633
 <p>"Really? Well, since you're here now, it must be hard for her to run the inn alone. If she still has lingering feelings about the inn business, I'll set up an inn for her. If the work is hard, she can just hire employees."</p>
 <p>When I asked, with an exaggerated expression, if I should set up an inn for her, Urabe Konoka smiled, thinking I was joking.</p>
 <p>"I'm not kidding, so think about it. The food I ate at the inn back then was really delicious. The service... it was really nice when a kid named Hamahaka Konoka scrubbed my back while I was bathing."</p>
-<p>"Ah~! What are you talking about?!"</p>
+<p>"Ah! What are you talking about?!"</p>
 <p>When I talked about Urabe Konoka attending to me when I was at the inn back then, Urabe Konoka blushed and playfully hit my arm.</p>
 <p>We chatted while talking about each other and the upcoming festival before leaving the cafe when it was lunchtime.</p>
 <p>"What do you want to eat?"</p>

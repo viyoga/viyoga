@@ -57,10 +57,10 @@ chapter = 987
 <p>Taira Kokoro was thinking of subcontracting Missions to Taira Ryuta. If she shared some of the Rewards, Taira Ryuta would also gladly take on the Mission.</p>
 <p>Of course, he hasn't taken on any Missions yet and there's no great friendship, so if she were to entrust him with a Mission, it's unlikely Taira Ryuta would take on that Work, but she was making the Calculation that if they gradually get closer from now on, Taira Ryuta wouldn't refuse her Request.</p>
 <p>Not just a Request, if various Rewards were at stake, he would accept it even more. While Taira Ryuta was doing the Mission, Taira Kokoro could focus only on the Management she was in, so she thought it would be a good thing where both would win.</p>
-<p>Gojoy-nim requested Yukiko's meeting attire and sitting Appearance~!</p>
-<p>Starting with the attire~!</p>
-<p>Sitting Appearance~!</p>
+<p>Gojoy-nim requested Yukiko's meeting attire and sitting Appearance!</p>
+<p>Starting with the attire!</p>
+<p>Sitting Appearance!</p>
 <p>Kkiyot!</p>
-<p>TheDreaming-nim requested Matsunaga Yuzuki wearing a Mask 1. Masturbation over Clothes 2. Being tied up~!</p>
+<p>TheDreaming-nim requested Matsunaga Yuzuki wearing a Mask 1. Masturbation over Clothes 2. Being tied up!</p>
 <p>1.</p>
 <p>2.</p>

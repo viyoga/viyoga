@@ -5,17 +5,17 @@ weight = 627
 chapter = 627
 +++
 
-<p>"~Vera Accords… I've never heard of such a thing.~"</p>
+<p>"Vera Accords… I've never heard of such a thing."</p>
 <p>'Of course, you haven't. That's why I'm telling you,' Caius said.</p>
-<p>"~Don't test me, child! If you have something to say, say it. Your vagueness and smugness irritate me.~"</p>
+<p>"Don't test me, child! If you have something to say, say it. Your vagueness and smugness irritate me."</p>
 <p>'I was getting to it,' Caius answered, bracing against the minor wave of anger that spread from Nyx's dark presence.</p>
 <p>When the wave had passed and calm had returned, Caius spoke again.</p>
 <p>'Aether has discovered a way to turn the chaos of Hell to her advantage.'</p>
-<p>"~That's impossible.~"</p>
+<p>"That's impossible."</p>
 <p>'It's not. She's done it. The Vera Accords are how.</p>
 <p>Hell attacks, her champion intercedes, wins and it bolsters her Faith.'</p>
 <p>Nyx fell into a contemplative silence, and when she spoke next, she sounded like she was coming to a realization.</p>
-<p>"~That's why she took charge…~"</p>
+<p>"That's why she took charge…"</p>
 <p>'Yes,' Caius said even though Nyx hadn't been asking him a question.</p>
 <p>Hell is chaos and it exists as an antithesis to the Divine. The creatures of Hell exist to foster chaos wherever they can. So they sow discord, sometimes through subterfuge and at times through all-out invasions to decimate all in their path.</p>
 <p>As the custodians of order, it is the duty of the gods to put Hell in its place and dissuade its attempts to sow chaos wherever and whenever they can.</p>
@@ -38,36 +38,36 @@ chapter = 627
 <p>Aether said the souls of the mortals who still fell to the invasions of Hell were crying out to her. She wanted her fellow gods to join her to stop it once and for all.</p>
 <p>But the gods didn't care at all as much as she seemed to. Some scoffed and laughed at her for being a 'goody two-shoes'. Others, like Nyx sneered at her consistent posturing as the only god who was truly 'good'.</p>
 <p>Eventually, the gods became tired of Aether so they suggested that if she really cared that much, she should take care of it herself. 'Reluctantly' Aether agreed and became burdened with the responsibility of reassessing the situation with Hell as long as it didn't break the status quo.</p>
-<p>"~Oh, but it does, doesn't it? It breaks the status quo.~"</p>
+<p>"Oh, but it does, doesn't it? It breaks the status quo."</p>
 <p>'Potentially,' Caius said. He wasn't privy to Nyx's thoughts but he could tell where her mind had wandered off to. He could tell that Nyx was re-contextualizing her memories to realize how duplicitous her sister truly was.</p>
-<p>"~She never cared that the mortals were dying, did she?~"</p>
+<p>"She never cared that the mortals were dying, did she?"</p>
 <p>It sounded rhetorical but Caius offered a response anyway.</p>
 <p>'She probably cares more than the rest of you. But not without something to gain from it, no.'</p>
-<p>"~She wanted the responsibility so she could strike a deal with Hell.~"</p>
+<p>"She wanted the responsibility so she could strike a deal with Hell."</p>
 <p>'Yes.'</p>
-<p>"~And that's what this 'Vera Accords' is… Vera— Faith. Heh heh, that cheeky bitch. Knew she was two-faced but I never thought she had it in her to do this. I want to hate her for it but I can't help but respect it. It's a plan worthy of my genius and nature and somehow, I never thought of it.~"</p>
+<p>"And that's what this 'Vera Accords' is… Vera— Faith. Heh heh, that cheeky bitch. Knew she was two-faced but I never thought she had it in her to do this. I want to hate her for it but I can't help but respect it. It's a plan worthy of my genius and nature and somehow, I never thought of it."</p>
 <p>'If you came up with it, the other gods would have figured it out. It worked because Aether doesn't seem the type to do such a thing.'</p>
 <p>There was a period of silence where Nyx scrutinized Caius.</p>
-<p>"~You. Exactly how do you know this?~"</p>
+<p>"You. Exactly how do you know this?"</p>
 <p>'I'd prefer to keep that to myself,' Caius said.</p>
-<p>"~I could make you tell me.~"</p>
+<p>"I could make you tell me."</p>
 <p>'You could. You have my soul in your hands and could torture me. The thing is though, I don't think you'll want to hear it. It's a dangerous thing to have your reality shaken. It could undo you.'</p>
 <p>There was a rumble of laughter from Nyx's dark presence.</p>
-<p>"~Is that a threat, child?~"</p>
+<p>"Is that a threat, child?"</p>
 <p>'I wouldn't dream of threatening you. I'm merely stating a fact. There are things better left unsaid and unlearned. Besides, don't you like the mystery I present. Wouldn't you rather uncover it slowly? Rushing a meal can ruin it, don't you think?'</p>
-<p>"~I don't like not being in the know. Besides, if you won't tell me how you know, how am I to trust any of what you've told me? You could be making it all up.~"</p>
+<p>"I don't like not being in the know. Besides, if you won't tell me how you know, how am I to trust any of what you've told me? You could be making it all up."</p>
 <p>'You know I'm not. You're intrigued because you know I'm not lying. And what would I stand to gain by lying anyway? You'll confirm the truth when you mention the Accords to Aether.'</p>
-<p>"~If it's true what you say then you should be able to tell me what's in it for Hell. Why would they agree to battle a champion when they've already been allowed free rein over the mortal realm?~"</p>
+<p>"If it's true what you say then you should be able to tell me what's in it for Hell. Why would they agree to battle a champion when they've already been allowed free rein over the mortal realm?"</p>
 <p>'Because it's not free rein. Not with an Eleventh Circle limit and Mortals being capable of fending them off. Those are things that limit what they can do. The Accords give them a chance to get past that.</p>
 <p>The terms state that, should Aether's champion be defeated, the stipulations placed upon the mortal realm will end and Hell can act unrestrained.'</p>
 <p>Nyx's anger roused but this time, it wasn't directed at Caius which allowed him to survive it because otherwise, it really would have taken his life right then. In fact, the aftereffects spread out of Caius mind, impacting Philip who almost sent the Sky-Carriage careening down into a crash.</p>
 <p>"Watch it, you bastard!" Philip snarled at Caius while struggling to right the carriage and stop its fall.</p>
 <p>Caius didn't react to Philip as his attention was completely occupied by Nyx, the greater of the two presences who were currently angry within the Carriage.</p>
-<p>"~HOW DARE SHE GAMBLE OUR PEACE?!~"</p>
+<p>"HOW DARE SHE GAMBLE OUR PEACE?!"</p>
 <p>'I'm… afraid your peace isn't the only thing at stake,' Caius said wincing both physically and mentally at the volume of Nyx's words.</p>
-<p>"~What do you mean?~"</p>
+<p>"What do you mean?"</p>
 <p>Caius considered not saying. Once Nyx learned of the Accords from Aether, all would be revealed to her and she could angry away from inside him. However, he needed her to understand how urgent it was for her to win that negotiation with Aether and Hell.</p>
 <p>'Hell argued that Aether's deal didn't appeal to them enough. So she sweetened it up with a clause that states the gods will not interfere if the stipulations placed on the mortal realm should end. Not for at least 100,000 years.'</p>
-<p>"~But that's…~"</p>
+<p>"But that's…"</p>
 <p>'Enough time for Hell to overthrow the gods.</p>
 <p>If Aether's champion loses, it will start a domino effect that could end the reign of the gods for good.'</p>

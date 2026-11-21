@@ -5,7 +5,7 @@ weight = 320
 chapter = 320
 +++
 
-"Mhm~"
+"Mhm"
 
 Lith let out a satisfied moan and caressed Alexandra and Arya's heads.
 
@@ -93,7 +93,7 @@ He woke up after a few hours and saw Arya and Alexandra to be staring at him.
 
 Lith smiled as he saw them staring. He kissed Alexandra's lips and said, "good morning, Alexandra."
 
-Alexandra made a happy smile and said, "good morning, darling~."
+Alexandra made a happy smile and said, "good morning, darling."
 
 Lith then kissed Arya and said, "good morning, Arya."
 
@@ -145,6 +145,6 @@ Lith chuckled and rubbed his shaft on Alexandra's pussy from the front.
 
 "As you wish, honey." Lith said and slid his shaft in.
 
-"Mhm~" Alexandra let out a satisfied moan after feeling the entire thing of Lith go in.
+"Mhm" Alexandra let out a satisfied moan after feeling the entire thing of Lith go in.
 
 Lith kissed her and the sound of flesh slapping each other resonated throughout the room once again, along with the satisfied muffled moans of Alexandra.

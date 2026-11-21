@@ -40,7 +40,7 @@ chapter = 249
 <p>After putting on some light, casual clothes, Ethan left the room, walking through the mansion’s wide hallways until he reached the kitchen.</p>
 <p>The maids had already prepared a hearty breakfast, and Elena was sitting at the table, sipping quietly from a cup of tea.</p>
 <p>Taking another sip, she turned her face slightly, her brown eyes settling on Ethan as her lips curved into a mischievous smile.</p>
-<p>"You woke up late, sweetheart... having too much fun with Alice? Fufufu~" She stood up with a playful giggle, setting the cup down on the table.</p>
+<p>"You woke up late, sweetheart... having too much fun with Alice? Fufufu" She stood up with a playful giggle, setting the cup down on the table.</p>
 <p>She approached him, tenderly adjusting the collar of his shirt before standing on her tiptoes and planting a sweet kiss on his lips.</p>
 <p>"Hmm..." Ethan didn’t respond immediately.</p>
 <p>He simply wrapped his hands around Elena’s slender waist, sliding them down until they reached the full curve of her ass.</p>

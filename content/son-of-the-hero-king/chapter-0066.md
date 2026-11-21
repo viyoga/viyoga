@@ -48,7 +48,7 @@ chapter = 66
 <p>"Blaze! Mars! Merry Christmas!! Congratulations on your pregnancy."</p>
 <p>A short and slim woman of about 140 cm skipped to Blaze who was still seated on her chair. Her smile was innocent and contagious. She was wearing a short red and white skirt, that fluttered in the wind.</p>
 <p>"Thank you, Theresa. Merry Christmas to you too, you are splendid."</p>
-<p>"Hehehe~! Really!? Yeah!" Giving a bashful smile, she twirled, showing some glimpse of her red panties.</p>
+<p>"Hehehe! Really!? Yeah!" Giving a bashful smile, she twirled, showing some glimpse of her red panties.</p>
 <p>Mars hurriedly turned his head aside before also complimenting her dress, making Theresa even happier.</p>
 <p>After Theresa, the other woman also approached and wished merry Christmas and also gave their congratulations.</p>
 <p>Blaze watched all of them with a happy smile.</p>

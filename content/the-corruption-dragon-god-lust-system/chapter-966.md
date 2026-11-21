@@ -73,7 +73,7 @@ chapter = 966
 
 <p>Mingzhu moaned softly, her hands reaching for Qingyi’s wrist and gripping it tightly, but without pushing him away.</p>
 
-<p>"nghnn~~ Haven’t you marked your territory yet?" she asked, her voice coming out muffled in a moan.</p>
+<p>"nghnn Haven’t you marked your territory yet?" she asked, her voice coming out muffled in a moan.</p>
 
 <p>"Yes... I want to mark it even more." He replied, his fingers closing a little tighter around the soft flesh, feeling the nipple stiffen and press back against his palm.</p>
 

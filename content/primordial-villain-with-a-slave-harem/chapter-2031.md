@@ -26,7 +26,7 @@ chapter = 2031
 <p>"Aren’t I the greatest of all loyal minions?"</p>
 <p>The women stared at her with profoundly wry expressions. Whatever sympathy Della had been about to offer died before it reached her tongue.</p>
 <p>"You certainly seem very busy," she managed.</p>
-<p>"Thank you for noticing~"</p>
+<p>"Thank you for noticing"</p>
 <p>The tears had already disappeared. Beside the captain, the Guildmaster rubbed his forehead while she happily moved on.</p>
 <p>"But enough business. You’ve had a rough day, and we’ve kept you long enough. Thank you for your help, ladies. You may go."</p>
 <p>"Thank you, Captain. Sir."</p>

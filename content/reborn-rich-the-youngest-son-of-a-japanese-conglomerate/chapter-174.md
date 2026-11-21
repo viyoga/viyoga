@@ -13,7 +13,7 @@ chapter = 174
 <p>Ha Ju-yoon: Different exercise? Oh my, what are you talking about? I'll skip exercising today, so come quickly♥</p>
 <p>It was kind of cute how she tried not to show that she liked it. This ajumma, huh? Is she allowed to be this cute? I got dressed, grabbed the Juangwa from the refrigerator, took a taxi, and headed to Ha Ju-yoon-ssi's luxury apartment.</p>
 <p>I entered the apartment complex using the password I received from Ha Ju-yoon-ssi and went to the penthouse floor where Ha Ju-yoon-ssi lived in the elevator.</p>
-<p>Ding-dong~♬</p>
+<p>Ding-dong♬</p>
 <p>I rang the bell in front of the door, and the door opened quickly without asking who it was. The door opened, and Ha Ju-yoon-ssi, still beautiful, greeted me with a smile.</p>
 <p>"You came quickly?"</p>
 <p>"I left right away."</p>
@@ -23,14 +23,14 @@ chapter = 174
 <p>"Here, a gift."</p>
 <p>"I've never seen this fruit before...? What is it?"</p>
 <p>"Juangwa."</p>
-<p>"Ah~! This is it?"</p>
+<p>"Ah! This is it?"</p>
 <p>Hearing my words, Ha Ju-yoon-ssi held up the Juangwa and asked back with a surprised look. In fact, the reason why Juangwa was cheap compared to its efficacy was because most people didn't believe in its effects.</p>
 <p>It was rare, so few people had seen its effects directly, making it difficult to prove, and in 2053, when science was more developed than before the possession, there was a perception that claiming such magical effects was a scam, so it was cheap compared to its efficacy.</p>
 <p>Well, it was natural that few people believed it since there were no people like me who could see the item window when concentrating. Still, the price was several hundred million, making it difficult for ordinary people to buy.</p>
 <p>"Isn't this expensive? Did you buy it for me? You don't have to buy me such expensive things...."</p>
 <p>In fact, Ha Ju-yoon-ssi could get Juangwa as much as she wanted with her wealth and power, but seeing her managing herself so strictly now, it was clear that she didn't believe in Juangwa. Of course, like wild ginseng, it's something that herbalists dig up, so even if you have money and power, you can only get it if you're lucky.</p>
 <p>"Of course I brought it because I bought it for you, noona. Chew it all thoroughly. Don't eat the seeds."</p>
-<p>"Thank you~!"</p>
+<p>"Thank you!"</p>
 <p>Ha Ju-yoon-ssi bit into the Juangwa as it was. For reference, when I ate it before, Juangwa tasted like a combination of peach and apple. Ha Ju-yoon-ssi seemed to like it too, as she put all the Juangwa in her mouth and chewed, then stuck out her tongue to show me the seeds.</p>
 <p>This noona is making me so excited. I grabbed Ha Ju-yoon-ssi's tongue and took the seeds one by one. There were a total of three Juangwa seeds. I wonder if I can research this and cultivate it...? Of course, there must have been many people who have tried it so far, but it wouldn't hurt to try it once. I wrapped the seeds in tissue and put them in my pocket.</p>
 <p>"Hmph...! It was delicious."</p>

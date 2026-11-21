@@ -15,7 +15,7 @@ chapter = 669
 <p>She placed her hands around his shoulders to balance herself, spread her legs to place her feet to either side of him, and slowly began moving her hips up and down along his hardened rod. Though it was easy to notice she was not used to the motion. Her knees shook with each thrust and her hip movements were awkward at best.</p>
 <p>The soft and intricate folds of her honeypot writhed around his shaft, sending a sweet tingling down Sol’s member and a heavy shudder throughout her body.</p>
 <p>Her oversized tits bounced and swayed erratically in front of his eyes. That paired with the the Succubus Queen’s desperate attempts to pleasure him almost made him lose his mind from arousal alone.</p>
-<p>“Ah, Ahn… I can feel you reaching… so deep inside. Ahhh~” She moaned between breaths, not even in the state to speak properly anymore.</p>
+<p>“Ah, Ahn… I can feel you reaching… so deep inside. Ahhh” She moaned between breaths, not even in the state to speak properly anymore.</p>
 <p>This position naturally allowed the bulbous head of his dick to reach deep within her vagina. The pleasure was so great that, her movements slowed to more of a simmer than a boil.</p>
 <p>“I will be moving now.” As amusing, and endearing, as it was to observe her, Sol found his pleasure growing hot with desire. Not to mention, he wished to see her flustered appearance, her writhing body overwhelmed with so much pleasure that she simply lost herself in it.</p>
 <p>He grabbed her narrow hips with his rough hands and thrust straight up from below. He had a bit more room to move now since she was moving her hips up and down in slow and prolonged motions. Pandora was already writhing from the pleasure of the deep penetration, so this sudden attack elicited a high-pitched shriek.</p>
@@ -23,7 +23,7 @@ chapter = 669
 <p>His thrusting made her body jump and her sunstreaked-golden hair danced around her shuddering face. Her breasts shook violently, practically tempting Sol. Giving in to the temptation of her jiggling melons, Sol latched his lips on the small buds while moving his body simultaneously.</p>
 <p>“Ahh, it feels so good… I’m… going to lose… my MIND!” Pandora meanwhile was already lost in pleasure, forgetting all the ideas she had about the small competition they should be engaged in right now.</p>
 <p>The way she writhed in pleasure sent his heart racing with lust and he could not stop his hips from moving frantically, searching more and more of her depths to explore. Ṟá₦ΟBЕS</p>
-<p>“Ah, ahh… yes, yes, yesss! Ah, ahn, AHHNNN~!” Her eyes were losing focus and saliva was dribbling down the corner of her mouth.</p>
+<p>“Ah, ahh… yes, yes, yesss! Ah, ahn, AHHNNN!” Her eyes were losing focus and saliva was dribbling down the corner of her mouth.</p>
 <p>She moaned as love juices gushed in torrents from their union. A lewd, sticky-wet sound echoed when their hips made contact. Had they not been in his dimension, a crowd of onlookers would have joined them by now, perplexed by their shameless display.</p>
 <p>This story originates from a different website. Ensure the author gets the support they deserve by reading it there.</p>
 <p>Pandora had been moving her hips rather hesitantly throughout the lovemaking, but now she was completely at his mercy as he thrust his hips recklessly from below. She lost her balance, now clinging to his body to balance his body and grasp at the last vestiges of her sanity. Her boobs were squished between their bodies, spilling out from the sides.</p>

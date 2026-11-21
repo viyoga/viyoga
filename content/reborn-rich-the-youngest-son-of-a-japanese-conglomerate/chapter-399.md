@@ -5,8 +5,8 @@ weight = 399
 chapter = 399
 +++
 
-<p>,Ryuta-cchi~☆ You're here?</p>
-<p>Welcome, Sensei~!</p>
+<p>,Ryuta-cchi☆ You're here?</p>
+<p>Welcome, Sensei!</p>
 <p>As I opened the door, Seizawa Shii and Konoe Akina were the first to greet me. I sat down in the empty seat at the rectangular table where the students were sitting.</p>
 <p>So, what's the Date Experience Club's task?</p>
 <p>I asked about the thing I was most curious about first. Originally, there wasn't a task like this. Something must have happened while I was in Korea.</p>
@@ -51,7 +51,7 @@ chapter = 399
 <p>Alik put on an apron and then opened the refrigerator. There was all sorts of stuff in the refrigerator. It was mostly sweets that female students like, but there were also eggs and various other ingredients. When did you stock up on these?</p>
 <p>Alik took out instant rice, eggs, peppers, and ham. Judging by the ingredients, she's probably going to make fried rice?</p>
 <p>Alik moved the kitchen knife flamboyantly using her wrist, and with a tatatak sound, she made the peppers and ham into small pieces at an incredible speed. Everyone was amazed by her dazzling knife skills.</p>
-<p>Wow~! Alik is really good with a knife, like a chef!</p>
+<p>Wow! Alik is really good with a knife, like a chef!</p>
 <p>Is she good at it because she belongs to the Cheongsim Hall?</p>
 <p>Alik, who had already cut all the ingredients, poured oil into the frying pan and started frying the rice and ingredients. The sound of the rice being fried, chi-iik, could be heard, and before I knew it, a wonderful fried rice was placed in front of me.</p>
 <p>Enjoy your meal, Ryuta...!</p>
@@ -86,7 +86,7 @@ chapter = 399
 <p>Since it's the Date Experience Club and not the cooking club, we didn't just cook, but also joked around and had fun while cooking. Urabe Konoka seemed to be having quite a bit of fun too.</p>
 <p>As we made it, the amount increased, and there were over twenty bowls. Even if we put aside some for Alik, Uesonozo Karen, and Naruse Shiyo, who aren't here right now, there would still be quite a bit left over.</p>
 <p>Sensei eats a lot, so I think you can take the leftovers, Sensei.</p>
-<p>Ahaha~☆ Ryuta-cchi is a glutton.</p>
+<p>Ahaha☆ Ryuta-cchi is a glutton.</p>
 <p>When Urabe Konoka said to take all the leftovers, Seizawa Shii called me a glutton, and everyone laughed. I do eat quite a bit.</p>
 <p>Sensei, Hime-sama said that she wanted to receive one of the dishes that Sensei made yourself as an offering, so we made a lot.</p>
 <p>While everyone was laughing, Urabe Konoka came up to me and whispered in my ear.</p>
@@ -98,7 +98,7 @@ chapter = 399
 <p>For reference, I set aside the second-best-made pudding to send as an offering to Simyeonui ttal.</p>
 <p>Konoe and I will eat together, and Urabe will distribute the rest.</p>
 <p>I sat next to Konoe Akina and put down the plate. Konoe Akina looked at the pudding with an impressed expression and then took out her phone and started taking pictures.</p>
-<p>Say "ah~."</p>
+<p>Say "ah."</p>
 <p>When Konoe Akina finished taking pictures, I took a spoonful of pudding with a teaspoon and held it out to Konoe Akina. If it's a date experience, I have to feed her.</p>
 <p>As I possessed the role of a boyfriend and held out the spoon with a gentle smile, Konoe Akina's face turned so red that it couldn't get any redder. She stared at the pudding on the spoon for a while and then took it with an "ah."</p>
 <p>It's delicious...!</p>

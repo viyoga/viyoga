@@ -7,7 +7,7 @@ chapter = 698
 
 <p>What a heartwarming scene, I had to admit. I didn't know my ever so slightly eccentric ladies would step up to the plate and develop motherly affection so quickly. Though, admittedly, I didn't know how to feel about Blossom's last sentence…</p>
 <p>Rosie, of course, was loving every second of the attention she was getting. Just like her father, this cheeky daughter of mine seemed to greatly adore being pampered by her loving mothers. She was a true connoisseur of motherly affection.</p>
-<p>Rosie let out a mischievous giggle. "Ehehe~ But if you don't want Rosie to think about it, that means there is something to think about, right~?"</p>
+<p>Rosie let out a mischievous giggle. "Ehehe But if you don't want Rosie to think about it, that means there is something to think about, right?"</p>
 <p>"Wrong!" The women shouted in unison.</p>
 <p>"Heh…" I chuckled while eyeing my awesome daughter proudly. She was toying with her mommies, playing my women like a fiddle. This scene reminded me of how I let my own mothers pamper me for a whole week after coming out of the traumatizing Iris simulation, even though I was fine after the first few days.</p>
 <p>Best week of my life…</p>

@@ -74,7 +74,7 @@ chapter = 940
 <p>"Haa, haa, haa...! What happened?"</p>
 <p>"Haaheueu, haa. Haaheueuheung...! I put an invisible Talisman on the tree in advance, heueu, haa, haa...! It felt good, Bugun...!"</p>
 <p>You knew this would happen and put a Talisman on it in advance? It seemed Hanakame had planned the Outdoor sex in advance. I was surprised because I thought we would get caught. It seemed that the invisible Talisman didn't block the sound. I was worried because she was moaning so loudly, and it seemed that the security guard came because he heard that sound.</p>
-<p>Sex Scene~!</p>
-<p>Ha Ju-yoon and Jin Mi-ja lying face down, requested by I Save I-nim~!</p>
-<p>Starting with Ha Ju-yoon~!</p>
-<p>Jin Mi-ja Yeosa~!</p>
+<p>Sex Scene!</p>
+<p>Ha Ju-yoon and Jin Mi-ja lying face down, requested by I Save I-nim!</p>
+<p>Starting with Ha Ju-yoon!</p>
+<p>Jin Mi-ja Yeosa!</p>

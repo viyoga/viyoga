@@ -45,7 +45,7 @@ chapter = 464
 <p>Two full, dark orbs, swinging in a rhythm that would have hypnotized any man still there to see it.</p>
 <p>She sat down on the bed, and the mattress sank under the weight of her hips. Her ass spread against the sheet, the soft flesh bulging slightly past the edges of her panties, while her thighs settled wide and heavy.</p>
 <p>Her eyes carefully studied the pale green wine inside one of the bottles.</p>
-<p>"Hm~~" Arabella turned the bottle with curious eyes, spinning it between her delicate fingers and watching the liquid swirl inside.</p>
+<p>"Hm" Arabella turned the bottle with curious eyes, spinning it between her delicate fingers and watching the liquid swirl inside.</p>
 <p>"It’s third-stage wine, and a very high-quality one at that... I didn’t know the Eternal Forest produced it in large enough quantities for export."</p>
 <p>She pulled out the cork. At once, a strong, medicinal, and sweet scent filled the room, so intense it seemed to cling to the back of her throat.</p>
 <p>Arabella’s eyes widened. Without a second thought, she raised the bottle to her lips.</p>

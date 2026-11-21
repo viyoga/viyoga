@@ -47,7 +47,7 @@ chapter = 226
 
 <p>Ruyan didn’t answer, only flashing a mischievous smile as she took a step towards him, sniffing deeply, smelling his scent.</p>
 
-<p>“Hmm~~ silly hubby… take that horrible thing off your face, I don’t want to kiss it,” she said, drawing a sigh of defeat from Qingyi, who removed his mask.</p>
+<p>“Hmm silly hubby… take that horrible thing off your face, I don’t want to kiss it,” she said, drawing a sigh of defeat from Qingyi, who removed his mask.</p>
 
 <p>His voice changed back to his usual one – firm, smooth, like a masculine symphony. His appearance also changed, regaining its incomparable beauty.</p>
 
@@ -57,7 +57,7 @@ chapter = 226
 
 <p>“Ah… how did you find out it was me?” Qingyi asked.</p>
 
-<p>“’Hubby think he can fool the sense of smell of a demon like me? Fufufu~~ And besides, I know this little Swordie very well…” she said, slipping her fingers into the sheath of the Heaven-Defying Thunder Sword.</p>
+<p>“’Hubby think he can fool the sense of smell of a demon like me? Fufufu And besides, I know this little Swordie very well…” she said, slipping her fingers into the sheath of the Heaven-Defying Thunder Sword.</p>
 
 <p>“When is the husband going to fuck both our little pussies at the same time? She looks a lot better than that little tanned cunt.”</p>
 
@@ -75,9 +75,9 @@ chapter = 226
 
 <p>Sitting down on the bed, he pulled them both to him, their huge breasts pressing against his chest as their plump, shapely asses competed for space on his lap.</p>
 
-<p>“Nghnnn~~”</p>
+<p>“Nghnnn”</p>
 
-<p>“Aghnnn~~”</p>
+<p>“Aghnnn”</p>
 
 <p>They moaned in unison as he grabbed their breasts, squeezing them hard.</p>
 
@@ -99,7 +99,7 @@ chapter = 226
 
 <p>Without hesitation, he sank his tongue into her deep valley, massaging her clitoris with circular movements.</p>
 
-<p>“Aahnnn~~ fuck~!” Ruxue moaned, her body losing its strength as her long, delicate fingers flowed to her own breasts, squeezing them hard.</p>
+<p>“Aahnnn fuck!” Ruxue moaned, her body losing its strength as her long, delicate fingers flowed to her own breasts, squeezing them hard.</p>
 
 <p>“Hey, don’t leave me out!” Ruyan immediately perked up as she pulled Qingyi’s pants down, revealing his huge, throbbing member.</p>
 

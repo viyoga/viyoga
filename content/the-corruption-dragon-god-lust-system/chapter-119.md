@@ -105,7 +105,7 @@ chapter = 119
 
 <p>“Gulgh…” Yueli choked slightly as the colossus slid into her mouth and down into the depths of her throat.</p>
 
-<p>“Ghn~~ ughn~~” With her master’s help, Yueli began to suck him, her movements gaining strength as she got used to the sensation of having her mouth completely filled.</p>
+<p>“Ghn ughn” With her master’s help, Yueli began to suck him, her movements gaining strength as she got used to the sensation of having her mouth completely filled.</p>
 
 <p>She felt the member pulse even harder, her eyes widening as a hot, viscous liquid exploded into her mouth.</p>
 

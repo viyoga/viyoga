@@ -5,7 +5,7 @@ weight = 788
 chapter = 788
 +++
 
-<p>&quot;Goodnight, Mom~&quot;</p>
+<p>&quot;Goodnight, Mom&quot;</p>
 
 <p>He kissed her on the cheek, gathered his things, put on his underwear, and crept out of his mother-in-law’s room.</p>
 

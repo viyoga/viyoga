@@ -8,7 +8,7 @@ chapter = 346
 <p>Daigo Terue-ssi stood before me, naked, biting her lip while looking down. I have no idea what she could have misunderstood from our conversation to make things turn out this way.</p>
 <p>What should I say? 'It's a misunderstanding?' If I say that, she might be so embarrassed that she'll jump out the window... Though it's a safe first floor to jump from. Should I just meet her expectations(?)?</p>
 <p>I had countless thoughts in a fleeting moment, but I couldn't come to a conclusion. Perhaps frustrated by my stillness, Daigo Terue-ssi knelt down in front of me and lowered my pants. I was in the middle of contemplating, but at this point, I have no choice but to quietly accept the service.</p>
-<p>,You, you wanted this, right? Heuhyat~!!"</p>
+<p>,You, you wanted this, right? Heuhyat!!"</p>
 <p>'You wanted this, right?' she said, surprised by my dick that popped out. Of course, it was an arousing situation, so my dick was fully erect, showing off its massive size to the Director-nim.</p>
 <p>,T, this size is...."</p>
 <p>I thought I'd be used to this kind of reaction by now, but every time I saw and heard reactions like this, my shoulders would shrug and I'd feel good. It's like fulfilling expectations about my masculinity....</p>
@@ -33,14 +33,14 @@ chapter = 346
 <p>,Heut! Don't touch my breasts...♥"</p>
 <p>,I'm already touching them, though?"</p>
 <p>The more you tell me not to touch them, the more I want to touch them. This time, I curled my fingers and grabbed her hard, erect nipples. Just grabbing her nipples made her arch her head back and wriggle her pussy; her reaction was really good.</p>
-<p>,Eut, hoo-ooht...! That's, that's sensitive, aahang♥ Be gentle...! Ha-eut! Be gentle~!"</p>
+<p>,Eut, hoo-ooht...! That's, that's sensitive, aahang♥ Be gentle...! Ha-eut! Be gentle!"</p>
 <p>,So, you're telling me to do it after all?"</p>
 <p>Following the Director-nim's request, I gently massaged her breasts, but in a way that she could feel as much as possible. The Director-nim admirably trembled with pleasure, but she didn't stop moving her waist. Is it because my dick feels better than my caresses?</p>
 <p>Unlike the voluptuous milf in her mid-30s, Daigo Terue-ssi's pussy felt somewhat narrow and chewy.</p>
 <p>,Haa-euhaang...! Any more and! Ha-eut! The inside of my uterus, heueu-heung...! It's strangeeet...♥"</p>
 <p>,I'm gonna cum too...!"</p>
 <p>Daigo Terue-ssi also reached her climax, and I had already been close to cumming due to the blowjob attack, so I didn't hold back anymore and thrust my dick deep into Daigo Terue-ssi's vagina, starting to ejaculate semen.</p>
-<p>Boo-ut~! Byoo-ut! Beut!</p>
+<p>Boo-ut! Byoo-ut! Beut!</p>
 <p>As her uterus was filled with hot semen, Daigo Terue-ssi's body fluttered and she reached her climax once again. Hooo.... Maybe it's because of the situation, but I was so excited that the amount of semen was enormous.</p>
 <p>We hugged each other for a while with my dick still inside, and when I lifted Daigo Terue-ssi's body and pulled out my dick, white semen flowed out of her pussy. That sight aroused me again, and my dick regained its strength. Seeing my dick, which had become firm again, Daigo Terue-ssi opened her mouth with an expression that was half fed up and half expectant.</p>
 <p>,Hah, you can't be satisfied with just one time?"</p>

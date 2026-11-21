@@ -48,7 +48,7 @@ chapter = 64
 <p>After the Western Street Shooting Gallery, we went to Mega Thunder Mountain. It was a ride that explored a gold mine on a runaway train without a driver in an abandoned mine cursed by God, and it was said to be one of the few thrill rides in Disneyland.</p>
 <p>,Kyaaaa! This is fun!!</p>
 <p>Taira Yukiko didn't seem to be afraid of this kind of thing, and she screamed and enjoyed it. I wasn't particularly scared either, so I enjoyed exploring the gold mine. I'm past the point of being scared of these kinds of rides. I've even fought in a park where bullets were flying.</p>
-<p>,Next is here~!</p>
+<p>,Next is here!</p>
 <p>I'm glad that her depressed mood from earlier has completely disappeared. I was led by Taira Yukiko to Splash Mountain, a flume ride, which was said to be a ride that only exists in Tokyo Disneyland, which is not in other Disneylands.</p>
 <p>Originally, they all existed, but Splash Mountain was a ride based on Disney's old movie Song of the South, which denigrated black slaves, so it was removed from all other Disneylands. It is said that it only remains in Tokyo Disneyland, but in fact, the ownership of Tokyo Disneyland is not with Disney, but with Keisei Electric Railway, a Japanese railway company, so it cannot be removed. In other words, Tokyo Disneyland was like a franchise store where Keisei Electric Railway's subsidiary bought a license and operated it.</p>
 <p>,Is it okay if you get a little wet?</p>
@@ -63,11 +63,11 @@ chapter = 64
 <p>,I'm a little hungry because it's past lunchtime.</p>
 <p>,Wait a little bit.</p>
 <p>I went to the nearest Fantasyland and bought Mickey waffles, churros, and drinks, and returned to the bench. While I was away for that short period of time, there were men hitting on Taira Yukiko. What are these guys doing at Disneyland?</p>
-<p>One was a greasy man with slicked-back hair and a mustache, and the other was a tanned man with dull gold-colored hair who gave me the prejudice that he would say, "Uhyo~! Getto daze!"</p>
+<p>One was a greasy man with slicked-back hair and a mustache, and the other was a tanned man with dull gold-colored hair who gave me the prejudice that he would say, "Uhyo! Getto daze!"</p>
 <p>,Why don't you play with us...?</p>
-<p>,We'll make it fun~!</p>
+<p>,We'll make it fun!</p>
 <p>,My boyfriend will be here soon, so please leave.</p>
-<p>Ooh~! She said boyfriend.... Taira Yukiko is definitely still in her early thirties, and she is receiving more expensive and cutting-edge care than celebrities before the possession, so she looks like she is in her early to mid-twenties on the outside. It would be a little strange for someone with that kind of appearance to say that her son will be here soon.</p>
+<p>Ooh! She said boyfriend.... Taira Yukiko is definitely still in her early thirties, and she is receiving more expensive and cutting-edge care than celebrities before the possession, so she looks like she is in her early to mid-twenties on the outside. It would be a little strange for someone with that kind of appearance to say that her son will be here soon.</p>
 <p>,Excuse me, but do you have business with my girlfriend?</p>
 <p>,What? Ah, I'm sorry.</p>
 <p>,Oh, you really have a boyfriend.... Excuse me.</p>

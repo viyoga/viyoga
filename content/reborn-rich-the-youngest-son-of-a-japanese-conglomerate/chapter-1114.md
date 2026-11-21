@@ -76,7 +76,7 @@ chapter = 1114
 <p>Thinking she could finally satisfy the Curiosity she had in the detention center, Aurelia Beaumont asked Miyazaki Kirara.</p>
 <p>"I have extraordinary eyes. I can see people's potential. Even in the detention center, I called people in order of their potential. Beaumont-ssi seemed to have the highest potential inside that detention center."</p>
 <p>"She picked them because their potential seemed high." Aurelia Beaumont felt good that she was highly evaluated, but she also began to wonder if she could truly trust a company where a Woman spoke such absurd Words.</p>
-<p>TheDreaming-nim requested 1. Nasian dropped onto a modern Street and being interviewed~! 2. Ha Ju-yoon in the Forest</p>
+<p>TheDreaming-nim requested 1. Nasian dropped onto a modern Street and being interviewed! 2. Ha Ju-yoon in the Forest</p>
 <p>1. It's a little funny that the female passersby on the street are wearing something similar to Fairy clothes hehehe</p>
 <p>2. The POV perspective with a Sword didn't work, so I made it without a perspective hehe</p>
-<p>chea yun-nim requested Bikini Ha Ju-yoon Maman~!</p>
+<p>chea yun-nim requested Bikini Ha Ju-yoon Maman!</p>

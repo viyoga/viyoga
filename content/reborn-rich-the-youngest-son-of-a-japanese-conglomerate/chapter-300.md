@@ -42,7 +42,7 @@ chapter = 300
 <p>I entrusted Alik to Egawa Shiho and went to the underground parking lot, got in my car, and headed to the Tokyo branch of Amsang. I had something to discuss with Eve and Han Yu-gyeong about the business, so I decided to meet at Amsang.</p>
 <p>Han Yu-gyeong doesn't come to Amsang in Tokyo, but Eve is in both Tokyo and Seoul, and they can have a conversation as if they were next to each other with holograms, so we decided to have meetings like this if we couldn't meet.</p>
 <p>As I passed through the entrance of Amsang, which was disguised as Higashiyama Trading, and went down, Eve waved her hand and greeted me. Before, she wore a tight white short dress, which was a bit embarrassing, but today she was wearing a black short dress. Still, it was less embarrassing than before because it didn't feel so tight.</p>
-<p>,Hello~! Ryuta-ssi, long time no see."</p>
+<p>,Hello! Ryuta-ssi, long time no see."</p>
 <p>,Hello, Eve."</p>
 <p>I greeted Eve and shook her hand. Today, it was not a hologram but an android's body with substance. It's so amazing. It feels like I'm touching a real hand....</p>
 <p>,Ryuta-ssi? How long are you going to keep touching me?"</p>
@@ -50,10 +50,10 @@ chapter = 300
 <p>,You know how to give compliments quite well, saying it feels real. Please sit here."</p>
 <p>Eve sat me at a square table. And when she snapped her fingers, a hologram machine whirred and scanned my body. It's probably scanning Han Yu-gyeong's body in Seoul too.</p>
 <p>Soon, the hologram machine in the seat opposite me activated and created a scanned image of Han Yu-gyeong. My image will probably be visible to Han Yu-gyeong opposite her in Seoul.</p>
-<p>,Yong-tae~! It's so real...!"</p>
+<p>,Yong-tae! It's so real...!"</p>
 <p>,I was so surprised too."</p>
 <p>I was also quite surprised because it felt like Han Yu-gyeong was in front of me. Of course, I can see her with my eyes, but I can't feel Han Yu-gyeong with my other senses, so I can recognize that she's not there, but visually, it seems to be more than 85 percent realized.</p>
-<p>,You shouldn't get up and try to touch it because it's amazing. The hologram only works in the seat you're sitting in~!"</p>
+<p>,You shouldn't get up and try to touch it because it's amazing. The hologram only works in the seat you're sitting in!"</p>
 <p>Eve stopped Han Yu-gyeong when she got up from her seat to touch me because she was amazed. Ah, so that's why she designated a seat and guided me.</p>
 <p>,Is the preparation for TG Tech going well?"</p>
 <p>,Yeah, I've almost built a factory with the data Yong-tae got from the US and the Energy-Link Industrial Company data."</p>
@@ -73,7 +73,7 @@ chapter = 300
 <p>At Han Yu-gyeong's question, I smiled slightly and nodded. I, who was very busy, didn't move directly, but I supported a radical psychic group with money, and as a result, several mysterious deaths of members of the National Assembly were already occurring.</p>
 <p>Of course, most of the dead members of the National Assembly were people who had spoken badly about psychics, so everyone didn't say it out loud, but they roughly knew who the culprit was.</p>
 <p>After a bit of a dark story, we talked about the company's management policy while looking at various researched data such as market reactions and opinion polls.</p>
-<p>,Then the TG Tech business will be smooth~!"</p>
+<p>,Then the TG Tech business will be smooth!"</p>
 <p>After about an hour, when we finished talking about TG Tech, Eve clapped her hands and said.</p>
 <p>,Then shall we talk about the bodyguard pet business? We've finally completed the prototype."</p>
 <p>Oh, I heard they were making it at the Tokyo factory, so the prototype is finally complete. Eve brought a box and placed it on the table. Soon, the box opened and a small Yorkshire Terrier walked out. Wow, it looks so real? The glossy fur, the real-looking eyes, the moist nose and tongue, there was no sense of incongruity at all.</p>
@@ -89,7 +89,7 @@ chapter = 300
 <p>,I'll go to Korea soon. In about a month?"</p>
 <p>,Okay. I miss you."</p>
 <p>,Me too."</p>
-<p>,I'll turn off the hologram now~!"</p>
+<p>,I'll turn off the hologram now!"</p>
 <p>We looked at each other's holograms and said we missed each other, and Eve turned off the hologram, ending our short meeting.</p>
 <p>,I'm curious."</p>
 <p>,About what?"</p>
@@ -98,8 +98,8 @@ chapter = 300
 <p>,Hmm, I don't know either. If you keep wanting to see the other person and want to grant their wishes, isn't that love?"</p>
 <p>,Is that so?"</p>
 <p>Well, there probably aren't many people who can properly define love. Eve had a strange expression, but she returned to her original cheerful attitude and waved her hand at me.</p>
-<p>,Goodbye~! I'm bored, so please visit often, Ryuta-ssi!"</p>
+<p>,Goodbye! I'm bored, so please visit often, Ryuta-ssi!"</p>
 <p>,Okay."</p>
 <p>I came out of Amsang, escorted by Eve.</p>
 <p>----</p>
-<p>Eve~!</p>
+<p>Eve!</p>

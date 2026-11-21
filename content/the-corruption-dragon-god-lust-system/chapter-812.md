@@ -89,7 +89,7 @@ chapter = 812
 
 <p>Together, the three of them left the Grand Elder’s palace, where he was already waiting outside alongside his wife, Feiyue.</p>
 
-<p>"Very well, let’s hurry, little Rou’er and little Hua. I’ve heard a lot about this secret realm, but I’ve never seen it in action. I hope it isn’t disappointing, fufufu~" Feiyue gave a soft chuckle, pulling her daughter and Rou’er into a firm embrace, her hands gently stroking their hair with affection.</p>
+<p>"Very well, let’s hurry, little Rou’er and little Hua. I’ve heard a lot about this secret realm, but I’ve never seen it in action. I hope it isn’t disappointing, fufufu" Feiyue gave a soft chuckle, pulling her daughter and Rou’er into a firm embrace, her hands gently stroking their hair with affection.</p>
 
 <p>She didn’t give much thought to why the Cosmic Void Sect was restricting the secret realm in this way, since it truly wasn’t her problem.</p>
 

@@ -5,7 +5,7 @@ weight = 465
 chapter = 465
 +++
 
-<p>"Hmm~ hmm~ hmm~"</p>
+<p>"Hmm hmm hmm"</p>
 <p>The sun shone brilliantly today, and Annelisa was tending to the flower beds in the western courtyard of the manor.</p>
 <p>From her wonderfully light-hearted tune, it was evident that Lady Hydral was in high spirits today. The thriving, delicate, and vibrant flowers bore testimony to this.</p>
 <p>Although she knew her son would have to travel far today and could not keep her company, she was not saddened. The events of yesterday had made her realize that Ansel truly intended to be a kind-hearted person.</p>

@@ -28,7 +28,7 @@ chapter = 333
 <p>"Selene, these people will kill you just like they will kill us. Let’s have a ceasefire between us until we get out of here alive."</p>
 <p>"… Alright."</p>
 <p>With that out of the way, we created a circle with the backliners standing lumped together behind the frontline who formed an even bigger circle. Thankfully Abudha and his 4 Heralds were all melee, so they could even the numbers out better. I wanted to move to the frontline too, but couldn’t leave our fragile members standing next to Selene and her scheming mind.</p>
-<p>27 vs ~100</p>
+<p>27 vs 100</p>
 <p>I didn’t like our odds. These enemies might’ve been nameless soldiers of the Phantom League but such big shots like Mordecai shouldn’t be masquerading around with weaklings, especially since he knew of Vex’s strange spell that let her mark 20 of them. Based on Orianna’s words, it should be a very hard but winnable battle if we all work together.</p>
 <p>"Devil!!" Suddenly I heard Vex’s jovial tone shouting my name specifically for some reason. "This is a gift from big sis! Accept it with a great deal of gratitude! [Dark Covenant: Revenant’s Sacrifice]" R̃å₦𝙤𝐁Ê𝘴</p>
 <p>Before I could even process her words, an eerie, horrifying phenomenon unfolded around us. Those of the Phantom League soldiers who had their shadows stolen by Vex earlier suddenly stopped moving.</p>

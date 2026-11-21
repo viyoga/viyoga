@@ -84,4 +84,4 @@ chapter = 720
 <p>The rest were at most executives of affiliates, but they had not received a proposal to become the president of an affiliate from the start like Han Yu-gyeong. Even Han Seong-jae, Han Yu-gyeong's father, had not yet taken charge of an affiliate.</p>
 <p>______</p>
 <p>Dancer Lisa-ssi requested by RefundAbsolutelyNotAllowed-nim!</p>
-<p>I couldn't move on to the requested Home Economics Teacher because I was trying out various dancer outfits hehehe. I'll postpone the Home Economics Teacher to tomorrow~!!</p>
+<p>I couldn't move on to the requested Home Economics Teacher because I was trying out various dancer outfits hehehe. I'll postpone the Home Economics Teacher to tomorrow!!</p>

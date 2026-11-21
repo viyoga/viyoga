@@ -47,7 +47,7 @@ It has been many days since they last had sex. She had missed him and his touch 
 
 After doing one long lick, Lith started licking her pussy and while doing it, he rubbed her clit with his thumb.
 
-“Mhmmm~”
+“Mhmmm”
 
 Lucy moaned in delight as she tilted her head backwards. She closed her eyes and felt Lith’s tongue on her. He was expertly stimulating her pleasure points with his tongue and fingers, and it would be a wonder if she didn’t moan. This was only the beginning, and Lucy was in for a lot more from him.
 
@@ -55,7 +55,7 @@ Lith put his tongue in her vaginal hole and started moving it around. Lucy’s i
 
 After a few minutes of using his tongue, he pulled it out and put one of his fingers inside. He started it slow so as to not hurt her. He moved his finger inside her and tried to loosen her hole. After a few seconds, when he felt that it’s loosened enough, he took his finger out and then thrust his index and middle finger inside her in one go.
 
-“Ooooh~”
+“Ooooh”
 
 Lucy moaned as she felt two fingers inside her. Lith began thrusting into her slowly at first, while licking her clit and playing with her breasts with his other hand. He soon stopped licking her clit and picked up the pace of his fingers.
 
@@ -67,7 +67,7 @@ She rested her back against Lith’s shoulder and closed her eyes, feeling his f
 
 A few minutes passed and Lith could feel Lucy’s pussy tightening up even further. He could tell that she was now close. He removed his two fingers from her and immediately thrust three inside.
 
-“OOOH~”
+“OOOH”
 
 Lucy jolted awake and shivered after feeling three of Lith’s fingers. Her insides spasmed even more than before and more and more love juices started to drip down.
 
@@ -77,11 +77,11 @@ Lith didn’t wait for her to recover and madly thrust his fingers in and out, c
 
 *Sprruuttt*
 
-“Ahhhhh~”
+“Ahhhhh”
 
 Lucy squirted and climaxed. Her body was shaking as she lay on Lith’s chest and Lith could tell that her orgasm wasn’t over and she was still feeling it. He bit her neck and sucked a little blood to prolong her orgasm even more.
 
-“Ahhh~”
+“Ahhh”
 
 Lucy moaned once more as she felt Lith sucking her blood, and a lot of her cum dripped out of her pussy as a result, all the while her body kept shaking.
 

@@ -51,8 +51,8 @@ chapter = 618
 <p>-Yamashiro Ryuta: Today is the last day of training anyway. Just hang in there.</p>
 <p>I heard that home ec teacher Shimokawabe Airen, Alik, and Naruse Shiyo had left somewhere together for training and were scheduled to return tonight, and it seemed quite difficult. Naruse Shiyo had been sending Line messages asking to be saved from time to time.</p>
 <p>For reference, Alik sent food certification shots of grilled pork belly cooked directly over a fire or fish he caught himself grilled over a bonfire, as if he was doing well camping outside.</p>
-<p>-Naruse Shiyo: If I collapse and die here, Sensei won't be able to go to Kyoto with me tomorrow~</p>
-<p>-Yamashiro Ryuta: Yeah~ You won't die. If it's hard enough to die, you wouldn't be able to Line me.</p>
+<p>-Naruse Shiyo: If I collapse and die here, Sensei won't be able to go to Kyoto with me tomorrow</p>
+<p>-Yamashiro Ryuta: Yeah You won't die. If it's hard enough to die, you wouldn't be able to Line me.</p>
 <p>-Naruse Shiyo: Tsk....</p>
 <p>What Naruse Shiyo was talking about Kyoto was that tomorrow, the last day of the week-long vacation, I was invited to the Naruse main family in Kyoto with Naruse Shiyo. It was to receive compensation for defeating the previous Naruse family head and saving Naruse Shiyo last time.</p>
 <p>I was planning to appraise artifacts and pick out useful items, just like I got from the Daigo main family warehouse last time. I hope there are good items.</p>
@@ -66,7 +66,7 @@ chapter = 618
 <p>-Naruse Shiyo: Sorry, Alik is interfering with my typing next to me.</p>
 <p>Alik seemed embarrassed to let me know that his clothes were all torn. The two of them bickering is quite cute.</p>
 <p>-Yamashiro Ryuta: Okay, come back safe today and see you in Kyoto tomorrow.</p>
-<p>-Naruse Shiyo: Okay, Alik will be with me too~! See you tomorrow.</p>
+<p>-Naruse Shiyo: Okay, Alik will be with me too! See you tomorrow.</p>
 <p>-Yamashiro Ryuta: Okay, see you tomorrow.</p>
 <p>After finishing the Line with Naruse Shiyo, I suddenly wondered how Kujo Kina, who had met a new master, was doing, so I decided to Line her. For reference, I heard a bit from Urabe Konoka that Fujigasaki Rinka had erased the berserk curse placed on Kujo Kina's master and sent her off safely.</p>
 <p>I heard that she started training yesterday, and I was curious about how the training was going, so I Lined Kujo Kina.</p>

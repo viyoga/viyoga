@@ -64,8 +64,8 @@ chapter = 1089
 <p>"Vice President-nim. The customer has arrived."</p>
 <p>At Anjali Patel's Words, Vivian Taylor turned her Body towards me. Beneath her Coat, Vivian Taylor's Appearance was visible: a white suit and long Legs clad in Stockings.</p>
 <p>Something felt a little different from last year. Her Appearance was still that of a beautiful Woman, but.... Was it because she became Vice President from secretary? She seemed to have gained a certain sense of dignity compared to when I saw her before.</p>
-<p>Vivian Taylor B-cut~!</p>
-<p>Remake of Chapter 51 Kimono Illustration requested by Gojoy-nim~!</p>
+<p>Vivian Taylor B-cut!</p>
+<p>Remake of Chapter 51 Kimono Illustration requested by Gojoy-nim!</p>
 <p>1.</p>
 <p>2.</p>
 <p>Cheon Harin requested by TheDreaming-nim: 1. Bound Appearance 2. Interview</p>

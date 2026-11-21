@@ -35,7 +35,7 @@ A few hours passed and Alexandra finally woke up. She rubbed her groggy eyes and
 
 She smiled noticing it and said with a sleepy face:
 
-"Darling~"
+"Darling"
 
 Alexandra slumped on Lith's chest after saying so and purred like a kitten wanting to be spoiled.
 
@@ -45,7 +45,7 @@ Lith was dumbfounded watching such behaviour of Alexandra. Was this the same wom
 
 It made a Rank 8 turn submissive and he was just a Rank 3 at that. It thus felt a bit unbelievable to him.
 
-Alexandra who was in Lith's embrace, hugged him tighter and said softly, "mhm~ darling~"
+Alexandra who was in Lith's embrace, hugged him tighter and said softly, "mhm darling"
 
 Lith's thoughts were broken as he heard that. He looked at her and holding her shoulder, he put her away from his body and said,
 

@@ -25,7 +25,7 @@ chapter = 998
 <p>'Danger...!' The two in front of them were different from the Third-rate criminals they had faced so far, they were guys from a different Dimension.</p>
 <p>"This one.... Since the Opponent said Citywatch.... Eh! Naming is annoying. Let's just call it CityCrusher."</p>
 <p>"...."</p>
-<p>"What? You don't like it? Ah~ just do it! I'm also annoyed with naming!" The Voice of the Restraints Bandage Monster was completely inaudible to the two, but it seemed audible to the Luchador man who called himself Hungry Korean. Listening to Hungry Korean's Words, it seemed the two were probably arguing over Villain names. While the two in front of them were squabbling, Greyhound and Citywatch met each other's Eyes, then nodded their Heads. And they Charged at the squabbling two.</p>
+<p>"What? You don't like it? Ah just do it! I'm also annoyed with naming!" The Voice of the Restraints Bandage Monster was completely inaudible to the two, but it seemed audible to the Luchador man who called himself Hungry Korean. Listening to Hungry Korean's Words, it seemed the two were probably arguing over Villain names. While the two in front of them were squabbling, Greyhound and Citywatch met each other's Eyes, then nodded their Heads. And they Charged at the squabbling two.</p>
 <p>"...."</p>
 <p>"Ah, really? Considering your Ability, that's not bad. Then show these youngsters your Power, ThornyVine (Thorns Vine)." Chwaaaak! Through the Gap in the Restraints, thick Thorns vines, appearing to be two Fingers thick, poured out. The Thorns vines, like a Whip, were swung with immense speed. Greyhound quickly rolled on the floor to avoid the vine Whip. Pukpukpuk!</p>
 <p>Citywatch's clock-hand Arrows, fired in rapid succession at the Main body of the Restraints Monster named ThornyVine, struck the Thorns vines wrapped around ThornyVine's Body, but seemed to have no Effect at all.</p>
@@ -48,4 +48,4 @@ chapter = 998
 <p>"You heard that too, right? They want us to deal with the next Target. Let's move. If the cops show up while we're here, it'll get annoying."</p>
 <p>"...."</p>
 <p>"Hmph! I know that too. Don't nag anymore. Before I wipe the Blood from my Face all over your Restraints." The two, chattering, left the deserted empty lot. In the empty lot they left, only the siche of a Victim, no longer a hero, remained.</p>
-<p>Requested by TheDreaming-nim, Oofuchi Erika in an Otaku room 1. Cat Ears 2. Rabbit Ears 1. 2. Kkiyot~!</p>
+<p>Requested by TheDreaming-nim, Oofuchi Erika in an Otaku room 1. Cat Ears 2. Rabbit Ears 1. 2. Kkiyot!</p>

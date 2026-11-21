@@ -89,7 +89,7 @@ chapter = 43
 <p>Seeing such a pure excitement at the mention of her name was rather rare. Then again, Sol was near Edea since he was young, so he was most likely aware that most of those tales were heresy weaved to make the witches seem worse than they were.</p>
 <p>A small smile etched on her face. She was still suspicious and would do her all to understand this young boy, but at least the first impression he gave her was rather good.</p>
 <p class="scene-break">· · ·</p>
-<p>"Ohhh~!"</p>
+<p>"Ohhh!"</p>
 <p>Sol echoed like an old grandpa full of rheumatism as the hot water gushed over his head.</p>
 <p>He had never felt so alive. What's more, now that the pain was subsiding, he could feel more deeply the different changes he went through.</p>
 <p>All his senses were enhanced, all his capacities were boosted. It wouldn't be a mistake to call his current situation a complete makeover.</p>
@@ -107,7 +107,7 @@ chapter = 43
 <p>It was a large body mirror that allowed Sol to admire himself in all his naked glory.</p>
 <p>His hardened shaft aside, he could feel the change in his appearance more clearly. He was taller and his frame a little larger. He didn't become some hulking mass of muscles but he did become a little more rugged.</p>
 <p>Ignoring the black lace panties and her small bra placed on the side, Sol finally entered his much-awaited bath.</p>
-<p>"Ooh~! This is heaven!"</p>
+<p>"Ooh! This is heaven!"</p>
 <p>Soon, in a few days, it would be his birthday as well as his first true public appearance. This will be followed by the annual event of the Astral realm opening.</p>
 <p>This would be perhaps the last time for him to truly rest.</p>
 <p>Closing his eyes, Sol slowly fell into slumber. He didn't have to fear drowning in his bath. So, free of all worry, he began to rest.</p>

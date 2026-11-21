@@ -107,7 +107,7 @@ chapter = 186
 
 <p>She looked as if she had been bathed in fire, her skin melting into her flesh and bones.</p>
 
-<p>“In fact, it’s unmatched – one of the worst I’ve ever seen, fufufu~~” The woman laughed, her voice calm and charming.</p>
+<p>“In fact, it’s unmatched – one of the worst I’ve ever seen, fufufu” The woman laughed, her voice calm and charming.</p>
 
 <p>“Worst? Woman, I already used to do those things when your grandfather – no, when your grandfather’s grandfather wore diapers.”</p>
 

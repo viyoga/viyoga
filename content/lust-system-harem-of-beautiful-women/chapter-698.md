@@ -45,7 +45,7 @@ chapter = 698
 
 <p>Without any words, the moment she met her brother-in-law’s gaze, the teasing desire in his eyes and that intense sense of intrusiveness made the sister-in-law’s body uncontrollably hot.</p>
 
-<p>&quot;Good night~&quot;</p>
+<p>&quot;Good night&quot;</p>
 
 <p>Just then, Avery let out a yawn, turned around, and went to sleep directly on her side.</p>
 

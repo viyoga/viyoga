@@ -25,7 +25,7 @@ Lucy kept giving muffled moans into Lith’s mouth but didn’t let him go. She 
 
 Ten minutes later, Lith was starting to feel he was close. He bit Lucy’s neck and started drinking blood from her little by little and he raised her hips much higher, almost to the tip of his cock and thrust it down as quickly as he lifted her
 
-“Ahhhhh~ ”
+“Ahhhhh ”
 
 Lucy moaned loudly and lewdly. Lith was reaching the depths which he hadn’t before from these deep thrusts. Lucy was enjoying every second of it. He kept sucking her blood and lifting her up via her soft big butt and putting her down while thrusting her.
 
@@ -99,7 +99,7 @@ Lucy just nodded her head signalling him to continue. Internally, she was happy 
 
 Lith started moving his hips slowly and gently as he wanted Lucy to have this as a good memory. He held her by the her hips and started going faster after a while.
 
-“Mhm~”
+“Mhm”
 
 Lucy was enjoying the thrust in her ass and was releasing muffled moans. She didn’t openly accept it that it felt good but she started moving her hips in rhythm with Lith’s thrusts. Lith soo started going faster and he bent down on her back and pinched her nipples with both of his hands.
 
@@ -111,11 +111,11 @@ Lith’s fast pounding Lucy’s ass caused their flesh clapping each other to be
 
 *Pahh* *pahh*
 
-“Ahhh~”
+“Ahhh”
 
 Lucy moaned in delight when Lith spanked her ass. She weirdly liked it when he spanked her like that. Lith feeling Lucy’s walls tightening just from two spanks was surprised. He then smirked and gave her many spank on her ass and kept pounding her faster and faster.
 
-“Ahhh…dear…yes…spank me harder…ahh~”
+“Ahhh…dear…yes…spank me harder…ahh”
 
 Lucy was too absorbed in pleasure to care about what she was speaking. She simply enjoyed herself getting pounded by her little brother’s cock in her ass while he spanked her hard.
 

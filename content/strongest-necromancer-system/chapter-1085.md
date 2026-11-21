@@ -30,7 +30,7 @@ chapter = 1085
 <p>But was it what Jason wanted? Even though Agiel was fine with it, it was still a lot of responsibility for Jason to feel every emotion Agiel felt. Jason frowned slightly as he thought deeply about whether or not he wanted to carry something like this around with him forever!</p>
 <p>It took a few seconds, but in the end, Jason decided that he was fine with it for now. Even though the emotions were new, it wasn’t difficult to separate what Agiel was feeling from what he was feeling, so Jason didn’t have any issues with these new sensations. Jason finally gave Agiel a small smile and nodded once, and there was such an intense surge of happiness that flowed through Agiel at that moment that Jason couldn’t help but smile as well.</p>
 <p>Agiel looked deep into Jason’s eyes, and she leaned up to kiss him. Jason accepted the kiss, and he put his hand into Agiel’s hair and held her close as he deepened it. Agiel ran her hand up Jason’s chest as she moaned into the kiss, and Agiel felt her core growing hot immediately!</p>
-<p>"Mmh~"</p>
+<p>"Mmh"</p>
 <p>Jason put his hand around Agiel’s waist and pulled her even closer, and Agiel grabbed Jason’s shirt tightly and began trying to pull him towards the bed. But Jason stopped, and he pulled away from the kiss before resting his forehead against Agiel’s own. They were both breathing heavily, and Jason let out a small sigh before shaking his head to tell Agiel that this was enough.</p>
 <p>A flash of pain suddenly passed through Agiel’s eyes! Agiel’s face fell slightly as she took a step back from Jason and spoke in a broken voice:</p>
 <p>"But why? I thought you were okay with this..."</p>

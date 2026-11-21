@@ -13,7 +13,7 @@ chapter = 795
 <p>Moreover, in this situation, no matter how crazy the malicious commenter, there was no one who would leave a malicious comment after seeing the word 'Minamoto'. Of course, truly mentally ill people would still leave malicious comments, but frighteningly, such comments naturally disappeared not long after.</p>
 <p>"Surely not for leaving malicious comments are they tracked down and arrested...?"</p>
 <p>Muttering that, while touching my phone, a KakaoTalk message came from Han Yu-gyeong.</p>
-<p>-Han Yu-gyeong: Yong-tae~♥ Because of this Incident, the video from the Zombie Incident went viral again, and orders increased~!</p>
+<p>-Han Yu-gyeong: Yong-tae♥ Because of this Incident, the video from the Zombie Incident went viral again, and orders increased!</p>
 <p>...So this can happen. As the special class Female Students became a topic, the video from the last Cyber Zombie Incident was re-highlighted, and it seemed the order volume for our TG Tech's Energy Guns increased again.</p>
 <p>Actually, this time, since there were no photos or videos where the Students' appearance could be seen, it seemed many people watched the previous video, thinking, "So who are they?"</p>
 <p>Just in case, going to Uenozono Kanna's MeTube, who didn't go on this trip, there were many comments worrying if Kanna was okay, and the views of the previous vlog featuring the special class could be confirmed to be very high. As this became a topic again, it was a somewhat strange feeling.</p>
@@ -28,7 +28,7 @@ chapter = 795
 <p>While chatting with Han Yu-gyeong on KakaoTalk for a while, an alarm rang, saying I had to go to the coin laundry. I finished chatting with Han Yu-gyeong and got up from my seat. And carrying the laundry basket I had prepared in advance, I went Outside.</p>
 <p>When I had my First Experience with Seizawa Shii, it was so intense that after half-destroying the coin laundry, we only met at my Home or the Dark Merchant Miyashi Branch Love Hotel, so meeting at the coin laundry was for the first time in a long time.</p>
 <p>Carrying the laundry basket, going to the coin laundry, through the lit window, Seizawa Shii, sitting, was seen looking at her phone. By the way, even though the lights were on like this, with a 'Closed' sign attached, I don't know if they weren't accepting customers or were.</p>
-<p>Ttalling~♪</p>
+<p>Ttalling♪</p>
 <p>Opening the door of the coin laundry and entering, the clear sound of the doorbell welcomed me. Seizawa Shii also stopped looking at her phone, saying, "Ryuta-cchi, you're here?" and waved her Hand at me while sitting. And looking at the laundry basket I was holding, she opened her mouth.</p>
 <p>"You really brought laundry? I thought you were just making an excuse to talk to me."</p>
 <p>"Since I'm already here, it's good to do laundry, isn't it?"</p>
@@ -37,7 +37,7 @@ chapter = 795
 <p>After putting in all the laundry, sitting next to Seizawa Shii, Seizawa Shii asked the Reason she wanted to meet. Hmm, how should I say this....</p>
 <p>"It's a somewhat Embarrassed Matter to talk about...."</p>
 <p>I trailed off for a moment. Because I wondered if it was right to tell this to Seizawa Shii, Minamoto Risa's Best friend.</p>
-<p>"Tell me, is it because of Lisa-ttang? I saw earlier, the Atmosphere between you two was strange~☆"</p>
+<p>"Tell me, is it because of Lisa-ttang? I saw earlier, the Atmosphere between you two was strange☆"</p>
 <p>It was Seizawa Shii, who had already guessed that there was some kind of Relationship between Minamoto Risa and me. As expected of Minamoto Risa's Best friend, and perhaps because she had a Relationship with me, she seemed to have easily caught on.</p>
 <p>"The truth is...."</p>
 <p>I told Seizawa Shii what had happened with Minamoto Risa. Of course, I didn't tell her everything, but told her a shortened version, and Seizawa Shii listened to the Story with great Intrigue.</p>
@@ -60,35 +60,35 @@ chapter = 795
 <p>"What do you want?"</p>
 <p>"That's...."</p>
 <p>Seizawa Shii made a mischievous Expression, then stood up from her seat, leaned her Upper Body against the washing machine where my laundry was spinning, and pushed her buttocks towards me. I hadn't known while she was sitting, but despite the still chilly weather, she was wearing incredibly short denim Hotpants, so her buttocks were clearly exposed.</p>
-<p>"Of course, I want you to feed Ryuta-cchi's frank Sausage down there~♥"</p>
+<p>"Of course, I want you to feed Ryuta-cchi's frank Sausage down there♥"</p>
 <p>As expected, if Women want something from me, I knew it would only be my python. Doing it is not a Problem, but....</p>
 <p>"Fulfilling that Demand is not a Problem, but we did it today, didn't we?"</p>
 <p>Although quite some time had passed, I had Sex with Seizawa Shii at the Resort this Dawn, but has her Lust not been satisfied yet?</p>
-<p>"Doing it on the bed as usual doesn't quite satisfy me...! I like that rough Feeling we had at first, Ryuta-cchi~♥"</p>
+<p>"Doing it on the bed as usual doesn't quite satisfy me...! I like that rough Feeling we had at first, Ryuta-cchi♥"</p>
 <p>Ah, with the usual gentle Sex on the bed, it seemed all of Seizawa Shii's Lust could not be satisfied.</p>
 <p>That rough Sex we had during our First Experience, destroying the washing machine and nearby chairs or fixtures, was so deeply ingrained, it seemed to have become her Preference.</p>
 <p>Hmm.... From now on, I should be careful with other Women's First Experiences. Because I shouldn't let them awaken to strange Preferences like Seizawa Shii.</p>
 <p>Chalsseok!</p>
-<p>"Kyaha-eung~♥"</p>
+<p>"Kyaha-eung♥"</p>
 <p>In front of my Eyes, swaying gently, I slapped Seizawa Shii's large buttocks with a pleasant snap.</p>
 <p>At my Spanking, Seizawa Shii let out joyful moans and her Body trembled.</p>
 <p>"You wanted it rough, like a Byeontae?"</p>
-<p>"You know, Ryuta-cchi...! You want to hear my Answer quickly, don't you? Then you have to satisfy me~♥"</p>
+<p>"You know, Ryuta-cchi...! You want to hear my Answer quickly, don't you? Then you have to satisfy me♥"</p>
 <p>"Understood. Before that...."</p>
 <p>Before fulfilling Seizawa Shii's Request, I lowered the shutter of the coin laundry. Because if the inside was clearly visible and we openly had Sex, a huge rumor could spread in this Neighborhood, so I had to be careful.</p>
 <p>"How could such a thorough Person not manage the Woman's Smell?"</p>
 <p>"Because I didn't know there would be a serial Killer...."</p>
 <p>As if trying to Provocation me, Seizawa Shii spoke teasingly, but that Situation was truly like an unavoidable natural disaster.</p>
 <p>Rather than Counterattack with Words, I decided to Counterattack with my Body. Approaching Seizawa Shii, who was leaning against the washing machine, to the extent that her Mons Pubis was exposed, I pulled aside her tight Hotpants.</p>
-<p>Gojoy-nim requested Mari Hori Sisters' Underwear Attire and breast-covered Scene~!</p>
-<p>Hori~!</p>
-<p>breast Covering~!</p>
-<p>Mari Underwear~!</p>
-<p>breast Covering~!</p>
+<p>Gojoy-nim requested Mari Hori Sisters' Underwear Attire and breast-covered Scene!</p>
+<p>Hori!</p>
+<p>breast Covering!</p>
+<p>Mari Underwear!</p>
+<p>breast Covering!</p>
 <p>The requested Back View, if done naked, the Pussy kept showing, so I had no choice but to put a blur, so I didn't work on it haha</p>
-<p>seungj050-nim requested Liz's Spanking Mark~!</p>
-<p>Yabihan-gyosu-nim requested Mafia Yuka~!</p>
-<p>Hwanbuljeoldae-bulga-nim requested Lisa-ttang Home Teacher's Cargo Pants + Crop Top + Armpit Jjal~!</p>
-<p>Lisa-ttang~!</p>
-<p>Home Teacher~!!</p>
-<p>Kkiyoooot~!</p>
+<p>seungj050-nim requested Liz's Spanking Mark!</p>
+<p>Yabihan-gyosu-nim requested Mafia Yuka!</p>
+<p>Hwanbuljeoldae-bulga-nim requested Lisa-ttang Home Teacher's Cargo Pants + Crop Top + Armpit Jjal!</p>
+<p>Lisa-ttang!</p>
+<p>Home Teacher!!</p>
+<p>Kkiyoooot!</p>

@@ -8,7 +8,7 @@ chapter = 598
 <p>Kaiden chuckled, a deep, predatory sound that vibrated through her. "Beautiful moon," he offered.</p>
 <p>Aria let out a frustrated, high-pitched whimper, her body going nearly rigid. "It’s not complete! You have to add two more syllables to make it complete! The mark of possession! Add it!" she demanded.</p>
 <p>Kaiden thought for a split second, feeling the frantic heat radiating from her core, before he pulled her even tighter against his mouth. "My beautiful moon," he decreed.</p>
-<p>"Ahngh~!!" The reaction was like a nuclear launch; Aria came apart instantly, her entire body shuddering as she released a massive wave of heat and fluid onto his lips, her eyes rolling back as she slumped forward in total surrender.</p>
+<p>"Ahngh!!" The reaction was like a nuclear launch; Aria came apart instantly, her entire body shuddering as she released a massive wave of heat and fluid onto his lips, her eyes rolling back as she slumped forward in total surrender.</p>
 <p>As Aria descended into a dazed afterglow, the sequence shifted with practiced fluidity.</p>
 <p>Kaiden moved Luna into position, the gamer girl letting out a sharp, jagged cry as he claimed her with the same relentless fervor.</p>
 <p>She, too, had to explain her trial while getting violently eaten out.</p>

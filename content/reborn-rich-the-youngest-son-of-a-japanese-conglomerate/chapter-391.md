@@ -7,7 +7,7 @@ chapter = 391
 
 <p>Sohn Na-ri, who suggested having a gift presentation first, was the first to offer a gift. The gift was quite large, and when Han Yu-gyeong received it and unwrapped it, it turned out to be a thick plastic board shaped like a person. It looked familiar... What is it?</p>
 <p>"This is...?"</p>
-<p>"Yu-gyeong-i talked about knife throwing recently, right? So, I made a target~!"</p>
+<p>"Yu-gyeong-i talked about knife throwing recently, right? So, I made a target!"</p>
 <p>It was a target board in the shape of a person. Am I weird? I Yeon-ju prepared throwing knives as a birthday present, and her close friend Sohn Na-ri prepared a target to use them on... If I were to think of a reason, it seemed like Han Yu-gyeong is the daughter of a chaebol family, so they prepared something special rather than some expensive accessories. After all, Han Yu-gyeong could buy anything that can be bought with money.</p>
 <p>"Thank you! I've been doing it as a hobby these days, so I can do it at home too!"</p>
 <p>How many female college students in Korea throw knives as a hobby? Probably only Han Yu-gyeong. It seemed like she found it quite fun because she became good at it due to her trait. Following Sohn Na-ri's target, I Yeon-ju immediately gave her throwing knives, and Han Yu-gyeong was excited that she received them as a set.</p>

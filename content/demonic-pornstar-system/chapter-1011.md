@@ -62,7 +62,7 @@ chapter = 1011
 <p>Aria had crossed the ring before anyone else moved. She crouched beside him and hugged his head into her chest. She was beaming, joyous as if a giant weight had been lifted off her back. "You’re doing it, Kai. You’ll learn how to control it."</p>
 <p>The Moon Valkyrie’s voice lowered to a whisper. "I can keep staying close to your side..."</p>
 <p>"Yeah..." Kaiden replied, heaving, and reached up to hold her hand. "But it’s heavy. Holding it small is more taxing than simply letting it go."</p>
-<p>"I know. But my beloved Kai will manage~" Aria sang, already high on relief and joy.</p>
+<p>"I know. But my beloved Kai will manage" Aria sang, already high on relief and joy.</p>
 <p>"One more, Master? Then you can rest before we run more tests," Bastet offered. "We need to see how the Stance behaves when you’re low on mana."</p>
 <p>The two on the grass had not stopped. Calypso had Luna in a headlock and was explaining, at length, the terms of her surrender. Luna was biting her.</p>
 <p>"Ow! Darling, she bites!"</p>

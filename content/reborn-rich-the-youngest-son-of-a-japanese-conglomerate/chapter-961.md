@@ -12,7 +12,7 @@ chapter = 961
 <p>"Boss-nim...! It's an honor to meet you!"</p>
 <p>Entering the Hatake Investment Company Building's Underground Parking Lot required passing through the Security Office. The Security Guards were currently former Prisoners from Anyaji, hired as Security Guards before my PMC license came out, and since they all knew my face as their Boss, they greeted me respectfully as soon as they saw me and raised the parking barrier.</p>
 <p>The reason why the Security Guards, former Prisoners from Anyaji, treated me respectfully, despite me being the one who brought down Anyaji, was because they didn't realize I was the one who had brought them down. Instead, they thought of me as the Young Master of the Tairaga Family who had taken them in when Anyaji fell and they had nowhere to go, so it felt like they were treating a benefactor well.</p>
-<p>"Oh~! Ryuta-cchi Boss-nim~!"</p>
+<p>"Oh! Ryuta-cchi Boss-nim!"</p>
 <p>Ignoring Seizawa Shii's surprised reaction, expressed in a teasing tone (I was a little worried Seizawa Shii might give Jinmija Yeosa a nickname), I parked the car in the Underground Parking Lot, got out, and headed to the elevator with everyone.</p>
 <p>"The lower floors will be used by my PMC, and the middle layer will be used as offices by Joseodang or our smaller companies. And the Upper Layer will be used by Hatake Investment Company and its Affiliate Companies."</p>
 <p>"Then are we going straight to Hatake Investment Company? Mother is there too, right?"</p>
@@ -27,12 +27,12 @@ chapter = 961
 <p>Jinmija Yeosa also seemed quite surprised when so many people suddenly entered, but she quickly hid her surprise, called my name, and smiled. In fact, some of them weren't meeting Jinmija Yeosa for the first time.</p>
 <p>Because we had held several video conferences, Alik, Naruse Shiyo, Otagi Yuka, Saionji Diana, and others were already acquainted with each other.</p>
 <p>"This is Seizawa Shii, a student I taught...."</p>
-<p>"Mother, you're so beautiful~! You look more like Ryuta-cchi's Older Sister than his Mother~!!"</p>
+<p>"Mother, you're so beautiful! You look more like Ryuta-cchi's Older Sister than his Mother!!"</p>
 <p>As soon as I started the introduction, Seizawa Shii fussed (I was a bit uneasy that Seizawa Shii might give Jinmija Yeosa a nickname), and everyone else, not to be outdone, rushed to Jinmija Yeosa, asking about the secret to her youthful looks and the secret to her Skin Texture, trying to build goodwill.</p>
 <p>Jinmija Yeosa seemed a little Embarrassed, but like the strong Woman she was, who wouldn't be intimidated by Taira Jiro, she smiled and accepted the questions and stories from Seizawa Shii and the other troublemakers. But why was Shimokawabe Airen mixed in there? Was she truly curious about my mom's youthful appearance?</p>
 <p>"Everyone, please take good care of my inadequate son."</p>
-<p>"Don't worry, just trust me, Mother~!"</p>
-<p>"Ryuta Oppa, please leave him to me~!"</p>
+<p>"Don't worry, just trust me, Mother!"</p>
+<p>"Ryuta Oppa, please leave him to me!"</p>
 <p>"Ryuta, Alik will protect... you."</p>
 <p>Somehow, the Atmosphere felt like 'please take good care of my son,' which was a bit Embarrassing, and everyone saying 'leave him to me' made it feel like we were at an auction house. Soon, the secretary brought coffee and tea, and we sipped them slowly as we began our Conversation.</p>
 <p>"How do you like the new Building?"</p>
@@ -70,13 +70,13 @@ chapter = 961
 <p>"Tell them they need to become proficient if they want to get their Salary. Otherwise, they need to have a superpower that surpasses firearms."</p>
 <p>"Understood. I will definitely raise them into excellent agents."</p>
 <p>I gave Athena Mannerheim words of caution. Athena Mannerheim nodded her Head in understanding at my words and replied in a trustworthy Way of Speaking.</p>
-<p>Gojoy-nim requested Han Yu-gyeong's Belly Dancer and Tape attire~!</p>
-<p>First, Belly Dancer~!</p>
-<p>Tape~!</p>
+<p>Gojoy-nim requested Han Yu-gyeong's Belly Dancer and Tape attire!</p>
+<p>First, Belly Dancer!</p>
+<p>Tape!</p>
 <p>TheDreaming-nim requested Chapter 129 Ghost 1. Masturbation 2. Seongbul</p>
 <p>1.</p>
 <p>2.</p>
-<p>MidNightSKY-nim requested Ryuta shooting Creation Chaos Beam and Sakagami Rena using Wind Release~!</p>
+<p>MidNightSKY-nim requested Ryuta shooting Creation Chaos Beam and Sakagami Rena using Wind Release!</p>
 <p>I mixed in Lora, but it doesn't feel like Creation Chaos haha</p>
 <p>Wind Release Rena</p>
 <p>Kki-wyeot...!</p>

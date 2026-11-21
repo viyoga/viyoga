@@ -5,13 +5,13 @@ weight = 285
 chapter = 285
 +++
 
-"Ahh~ Ahh~ Ahh~"
+"Ahh Ahh Ahh"
 
 Vaan's aunt moaned as he fucked her from the side and Eian adding onto her pleasure by sucking on her boobs and playing with her other nipple and clit.
 
 "So aunt, the question I had was–"
 
-"Ahh~ Not, Ah, now, Vaan." The lady said in between her moans.
+"Ahh Not, Ah, now, Vaan." The lady said in between her moans.
 
 Vaan kept quiet and didn't ask her again and continued to spread her lower lips with his thick rod.
 
@@ -23,7 +23,7 @@ He also wasn't getting turned on or anything of such sorts by watching live porn
 
 'Please, for the love of go– yeah no, no praying. Please, for goodness sake, give me something useful instead of making me want to bonk the fuck out of you.' He thought while watching them.
 
-"Ahh~ Ahh~ faster! Vaan move faster!" The lady said as she felt her climax being close.
+"Ahh Ahh faster! Vaan move faster!" The lady said as she felt her climax being close.
 
 Hearing this, Vaan wrapped his hand around her belly and increased pace.
 
@@ -31,7 +31,7 @@ Eian too got to work by now biting and twisting her nipples and pinching her cli
 
 A few minutes pass and the lady's body starts shaking.
 
-"Ahhhhhhh~"
+"Ahhhhhhh"
 
 Spurrrt!
 
@@ -55,7 +55,7 @@ The lady chuckled watching their responses, causing her body to shake a bit and 
 
 She noticed it dripping and instantly put her two fingers below her pussy to have it spread on them. After having a bit of cum on them, she put them in her mouth and savoured the taste of it.
 
-Sucking on her own fingers that had her nephew's cum, the lady said in satisfaction, "mhmm~ the cum of young boys tastes so good."
+Sucking on her own fingers that had her nephew's cum, the lady said in satisfaction, "mhmm the cum of young boys tastes so good."
 
 She scooped more cum out of her pussy and finally stopped when her pussy was devoid of any of Vaan's seeds.
 
@@ -103,7 +103,7 @@ Lilith's phone rang as she looked at the chessboard in front of her. She took it
 
 Noticing that it was Lith, a happy smile formed on her face. She immediately picked it up and…
 
-"Ahh~ Ahh~ Yes! Yes! Vaan do aunt harder!"
+"Ahh Ahh Yes! Yes! Vaan do aunt harder!"
 
 "Hmm?"
 

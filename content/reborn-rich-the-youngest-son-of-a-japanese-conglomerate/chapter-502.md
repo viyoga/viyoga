@@ -87,5 +87,5 @@ chapter = 502
 <p>Soon, with a thud, the skull was completely shattered, and the gray-white brain matter burst out around it.</p>
 <p>"At this point, even if I throw it on the road and disguise it as a traffic accident, no one will know, Daigo next head of the family, Uncle."</p>
 <p>She took out a handkerchief and wiped her brain-covered hands, smiling with her eyes. Daigo Tadanori couldn't bear to see his brother's death, so he turned his body and didn't answer.</p>
-<p>"Aigoo...! I ruined my clothes too. I have to go to the coin laundry again.... I'm leaving now, so please make sure the payment isn't late~!"</p>
+<p>"Aigoo...! I ruined my clothes too. I have to go to the coin laundry again.... I'm leaving now, so please make sure the payment isn't late!"</p>
 <p>The masked woman frowned at the brain matter splattered on her clothes, waved her hand once, and went out of the building. Only a corpse and the corpse's brother were left inside the abandoned factory.</p>

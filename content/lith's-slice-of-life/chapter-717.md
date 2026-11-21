@@ -7,7 +7,7 @@ chapter = 717
 
 Having his fangs extended out, Lith finally bit onto Qingyue's clit and sucked in blood.
 
-"Ahhh!~" 
+"Ahhh!" 
 
 Qingyue couldn't stop herself from moaning. Her legs shivered and gave up trying to hold herself up.
 
@@ -51,7 +51,7 @@ Lith rolled his eyes and shook his head. His maids were too humble.
 
 In any case, he got his answer.
 
-"Ohhhh!~"
+"Ohhhh!"
 
 Lith shoved his cock inside his maid's virgin cunt and spread it to fit him properly.
 
@@ -133,7 +133,7 @@ Getting pounded in the ass was her favourite and she preferred it over normal se
 
 Since his shaft was well lubricated already, Lith didn't wait and penetrated Lucy's ass hole in one go.
 
-"Ohhhh!~" 
+"Ohhhh!" 
 
 She moaned in a much satisfied tone than before and made Lith think, 'does she love anal more than normal sex?'
 

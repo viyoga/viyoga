@@ -59,7 +59,7 @@ chapter = 525
 <p>I went to the education preparation room after coming to work and immediately entered the classroom. Hmm, as expected, everyone is wearing their gym clothes today because it's the athletic meet. The gym clothes were a slightly loose-fitting red dolphin pants design with a short-sleeved t-shirt made of sweat-absorbent material on top. Normally, they would wear the school's blue gym pants, but today, to show that they were on the Red Team for the athletic meet, they wore red dolphin pants.</p>
 <p>,The student council's request was resolved last night, so don't worry...."</p>
 <p>I informed the students that today's matter had been resolved. There were many students who were very disappointed that they hadn't found out who the culprit was yesterday.</p>
-<p>,If there was such an interesting event, you should have told me too, Ryuta-jji~!!"</p>
+<p>,If there was such an interesting event, you should have told me too, Ryuta-jji!!"</p>
 <p>,It's a good result that we didn't receive any other requests from Taira Kanna."</p>
 <p>Seizawa Shii complained to me that she had missed an interesting event, and Minamoto Risa seemed to think it was good that they had succeeded in this matter and wouldn't receive any additional requests from Taira Kanna.</p>
 <p>,So who's the culprit?"</p>

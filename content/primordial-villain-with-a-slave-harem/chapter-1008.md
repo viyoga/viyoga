@@ -16,7 +16,7 @@ chapter = 1008
 <p>"Just one is worth hundreds of gold!"</p>
 <p>"They even gave one to the child?!"</p>
 <p>Eyes locked on Feng in particular, the youngest among them. Her ring was glowing a brilliant silver on her thin finger.</p>
-<p>Smirking, Feng held her hand high and let the last traces of mana sparkle visibly off the ring’s surface. "Oh, is it such a big deal~? I wasn’t aware... Mama gave it to me when I wanted to take my porcelain teaset with me to the flower garden, but found it too heavy~" She spoke her smug nonsense regarding what she thought entitled noble brats should act like loud enough for the crowd to hear.</p>
+<p>Smirking, Feng held her hand high and let the last traces of mana sparkle visibly off the ring’s surface. "Oh, is it such a big deal? I wasn’t aware... Mama gave it to me when I wanted to take my porcelain teaset with me to the flower garden, but found it too heavy" She spoke her smug nonsense regarding what she thought entitled noble brats should act like loud enough for the crowd to hear.</p>
 <p>*Whack!*</p>
 <p>Ayame’s palm came down on the back of her head with practiced, maternal efficiency.</p>
 <p>"Stop showing off. Humility is a virtue."</p>

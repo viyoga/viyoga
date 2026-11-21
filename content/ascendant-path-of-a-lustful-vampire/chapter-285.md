@@ -10,11 +10,11 @@ chapter = 285
 <p>Caius had spent the passing days keeping very busy especially when he was alone in his room.</p>
 <p>Now that he was at the Fourth Circle, there was a newfound understanding of the Arcane symbols within the Arcane Codex and he had a lot of work to do to be prepared. Now that he was a Circle above where he expected to be for the coming challenges, he believed he had a better chance of surviving them.</p>
 <p>He created spells to match the Circle he was now at and created mismatched experimentations to push the boundary further.</p>
-<p>For example; Now that he was at the fourth Circle, ~Hellsong Stomp~ was less an unstable boost and now just an unstable nuisance. It was slower than a true Fourth Circle spell circle.</p>
+<p>For example; Now that he was at the fourth Circle, Hellsong Stomp was less an unstable boost and now just an unstable nuisance. It was slower than a true Fourth Circle spell circle.</p>
 <p>So Caius turned it into one.</p>
 <p>After all, at the start, they had been his goal for the spell but he had failed because he wasn’t at the Fourth Circle. Now that he was, he could see what he had been unable to see before and could complete it.</p>
 <p>But that was only one of the spells he improved.</p>
-<p>He also improved ~Black Hand~. It was his first created spell and even at the time, Caius had known it had potential for more so he could move forward with that even if only a bit.</p>
+<p>He also improved Black Hand. It was his first created spell and even at the time, Caius had known it had potential for more so he could move forward with that even if only a bit.</p>
 <p>And then, there were his attempts to weaponize the instability that was intrinsic to combining Elements for singular spells and that was likely the most difficult of all. But Caius liked to think he was making acceptable progress with that as well.</p>
 <p>And then, there was his Alchemy.</p>
 <p>After outsourcing actual Alchemy to Aylin, Caius had been even freer to focus on Blood Alchemy and its annoyingly low threshold for success.</p>

@@ -11,7 +11,7 @@ chapter = 138
 
 <p>“Yunfei?” He called out to the beauty sleeping on his right side.</p>
 
-<p>“Mmm~~? What is it?” She raised her head, her voice groggy and sweet.</p>
+<p>“Mmm? What is it?” She raised her head, her voice groggy and sweet.</p>
 
 <p>“Aren’t you forgetting something?” Qingyi smiled, watching the expression on the beauty’s face change as a point of realization emerged.</p>
 

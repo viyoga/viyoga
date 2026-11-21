@@ -32,7 +32,7 @@ chapter = 1969
 <p>"Could we take several jobs and divide the work?" Serika asked.</p>
 <p>"Depending on your rank, yes. For starters, we do not allow such a thing to protect our members from their own ambition.</p>
 <p>"But if you’re permitted to split up, you’d tell us who’s going on each quest so we can check that the people actually doing the work meet its requirements. You can remain one party in our register while completing separate contracts."</p>
-<p>"&gt; Ayame leaned against his arm. &lt;They’re protecting you against your own ambition~ Who knew Sarthal would be so prepared to house our arrogant primordial?&gt;</p>
+<p>"&gt; Ayame leaned against his arm. &lt;They’re protecting you against your own ambition Who knew Sarthal would be so prepared to house our arrogant primordial?&gt;</p>
 <p>Quinlan’s mouth twitched, especially as he heard a certain petite samurai’s delicate giggling in his mind.</p>
 <p>"Your numbers can also be an advantage," the clerk continued. "Big contracts have a minimum headcount that surpasses your average team’s numbers. We won’t authorize a departure until enough qualified adventurers have signed on.</p>
 <p>"Clearing a large infestation, for example. You need people watching the exits while others go inside. An expedition might need guards for its camp as well as fighters accompanying the explorers."</p>

@@ -67,7 +67,7 @@ chapter = 378
 
 <p>“I’ll prepare the arrays to speed up their growth soon. It’s good to give them time to multiply before releasing Khaedryss here…” She murmured, her voice mature and sensual.</p>
 
-<p>“Yes, she’s going to have a lot of fun here,” Qingyi gave a muffled chuckle before pulling Ruxue onto his lap and then sinking his face between her breasts, already taking one of her nipples into his lips. “Nghnn~~ you… shameless womanizer, don’t you ever get enough?” Ruxue complained, but didn’t push Qingyi away.</p>
+<p>“Yes, she’s going to have a lot of fun here,” Qingyi gave a muffled chuckle before pulling Ruxue onto his lap and then sinking his face between her breasts, already taking one of her nipples into his lips. “Nghnn you… shameless womanizer, don’t you ever get enough?” Ruxue complained, but didn’t push Qingyi away.</p>
 
 <p>On the contrary, she just pulled him even closer, stroking his black hair, feeling as the first jet of that sweet, creamy, Qi-rich liquid invaded her husband’s mouth.</p>
 

@@ -5,17 +5,17 @@ weight = 847
 chapter = 847
 +++
 
-<p>"Mghnnn~~!!" Yunxi’s cheeks suddenly puffed out as Qingyi’s cock throbbed violently between her lips, thick, scalding jets of semen flooding every corner of her mouth.</p>
+<p>"Mghnnn!!" Yunxi’s cheeks suddenly puffed out as Qingyi’s cock throbbed violently between her lips, thick, scalding jets of semen flooding every corner of her mouth.</p>
 
 <p>In the next instant, amid muffled gags and lewd, wet sounds, she forced herself to swallow every drop, her slender throat convulsing frantically as it struggled to handle the overwhelming torrent that kept gushing out.</p>
 
-<p>"Gulp~ Gulp~ Gulp~ Gulp~"</p>
+<p>"Gulp Gulp Gulp Gulp"</p>
 
 <p>An obscene amount of cum flowed down the tigress’s throat in thick, viscous waves, her eyes welling up from the sheer volume of it.</p>
 
 <p>Only after the seventh gulp did she finally pull back, the enormous member slipping from her rosy lips with a wet pop that echoed through the room.</p>
 
-<p>"Aghnn~~ Fufufu~~" The tigress purred, the taste of her husband’s semen still coating her tongue, her striped tail swaying behind her plump ass, brushing sensually against the soft, ripe cheeks with each languid sweep.</p>
+<p>"Aghnn Fufufu" The tigress purred, the taste of her husband’s semen still coating her tongue, her striped tail swaying behind her plump ass, brushing sensually against the soft, ripe cheeks with each languid sweep.</p>
 
 <p>Her lips glistened, drenched in saliva mixed with cum, still connected to the thick tip of his cock by long, sticky strands of semen.</p>
 

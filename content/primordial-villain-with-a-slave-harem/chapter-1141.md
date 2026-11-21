@@ -32,7 +32,7 @@ chapter = 1141
 <p>He clenched his fists, then snapped them open.</p>
 <p>The earth spat back his will.</p>
 <p>Dozens of compressed water javelins exploded upward all at once, breaking through the soil with breakneck speed. Each spear rose to strike from an angle no one could predict.</p>
-<p>“Between the legs, baby~” Quinlan snickered.</p>
+<p>“Between the legs, baby” Quinlan snickered.</p>
 <p>The first scream came sharp and strangled. Then another. Then a chorus. Fujimori elites who were always so polished, so perfectly armored, so steady in their samurai pride, stumbled and yelped while clutching at their groins as the water spears hammered them with bone-rattling precision. The defenses of their masterwork armor saved them from being skewered outright, but nothing in their steel plating could erase the agony of the impact.</p>
 <p>Even the best defense had weaknesses. They were not immune to taking damage, simply resistant.</p>
 <p>“What is this spell?!” one of the elites cried out while clutching at his groin.</p>

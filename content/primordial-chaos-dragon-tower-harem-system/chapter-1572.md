@@ -5,7 +5,7 @@ weight = 1572
 chapter = 1572
 +++
 
-<p>~122 Pages Later~</p>
+<p>122 Pages Later</p>
 <p>There is one thing to become aware that the Universe Council was behind the downfall of his family, and another to actually do something about it.</p>
 <p>That was where the Ruthless Bandit had found himself. He had never expected that after learning the Universe Council had a hand in his family’s downfall, he wouldn’t have the means to do something about it.</p>
 <p>He was merely an Immortal King, so naturally, he wasn’t at the point where going against demigods, gods, Supremes, and Celestials would be within his strength level.</p>

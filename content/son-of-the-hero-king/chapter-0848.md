@@ -81,7 +81,7 @@ chapter = 848
 <p>How could this not excite her to her very core?</p>
 <p>The texture of his tongue around her sensitive nethers was too vivid, and it became even more so when his tongue suddenly poked over her sensitive clitoris.</p>
 <p>His hot lips wrapped around her clit and began to suck it loudly. Then, as the heat rose, her lower region began to produce even more love juices, proof of her deep excitement.</p>
-<p>" Ahah~ "</p>
+<p>" Ahah "</p>
 <p>Soon, his flexible tongue penetrated her narrow gap and licked her inside tenaciously. Everywhere his tongue touched, a thrill spread out, and she could feel her inner walls melting.</p>
 <p>Suddenly, a finger entered her entrance, making the delicate muscles contract. The thick finger was pushed in deeply, filling her narrow depths to the brim.</p>
 <p>Before long, the fingers that went in and out had already stretched to three and were greedily devoured by her quivering quim. Soon, his fingers began to move faster and faster, stimulating all her weak spots and causing her waist to shake on its own.</p>
@@ -99,7 +99,7 @@ chapter = 848
 <p>As he settled between Medea’s legs and received her approval, Sol slowly pushed his hardened member into her slippery entrance, causing the two of them to draw a sharp breath.</p>
 <p>The tip of his elongated shaft squeezed in through the narrow gap of her honeypot, which was still quivering from the earlier intense climax she received, and he could feel the soft and scalding flesh slowly surround his sensitive rod, forcing him to groan ever so slightly.</p>
 <p>Medea’s whole body trembled vigorously when she felt the heat of his glans on the most secretive and sacred place of her body, but as he slowly pushed in further and further into her sticky depths, she could not help but feel like she was slowly being stuffed full as his meat lance was being gradually sucked in due to her glistening folds.</p>
-<p>“ Ugh~ ”</p>
+<p>“ Ugh ”</p>
 <p>Even as she tried to focus on other things to take her mind away from this growing sense of pleasure, she still felt that, inside of her lower belly, her insides were being forcefully stretched out by the massive rod that belonged to none other than her beloved— now officially, beloved husband.</p>
 <p>When Sol finally inserted his full length into her narrow depths and their hips finally met, she couldn’t help but curl her toes as a new wave of pleasure started to attack her mind, body, and soul in unison. Her love juices started to flow out incessantly, without showing any signs of stoppage, while she was busy clawing at the bed sheets to cope with the pleasure that was slowly but surely threatening to make her lose her mind.</p>
 <p>Even though the room was previously filled with the scent of perfume and air fresheners, right now, only the musky scent of two bodies colliding with each other in the most primal act known to men filled the air with its intoxicating fragrance. Sweat poured down from their bodies ceaselessly.</p>

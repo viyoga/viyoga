@@ -24,12 +24,12 @@ chapter = 75
 <p>"I understand. Then, I'll be going...."</p>
 <p>Shimizu Hideki bowed and returned to his original position. While I was talking to Shimizu Hideki, Arisu had already changed into different clothes and was filming, this time in the form of an elf knight in armor.</p>
 <p>Arisu surprisingly looked good in armor too. She really looked like an elf knight. She changed poses while filming, and each time, she created admiration from those around her with exquisite poses that suited the situation. I just thought she was pretty, but she also had outstanding talent.</p>
-<p>"I'll take a break for a while~!"</p>
+<p>"I'll take a break for a while!"</p>
 <p>After filming for about thirty more minutes, Arisu ran straight to me as soon as the word "break" was over. She was like a golden retriever running to see its owner, so I couldn't help but laugh.</p>
 <p>"Ryuta, how was it? Did I do well?"</p>
 <p>"Yeah, you did really well?"</p>
 <p>I stroked Arisu's blonde hair. She didn't express it, but her hair was slightly damp with sweat, probably because the armor was quite heavy.</p>
-<p>"Wait for me for a moment~. I'll go change my clothes."</p>
+<p>"Wait for me for a moment. I'll go change my clothes."</p>
 <p>Arisu said to me and disappeared somewhere. After waiting a little, Arisu returned wearing simple casual clothes.</p>
 <p>"They said it takes time to change the props and set here to create the atmosphere, so the filming time takes so long."</p>
 <p>"Ah, the person in charge said earlier that some equipment broke down?"</p>
@@ -38,7 +38,7 @@ chapter = 75
 <p>"So, was it hard?"</p>
 <p>"It wasn't hard because of this, but because I can't go on a date with Ryuta...."</p>
 <p>"Hahaha."</p>
-<p>Arisu, who was fidgeting with her index fingers facing each other, was so cute that I laughed without realizing it. Arisu pouted slightly, saying, "Tch~!" when I laughed.</p>
+<p>Arisu, who was fidgeting with her index fingers facing each other, was so cute that I laughed without realizing it. Arisu pouted slightly, saying, "Tch!" when I laughed.</p>
 <p>"How long is the break?"</p>
 <p>"Hmm.... About twenty-five minutes from now?"</p>
 <p>Arisu looked at the time by picking up her phone when I asked. I brought my lips to Arisu's ear and opened my mouth.</p>

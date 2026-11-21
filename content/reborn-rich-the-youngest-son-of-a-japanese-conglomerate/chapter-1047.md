@@ -62,7 +62,7 @@ chapter = 1047
 <p>The vanished Black Sage reappeared 20 meters in the air. He seemed to have used short-range teleportation. The Black Sage repeatedly used short-range teleportation, heading towards the rooftop of the Building where the Fragment of Omniscience was.</p>
 <p>The Lizardman Warlord and Fujigasaki Rinka also ran after the Black Sage. Because the thought that they absolutely must not hand over the Fragment of Omniscience to the Black Sage was strong.</p>
 <p>Fujigasaki Rinka created footholds of the Abyss in empty space and stepped on them, soaring into the Sky, while the Lizardman belatedly began to climb the Building's Wall.</p>
-<p>Gojoy-nim requested Shinoe Misano 1. taking off her Bra, 2. Seduction wearing only Panties~!</p>
+<p>Gojoy-nim requested Shinoe Misano 1. taking off her Bra, 2. Seduction wearing only Panties!</p>
 <p>1.</p>
 <p>2.</p>
 <p>After creating them, I realized she was wearing Panties where her Pussy was visible, so I'm only uploading 2 images haha.</p>

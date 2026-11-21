@@ -64,14 +64,14 @@ chapter = 957
 <p>All the Luggage was gathered and sent in one large truck, and the People decided to move together with me driving a van. After loading all the Luggage, I told the truck driver to take good care of it and sent him off, then I started driving the car to pick up the People.</p>
 <p>I picked up Otagi Yuka, Seizawa Shii, Sakagami Rena, Naruse Shiyo, and Saionji Diana, then stopped by the Hospital to pick up Shimokawabe Airen and Kijimoto Jurie.</p>
 <p>Sabu Fujigasaki Rinka had already gone to the Kujo Family's Tokyo Mansion with Kujo Kina's Party/Group, Genbaki, and his Sabu Musashi Takuro, so I only needed to pick up the remaining People.</p>
-<p>"Ryuta-cchi~! Your Skin has turned quite white since I last saw you?"</p>
+<p>"Ryuta-cchi! Your Skin has turned quite white since I last saw you?"</p>
 <p>Seizawa Shii said as she got into the van, as if it had been a long Time. In fact, it had only been a few days since I last saw her, but it was true that my Skin had turned white. As the Mission approached its end, I hadn't used a Tanning machine for a while, hadn't sprayed Tanning spray, and had continuously applied whitening cream, so my original white Skin before Tanning was gradually being revealed.</p>
 <p>When I arrive in Neo Tokyo, I'll dye my Hair black again to completely hide the fact that I was Yamashiro Ryuta.</p>
 <p>"I was originally white. I deliberately Tanned for the Mission."</p>
-<p>"Oh, really? I want to see White Ryuta-cchi soon~!"</p>
+<p>"Oh, really? I want to see White Ryuta-cchi soon!"</p>
 <p>It had been quite a while since I had lived as a blonde, Tanned, Glasses-wearing Teacher during the Mission, and now I wondered what kind of Reaction the Kids would have when I underwent another Image transformation.</p>
 <p>"Hey, Ryuta-ssi."</p>
-<p>"Sensei-nim~!"</p>
+<p>"Sensei-nim!"</p>
 <p>"Liege/Master...!"</p>
 <p>"Ryuta-nim!"</p>
 <p>As I picked them up one by one, the car became boisterous. After picking up all the Students and going to the Hospital, Shimokawabe Airen, with her pale Skin, who didn't seem to be in full Condition yet, and Kijimoto Jurie, who was writing something, were waiting in front of the Hospital. It seemed they had already completed all the Registration Process.</p>
@@ -81,7 +81,7 @@ chapter = 957
 <p>"Yes. Shimokawabe Sensei-nim, are you feeling a bit better?"</p>
 <p>After picking up the two Teachers, I departed and asked about Shimokawabe Airen's well-being. Shimokawabe Airen had suffered quite a bit from Takakusaki Gengo's Tentacle Poison, but she was slowly Recovering with Kijimoto Jurie's prescription.</p>
 <p>"Thanks to Jurie Sensei-nim, I'm much better. I think I'll be able to wield a Sword in a week."</p>
-<p>"No~! Please postpone wielding your Sword for two more weeks, Airen Sensei-nim~!"</p>
+<p>"No! Please postpone wielding your Sword for two more weeks, Airen Sensei-nim!"</p>
 <p>When Shimokawabe Airen, a battle maniac, said she would start Swordsmanship Training in a week, Kijimoto Jurie, who could be called her Personal Physician, waved both her Hands, trying to stop Shimokawabe Airen. Still, according to Kijimoto Jurie's Words, she would be able to wield a Sword in two weeks, so it seemed her full Recovery was not far off.</p>
 <p>As we exchanged Greetings and talked, the boring driving Time quickly passed, and we took the Tokyo Bay Aqua-Line Road, which could be called the Entrance to Neo Tokyo.</p>
 <p>Along with the Neo Tokyo Business, the Tokyo Bay Aqua-Line also underwent Expansion Construction, greatly increasing the number of Lanes; it was made into twenty Lanes to facilitate smooth traffic between Tokyo and Neo Tokyo.</p>
@@ -92,8 +92,8 @@ chapter = 957
 <p>TheDreaming-nim requested a Remake of Sawayanagi Azuma's Chapter 119 Laboratory Glass Tube: 1. Translucent Dress 2. breast Exposure</p>
 <p>1.</p>
 <p>2.</p>
-<p>Gojoy-nim requested Sakagam Shiine's Casual Clothes and Underwear~!</p>
+<p>Gojoy-nim requested Sakagam Shiine's Casual Clothes and Underwear!</p>
 <p>Casual Clothes</p>
 <p>She's the Mistress of a ninja Family who usually wears a Kimono hehe.</p>
-<p>Underwear~!</p>
-<p>Kkiyot~!</p>
+<p>Underwear!</p>
+<p>Kkiyot!</p>

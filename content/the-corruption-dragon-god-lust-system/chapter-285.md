@@ -41,9 +41,9 @@ chapter = 285
 
 <p>Positioning himself behind them, he grabbed the hem of their V-string panties, pulling them up tightly.</p>
 
-<p>“Nghnn~~ you…”</p>
+<p>“Nghnn you…”</p>
 
-<p>“Mghnn~~ kinder, husband…”</p>
+<p>“Mghnn kinder, husband…”</p>
 
 <p>They moaned in unison, their bodies shuddering as the fabric sank further into the deep, fat valley of their pussies, sliding against their clits.</p>
 
@@ -67,7 +67,7 @@ chapter = 285
 
 <p>His cock slid almost to the tip on her tongue before he pushed it all the way in again.</p>
 
-<p>“Mmmpf!!… gulk… gulp… ah~~~…” Feiyan choked as Qingyi increased the pace, her makeup smeared with tears, her throat constricting around Qingyi’s cock, struggling to swallow even more.</p>
+<p>“Mmmpf!!… gulk… gulp… ah…” Feiyan choked as Qingyi increased the pace, her makeup smeared with tears, her throat constricting around Qingyi’s cock, struggling to swallow even more.</p>
 
 <p>Below her, her pussy was soaking wet, her love fluids dripping from her pale, fat outer lips, forming a small puddle on the floor.</p>
 
@@ -103,7 +103,7 @@ chapter = 285
 
 <p>“Ghuh!!!” Qingxue’s eyes widened as she felt Qingyi cum explode in her throat. Unable to back down because Feiyan was behind her, she could only swallow obediently.</p>
 
-<p>“Yeah… don’t waste it, feel husband’s fucking stomach, fufufu~~” Feiyan teased, massaging Qingxue’s slender belly.</p>
+<p>“Yeah… don’t waste it, feel husband’s fucking stomach, fufufu” Feiyan teased, massaging Qingxue’s slender belly.</p>
 
 <p>After finally withdrawing from the white-haired beauty, Isabel was next.</p>
 

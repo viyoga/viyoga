@@ -48,7 +48,7 @@ chapter = 794
 <p>Everyone's phone rang while they were watching TV and talking about this Incident. Checking my phone, I saw an alarm from the Dark Market.</p>
 <p>-Kotowazuki's bounty of 641,383 Points has been deposited. Please check your Points Account.</p>
 <p>Since 1 dollar is 1 Point, it seemed to have come in roughly correctly. That's about 920 million Korean Won. Calculating it, the commission for the total of 1.22 billion yen seemed to be roughly 10 million yen.</p>
-<p>"Oh! The Money's in~! I won't have to Work for a while. Hehe~☆"</p>
+<p>"Oh! The Money's in! I won't have to Work for a while. Hehe☆"</p>
 <p>Seizawa Shii smiled cheerfully, looking at the Money deposited in her Dark Market Account. She had been saying she was running a deficit after foolishly acquiring a coin laundry, but now that she had earned Money this time, she seemed to be in a good Mood.</p>
 <p>"Everyone's finished eating, right?"</p>
 <p>As I asked, intending to break up the gathering since the Students had finished eating and received their Money, the Students, seeing the still-unopened food packages in front of me, spoke up.</p>
@@ -69,7 +69,7 @@ chapter = 794
 <p>"Don't think that way. You can just think of it as a trip where we all worked together to catch a Villain."</p>
 <p>At my Words that the end was disappointing, Minamoto Risa shook her Head and said. Indeed, what high school students could have gone on a ski resort trip and caught a serial Killer? Unless they were people like Conan or Kindaichi from manga or anime, that is.</p>
 <p>"Exams are on Monday, so study a little. See you on Monday."</p>
-<p>"Eh, no way~!"</p>
+<p>"Eh, no way!"</p>
 <p>""Yes!""</p>
 <p>"Do I have to pass the cut-off line this time too...?"</p>
 <p>As I greeted them, the Students showed various reactions and exited the special class building, where each Family's vehicle was waiting for them. Perhaps because they had caught Kotowazuki, who had plunged all of Japan into Fear, more luxurious vehicles than usual were waiting.</p>
@@ -86,13 +86,13 @@ chapter = 794
 <p>"I told my Mother not to come. She said she'd be waiting at Home with delicious food."</p>
 <p>"Then shouldn't you have not eaten dinner at the club room?"</p>
 <p>"Ehehe, that's why I only ate a little at the club room."</p>
-<p>"I still have things I want to eat, Teacher-ssi~!?"</p>
+<p>"I still have things I want to eat, Teacher-ssi!?"</p>
 <p>I chatted somewhat cheerfully with the remaining Students as we left the darkened special class building and headed Home.</p>
-<p>Kiyona Hori &amp; Mari Sisters' Casual Attire and Belly Dancer Attire requested by Gojoy-nim~!</p>
+<p>Kiyona Hori &amp; Mari Sisters' Casual Attire and Belly Dancer Attire requested by Gojoy-nim!</p>
 <p>Hori's Casual Attire - Since she works part-time at a maid cafe, I dressed her in a maid outfit haha</p>
-<p>Hori's Belly Dancer~!</p>
-<p>Mari's Casual Attire~! A maid outfit, of course~!</p>
-<p>Belly Dancer~!</p>
-<p>Liz's Knit and Mini Skirt requested by seungj050-nim~!</p>
+<p>Hori's Belly Dancer!</p>
+<p>Mari's Casual Attire! A maid outfit, of course!</p>
+<p>Belly Dancer!</p>
+<p>Liz's Knit and Mini Skirt requested by seungj050-nim!</p>
 <p>When I typed in "mini skirt," many images came out where it was so short it was completely swallowed by the knit sweater haha</p>
 <p>Like this haha</p>

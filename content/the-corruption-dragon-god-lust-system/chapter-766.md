@@ -75,7 +75,7 @@ chapter = 766
 
 <p>Immediately, the sword began to transform in his palm.</p>
 
-<p>[Nghnn~~ Q-Qingyi... my other fragments... what’s happening?] Ruxue’s voice trembled in Qingyi’s mind, accompanied by a sweet, gasping moan as she felt her own power swell and pulse from deep within.</p>
+<p>[Nghnn Q-Qingyi... my other fragments... what’s happening?] Ruxue’s voice trembled in Qingyi’s mind, accompanied by a sweet, gasping moan as she felt her own power swell and pulse from deep within.</p>
 
 <p>Wave after wave of returning energy flooded every corner of her essence, each surge drawing another shuddering breath from her.</p>
 

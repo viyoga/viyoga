@@ -78,9 +78,9 @@ chapter = 995
 <p>1.</p>
 <p>For some reason, images of her covering herself properly with the Entwined Sheets don't come out well ㄷㄷ.</p>
 <p>2.</p>
-<p>Requested by MidNightSKY-nim: Lisa, happy that the publishing game hit the Jackpot, and Ryuta, who received Contact from Lisa and is happy together with her~!</p>
-<p>Starting with Lisa~!</p>
+<p>Requested by MidNightSKY-nim: Lisa, happy that the publishing game hit the Jackpot, and Ryuta, who received Contact from Lisa and is happy together with her!</p>
+<p>Starting with Lisa!</p>
 <p>If you look closely, her Eyes are shaped like the Yen symbol (￥) hehe.</p>
-<p>Ryuta~!</p>
+<p>Ryuta!</p>
 <p>VER. heard the Story via Text Message.</p>
 <p>Receiving a Phone Call doesn't come out very well ㄷㄷ.</p>

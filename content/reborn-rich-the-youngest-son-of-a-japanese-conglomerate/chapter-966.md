@@ -22,7 +22,7 @@ chapter = 966
 <p>Fujigasaki Rinka seemed quite pleased to receive a gift from me, her Disciple. Come to think of it, I had never given Sabu a separate gift before. Before, when I was in Miyashi, I had flash-frozen pudding made from Simyeonui ttal's Milk and sent it via express delivery, but that was it.</p>
 <p>"Next is Shii."</p>
 <p>I gave Seizawa Shii earrings as a gift. Although it was an Equipment Item, as a disposable Item, it had an option to block once when Faint or afflicted with a Confusion status effect. It was an earring that would allow Seizawa Shii to escape a crisis caused by her relatively low Mental Power once.</p>
-<p>"Earrings? Ryuta-cchi, you don't just give gifts like this, Ryuta-cchi has to put them on personally~!"</p>
+<p>"Earrings? Ryuta-cchi, you don't just give gifts like this, Ryuta-cchi has to put them on personally!"</p>
 <p>"Oh, really? Then come over here."</p>
 <p>When I simply handed her the earrings, Seizawa Shii grumbled, giving me a slight sidelong Gaze, so I said I understood and decided to put them on for her myself.</p>
 <p>At my Words, Seizawa Shii narrowed her Eyes and smiled, approaching me, and swept her Hair behind her Sensitive Ear, where, on Seizawa Shii's white Nape, I was slightly surprised to see the kiss mark I had left on her Neck.</p>
@@ -46,7 +46,7 @@ chapter = 966
 <p>"Kiyohira's signature and Fujigasaki Rinka's signature simultaneously on a Glove, that's a good gift, right?"</p>
 <p>"...."</p>
 <p>Kujo Kina, who received the gift, said nothing. Was the gift not good? When I looked at her, it seemed her Soul had momentarily left her Body. Soon, with a "Kki-eek!" she let out a strange roar, then holding one Glove in each Hand, she was jumping up and down with joy.</p>
-<p>"Sensei~! You're the best! This is my favorite gift I've ever received!!"</p>
+<p>"Sensei! You're the best! This is my favorite gift I've ever received!!"</p>
 <p>"Yes, if you're happy, that's enough."</p>
 <p>At Kujo Kina's Reaction, I smiled and took out the last gift. And to Seiwa Rieko, who hadn't expected to receive a gift, and was standing a little distance away, I went and handed her a Gift Box.</p>
 <p>"Here's a gift. It's a welcome gift for joining our Group."</p>
@@ -66,7 +66,7 @@ chapter = 966
 <p>"I understand, so Sabu, be careful. If Sajo was defeated, Sabu could also be in Danger, couldn't she?"</p>
 <p>"Actually, I'm much stronger than Sabu, so don't Worry about that. I have many grateful People helping me."</p>
 <p>Indeed, with so many People helping, nothing dangerous would happen. I hugged Sabu as if I understood, and said, "Have a good trip." When I suddenly hugged her, Fujigasaki Rinka seemed surprised, but then chuckled and patted my Back.</p>
-<p>"Ryuta-cchi~! I'll be back~! Don't forget to prepare a hefty request fee~☆"</p>
+<p>"Ryuta-cchi! I'll be back! Don't forget to prepare a hefty request fee☆"</p>
 <p>"If you only succeed, I'll generously give you a success Reward, so look forward to it."</p>
 <p>Since I had decided to cover Seizawa Shii's request fee, Seizawa Shii smiled with a devilish Face, and talked about the request fee.</p>
 <p>"I'll be back, Ryuta-ssi."</p>
@@ -74,12 +74,12 @@ chapter = 966
 <p>"Don't Worry. I survived a year alone, and this time, I'm not alone, am I?"</p>
 <p>At my Words, Otagi Yuka smiled as if telling me not to Worry. Yes, Otagi Yuka, who survived a year alone in New York to get boksu for her friend, will surely do well.</p>
 <p>"Th, then...!"</p>
-<p>Seiwa Rieko, perhaps awkward even greeting me, a man, blushed and half-heartedly greeted me, passing by awkwardly, while Kujo Kina, walking with a dazed Expression, looking at the Gloves, soon came to her senses and waved the Gloves at me, shouting, "I'll buy you a gift~!"</p>
+<p>Seiwa Rieko, perhaps awkward even greeting me, a man, blushed and half-heartedly greeted me, passing by awkwardly, while Kujo Kina, walking with a dazed Expression, looking at the Gloves, soon came to her senses and waved the Gloves at me, shouting, "I'll buy you a gift!"</p>
 <p>"They finally left."</p>
 <p>As I muttered, watching the disappearing Back View of the USA-bound Party, Saionji Diana approached me.</p>
 <p>"Are we going straight back to the mansion?"</p>
 <p>At Saionji Diana's Question, I shook my Head. My business at the Airport wasn't over yet.</p>
 <p>"No, there's still someone I need to meet at the Airport."</p>
-<p>Gojoy-nim requested Arisu's Tape attire and Breast Covering~!</p>
-<p>First, Tape~!</p>
-<p>Breast Covering~!</p>
+<p>Gojoy-nim requested Arisu's Tape attire and Breast Covering!</p>
+<p>First, Tape!</p>
+<p>Breast Covering!</p>

@@ -15,7 +15,7 @@ chapter = 971
 <p>'Ryuta's rich pre-cum is also delicious...♥ Ryuta, can I eat more?'</p>
 <p>Perhaps because it was the first time in a while that she had tasted my pre-cum, I felt her getting more and more aroused. It felt like she was really asking if she could eat more, so I nodded my Head.</p>
 <p>When I answered that she could eat as much as she wanted, Yukiko laughed with a wu-hut-hut, pushed me towards the Bed, and squatted on top of me as I lay on the Bed. She held my cock shaft with one Hand and touched my Body with the other, looking into my Eyes.</p>
-<p>'I will enjoy Ryuta's cock~♥'</p>
+<p>'I will enjoy Ryuta's cock♥'</p>
 <p>With those Words, Yukiko swallowed my cock in one gulp. And she made her cheeks hollow and started doing Vacuum Fellatio.</p>
 <p>'Keueok...! Yukiko-ssi, it feels so good!'</p>
 <p>As expected, the Vacuum Fellatio that a Succubus does was something different. It was an incredible sucking Sensation, as if she was sucking up the Semen straight from my Balls, like sucking Milk from a cup with a straw.</p>
@@ -36,7 +36,7 @@ chapter = 971
 <p>Since my cock size was large, the amount of Blood gathered to make my cock erect would also be considerable, so it was natural that it felt quite heavy. Yukiko wiggled her Pelvis slightly, as if she liked my heavy cock pressing down on her pussy. I didn't Insert it right away, but only wiggled my Waist to slowly rub my cock on top of her pussy.</p>
 <p>'Heueung, heuahang...! Don't be mean...♥'</p>
 <p>Yukiko, moaning, whined at me, thinking that not Inserting it was being mean. I wondered what would happen if I didn't Insert it like this, so I put on a slightly mischievous Smile and continued to wiggle my Waist, rubbing it on top of her pussy as it was.</p>
-<p>'Haaht! Haeu, geez~! Heueung, Ryutaah, you're so mean...!'</p>
+<p>'Haaht! Haeu, geez! Heueung, Ryutaah, you're so mean...!'</p>
 <p>Yukiko moaned because of the pleasure of rubbing her pussy, stretched out her Arm, grabbed the Back of my neck, and pulled me. And a Kiss. Yukiko's Tongue Invaded my Mouth.</p>
 <p>Come to think of it, we went straight into Sex without even Kissing. We must have both lost our Fading Reason a little because it had been so long since we had seen each other.</p>
 <p>Tzup...! Tzubeup, jjok...! Jeubeup...! Jjok...!</p>
@@ -64,12 +64,12 @@ chapter = 971
 <p>'Haeuhaaaang...! Put Ryuta's Semen in my deepest Place♥'</p>
 <p>Ulkeok! Ulkeok! Ulkeoeok!!</p>
 <p>I pressed my Waist against Yukiko's pussy as much as possible and ejaculated inside Yukiko's pussy as much as possible. Yukiko also reached Climax at the same time, trembling all over her Body and receiving my Semen into her uterus.</p>
-<p>Yukiko B-cut~!</p>
-<p>TheDreaming-nim requested a Remake of Dangsohwa Episode 206 (Before True Education) and Episode 210 (After True Education)~!</p>
+<p>Yukiko B-cut!</p>
+<p>TheDreaming-nim requested a Remake of Dangsohwa Episode 206 (Before True Education) and Episode 210 (After True Education)!</p>
 <p>Before True Education</p>
 <p>After True Education!</p>
 <p>Because I applied Semen to her Body, her pussy ate the g-string, so I changed it to normal panties hehe.</p>
-<p>Gojoy-nim requested Suzuki Chisami 1. Welcoming Ryuta 2. Seduction in the office~!</p>
+<p>Gojoy-nim requested Suzuki Chisami 1. Welcoming Ryuta 2. Seduction in the office!</p>
 <p>1.</p>
 <p>I made the welcoming Appearance with a Wink hehe.</p>
 <p>2.</p>
@@ -77,6 +77,6 @@ chapter = 971
 <p>MidNightSKY-nim requested a breast size competition Alik vs Tsukiyo...!</p>
 <p>Tsukiyo</p>
 <p>Tsukiyo, who didn't even take off her bikini top after seeing Alik's size....</p>
-<p>Alik~!</p>
+<p>Alik!</p>
 <p>Alik's Smile of Victory hehe</p>
 <p>Bonus IF Story Tsukiyo's Victory</p>

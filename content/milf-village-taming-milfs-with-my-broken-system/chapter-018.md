@@ -11,7 +11,7 @@ chapter = 18
 
 <p>&quot;D-did you notice?&quot; She was truly caught like a mouse in a trap!</p>
 
-<p>&quot;Hehe... of course. I would never miss such burning glances from you Aunt~&quot; Owen guided her hands to his rod.</p>
+<p>&quot;Hehe... of course. I would never miss such burning glances from you Aunt&quot; Owen guided her hands to his rod.</p>
 
 <p>It was almost a shame that he was still fully clothed; the fabric was hindering the maximum sensation of her delicate hands, but it was still incredible as long as Morenne was the one providing the pleasure.</p>
 
@@ -57,7 +57,7 @@ chapter = 18
 
 <p>&quot;I-i’m... too embarrassed to say...&quot; Morenne accelerated her movements, as if craving his compliments! It was fueling her scandalous thoughts to an absolute peak.</p>
 
-<p>&quot;Hehe... acting shy when you’re the very one who brought me here~?&quot; Owen reached out, placing his hand near her head.</p>
+<p>&quot;Hehe... acting shy when you’re the very one who brought me here?&quot; Owen reached out, placing his hand near her head.</p>
 
 <p>Morenne was intentionally concealing her face behind her cascading blonde hair so he wouldn’t see the exact expression she was making.</p>
 
@@ -73,13 +73,13 @@ chapter = 18
 
 <p>’Holy hell... she has the audacity to say that while her hands are moving faster!’ Owen marveled at her beautiful hypocrisy.</p>
 
-<p>&quot;Hehe... doesn’t that just make it infinitely more exhilarating~?&quot; Owen whispered back, sending sharp shivers down her spine.</p>
+<p>&quot;Hehe... doesn’t that just make it infinitely more exhilarating?&quot; Owen whispered back, sending sharp shivers down her spine.</p>
 
 <p>His smooth-talking voice was completely muddling her senses, forcefully yet comfortably invading her sanity.</p>
 
 <p>&quot;S-shh... I’m only doing this for your wish, understand? Now please, just let me finish the job.&quot; She tried to silence him again, which only caused his wicked smirk to widen.</p>
 
-<p>&quot;It’s entirely your fault that we’re engaging in this behavior, so you need to take full responsibility. You are my dear Auntie, after all~&quot;</p>
+<p>&quot;It’s entirely your fault that we’re engaging in this behavior, so you need to take full responsibility. You are my dear Auntie, after all&quot;</p>
 
 <p>Staying quiet was for fools; he possessed broken, legendary skills, and it was time to utilize them to their maximum potential.</p>
 
@@ -87,7 +87,7 @@ chapter = 18
 
 <p>Morenne wanted to bring the encounter to a swift conclusion, terrified that her husband might return at any given second.</p>
 
-<p>&quot;Then work a little faster... how about you remove my pants to speed up the process Aunt~?&quot;</p>
+<p>&quot;Then work a little faster... how about you remove my pants to speed up the process Aunt?&quot;</p>
 
 <p>There’s a paused, as the sound of rubbing echoed...but it didn’t last long.</p>
 

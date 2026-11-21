@@ -87,7 +87,7 @@ chapter = 5
 <p>His heart fluttered at the thought that such a pretty and serious girl like Setsuna put up with her embarrassment just for him.</p>
 <p>‘The usual strong and stoic Setsuna can also look this lewd.’</p>
 <p>While making naughty and sloppy noises, the titfucking became more intense. From the root to the tip, she stimulated every part of it deliberately, and the urge to ejaculate gradually became more and more apparent..</p>
-<p>“Ah~! Sol..something is dripping from the tip for some time now...”</p>
+<p>“Ah! Sol..something is dripping from the tip for some time now...”</p>
 <p>“It’s called precum. It comes out when I feel really good.”</p>
 <p>“You feel good with me, right? Better than with Milia?”</p>
 <p>‘What a terrifying question.’</p>
@@ -104,7 +104,7 @@ chapter = 5
 <p>She was surprised at first, and some globs of cum landed on her face, but she came close with haste and wrapped her mouth around the engorged head.</p>
 <p>Sol felt like, if there was heaven, then he was there right now. Finally, once he finished, he retired his cock out of her mouth.</p>
 <p>“Don’t swallow yet. Please show it to me.”</p>
-<p>“Ah~!” She opened her mouth wide without hesitation and showed him the white cloudy liquid in her mouth. Embarrassment had gone down the window long ago for her and she just did everything he asked instinctively at this point.</p>
+<p>“Ah!” She opened her mouth wide without hesitation and showed him the white cloudy liquid in her mouth. Embarrassment had gone down the window long ago for her and she just did everything he asked instinctively at this point.</p>
 <p>“Now you can swallow.”</p>
 <p>*Gulp* *Gulp*</p>
 <p>“Ugh! It’s a little bit bitter.”</p>
@@ -112,7 +112,7 @@ chapter = 5
 <p>"Good job. You really are a good girl, Setsuna."</p>
 <p>He patted her head affectionately and enjoyed the vision of her fluffy tail wagging all over in happiness while she closed her eyes and showed a happy smile. The trickle of cum on the side of her face made for an incredible composition between cuteness and eroticism.</p>
 <p>After a while though, Setsuna's expression slowly went from calm to aroused. Her breath shortened to a hitch as she leaked intermittent hot sighs,</p>
-<p>“Sol~!”</p>
+<p>“Sol!”</p>
 <p>“Hmm? What’s up, Setsuna?”</p>
 <p>“I... I too... I cannot stand it anymore...”</p>
 <p>Setsuna stood up, before showing her back to him as she used a nearby three as a crutch and stuck out her butt to him before looking over her shoulder. Her face was rosy and her eyes vacant, glazed over with beastial lust, as if she couldn’t control herself anymore.</p>

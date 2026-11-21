@@ -1,5 +1,5 @@
 +++
-title = "Chapter 629: Satisfied Already~?"
+title = "Chapter 629: Satisfied Already?"
 weight = 629
 [extra]
 chapter = 629
@@ -77,7 +77,7 @@ chapter = 629
 
 <p>The breasts of a goddess were pressed warm and full against his face, and a draconic beauty on all fours took him in, her tight, hot pussy gripping his cock with every thrust.</p>
 
-<p>“Ah~~ aghnn~~ fuck~~ Q-Qingyi~~♡” Khaedryss’s sensual, mature voice echoed through the room, muffled by the pillow into which she had buried her face.</p>
+<p>“Ah aghnn fuck Q-Qingyi♡” Khaedryss’s sensual, mature voice echoed through the room, muffled by the pillow into which she had buried her face.</p>
 
 <p>She lay with her head pressed down into the bed, her ass raised high and her back arched in a perfect curve, the obsidian skin of her full, round buttocks gleaming with sweat.</p>
 
@@ -95,7 +95,7 @@ chapter = 629
 
 <p>A thin trickle of milk traced a slow, warm line down the full curve of her breast.</p>
 
-<p>“Nghnn~~ are you satisfied already?♡” Auranys asked with a shy smile, watching the trickle with half-lidded eyes.</p>
+<p>“Nghnn are you satisfied already?♡” Auranys asked with a shy smile, watching the trickle with half-lidded eyes.</p>
 
 <p>“Not even close.” Qingyi smiled, then brought his palm down in a firm slap across her butt, the sound sharp and clean in the warm air of the room.</p>
 

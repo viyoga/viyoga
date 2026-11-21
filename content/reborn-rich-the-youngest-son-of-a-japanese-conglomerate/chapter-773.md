@@ -6,7 +6,7 @@ chapter = 773
 +++
 
 <p>before chapter check contains erotic please surroundings this your</p>
-<p>"Ah, it's fun to glide on the snow after so long~!"</p>
+<p>"Ah, it's fun to glide on the snow after so long!"</p>
 <p>Kujo Kina began chattering excitedly inside the bus. As Kujo Kina was the most athletic and sports-loving Woman in the special class, she seemed incredibly thrilled about winter sports after a long time. Especially since she was with her Friends, she couldn't help but be even more excited.</p>
 <p>"Ah, I'm so frustrated!"</p>
 <p>"I didn't know Kina-cchi was so good at snowboarding.... I shouldn't have made that bet."</p>
@@ -16,7 +16,7 @@ chapter = 773
 <p>"Just.... A family restaurant meal after school."</p>
 <p>Otagi Yuka answered my question. I thought they had made a big Bet, but it turned out to be just a Meal at a family restaurant. If it had been a large-scale Bet, I would have said something as their Class Teacher, but this seemed fine to let slide.</p>
 <p>"Tomorrow's Event will be skiing! I'm not very used to snowboarding."</p>
-<p>"Kyahaha~! Good~! What do you want to bet on? Even if we change the Event, it won't be easy for Shii-chan to win, will it?"</p>
+<p>"Kyahaha! Good! What do you want to bet on? Even if we change the Event, it won't be easy for Shii-chan to win, will it?"</p>
 <p>Seizawa Shii's Spirit of competition was ignited, and she suggested competing again tomorrow, but Kujo Kina, confident in skiing as well, laughed and provoked Seizawa Shii, saying it wouldn't be easy for her to win.</p>
 <p>"But why is Kina so confident?"</p>
 <p>"The Kujo Group also runs a Resort Business, so I often went on inspections with my dad and Older Brother when I was little. Though for me, it was more about skiing or snowboarding than actual inspections."</p>
@@ -25,7 +25,7 @@ chapter = 773
 <p>"Actually, this is only my second time at a ski resort. I've gotten a bit used to it today, so maybe I'll be better tomorrow?"</p>
 <p>Before I knew it, the topic of conversation had shifted to my snowboarding Skill, and while we were talking, we quickly arrived back at the Resort.</p>
 <p>"Change your Clothes and come out right away. I've made a restaurant Reservation."</p>
-<p>"Alright~! I'm hungry from all the exercise."</p>
+<p>"Alright! I'm hungry from all the exercise."</p>
 <p>Today, we decided to have our Meal at the Resort's restaurant. Since it was a long 3-night, 4-day schedule, there would be plenty of opportunities to eat at famous restaurants around Shiga Kogen in Nagano, so for the first day, when separate preparations were difficult, we decided to simply eat at the Resort.</p>
 <p>Of course, as a restaurant in a VIP-exclusive Resort, the Meals were said to be quite good.</p>
 <p>We left our snow-covered equipment at the Resort Counter, took the elevator back to our Rooms, and changed our Clothes.</p>
@@ -83,15 +83,15 @@ chapter = 773
 <p>Perhaps because we were hungry from skiing and snowboarding, or because the Meal here was excellent, every dish was delicious.</p>
 <p>"Ryuta, ah...!"</p>
 <p>Starting with Alik, all the Students began to put Food into my Mouth one by one, and eventually, I became incredibly full, but we had a delightful Evening Mealtime.</p>
-<p>Athena, requested by Mirumar2-nim, after a long time~!</p>
-<p>Rampaging Otagi Yuka requested by MidNightSKY-nim~! (Casual Clothes, Battle Suit, Bikini, Nude)</p>
+<p>Athena, requested by Mirumar2-nim, after a long time!</p>
+<p>Rampaging Otagi Yuka requested by MidNightSKY-nim! (Casual Clothes, Battle Suit, Bikini, Nude)</p>
 <p>I considered Casual Clothes to be her School Uniform, so I used that, hehe.</p>
-<p>Battle Suit~!</p>
-<p>Bikini~!</p>
-<p>Nude~!</p>
+<p>Battle Suit!</p>
+<p>Bikini!</p>
+<p>Nude!</p>
 <p>I couldn't quite capture the rampaging Feeling ㅠㅠ</p>
-<p>Asada Ei in Casual Clothes, Underwear, and Belly Dancer Attire, requested by Gojoy-nim~! Nude images were excluded as they would feel like spoilers for a Character who hasn't had sex with Ryuta-cchi yet, hehe.</p>
+<p>Asada Ei in Casual Clothes, Underwear, and Belly Dancer Attire, requested by Gojoy-nim! Nude images were excluded as they would feel like spoilers for a Character who hasn't had sex with Ryuta-cchi yet, hehe.</p>
 <p>Her Outing attire is a long Coat, turtleneck, Skirt, and Boots, but the Clothes she wears most often are a Suit with a function to replenish Cold energy, hehe.</p>
-<p>Underwear~!</p>
-<p>Belly Dancer~!!</p>
+<p>Underwear!</p>
+<p>Belly Dancer!!</p>
 <p>I tried to capture the pale Skin Color and expressionless Feeling befitting a Seolnyeo, hehe.</p>

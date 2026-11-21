@@ -63,7 +63,7 @@ chapter = 422
 
 <p>He brought one of his hands to her buttocks, his palm landing on the perfect, plump, chocolaty globes with a powerful impact.</p>
 
-<p>“Nghnn~~” Isabel moaned, panting heavily.</p>
+<p>“Nghnn” Isabel moaned, panting heavily.</p>
 
 <p>Her ass trembled with the impact, Qingyi’s fingers sinking into the vast, soft flesh.</p>
 
@@ -93,7 +93,7 @@ chapter = 422
 
 <p>Qingyi couldn’t help but salivate as he positioned himself between Isabel’s thighs.</p>
 
-<p>His huge cock escaped its confinement and the ten-inch rod hit Isabel’s pussy with a soft, wet smack, the reddish tip sinking into her panties, pressing against the puffy, plump mound of her vulva. “Nghnn~~ hubby…” Isabel moaned, feeling the weight of Qingyi’s cock, her lips parting in heavy gasps.</p>
+<p>His huge cock escaped its confinement and the ten-inch rod hit Isabel’s pussy with a soft, wet smack, the reddish tip sinking into her panties, pressing against the puffy, plump mound of her vulva. “Nghnn hubby…” Isabel moaned, feeling the weight of Qingyi’s cock, her lips parting in heavy gasps.</p>
 
 <p>She was already very close to her limit.</p>
 

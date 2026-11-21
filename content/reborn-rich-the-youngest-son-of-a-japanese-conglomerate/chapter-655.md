@@ -5,7 +5,7 @@ weight = 655
 chapter = 655
 +++
 
-<p>,Haaam~! What's the topic of today's meeting?</p>
+<p>,Haaam! What's the topic of today's meeting?</p>
 <p>Takakusaki Athena, dressed in light clothing, stretched and yawned as she sat at the round table.</p>
 <p>"You're late. Punctuality is a basic human virtue."</p>
 <p>The large, red-haired man, Kaishu Kakan, scolded the slightly late Takakusaki Athena.</p>

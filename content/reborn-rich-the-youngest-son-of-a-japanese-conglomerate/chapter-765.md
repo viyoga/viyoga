@@ -52,7 +52,7 @@ chapter = 765
 <p>Minamoto Risa and I drank Maekju and ate ramen. Drinking the cool Maekju and eating the warm ramen made my Body feel pleasantly relaxed and I felt good. While also having Conversation, we, who had happily enjoyed ramen and Maekju, decided to exchange the Gifts we had bought at Donkey Donkey.</p>
 <p>Of course, I had no Intention of giving her the Cat underwear here. What with the Eyes of the people around us, you know.</p>
 <p>"Here."</p>
-<p>As I held out the Cat Headband, Minamoto Risa made an Expression like, 'What is this~?' along with a slightly relieved Expression. She had said there was nothing she liked at Donkey Donkey, so the Cat ear Headband I chose seemed to be the better option.</p>
+<p>As I held out the Cat Headband, Minamoto Risa made an Expression like, 'What is this?' along with a slightly relieved Expression. She had said there was nothing she liked at Donkey Donkey, so the Cat ear Headband I chose seemed to be the better option.</p>
 <p>"You want me to wear this?"</p>
 <p>"Later."</p>
 <p>"...Byeontae."</p>

@@ -31,12 +31,12 @@ chapter = 460
 <p>Carmilla stayed there for a moment, her throat pulsing around him, before slowly pulling back.</p>
 <p>The shaft slid out glistening, covered in saliva that dripped in strands down the vampire’s chin and onto the swell of her breasts, the cold drops sliding into the deep valley between them.</p>
 <p>The head left the tight grip of her mouth with a wet pop, and a thread of drool still connected the tip to her red lips as she looked up at him.</p>
-<p>“Ah~ my dear husband is simply delicious…” She ran her tongue over her lips, wiping away the saliva, her fangs appearing in a dangerous smile. “I confess… it is terribly difficult to resist taking a bite.”</p>
+<p>“Ah my dear husband is simply delicious…” She ran her tongue over her lips, wiping away the saliva, her fangs appearing in a dangerous smile. “I confess… it is terribly difficult to resist taking a bite.”</p>
 <p>“I have no problem with you drinking my blood. I hold no prejudice against my wives,” Ethan said, without a trace of shame on his face. “But I’d prefer that, from my cock, you only drink the white essence. You can drink the red one from my neck.”</p>
 <p>Carmilla froze for a second, blinking as if she couldn’t believe what she’d heard.</p>
 <p>Then she burst into laughter—shrill and sweet at the same time—her noble, sensual voice echoing through the room.</p>
 <p>Her shoulders shook with it, and her heavy breasts quivered along with them, the pale flesh trembling in small, soft ripples as they bumped against one another, the pink tips wobbling with every giggle.</p>
-<p>“Hm~~” She grabbed Ethan’s cock with both hands, her cold, slender fingers barely able to wrap around its thickness.</p>
+<p>“Hm” She grabbed Ethan’s cock with both hands, her cold, slender fingers barely able to wrap around its thickness.</p>
 <p>She pressed the shaft against her cheek, rubbing her face along its sticky length like a cat marking its territory, and gazed at it up close, her cool breath brushing against his damp skin.</p>
 <p>“Your soul is a curious thing, did you know? Well… you are rather strange in general, but your soul is… hm…”</p>
 <p>She gripped his cock between her hands, both sliding along the veiny shaft, her saliva letting her palms glide over it with a soft, wet sound.</p>
@@ -71,7 +71,7 @@ chapter = 460
 <p>She let her head fall back, resting it against Ethan’s powerful chest. Her golden hair spread across his shoulder, and her scent—something ancient, sweet, and cold like a winter night—rose to his nose.</p>
 <p>For a moment, the two of them were silent.</p>
 <p>There was only the sound of his deep breathing returning to normal, and the warmth of his body gradually seeping into her icy skin.</p>
-<p>“Fuufufufu~ I am aware this was rather sudden, my Emperor, but I have been a virgin for nearly ten thousand years… have you any notion how terrible it was to wait all this time?” she asked, nestling into Ethan’s chest as his arms wrapped around her, holding her close.</p>
+<p>“Fuufufufu I am aware this was rather sudden, my Emperor, but I have been a virgin for nearly ten thousand years… have you any notion how terrible it was to wait all this time?” she asked, nestling into Ethan’s chest as his arms wrapped around her, holding her close.</p>
 <p>His forearms rested just below those heavy, round breasts, lifting them slightly, and he felt their full weight settle onto his arms—soft, cold, the pliant flesh spilling over his muscles.</p>
 <p>One of his hands slid down her smooth stomach, the skin cool and flawless under his palm, his warm fingers tracing the curve of her waist. Carmilla let out a satisfied sigh.</p>
 <p>“Well then, shall we introduce ourselves properly?” She raised a hand and caressed his face from bottom to top, her cold fingers tracing the line of his jaw.</p>

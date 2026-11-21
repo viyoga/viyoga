@@ -29,7 +29,7 @@ chapter = 748
 <p>"It's about how far we go. It's about how much we're going to hurt Taira Kanna, who is suspected of being the kidnapper, and the goons guarding that building."</p>
 <p>"Well, since the opponent is the youngest daughter of the Tairaga, it's a bit much to kill her, right? The repercussions wouldn't be small."</p>
 <p>"Isn't it simple? We just don't kill them. Being incapacitated should be fine, right? Medical technology is good these days, isn't it?"</p>
-<p>"That's right~! We have to show them the price for kidnapping Ryuta-jji~!"</p>
+<p>"That's right! We have to show them the price for kidnapping Ryuta-jji!"</p>
 <p>Some agreed with Sakagami Rena's words, but Otagi Yuka and Seizawa Shii set the same standard as if there was nothing to even listen to.</p>
 <p>The standard was to not kill, but to inflict damage equivalent to being incapacitated. All the students nodded as if they liked that standard.</p>
 <p>After setting the standard and finishing all preparations, the students exchanged glances and then simultaneously ran off.</p>
@@ -39,7 +39,7 @@ chapter = 748
 <p>"Alik, you've really improved, huh?"</p>
 <p>Otagi Yuka said, slightly surprised by Alik's movements. Alik was originally quick, but his speed had become even faster.</p>
 <p>"Yuka, give me compliments after we save Ryuta."</p>
-<p>"Puhahat~! So you want to be praised after all."</p>
+<p>"Puhahat! So you want to be praised after all."</p>
 <p>"Yeah...! Alik likes praise."</p>
 <p>Otagi Yuka burst out laughing at Alik's words. It seemed like everyone's tension had eased a little at Alik's words.</p>
 <p>It wasn't good to be too tense for a rescue mission, so it was a good thing for the homeroom teacher rescue squad. Everyone, having relieved their tension a little, entered the still-open door of the building.</p>
@@ -84,7 +84,7 @@ chapter = 748
 <p>At my words, Taira Kanna smiled as she touched the handle of the rapier, holding it vertically as if telling me not to worry.</p>
 <p>"Hehehe, it's just a test. St. Francisco Girls' Academy Rule 84, the student council president has the right to check the learning abilities of the students during their term. Would I, as the student council president, hurt my cute students?"</p>
 <p>Taira Kanna, as if telling me not to worry at my words, grandly recited the rules of St. Francisco Girls' Academy and went out with the rapier. Ah, there was something I hadn't said yet.</p>
-<p>"Wait~! When that test you mentioned is over, I'll be meeting the kids, but I'm naked right now? Before the fight starts, can you give me any clothes?"</p>
+<p>"Wait! When that test you mentioned is over, I'll be meeting the kids, but I'm naked right now? Before the fight starts, can you give me any clothes?"</p>
 <p>"They're in that drawer over there, so wear whatever you want, Onii-sama."</p>
 <p>Taira Kanna pointed to a closet on one side and then left the room without stopping now.</p>
 <p>No! I need to unlock the chains to put on clothes! You woman! I couldn't even scream in panic and watched Taira Kanna's back as she left the room.</p>

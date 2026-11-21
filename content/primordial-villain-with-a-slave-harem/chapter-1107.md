@@ -40,11 +40,11 @@ chapter = 1107
 <p>The tension rose further and further, until footsteps thundered outside. Quinlan burst into the room with Vex, Seraphiel, and Kitsara at his heels, all breathless from the sprint.</p>
 <p>"Please, don’t say anything rude, Lady Yoruha. Lady Black Fang promised not to cause problems in my home."</p>
 <p>Yoruha blinked at him, surprised for just a heartbeat. Then her lips stretched, slow and lupine, into a grin that was far too sharp to be labeled normal.</p>
-<p>"Young man~" she purred, voice dripping with delight, "are you saying that I can say anything I want, and so long as we’re inside the premises of your home, she won’t lash out?"</p>
+<p>"Young man" she purred, voice dripping with delight, "are you saying that I can say anything I want, and so long as we’re inside the premises of your home, she won’t lash out?"</p>
 <p>Her eyes gleamed as she sent Black Fang a victorious glare, already savoring the situation far too much. "Correction. She can’t lash out, isn’t that right?"</p>
 <p>"No, that’s not at all what I told you." Quinlan groaned, rubbing his temple. "She can lash out; she just promised not to. You should know that it’s best not to test the limits of Lady Black Fang’s patience."</p>
 <p>But his words fell on deaf ears. Literally.</p>
 <p>Yoruha’s long white fox ears shimmered, dissolved into mist, and vanished from her head entirely. She smiled sweetly as if she hadn’t just made the most petty, obvious gesture imaginable.</p>
 <p>Everyone stared.</p>
 <p>The fox wiggled her fingers, all innocence.</p>
-<p>"I can’t hear you~" she announced, far too pleased with herself.</p>
+<p>"I can’t hear you" she announced, far too pleased with herself.</p>

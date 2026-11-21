@@ -12,7 +12,7 @@ chapter = 516
 <p>Of course, I also had basic duties to perform as a teacher, but I didn't have that much work, so I had quite a bit of time to study for the certification.</p>
 <p>I spent the morning studying for the certification, then had lunch with Kijimoto Jurie, and after lunch, I had a physical conversation in the infirmary as exercise, and before I knew it, it was dismissal time. Since most of the members except Alik would be in the clubroom anyway, I didn't mention Taira Kanna's story and quickly ended the dismissal.</p>
 <p>Surrounded by students, I went up to the second floor of the special class building, and Seizawa Shii and Minamoto Risa started talking to me.</p>
-<p>,Ryuta-chi, you're coming to the clubroom after a long time~?</p>
+<p>,Ryuta-chi, you're coming to the clubroom after a long time?</p>
 <p>"I wish you would be a little more aware that you are the club advisor."</p>
 <p>It had been quite a while. Minamoto Risa scolded me because I hadn't gone since the exam period ended without any particular reason. The others were also glaring at me slightly, as if they were dissatisfied with my not visiting the clubroom.</p>
 <p>"Sorry, sorry, I'll come more often from now on, so forgive me."</p>

@@ -21,7 +21,7 @@ chapter = 109
 <p>,What's the situation now?</p>
 <p>,...This is the situation.</p>
 <p>At my question, the Mumentai turned up the speaker volume.</p>
-<p>-Hyaaang~! Keiji-gun! I feel so good♥</p>
+<p>-Hyaaang! Keiji-gun! I feel so good♥</p>
 <p>,...Turn the volume down for a moment.</p>
 <p>Just as I was telling them to turn down the volume, Tochimura Kaminojo's car entered the villa. Tochimura Kaminojo parked the car in the parking lot, but tilted his head, seeing that there were already two cars parked in the remaining spaces. And suddenly, he realized something and rushed inside.</p>
 <p>,Turn up the volume.</p>
@@ -53,7 +53,7 @@ chapter = 109
 <p>-While pursuing from behind, a vehicle that appeared to be part of Tochimura Kaminojo's group was following, so I'm checking it out. In order not to be discovered as the pursuer, I intentionally took a different route, and upon checking behind me, I found two 9-seater vans secretly following.</p>
 <p>So he was bringing reinforcements. If he said two 9-seater vans, that meant a maximum of 18 reinforcements were coming. If the maximum of 18 people came, that would be 3 more than our prediction of a maximum of 15 people. I could handle a difference of 3 people.</p>
 <p>Shortly after Mumentai Number 4's report ended, two 9-seater vans stopped in front of Sawasu Amika's villa, and people poured out. Roughly counting, there were 16 people. It seemed they had divided themselves into eight people per car.</p>
-<p>-Damn it~!! Some of you hurry up and come up!</p>
+<p>-Damn it!! Some of you hurry up and come up!</p>
 <p>Tochimura Kaminojo's voice was heard giving instructions over the radio, and about four people entered the villa.</p>
 <p>-Separate those two bastards first. And make them kneel before me.</p>
 <p>Tochimura Kaminojo's voice was heard giving instructions, as the vaginismus still hadn't resolved. With 4 people gone, now was the chance.</p>

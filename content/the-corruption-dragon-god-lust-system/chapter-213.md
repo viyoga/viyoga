@@ -17,7 +17,7 @@ chapter = 213
 
 <p>She moved her hand slowly, a single finger sinking into the moist, soft slit.</p>
 
-<p>“Mghnn~~” Biyue moaned, her whole body seized by an intense tremor.</p>
+<p>“Mghnn” Biyue moaned, her whole body seized by an intense tremor.</p>
 
 <p>Not even the sweetest of wines or the tastiest of meals she had ever eaten could compare to that.</p>
 
@@ -35,7 +35,7 @@ chapter = 213
 
 <p>Her eyes were misty, the toes of her small, delicate feet arching against the fabric of her mattress as a second finger sank into the fat cleft of her pussy, massaging her swollen, sensitive clitoris.</p>
 
-<p>“Nghnn~~ oghnn~~ ughnn~~ aghnn!~~” Her moans became louder and more obscene, a final movement of her fingers drawing a guttural cry from her plump rosy lips as her pussy squirted non-stop, seized by an intense orgasm.</p>
+<p>“Nghnn oghnn ughnn aghnn!” Her moans became louder and more obscene, a final movement of her fingers drawing a guttural cry from her plump rosy lips as her pussy squirted non-stop, seized by an intense orgasm.</p>
 
 <p>“Ah…” She gasped heavily as her body relaxed, her pale, creamy skin covered in sweat, glistening in the sunlight coming through the half-open window.</p>
 

@@ -19,7 +19,7 @@ chapter = 151
 <p>"I don't really have a preference, but Matsuya."</p>
 <p>We chatted about our gyudon preferences and other random things as I drove the bike, and soon enough, we saw the orange Yoshinoya sign. I ordered a Negi Gyudon Tokumori (extra-large with lots of green onions), and Sawayanagi Azuma ordered a short rib rice bowl. We also ordered the rice bowls and curries that the members had chosen in the group chat.</p>
 <p>Since it was for ten people, it was quite a lot, so we drove slowly to avoid spilling anything as we returned to the abandoned factory. A newly purchased transport vehicle from Seryu Military Company and a black SUV for carrying luggage had arrived at the factory. They arrived earlier than I expected, probably thanks to Kiyona Hori, who has a knack for driving.</p>
-<p>"Lunch is here~."</p>
+<p>"Lunch is here."</p>
 <p>"Yay!"</p>
 <p>Everyone cheered at Sawayanagi Azuma's words. Some people had cleverly rummaged through the abandoned factory's office and prepared tables and chairs, so we could sit comfortably and eat lunch. While eating, Sawayanagi Azuma told everyone about the operation to retake Yurihonjo City that she and I had discussed earlier.</p>
 <p>"This is the sewage treatment plant... and this is the softball field."</p>

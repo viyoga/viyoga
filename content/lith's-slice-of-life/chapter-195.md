@@ -31,7 +31,7 @@ From high above in the air, Lith saw a lot of monkeys from all four directions r
 
 Main Building, Abalax World Academy.
 
-“Hi everyone~, are you all doing good?” A petite girl wearing colorful clothes said on a live stream which was being displayed on a big screen present at the central plaza of the main building.
+“Hi everyone, are you all doing good?” A petite girl wearing colorful clothes said on a live stream which was being displayed on a big screen present at the central plaza of the main building.
 
 The Survival Tournament was streaming live and was available for everyone on the Sky Island to see. The academy couldn’t just show the students participating in the tournament as that would be boring to watch. Thus they chose to add hosts which were two fourth-year students. One boy and one girl.
 

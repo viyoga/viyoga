@@ -60,7 +60,7 @@ chapter = 1920
 <p>Quinlan looked at the one woman remaining. Kitsara smiled up at him, five tails swaying, wearing the expression of a fox with plans.</p>
 <p>"Quinnie, my rest day involves you, a hot bath, and no witnesses. Well, no witnesses who judge me for what I’ll make you do to me."</p>
 <p>"We’re going back down the stairs."</p>
-<p>"Oooh~ Kinky labyrinth seggs!!"</p>
+<p>"Oooh Kinky labyrinth seggs!!"</p>
 <p>...</p>
 <p>The river town on Vraven’s southern trade road had a dockside cellar its own town watch had learned not to ask about.</p>
 <p>Iris Ravenclaw stood across the street from it in the thin winter light, arms crossed, listening to a nervous man in a ledger-keeper’s coat. Blossom crouched at the corner beside her with her nose up, reading the air off the cellar grate.</p>

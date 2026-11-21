@@ -12,13 +12,13 @@ chapter = 71
 <p>Her rosy lips were stretched around his cock, the curve of her back descending to a gloriously lifted huge ass, which moved in a soft, sensual sway.</p>
 <p>Evelyn’s silver-gray eyes slowly rose to meet his.</p>
 <p>*pop*</p>
-<p>"Ah~♡" She released his cock from her lips with a wet sound, gripping it with both hands and stroking him intensely.</p>
+<p>"Ah♡" She released his cock from her lips with a wet sound, gripping it with both hands and stroking him intensely.</p>
 <p>Her lips parted and her tongue extended, ready to receive everything he had to offer.</p>
 <p>That night, they had truly tested the stamina of their second-stage bodies, fucking for hours on end. Still, using aura to recover, Evelyn wasn’t tired.</p>
 <p>Satisfied? Almost there.</p>
 <p>But not tired.</p>
 <p>Gripping her husband’s cock tightly, she let the last spurt of cum that night hit her open lips and flashed a sensual, satisfied smile as she swallowed slowly, savoring it.</p>
-<p>"Finally... I sucked you dry, fufufu~~" She giggled, licking Ethan’s cock from bottom to top with her tongue.</p>
+<p>"Finally... I sucked you dry, fufufu" She giggled, licking Ethan’s cock from bottom to top with her tongue.</p>
 <p>Ethan laughed too, relaxing completely on the bed.</p>
 <p>"We’d better take a shower before we go out... we’re filthy..."</p>
 <p>"Hm... yeah." Evelyn stood up, giving Alice’s ass a gentle pat. The soft flesh rippled slightly at the touch, and the golden-haired beauty stirred, sleepily.</p>

@@ -17,7 +17,7 @@ chapter = 1113
 <p>Bam! Bam! Bam! Bam! Bam!</p>
 <p>"Yes, love. Fuck me. Fuck me like you own me. Fuck me like I’m your fucking toy."</p>
 <p>Agiel’s low, breathy voice tickled Jason’s face as she whispered sweet nothings to Jason, and Jason grunted as he sped up even more! Agiel leaned forward and kissed Jason deeply as she felt an orgasm rising from deep inside her! Agiel had already come more than five times tonight, but just the thought of Jason holding her and pounding into her so vigorously was enough to make her lose her mind all over again! Jason was hitting the same spot inside her with prefect precision, and Agiel’s body shook when Jason suddenly thrust up into her with enough force to make her womb shake!</p>
-<p>"OHHHHHHHH~!"</p>
+<p>"OHHHHHHHH!"</p>
 <p>Agiel dug her fingernails into Jason’s back and curled her toes as an intense orgasm washed over her! Agiel was shaking like a fucking vibrator, and she was holding onto Jason’s shoulder for dear life! Agiel threw her head back into the tree and her mouth opened in pleasure as she drenched Jason’s member!</p>
 <p>Jason was still moving slowly inside of Agiel, and he leaned forward and pressed his face into her breast as he felt his own orgasm coming! Agiel’s emotions bled into Jason and boosted his own emotions, and Jason grunted as an electric feeling shot through his entire body!</p>
 <p>"NGH!"</p>

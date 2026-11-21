@@ -38,7 +38,7 @@ chapter = 1772
 <p>Morgana's left eye twitched. "I beg your pardon?"</p>
 <p>"You're ready to go as is!" Cecile chirped.</p>
 <p>Morgana couldn't believe her ears. "You will clean me properly, maid."</p>
-<p>"Nope~ My duty today is to help everyone blend in with the common folk," Cecile explained cheerfully, gesturing at the settlement below. "And you already look like you've been working in the fields all day! You're perfect as you are! If anyone asks, tell them you slipped and fell face first into the mud and no one will question your cover!"</p>
+<p>"Nope My duty today is to help everyone blend in with the common folk," Cecile explained cheerfully, gesturing at the settlement below. "And you already look like you've been working in the fields all day! You're perfect as you are! If anyone asks, tell them you slipped and fell face first into the mud and no one will question your cover!"</p>
 <p>"Clean. Me."</p>
 <p>Cecile shook her head with genuine sympathy. "I'm sorry, but my orders are to help you blend in, not make you pretty. You blend in beautifully!"</p>
 <p>"I AM COVERED IN DIRT!"</p>

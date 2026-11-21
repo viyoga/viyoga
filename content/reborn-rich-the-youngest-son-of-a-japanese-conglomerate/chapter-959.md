@@ -24,7 +24,7 @@ chapter = 959
 <p>"Then I will oversee the meal Preparation."</p>
 <p>Behind our mansion, there was a Hill that was a bit too low to be called a Mountain, and there I had built Lizhael's Shrine. Urabe Konoka and Hanakame, who arrived yesterday, would probably be at the Shrine. Since I had arrived Home anyway, I should go meet them both.</p>
 <p>The previous night.</p>
-<p>"Delicious~!"</p>
+<p>"Delicious!"</p>
 <p>Tsukiyo took a bite of a parfait from a nearby cafe and exclaimed, her Eyes sparkling brightly. Urabe Konoka and Hanakame watched her Appearance with slightly pleased Expressions. Because Tsukiyo ate so deliciously, Urabe Konoka and Hanakame, who unconsciously became hungry themselves, also added one parfait each.</p>
 <p>The three, who had been enjoying parfaits for a while, making the sound of spoons clinking against glass cups, finished their parfaits. Tsukiyo had a somewhat Regrettable Expression, but she forced a dignified Expression and rose from her Seat.</p>
 <p>"Then, shall we go to the Shrine now?"</p>
@@ -74,4 +74,4 @@ chapter = 959
 <p>In the end, it meant that Sato Tsukiyo had already died a long time ago. Whether the unknown Existence had taken Revenge and occupied her Body, allowing her to die peacefully, or if she died in anxiety, was unknown, but Tsukiyo had devised several schemes to meet them, simultaneously with her Revenge.</p>
 <p>"Well then, I look forward to working with you both?"</p>
 <p>Tsukiyo smiled as she looked at the two and spoke. Her Appearance was a little eerie, but Urabe Konoka and Hanakame also smiled and nodded their Heads.</p>
-<p>Requested by TheDreaming-nim, Athena in front of a Street stall~! 1. Viewfinder 2. Phone Camera 1. 2. Requested by Hwanbuljeoldaebulga-nim, old model Hanbok Lisa, Home Ec Teacher~! Starting with Lisa-chan~! Home Ec Teacher~! The requested Legs Exposure didn't work out well, so I'm just uploading them in a skirt state haha.</p>
+<p>Requested by TheDreaming-nim, Athena in front of a Street stall! 1. Viewfinder 2. Phone Camera 1. 2. Requested by Hwanbuljeoldaebulga-nim, old model Hanbok Lisa, Home Ec Teacher! Starting with Lisa-chan! Home Ec Teacher! The requested Legs Exposure didn't work out well, so I'm just uploading them in a skirt state haha.</p>

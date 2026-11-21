@@ -54,12 +54,12 @@ chapter = 818
 <p>Nyx’s eyes went wide, then wider, then so wide the lantern light caught in them and threw it back.</p>
 <p>Her childhood hero, the Flame Monarch, the woman whose poster had hung on her bedroom wall through every year of academy and whose fights she’d watched over and over again until she could perfectly replay them in her head, was offering to hold her hand while the love of her life had his way with her, and it lit the sparkle behind her eyes.</p>
 <p>Every woman in the group turned to look at the pink-haired beauty with the same dry expression, as though she had just crowned herself the most freaky creature among them, which in a group that included a literal demon queen incapable of shame was a genuine achievement.</p>
-<p>Nyx spun toward the girls, hands clasped at her chest, begging puppy eyes deployed at full power. "Any objections~?"</p>
-<p>"I don’t mind~" Calypso purred instantly, her tail swaying. "The more the merrier, right?"</p>
+<p>Nyx spun toward the girls, hands clasped at her chest, begging puppy eyes deployed at full power. "Any objections?"</p>
+<p>"I don’t mind" Calypso purred instantly, her tail swaying. "The more the merrier, right?"</p>
 <p>Bastet nodded once. "If it makes you this happy, then we should accommodate it."</p>
 <p>"As long as she doesn’t get grabby..." Aria murmured, her hand still locked on Kaiden’s.</p>
 <p>Luna looked at the four of them like she was the last sane woman in a room full of horny bimbos who had collectively lost the plot, but then her lips went wry. "Eh, I’ve done much kinkier stuff already. And I still owe you for what I did back in the basement, so..." She shrugged. "Whatever."</p>
-<p>"Thanks, besties~!" The sparkle in Nyx’s eyes reached a wattage that could have lit the dungeon without lanterns.</p>
+<p>"Thanks, besties!" The sparkle in Nyx’s eyes reached a wattage that could have lit the dungeon without lanterns.</p>
 <p>Nyx turned to Vespera with her hands clasped in front of her chest and the full devastating force of her begging eyes aimed upward at the Shadow Monarch’s stone expression. "Shadow Mommy. Please. Please please please please please-"</p>
 <p>Vespera looked at her.</p>
 <p>Looked at Scarlet, still dangling from her cables with a smile that could have started wars.</p>

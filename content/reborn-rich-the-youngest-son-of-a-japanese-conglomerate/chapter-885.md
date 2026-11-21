@@ -7,13 +7,13 @@ chapter = 885
 
 <p>"I'll take care of these bastards, Teacher-nim." The voice came from atop a tree where Kamishirato Manzo's Experiments were gathered. Kamishirato Manzo's Experiments looked up with tense Expressions.</p>
 <p>On the tree stood the Hime-cut female Swordsman Kurayamada Kirie, holding her Oodachi (Great Sword) Kazuma (Peaceful Horse), which reached 3 meters.</p>
-<p>"Vice Class Teacher-nim~!"</p>
+<p>"Vice Class Teacher-nim!"</p>
 <p>Otagi Yuka, seeing her former Vice Class Teacher Kurayamada Kirie who had suddenly appeared, called out with a smile. Although she had never personally seen her Skill, she had heard from Taira Ryuta that Kirie was quite a skilled individual, so she would surely be able to defeat Kamishirato Manzo's Experiments who had been bothering her like gnats.</p>
 <p>"Heup!" With a short, sharp battle cry, Kurayamada Kirie dropped from the tree and swung her Oodachi Kazuma like a storm.</p>
 <p>Branches, Leaves, even the necks of the Experiments-anything caught by Kazuma's blade was instantly severed. Even after landing, she cut down the Experiments who were still alive, swiftly ending the battle. Then, towards Otagi Yuka, she smiled sweetly and opened her Mouth.</p>
 <p>"Yuka, it's a gift."</p>
 <p>Kurayamada Kirie, saying it was a gift, began to throw the Corpses of Kamishirato Manzo's Experiments she had killed. Anyone else would question why Corpses were gifts, but for Otagi Yuka, who had been fighting an evenly matched battle with Kamishirato Manzo, it was a greater gift than anything else.</p>
-<p>"Thank you, Teacher-nim~!"</p>
+<p>"Thank you, Teacher-nim!"</p>
 <p>Otagi Yuka, smiling, expressed her gratitude to Kurayamada Kirie, then aimed her Sword at Kamishirato Manzo.</p>
 <p>"Since you received Help from your Experiments, I too may as well receive some Help from your Experiments' Blood, right?"</p>
 <p>"For a Vampire, you talk too much!"</p>
@@ -78,15 +78,15 @@ chapter = 885
 <p>Because it was a Villa City for the wealthy and an academy City for Young Ladies of prestigious families, only PMCs hired by St. Francis Girls' Academy or those hired by the Miyashi police department could operate.</p>
 <p>"Yes, please leave the next task to us."</p>
 <p>"Just as Teacher-nim helped, I'll Help our other comrades too."</p>
-<p>"Alright. See you later~!"</p>
+<p>"Alright. See you later!"</p>
 <p>Kurayamada Kirie put her Oodachi into empty space, then waved her hand towards the two and disappeared into the forest she had come from. Otagi Yuka and Saionji Diana looked at each other's Faces, then patted each other's Shoulders as if to say they had worked hard, and walked towards the car they had ridden to get here.</p>
-<p>Kurayamada Kirie B-cut~!</p>
+<p>Kurayamada Kirie B-cut!</p>
 <p>Requested by TheDreaming-nim, Cross Binding Nakanoin Rina 1. Filming Screen 2. Phone Camera</p>
 <p>1.</p>
 <p>2.</p>
-<p>Perhaps due to the nature of the cross Illustrations, mostly similar Scenes came out, so I only uploaded two images each~!</p>
-<p>Requested by Gojoy-nim, Belly Dancer and Tape Yukiko~!</p>
-<p>Belly Dancer~!</p>
-<p>Tape Yukiko~!</p>
-<p>Requested by Neosblue-nim, Blood Knight Yuka~!</p>
+<p>Perhaps due to the nature of the cross Illustrations, mostly similar Scenes came out, so I only uploaded two images each!</p>
+<p>Requested by Gojoy-nim, Belly Dancer and Tape Yukiko!</p>
+<p>Belly Dancer!</p>
+<p>Tape Yukiko!</p>
+<p>Requested by Neosblue-nim, Blood Knight Yuka!</p>
 <p>They're cool, hehe.</p>

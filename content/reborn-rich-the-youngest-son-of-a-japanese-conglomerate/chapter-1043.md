@@ -60,7 +60,7 @@ chapter = 1043
 <p>His proudly swept-up blonde hair was a mess, and his Face was greatly swollen, but his defense, gained from continuous collisions, seemed to be working well, as his Head wasn't crushed by a single punch from me. Just now, with my Paseong, his defense must have increased even further. Indeed, it was quite an annoying Ability.</p>
 <p>However, I didn't think I would lose. Behemoth was a mid-Boss boasting tremendous power and defense, but since he had no regeneration or recovery skills, ultimately, no matter how small the damage, I could continuously stack it to kill him.</p>
 <p>Of course, I would have to evade Behemoth's attacks well. Since his power increased along with his defense, as time passed, allowing even a single blow would become dangerous. Ultimately, for me, while evading Behemoth's attacks as much as possible, there was no other way but to accumulate continuously decreasing damage on Behemoth to win. I don't get hit, and I hit the Opponent. If I only followed this most basic rule of combat, I would be able to win. Of course, keeping that basic rule is the hardest thing to do.</p>
-<p>Gojoy-nim requested Shinoe Misano, 1. Wearing only a Bra and taking off her Skirt~! 2. Standing in only underwear and Pantyhose~!</p>
+<p>Gojoy-nim requested Shinoe Misano, 1. Wearing only a Bra and taking off her Skirt! 2. Standing in only underwear and Pantyhose!</p>
 <p>1.</p>
 <p>2.</p>
 <p>After a long time, I was drawn to 2.5D, so I created these Illustrations hehe</p>

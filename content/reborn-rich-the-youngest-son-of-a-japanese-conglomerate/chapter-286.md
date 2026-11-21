@@ -64,7 +64,7 @@ chapter = 286
 <p>"Yes?"</p>
 <p>"You rag disciple. You reek of women so much that I can't stand it. Go wash up."</p>
 <p>Well, I came out for a walk right after waking up, so my whole body must be covered in women's fluids, saliva, sweat, and so on, so I must be reeking of five women.</p>
-<p>"Ehh~. That's an invasion of privacy, Master!"</p>
+<p>"Ehh. That's an invasion of privacy, Master!"</p>
 <p>"Keukeu, yes. Originally, if you have excellent physical abilities, you tend to develop in that area as well, so I won't say anything more. But the situation isn't good right now, so focus on training rather than that stuff!"</p>
 <p>Master doesn't know, but I'm a man who levels up when I have sex, so sex = training. Of course, I have to practice the techniques myself, though.</p>
 <p>"I'll go now."</p>

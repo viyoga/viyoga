@@ -62,7 +62,7 @@ chapter = 423
 <p>Pandora spoke gibberish. Not caring about any possible consequences. She needed this. She wanted this. She wanted to reach the greatest heights of pleasure possible for a succubus.</p>
 <p>Once he had permission, Sol intensified his thrusting even more. His penis felt like it was made of steel as it danced freely around inside her, stirring up her honeypot.</p>
 <p>He used his youthful energy to thrust again and again until the succubus surrendered before him by reaching climax before himself.</p>
-<p>“Ah~!!”</p>
+<p>“Ah!!”</p>
 <p>She let out a wild voice as her entire body convulsed.</p>
 <p>The crazed undulating motion of her body repeated again and again and her vagina tightened seductively around him.</p>
 <p>This was the last straw for Sol. He grabbed her hips and pushed his penis all the way in then groaned and sprayed his cum into her vagina while continuing his piston-like movements.</p>

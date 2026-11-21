@@ -108,7 +108,7 @@ chapter = 296
 <p>Isis laughed. Not intent on giving any hint.</p>
 <p>Feeling the power of a King's rank coursing through her veins, all she could feel was elation.</p>
 <p>‘I only have a 30% synchronization with this soul. Let’s move fast.’</p>
-<p>“Hahahah~! well then, I think it’s time to end this.”</p>
+<p>“Hahahah! well then, I think it’s time to end this.”</p>
 <p>She tightened her grips on her sword and a hundred knights around her blazed with the power of their zones.</p>
 <p>“I am no damsel in distress in need of a knight on a white horse.”</p>
 <p>What followed was a total massacre.</p>

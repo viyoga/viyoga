@@ -63,7 +63,7 @@ chapter = 93
 <p>'Haha. Thinking about it, this is really a development worthy of a hentai story.'</p>
 <p>Thinking so, he grinned mischievously and looked at Setsuna. Setsuna, who was still working on the felatio, understood his signal.</p>
 <p>Letting go, she stood up and walked behind him before holding Lilin down.</p>
-<p>"Heh~?"</p>
+<p>"Heh?"</p>
 <p>Surprised, Lilin tried to escape but,</p>
 <p>"No magic."</p>
 <p>Those words of Sol sealed all escape routes for Lilin. After all, no matter how strong she was, she could never match Setsuna's pure strength without using mana.</p>
@@ -78,16 +78,16 @@ chapter = 93
 <p>Setsuna's breasts were far from being on the smaller side. But, Lilin was someone who could compare with some young cow women and not be left wanting.</p>
 <p>Lilin twisted, but she could not escape Setsuna's grasp.</p>
 <p>Meanwhile, after taking off her panties, Sol placed his hand on Lilin thighs and gently spread them, revealing her secret garden.</p>
-<p>"Ah~ Do, I look weird down there?"</p>
+<p>"Ah Do, I look weird down there?"</p>
 <p>Lilin's breath grew heavy as she tried to close them, but Sol gently stopped her. No girl wouldn't be worried about such a situation while they still lacked experience.</p>
 <p>"No, it doesn't look weird at all. It's beautiful. What's more..." He used his index to gently trace the still closed folds, "...You are already wet."</p>
 <p>He slowly rubbed down the right side until he reached the bottom, then he rubbed back up the left side. At the top, he poked at the clitoris before rubbing back down the right side again.</p>
-<p>“Ah~Ah~Ah~.”</p>
+<p>“AhAhAh.”</p>
 <p>To the surprise of Sol, his teasing touch had her moaning in no time. The glistening pussy began to produce even more juice.</p>
 <p>He knew he was good, but it was still surprising how sensitive she was. It was as if she was built just for the purpose of sex.</p>
 <p>“Please…don’t just tease me. Touch me more than that.”</p>
 <p>Setsuna, seeing her long-life rival in such an embarrassing situation, grinned deviously and stuck out her tongue before licking Lilin's ear.</p>
-<p>"Ah~"</p>
+<p>"Ah"</p>
 <p>"Haha! To think the haughty princess would show such a face."</p>
 <p>Setsuna became even bolder as she pinched Lilin's stiff nipples.</p>
 <p>"Lilin, I hope you are ready."</p>
@@ -98,7 +98,7 @@ chapter = 93
 <p>She was not doing anything at all and the pleasure was coming to her in droves.</p>
 <p>Every time the rougher flat of the tongue rubbed at her vagina, it would twitch wildly.</p>
 <p>It was intense, but it was also light enough to be frustrating. It had her melting in no time.</p>
-<p>“Ah! Sol~ Please, stop, something is happening!”</p>
+<p>“Ah! Sol Please, stop, something is happening!”</p>
 <p>His tongue forced its way further and further in without caring about her plea.</p>
 <p>He began moving his tongue in and out of her vagina.</p>
 <p>Her love juices flowed without end as his tongue licked at the edges of the hole and the walls within.</p>

@@ -13,13 +13,13 @@ chapter = 506
 <p>The pictures moved, and the arm of the angel was cut before she vanished alongside the humongous monster.</p>
 <p>"...The End."</p>
 <p>Silence pervaded the atmosphere for a split instant before a thunderous round of applause and cheers filled the silent space…</p>
-<p>"Kyaa~!"</p>
+<p>"Kyaa!"</p>
 <p>The eyes of the women twinkled in admiration and adoration and the men clenched their fists om agitation and awe as they tried to imagine themselves in the midst of the battlefield that the Dragon Emperor dominated on in the territory of the mythical Dragons.</p>
 <p>The excitement in the air was at an all-time high as people began to converse and discuss the story they had just heard from the woman.</p>
 <p>Looking at the elves enamored by her story, Nefertiti’s otherworldly face bloomed into a gentle smile.</p>
 <p>How could she be unhappy in this situation? After all, there were so many like-minded people who were admiring the prowess of her beloved Lord.</p>
 <p>"The Tales of the Dragon Emperor Book 2, Collector’s Edition will soon be available on the market. But the regular version of the book is already available for sale. Obviously, assembly members will also be given a small Dragon Emperor plushie as a membership reward."</p>
-<p>Business and religion Ahem~ Business and club development could never be completely unrelated.</p>
+<p>Business and religion Ahem Business and club development could never be completely unrelated.</p>
 <p>The fact became even more predominant as all the elves were fanatics of the Dragon race. That’s why it was necessary to make her beloved Lord pervade all aspects of their lives.</p>
 <p>Nefertiti was clear about her objectives. While the power of [Servitude] could help her greatly, not only would it be too showy, but also – and more than anything – she did not want fake believers whose faith was only wrought through manipulating their minds through her powers.</p>
 <p>This was why she wanted them to enliven Sol’s tales.</p>

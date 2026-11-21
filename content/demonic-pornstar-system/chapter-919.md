@@ -16,7 +16,7 @@ chapter = 919
 <p>"You could rotate your insults," Kaiden said. "Rest the vocal cords a bit. You screamed ’pussies’ at them like fifty times."</p>
 <p>"I do rotate. Pussies is the anchor. You build the rotation around the anchor." She massaged her neck with both hands and glared at the arena as if it owed her compensation.</p>
 <p>Calypso’s laugh rolled up from the arena floor before she did, the demoness hauling herself over the deck railing one-armed and landing beside Kaiden.</p>
-<p>"This is a promising crop, Darling~" she purred. "Did you see the squad with the halberd woman? They kept getting up! I hit one of them three times and he still crawled toward me!"</p>
+<p>"This is a promising crop, Darling" she purred. "Did you see the squad with the halberd woman? They kept getting up! I hit one of them three times and he still crawled toward me!"</p>
 <p>Below them, Pebble had turned himself off.</p>
 <p>The building-sized guardian who’d spent the afternoon confiscating fighters like a mother cat lay collapsed beside the great doors with his chin flat on the ruined padding, six amber eyes sliding shut in tidy pairs from the top down, tail thumping once whenever anyone within fifty meters said his name.</p>
 <p>Doug from Human Resources arrived on the deck with a tablet and the unhurried air of a man for whom kaiju logistics had become a Tuesday.</p>

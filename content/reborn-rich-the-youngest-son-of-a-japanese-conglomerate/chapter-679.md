@@ -31,7 +31,7 @@ chapter = 679
 <p>"I'm going home to make the exam questions for your third semester, so I can't play with you today. I need to get the exam questions done in advance so I can go to the ski resort and have fun with peace of mind."</p>
 <p>At my words, all the students nodded with an "Ah..." It seemed like their excitement for the upcoming vacation was dampened by the fact that the final exam was still left. In fact, there weren't many students in the special class for whom the final exam scores were important. No matter how much they were gloomy about the remaining final exam, only a few who considered the remaining exams important would study hard during the vacation.</p>
 <p>"Have fun in the clubroom today and see you tomorrow."</p>
-<p>"Bye~! Ryuta-cchi!"</p>
+<p>"Bye! Ryuta-cchi!"</p>
 <p>"See you tomorrow, Sensei!"</p>
 <p>"You... see you tomorrow."</p>
 <p>I received the students' greetings and came outside. Minamoto Risa also decided to play with the students in the clubroom as an alibi.</p>
@@ -66,7 +66,7 @@ chapter = 679
 <p>*Ting.*</p>
 <p>Sugawara Chohei, who took the elevator and arrived at the underground parking lot with his secretary, got into the back seat of a luxury foreign car, and after a while, a woman in a flashy dress with a deeply exposed cleavage approached the car. She was a woman named Miki, who was nominally Sugawara Chohei's secretary but played the role of spreading her legs whenever Sugawara Chohei wanted.</p>
 <p>"Miki, get in."</p>
-<p>"Chohei-ssi. Why haven't you called me often~?"</p>
+<p>"Chohei-ssi. Why haven't you called me often?"</p>
 <p>The back seat door opened, and the woman called Miki was seen acting coquettishly. The secretary called Tokuzo sat in the driver's seat as if nothing was wrong and started the car.</p>
 <p>"Are we going to that restaurant we went to before?"</p>
 <p>"You said it was delicious then. So I made a reservation in advance."</p>

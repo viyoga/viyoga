@@ -10,7 +10,7 @@ chapter = 213
 <p>While walking, she added in a sultry tone, "Guys, I’m going to be recording now instead of Kaiden. As explained in the announcements, we decided that we ladies will not show our bodies off. With that out of the way, let’s begin, shall we?"</p>
 <p>Kaiden followed with an amused shake of his head, glancing at the chat.</p>
 <p>Nyx dropped onto the mat with feline grace, lying on her back, legs up.</p>
-<p>"Kai, let’s see how far this body of mine can go~ You will help me, right?~" she purred, flexing one knee to her chest with a sinful smile adorning her lips. Her top tugged slightly higher, her shorts stretched tighter.</p>
+<p>"Kai, let’s see how far this body of mine can go You will help me, right?" she purred, flexing one knee to her chest with a sinful smile adorning her lips. Her top tugged slightly higher, her shorts stretched tighter.</p>
 <p>Kaiden knelt beside her, placing his palms behind her knee and ankle.</p>
 <p>"I wouldn’t miss this for the world... Tell me when it’s too much," he murmured.</p>
 <p>Nyx raised an eyebrow. "You think I have a limit when it comes to you?"</p>
@@ -18,7 +18,7 @@ chapter = 213
 <p>Her breathing quickened, though it was from excitement, not strain, just yet. She wasn’t lying when she claimed to be extra flexible.</p>
 <p>Kaiden’s fingers pressed into her delicious skin, pushing even harder.</p>
 <p>"You’re surprisingly relaxed," he noted.</p>
-<p>Nyx giggled. "I’m just thinking about all the jealous fangirls right now. That somehow gives me power, I feel. Ahhhn~ Yes... Just like that... Keep pushing~"</p>
+<p>Nyx giggled. "I’m just thinking about all the jealous fangirls right now. That somehow gives me power, I feel. Ahhhn Yes... Just like that... Keep pushing"</p>
 <p>- Kaiden’s Wife: I’M JEALOUS!"</p>
 <p>- Princeless Princess: This POV is so damn hot...</p>
 <p>- Thirsty247: Damn hot? I feel gay af but I’m still here, so... I guess you’re right.</p>
@@ -37,7 +37,7 @@ chapter = 213
 <p>Aria gave her a soft cheer and encouraging clapping.</p>
 <p>While the purple-haired beauty was still scowling, she announced, "Alright. Prepare your votes. Whatever it is, I don’t care. I’ll humble that bubblegum bitch no matter what."</p>
 <p>Nyx wheezed in the background, lounging dramatically next to Aria on the bench, looking an awful lot like she was at a theater show.</p>
-<p>"I can’t wait, Bestie~"</p>
+<p>"I can’t wait, Bestie"</p>
 <p>The perspective shifted right at that moment. Now the viewers were seeing things from Luna’s POV, which was perfectly centered on Kaiden, who smirked right into the magical feed.</p>
 <p>[Viewer Poll – Luna’s Challenge Round]</p>
 <p>(Donations weigh heavier)</p>
@@ -54,7 +54,7 @@ chapter = 213
 <p>Kaiden stood tall beside her, cool and casual in his muscle tank, oblivious to the war she was fighting in her chest. Or at least he pretended not to be aware, letting his lover do her best without being coddled.</p>
 <p>"Let’s see how our beautiful Storm Valkyrie handles this one," Kaiden said smoothly, waving a hand to conjure the enchanted balance ball to center stage, bought from the Awakened Marketplace.</p>
 <p>Luna’s eye twitched.</p>
-<p>"Let’s see? Does that mean you don’t believe I’ll succeed?" she muttered through clenched teeth, throwing Nyx a death glare. The pink-haired menace just smiled from the sidelines, though she did add something. "Your insecurities are surfacing, chaos bestie~ Kaiden didn’t mean anything like that at all."</p>
+<p>"Let’s see? Does that mean you don’t believe I’ll succeed?" she muttered through clenched teeth, throwing Nyx a death glare. The pink-haired menace just smiled from the sidelines, though she did add something. "Your insecurities are surfacing, chaos bestie Kaiden didn’t mean anything like that at all."</p>
 <p>Luna scoffed, deciding to ignore Nyx until her turn ends, not wanting to do badly due to getting distracted. So, she stepped up to the ball, her sexy, tight violet leggings shining under the gym lights and her crop hoodie already riding above her stomach.</p>
 <p>🌀 Balance Grind – START</p>
 <p>[60s challenge timer begins]</p>

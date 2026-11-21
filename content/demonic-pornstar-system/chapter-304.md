@@ -41,6 +41,6 @@ chapter = 304
 <p>The bath chamber echoed with the sound of her possessive tantrum through the speaker. "Nope. Your demands are denied. Bye now, I have business to attend to."</p>
 <p>"Nooo!!!"</p>
 <p>The last thing Alice heard before the line was terminated was water splashing, followed by delighted, feminine giggles.</p>
-<p>"Kai, stoooop~ Not there~"</p>
+<p>"Kai, stoooop Not there"</p>
 <p>"..." Alice’s eyes trembled. Her delicate hands formed into fists. Her aura oozed nothing but bloodlust.</p>
 <p>"I’ll kill them."</p>

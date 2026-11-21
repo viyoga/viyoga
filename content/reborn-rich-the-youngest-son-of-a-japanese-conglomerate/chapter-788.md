@@ -96,11 +96,11 @@ chapter = 788
 <p>Tanaka Norio: friend who invited everyone to the Resort (Death)</p>
 <p>Hiragami Noyu: female, Itsu Tomohiko's childhood friend</p>
 <p>Uzuka Hikari: female, Tanaka Norio's Jjak sarang interest.</p>
-<p>Sawayanagi Azuma Belly Dancer requested by Gojoy-nim~!</p>
-<p>Reverse Bunny Lisa-tang requested by Hwanbuljeoldae-bulga-nim~!</p>
-<p>Jjirit jjirit Sword Alik, Cute Pajamas Alik requested by MidNightSKY-nim~!</p>
+<p>Sawayanagi Azuma Belly Dancer requested by Gojoy-nim!</p>
+<p>Reverse Bunny Lisa-tang requested by Hwanbuljeoldae-bulga-nim!</p>
+<p>Jjirit jjirit Sword Alik, Cute Pajamas Alik requested by MidNightSKY-nim!</p>
 <p>Jjirit jjirit</p>
-<p>Cute Pajamas~!</p>
-<p>Kkawawing~!!</p>
-<p>Liz Dongtan Dress requested by Lee Seung-joo_367-nim~!</p>
-<p>Kkiyoot~!</p>
+<p>Cute Pajamas!</p>
+<p>Kkawawing!!</p>
+<p>Liz Dongtan Dress requested by Lee Seung-joo_367-nim!</p>
+<p>Kkiyoot!</p>

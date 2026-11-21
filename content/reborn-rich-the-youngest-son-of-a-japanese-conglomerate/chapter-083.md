@@ -5,7 +5,7 @@ weight = 83
 chapter = 83
 +++
 
-<p>"Yong-tae-ya~!"</p>
+<p>"Yong-tae-ya!"</p>
 <p>As I got off the plane and entered the airport, Han Yu-gyeong was there, waiting, waving her hand at me. Since it was past mid-June, Han Yu-gyeong was dressed lightly. She was wearing a light white dress that showed her shoulders, and it suited her very well. She's pretty no matter when I see her.</p>
 <p>"I didn't expect you to be at the airport."</p>
 <p>"Heehee, I was waiting to surprise you♥"</p>
@@ -33,7 +33,7 @@ chapter = 83
 <p>While chatting with Han Yu-gyeong about this and that, we arrived near Korea University before I knew it.</p>
 <p>###</p>
 <p>Park Sang-beom smiled as he watched the '53 freshmen come in one after another. He would finally be able to expose Han Yu-gyeong's lies. If he thought about it coldly, even if Park Sang-beom exposed Han Yu-gyeong's lies, he wouldn't get anything out of it. But Park Sang-beom, who was becoming increasingly obsessed with Han Yu-gyeong, lacked that kind of cold judgment.</p>
-<p>"Oppa, I'm going to eat well today~!"</p>
+<p>"Oppa, I'm going to eat well today!"</p>
 <p>"Hyung, you've worked hard to gather people."</p>
 <p>"Yeah, eat a lot today."</p>
 <p>Park Sang-beom, who greeted the juniors with a smile, had an increasingly deep smile as time passed. It was because Han Yu-gyeong wasn't showing up. Park Sang-beom thought that Han Yu-gyeong was afraid to reveal the truth, so she couldn't come.</p>
@@ -46,7 +46,7 @@ chapter = 83
 <p>"This is my boyfriend, Jin Yong-tae."</p>
 <p>"Hello. I'm Jin Yong-tae."</p>
 <p>The noisy bar suddenly became quiet. They were a couple of handsome men and beautiful women who looked so good together. The man was incredibly handsome, but Han Yu-gyeong had only worn her school jacket, jeans, or training clothes until now, but today, probably because she was in front of her boyfriend, she was wearing a white dress from a luxury brand. He always thought she was pretty, but she looked even more beautiful than usual with her changed clothes and makeup. Park Sang-beom felt an indescribable jealousy when he saw Han Yu-gyeong's clothes. 'She was wearing simple training clothes when I met her yesterday...' he thought to himself.</p>
-<p>"Yu-gyeong-a~! Sit here! There's a seat here."</p>
+<p>"Yu-gyeong-a! Sit here! There's a seat here."</p>
 <p>Son Na-ri, who was close to Han Yu-gyeong, pointed to the seat next to her and the seat across from her and raised her hand.</p>
 <p>"I'm just here to say hello. It's been a while since I met my boyfriend, so I have to go on a date."</p>
 <p>"You definitely said you'd attend the drinking party, right?"</p>

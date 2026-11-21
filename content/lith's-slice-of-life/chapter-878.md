@@ -31,7 +31,7 @@ Right after, her skirt was lifted, her panties were pulled down, and in one swif
 
 In the next instant, Lith's big shaft that had sprung out was forcefully shoved inside a soft and tight pink cave.
 
-"Ahhnngghhh!~" Bella let her tongue out and moaned loudly while having her eyes roll back.
+"Ahhnngghhh!" Bella let her tongue out and moaned loudly while having her eyes roll back.
 
 She was just teasing her Prince but things had seriously gone south. She absolutely liked it!
 

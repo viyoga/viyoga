@@ -93,4 +93,4 @@ chapter = 1053
 <p>Laurel wreath + outer Silver hair, inner Hair established as space Style, hehe. At this Time, the laurel wreath was gold, hehe.</p>
 <p>Since she's an Outer God, to give her Individuality, cross pupils were added.</p>
 <p>Odd-eye is also charming, hehe.</p>
-<p>Through this Process, Liz is complete~! Looking at them again today, I like the prototypes too, hehehe. Maybe I can use them when creating other Characters someday? The initial tomboyish Feeling was passed on to Tsukiyo, hehe.</p>
+<p>Through this Process, Liz is complete! Looking at them again today, I like the prototypes too, hehehe. Maybe I can use them when creating other Characters someday? The initial tomboyish Feeling was passed on to Tsukiyo, hehe.</p>

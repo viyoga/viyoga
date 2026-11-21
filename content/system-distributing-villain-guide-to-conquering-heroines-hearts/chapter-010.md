@@ -35,7 +35,7 @@ chapter = 10
 <p>[40]</p>
 <p>Noticing the time slipping by, Dante made his next move.</p>
 <p>"Mmphh... Mmfh..." He let out muffled noises, mumbling against her chest while pretending to squirm out of her hold, taking in her scent at the same time.</p>
-<p>’Hnng~ W-why can’t he just stay still?!’ Natasha bit her lip, her eyes twitching with discomfort. She was extra sensitive since she had gone way too long without feeling a man’s touch.</p>
+<p>’Hnng W-why can’t he just stay still?!’ Natasha bit her lip, her eyes twitching with discomfort. She was extra sensitive since she had gone way too long without feeling a man’s touch.</p>
 <p>Her body was starting to feel strange.</p>
 <p>[35]</p>
 <p>[34]</p>

@@ -27,7 +27,7 @@ chapter = 1082
 <p>"Yes. It felt so good that I almost reached a higher Realm without realizing it. Towards the end, I felt like I was achieving Enlightenment...."</p>
 <p>Something was strange again. Why did the Treatment feel good? Moreover, for Shimokawabe Airen, who had been somewhat stagnant as a teacher, the Words about almost reaching a higher Realm were intriguing enough to make her Ears perk up.</p>
 <p>"A Realm rises with Treatment?"</p>
-<p>"Well.... It's a bit of an exaggeration, but putting aside the Body's recovery, the pleasant Feeling during Treatment completely relieved my Stress~! And then I thought, 'Ah, my Worry is meaningless,' and gained a little Enlightenment."</p>
+<p>"Well.... It's a bit of an exaggeration, but putting aside the Body's recovery, the pleasant Feeling during Treatment completely relieved my Stress! And then I thought, 'Ah, my Worry is meaningless,' and gained a little Enlightenment."</p>
 <p>To completely relieve Stress and even gain Enlightenment, what kind of Treatment could Taira Ryuta's possibly be to produce such an Effect? Shimokawabe Airen's Intrigue grew.</p>
 <p>"What exactly is the Treatment method? What gives it such Efficacy?"</p>
 <p>"Ah...! You didn't know the Method?"</p>
@@ -57,7 +57,7 @@ chapter = 1082
 <p>"Haa...!"</p>
 <p>Unknowingly watching the Erotic Scene of the three, her mouth kept drying, and her Breath, which shouldn't have been labored long after running, gradually became shallow.</p>
 <p>And she felt her Lower Cauldron gradually growing Heat. And at the same time, she remembered the Story she had heard from the Intimate Experience-d (?) Fujigasaki Rinka.</p>
-<p>-Honestly, at first I said it was for Treatment, but when my down there got hot and it felt completely good, I regretted all the Time I hadn't done it~!</p>
+<p>-Honestly, at first I said it was for Treatment, but when my down there got hot and it felt completely good, I regretted all the Time I hadn't done it!</p>
 <p>To regret all the Time she hadn't done it...! Shimokawabe Airen found herself wondering, 'What on earth was it like?'</p>
 <p>"!"</p>
 <p>Such Intrigue was momentary, as Shimokawabe Airen was surprised again: the door to Taira Ryuta's room was slowly opening.</p>
@@ -72,11 +72,11 @@ chapter = 1082
 <p>"Whew...! I should go down too."</p>
 <p>Shimokawabe Airen wiped her Fingers with the Handkerchief she had brought, then ran back towards Fujigasaki Rinka's Mansion. Shimokawabe Airen's Face, as she ran towards her friend's Mansion, was somehow refreshed and invigorated. Just as Fujigasaki Rinka had said, it felt like her Stress had completely melted away. Shimokawabe Airen, returning, was captivated by one thought.</p>
 <p>'If doing it alone feels this good, then how good would it be to actually do it?'</p>
-<p>Airen Running~!</p>
+<p>Airen Running!</p>
 <p>It didn't quite capture the Malibu Cliff coast feeling I imagined, so it was eliminated hehe.</p>
 <p>Airen Surprised!</p>
 <p>Airen appreciating with an Erotic Expression hehe.</p>
 <p>Chieri and Misano at the shelter in Chapter 49, requested by Gojoy-nim, but....</p>
 <p>In that Scene, they were sitting next to an ambulance, not a shelter, so I only put an ambulance in the background hehe. I didn't know what to prompt for a shelter.</p>
-<p>Chieri~!</p>
-<p>Shinoe Misano~!</p>
+<p>Chieri!</p>
+<p>Shinoe Misano!</p>

@@ -7,11 +7,11 @@ chapter = 8
 
 <p>"It’ll hurt a little at first, but I promise it’ll feel good soon..." Ethan whispered in Alice’s ear.</p>
 <p>Slowly, the fat lips of her vulva gave way and his cock penetrated her, the reddish head being swallowed by the tight, wet embrace of her pussy.</p>
-<p>"Nghnn~~ okay~~" Alice nodded with a soft, shy movement of her head.</p>
+<p>"Nghnn okay" Alice nodded with a soft, shy movement of her head.</p>
 <p>Smiling reassuringly, Ethan pushed forward a little more. He felt the moment when he penetrated her completely, breaking her purity.</p>
 <p>He pushed forward, sinking deeper and deeper, until he finally stopped.</p>
 <p>The reddish tip of his cock reached the depths of her womb, his hips slapping against her perfect thighs and buttocks with a loud smack.</p>
-<p>"E-Ethan~~ oh... gods... so... nghnn~~ big~~" Alice’s eyes widened, a wave of pain washing over her body before slowly being replaced by pleasure.</p>
+<p>"E-Ethan oh... gods... so... nghnn big" Alice’s eyes widened, a wave of pain washing over her body before slowly being replaced by pleasure.</p>
 <p>She gripped the sheets tightly, her knuckles white with tension as her body trembled.</p>
 <p>Her huge breasts swayed with the impact.</p>
 <p>Her back arched and her hands went to her perfect twin mountains, squeezing them against her delicate torso, trying and failing miserably to hide them from Ethan’s gaze.</p>
@@ -24,9 +24,9 @@ chapter = 8
 <p>"So... fucking... tight..." Ethan gritted his teeth, releasing her hands and giving one of her breasts a gentle pat.</p>
 <p>The pale, perfect orb was taken over by a slow, heavy undulation.</p>
 <p>With one hand squeezing one of Alice’s breasts, Ethan’s free hand slid down, passing over her soft hips to her plump thighs, clenching them firmly.</p>
-<p>"Nghnn~~ Don’t say those nghnn~~ embarrassing things~~" Alice pleaded, trying to stifle her lewd moans and hide her embarrassed face.</p>
+<p>"Nghnn Don’t say those nghnn embarrassing things" Alice pleaded, trying to stifle her lewd moans and hide her embarrassed face.</p>
 <p>The request was granted by Ethan, who shut his mouth and focused only on fucking that fat, tight pussy with all his strength, increasing his speed even more.</p>
-<p>"Aghnn~~ fuck... gods... oh~~" Alice completely lost control, desperately clinging to the fabric covering the bed, her eyes rolling back as her tongue slipped out from between her lips.</p>
+<p>"Aghnn fuck... gods... oh" Alice completely lost control, desperately clinging to the fabric covering the bed, her eyes rolling back as her tongue slipped out from between her lips.</p>
 <p>Ethan kept his left hand on her hips for support while his right hand moved up, his arm sinking between her breasts and his index finger finding her mouth.</p>
 <p>Instinctively, Alice began to lick.</p>
 <p>The soft slurping of her lips sucking his finger echoed along with her moans, her tongue wrapping around it, rivers of saliva dripping down her chin.</p>
@@ -39,7 +39,7 @@ chapter = 8
 <p>"I think I’m in love with you..." Ethan murmured as he prevented her from covering her face, holding her wrists gently and pulling them away, revealing her vulnerable, breathless expression.</p>
 <p>Without giving her time to protest, he leaned in and sealed her lips with a kiss.</p>
 <p>When they parted, Ethan saw her lips break into a shy smile.</p>
-<p>"Nghnnn~~ I-I think I’m in love with you t-too..." Alice murmured weakly.</p>
+<p>"Nghnnn I-I think I’m in love with you t-too..." Alice murmured weakly.</p>
 <p>"Good..." Ethan replied with a satisfied smile.</p>
 <p>Slowly, he began to move his hips backward.</p>
 <p>A wet pop echoed as his cock slipped out of her tight pussy, thick white liquid dripping between her plump, full labia.</p>
@@ -51,7 +51,7 @@ chapter = 8
 <p>"You’re going to take responsibility... right?" Alice broke the silence, her voice low, almost a whisper, laden with shy insecurity.</p>
 <p>Ethan smiled slightly, leaning down to kiss her neck, tasting the soft, salty flavor of her sweaty skin.</p>
 <p>"And make you my wife?" He asked.</p>
-<p>"Hm-mm~" Alice replied with a high-pitched, cute nasal sound as she snuggled even closer to his body.</p>
+<p>"Hm-mm" Alice replied with a high-pitched, cute nasal sound as she snuggled even closer to his body.</p>
 <p>"Yes... I will make you my wife..." Ethan affirmed, the smile remaining on his lips.</p>
 <p>Unfortunately, the smile soon faded and he forced seriousness into his voice: "But... would you accept me as your man, even if I had other wives?"</p>
 <p>Ethan knew well what the system required of him, and doubted he could be content with just Alice.</p>
@@ -71,4 +71,4 @@ chapter = 8
 <p>He was in no position to make up stories and lies.</p>
 <p>Alice’s face went through a series of conflicting emotions.</p>
 <p>She stood still for a moment, her gaze distant, as if she were receiving a message from the system itself, perhaps a mission related to Ethan’s request.</p>
-<p>Finally, after long seconds that seemed like an eternity, Alice replied, her voice low and restrained: "Okay~~"</p>
+<p>Finally, after long seconds that seemed like an eternity, Alice replied, her voice low and restrained: "Okay"</p>

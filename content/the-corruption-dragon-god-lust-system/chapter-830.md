@@ -55,7 +55,7 @@ chapter = 830
 
 <p>Pop</p>
 
-<p>"Ah~" She gasped, letting Qingyi’s cock slip from her mouth for a brief moment before sinking back down onto it with the same hunger as before.</p>
+<p>"Ah" She gasped, letting Qingyi’s cock slip from her mouth for a brief moment before sinking back down onto it with the same hunger as before.</p>
 
 <p>Underwater, her plump ass wiggled from side to side, swaying like the lively swish of a tail, her round, generous buttocks undulating against the pull of the current, the soft flesh trembling with every subtle motion.</p>
 
@@ -77,7 +77,7 @@ chapter = 830
 
 <p>Rouxi’s eyes filled with even more determination and desire, and she sucked with fresh hunger, her cheeks caving deeper with each pull.</p>
 
-<p>"Nghmmm~~ slurp~~ Gulk~" Her muffled moans echoed through the humid room, mingling with eager licks and obscene sounds, loud, wet smacks reverberating as her heavy breasts slammed against his hips with even greater force at every plunge.</p>
+<p>"Nghmmm slurp Gulk" Her muffled moans echoed through the humid room, mingling with eager licks and obscene sounds, loud, wet smacks reverberating as her heavy breasts slammed against his hips with even greater force at every plunge.</p>
 
 <p>Each collision sent violent waves rippling through the soft, milk-swollen flesh, the tremors rolling outward.</p>
 
@@ -87,7 +87,7 @@ chapter = 830
 
 <p>The first jet of hot cum flooded her lips, the thick, viscous semen hitting the roof of her mouth with force before sliding straight down her tight throat.</p>
 
-<p>"Gulp~ gulp~ gulp~" She swallowed one jet after another, each thick spurt sliding down her throat and straight into her stomach.</p>
+<p>"Gulp gulp gulp" She swallowed one jet after another, each thick spurt sliding down her throat and straight into her stomach.</p>
 
 <p>"Ah..." She pulled back slowly, her lips parting from his cock, still connected by thick, sticky strands of saliva and semen.</p>
 

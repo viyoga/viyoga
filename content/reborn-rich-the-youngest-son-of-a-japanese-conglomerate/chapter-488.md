@@ -63,9 +63,9 @@ chapter = 488
 <p>"Then...."</p>
 <p>Saionji Diana-ssi seemed to have made up her mind and began to open her mouth. The content of that request was quite shocking.</p>
 <p>###</p>
-<p>"Eve, you should have told me if there was an event like this~!"</p>
+<p>"Eve, you should have told me if there was an event like this!"</p>
 <p>Otagi Yuka shouted to Eve as she went down to the basement. Eve wiggled her index finger from side to side at Otagi Yuka's shout and opened her mouth.</p>
-<p>"Even if Yuka is my friend, I can't tell you in advance because it's Diana-ssi's privacy~!"</p>
+<p>"Even if Yuka is my friend, I can't tell you in advance because it's Diana-ssi's privacy!"</p>
 <p>"But since I came, can I watch too?"</p>
 <p>Otagi Yuka had been friends with Eve since she was in the United States, so she knew about the existence of the hidden cameras in the Miyashi branch. Installing hidden cameras was a very unethical act for a love hotel owner to do, but it was a cute level for Otagi Yuka, who had been rolling around in the back alleys of the United States for more than a year.</p>
 <p>Besides, she didn't care even more because the purpose of distributing the hidden camera footage was for research, not for distribution. That's because she had a lot of things to worry about in the meantime.</p>
@@ -74,7 +74,7 @@ chapter = 488
 <p>Otagi Yuka nonchalantly opened her mouth at Eve's words that she couldn't. The vampire clan had fewer men and more women, so they were polygamous, and because of their pleasure-seeking nature, Otagi Yuka didn't dislike Saionji Diana-ssi doing it with Taira Ryuta very much.</p>
 <p>Recently, she had experienced 2-on-1 sex with Sakagami Rena, so she became even more generous about Taira Ryuta's sex. Eve nodded as if she thought Otagi Yuka's words made sense.</p>
 <p>"Then you have to show it to Diana-ssi for sure?"</p>
-<p>"Of course~!"</p>
+<p>"Of course!"</p>
 <p>When Otagi Yuka answered, Eve snapped her fingers, and a hologram screen appeared, turning on the live sex screen of Taira Ryuta and Saionji Diana-ssi. Saionji Diana-ssi was already lying on the bed wearing only her underwear.</p>
 <p>The two became silent in an instant and began to focus on the hologram screen.</p>
 <p>-Heueuheung, Teacher-niim...♥</p>

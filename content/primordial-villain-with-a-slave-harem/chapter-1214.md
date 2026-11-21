@@ -48,7 +48,7 @@ chapter = 1214
 <p>"... Just what did you do, Quin?!"</p>
 <p>He looked at her with that trademark smirk of his. "Struck a deal with the king."</p>
 <p>Aurora’s breath hitched. "Quin..." she gasped, the color draining from her face. She knew him. Knew that look. He must’ve given up something monumental for this.</p>
-<p>But Quinlan only chuckled and waved a hand dismissively. "Don’t worry about it. As my father used to say; happy wife, happy life~"</p>
+<p>But Quinlan only chuckled and waved a hand dismissively. "Don’t worry about it. As my father used to say; happy wife, happy life"</p>
 <p>He then gestured toward the tearful duo. "Are you not going to introduce me properly? I mean, I met them already, but you know... formalities and all."</p>
 <p>Then his grin turned teasing. "One day I’ll have to ask their permission to put a ring on your finger, after all."</p>
 <p>Aurora’s jaw dropped. Her face flushed crimson almost instantly. "Q-Quinlan! Not in front of my parents!" she sputtered.</p>
@@ -73,7 +73,7 @@ chapter = 1214
 <p>Aurora beamed, completely oblivious to their terror - or, rather, electing to tactfully ignore it. "But that’s not all! Mom, Dad, I have so much to tell you! I even have a daughter now!"</p>
 <p>"Daughter?!" they both screamed in perfect unison.</p>
 <p>Their knees buckled from shock, and Aurora barely managed to catch them both while laughing so hard she could hardly breathe.</p>
-<p>"Hehe~ I missed you guys so much," she giggled, hugging them tight while her poor parents stared at her like they’d just learned their sweet little girl had joined a death cult.</p>
+<p>"Hehe I missed you guys so much," she giggled, hugging them tight while her poor parents stared at her like they’d just learned their sweet little girl had joined a death cult.</p>
 <p>And at the far end of the lab, Quinlan just smiled.</p>
 <p>He stood there with Seraphiel still nestled against him, his hands stroking her soft, curved belly in lazy, affectionate circles. The elf leaned into him, blissfully content. She even teared up a bit at the wonderful sight. Her friend finally got her wish.</p>
 <p>Quinlan’s lips curved upward in quiet satisfaction.</p>

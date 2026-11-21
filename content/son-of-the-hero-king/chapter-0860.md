@@ -10,7 +10,7 @@ chapter = 860
 <p>Seven days were enough for even the dead to rebel— a notion so ridiculous that anyone would find it ludicrous. Yet, as ludicrous as it may sound, it was the truth,</p>
 <p>It was certainly a harsh lesson Sol was learning now. Fate has its wondrous ways of torturing him in every turn, in the most unexpected ways, it seems.</p>
 <p>“So… What is happening exactly?”</p>
-<p>“Hehehe~! Ask me! Beg me! Bribe me! And I shall answer!”</p>
+<p>“Hehehe! Ask me! Beg me! Bribe me! And I shall answer!”</p>
 <p>Sol gave a deadpan look as he observed the overexcited fairy swishing around playfully.</p>
 <p>He was half of the mind to just swat her to the ground to teach her a lesson. But Sol understood that she was having some harmless fun, at his expense, of course.</p>
 <p>The mischievous fairy was none other than Scheherazade. The Wish Fairy. She was Isis’ first friend, and despite her diminutive appearance, she had been instrumental in the success of all Sol’s rituals thus far.</p>
@@ -22,7 +22,7 @@ chapter = 860
 <p>She was a friend.</p>
 <p>“You should look at the face you’re making right now!”</p>
 <p>A dear friend.</p>
-<p>“Pfft! You wanna know where Isis is? I don’t know! Tehe ~ ouf!!”</p>
+<p>“Pfft! You wanna know where Isis is? I don’t know! Tehe  ouf!!”</p>
 <p>A good friend who still needed some smacking to set her head straight.</p>
 <p>The air escaped the fairy’s lungs as Sol grasped her tightly in his hand. His movement had been too fast for her to react. She was slightly taller than when Sol first met her, but still small enough that her entire torso fit in his hand with only her legs and head poking out.</p>
 <p>“I am going to ask nicely. You know well, I can easily find Isis. But this isn’t the problem. So I repeat… What is happening exactly?”</p>

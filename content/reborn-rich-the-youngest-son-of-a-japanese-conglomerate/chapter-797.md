@@ -12,16 +12,16 @@ chapter = 797
 <p>When I lifted Seizawa Shii, she let out a small Scream. The plastic pieces that had been embedded due to the regeneration process fell off with soft thuds. As expected, having Sex like this with Seizawa Shii, even with regeneration, still made my Body ache. I placed Seizawa Shii on a pair of shoes lying scattered to one side, and then I, too, put my Feet into my shoes.</p>
 <p>"Ah!"</p>
 <p>For some reason, there was a Lego, no, a washing machine part inside my shoe. I took out the washing machine part, threw it to one side, and then put on my shoe.</p>
-<p>"Ahahaha~! Ryuta-cchi, you look like a Pervert, just wearing shoes with your naked body!"</p>
+<p>"Ahahaha! Ryuta-cchi, you look like a Pervert, just wearing shoes with your naked body!"</p>
 <p>"The floor is all landmines because of the Fragments, so I have to put on my shoes first. And you're also just wearing shoes with your naked body, you know?"</p>
 <p>As Seizawa Shii laughed loudly, I grumbled while putting on my Clothes. As if she had nothing to say to my remark, Seizawa Shii said, "Oh, right?" and began to put on her own Clothes.</p>
 <p>"Anyway... what are you going to do about this Place?"</p>
 <p>At my Question, Seizawa Shii looked around the coin laundry. Anyone seeing this would think there had been a Gunfight here. Most of the washing machines were damaged (fortunately, the one I used for my laundry was fine), and Chairs and decorative items were shattered and scattered across the floor.</p>
 <p>"Hmm... first, I'll clear away all the broken stuff... then I'll sell it back to the original owner, mister, for a bit cheaper. Since it's almost Graduation, I don't think I can keep managing it."</p>
 <p>Is she saying she'll trash the place before selling it? As if stung by my cold Gaze, Seizawa Shii hastily spoke.</p>
-<p>"Cheaper! I said I'd sell it cheaper~! It'll be profitable for that mister to buy it back."</p>
+<p>"Cheaper! I said I'd sell it cheaper! It'll be profitable for that mister to buy it back."</p>
 <p>Well, if she's selling it cheap, I can't really say anything. And as Seizawa Shii just said, it's almost Graduation.</p>
-<p>"I'm hungry, so let's eat something, Ryuta-cchi~!"</p>
+<p>"I'm hungry, so let's eat something, Ryuta-cchi!"</p>
 <p>"Just a moment, I need to take out the laundry."</p>
 <p>Seizawa Shii, perhaps hungry after no less than 8 rounds of Sex, whined to go eat something, but I told her to wait while I took out the laundry that had been left unattended after washing.</p>
 <p>The laundry included the Clothes I wore on this Travel and the bed Sheets. They felt nice and fluffy, as if they had dried well.</p>
@@ -42,7 +42,7 @@ chapter = 797
 <p>"You should give me advice before the Food."</p>
 <p>"Ah, that's right! This is all Ryuta-cchi's fault. You made me hungry!"</p>
 <p>"No... that's because you wanted to go for 8 rounds."</p>
-<p>"Ahahaha~☆ That just means Ryuta-cchi was feeling that good~!"</p>
+<p>"Ahahaha☆ That just means Ryuta-cchi was feeling that good!"</p>
 <p>Seizawa Shii, saying she felt good, crunched on the potato croquette that came with the meal. Seizawa Shii, having mumbled and finished her croquette, opened her Mouth.</p>
 <p>"What Ryuta-cchi is worrying about isn't that, is it? That if you're honest, things will completely end with Lisa-ttang."</p>
 <p>"Yes, that's right."</p>
@@ -69,7 +69,7 @@ chapter = 797
 <p>"Hmm... I kept thinking you looked like someone, then at one Moment, it suddenly clicked. The rumor about mister Saburo's hidden Son appearing early last year also came to mind, so I guessed Ryuta-cchi's True Identity. Ryuta-cchi, you're mister Saburo's Son, aren't you?"</p>
 <p>"Yeah. Haa... I didn't expect my True Identity to be exposed because of a Father whose Face I couldn't even properly see. But why didn't you tell anyone?"</p>
 <p>Seizawa Shii usually had quite a loose Mouth, so it was surprising that she hadn't told anyone.</p>
-<p>"I'm Ryuta-cchi's Woman, you know. If you came in hiding your name like this, I figured it must be something important~☆ I couldn't ruin that, could I?"</p>
+<p>"I'm Ryuta-cchi's Woman, you know. If you came in hiding your name like this, I figured it must be something important☆ I couldn't ruin that, could I?"</p>
 <p>Seizawa Shii's admirable thought made me want to give her another 8 rounds.</p>
 <p>"Ugh, don't look at me with such lecherous Eyes, Ryuta-cchi."</p>
 <p>Seizawa Shii, perhaps embarrassed by her confession-like Words, unnecessarily blamed my Gaze and turned her Head.</p>
@@ -86,10 +86,10 @@ chapter = 797
 <p>"To be precise, it hasn't even been a year since I became a Taira. Originally, I was Hata Ryuta, but..."</p>
 <p>I began my Story. Since Seizawa Shii had such good Reactions, I could tell the Story happily.</p>
 <p>When I revealed that I was Zainichi, she fussed, saying she thought I looked like a Hallyu heartthrob from the start. And when she learned that my Age was the same as hers, she was greatly Astonished, asking how I could have acted as a Teacher to someone my own Age, and slapped my Arm repeatedly.</p>
-<p>"Good luck, Ryuta-cchi~! Today was fun~☆"</p>
+<p>"Good luck, Ryuta-cchi! Today was fun☆"</p>
 <p>My Story continued until late at night, and we left the family restaurant at Dawn and parted ways.</p>
-<p>Hanasaki Sayaka's Belly Dancer Attire and Breast-covering Illustration requested by Gojoy-nim~!</p>
-<p>Belly Dancer~!</p>
-<p>Breast-covering~!</p>
-<p>Liz sitting on a throne with her Chin propped, requested by seungj050-nim~!</p>
-<p>Kkiyoot~!</p>
+<p>Hanasaki Sayaka's Belly Dancer Attire and Breast-covering Illustration requested by Gojoy-nim!</p>
+<p>Belly Dancer!</p>
+<p>Breast-covering!</p>
+<p>Liz sitting on a throne with her Chin propped, requested by seungj050-nim!</p>
+<p>Kkiyoot!</p>

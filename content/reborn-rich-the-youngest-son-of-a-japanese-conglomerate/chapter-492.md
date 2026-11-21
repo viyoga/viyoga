@@ -61,7 +61,7 @@ chapter = 492
 <p>Sakagami Rena bowed and left the education preparation room. Not long after Sakagami Rena left, the bell rang for the start of the first period.</p>
 <p>After taking my mind off the Daigo family's fight for a while, I started to organize my schedule for today. There was nothing much to do today except for some paperwork as a homeroom teacher and the last period with Korean class.</p>
 <p>Ah! Today was the last day of the long gift date. It's a date with Konoe Akina, and since Konoe Akina is a pretty old relationship, it will be easier than with the other female students, right? I was wondering what kind of gift Konoe Akina would want, but there were still more than 6 hours left before the date started.</p>
-<p>,Eueueue~!!"</p>
+<p>,Eueueue!!"</p>
 <p>I finished thinking about the date and stretched. I couldn't have sex yesterday, so my body feels sluggish. I should go to the nurse's office where Kijimoto Jurie is and get some nursing (?) for the first time in a while.</p>
 <p>---------</p>
 <p>Today is an illustration of Naruse Shiyo, whose presence has been decreasing recently, hehe.</p>

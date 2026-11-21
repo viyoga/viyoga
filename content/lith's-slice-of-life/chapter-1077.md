@@ -103,7 +103,7 @@ Watching her uneven breaths, Lizbeth shook her head and thought, 'This poor chil
 
 Meryl turned into her cat form and jumped on Lizbeth's lap, startling her.
 
-"Meow~!" Meryl said while raising her body and placing her paws on Lizbeth's chest.
+"Meow!" Meryl said while raising her body and placing her paws on Lizbeth's chest.
 
 She meant: "Don't worry child, I will protect you from here onwards."
 

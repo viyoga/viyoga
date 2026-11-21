@@ -15,9 +15,9 @@ chapter = 499
 
 <p>The reddish tip of his cock pressed against her tight entrance, the plump, soft lips enveloping the glans in tight, a wet embrace.</p>
 
-<p>“Aghnnn~~” The first inch sank into Khaedryss’s pussy, who grabbed Qingyi’s shoulders for support.</p>
+<p>“Aghnnn” The first inch sank into Khaedryss’s pussy, who grabbed Qingyi’s shoulders for support.</p>
 
-<p>“How nghnn~~… can you be this big? It won’t aghnn~~” A few more inches entered Khaedryss, the reddish tip hitting her virginity. “Fit… She finished her sentence and then sat down hard.</p>
+<p>“How nghnn… can you be this big? It won’t aghnn” A few more inches entered Khaedryss, the reddish tip hitting her virginity. “Fit… She finished her sentence and then sat down hard.</p>
 
 <p>Her eyes rolled back and a loud, wet slap echoed. Her fat, perfect buttocks hit Qingyi’s lap with a thud, the bed legs finally giving way.</p>
 
@@ -27,7 +27,7 @@ chapter = 499
 
 <p>She didn’t control, nor did she seem concerned with controlling her strength.</p>
 
-<p>“I’m not mmghn~~ your good girl…” Khaedryss raised her hips again, her eyes filled with lust and annoyance. “Don’t… call me that!”</p>
+<p>“I’m not mmghn your good girl…” Khaedryss raised her hips again, her eyes filled with lust and annoyance. “Don’t… call me that!”</p>
 
 <p>The moment her exclamation echoed, she sat down on his cock again, harder than before.</p>
 
@@ -35,7 +35,7 @@ chapter = 499
 
 <p>“Yes…” Qingyi laughed, not even slightly startled. His hands moved up to her tits and he squeezed them hard. “You’re my good girl… now with these huge tits, a fat ass, and a plump, tight, puffy pussy.”</p>
 
-<p>“Nghnnn~~” Khaedryss moaned, placing her hands over Qingyi’s hands on her chest.</p>
+<p>“Nghnnn” Khaedryss moaned, placing her hands over Qingyi’s hands on her chest.</p>
 
 <p>“You… You…” She repeated, remembering a phrase she always heard Qingyi’s wives say.</p>
 
@@ -69,7 +69,7 @@ chapter = 499
 
 <p>None of that could compare to having her pussy completely filled by Qingyi’s enormous cock.</p>
 
-<p>“Nghnn~~ Fuck… So… damn… big~~” Khaedryss’ pupils seemed to turn into hearts.</p>
+<p>“Nghnn Fuck… So… damn… big” Khaedryss’ pupils seemed to turn into hearts.</p>
 
 <p>Her obsidian ass was already slightly red from the impacts, her pussy clinging to Qingyi’s cock with full strength, struggling to crush it.</p>
 
@@ -81,7 +81,7 @@ chapter = 499
 
 <p>Her pussy, tight and wet, began to squirt nonstop and at the same time, Qingyi released a fat, massive gush of cum, invading Khaedryss’s womb.</p>
 
-<p>“Ah~~ so full…” Khaedryss collapsed, losing her strength.</p>
+<p>“Ah so full…” Khaedryss collapsed, losing her strength.</p>
 
 <p>“Hm… you’re quite sensitive for an ancient war machine,” Qingyi whispered into Khaedryss’s ears. Before she could even protest, he sealed her lips with a kiss.</p>
 

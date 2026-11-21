@@ -107,7 +107,7 @@ chapter = 390
 
 <p>Her thoughts were so clouded that she barely processed Qingyi’s grip on her breasts.</p>
 
-<p>‘Nghnn~~… my mind isn’t right… Lingxue repeated to herself, feeling a strange heat coursing through her private parts.</p>
+<p>‘Nghnn… my mind isn’t right… Lingxue repeated to herself, feeling a strange heat coursing through her private parts.</p>
 
 <p>How on earth had she let herself become so vulnerable in front of a junior?</p>
 

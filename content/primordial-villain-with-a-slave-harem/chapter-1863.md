@@ -18,12 +18,12 @@ chapter = 1863
 <p>Confirmed. Struck, bare-handed, on the body, in front of the ancestors, and every doctrine Kaede owned held precisely one procedure for that event: steel, drawn, before the echo finished.</p>
 <p>The Ayame she had grown up beneath would have answered an uninvited touch with a blade through the offending wrist, and if that Ayame was in no state to answer, the duty fell to whatever family stood in reach.</p>
 <p>The family in reach owned no steel. It owned an incense stick, a servant’s gray, and a debt, and it would have to do. Kaede’s grip firmed around the stick, her weight rolled onto the balls of her feet, and the disgraced Fujimori made her peace with the ancestors on the way to the door.</p>
-<p>"Mmnn~... Again."</p>
+<p>"Mmnn... Again."</p>
 <p>Kaede stopped, one step short of the doorway.</p>
 <p>The purr had come from her sister. She replayed it, syllable by syllable, and it did not improve on review.</p>
 <p>She had spent this entire vigil listening for the sounds a domestically abused woman makes, and no abused woman in the history of the world had ever made that one.</p>
 <p>"Behave."</p>
-<p>"Make me~"</p>
+<p>"Make me"</p>
 <p>Kaede stood frozen on the threshold of her own charge and let the evidence re-file itself. The red marks, the melting, the purr, the demand, and it had unmistakably been a demand, for another one.</p>
 <p>Nobody in that hall was beating anyone. Her sister, the heir with perfect form at dawn, the measure Kaede had spent her whole life failing to reach, was enjoying it. Asking for it.</p>
 <p>Her amazing big sister.</p>
@@ -31,12 +31,12 @@ chapter = 1863
 <p>Kaede’s worldview held its shape for one more second, out of pure habit. Then it caved in, all at once, and quietly.</p>
 <p>And then, at last, the counterattack came.</p>
 <p>She saw it start: Ayame pushed herself upright astride him, and for one shining moment the heir of the Fujimori was back, chin high, gaze leveled in judgment over the man beneath her.</p>
-<p>"Right~" said the genius girl of the Fujimori. "That’s twice this morning you’ve struck a noble of this house. There will be retribution."</p>
+<p>"Right" said the genius girl of the Fujimori. "That’s twice this morning you’ve struck a noble of this house. There will be retribution."</p>
 <p>Behind the doorframe, Kaede dared one last time to hope. ’Yes. There she is. There she...’</p>
 <p>Ayame reached down and grabbed him by the dick.</p>
-<p>"Confiscated~" she announced. "Until further notice."</p>
+<p>"Confiscated" she announced. "Until further notice."</p>
 <p>"When does the tribunal convene?" Quinlan didn’t move a muscle.</p>
-<p>"The tribunal will issue its demands shortly~"</p>
+<p>"The tribunal will issue its demands shortly"</p>
 <p>Kaede stopped hoping.</p>
 <p>Her framework contained a place for submission and a place for counterattack. It contained nothing for a counterattack conducted by confiscation. By her sister enthroned on the man, holding him hostage while both parties tried not to laugh and failed.</p>
 <p>She attempted the thought three times, and it refused to finish on every attempt.</p>
@@ -50,18 +50,18 @@ chapter = 1863
 <p>It had carried no killing intent, only escalating quantities of spiritual damage, and interrupting Ayame’s audit for anything short of an assassination attempt had been out of the question.</p>
 <p>’She’ll recover,’ he decided generously, on no evidence whatsoever.</p>
 <p>"Your sister is gone," he reported to the woman on his chest. "You knew she was standing there this entire time. Why let her watch?"</p>
-<p>"What’s there to hide?" Ayame propped her chin on her folded arms. "We’re adults. You’re my lover. Besides, enjoying this sort of thing is perfectly normal for people of noble privilege~"</p>
+<p>"What’s there to hide?" Ayame propped her chin on her folded arms. "We’re adults. You’re my lover. Besides, enjoying this sort of thing is perfectly normal for people of noble privilege"</p>
 <p>"Somehow, I doubt she holds the same opinion."</p>
 <p>The grin that answered him grew a size. "Then it’s high time she grows up. That damned body of hers is already a grown woman’s..." A small scoff escaped her there, and her eyes dropped, for one sour moment, to her own chest, which her little sister’s had overtaken years ago. "She should learn these things or someone will take advantage of her again."</p>
 <p>Quinlan merely smiled at that, electing not to comment.</p>
 <p>Then Ayame pushed herself upright and spun around on top of him, coming face to face with the confiscated property, which stood tall, entirely unmoved by its own legal predicament.</p>
 <p>She licked her lips.</p>
-<p>"It’s time to dethrone Lucille~" she declared. "That bitch has been far too smug about her throat GOAT title. I’ll have you revoke it promptly."</p>
+<p>"It’s time to dethrone Lucille" she declared. "That bitch has been far too smug about her throat GOAT title. I’ll have you revoke it promptly."</p>
 <p>Quinlan slid both hands under his head, arranging himself into the resting pose of a man with no unresolved problems in this world.</p>
 <p>"Good luck."</p>
 <p>...</p>
 <p>It was past midday when the two of them, washed and dressed and almost respectable, walked the silent corridors of the family wing.</p>
-<p>"One last stop~" Ayame announced, leading him deeper down a lantern-dark hallway. "There’s one thing in this place I’m not leaving behind."</p>
+<p>"One last stop" Ayame announced, leading him deeper down a lantern-dark hallway. "There’s one thing in this place I’m not leaving behind."</p>
 <p>She stopped at the double doors at its end without reaching for the frame.</p>
 <p>"My room," she said.</p>
 <p>The bratty woman and the lewd lover both had gone out of her voice somewhere in the last ten steps.</p>

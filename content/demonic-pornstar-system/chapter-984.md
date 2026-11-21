@@ -44,7 +44,7 @@ chapter = 984
 <p>"Okay, holy shit," Luna announced, climbing out ahead of everyone. "There’s a pond. There’s a bridge over the pond. Each of those fish must cost a fortune..."</p>
 <p>At the foot of the steps waited a woman in a charcoal suit, a silver crescent pinned at her lapel, standing at perfect parade rest. She bowed to Kaiden, crisp and exact.</p>
 <p>"Lord Grey. Rin Sonoda, Shogunate Circle." She offered her card with both hands. "I am your liaison for the length of your stay. Whatever your family needs, at any hour, I’m happy to be of assistance."</p>
-<p>"At any hour~" Luna repeated from the gravel, in a tone that had no business near a government courtyard.</p>
+<p>"At any hour" Luna repeated from the gravel, in a tone that had no business near a government courtyard.</p>
 <p>"!!" For one heartbeat, three months of Sonoda’s certainty wobbled. Had she been wrong after all? Did the household run looser than the broadcasts showed? Did Lord Grey perhaps want-</p>
 <p>"She is a professional woman, not your buddy," Nyx said, steering Luna off by both shoulders. "Nobody is going to mess with our liaison. Please excuse her, Miss Sonoda."</p>
 <p>Behind the analyst’s straight back, a small hope she would never put in any report quietly died. The findings, at least, stood reconfirmed.</p>
@@ -64,7 +64,7 @@ chapter = 984
 <p>Inside, the house did its best, and the family happened to it anyway.</p>
 <p>Alice claimed the room beside Kaiden’s before the bags were off the cart, and Aria took the one on his other side at an unhurried stroll, her smile daring anyone to object.</p>
 <p>"I’m flanked," Kaiden observed.</p>
-<p>"You are~" Aria agreed happily, and closed her door on any appeal.</p>
+<p>"You are" Aria agreed happily, and closed her door on any appeal.</p>
 <p>Alexandra went pale over the tea set, holding one bowl with six points of contact. "This is four centuries old. I looked it up. I’m putting it down now."</p>
 <p>"Darling! There’s a hot lake inside the house!"</p>
 <p>The announcement crossed the garden, the pond, and two closed doors without losing any volume. Calypso had located the bathhouse.</p>

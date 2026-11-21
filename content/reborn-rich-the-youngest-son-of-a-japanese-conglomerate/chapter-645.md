@@ -78,7 +78,7 @@ chapter = 645
 <p>But seeing my photo cards selling so well like this, I realized that I was quite popular at St. Francisco Girls' Academy. Is it natural for a handsome teacher to be popular in all-girls middle and high schools? I don't know because I didn't go to an all-girls middle and high school.</p>
 <p>"Your photo card version of the magazine is all sold out, so I'm a little more relaxed, so take another person and go have fun."</p>
 <p>I had just come back from enjoying a game with Oofuchi Erika -ssi, but of course I couldn't rest because the job I was assigned to at this festival was to maintain the morale of the students by dating them. I wondered who was next, and Seizawa Shii -ssi approached.</p>
-<p>"Ryuta-cchi! I'm a lucky girl, so I'm second~☆"</p>
+<p>"Ryuta-cchi! I'm a lucky girl, so I'm second☆"</p>
 <p>I don't know what the relationship is between being second and being a lucky girl, but Seizawa Shii -ssi jumped up and down excitedly. Seizawa Shii -ssi grabbed my hand and quickly went down the stairs as if to get out of the workplace quickly.</p>
 <p>"So, where do you want to go?"</p>
 <p>"You know. The place I want to go is here."</p>

@@ -74,9 +74,9 @@ chapter = 844
 <p>"Morning Sex♥"</p>
 <p>"Then, as you say, without thinking about trivial Work, shall we do a little morning Athleticism?"</p>
 <p>Since there was a large and beautiful breast in front of my Eyes, my Worry disappeared, so I Smiled and decided to follow Taira Kanna's Words.</p>
-<p>Requested by Hwanbuljeoldae-bulga-nim: Off-shoulder side-slit Dress Lisa, Home Ec Teacher~!</p>
-<p>Starting with Lisa-ttang~!</p>
-<p>Home Ec Teacher~!</p>
+<p>Requested by Hwanbuljeoldae-bulga-nim: Off-shoulder side-slit Dress Lisa, Home Ec Teacher!</p>
+<p>Starting with Lisa-ttang!</p>
+<p>Home Ec Teacher!</p>
 <p>Because it was difficult to accurately grasp the Bodysuit requested by Bodagasanda-nim, I tried making Shii and Diana with additional keywords like high-leg and sleeveless tops like tank tops, hehe.</p>
-<p>Shii~!</p>
-<p>Diana~!</p>
+<p>Shii!</p>
+<p>Diana!</p>

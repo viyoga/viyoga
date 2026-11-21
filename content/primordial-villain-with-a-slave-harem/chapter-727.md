@@ -60,7 +60,7 @@ chapter = 727
 <p>Raika groaned, halfway through tugging off her top, but complied with exaggerated exasperation.</p>
 <p>Meanwhile, I found myself oogling the show.</p>
 <p>If she didn’t mind me watching, who was I to turn away?</p>
-<p>"Ah-ah-ah~ No peeking!” Vex suddenly chirped, sliding up behind me and covering my eyes with both hands.</p>
+<p>"Ah-ah-ah No peeking!” Vex suddenly chirped, sliding up behind me and covering my eyes with both hands.</p>
 <p>Her voice was all sugar and silk, but I wasn’t able to pay full attention to her words because my brain was busy ensuring I would never forget the sensations of her naked breasts mashing against my back.</p>
 <p>Indeed, she’d lost her bra during the shower, and since she rushed into the bath to escape my reach, she hadn’t changed into her bathing attire.</p>
 <p>"I wasn’t peeking.”</p>

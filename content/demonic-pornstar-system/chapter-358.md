@@ -19,7 +19,7 @@ chapter = 358
 <p>"Yeah, it’ll take a few days," Rae replied. "In the meantime, you’ll likely have to get reacquainted with Agents Hugh and Oren."</p>
 <p>Those two were the same tall, stoic bodyguards who accompanied Secretary Grace when she paid them a visit in their home.</p>
 <p>Kaiden’s lips twisted instantly, souring as if he’d bitten into something rotten.</p>
-<p>Rae burst out laughing despite her cracked ribs. "Oh-ho~! Don’t tell me that face is because of them! You’ll have to do the pussy pounding quieter for the next few days, Mister Yandere~" Her giggle turned into a wheeze due to extreme amounts of pain, but her smirk was downright wicked.</p>
+<p>Rae burst out laughing despite her cracked ribs. "Oh-ho! Don’t tell me that face is because of them! You’ll have to do the pussy pounding quieter for the next few days, Mister Yandere" Her giggle turned into a wheeze due to extreme amounts of pain, but her smirk was downright wicked.</p>
 <p>The truth was simple: Kaiden had specifically asked Grace to replace Hugh and Oren with female agents. Not because he doubted their ability, but because he could not—or rather, would not—stand the idea of two stoic men overhearing the moans and cries of his women echoing through the walls of his home. That would be no home to him, but prison. This request of his was why Rae and Riven ended up being assigned to him in the first place.</p>
 <p>Now, Rae weaponized it, and Kaiden’s mood curdled darker than storm clouds.</p>
 <p>"Pfft!" Rae barked into raw, howling laughter, so hard she started coughing and writhing against her casts, face contorting with pain. "O-Ohhh fuck, it hurts so bad!"</p>

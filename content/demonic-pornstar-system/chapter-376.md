@@ -18,7 +18,7 @@ chapter = 376
 <p>His hand traveled to her chest, cupping her left breast where her heart beat wildly. "If your heart is in pain," he said against her lips, "then I’ll cure it."</p>
 <p>Aria giggled through her tears, nodding fervently.</p>
 <p>He lay her back against the sheets, climbing over her body. His lips descended, wrapping around her left breast in a hot, sucking kiss that made her gasp.</p>
-<p>"Mmmhh~ Kai..."</p>
+<p>"Mmmhh Kai..."</p>
 <p>Her hands tangled in his hair, pulling him closer as her hips shifted restlessly. His cock pressed against her wet slit, hot and demanding. She angled her hips, guiding him with a desperate need, until the thick head pressed perfectly against her entrance.</p>
 <p>Kaiden looked up at her. Aria’s silver eyes shimmered, full of tears and love. She extended her arms toward him, as though she wanted to embrace not just his body but his soul.</p>
 <p>"Claim me," she whispered.</p>
@@ -33,11 +33,11 @@ chapter = 376
 <p>"Kai... Kai... Kai...!" she chanted his name between needy gasps and sensual moans, each syllable broken by the roll of his hips. Her voice wasn’t just lust; it was devotion, love, and desperation woven together into one sweet cry.</p>
 <p>Her hips began to move on their own, grinding up against him, taking him deeper with every rise. The wet slap of their bodies grew louder, faster, her moans growing higher in pitch as her silver hair fanned out messily over the sheets.</p>
 <p>*Schlk... schlk... schlk...*</p>
-<p>"Mmmhhhnnn~! Ahhh! Kaiii!"</p>
+<p>"Mmmhhhnnn! Ahhh! Kaiii!"</p>
 <p>Her nails scraped down his back as she clung to him, trembling all over. Her lips found his again, kissing him wildly, tongues tangling, love and lust mingling in every desperate press of their mouths.</p>
 <p>"I’m yours, Kaiden Grey... all yours... forever and ever...! Don’t you dare leave...!!" she sobbed into his mouth.</p>
 <p>Then, her body tensed and thighs squeezed hard around him. In the next moment, she shattered beneath him. Her climax tore through her as her inner walls clamped down tight around his cock, milking him for all he had.</p>
-<p>Her cry of "Kaaaiiiidennn~❤️" rang out in the room, pure, needy, overwhelmed.</p>
+<p>Her cry of "Kaaaiiiidennn❤️" rang out in the room, pure, needy, overwhelmed.</p>
 <p>The squeeze dragged him over the edge with her. Kaiden groaned low in his throat, his hips pressing flush against hers in a final, deep thrust. Hot spurts of his seed spilled into her womb, filling her as her pussy convulsed around him.</p>
 <p>*Splrt... splrt... splrt...*</p>
 <p>He buried his face in her neck, kissing her skin feverishly as they both trembled together, locked in each other’s embrace, while their orgasms crashed like waves over them.</p>

@@ -7,7 +7,7 @@ chapter = 139
 
 <p>Seeing the complete confidence in Jason’s eyes as he did something so selfless and kind for her made Riyala’s heart explode with emotion, and she didn’t know when tears began to gather in her eyes! Riyala sniffled desperately as she tried to hold back her tears, but there was no way she could stop them from falling freely!</p>
 <p>Riyala bowed her head and spoke between her sobs as she tried to clean her eyes with the back of her hand.</p>
-<p>"Thank you, sniff~! Thank you so much! I’ll repay you for this kindness one day, I promise. I’ll definitely repay you for everything you’ve done."</p>
+<p>"Thank you, sniff! Thank you so much! I’ll repay you for this kindness one day, I promise. I’ll definitely repay you for everything you’ve done."</p>
 <p>Gina smiled at the crying girl and moved away from Jason’s hold before gently hugging Riyala to try and calm her down. Jason just watched with a small smile as Riyala let out all her tears. They still had a lot of things to figure out, but for now, he would treat Riyala like one of his own.</p>
 <p>...</p>
 <p>[Sunday]</p>

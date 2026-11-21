@@ -63,7 +63,7 @@ Looking at the starry sky and the now dimmed stars, Lilith, with utmost seriousn
 
 Lilith turned her head back to look at her son and smiled, as if nothing had happened a second ago. She walked close to him and hugged him from behind.
 
-"My baby~~"
+"My baby"
 
 Lilith swayed side to side as she glued her face with Lith's. Oh how much she had missed him!
 

@@ -5,9 +5,9 @@ weight = 1085
 chapter = 1085
 +++
 
-"Darlinggggg~!"
+"Darlinggggg!"
 
-Smooooooch~
+Smooooooch
 
 A black-haired beauty jumped in Lith's arms and voraciously devoured his lips.
 

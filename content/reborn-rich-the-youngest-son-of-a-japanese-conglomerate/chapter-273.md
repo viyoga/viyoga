@@ -63,11 +63,11 @@ chapter = 273
 <p>###</p>
 <p>After sending Han Yu-gyeong off, my daily life became even busier. I was already busy studying to become a Korean language teacher, but the investigation and decisions about the business added more work, so I was having a very busy day.</p>
 <p>I was studying when a Line message came. Who was it? When I looked, it was a Line message from Sawayanagi Azuma.</p>
-<p>Sawayanagi Azuma: Investor-nim~! You haven't forgotten about the Seryutai outing in three days, have you?</p>
+<p>Sawayanagi Azuma: Investor-nim! You haven't forgotten about the Seryutai outing in three days, have you?</p>
 <p>Ah! Now that I thought about it, I was supposed to go to the valley with the Seryutai members.... I was so busy that I had completely forgotten.</p>
 <p>Taira Ryuta: Of course not, what should I prepare?</p>
 <p>I sent the Line message nonchalantly, as if I hadn't forgotten the appointment at all. Even if there was something to prepare, there were still three days left, so I could prepare it.</p>
-<p>Sawayanagi Azuma: Investor-nim, you just need to prepare yourself~! We'll prepare everything else!</p>
+<p>Sawayanagi Azuma: Investor-nim, you just need to prepare yourself! We'll prepare everything else!</p>
 <p>Even if there was no need to prepare anything, I was an investor, so I thought it would be good to buy some top-quality Wagyu beef and have a barbecue. It seemed like the Seryutai side would prepare everything else, so there was nothing else to prepare.</p>
 <p>Taira Ryuta: Okay. I'll just bring myself.</p>
 <p>Sawayanagi Azuma: Okay♥ I'll be looking forward to it, Investor-nim!</p>

@@ -14,8 +14,8 @@ chapter = 984
 <p>"Teacher, have you come?"</p>
 <p>As I entered the interview room, Taira Kanna and Muko Neika greeted me, and the dreadlocked man bowed his head without a word.</p>
 <p>"Aunt-nim, hello."</p>
-<p>Since there were people I was meeting for the first time, I addressed Taira Kanna as Aunt-nim and sat down. Mimata Chieri cheerfully greeted me with, "Hello~!", while Linxiang simply bowed her head like the dreadlocked man.</p>
-<p>"Aunt-nim? Please treat me as usual, Orabeoni~!"</p>
+<p>Since there were people I was meeting for the first time, I addressed Taira Kanna as Aunt-nim and sat down. Mimata Chieri cheerfully greeted me with, "Hello!", while Linxiang simply bowed her head like the dreadlocked man.</p>
+<p>"Aunt-nim? Please treat me as usual, Orabeoni!"</p>
 <p>Perhaps she thought I was keeping my distance by calling her Aunt-nim, she puffed out her cheeks and looked disappointed. I couldn't help it since she said it like that. I'd treat her comfortably, just like when we were at St. Francis Academy.</p>
 <p>"Alright. I'll be comfortable when it's just us. Congratulations on being entrusted with the Taira Driving System."</p>
 <p>"It's nothing. Does that mean we'll be seeing each other occasionally?"</p>
@@ -45,7 +45,7 @@ chapter = 984
 <p>Taira Kanna's eyes burned as she said she was aiming for the next generation. Various Emotions, such as ambition, anger, and boksu, were burning in Taira Kanna's eyes.</p>
 <p>In fact, if it were a normal family, Taira Kanna, who was the youngest of the siblings and a Woman, wouldn't even dare to challenge for the position of the next family head.</p>
 <p>It was possible because the Taira family was a family where Power took precedence over tradition. Even the current Chairman, Taira Danjo, wasn't the eldest son, and he sat on the throne of the Taira family with a body stained with blood after dealing with all his siblings.</p>
-<p>"Let's stop talking about Business for now.... It's my first time meeting Orabeoni's secretaries~!"</p>
+<p>"Let's stop talking about Business for now.... It's my first time meeting Orabeoni's secretaries!"</p>
 <p>There wasn't really anything to talk about in terms of Business, but since we were both in a position where we had been appointed by Taira Danjo old man today, there wasn't anything to talk about regarding Business. You can't talk about it unless you know about it. It was natural that there was nothing to say since we hadn't had our inauguration ceremony yet.</p>
 <p>"I'm Mimata Chieri, the secretary."</p>
 <p>"I'm Linxiang, the secretary."</p>
@@ -78,6 +78,6 @@ chapter = 984
 <p>"Let's not make it too flashy and just do it simply on the company's broadcast. Maybe tomorrow or the day after?"</p>
 <p>"I'll pass it on, Ryuta-nim."</p>
 <p>Linxiang said at my Words. Linling was at the mansion, so she would prepare well. We talked about Taira Food distribution like that and headed to the Taira Food distribution headquarters.</p>
-<p>Gojoy-nim requested Camilla and Kisa's belly dancers~!</p>
-<p>Starting with Camilla~!</p>
-<p>Kisa~!</p>
+<p>Gojoy-nim requested Camilla and Kisa's belly dancers!</p>
+<p>Starting with Camilla!</p>
+<p>Kisa!</p>

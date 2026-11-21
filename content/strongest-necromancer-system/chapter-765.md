@@ -6,16 +6,16 @@ chapter = 765
 +++
 
 <p>Gina brought Jason down for a heated kiss, and once they separated, Gina whispered in Jason’s ear.</p>
-<p>"Break me, baby~"</p>
+<p>"Break me, baby"</p>
 <p>That was the only thing Jason needed to hear before he braced himself against the chair and immediately slammed into Gina like a piston!</p>
 <p>Slam! Slam! Slam! Slam! Slam! Slam!</p>
 <p>The force of each thrust was so intense that Jason was sure that whoever was passing by their door would definitely be able to hear what was going on from outside, but Jason didn’t care! Jason could feel Gina wrapping around him like a warm blanket, and he cut off all his restraints and just went feral as he fucked her like a wild animal!</p>
 <p>Slam! Slam! Slam! Slam!</p>
-<p>"Ugh~! Ugh~! Ugh~! Ugh~! Ugh~! Ugh~! Yes! Yes! UGHHH!!"</p>
+<p>"Ugh! Ugh! Ugh! Ugh! Ugh! Ugh! Yes! Yes! UGHHH!!"</p>
 <p>Gina’s entire body was folded in half, and she could literally see her knee beside her head! There were tremors shooting through Gina’s body every time Jason slammed down into her, and Jason was using so much force that she could feel the chair creaking from the strain, but Gina couldn’t deny that she fucking loved this! Jason was always very gentle with Gina outside of the bedroom. Whenever they were together in public or if they were just spending time together, Gina could tell that Jason cherished her and treated her like precious glass, and Gina loved Jason for that! But the way Jason suddenly changed whenever they were together in bed and became this wild animal that fucked her like his bitch just did things to Gina that she couldn’t even begin to describe! It felt like each thrust was a mark of ownership that told Gina that she belonged to this man!</p>
 <p>"I’m close, Gina."</p>
 <p>Jason suddenly grunted through gritted teeth, and Gina bit her lip and nodded desperately! Gina’s hands were wrapped around Jason’s shoulders as he pounded into her, and each time Jason thrust down, he felt an electric current travelling through his body as Gina moaned into his ear! Jason tried his best to hold back his orgasm for as long as possible, but he felt all his restraint crumble when Gina suddenly spoke into Jason’s ear in a breathless voice!</p>
-<p>"Come for me, baby~! Give me everything!"</p>
+<p>"Come for me, baby! Give me everything!"</p>
 <p>Jason grunted as a bright white light suddenly flashed across his vision, and for a split second, Jason knew that he had actually gone blind! But at the next moment, Jason slammed into Gina with intense force, and Gina moaned as Jason released everything into her! Gina’s toes curled, and she pulled Jason down for a heated kiss as she felt a warmth filling her stomach, and she made sure to tighten her core as much as possible so she would milk everything out of Jason! Jason let out another grunt as he felt Gina squeezing him tight, and it took a few seconds before he finally came down from his orgasm. Once he was finished, Gina pulled back from the kiss to look in Jason’s eyes.</p>
 <p>"Gasp!"</p>
 <p>But Gina suddenly gasped when she saw the red eyes staring back at her! Jason’s vympiric eyes had activated during his orgasm, and Gina couldn’t help the way her heart skipped a beat as she stared into the eyes of a true predator! It was as though Gina was finally realising that Jason was a creature that could literally consume her, and Gina had never felt more attracted to Jason than she was at that moment! An unbearable arousal suddenly shot through Gina’s body when she saw the intense lust in Jason’s eyes that showed that he was nowhere near satisfied! Jason leaned down and gave Gina a soft kiss on the lips before he asked.</p>
@@ -34,7 +34,7 @@ chapter = 765
 <p>"UGH!"</p>
 <p>Gina grunted from the hit, and Jason grinned as he felt her getting even tighter! Jason smacked Gina’s ass again, and Gina stood on her very tiptoes as she began to drive back to meet Jason’s thrusts with her own! Jason knew that even though Gina was very gentle, she liked it when he was rough with her in bed, so he didn’t hold back at all, and he pushed Gina forward until her breasts were pressing against the bathroom wall, and he began to thrust into her with even more force!</p>
 <p>Slap! Slap! Slap! Slap! Slap!</p>
-<p>"Oh~! Oh~! Oh~! Oh~! Jason! Keep going! Keep going!"</p>
+<p>"Oh! Oh! Oh! Oh! Jason! Keep going! Keep going!"</p>
 <p>Gina’s breasts and hands were pressed tightly against the wall, but her back was bent inwards so that her ass shot out in a way that would allow Jason to thrust into her with more ease! Gina was on her tiptoes, but she could swear that Jason was already lifting her into the air with how much force he was using on her, and Gina felt Jason lean forward and whisper in her ear.</p>
 <p>"You like to be punished, don’t you? You love it when I fuck you like this, you fucking pervert."</p>
 <p>Gina’s cheeks darkened into an intense blush as Jason’s rough voice did impossible things to her, and when Jason grabbed her hair and pulled roughly, she felt her entire body shake as she screamed!</p>

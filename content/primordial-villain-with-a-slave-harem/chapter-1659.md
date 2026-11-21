@@ -41,7 +41,7 @@ chapter = 1659
 <p>Then a sigh left him, weak and resigned.</p>
 <p>"The twins..." He turned his head on the pillow, searching the room for his girls. "What... has happened to them? What did you do?"</p>
 <p>Lucille glanced toward the corner where Amara and Vivienne were tangled on the stone floor, arms locked around each other, faces buried in each other's necks, their sobs bright and relieved and utterly unconcerned with the carnage they had helped create.</p>
-<p>"They were always vile little bitches, 'Papa~' Just like their mother. You didn't see it, the same way you didn't see anything about their mother."</p>
+<p>"They were always vile little bitches, 'Papa' Just like their mother. You didn't see it, the same way you didn't see anything about their mother."</p>
 <p>A breath.</p>
 <p>"My husband enslaved them a few months ago and sentenced them to rather cruel punishments for their crimes. They've been working for us ever since."</p>
 <p>Alastair winced as if he had been stabbed again, and the wound the words opened was worse than anything the enchanted dagger had done to his body. His gaze found the twins on the floor, and the image split in his head. Vivienne's grin as she drove the blade into his chest with a cheerful grunt, the bright little noises she made with each thrust, the way she had wrinkled her nose and called him a stinky pig. The girl on the floor now was sobbing into her sister's neck with the abandon of a child who had been told she would not be punished, and neither version of her matched the daughter he had raised.</p>

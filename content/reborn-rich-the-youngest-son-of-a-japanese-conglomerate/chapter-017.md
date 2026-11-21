@@ -6,21 +6,21 @@ chapter = 17
 +++
 
 <p>The next day. I overslept a bit, so I arrived at the academy entrance at 8:15 AM instead of the promised time of 8:00 AM. Smith Kazuhiro, whom I was supposed to meet at the entrance, was chatting happily with some girl.</p>
-<p>"Oh, Ryuta-hyung-nim~! You're a bit late?"</p>
+<p>"Oh, Ryuta-hyung-nim! You're a bit late?"</p>
 <p>"Sorry, I overslept a little. But who is this...?"</p>
 <p>The girl Kazuhiro was happily talking to was exactly Kazuhiro's type. A plain style, a plain face, and plain clothes. At least her chest is huge. That son of a bitch Kazuhiro showed me a picture yesterday, saying she was a new girl he met, and now he's already grinning like an idiot at the new girl in front of him. He really is a simp.</p>
 <p>"This beautiful woman is named Kagawa Umi."</p>
-<p>"Oh my~!"</p>
+<p>"Oh my!"</p>
 <p>These two are making a fuss. Kazuhiro was signaling with his eyes, asking me to help him succeed.</p>
 <p>"I'm Taira Ryuta. I'm friends with this guy. He's a good guy, so please take care of him."</p>
-<p>"Ah~ Hyung-nim, what are you saying?"</p>
+<p>"Ah Hyung-nim, what are you saying?"</p>
 <p>I can see the corners of his mouth going up, you little bastard. Alright, if I'm going to push him, I might as well push him properly.</p>
 <p>"So, what were you two talking about?"</p>
 <p>"Umi-chan is a sophomore at Edo University."</p>
 <p>"Wow, that's amazing! So, Kagawa-san and Kazuhiro have what the other doesn't?"</p>
 <p>Kagawa Umi seemed curious about what I meant and asked me. But when did he start adding -chan to her name? He really is a friendly guy. By the way, isn't Edo University the best university in Japan? She looks like she studies well, and she really does.</p>
 <p>"Kagawa-san has intelligence, and this guy has athletic ability. He's a soccer player."</p>
-<p>"Hee~?! Really? I thought he looked like an athlete, but he's a soccer player?"</p>
+<p>"Hee?! Really? I thought he looked like an athlete, but he's a soccer player?"</p>
 <p>"I guarantee you'll see his face in the national team within a few years."</p>
 <p>Kazuhiro scratched the back of his head at my compliment, looking like a bashful boy... but that's all an act. Kazuhiro says that when a guy as big as him acts like a pure boy, girls feel a gap moe?</p>
 <p>"Umi-chan, if I score a goal, I'll do a celebration for Umi-chan."</p>
@@ -49,7 +49,7 @@ chapter = 17
 <p>When I answered Kazuhiro, Kagawa Umi, who hadn't even been asked, started explaining their circumstances.</p>
 <p>"Gokado-san, do you have a boyfriend?"</p>
 <p>"Ah, yes. I do."</p>
-<p>"Ah~! That's too bad. My hyung-nim seemed to like Hanako-san."</p>
+<p>"Ah! That's too bad. My hyung-nim seemed to like Hanako-san."</p>
 <p>Kazuhiro was trying to push Gokado Hanako on me, perhaps feeling sorry that only he was having a sweet time with Kagawa Umi. In times like this, you should approach her with a comfortable, friendly feeling rather than pushing too hard.</p>
 <p>"Since we met like this, let's just be close friends."</p>
 <p>"Should we?"</p>
@@ -57,7 +57,7 @@ chapter = 17
 <p>Two men and two women entered the auditorium, and at 9:00 AM, the start time of the training, a bald-headed academy director with a shaved head came in and stood on the platform.</p>
 <p>"Before we begin the training, I will explain the course of the training."</p>
 <p>The director's words were boring. The lecture, which was half academy bragging and half training course explanation, ended after about fifteen minutes.</p>
-<p>"I'll assign you to your rooms, but before that, let's take a group photo with the academy as the background. Please follow me~!"</p>
+<p>"I'll assign you to your rooms, but before that, let's take a group photo with the academy as the background. Please follow me!"</p>
 <p>We went to the place led by the director and positioned ourselves so that the name of the academy was visible. But I heard a small *hiik!* sound from Gokado Hanako, so I looked over and saw a pig with a greasy expression groping Gokado Hanako's butt.</p>
 <p>Ah, man.... I can't stand this. I took my hand off my thigh, released the posture of bending over, and grabbed the hand that was groping Hanako.</p>
 <p>"Wh-what?!"</p>

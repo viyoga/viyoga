@@ -67,9 +67,9 @@ chapter = 14
 <p>Moreover, well, she was sexy as hell. It helped a lot in coping with his indignations. In terms of body figures, she didn't lose to Milia or Lilith. And those hips. Oh dear lord!! He had to admit that rather than being a sucker for the cushy wonders, he had always preferred a perfectly cushy butt a lot more.</p>
 <p>Setsuna’s butt was firm and toned from years of training. But Camelia's was soft and large without disturbing her curvy body line.</p>
 <p>"Please Camelia, could you let me go? I am not a child anymore."</p>
-<p>"Oh~? Oh my. Who would have thought that little Sol saw me in such a way? Or perhaps did doing it with Milia awaken the beast in you?"</p>
+<p>"Oh? Oh my. Who would have thought that little Sol saw me in such a way? Or perhaps did doing it with Milia awaken the beast in you?"</p>
 <p>'Huh?'</p>
-<p>"Fufufu~! Don't give me that shocked look. I have my ways. What's more, I must admit that I had been waiting for this for so long."</p>
+<p>"Fufufu! Don't give me that shocked look. I have my ways. What's more, I must admit that I had been waiting for this for so long."</p>
 <p>Sol hid a shiver of anticipation. It couldn't be, right? Perhaps he wasn't understanding what she meant.</p>
 <p>"Say, Sol. You do know that even though we are known as the church of Castitas, we do not preach to our believers to never have romantic relationships? As long as it does not transform into promiscuity they are free to do as they wish. Love and lust are two sides of the same coin. As such, even the nuns are allowed to marry whenever they wish to. But…"</p>
 <p>Letting her words trail a bit, she straddled him and locked his blue eyes with her own.</p>

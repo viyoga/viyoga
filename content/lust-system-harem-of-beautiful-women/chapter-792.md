@@ -119,7 +119,7 @@ chapter = 792
 
 <p>Her soft little tongue responded eagerly, and her small hands began groping him through his clothes.</p>
 
-<p>&quot;Brother-in-law, did you miss me~!!&quot;</p>
+<p>&quot;Brother-in-law, did you miss me!!&quot;</p>
 
 <p>After a passionate kiss that left them both breathless, Luis carried her up to a guest room on the third floor.</p>
 
@@ -127,7 +127,7 @@ chapter = 792
 
 <p>The young girl was at the age of first love, bold and unafraid. Her personality was anything but shy, despite her innocent appearance.</p>
 
-<p>&quot;Of course I missed you, baby~ You smell so good.&quot;</p>
+<p>&quot;Of course I missed you, baby You smell so good.&quot;</p>
 
 <p>Locking the door, Luis kissed her again. Between gasps, they peeled off each other’s thin clothing until they were completely naked.</p>
 
@@ -139,11 +139,11 @@ chapter = 792
 
 <p>&quot;Brother-in-law... I’m all sweaty. I want to take a shower first.&quot; The little cousin said, her face flushed.</p>
 
-<p>&quot;No need, you smell wonderful. Your brother-in-law loves this scent~!&quot;</p>
+<p>&quot;No need, you smell wonderful. Your brother-in-law loves this scent!&quot;</p>
 
 <p>As he spoke, Luis lowered himself to gently lick her pink, tender nipples, while his hands caressed the inside of her thighs.</p>
 
-<p>&quot;Brother-in-law~...&quot;</p>
+<p>&quot;Brother-in-law...&quot;</p>
 
 <p>Though she was still a virgin, her affair with her brother-in-law had become increasingly intimate. They’d done everything except the final act.</p>
 
@@ -153,7 +153,7 @@ chapter = 792
 
 <p>Luis swallowed hard and couldn’t resist gently licking it...</p>
 
-<p>&quot;Ahhh~ Brother-in-law... I want to lick you too~&quot;</p>
+<p>&quot;Ahhh Brother-in-law... I want to lick you too&quot;</p>
 
 <p>Holding her petite body, Luis positioned her to sit on his face, using the 69 position to taste her pink, sweet, virgin folds.</p>
 

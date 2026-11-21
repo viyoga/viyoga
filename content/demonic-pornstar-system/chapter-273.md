@@ -21,7 +21,7 @@ chapter = 273
 <p>Aria sighed. "Oh, no."</p>
 <p>Too late. Luna had already started shoveling coins, rings, and a particularly shiny dagger into her bag like a squirrel on caffeine. She snickered under her breath as she worked.</p>
 <p>"Loot goblin... Nyx laughed, then gave a helpless shrug, and joined her. "With this much, we could afford all the gear we want. Maybe even a private tower. Paying off my debt to that disgusting man would be a mere drop in the bucket."</p>
-<p>Bastet’s eyes shone as she twirled a silk drape between her fingers. "Mmm... sleeping beside this kind of aesthetic... So delicious~ I’m already redecorating my den in my mind."</p>
+<p>Bastet’s eyes shone as she twirled a silk drape between her fingers. "Mmm... sleeping beside this kind of aesthetic... So delicious I’m already redecorating my den in my mind."</p>
 <p>Aria didn’t like what she was hearing. "We’re selling them! You’ll have to decorate your room with something else."</p>
 <p>"I’m not selling a single candlestick. You’ll have to kill me!" Bastet declared with a hiss.</p>
 <p>Kaiden didn’t say a word.</p>

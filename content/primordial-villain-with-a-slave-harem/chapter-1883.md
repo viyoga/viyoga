@@ -79,7 +79,7 @@ chapter = 1883
 <p>The tail stopped swishing.</p>
 <p>In the dark of the soul realm, the demoness’s chin lifted. The pink eyes opened the rest of the way, unhurried, and found Lilyanna through every careful layer of a goddess’s scrying.</p>
 <p>Nyxara smiled.</p>
-<p>"Kukuku..." The chuckle crossed dimensions without asking permission. "Peeping into other women’s homes, little goddess~? And they call you the pure one..."</p>
+<p>"Kukuku..." The chuckle crossed dimensions without asking permission. "Peeping into other women’s homes, little goddess? And they call you the pure one..."</p>
 <p>She waved the way adults wave at a child caught at a keyhole, small fingers folding one after another.</p>
 <p>Lilyanna moved faster than she had moved in the entire battle.</p>
 <p>The scrying tore shut under her palm. Starlight scattered across the dais, and the Goddess of Purity found herself pressed into the back of her own throne with both hands clamped over a dead mirror.</p>

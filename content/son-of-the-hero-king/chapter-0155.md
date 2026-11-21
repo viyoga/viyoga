@@ -88,7 +88,7 @@ chapter = 155
 <p>Yawning, she raised the upper part of her body before stretching.</p>
 <p>Like any straight man worthy of the name, Sol’s eyes were immediately attracted by the round and bouncy balls full of dreams called breasts.</p>
 <p>Persephone didn’t miss this reaction and laughed mischievously,</p>
-<p>“Fufufu~! Are you interested in continuing?”</p>
+<p>“Fufufu! Are you interested in continuing?”</p>
 <p>“I will have to pass for now. Do you wish to take a bath?”</p>
 <p>“Why not?”</p>
 <p>Sol had already stopped using honorifics when talking to her. After all, even though they weren’t exactly lovers now, they weren’t as distant as they were initially.</p>

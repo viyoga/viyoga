@@ -56,7 +56,7 @@ chapter = 133
 <p>Receiving no answer, she could only close her eyes while clenching her teeth in frustration.</p>
 <p>“You guys are really manipulative bitches.”</p>
 <p>This time the answer she received was a derisive laugh,</p>
-<p>[And you are no different from us. I wonder how our little prince will react when he learns the truth about how you used his beloved uncle? It will be really entertaining to watch. Hahaha~!]</p>
+<p>[And you are no different from us. I wonder how our little prince will react when he learns the truth about how you used his beloved uncle? It will be really entertaining to watch. Hahaha!]</p>
 <p>With this last laugh, Camelia could feel the divine presence of Castitats vanish from her mind and all she could do was let a bitter feeling swell up inside of her.</p>
 <p>She didn’t naively believe that Sol would just smile and forgive her like he did during her last stunt.</p>
 <p>Thinking about this, she sighed before looking at the ceiling with determination.</p>
@@ -97,7 +97,7 @@ chapter = 133
 <p>Currently, three Kings class surrounded Nihil, but even then, she showed no change in expression.</p>
 <p>Canceling her spell, she immediately became intangible once again and walked out of the binding.</p>
 <p>“So the witches really decided to interfere?”</p>
-<p>“Arara~!? Do not misunderstand. I couldn’t care less about what happened to this kingdom. Even if my dear friends died, that would simply be their fates. But see, you guys tricked my stupid little sister, and mother isn’t happy about that.”</p>
+<p>“Arara!? Do not misunderstand. I couldn’t care less about what happened to this kingdom. Even if my dear friends died, that would simply be their fates. But see, you guys tricked my stupid little sister, and mother isn’t happy about that.”</p>
 <p>For the first time, Nihil's expression shifted a little.</p>
 <p>After all, even though she had become a demigod, compared to Ambrosia who had reached that level a few centuries ago, she was still too weak.</p>
 <p>This was even more so since breaking the Necromancer King’s seal had not been an easy task.</p>
@@ -138,5 +138,5 @@ chapter = 133
 <p>“Indeed.” Lilith nodded at Camelia’s proposal. She also wished to see how her daughter was doing.</p>
 <p class="scene-break">· · ·</p>
 <p>Meanwhile, close to the Gorfard Mansion, Theresa, who was previously running to meet Sol, stopped in front of an unconscious golden-haired girl wearing a red dress who had disgusting shadow wriggling out of her stomach and her missing arms,</p>
-<p>“Oh~oh. I really always find interesting things when I run away from something else.”</p>
+<p>“Ohoh. I really always find interesting things when I run away from something else.”</p>
 <p>(AN: Seems like Theresa saved the day or was it Milia’s shadow? Lol. Anyway with this, the kingdom attack is basically over. Just a few chapters to wrap everything up and then we will focus on the star of this volume as well as some heavy revelations. This arc had only been 20 chapters but damn it was hard to write. Basically, all the chapters of this arc went past the 2K words.(E/N: Chap 118 was short. Kekw) Also did you know that Dhalia means betrayal in the flower language? Yeah quite ironical)</p>

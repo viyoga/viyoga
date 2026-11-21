@@ -15,13 +15,13 @@ chapter = 382
 
 <p>Lifting his gaze, Qingyi left her tits for a brief moment. “What?” he asked, flashing a smile.</p>
 
-<p>“You-nghnn~~ shameless young master… is your greed endless?” Qianyao spoke breathlessly.</p>
+<p>“You-nghnn shameless young master… is your greed endless?” Qianyao spoke breathlessly.</p>
 
 <p>“Yes.” Qingyi grabbed Qianyao’s waist and planted a kiss on her lips, “And it’s ‘shameless husband’ to you now.</p>
 
 <p>Without even giving Qianyao time to respond, Qingyi spun around, pressing her against the forest ground, bringing one hand to the zipper of his pants.</p>
 
-<p>“Nghnn~~ father was right about black dragons, they are-Ah!~~” Qianyao’s words were interrupted by a sharp, cute squeal, Qingyi’s cock escaping its confinement.</p>
+<p>“Nghnn father was right about black dragons, they are-Ah!” Qianyao’s words were interrupted by a sharp, cute squeal, Qingyi’s cock escaping its confinement.</p>
 
 <p>The huge twenty-three-centimeter meat shaft hit Qianyao’s slim and elegant belly with a loud, wet smack, the base pressed against her wet crotch.</p>
 
@@ -43,7 +43,7 @@ chapter = 382
 
 <p>Qianyao sucked for another moment, sliding her tongue around the tip, tasting the salty flavor.</p>
 
-<p>“Ah…” She released Qingyi’s cock with a soft pop, “C-can you nghnn~~ not look at me like that? It’s… embarrassing”</p>
+<p>“Ah…” She released Qingyi’s cock with a soft pop, “C-can you nghnn not look at me like that? It’s… embarrassing”</p>
 
 <p>“Like what? Like a man who is about to take the most perfect thing in this world for himself?”</p>
 
@@ -53,7 +53,7 @@ chapter = 382
 
 <p>The ripples calmed down for a brief moment, only for the next impact to come.</p>
 
-<p>“Nghnn~~ oghnn~~ aghnn~~ aren’t you ashamed? Oghnn~~ using the only daughter of the dragon people’s patriarch like this? Oghnn~~” Qianyao asked between broken moans, her breasts dominated by nothing but the rapid, violent impacts of Qingyi’s hips.</p>
+<p>“Nghnn oghnn aghnn aren’t you ashamed? Oghnn using the only daughter of the dragon people’s patriarch like this? Oghnn” Qianyao asked between broken moans, her breasts dominated by nothing but the rapid, violent impacts of Qingyi’s hips.</p>
 
 <p>Qingyi just laughed at those words, feeling his cock reach its absolute limit, the tightness of Qianyao’s breasts milking him with no less vigor than a virgin, tight pussy.</p>
 
@@ -71,9 +71,9 @@ chapter = 382
 
 <p>Her lips instinctively closed around the member, her cheeks puffing out, her throat unable to handle the entire volume while the tight seal of her lips prevented it from leaking out.</p>
 
-<p>“Gulp… Gulp… Gulp… gulk~~” The sounds of Qianyao’s ravenous swallows were punctuated by soft chokes, her eyes becoming fiery with desire, one last gulp sliding down her throat.</p>
+<p>“Gulp… Gulp… Gulp… gulk” The sounds of Qianyao’s ravenous swallows were punctuated by soft chokes, her eyes becoming fiery with desire, one last gulp sliding down her throat.</p>
 
-<p>“Ah…” Qingyi exhaled, feeling a little resistance as he pulled his cock from Qianyao’s lips, finally freeing up space for her gasping breath. “Nghnn~~ you… I…” Qianyao searched for words in her mind, her beautiful golden eyes narrowed, her face as red as a tomato. She found no words, no desire to resist, even the urge for it to just end quickly had been swept from her body.</p>
+<p>“Ah…” Qingyi exhaled, feeling a little resistance as he pulled his cock from Qianyao’s lips, finally freeing up space for her gasping breath. “Nghnn you… I…” Qianyao searched for words in her mind, her beautiful golden eyes narrowed, her face as red as a tomato. She found no words, no desire to resist, even the urge for it to just end quickly had been swept from her body.</p>
 
 <p>She just… wanted more.</p>
 

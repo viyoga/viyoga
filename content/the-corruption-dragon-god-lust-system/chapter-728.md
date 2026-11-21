@@ -37,7 +37,7 @@ chapter = 728
 
 <p>Qingyi’s hips sank deep into the soft flesh of her buttocks, and a powerful shockwave rolled through the entire length of those full, plump globes, rippling outward from the point of impact and sending tremors across her creamy skin.</p>
 
-<p>“AGHNNN~~ F-FUCK! Q-Qingyi… husband… Gentler, nghnnn~~ s-so big~ filling me up so much~”</p>
+<p>“AGHNNN F-FUCK! Q-Qingyi… husband… Gentler, nghnnn s-so big filling me up so much”</p>
 
 <p>Xue Hua clutched her own breasts desperately, her delicate hands—far smaller than her man’s—unable to encompass all that vast, soft mass of flesh.</p>
 
@@ -61,17 +61,17 @@ chapter = 728
 
 <p>Clap</p>
 
-<p>“Nghnn~~”</p>
+<p>“Nghnn”</p>
 
-<p>“Oghnn~~”</p>
+<p>“Oghnn”</p>
 
-<p>“Aghnn~~”</p>
+<p>“Aghnn”</p>
 
-<p>“Q-qingyi~”</p>
+<p>“Q-qingyi”</p>
 
-<p>“Love~~”</p>
+<p>“Love”</p>
 
-<p>“So big~”</p>
+<p>“So big”</p>
 
 <p>Soon, that obscene symphony was the only thing filling Qingyi’s room.</p>
 
@@ -103,7 +103,7 @@ chapter = 728
 
 <p>Like a flood, his hot cum poured into the beauty’s womb, gush after gush of boiling seed filling her to the brim, overflowing the edges of her tight entrance.</p>
 
-<p>“Aghhnnn~~ your cum…” She brought her delicate hands to her own belly, feeling Qingyi’s cock throb deep inside her, pumping even more hot semen into her depths.</p>
+<p>“Aghhnnn your cum…” She brought her delicate hands to her own belly, feeling Qingyi’s cock throb deep inside her, pumping even more hot semen into her depths.</p>
 
 <p>“So hot… so full…”</p>
 

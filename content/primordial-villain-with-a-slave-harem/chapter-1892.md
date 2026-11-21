@@ -66,9 +66,9 @@ chapter = 1892
 <p>The samurai’s voice climbed with sheer disbelief. "You stood in a burned record-house and made a creed out of it. You said you’ll not stop until no child has to wait for help that never comes. Do you really think your work is done?"</p>
 <p>Iris’s head came up.</p>
 <p>"...Watch your tone before I beat you up, you slit-eyed cunt."</p>
-<p>"Sure, come at me~" Ayame’s grin arrived, wicked and warm at once. "Thirty-nine tenants, and you think you’re finished. Your hell has one shitty little village in it, you tragic landlord. There’s a whole damned universe of deserving candidates out there, and you dare act listless?"</p>
+<p>"Sure, come at me" Ayame’s grin arrived, wicked and warm at once. "Thirty-nine tenants, and you think you’re finished. Your hell has one shitty little village in it, you tragic landlord. There’s a whole damned universe of deserving candidates out there, and you dare act listless?"</p>
 <p>"She is right, you know," Lucille said warmly, drifting closer with the rest of the family, utterly at home on the royal floor. "The place looked quite spacious. It would be a shame to stop furnishing it."</p>
-<p>"Group verdict~" Kitsara sang, five white tails swishing. "You’re amazing, we love you, don’t cry, and let’s go ruin a billion more scumbags!"</p>
+<p>"Group verdict" Kitsara sang, five white tails swishing. "You’re amazing, we love you, don’t cry, and let’s go ruin a billion more scumbags!"</p>
 <p>"Cry?" Iris muttered dryly, and the word sat wrong in her own mouth. "Me?"</p>
 <p>Then a blonde comet arrived.</p>
 <p>Blossom had held herself back for as long as dogkin physics allowed, and that time was over. She planted herself directly in front of Iris, tail going, hands balled into determined fists.</p>

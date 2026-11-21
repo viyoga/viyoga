@@ -69,7 +69,7 @@ chapter = 154
 
 <p>His luscious fingers ran along her slender waist, up to her large, full breasts, squeezing them until he heard that sweet, obscene moan he loved so much.</p>
 
-<p>“You shameless disciple-mmmhn~~” Qingxue shuddered as she placed her hands over Qingyi’s on her breasts.</p>
+<p>“You shameless disciple-mmmhn” Qingxue shuddered as she placed her hands over Qingyi’s on her breasts.</p>
 
 <p>She tried to pull him away, but her body immediately lost its strength, melting back into his arms.</p>
 

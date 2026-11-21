@@ -42,7 +42,7 @@ chapter = 2008
 <p>Her eyes travelled down his armour before returning to the red glow of his visor.</p>
 <p>"Would you take that helmet off if I asked nicely?"</p>
 <p>"Would you answer a question if we asked nicely?" Vex purred.</p>
-<p>"You could try~"</p>
+<p>"You could try"</p>
 <p>"What level is Scaly, please?" Blossom asked immediately.</p>
 <p>Veshara burst out laughing, her thick tail sweeping brick fragments out of the way as she bent toward the dogkin.</p>
 <p>"Oh, I like you."</p>
@@ -56,7 +56,7 @@ chapter = 2008
 <p>"Scaly is a bad girl."</p>
 <p>"Eh?"</p>
 <p>"She refuses to take responsibility. Blossom doesn’t like her."</p>
-<p>"Okay, okay, I’ll pay your ransom money, just stop being mad at me, cutiepie~" Keeping one hand offered to Quinlan, Veshara pressed the other over her heart. "My heart couldn’t take that..."</p>
+<p>"Okay, okay, I’ll pay your ransom money, just stop being mad at me, cutiepie" Keeping one hand offered to Quinlan, Veshara pressed the other over her heart. "My heart couldn’t take that..."</p>
 <p>Blossom looked ready to spit on the utterly shameless woman.</p>
 <p>"So be it." Quinlan left her offered hand waiting. "You may pay us now."</p>
 <p>"Right now?"</p>

@@ -17,7 +17,7 @@ chapter = 1061
 <p>Lilith clicked her tongue. "Curses. I should’ve brought the whole team. What’s she doing sleeping on top of this man’s head anyhow?"</p>
 <p>The little cat ignored them both, still mid-stretch, tail flicking with slow, lazy rhythm. She finished with a luxurious roll onto her back, paws batting the air for a few seconds as a final morning excercise before she righted herself again.</p>
 <p>Then, at long last, she finally bothered to answer.</p>
-<p>"Mmn~ His presence is just so calming," Yoruha purred, voice drowsy but velvety. "Sleeping on him has been giving me the best quality rest I’ve had in, well... forever."</p>
+<p>"Mmn His presence is just so calming," Yoruha purred, voice drowsy but velvety. "Sleeping on him has been giving me the best quality rest I’ve had in, well... forever."</p>
 <p>Her voice carried a strong hint of annoyance. "And a pair of lunatic sisters ruined it."</p>
 <p>"Don’t lump me in the same basket with my older sister. I’m perfectly normal."</p>
 <p>"You both popped out of the same hole."</p>

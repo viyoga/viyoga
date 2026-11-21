@@ -65,7 +65,7 @@ chapter = 946
 <p>Before the battle, Alik, who was waiting in this next building, immediately jumped and infiltrated through the window, and Sawayanagi Azuma and Sawayanagi Tobe waited on the 3rd floor of the Hatake Investment company building before going down to the 2nd floor and entering through the office Door.</p>
 <p>"There was nothing for me to do."</p>
 <p>As the three People who had gone into battle returned, Sawayanagi Mikiyo, who was in charge of the sniper at Seryu Military Company, said as if she was disappointed. Originally, she was going to blow off the wrist holding the Bomb when the enemy leader was about to detonate the Bomb, but she missed the opportunity to play an active role at the signal that Sawayanagi Sinya's hacking was successful.</p>
-<p>"By the way, Alik~! You've gotten so strong?!"</p>
+<p>"By the way, Alik! You've gotten so strong?!"</p>
 <p>Rianna Holden, who was standing next to Sawayanagi Mikiyo, hugged Alik tightly and said. Alik nodded with his unique Expressionless face and said, Alik, got stronger. If Taira Ryuta, who calls himself an Alik expert, saw it, he would say that Alik was making a proud Expression, but to the average Person, it felt like his usual Expressionless face.</p>
 <p>"By the way, how was the thoughtography? I couldn't see the reaction at the time because I was busy hacking the signal of the Opponent's VR diver."</p>
 <p>In the early stages of the Opponent's invasion, Rianna Holden was also busy hacking the signal of the Opponent's VR diver in the Situation room. They had to cut off communication before revealing this side's True Identity. That Work was successful, so the connection with the Opponent's Situation room was completely cut off after the Opponent entered the office.</p>
@@ -80,5 +80,5 @@ chapter = 946
 <p>And she closed the laptop that was spread out on the table and started gathering various items. Sawayanagi Azuma smiled at the sight and helped her pack her Luggage, opening her mouth.</p>
 <p>"Let's empty this Situation room too. The Opponent might come to check it."</p>
 <p>With that, Seryu Thai and Alik, who had succeeded in this Operation, erased all traces and disappeared like ghosts.</p>
-<p>The illustration request I received yesterday was a spoiler request, so I started working on it and thought, Huh? Is this a bit of a spoiler? and didn’t upload it hehe. Please make requests that follow the illustration request rules~!</p>
-<p>Today's illustration is a B-cut of today's scene~! I tried to make everything dark to give the feeling of a gloomy office, hehe.</p>
+<p>The illustration request I received yesterday was a spoiler request, so I started working on it and thought, Huh? Is this a bit of a spoiler? and didn’t upload it hehe. Please make requests that follow the illustration request rules!</p>
+<p>Today's illustration is a B-cut of today's scene! I tried to make everything dark to give the feeling of a gloomy office, hehe.</p>

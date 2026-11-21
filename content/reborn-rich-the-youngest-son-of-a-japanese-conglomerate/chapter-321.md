@@ -59,7 +59,7 @@ chapter = 321
 <p>For reference, Alik called Egawa Shiho "Mama." Egawa Shiho had a strong request for it, and after hearing that story, I thought I should be careful about this auntie.</p>
 <p>It seemed that Egawa Shiho wanted Alik to develop social skills while living with her peers and learn swordsmanship from Shimokawabe Airen during the rest of the time.</p>
 <p>Around the time Alik had chosen all the elective subjects, the door to the education preparation room opened, and Konoe Akina and Otagi Yuka came in.</p>
-<p>"Alik~!"</p>
+<p>"Alik!"</p>
 <p>Konoe Akina ran over and hugged Alik tightly as soon as she saw her. Otagi Yuka was approaching with an expression of "Who is this?" because it was her first time meeting Alik.</p>
 <p>"Konoe-ssi knows Alik well.... Otagi, the child being hugged by Konoe-ssi here is Egawa Alexandra. She transferred today."</p>
 <p>"Ah, a transfer student? I was wondering who it was."</p>
@@ -74,7 +74,7 @@ chapter = 321
 <p>"She's not a cute child, she's Alik."</p>
 <p>In the end, Otagi Yuka also screamed "Kyaa!" and hugged Alik. Our Alik is a bit cute, isn't she? Although she's growing at a scary rate recently. That's because it's a bit of a late growth spurt.</p>
 <p>"Okay, you two go back to class. I'll take Alik during the morning assembly."</p>
-<p>"Okay, Ryuta-ssi. See you later, Alik~!"</p>
+<p>"Okay, Ryuta-ssi. See you later, Alik!"</p>
 <p>"Okay, Ryuta-nim!"</p>
 <p>I told them in advance, so they'll take good care of her. I asked Alik what she was curious about until the end of the day.</p>
 <p>"Where are you living now?"</p>
@@ -89,7 +89,7 @@ chapter = 321
 <p>At my words, Alik bowed slightly and opened her mouth.</p>
 <p>"Call me Alik. Let's get along."</p>
 <p>It was a fluent greeting for Alik. It seemed like Alik had practiced to greet her peers in her own way.</p>
-<p>"Kyaa~! So cute! So dangerous, Ryuta-jji, where did you bring this super cute child from?"</p>
+<p>"Kyaa! So cute! So dangerous, Ryuta-jji, where did you bring this super cute child from?"</p>
 <p>Seizawa Shii shouted that Alik was cute, and Konoe Akina and Otagi Yuka were looking at that scene with a happy expression. What, are you guys Alik's parents? You're really making a dad smile.</p>
 <p>----</p>
 <p>When I decided on the St. Francisco uniform, I had already made an Alik uniform version ㅎㅎ</p>

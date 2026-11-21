@@ -12,7 +12,7 @@ chapter = 570
 <p>Nyx leaned in from one side, her head coming to rest against his shoulder. Calypso claimed the other, crimson skin warm as she nestled close, her cheek pressed against him lovingly, nuzzling herself as close as possible. Both of them sighed once they were settled, the sound low and content, like the day’s violence was finally bleeding out of them.</p>
 <p>Luna hesitated.</p>
 <p>She glanced around, clearly weighing her options. "You needy bitches took all the good spots..." She grumbled cutely.</p>
-<p>"What do you mean? You can sit opposite us~" Nyx purred, fully aware of Luna’s real thoughts.</p>
+<p>"What do you mean? You can sit opposite us" Nyx purred, fully aware of Luna’s real thoughts.</p>
 <p>The Storm Valkyrie’s eyes narrowed at the curvaceous beauty, then her cheeks flushed faintly before committing. Slipping between Aria and Bastet, she eased herself back until her spine met Kaiden’s chest, shoulders tucking beneath his chin.</p>
 <p>"Ah!"</p>
 <p>"Hey!"</p>

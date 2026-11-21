@@ -1,5 +1,5 @@
 +++
-title = "Chapter 797: Close Your Eyes~~ [18+]"
+title = "Chapter 797: Close Your Eyes [18+]"
 weight = 797
 [extra]
 chapter = 797
@@ -101,7 +101,7 @@ chapter = 797
 
 <p>It sprayed across their flushed faces, on their eyelids, their delicate noses, their lips...</p>
 
-<p>&quot;Ahhh~...&quot;</p>
+<p>&quot;Ahhh...&quot;</p>
 
 <p>Luis let out a beast-like howl of excitement, completely satisfied after that unrestrained release.</p>
 

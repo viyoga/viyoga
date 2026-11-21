@@ -59,7 +59,7 @@ chapter = 295
 
 <p>“Are you sure you haven’t forgotten anything?” Qingyi slapped Meilin hard on the ass, eliciting a suppressed yelp from her.</p>
 
-<p>“Ughnn~~ shameless scoundrel husband…” She repeated, this time receiving a positive nod from Qingyi. “Do you know what Dad’s going to do to you when he finds out you’ve taken my purity?”</p>
+<p>“Ughnn shameless scoundrel husband…” She repeated, this time receiving a positive nod from Qingyi. “Do you know what Dad’s going to do to you when he finds out you’ve taken my purity?”</p>
 
 <p>“Hm… give me a big hug and declare me the best son-in-law in history, heir to all his riches? Hahaha.” Qingyi laughed, even Meilin and Isabel giggling.</p>
 

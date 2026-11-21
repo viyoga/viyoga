@@ -84,7 +84,7 @@ chapter = 507
 <p>◆Holy Pillar</p>
 <p>◆Psychokinetic Reaction Shield</p>
 <p>My stats and traits were so great that it was hard to believe I was level 14. I kept being with Yamashiro Ryuta, so the acting skill was created and the proficiency kept increasing, and I taught the students, so the education skill was also created. I'm a little embarrassed that education was created....</p>
-<p>♬~♪~♩~♪~♪</p>
+<p>♬♪♩♪♪</p>
 <p>I was smiling happily while looking at the stat window when suddenly the phone rang. I checked who it was and it was Kasaoka Yuzuki.</p>
 <p>"Hello, Kasaoka-sensei-nim?"</p>
 <p>-I got divorced. Can we meet today?</p>

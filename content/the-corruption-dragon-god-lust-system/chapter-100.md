@@ -7,13 +7,13 @@ chapter = 100
 
 <p>Qingyi’s tired body slumped onto his back, his eyes fixed on the figure of Ruxue, who was still vigorously riding his cock.</p>
 
-<p>“What’s wrong, sweetie? Nghn~~ Are you tired already? Fufufu~~” Ruxue’s sweet, amused laugh rang through Qingyi’s ears, accompanied by the wet slaps of her plump, juicy ass hitting his waist.</p>
+<p>“What’s wrong, sweetie? Nghn Are you tired already? Fufufu” Ruxue’s sweet, amused laugh rang through Qingyi’s ears, accompanied by the wet slaps of her plump, juicy ass hitting his waist.</p>
 
 <p>She lowered her hands, leaning on his toned abdomen as she increased the rhythm of her bouncing on Qingyi’s cock. Her arms squeezed her breasts together, making them look even bigger.</p>
 
 <p>The handsome young man couldn’t help but grunt as another orgasm hit them both. Ruxue’s lustful moans exploded as his cock filled her with cum once again.</p>
 
-<p>“Hnngh~~ F-fuck~~” she moaned as she felt the hot liquid flooding her insides.</p>
+<p>“Hnngh F-fuck” she moaned as she felt the hot liquid flooding her insides.</p>
 
 <p>Qingyi didn’t know how many times they had done this, nor how many times he had released his seed into her womb.</p>
 

@@ -82,7 +82,7 @@ chapter = 264
 <p>I couldn't help but laugh out loud because Yukiko, who was awkwardly answering in Korean, was so cute. Yukiko blushed and asked me.</p>
 <p>,Did I say it wrong?"</p>
 <p>,No, you're too cute."</p>
-<p>,Ah, what~! I was surprised because I thought I said it wrong."</p>
+<p>,Ah, what! I was surprised because I thought I said it wrong."</p>
 <p>Yukiko poked my chest and acted cute, and I hugged Yukiko tightly because she was so lovely.</p>
 <p>----</p>
 <p>Pai-zuri scene....!</p>

@@ -73,7 +73,7 @@ He then started moving and along his rhythm, her body shook as well, giving Lith
 
 PAH! 
 
-"Hhnggg!~"
+"Hhnggg!"
 
 Lith slapped both of Lucy's ass cheeks and squeezed them tight, bringing forth a mix of sweet sting and pleasure.
 
@@ -121,7 +121,7 @@ Luna's nethers tingled as, for the first time, she saw this bold side of her Pri
 
 PAH!
 
-"Ahh~"
+"Ahh"
 
 Luna was. .hit once again for her impudence.
 
@@ -135,7 +135,7 @@ Saying so, Lith pushed her towards the railing at the sides and made her bend ov
 
 Ripping apart her skirt and panties, Lith smacked her butt once again and showing no gentleness, shoved his shaft into her wet cunt in one go. 
 
-"Ahhhhh!~"
+"Ahhhhh!"
 
 Loving it would be an understatement as Luna immediately soared in the high heavens with the rough treatment.
 
@@ -175,7 +175,7 @@ But the blood rushing towards her nethers was making her clouded mind much hazie
 
 PAH!
 
-"OHHH!~"
+"OHHH!"
 
 Getting both of her buttocks spanked, Luna moaned loudly once again.
 

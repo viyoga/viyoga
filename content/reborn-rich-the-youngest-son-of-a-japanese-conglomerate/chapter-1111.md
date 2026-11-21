@@ -5,7 +5,7 @@ weight = 1111
 chapter = 1111
 +++
 
-<p>This content continues from Part 2 of the Chapter 625 Chuseok Special Side Story, 'IF Story: What if Teacher Gajeong-ssi was Master/teacher?'~!</p>
+<p>This content continues from Part 2 of the Chapter 625 Chuseok Special Side Story, 'IF Story: What if Teacher Gajeong-ssi was Master/teacher?'!</p>
 <p>After a fierce battle, Sword Empress Ha Ae-ryeong and Fist Demon Gi Im-hyang suddenly joined forces and decided to make me their joint Disciple.</p>
 <p>No matter how well they got along, to make me their joint Disciple without even asking for my opinion... I was filled with anger at their actions, but Ha Ae-ryeong was a Sword Empress, and Fist Demon Gi Im-hyang was one of the Four Heavenly Kings of Hegemony, said to be the strongest in the world.</p>
 <p>In the end, I couldn't even put up any defiance and had no choice but to become their Disciple and undergo hellish training.</p>
@@ -29,7 +29,7 @@ chapter = 1111
 <p>"Sabu, I will go to Flying Heaven Castle!"</p>
 <p>While going to Flying Heaven Castle and back, I could get some rest from training, so I offered to go. And it's not like I don't know Flying Fairy Nasian.</p>
 <p>Because she was Sabu's friend, she had often visited the place where we were. She also gave me an allowance and doted on me.</p>
-<p>"Would you do that?" "Kyahaha~! If it's Yong-tae, he won't get beaten up anywhere, so he can go and come back for a bit."</p>
+<p>"Would you do that?" "Kyahaha! If it's Yong-tae, he won't get beaten up anywhere, so he can go and come back for a bit."</p>
 <p>The Sabus readily allowed me to go find the Flying Fairy. But there was someone who didn't easily permit it.</p>
 <p>"Yong-tae, don't go...!"</p>
 <p>Alexandra, still dangling from my arm, looked at me and spoke. She seemed to dislike me leaving this place.</p>
@@ -81,4 +81,4 @@ chapter = 1111
 <p>Although she was just calling my name, I knew its meaning well. I could feel it from her gaze and body language.</p>
 <p>"I understand. There's no other choice. This is for treatment..."</p>
 <p>As soon as my words ended, Nasian lifted her skirt. And spreading her legs, she showed me her groin, wet with vaginal fluid, and opened her mouth. "P-please, cool down this hot place of mine...♥"</p>
-<p>Nasian's attire B-cut~! After trying to create various Martial Arts-style attires, I decided on a blue Fairy-like attire hehe. Scene B-cut~! For the sitting scene, to match the background, I made quite a lot hehehe. Gojoy-nim requested Nagumo Sian Hanbok and Kimono~! Hanbok~! Kimono~! Geomun-kkaemuk-nim requested Chieri riding a horse in riding attire~! Inoegadoegopeun-nim requested Chieri in Hanbok~! TheDreaming-nim requested 1. Han Yu-gyeong in See-Through Hanbok at a daytime water park! 2. Lisa in a white Gyaru style taking off her Kimono at a low observation deck! 1. 2. Hwanbuljeoldaebulga-nim requested old model Otagi Yuka, Saionji Diana Hanbok~! Otagi Yuka~! Saionji Diana~!</p>
+<p>Nasian's attire B-cut! After trying to create various Martial Arts-style attires, I decided on a blue Fairy-like attire hehe. Scene B-cut! For the sitting scene, to match the background, I made quite a lot hehehe. Gojoy-nim requested Nagumo Sian Hanbok and Kimono! Hanbok! Kimono! Geomun-kkaemuk-nim requested Chieri riding a horse in riding attire! Inoegadoegopeun-nim requested Chieri in Hanbok! TheDreaming-nim requested 1. Han Yu-gyeong in See-Through Hanbok at a daytime water park! 2. Lisa in a white Gyaru style taking off her Kimono at a low observation deck! 1. 2. Hwanbuljeoldaebulga-nim requested old model Otagi Yuka, Saionji Diana Hanbok! Otagi Yuka! Saionji Diana!</p>

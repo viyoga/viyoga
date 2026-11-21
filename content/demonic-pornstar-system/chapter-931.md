@@ -31,7 +31,7 @@ chapter = 931
 <p>The man closed his mouth, sent her, Calypso, and Kaiden a look of anger, then scurried out.</p>
 <p>"Ah, is this how being a defenseless maiden that gets protected by her knight in shining armor feels like?" Calypso swooned, sending Luna a heart mark with her fingers.</p>
 <p>An instantaneous middle finger welcomed her words.</p>
-<p>"Kukuku... NEXT~!" she sang.</p>
+<p>"Kukuku... NEXT!" she sang.</p>
 <p>The next file said Eugene Wexler, B-tier barrier specialist, a reedy man with glasses and a cowlick who had scored top marks in the exam’s endurance segment by planting a barrier and refusing to die behind it, and he answered every technical question with nervous, precise competence.</p>
 <p>Then Kira, working down Doug’s standard list, asked why he wanted to join Eclipse specifically.</p>
 <p>Eugene inhaled. Held it. And detonated.</p>

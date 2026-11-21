@@ -33,7 +33,7 @@ chapter = 45
 <p>"Magic can be used in three different ways. One using absolute reasoning, this is witchcraft. One using faith, this is holy magic. The final one can be called bloodline magic as it is based on the species and such things. Hybrids are in a very weird situation. Their magic, if they inherit one, can be classed between bloodline magic and witchcraft."</p>
 <p>Sol grimaced a little. It seemed that all the witches liked sharing their knowledge a little too much. He just asked a simple question and he was getting a complete essay.</p>
 <p>*Ahem*</p>
-<p>"Oh~! Sorry sorry. So, in short, even though our magics are more or less similar, I can't do much for you about the initial phase. You need to feel it in your blood."</p>
+<p>"Oh! Sorry sorry. So, in short, even though our magics are more or less similar, I can't do much for you about the initial phase. You need to feel it in your blood."</p>
 <p>"...and that's why I have been seating for so long."</p>
 <p>"Indeed. Hum. Then why don't you focus on an emotion? Bloodline magic affects heavily the personality of the user. Fire is generally related to anger or lust. Ice to calm etc."</p>
 <p>Sol tilted his head. Confusion etched on his face.</p>

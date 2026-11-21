@@ -127,7 +127,7 @@ chapter = 589
 <p>Then, what about the prince himself?</p>
 <p>A few showed surprise. Many started to show glee or mockery at the situation. In lustburg, the nobles who had been pressed down because of the reforms Sol was establishing were already about to jump for joy.</p>
 <p>But —</p>
-<p>Sigh~!</p>
+<p>Sigh!</p>
 <p>A sigh full of tiredness and disappointment sounded, reaching the ears of all those watching.</p>
 <p>The light slowly dissipated, all this to show the three Sages standing further apart, all of them with the same incredulous face.</p>
 <p>“All that…For a drop of blood. How pitiful.”</p>

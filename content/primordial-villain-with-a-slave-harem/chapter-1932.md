@@ -55,7 +55,7 @@ chapter = 1932
 <p>Or not.</p>
 <p>"Go, Jas, go!" Serika joined, tanned muscles flexing in excitement.</p>
 <p>"The Tyrant of Commerce is about to collect her dues..." Aurora grinned.</p>
-<p>"Quin, brace yourself," Ayame purred. "She might present herself humble and innocent, but this girl might just be the greediest of us all~"</p>
+<p>"Quin, brace yourself," Ayame purred. "She might present herself humble and innocent, but this girl might just be the greediest of us all"</p>
 <p>The pull on the lattice climbed until his whole forearm glowed through the sleeve, and Quinlan stood there and let his newest bonded take everything she reached for.</p>
 <p>Then the drawing eased, gentle as a hand letting go, and the room hushed on its own.</p>
 <p>The script under Jasmine’s skin ran to the end of itself.</p>

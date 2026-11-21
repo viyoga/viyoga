@@ -30,7 +30,7 @@ chapter = 466
 <p>"Is it more important than staying with me and you? To neglect his wife and son, what a scoundrel!"</p>
 <p>Lady Hydral huffed in annoyance, then looked solemnly at Ansel, "You must not follow in your father's footsteps, Ans. Be a boy who is gentle with girls, understand?"</p>
 <p>"I will, Mother."</p>
-<p>"Good boy~"</p>
+<p>"Good boy"</p>
 <p>After engaging in casual conversation, Ansel informed Annelisa of his intention to visit the study of Flamelle. Understanding his nature, Annelisa casually permitted him to leave.</p>
 <p>Once he had completely left the garden, Ansel still endeavored to maintain his composure, not wishing any passing servant to witness the distress on his face.</p>
 <p>It won't do...</p>

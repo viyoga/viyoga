@@ -59,7 +59,7 @@ chapter = 456
 
 <p>He didn’t use much force, for obvious reasons, just letting his hand flow with the air, allowing it to touch Sapphire’s bust.</p>
 
-<p>“Uh? Q-Qingyi, what are you… aghnnn~~”</p>
+<p>“Uh? Q-Qingyi, what are you… aghnnn”</p>
 
 <p>The beauty’s mouth opened in confusion, which soon turned into a long moan.</p>
 
@@ -83,7 +83,7 @@ chapter = 456
 
 <p>His hand found those juicy, full, round orbs with a loud, wet smack, sending a powerful shockwave through both of them.</p>
 
-<p>“Nghnn~~”</p>
+<p>“Nghnn”</p>
 
 <p>The high elf shuddered, her lips parting as she felt that slight but burning pain. She fell to her knees beside Sapphire, her pale, milky cheeks immediately overtaken by an intense blush.</p>
 

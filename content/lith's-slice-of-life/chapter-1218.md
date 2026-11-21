@@ -70,7 +70,7 @@ Lith stayed silent on the matter. This prison belonged to vampires so naturally,
 
 
 
-Fuuuuuuuuuu~
+Fuuuuuuuuuu
 
 
 

@@ -70,7 +70,7 @@ chapter = 908
 <p>-Creation Chaos Style: Grand Cannon.</p>
 <p>An indigo blue Aura and a sparkling, starlight-like Aura of Creation Chaos began to fly towards Takakusaki Gengo's amniotic sac. Indeed, Shimokawabe Airen's long-range Slash attack, Alik's Lightning, Sakagami Rena's stealth techniques, and Athena Mannerheim's light-Sword also headed towards the amniotic sac along with my Grand Cannon.</p>
 <p>MidNightSKY-nim requested: Shii, breaking something and looking troubled, and Ryuta, agonizing over having to pay for the damages!</p>
-<p>First, Shii~!</p>
+<p>First, Shii!</p>
 <p>I don't know why her Bottoms are suddenly gone in the last image hehe.</p>
 <p>Ryuta, flustered + pissed off looking at the compensation bill haha</p>
 <p>"How much is all this, exactly?!"</p>
@@ -80,8 +80,8 @@ chapter = 908
 <p>1.</p>
 <p>2.</p>
 <p>With her Expression, she doesn't really give off an android Feeling haha.</p>
-<p>Gojoy-nim requested: Long hair Nagumo Sian's date attire and sexy lingerie attire~!</p>
-<p>Date attire~!</p>
+<p>Gojoy-nim requested: Long hair Nagumo Sian's date attire and sexy lingerie attire!</p>
+<p>Date attire!</p>
 <p>I tried making a classic-feeling outfit, and since her Figure is good, I thought a simple white t-shirt and Jeans would look pretty, so I made it haha. Long hair is also pretty haha.</p>
 <p>Sexy lingerie!</p>
 <p>Kkiyot!</p>

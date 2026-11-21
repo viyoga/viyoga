@@ -30,7 +30,7 @@ chapter = 586
 <p>“You evil monster.”</p>
 <p>Khali cackled, “Game?”</p>
 <p>Sol shrugged as he took one of her pawns, “I am in.”</p>
-<p>“Gah~ Okay. This is just the start.” She focused, “Now, would you mind sharing your evil genius master plan?”</p>
+<p>“Gah Okay. This is just the start.” She focused, “Now, would you mind sharing your evil genius master plan?”</p>
 <p>“When you say it like this, I feel like I am the bad guy.”</p>
 <p>“I mean. Wratharis may have been the one to declare the hostility but Lustburg was the one who baited them on it. Starting with Camelia’s Saint Fall. Everything started from there.”</p>
 <p>A kingdom without a supreme daughter could not erect the Holy Barrier that served as the last bastion. So for other countries, attacking Lustburg at that moment would have been the best if Camelia had indeed lost their power.</p>

@@ -16,7 +16,7 @@ chapter = 159
 <p>She tilted her head to the side as a hostile edge seeped into her expression. "Unless one of you has suddenly become guild master or been granted the right to negotiate on behalf of Nova Circuit, your opinions are meaningless. You are owed nothing."</p>
 <p>Once done with her statement, Aria smiled, but the friendly gesture didn’t reach her eyes.</p>
 <p>There was a heavy silence that descended as a result of the Moon Valkyrie’s cold declaration. Jack’s jaw clenched, Vaelira’s brows twitched in irritation, and Sasha looked like she had something more to say.</p>
-<p>Nyx clapped her hands together with a giant grin adorning her delicate lips. "What my icy sis said~."</p>
+<p>Nyx clapped her hands together with a giant grin adorning her delicate lips. "What my icy sis said."</p>
 <p>Luna just cracked her knuckles, fully agreeing with her silver-haired friend.</p>
 <p>"Let’s leave before your fellow guild members succumb to their wounds," Kaiden suggested, happy his girls had grown such a backbone in this short amount of time. They were bravely standing up to strong combatants who would’ve easily killed them mere days ago.</p>
 <p>"You’re one to say..." Leon growled with spite before gesturing toward both of his ruined arms with his chin. "I would’ve long been in the hand of the professionals awaiting our exit outside if you hadn’t decided to dick down that monster chick and just killed her."</p>

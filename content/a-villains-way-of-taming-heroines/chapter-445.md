@@ -56,6 +56,6 @@ chapter = 445
 <p>Ye again WebNovel needs 1000 words to publish so... here comes author's ranting time xD</p>
 <p>I can't believe I've been writing for so long... The idea for this story has been in my mind for a while, and the first confirmed main character is Seraphina. It was only natural for her to appear in the first chapter as a newbie boss (haha). Venna came to me while I was playing a certain R-18G game, and suddenly I had an idea: an idealist forced to choose between ideals and emotions...</p>
 <p>She could either become a machine to ideals or a slave to her feelings. But what if there were other possibilities? This internal struggle seemed really interesting! So, I started writing.</p>
-<p>As for the other characters in the future, I have a rough idea. I'll take my time and develop them. So far, I think the story is quite fascinating~</p>
+<p>As for the other characters in the future, I have a rough idea. I'll take my time and develop them. So far, I think the story is quite fascinating</p>
 <p>Thank you so much to the friends who have been commenting and silently supporting me xD I couldn't have made it this far without all of you. Through your comments, I've come to know the characters you each like. If there's a chance, I might consider writing some spicy side stories as extras in the future. Ahaha, not just kidding!</p>
 <p>Share to your friends</p>

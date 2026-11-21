@@ -5,7 +5,7 @@ weight = 1091
 chapter = 1091
 +++
 
-<p>Twitch~!</p>
+<p>Twitch!</p>
 <p>Jason stopped dead in his tracks as he sensed something moving beside him! Agiel had also felt the same thing, and she turned her head sharply to the side to see what was there!</p>
 <p>Agiel came face to face with a giant open mouth filled with thick black teeth that was about to swallow them, and she felt an indescribable surge of terror shoot through every single cell in her body! What in god’s name is that!?</p>
 <p>"Come on!"</p>
@@ -27,7 +27,7 @@ chapter = 1091
 <p>Jason realised in shock that he was standing upside down! Gravity was pulling him down to the ground, but he was standing in the air and looking down! It was as if his legs were made from magnets and they were stuck to the metallic ceiling! Jason had no idea what was going on here, but he decided to put that out of his mind as he had to continue moving to avoid the mouths that emerged from all around him!</p>
 <p>What Jason didn’t know was that he had moved so far within the Celestial Cloud that he had actually left the world of Voltax behind, and he was currently in another world where gravity was absolutely unpredictable! The Celestial Cloud was so large that it stretched across multiple worlds at the same time, and by moving across the Cloud, Jason was travelling through multiple worlds as well! Jason continued moving through the Celestial Cloud without stopping, and he looked over at Agiel to make sure that she was okay. Agiel had her eyes closed, and she was doing her best to stay still so she didn’t bother Jason while he moved. Since Agiel had now formed the Soul Bond, the limit on her growth had vanished, and she was already starting to reach the level of the TITANS, but Agiel was still only an SSS Rank, and so Jason’s speed was far too much for her to withstand! It was better for her to just trust Jason to get them out of this!</p>
 <p>Jason continued to follow his instincts as he hurried to reach the center of this cloud so they could finish this mission as quickly as possible, but then something happened that completely threw Jason off!</p>
-<p>’Wow, mister. You’re so cool~!’</p>
+<p>’Wow, mister. You’re so cool!’</p>
 <p>Jason nearly stumbled over his feet in shock as he heard an eerie voice echo through the darkness! For a moment, Jason actually forgot about the mouths, and he looked around him while holding his breath to try and see if the voice would speak up again! But there were no more voices, and no one showed themselves at all! There was only a deep, unnatural silence that stretched on for minutes without end. Jason turned to his side, and he was surprised to notice that the mouths were gone! They had been attacking until just a few minutes ago, but once the voice spoke up, it seemed like they all retreated!</p>
 <p>Jason and Agiel were both breathing heavily as they stood in the middle of eternal darkness, and Agiel spoke up in a low voice.</p>
 <p>"Where did that come from?"</p>

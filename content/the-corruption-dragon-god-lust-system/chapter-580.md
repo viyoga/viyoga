@@ -23,7 +23,7 @@ chapter = 580
 
 <p>Celestia only looked up again when she heard the sweet laughter of Isabel and Auranys, laughing at her words.</p>
 
-<p>“Uh… I don’t think hubby just wants a bath, hehehe~~” Isabel smiled, her eyes wandering from Auranys to the meeting point between the ample cleavage of their huge, heavy breasts.</p>
+<p>“Uh… I don’t think hubby just wants a bath, hehehe” Isabel smiled, her eyes wandering from Auranys to the meeting point between the ample cleavage of their huge, heavy breasts.</p>
 
 <p>Without hesitation, she grabbed Auranys’ delicate wrist and then Celestia’s.</p>
 
@@ -91,7 +91,7 @@ chapter = 580
 
 <p>Qingyi moved his finger with a little more force, feeling the embrace of her vulva lips as he reached the pink interior of her pussy.</p>
 
-<p>“Ah… you… naughty… perverted sinner- nghnn~~” Auranys moaned, her legs losing strength.</p>
+<p>“Ah… you… naughty… perverted sinner- nghnn” Auranys moaned, her legs losing strength.</p>
 
 <p>Being touched there by him was incomparably more pleasurable than having him suck her tits.</p>
 

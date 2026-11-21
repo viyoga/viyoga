@@ -45,7 +45,7 @@ chapter = 426
 <p>,I'm going to stop by my house, Sensei-nim."</p>
 <p>Sakagami Rena-ssi had to stop by her house because she wasn't wearing her school uniform. She took a shower with me, so she just needs to change her clothes.</p>
 <p>,See you at school."</p>
-<p>,Yes~! See you later, my lord♥"</p>
+<p>,Yes! See you later, my lord♥"</p>
 <p>I parted ways with Sakagami Rena-ssi at the entrance of my house and went to school at a fast pace. I was very close to the school and prepared quickly, so I was able to get past being 15 minutes late. Kasaoka Yuzuki-ssi contacted me, but I made the excuse that I was late because I overslept while preparing the exam questions, and she let it go.</p>
 <p>,Are you just coming now? You have to go in for the morning assembly now, Yamashiro-sensei."</p>
 <p>,Ah, I'm sorry."</p>

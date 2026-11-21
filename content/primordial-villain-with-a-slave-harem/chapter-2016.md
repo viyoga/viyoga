@@ -73,6 +73,6 @@ chapter = 2016
 <p>The freckled adventurer looked toward the witch, who had seated herself on a fallen trunk within reach of the fire’s warmth.</p>
 <p>"Would it work?"</p>
 <p>Vex’s grin widened.</p>
-<p>"I’m afraid not~"</p>
+<p>"I’m afraid not"</p>
 <p>She pointed to the trunk across the fire from her. Tavi went to sit there, managing to trip over absolutely nothing on the way.</p>
 <p>Della lowered her face over the herbs.</p>

@@ -19,7 +19,7 @@ chapter = 724
 <p>This might have been the best invitation Sol had received in days. There was no need to tell him twice.</p>
 <p>He held the base of his rock-hard cock and moved the tip against her pussy lips. His hips trembled from the heat of her wet flesh, but as he kept pushing forward, his penis was easily swallowed by her vagina.</p>
 <p>It went in so easily that he went in too hard and the head slammed into her deepest part.</p>
-<p>“Ahh~…! I can feel you inside me.” She arched her back and let out a heated moan when his erection penetrated her depths so suddenly, but she still managed to keep her voice low. Her soft vaginal walls wrapped around his dick and squeezed at the entire shaft with a familiar gentleness.</p>
+<p>“Ahh…! I can feel you inside me.” She arched her back and let out a heated moan when his erection penetrated her depths so suddenly, but she still managed to keep her voice low. Her soft vaginal walls wrapped around his dick and squeezed at the entire shaft with a familiar gentleness.</p>
 <p>Enjoying the story? Show your support by reading it on the official site.</p>
 <p>She wasn’t the only one feeling the pleasure. He nearly came right away after unexpectedly plunging in balls deep inside her. While it was a time to relax, there was no way he would allow himself to cum so fast. That’s why, to protect his pride, he had to hold her butt in his hands and bear with the pleasure for a moment.</p>
 <p>“You are even better than a succubus.” He muttered, his eyes vacant with euphoria. He already had sex with Lilin and Pandora but there was no comparison to his sexy maid. Milia was simply too compatible with him sexually, their sexual tension and chemistry were just on a whole other level. It felt like their bodies were made for each other.</p>
@@ -35,7 +35,7 @@ chapter = 724
 <p>He knew he would not last long if he kept thrusting inside her, but he did not slow down. In fact, he sped up as he approached climax.</p>
 <p>“I’m going to cum,” Sol whispered urgently to her.</p>
 <p>Milia moved her hips to accept the semen inside her. That increased the stimulation of their union and the great pleasure sent milk squirting from her breasts even though she was no longer massaging them and she reached her climax.</p>
-<p>“Ah~! Please fill me with your seed.” She pressed her face against the table to bear with the pleasure while the penis head hit her deep inside over and over and then her vagina began to convulse slightly. He had already been about to cum when this new squeezing hit him, so he moved his hips in a finishing blow for her as well.</p>
+<p>“Ah! Please fill me with your seed.” She pressed her face against the table to bear with the pleasure while the penis head hit her deep inside over and over and then her vagina began to convulse slightly. He had already been about to cum when this new squeezing hit him, so he moved his hips in a finishing blow for her as well.</p>
 <p>He hit his limit the instant he thrust deep inside the maid’s vagina.</p>
 <p>Semen squirted out like water from a broken dam. Milia arched her back and covered her mouth with her hands to suppress her voice as so much sperm flowed deep inside her. Soon, the sperm filled her vagina and began to flow back out while her shoulders rose and fell.</p>
 <p>Once the long ejaculation was over, his penis slipped out of her vagina and he sat back down in his chair.</p>

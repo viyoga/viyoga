@@ -13,7 +13,7 @@ chapter = 51
 
 <p>&quot;N-no... my mouth just slipped, it’s not what I wanted to say... the room is just hot...&quot;</p>
 
-<p>&quot;Is that so? You are a lying Mom~&quot;</p>
+<p>&quot;Is that so? You are a lying Mom&quot;</p>
 
 <p>&quot;I’m not... I’m not lying to you!..&quot; Her nose already went to the heavens as she stretched her blatant lies.</p>
 
@@ -43,7 +43,7 @@ chapter = 51
 
 <p>&quot;That’s, oh my, lovers... a love between...&quot; She didn’t finish what was racking her mind...</p>
 
-<p>&quot;Yes, Mom. Real lovers~&quot;</p>
+<p>&quot;Yes, Mom. Real lovers&quot;</p>
 
 <p>Owen was forced to gulp hard internally as she smelled so good. It was truly a crime to smell such a divine, busty MILF.</p>
 
@@ -51,13 +51,13 @@ chapter = 51
 
 <p>&quot;Ohh... and I recalled what you said just now. Did you just say in front of your son that you don’t want to share him, Mom?&quot; Owen scanned her, like a criminal who got caught doing something bad.</p>
 
-<p>&quot;Or did I hear wrong~?&quot; Owen was not gonna go back home without bringing anything.</p>
+<p>&quot;Or did I hear wrong?&quot; Owen was not gonna go back home without bringing anything.</p>
 
 <p>&quot;That’s because of my sudden outburst, you are not staying in our home.&quot; She couldn’t bring up any words.</p>
 
 <p>The matters that happened between him and Morenne were really burning her inside.</p>
 
-<p>&quot;Then it’s not real then I guess I will go to Aunt Morenne now~&quot; Owen stopped his fondling, as his technique no jutsu was at work again.</p>
+<p>&quot;Then it’s not real then I guess I will go to Aunt Morenne now&quot; Owen stopped his fondling, as his technique no jutsu was at work again.</p>
 
 <p>&quot;D-don’t, stay here. I want you... to stay here.&quot; Her grip on his nape became firmer as she couldn’t let him go to Morenne.</p>
 
@@ -79,7 +79,7 @@ chapter = 51
 
 <p>&quot;I-I’m not...&quot; Arielle lied, definitely looking like a kid who broke something and was too scared to say it to her parents.</p>
 
-<p>&quot;Slurp... then why are you enjoying it~? Supp... supp... supp...&quot; Owen sucked her neck... it was already the perfect time to make a move.</p>
+<p>&quot;Slurp... then why are you enjoying it? Supp... supp... supp...&quot; Owen sucked her neck... it was already the perfect time to make a move.</p>
 
 <p>&quot;Ahnn... It’s because of you... You are making my old, saggy body react so weird... ahnnn...&quot; She covered her mouth, as her moans were truly coming out.</p>
 

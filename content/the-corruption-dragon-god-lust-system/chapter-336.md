@@ -5,7 +5,7 @@ weight = 336
 chapter = 336
 +++
 
-<p>“hm… nyan~~” A soft sigh echoed from the rosy lips of a beauty with short orange hair and bright green eyes.</p>
+<p>“hm… nyan” A soft sigh echoed from the rosy lips of a beauty with short orange hair and bright green eyes.</p>
 
 <p>If Qingyi had been there, he would have recognized her as Linyue, youngest princess of the Cat Folk tribe.</p>
 

@@ -32,7 +32,7 @@ chapter = 10
 <p>A small enigmatic smile formed on her youthful face as she spoke in an amused tone.</p>
 <p>“You are such a flirt, you really remind me of your ancestor. It was also how he tricked me into this tower.”</p>
 <p>Sol let out a bitter smile at this accusation. He knew that even though she seemed dissatisfied, she didn’t hold any animosity against him. He didn’t understand why though. After all, in her place, he would have most likely gone crazy if his loved one betrayed him after promising him everything.</p>
-<p>“Fufufu~!! Don’t make such a face. You know very well that I do not see Jupiter's actions as a slight against me. I have never regretted giving everything I had to him.”</p>
+<p>“Fufufu!! Don’t make such a face. You know very well that I do not see Jupiter's actions as a slight against me. I have never regretted giving everything I had to him.”</p>
 <p>“But-”</p>
 <p>“Enough about that, I shouldn’t have brought this up in the first place. The weather is pleasing today, why don’t you have some tea?”</p>
 <p>She chided him gently as she pinched his nose with affection.</p>
@@ -60,7 +60,7 @@ chapter = 10
 <p>"Mars was also a student of mine as you know. But the way he found me was a little different. The one who brought him here was little Lilith. She was curious and didn't believe in the legend. So she brought him here and opened the door."</p>
 <p>It was clear that she could still see the scene play in her mind. Her smile was so dazzling. The fact that Edea was still sealed in the tower was a fact few knew even to this day. For others, her existence was more akin to a legend or a tale told to children as bedtime stories.</p>
 <p>Of course, as a witch, she was rarely the good guy in those stories.</p>
-<p>"When they entered they reacted the same way you and Setsuna did. They were frightened, but Mars didn't hesitate to stand in front of Lilith, and though his legs were shivering. Fufufu~! Just remembering this scene makes me laugh so much."</p>
+<p>"When they entered they reacted the same way you and Setsuna did. They were frightened, but Mars didn't hesitate to stand in front of Lilith, and though his legs were shivering. Fufufu! Just remembering this scene makes me laugh so much."</p>
 <p>She liked how both son and father reacted the same way and tried to protect the one they cared for. It was a heartwarming vision for her who had been betrayed. This helped her understand that not everyone had an ugly heart.</p>
 <p>"The moment I saw Mars, I immediately understood that he was different. Even though he was far from being 15 years old back then, he could already use mana. Albeit unconsciously.</p>
 <p>"At 15, he did something that hadn’t happened since the era of Jupiter and managed to contract with a mythical beast. Your mother — Blaze Dragona. As if that wasn’t grand enough, Blaze wasn’t just any dragon. She was the direct and most cherished daughter of Tiamat, the divine beast of Pride."</p>
@@ -74,7 +74,7 @@ chapter = 10
 <p>But this rule didn’t apply to Mars. After all, the moment he surpassed the Mythical level, he wasn’t really a human anymore.</p>
 <p>"Sol," Edea uttered, her eyes blazing with conviction, "Your father was a true monster. If he was still alive, there was no doubt Lustburg would have stopped being a kingdom and would have transformed into an empire, perhaps it would've ruled the entire world."</p>
 <p>This was the truth of Mars Luxuria. Truly a great man he was. Still,</p>
-<p>"Despite all of that, he was such a kid when facing women, especially the more forward ones. When they approached him, he'd start stuttering like a kid got caught doing something bad by his parents fufufu~!"</p>
+<p>"Despite all of that, he was such a kid when facing women, especially the more forward ones. When they approached him, he'd start stuttering like a kid got caught doing something bad by his parents fufufu!"</p>
 <p>Her smile changed into a teasing one as she continued.</p>
 <p>"Frankly, I'm more convinced it was your mother who proposed rather than your father, I just can't imagine him being proactive with women, with how they can easily lead him by the nose."</p>
 <p>All the great images he was etching in his mind of his legendary father, all of them, broken like shattered glass with just one declaration. He could only lament at that thought.</p>

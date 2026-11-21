@@ -67,7 +67,7 @@ chapter = 693
 <p>Calypso’s chin lifted. Bastet’s pupils narrowed to vertical slits, the predator’s focus of a creature that had just seen proof of a successful hunt. Aria’s mana flickered once across her shoulders, involuntary, the heat of pride expressing itself the only way her body knew how.</p>
 <p>Luna’s mouth curved into something that was technically a smile and functionally a threat.</p>
 <p>Nyx didn’t move at all, which on her was the most dangerous tell of them all. She simply looked at the standings with the quiet, absolute satisfaction of a woman reviewing a plan that had gone exactly the way she’d designed it.</p>
-<p>"Sucks to be them~" she purred.</p>
+<p>"Sucks to be them" she purred.</p>
 <p>The new standings hovered above Kaiden’s wrist in clean, translucent text.</p>
 <p>1st — Iron Halo: 92,200</p>
 <p>2nd — Silver Talon: 69,840</p>

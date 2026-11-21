@@ -42,10 +42,10 @@ chapter = 988
 <p>I've been quite busy lately, so I haven't been able to pay attention to the Kids at the mansion. Everyone except Jo Seodang had been given a Vacation until mid-March. The Jo Seodang Kids commute to and from Jo Seodang on their own, so that's fine, Shimokawabe Airen was gradually recovering her Condition and swinging her Sword with Alik, Saionji Diana was my driver until yesterday (she said she was going to Eve for Maintenance today), Kijimoto Jurie was holed up in the laboratory, but only Tsukiyo had nothing particular to do and was just focusing on Training. The Kids who went to the USA and the two at the shrine were also doing their own Work, so Tsukiyo seemed to have been bored all this time. That's why she raised her Hand most enthusiastically today.</p>
 <p>Come to think of it, it seems Tsukiyo was also the one who manipulated the two Shrine Maidens who visited me yesterday from behind. She was trying to appeal her intelligence to get other Work from me.</p>
 <p>"First, let's have lunch. I have a specific place to eat today, is that alright?"</p>
-<p>"I was already thinking of eating whatever Ryuta Older Brother wanted today~!"</p>
+<p>"I was already thinking of eating whatever Ryuta Older Brother wanted today!"</p>
 <p>Since Tsukiyo ate everything well, I thought it would be good to eat what I liked together. Today, I wanted Korean-style Chinese food, so I headed to a nearby Korean-style Chinese restaurant with Tsukiyo. I had made a Reservation in advance because I had someone to meet.</p>
 <p>I thought Neo Tokyo, being a new City, wouldn't have much, but with numerous companies flocking in, many restaurants seemed to have opened. Of course, many companies had their own cafeterias, but sometimes you want to eat something different, so you could see restaurant streets everywhere.</p>
-<p>"Junior-nim~!"</p>
+<p>"Junior-nim!"</p>
 <p>We parked in the shopping complex where the restaurant street was gathered and went to the restaurant I had scouted in advance, and Mimata Chieri greeted me with a smile. The person I was meeting today was not Secretary Mimata Chieri, but Mimata Chieri, the Boss of East Weapon.</p>
 <p>Since we met for Work, today we ordered a Chinese course dish. Tsukiyo, Mimata Chieri, and I all ate quite deliciously. Mimata Chieri, who had a hobby of visiting good restaurants, seemed quite satisfied, saying that she could add this place to her list of good restaurants today, and patted her Belly with a smile.</p>
 <p>Now, it's time to start Work. Before that, I decided to apologize to Mimata Chieri.</p>
@@ -62,15 +62,15 @@ chapter = 988
 <p>-Ryuta: I've finished the contract with East Weapon, so inform the Strategic Planning Team and distribute the Work to each Department.</p>
 <p>-Linxiang: Understood, Ryuta-nim!</p>
 <p>From now on, I should gradually start Auto-Hunting. Even so, no one would criticize me. Because I had the Achievement of signing a contract with East Weapon, the largest independent PMC.</p>
-<p>Shii delivering an uppercut, Ryuta slapping a cheek, requested by MidNightSKY-nim~!</p>
-<p>Starting with Shii~!</p>
-<p>Ryuta slapping a cheek~!</p>
+<p>Shii delivering an uppercut, Ryuta slapping a cheek, requested by MidNightSKY-nim!</p>
+<p>Starting with Shii!</p>
+<p>Ryuta slapping a cheek!</p>
 <p>Something wasn't expressed well like this, so I applied LORA, but</p>
 <p>The art style changed too much, so it won't work ㅎㅎ</p>
-<p>Lisa, and the Home Economics Teacher lying on a bed in a bikini, requested by Hwanbuljeoldaebulga-nim~!</p>
-<p>Starting with Lisa-tang~!</p>
-<p>Home Economics Teacher~!</p>
-<p>Sexy Ninja Nagumo Sian, Sexy Armor Nae, requested by ISaveI-nim~!</p>
-<p>Starting with Sian~!</p>
-<p>Nae~!</p>
+<p>Lisa, and the Home Economics Teacher lying on a bed in a bikini, requested by Hwanbuljeoldaebulga-nim!</p>
+<p>Starting with Lisa-tang!</p>
+<p>Home Economics Teacher!</p>
+<p>Sexy Ninja Nagumo Sian, Sexy Armor Nae, requested by ISaveI-nim!</p>
+<p>Starting with Sian!</p>
+<p>Nae!</p>
 <p>I was surprised while making them; surprisingly, the bikini Armor prompt didn't work ㄷㄷ So I added bikini + individual body part Armor prompts to create them ㅎㅎ</p>

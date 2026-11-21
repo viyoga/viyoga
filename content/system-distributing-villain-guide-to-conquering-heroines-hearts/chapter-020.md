@@ -10,7 +10,7 @@ chapter = 20
 <p>It was noon now.</p>
 <p>He had eaten twice already but still couldn’t get rid of the aftertaste, even after pretending to swallow the medicine in front of Natasha and moving it straight to his inventory the moment it disappeared down his throat.</p>
 <p>’Inventory is really my lifesaver. I would be done for without it.’ He thought, almost shedding a tear of gratitude.</p>
-<p>"Fufu~" Natasha laughed and covered her mouth with her hand when she saw the tears forming in his eyes.</p>
+<p>"Fufu" Natasha laughed and covered her mouth with her hand when she saw the tears forming in his eyes.</p>
 <p>She felt a small sense of revenge.</p>
 <p>It was a bit childish for someone her age, but Dante had a way of bringing out sides of her that she had buried deep under her calm facade.</p>
 <p>"Master, you’re so cruel! It was just a joke..." Dante could tell she had mistaken his reaction for something else, which only made him more annoyed.</p>

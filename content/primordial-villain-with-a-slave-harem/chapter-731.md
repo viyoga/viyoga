@@ -80,7 +80,7 @@ chapter = 731
 <p>Just me, Master, and the perverted butterfly sitting on me.</p>
 <p>Master’s strong arms held my thighs securely as he looked down below..</p>
 <p>"Ready, ladies?” he asked.</p>
-<p>&lt;Yeppers~!&gt; Kitsara cheered in her squeaky voice.</p>
+<p>&lt;Yeppers!&gt; Kitsara cheered in her squeaky voice.</p>
 <p>I grinned widely, my tail wagging as best it could in this position.</p>
 <p>"Blossom’s gonna rescue Natalie and Poppy!” I chirped.</p>
 <p>"Good.</p>
@@ -92,7 +92,7 @@ chapter = 731
 <p>My ears flattened, but my eyes were open wide, fixed on the darkened silhouette of Lionheart far, far below.</p>
 <p>The wind would’ve probably yeeted the little slutty foxy into the next kingdom if she hadn’t darted from my nose at the last second.</p>
 <p>Instead, she dove into the safety of my cleavage, snuggling between my heavenly plush mounds (as Master called my boobies) like it was a five-star inn for horny butterflies.</p>
-<p>&lt;Fwahhh~&gt; her little voice muffled in my mind, for she couldn’t speak using her butterfly body, &lt;these things are amazing.</p>
+<p>&lt;Fwahhh&gt; her little voice muffled in my mind, for she couldn’t speak using her butterfly body, &lt;these things are amazing.</p>
 <p>No wonder Quinnie is so obsessed with them.</p>
 <p>Honestly, you should lend them out for rent.</p>
 <p>I’d pay.&gt;</p>

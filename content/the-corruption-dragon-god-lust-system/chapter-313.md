@@ -9,7 +9,7 @@ chapter = 313
 
 <p>Qingyi’s fingers were now sinking into her pussy, while his tongue ran along her neck and he massaged her clitoris.</p>
 
-<p>“You son of a – mmghn~~ I’m not going to – nghnn~~” Qingyi increased the speed with which he masturbated her, interrupting her words.</p>
+<p>“You son of a – mmghn I’m not going to – nghnn” Qingyi increased the speed with which he masturbated her, interrupting her words.</p>
 
 <p>“You’re not going to what?” he asked provocatively, finally stopping the movement of his hands, sensing that she was ready. “Take all of your husband’s cock in that tight, pussy?”</p>
 
@@ -41,11 +41,11 @@ chapter = 313
 
 <p>His hips pressed against the pale, soft, fat cheeks of her ass, his cock appearing as a soft bulge in Margareth’s slim belly.</p>
 
-<p>“You- nghn~~” Margareth tried to curse him, but the word just stuck in her throat.</p>
+<p>“You- nghn” Margareth tried to curse him, but the word just stuck in her throat.</p>
 
 <p>“I what, hm?” Qingyi asked, slapping her on the ass. He relished the high-pitched squeal that escaped her lips and the sight of the shockwave spreading across her shapely buttocks.</p>
 
-<p>“Just… mhnn~~ do it already…” She spoke embarrassedly, her beautiful, cloudy blue eyes closing.</p>
+<p>“Just… mhnn do it already…” She spoke embarrassedly, her beautiful, cloudy blue eyes closing.</p>
 
 <p>She had initially accused Qingyi of being an incubus without much thought, but now she had her doubts.</p>
 
@@ -65,7 +65,7 @@ chapter = 313
 
 <p>Margareth’s mind was totally lost in pleasure, her pussy squeezing his cock even harder.</p>
 
-<p>“A-auranys… G-give me strength… oghnn~~ f-fuck~~ fuck~~ f-faster~~ nghnn~~ F-FASTER!” she screamed, her panting words soon turning into pleas.</p>
+<p>“A-auranys… G-give me strength… oghnn f-fuck fuck f-faster nghnn F-FASTER!” she screamed, her panting words soon turning into pleas.</p>
 
 <p>Qingyi obviously obeyed, reaching maximum speed.</p>
 

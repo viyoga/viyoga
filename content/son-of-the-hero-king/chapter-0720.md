@@ -10,7 +10,7 @@ chapter = 720
 <p>“Your mouth smells like apples.” He muttered, pleased.</p>
 <p>After moving a bit away, he poked at her cherry-blossom-petal-shaped lips with his tongue and licked off the overflowing saliva. The girl let him do as he wished, her eyes still closed in rapture.</p>
 <p>“I want to taste more of you.”</p>
-<p>“… Ah~” Jasmine could only let out a hot sigh in response.</p>
+<p>“… Ah” Jasmine could only let out a hot sigh in response.</p>
 <p>They said little, but she opened her mouth as if their hearts were connected.</p>
 <p>Unlike Satella, Jasmine had no reticence nor fear and had been waiting for this very moment with impatience. She immediately lost herself in the moment, happy to share this kiss with the man she admired for so long.</p>
 <p>Her mouth was soft and warm. The plentiful saliva that wrapped around his invading tongue left the greatest impression.</p>
@@ -36,7 +36,7 @@ chapter = 720
 <p>“How disrespectful.” This time it was Jasmine's turn to feel a mental orgasm of sorts. This was the Dragon Emperor. The very one who fought and beat even the Dragon Queen, Kiyohime. Yet this man who could bring down millions of elves, humans, and beastmen alike to kneel in reverence to him was now servicing her with his mouth.</p>
 <p>Sol, though, did not mind the current situation. He would be quite the pitiful partner if he could not bring pleasure to the women he shared a bed with. Furthermore, the mix between Jasmine's tanned skin and golden pubic hair was quite intriguing and attractive. To the point, he had to fight the mischievous urge to pull out a few hairs just to see her reaction.</p>
 <p>He slipped a hand between her thighs and sensed a strong, sweet aroma emanating from her sex. Before he could think about it, he sent his tongue crawling along the single line of her slit.</p>
-<p>“… It tingles so much…ahhhhhn~~!”</p>
+<p>“… It tingles so much…ahhhhhn!”</p>
 <p>Jasmine’s slender body jerked when his tongue tip touched the nectar-wet lips. He did not need to use any technique as the love juices flooded from the horny Supreme Daughter’s crotch as he licked her up.</p>
 <p>“Ah… The Dragon Emperor’s tongue… is licking my pussy…”</p>
 <p>It was an awkward caress where he only licked away the nectar, but the inexperienced Jasmine trembled and sweetly moaned with his head between her thighs. It pained him he could not see her reacting to the oral sex, but he knew she was definitely enjoying it.</p>

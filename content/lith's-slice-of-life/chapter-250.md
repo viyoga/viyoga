@@ -159,4 +159,4 @@ The door of their suite slammed open and a pink-haired, pink-eyed lady barged in
 
 She rushed towards Ralph as she saw him and said with enthusiasm,
 
-“Ralph chaaannnnn!~”
+“Ralph chaaannnnn!”

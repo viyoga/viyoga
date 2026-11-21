@@ -11,7 +11,7 @@ chapter = 406
 
 <p>They were now in her old bedroom, washing their bodies in the princess’s spacious, luxurious bathroom.</p>
 
-<p>“Nghnn~~ I’ll go when my husband goes…” She replied, sitting on Qingyi’s lap, her butt resting against his lap, his cock finding the cleft. between her soft thighs.</p>
+<p>“Nghnn I’ll go when my husband goes…” She replied, sitting on Qingyi’s lap, her butt resting against his lap, his cock finding the cleft. between her soft thighs.</p>
 
 <p>Isabel hugged him, pulling him into the valley of her huge, soft, round tits.</p>
 
@@ -21,19 +21,19 @@ chapter = 406
 
 <p>It wasn’t bad at all.</p>
 
-<p>“I’m going to wash you, hubby, hehehe~~” Isabel smiled.</p>
+<p>“I’m going to wash you, hubby, hehehe” Isabel smiled.</p>
 
 <p>She grabbed a small bottle of liquid soap and poured the contents over her breasts, the pink liquid contrasting with her dark skin.</p>
 
 <p>She was about to spread the soap over her chest, but Qingyi took the initiative. His hands sank into Isabel’s massive boobs with vigour, squeezing them firmly before letting go.</p>
 
-<p>“Nghnn~~ g-gentler hubby…” Isabel moaned.</p>
+<p>“Nghnn g-gentler hubby…” Isabel moaned.</p>
 
 <p>Qingyi just watched the voluptuous flesh undulate between his fingers. He ran them over from all angles, massaging firmly and watching the skin soon be covered in pure white foam.</p>
 
 <p>When he finally felt that Isabel’s breasts were ready, he released them. He gave her right tit a gentle pat, watching the mound of flesh undulate softly.</p>
 
-<p>“Fufufu~~” Isabel smiled and began to work.</p>
+<p>“Fufufu” Isabel smiled and began to work.</p>
 
 <p>She grabbed Qingyi’s right arm, pulling him into the valley of her huge chocolate-colored tits.</p>
 
@@ -45,7 +45,7 @@ chapter = 406
 
 <p>Qingyi just relaxed, feeling Isabel’s breasts leave his back when she finally reached his front.</p>
 
-<p>“Now there’s just one huge, thick spot left, huh? hehehe~~” Isabel giggled.</p>
+<p>“Now there’s just one huge, thick spot left, huh? hehehe” Isabel giggled.</p>
 
 <p>She stood face to face with Qingyi’s hard, throbbing cock as she pushed him, making him sit on the edge of the bathtub again. Isabel planted a kiss on the reddish tip, her lips parting around the enormous length, forming a firm, wet seal as she sucked.</p>
 
@@ -53,11 +53,11 @@ chapter = 406
 
 <p>She was about to envelop his member with her breasts when he acted. His hands grabbed the masses of flesh firmly, his hips moved, and his cock sank between the huge, chocolaty tits.</p>
 
-<p>“Oghnn… Hubby is so voracious today, huh?~~” Isabel laughed.</p>
+<p>“Oghnn… Hubby is so voracious today, huh?” Isabel laughed.</p>
 
 <p>Her hands went to the sides of her breasts, squeezing them around Qingyi’s cock.</p>
 
-<p>“Good-nghnn~~… fuck your little wife’s huge tits…” She moaned, her high-pitched, cute voice begging for his cock.</p>
+<p>“Good-nghnn… fuck your little wife’s huge tits…” She moaned, her high-pitched, cute voice begging for his cock.</p>
 
 <p>“This girl… Qingyi shook his head.</p>
 
@@ -65,7 +65,7 @@ chapter = 406
 
 <p>With a smile, he leaned on Isabel’s shoulders and pulled his cock back to almost the tip before forcing his hips forward again.</p>
 
-<p>“Aghnn~~ hubby!” Isabel’s naughty moan echoed.</p>
+<p>“Aghnn hubby!” Isabel’s naughty moan echoed.</p>
 
 <p>The sound was accompanied by the loud, wet smack of Qingyi’s hips hitting her huge, chocolaty breasts, sending a shockwave through her vast flesh.</p>
 
@@ -85,7 +85,7 @@ chapter = 406
 
 <p>The liquid dripped over the top, down the sides, and underneath, covering the dark beauty with pearly, hot, viscous cum.</p>
 
-<p>“Ah~~ hubby had a lot stored up this time, huh?~” Isabel gasped and released her breasts, connected to each other by thick strands of cum, Qingyi’s cock still resting in the valley between them.</p>
+<p>“Ah hubby had a lot stored up this time, huh?” Isabel gasped and released her breasts, connected to each other by thick strands of cum, Qingyi’s cock still resting in the valley between them.</p>
 
 <p>With a sigh, she leaned her body forward. She pushed Qingyi so that he sat back on the edge of the bathtub and began to lick and suck, her tongue running the entire length, swallowing every drop of cum that still stained his cock.</p>
 

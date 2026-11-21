@@ -29,7 +29,7 @@ chapter = 1805
 <p>Neither the Essenceweaver nor the Bloodmonger sensed a thing. One heartbeat the space at their backs held nothing but lamplight, and the next it held a primordial, and two arms landed on two shoulders at once.</p>
 <p>"Evening, ladies."</p>
 <p>Aurora’s yelp nearly took her out of her chair. Lucille’s came out as half a shriek and half his name, and then both women were on their feet and rounding on him.</p>
-<p>"Quin! You sneak~!" Lucille giggled.</p>
+<p>"Quin! You sneak!" Lucille giggled.</p>
 <p>"Why did you not give us a heads up...? Use your abilities..." Aurora huffed.</p>
 <p>Whatever else they had for him died in transit. He gathered them in by the waist, one to each arm, pulled them flush against him, and kissed Lucille first, long enough that her fists gave up on his chest, then Aurora, long enough that she forgot she’d been mid-lecture.</p>
 <p>When he finally let them breathe, neither made any move to leave his arms, and Aurora’s glare had all the fury of a lit candle.</p>

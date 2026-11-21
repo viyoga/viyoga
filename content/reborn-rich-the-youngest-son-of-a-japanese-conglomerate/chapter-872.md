@@ -19,7 +19,7 @@ chapter = 872
 <p>"Not at all. It's naturally my job as a Class Teacher."</p>
 <p>"Is that so? Here, take my Business Card. Contact me if you ever have a hard time. Can I take my younger sibling now?"</p>
 <p>In a way, Kujo Kazuo had given the most valuable gift. A Business Card officially given by the legitimate Successor of the Kujo Group was by no means inferior to a mere gift set. Of course, in addition to the Business Card, his secretary separately provided a gift set. For reference, the gift was a luxury cookie set.</p>
-<p>"Teacher~! You worked hard! See you next time!"</p>
+<p>"Teacher! You worked hard! See you next time!"</p>
 <p>Kujo Kina, leaving with Kujo Kazuo, waved her Hand at me and shouted. I also waved back at Kujo Kina.</p>
 <p>Next to arrive was Urabe Konoka's nominal adoptive father, and after him, Naruse Shiyo's father, Naruse Koyou. Naruse Koyou, like Sakagami Rena's father Sakagami Ginshiro, greeted me, asking me to take good care of his Daughter, and left with Naruse Shiyo, while I only exchanged perfunctory greetings with Urabe Konoka's adoptive father.</p>
 <p>The next person to arrive was Alik's adoptive mother, Egawa Shiho.</p>
@@ -30,7 +30,7 @@ chapter = 872
 <p>Konoe Minako, Konoe Akina's Mother, held my Hand and repeatedly thanked me. Konoe Akina's Mother had every Reason to be grateful to me. I had saved Konoe Akina from being sold as a slave, and thanks to several people I introduced, Konoe Akina had become the head of the Konoe Family.</p>
 <p>Next, Uenozono Karen's Parents came to greet me, and they looked quite tired, perhaps because many people had come to ask for their Daughter's autograph due to her popularity.</p>
 <p>After receiving greetings from the parents, Daigo Terue, who arrived the latest, also thanked me for saving her Daughter, who had been a hikikomori.</p>
-<p>"Teacher-nim~! I'll see you again with Mom!"</p>
+<p>"Teacher-nim! I'll see you again with Mom!"</p>
 <p>"Alright, have a delicious lunch."</p>
 <p>After greeting Oofuchi Erika, I approached Otagi Yuka, who was standing alone.</p>
 <p>"Today, I'll be your dad."</p>
@@ -38,7 +38,7 @@ chapter = 872
 <p>"Ugh, Teacher-ssi as my dad? Disgusting. I'm fine, so go take Photos with the fans waiting over there."</p>
 <p>Otagi Yuka pretended to vomit, as if saying it was disgusting, then pointed to one side. On that side, the Female Students who had taken my Korean language class and the graduating students who had belatedly become my fans (?) were waiting for me with sparkling gazes.</p>
 <p>Well, broadly speaking, they could also be called my Students, so taking Photos should be fine. Otagi Yuka would be with Saionji Diana, so she wouldn't be lonely, and I thought I might as well go for a moment.</p>
-<p>"Kyaaah, Teacher-nim~!"</p>
+<p>"Kyaaah, Teacher-nim!"</p>
 <p>"Please take a Photo with us!"</p>
 <p>After taking Photos with the Students, who were practically screaming because it was the last day, I returned to where Otagi Yuka and Saionji Diana were waiting.</p>
 <p>"Let's eat something delicious too."</p>
@@ -61,7 +61,7 @@ chapter = 872
 <p>Of course, I didn't make the Reservation without any thought. I was meeting Taira Danjo to finalize the details of my Mission. Since it was a restaurant similar to a Taira safe house, I could meet him in secret, so I decided to have a meal while I was there anyway and made the Reservation.</p>
 <p>"Then, let's go to the Parking Lot."</p>
 <p>"Okay. Thank you, Teacher-ssi."</p>
-<p>"Let's go quickly, Teacher-nim~!"</p>
+<p>"Let's go quickly, Teacher-nim!"</p>
 <p>To prevent other Students or anyone from recognizing my vehicle, the car Taira Kanna had prepared was in the staff Parking Lot. The Mission was practically over, but I still had to consider security until the very end.</p>
 <p>Since most of the Students and faculty had already left school by the time I finished taking Photos and talking with the Students, we carefully went to the staff Parking Lot, got into the vehicle Taira Kanna had prepared, and headed to that restaurant from before.</p>
 <p>Seiwa Rieko entered St. Francis Girls' Academy wearing her School Uniform, which she hadn't yet discarded. Even if security was tightened due to the high-ranking Japanese parents attending the Graduation ceremony, no one could stop Seiwa Rieko, a former St. Francis Girls' Academy student with a genuine Student ID.</p>
@@ -75,7 +75,7 @@ chapter = 872
 <p>As her own reflection, contrasting with the clear weather, appeared in the window glass, she no longer wanted to be there. Suddenly, resentment towards Shido Tsubaki, whom she was scheduled to meet tomorrow, began to overflow.</p>
 <p>"Why are you the only one happy? While I'm so miserable...."</p>
 <p>Mumbling softly, Seiwa Rieko stood up from her seat. Then she left the building and mixed with the students leaving school, exiting St. Francis Girls' Academy.</p>
-<p>Graduation commemorative peace sign photo~!</p>
+<p>Graduation commemorative peace sign photo!</p>
 <p>While writing, I only managed to make Yuka, Alik, and Shiyo hehe. By the way, Alik is cute hehe.</p>
 <p>Seiwa Rieko B-cut</p>
 <p>I wanted to make her a somewhat decadent character hehe.</p>

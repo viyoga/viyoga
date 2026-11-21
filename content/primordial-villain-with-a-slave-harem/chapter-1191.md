@@ -61,7 +61,7 @@ chapter = 1191
 <p>It was time he put Feng in her place. "Well then. Now that Felicity is officially part of our group, perhaps it’s time I start telling her a few interesting stories about her best friend here."</p>
 <p>The effect was immediate.</p>
 <p>Feng froze mid-laugh. Her head jerked toward him as if she’d just been doused in cold water. "No. You are forbidden from doing that!" she decreed, sitting up straight with uncharacteristic alarm.</p>
-<p>Felicity’s expression brightened instantly. Mischief danced in her eyes as she turned to Quinlan. "Oh, I’d love to hear those stories! Please~" she begged with a sugary sweet tone.</p>
+<p>Felicity’s expression brightened instantly. Mischief danced in her eyes as she turned to Quinlan. "Oh, I’d love to hear those stories! Please" she begged with a sugary sweet tone.</p>
 <p>"Hmm, hmm..."</p>
 <p>"Why are you debating it?! Stop thinking!" Feng demanded.</p>
 <p>It was Quinlan’s turn to feel negative levels of threat aimed right at him.</p>

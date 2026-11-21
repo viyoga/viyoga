@@ -7,8 +7,8 @@ chapter = 144
 
 <p>The two of them confronted each other with 'huhu' sounds for a while, then sat down as if nothing had happened. Anyone would think they were super close? They were still in the probing stage, subtly starting to ask each other questions. To me, it looked like jabs boxers throw to check each other's skills.</p>
 <p>"Mimata-ssi, why do you call Ryuta-kun 'hoobae-nim' (junior)?"</p>
-<p>"I was a senior at the Human Resources Development Center. I guess it just stuck. Arisu-nim, you seem su~per close with your cousin, Ryuta-nim?"</p>
-<p>"Being su~per close is legal in Japan and New York, you know."</p>
+<p>"I was a senior at the Human Resources Development Center. I guess it just stuck. Arisu-nim, you seem super close with your cousin, Ryuta-nim?"</p>
+<p>"Being super close is legal in Japan and New York, you know."</p>
 <p>"Hufufufu...."</p>
 <p>"Uhuhuhu....."</p>
 <p>"Alright, alright, let's stop the chit-chat and finish our work first."</p>

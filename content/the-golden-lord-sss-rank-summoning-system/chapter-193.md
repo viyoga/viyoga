@@ -60,10 +60,10 @@ chapter = 193
 <p>Sensing their husband’s presence, the two stirred sleepily and soon surrounded him on either side.</p>
 <p>With their boobs squashed against his ribs, the soft flesh molding to the shape of his body, the two beauties rested their heads on his powerful biceps like pillows, snuggling in deeper to share the warmth of three bodies beneath the thick blanket.</p>
 <p>"Where have you been?" Alice asked, her voice sweet and groggy as she rubbed her sleepy face against Ethan’s chest.</p>
-<p>"Hm... probably with some other woman, hehe~ the husband likes that..." Evelyn murmured from the other side, so drowsy she sounded as if she were talking in her sleep.</p>
+<p>"Hm... probably with some other woman, hehe the husband likes that..." Evelyn murmured from the other side, so drowsy she sounded as if she were talking in her sleep.</p>
 <p>Ethan couldn’t help but let out a stifled, slightly embarrassed chuckle. "Her name is Ophelia, a spy sent by Whitefall. But I’ve already tamed her... You two will meet her tomorrow."</p>
 <p>"T-tamed her?" Alice’s face flushed intensely, the heat rising all the way to the tips of her ears.</p>
-<p>"I knew it, fufu~~" Evelyn’s lips curved into a lazy smile as she playfully nibbled on Ethan’s chest.</p>
+<p>"I knew it, fufu" Evelyn’s lips curved into a lazy smile as she playfully nibbled on Ethan’s chest.</p>
 <p>Luckily for him, neither stayed awake much longer, and soon enough, sleep claimed both of them.</p>
 <p>Ethan let himself drift off as well, eager for what the next day would bring.</p>
 <p>[Nt: Ten Chapters will be released tomorrow—don’t forget to send me some Golden Tickets to help out, since books with more Golden Tickets during the event will receive special rewards!</p>

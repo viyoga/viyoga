@@ -62,7 +62,7 @@ chapter = 852
 <p>He knew how pathetically fast this was, but he felt no desire to suppress the urge to ejaculate.</p>
 <p>“Hhaha, Is that so? Cum whenever or wherever you like.” For Nent, his words felt like the greatest reward.</p>
 <p>Nent began moving her breasts even faster as if to hasten the ejaculation. She also opened her mouth, stuck out her tongue. That lewd expression pushed Sol’s arousal over the edge.</p>
-<p>Sol wished he could enjoy this superb titjob longer, but he had hit his limit. “Give it all to me…ngh…nmh~~~”</p>
+<p>Sol wished he could enjoy this superb titjob longer, but he had hit his limit. “Give it all to me…ngh…nmh”</p>
 <p>Nent lessened the pressure on her breasts to let the whole head stick out, and then she wrapped her lips around the head. The warmth of her mouth and the roughness of her tongue on the tip caused his vision to explosively blank out.</p>
 <p>The young manhood throbbed over and over in her mouth as it shot out all of its semen. Nent looked pleased as she gulped it all down.</p>
 <p>His essence was no different from a sweet nectar, and so she drank it all, her throat bobbing up and down.</p>
@@ -81,7 +81,7 @@ chapter = 852
 <p>On Nent’s side, once she got Sol’s nice and ready, she stopped sucking and started climbing. In the end, she found herself straddling his hips. It did not take long for his penis to disappear into the phoenix gradually.</p>
 <p>The Phoenix devoured the dragon.</p>
 <p>The internal flesh wrapped around him and soaked him with plenty of love juices. Her honeypot provided the perfect pressure, as if to perfectly match his shape.</p>
-<p>“Ah~Finally~It has been so long!” Nent hissed when she felt his full length inside her. This feeling of stuffiness was something she missed, and now she had the impression of once again being complete.</p>
+<p>“AhFinallyIt has been so long!” Nent hissed when she felt his full length inside her. This feeling of stuffiness was something she missed, and now she had the impression of once again being complete.</p>
 <p>Nent wiggled her hips as if checking out the manhood inside her, but then she began slowly working her hips while accelerating a little bit each time.</p>
 <p>Since there was no one else present in the room or at least no one she could see, Nent let go of all inhibitions she might have. She went all out with her hips, not caring how much lewd noise it made.</p>
 <p>Sol was not idle. His mouth and tongue were busy taking care of Nefertiti. But his hand did not stay idle. He reached out and massaged Nent’s breasts. He squeezed her nipples between his fingers and twisted them as he massaged the rest.</p>

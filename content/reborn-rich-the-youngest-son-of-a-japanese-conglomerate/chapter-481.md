@@ -17,9 +17,9 @@ chapter = 481
 <p>I was a little embarrassed by the looks that seemed to ask, 'Is that a celebrity?', but I put on a straight face and took photos for the female students in line. Some provocative female students put their arms around mine, touched my elbow with their chests, or hugged me when taking pictures, but most of them took pictures quietly with shy expressions.</p>
 <p>When I finished taking pictures, Alik and Urabe Konoka were playing a game where they threw basketballs into hoops, not a VR game. They seemed to be having a competition, each taking a spot and throwing balls.</p>
 <p>Naturally, Alik, with his good physical abilities, was overwhelming Urabe Konoka. Urabe Konoka, a shrine maiden and mage character(?), was trying hard, but it was impossible to beat Alik, who was putting two balls in every second like a machine.</p>
-<p>"Ah~! I lost."</p>
+<p>"Ah! I lost."</p>
 <p>"Ryuta, Alik... won."</p>
-<p>"Good job~! Alik is the best, as expected?"</p>
+<p>"Good job! Alik is the best, as expected?"</p>
 <p>Alik ran up to me with a basketball, showing off his victory with eyes that wanted praise, so I stroked Alik's soft, light beige hair and congratulated him.</p>
 <p>"Then... do it for Alik too."</p>
 <p>"Huh?"</p>
@@ -56,12 +56,12 @@ chapter = 481
 <p>●Title: Attention, attention!!! Ryuta-nim appeared at the game center!</p>
 <p>He seemed to be with his classmates, and when I asked him to take a picture, he kindly took a selfie!!</p>
 <p>He smells so good and his body is so firm (////)</p>
-<p>I'm going to print it out and preserve it as a family treasure~!</p>
+<p>I'm going to print it out and preserve it as a family treasure!</p>
 <p>The way he smiles while playing games is so boyish♥</p>
 <p>●Goddess of the Moon Diana: Is he still at the game center?</p>
 <p>└●Ryuko-tan: He just left. I didn't follow him because I thought it would be weird, but he's probably in the city!</p>
 <p>●Hoyoriri: Did he only take pictures with you? I'm so jealousㅠㅠ</p>
-<p>└●Ryuko-tan: I think he took pictures with all the academy students at the game center? I'm in the best mood~!!</p>
+<p>└●Ryuko-tan: I think he took pictures with all the academy students at the game center? I'm in the best mood!!</p>
 <p>●Cherry-chan: Seeing him take pictures with other people is so exciting.</p>
 <p>What is going on? Onii-sama (older brother) took selfies with other girls...? Taira Kanna paused for a moment. Then, she started reading the posts on the Prince of Prison, a slightly more extreme site.</p>
 <p>◆ WWWWWWW</p>

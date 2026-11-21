@@ -39,7 +39,7 @@ chapter = 568
 <p>But this was why Echidna was even more lost for words.</p>
 <p>Sol Dragona Luxuria.</p>
 <p>A young boy born from the union of Mars Luxuria and Blaze Dragons. Someone who barely came of ages and who, based on Nuwa's memories, was not even a Duke yet.</p>
-<p>"Sol~!…"</p>
+<p>"Sol!…"</p>
 <p>Many thoughts flew past her mind as her expression morphed into one of genuine joy.</p>
 <p>"Do not talk to me in such an endearing way. You are not Nuwa."</p>
 <p>The smile froze and her expression cooled down with it.</p>

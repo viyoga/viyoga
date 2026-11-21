@@ -46,12 +46,12 @@ chapter = 76
 <p>Nagasaki Champon wasn't my style. Spicy Korean Champon with red broth was my style. Dongpo Pork was a rather complicated dish to make properly, so the dish I received was just called Dongpo Pork, but it was actually braised pork in soy sauce. They did cut the pork into large pieces like Dongpo Pork, though.</p>
 <p>It was a fake dish, but it was still delicious. It was quite good to wrap the bok choy sprinkled with braised soy sauce with the meat.</p>
 <p>"The Dongpo Pork is more delicious."</p>
-<p>"Right? It's delicious~!"</p>
+<p>"Right? It's delicious!"</p>
 <p>"Would you like some more?"</p>
 <p>"No, I'm full, Ryuta-gun."</p>
 <p>Mimata Chieri couldn't finish the Nagasaki Champon and patted her stomach with a happy expression. I ate everything, of course. Just right.</p>
 <p>"You're going to have coffee too, right? I have something to ask you today, so I'll buy it this time, Sunbae-nim."</p>
-<p>"Then I'll have an iced chocolate~!"</p>
+<p>"Then I'll have an iced chocolate!"</p>
 <p>We sat in the company cafe and drank coffee after our meal. After about three sips, I got to the point.</p>
 <p>"Where did you hear that Suzuki Chisami, the deputy team leader, and the head of HR are on the Jiro line?"</p>
 <p>"Ah, that? Where did I hear it from..."</p>

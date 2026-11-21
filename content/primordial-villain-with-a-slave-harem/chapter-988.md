@@ -21,11 +21,11 @@ chapter = 988
 <p>The room remained still.</p>
 <p>The only sound was his own desperate wheezing... and the wet squelch of Jasmine retrieving another blade.</p>
 <p>No... That wasn’t quite right. There was one strange sound his ears picked up on.</p>
-<p>"Hmm~ So tasty~"</p>
+<p>"Hmm So tasty"</p>
 <p>*Schlup!*</p>
 <p>"Haaah..."</p>
 <p>*Schlurrrrp!!*</p>
-<p>"Mwah~!"</p>
+<p>"Mwah!"</p>
 <p>Aurelion’s head turned robotically toward the source. His neck creaked like rusted metal as pain wracked every inch of his mangled form.</p>
 <p>The sounds came from the direction of the only other man in the room.</p>
 <p>The tall, dark-haired bastard who lounged in his throne-like chair, legs relaxed, a glass of wine in one hand and the reins of the room’s mood in the other.</p>

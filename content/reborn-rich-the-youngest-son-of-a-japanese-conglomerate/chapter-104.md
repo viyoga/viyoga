@@ -38,7 +38,7 @@ chapter = 104
 <p>"Yes, it was very good. This time, I'll do it for you."</p>
 <p>I answered and took off Yukiko's dolphin pants. Because of my nipple caresses and Yukiko's self-pleasure, it already smelled like a ripe, sexy pussy. The panties under the dolphin pants were already soaked and couldn't serve as underwear at all.</p>
 <p>I put my tongue on the underwear that was wet and see-through.</p>
-<p>"Aang♥ My panties are getting wet~."</p>
+<p>"Aang♥ My panties are getting wet."</p>
 <p>"What are you talking about? Your panties are already wet enough."</p>
 <p>Yukiko was saying that I made them wet because she was embarrassed that they were wet because of her vaginal fluid. I was a little resentful, so I took off Yukiko's panties as well. And I touched her pussy with my hand and showed her the vaginal fluid stretching like a thread in front of Yukiko's eyes.</p>
 <p>"Your panties are wet because of this sexy liquid coming out of Yukiko's pussy, not because of me."</p>

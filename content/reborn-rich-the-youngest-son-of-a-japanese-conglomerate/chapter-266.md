@@ -67,4 +67,4 @@ chapter = 266
 <p>When the security chief asked the office worker next to him, the worker answered, sweating profusely. Certainly, Energy-Link Industrial Company was written in English next to the container.</p>
 <p>-----</p>
 <p>Target: Minamoto Risa</p>
-<p>I like gyarus~!!</p>
+<p>I like gyarus!!</p>

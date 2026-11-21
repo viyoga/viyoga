@@ -24,7 +24,7 @@ chapter = 1216
 <p>"Hopelessly competitive, more like," Quinlan muttered under his breath.</p>
 <p>The floor of the crater was a mosaic of scarred stone and hardened dirt. Burn marks, fist gouges, and mana residue painted a battlefield well used.</p>
 <p>"Alright," Quinlan sighed before stepping forward. "Let’s see what the two young ladies can do."</p>
-<p>Felicity’s grin grew. "Hehe~ Prepare to be shocked!"</p>
+<p>Felicity’s grin grew. "Hehe Prepare to be shocked!"</p>
 <p>In her hands, her wand flickered to life, but instead of glowing with color, its crystal dimmed, draining the light around it until even the sun above seemed slightly duller.</p>
 <p>The air shifted.</p>
 <p>It wasn’t dramatic. There was no thunder, no rumbling aura, no violent pulse of power.</p>
@@ -35,7 +35,7 @@ chapter = 1216
 <p>He raised his hand. Flame erupted from his palm in a single thought, then flickered out before it could reach full form.</p>
 <p>He tried again, this time summoning a sphere of wind. The air spiraled briefly, then unraveled like smoke sucked into a vacuum.</p>
 <p>Water followed, drawn from thin moisture in the air. It coalesced for half a heartbeat before flattening into mist and vanishing.</p>
-<p>Felicity giggled, twirling her wand once. "Hehe~ Told you. You can’t use that stuff near me anymore. My class has an innate nullification ability I can toggle on or off. No one is permitted to cast spells in my presence so long as I don’t allow it."</p>
+<p>Felicity giggled, twirling her wand once. "Hehe Told you. You can’t use that stuff near me anymore. My class has an innate nullification ability I can toggle on or off. No one is permitted to cast spells in my presence so long as I don’t allow it."</p>
 <p>Quinlan’s lips curved upward. "Is that so?"</p>
 <p>Her grin faltered at his tone.</p>
 <p>His eyes sharpened, and his mana surged.</p>

@@ -90,4 +90,4 @@ chapter = 505
 <p>Aria and Bastet shared a look, one full of renewed pride and competitive fire, then both broke into bright smiles.</p>
 <p>Ahead, the surviving natives regrouped, patching themselves up and steeling themselves for their next monster encounter deeper into the dungeon.</p>
 <p>Aria bounced on her toes.</p>
-<p>"Let’s go~!"</p>
+<p>"Let’s go!"</p>

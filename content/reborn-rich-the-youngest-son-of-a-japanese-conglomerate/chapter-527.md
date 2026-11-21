@@ -13,7 +13,7 @@ chapter = 527
 <p>-Yamashiro Ryuta-sensei of the Special Class, please come forward.</p>
 <p>The broadcast called my name, so I walked to the lottery box in front of the podium.</p>
 <p>"Sensei, you're so handsome!"</p>
-<p>"Woo~!"</p>
+<p>"Woo!"</p>
 <p>As soon as I went out, several shouts were heard from the Special Class. Seriously, just pick one: handsome or booing....</p>
 <p>Perhaps because of my class's over-the-top reactions, the atmosphere loosened up considerably, and shouts like "Korean teacher, fighting!" started to be heard from other classes as well.</p>
 <p>"Please pick one lottery ball."</p>
@@ -35,7 +35,7 @@ chapter = 527
 <p>"Okay, everyone do your best."</p>
 <p>"We'll definitely win!"</p>
 <p>Shido Tsubaki, who told us not to let our guard down but didn't seem worried, went to the arena with a nonchalant expression, followed by Uenozono Karen, Oofuchi Erika, Sakagami Rena, and Urabe Konoka with various expressions. However, only Uenozono Karen was waving her hand to the audience and giving fan service with ease, as befitting an idol.</p>
-<p>"Waaaah~!! KAREN! KAREN!"</p>
+<p>"Waaaah!! KAREN! KAREN!"</p>
 <p>As expected of an idol, the reaction was no joke. Even the opposing team, 2nd Grade Class C, was chanting "Karen, Karen."</p>
 <p>The first was Shido Tsubaki. Since Shido Tsubaki didn't get nervous easily, she was perfect for the vanguard in this kind of game. If Oofuchi Erika, who had a history of being a hikikomori, was the vanguard, there was a possibility that she would make mistakes due to nervousness, but if Shido Tsubaki, who stepped up as the vanguard, did well, the students behind her would also be less nervous.</p>
 <p>Shido Tsubaki drawing and aiming the large bow unique to Japanese archery. It was 8 points. Even 8 points was quite good compared to the previous games.</p>
@@ -72,5 +72,5 @@ chapter = 527
 <p>Shooting arrows didn't work well with the old model, so I used the new model, but the dolphins are going crazy in the new model, lol. I was going crazy, lol.</p>
 <p>I liked it, but it was rejected because of the black pants!</p>
 <p>A red dolphin flying in the sky....lol</p>
-<p>No~! It's not training, why are you putting a dolphin on your arm, lol</p>
+<p>No! It's not training, why are you putting a dolphin on your arm, lol</p>
 <p>Dolphin gloves, lol</p>

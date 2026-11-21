@@ -143,9 +143,9 @@ Half an hour later, he could feel the two of them squeezing him tightly and he k
 
 Timing himself accordingly, with a few more long plunges in them, Lith shot off his load in the two and orgasmed.
 
-"Mhhmmmm~"
+"Mhhmmmm"
 
-"Ahhhhh~"
+"Ahhhhh"
 
 Lucifer and Lilith moaned in satisfaction as they felt a warm sensation within their insides.
 

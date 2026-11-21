@@ -12,10 +12,10 @@ chapter = 416
 <p>Riyala’s soft voice floated through the air and Jason answered kindly.</p>
 <p>"I know. Tell me when it’s okay to move, alright?"</p>
 <p>Jason kissed Riyala’s cheek softly, and Riyala nodded to him while trying to accommodate his size. Riyala moved her hips around gently, and she let out a soft gasp when she felt Jason rub against her inner walls. The pain was still there, and Riyala’s eyes were closed tightly as she tried to ride it out, but there was also something else. A strange thrill of pleasure was rising from somewhere deep inside Riyala’s stomach, and she let out a shallow breath as she felt Jason’s member stretching her slowly, and she felt her hips moving up slowly as she gasped out.</p>
-<p>"Mmh~ Jason, move. You can move... please."</p>
+<p>"Mmh Jason, move. You can move... please."</p>
 <p>Riyala’s hands wrapped around Jason tighter as she begged for satisfaction! The pain in her core had practically vanished, and now she was feeling nothing but pure electricity passing through her body! Once Jason heard her ask him to move, he didn’t even waste a moment and began to sink deeper into Riyala’s folds! Riyala’s mouth opened into a wide ’o’ as she felt Jason reaching all the way into her womb, and she suddenly groaned as Jason slapped his hips into her own!</p>
 <p>Slap!</p>
-<p>"Uuuuggghhh~!"</p>
+<p>"Uuuuggghhh!"</p>
 <p>It was a low, guttural thing that escaped from Riyala’s mouth, and she held on tight as Jason moved back and sank into her again! Jason kept his speed slow as he continued to fuck Riyala, and Riyala’s head was thrown back as she felt a thrill going through her body with every move Jason made! Jason was holding Riyala’s body close to his, and he was reaching all the way back to the tip of his member before sinking into her again, and every time Jason moved, it felt like she was floating on air! Riyala reached up and brought Jason down for a deep kiss as she started to move her hips to try to give Jason more access to enter her, and this pace continued for a few minutes with the two of them simply enjoying the feel of each other.</p>
 <p>Jason could feel the heat inside Riyala growing stronger as they continued, and he could feel her tightening against his member as time passed! Jason had been going slow all this time because he wanted Riyala to first get used to his size, but once he was sure that Riyala had finally gotten used to it, Jason suddenly thrust forward with enough force to shake Riyala’s body!</p>
 <p>Slam!</p>

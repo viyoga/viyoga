@@ -9,7 +9,7 @@ chapter = 722
 
 <p>Naturally, she was beaming.</p>
 
-<p>“Did Rou’er come? You’re engaged to her too, right? The Crow Elder told me she wanted a triple wedding, hahaha~” Bai Yunxi let out a mischievous giggle.</p>
+<p>“Did Rou’er come? You’re engaged to her too, right? The Crow Elder told me she wanted a triple wedding, hahaha” Bai Yunxi let out a mischievous giggle.</p>
 
 <p>She had met Rou’er only once, about two years ago, but the two had clicked instantly, as if they had known each other for lifetimes.</p>
 

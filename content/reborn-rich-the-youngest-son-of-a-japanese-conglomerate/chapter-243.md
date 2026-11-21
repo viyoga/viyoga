@@ -10,7 +10,7 @@ chapter = 243
 <p>We were tired because we had stayed up all night at the auction, even though we took naps, so we flew over the United States asleep on the plane. When I opened my eyes, we had arrived at LA International Airport.</p>
 <p>There were many people to meet at the airport. Arisu was being awaited by her friend and actress Hanasaki Sayaka, and we were being awaited by my friend Kiyohira.</p>
 <p>In addition, an investment contract with Mother Maas was being prepared at a hotel cafe near the airport, so we were scheduled to be busy from the airport.</p>
-<p>"Yo~!"</p>
+<p>"Yo!"</p>
 <p>Among the many crowds, Kiyohira, with his white hair and menacing face, waved at us. I'm close to him, so it feels friendly, but Kiyohira looks pretty damn scary.</p>
 <p>With his muscular body trained in martial arts and his delinquent appearance, he had a look that wouldn't be subject to racism anywhere. But everyone in the group already knew Kiyohira, so we approached him happily.</p>
 <p>"Thanks for coming."</p>

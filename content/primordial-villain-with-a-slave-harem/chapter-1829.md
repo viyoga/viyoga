@@ -5,7 +5,7 @@ weight = 1829
 chapter = 1829
 +++
 
-<p>"Leave some of him for me, you greedy girl!" She shouted, running close to the ferocious pair. "Quin~ how about we build Kaeli a bower?"</p>
+<p>"Leave some of him for me, you greedy girl!" She shouted, running close to the ferocious pair. "Quin how about we build Kaeli a bower?"</p>
 <p>Quinlan didn’t put her down.</p>
 <p>He shifted her weight to one arm, palm settling under her backside, and walked them both to the hollow between two great roots where the snow-light pooled. His free hand rose, and the earth answered.</p>
 <p>The floor of the hollow breathed in and swelled into a broad, moss-deep couch between the roots, its edges rolled like a bedframe grown rather than built. Magma, banked to a whisper, slid into the stone far beneath until the moss went from warm to sun-warm.</p>
@@ -27,11 +27,11 @@ chapter = 1829
 <p>Both of her calloused hands came up and framed his face, and under all the ranting her eyes were steady and bright and serious, because that was the confession beneath the comedy: she had wanted him for a while now, quietly, thoroughly, with the same patience she gave a long fold, while duty and war kept taking her turn away from her.</p>
 <p>She had never once complained about the waiting. She was complaining now because it was finally over, and she could at last afford to admit how heavy it had been.</p>
 <p>Sera moved first.</p>
-<p>"Let me help you~" She slid in behind Kaelira, fingers finding the shirt’s hem, and her voice dropped low, meant for no one but Kaelira. "Is it okay? Me being here for this."</p>
+<p>"Let me help you" She slid in behind Kaelira, fingers finding the shirt’s hem, and her voice dropped low, meant for no one but Kaelira. "Is it okay? Me being here for this."</p>
 <p>Kaelira’s hand found Sera’s wrist and held. "Yes... Please stay. I need you to stay." A shaky exhale. "I’d combust on my own."</p>
-<p>Sera giggled at that, bright and warm, and patted Kaelira’s hair. "Then let big sis Sera take care of you~" She gathered Kaelira’s head onto her thighs, soft and unhurried.</p>
+<p>Sera giggled at that, bright and warm, and patted Kaelira’s hair. "Then let big sis Sera take care of you" She gathered Kaelira’s head onto her thighs, soft and unhurried.</p>
 <p>"I’m older than you," Kaelira murmured, but she settled into Sera’s lap and did not move a centimeter away.</p>
-<p>"Shh~ Big sisters are a state of mind."</p>
+<p>"Shh Big sisters are a state of mind."</p>
 <p>Sera took the shirt’s hem in both hands and peeled the forge-smudged linen up and over her best friend’s head in the half-second Quinlan’s mouth left hers, and his mouth was back before the linen hit the ground. Then the wraps beneath, unwound turn by turn, Sera’s fingers patient and practiced along the bindings, each discarded layer folded once and set aside. The snow-light received what the forge-light never had.</p>
 <p>She was built the way she built things, nothing wasted: the sweat-sheened plane of her stomach with its chiseled ridges, the hard taper of her waist into hips set like a stance, the smithing arm with its cords of quiet muscle, and above all of it, freed of their binding, the surprisingly heavy curve of her breasts, a softness the wraps had been flatly lying about for all those months.</p>
 <p>Kaelira did not cover herself. She planted her palms in the moss on either side of Sera’s knees, chin up, flushed to the collar, and let him look until looking visibly stopped being enough for him.</p>
@@ -46,7 +46,7 @@ chapter = 1829
 <p>He let her push. "Oh?"</p>
 <p>Two meters of primordial rolled over into the moss, interested, and the smith sat up, swung a thigh across his hips, and looked down at her naked lover, flushed and resolute, like she’d rehearsed this decision in her head a hundred times.</p>
 <p>"My turn."</p>
-<p>"Oh my~" Sera’s eyebrows climbed, delighted. "And here I sat, ready to hold your hand through the scary parts. Look at you go~"</p>
+<p>"Oh my" Sera’s eyebrows climbed, delighted. "And here I sat, ready to hold your hand through the scary parts. Look at you go"</p>
 <p>"He’s my lover." Kaelira’s palms spread flat over his chest and started mapping, slow and thorough, reading him the way she read everything worth reading, hands first. Her ears were incandescent. Her touch did not waver at all.</p>
 <p>"I find him..." one hard swallow "...extremely attractive. I have watched this body across a forge for months. Today it worked a bellows for me, half-naked, for an hour. I am not going to lie back and just receive like some... some dead fish woman." Dignity and blush fought over her face. "I want to feel him too. Why should he get all the... the doing?"</p>
 <p>She bent, and put her mouth on him.</p>

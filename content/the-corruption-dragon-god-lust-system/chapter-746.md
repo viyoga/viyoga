@@ -113,4 +113,4 @@ chapter = 746
 
 <p>Rou'er naturally noticed Qingyi's gaze and gave a mischievous giggle.</p>
 
-<p>"He'd better make peace with the heavens soon, hehehe~"</p>
+<p>"He'd better make peace with the heavens soon, hehehe"</p>

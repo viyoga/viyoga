@@ -87,7 +87,7 @@ chapter = 595
 
 <p>No matter how hard he tried, they were simply too big for his hands; his fingers were immediately swallowed up by the plump flesh, his palm sliding against soft, puffy nipples.</p>
 
-<p>“Nghnnn~~” Ruxue moaned, feeling her husband massage her breasts, spreading the liquid soap, touching every inch of her.</p>
+<p>“Nghnnn” Ruxue moaned, feeling her husband massage her breasts, spreading the liquid soap, touching every inch of her.</p>
 
 <p>“You never get tired of these huge tits, huh? You shameless hubby…” She gasped, leaning against Qingyi’s shoulders.</p>
 
@@ -97,7 +97,7 @@ chapter = 595
 
 <p>*Clap*</p>
 
-<p>“Aghnn~~ be gentle, you- ah…!”</p>
+<p>“Aghnn be gentle, you- ah…!”</p>
 
 <p>A loud smack echoed, Qingyi’s palm landing on Ruxue’s plump, perfect ass, a powerful shockwave spreading across her pale, now-marked cheeks.</p>
 

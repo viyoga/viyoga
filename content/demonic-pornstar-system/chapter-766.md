@@ -28,7 +28,7 @@ chapter = 766
 <p>...</p>
 <p>"...Kai... Kai, I’m... I’m gonna... please..."</p>
 <p>"AHNNNN!!!"</p>
-<p>*Jingle~ jingle~ jingle~*</p>
+<p>*Jingle jingle jingle*</p>
 <p>Luna shattered under him. Her body went taut as a bowstring, her folds clamped down around his cock so hard his rhythm stuttered, and the moan that tore out of her throat was louder and longer than anything her filthy mouth had produced all night.</p>
 <p>Kaiden leaned down and kissed her forehead.</p>
 <p>"Good girl."</p>

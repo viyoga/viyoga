@@ -17,7 +17,7 @@ chapter = 284
 
 <p>“Did the husband really do that to your brother?” Isabel asked, remembering what she had heard from Ruxue about Ruyan.</p>
 
-<p>“Yeah, fufufu~~ that sick little faggot wanted to do bad things to me, so hubby blew his balls off! Hehehe. hubby’s so cool, isn’t he?”</p>
+<p>“Yeah, fufufu that sick little faggot wanted to do bad things to me, so hubby blew his balls off! Hehehe. hubby’s so cool, isn’t he?”</p>
 
 <p>“Oh… I hope hubby does the same to that bloody lord Belcuckold when I take him to meet dad!” Isabel replied, her eyes shining with even more intensity.</p>
 
@@ -89,7 +89,7 @@ chapter = 284
 
 <p>“Did you miss your shameless disciple, master?” Qingyi smiled, taking the cold beauty’s rosy lips, his hands running through her long silver hair.</p>
 
-<p>“Nghn~~ I’m not your master anymore, shameless husband…” Qingxue shuddered, a bright red blush spreading across her pale cheeks.</p>
+<p>“Nghn I’m not your master anymore, shameless husband…” Qingxue shuddered, a bright red blush spreading across her pale cheeks.</p>
 
 <p>Qingyi just laughed softly.</p>
 

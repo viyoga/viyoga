@@ -56,14 +56,14 @@ chapter = 640
 <p>They would suck my glans at the same time, or one would suck my glans while the other would lick the back tendon of my dick or my balls in a joint attack, and their teamwork was quite good. It was a joint fellatio that felt so good that my legs were trembling.</p>
 <p>"Eueut...! I think I'm going to cum."</p>
 <p>The feeling of ejaculation rushed up in an instant, and I groaned and said that I was going to cum. It was a much earlier feeling of ejaculation than usual. That meant their mouths felt that good. At my words, they opened their mouths as if telling me to cum quickly. I didn't hold back my ejaculation and shot semen on their faces as they were.</p>
-<p>Byu-ut~! Beut! Byu-ut!!</p>
+<p>Byu-ut! Beut! Byu-ut!!</p>
 <p>Thick, cloudy liquid covered Yukiko-nim and Nagumo Sian-ssi's faces, painting their faces white. They both opened their mouths, but there was so much that while a lot went into their mouths, even more missed and was sprayed on their faces.</p>
 <p>"Heuheung...♥"</p>
 <p>"Such a waste...."</p>
 <p>They licked their faces covered in each other's semen and their necks and upper chests where the semen was dripping down, and started sucking my semen. Seeing that appearance, my dick couldn't help but skip the afterglow and become big again.</p>
 <p>"There must be baby juice left here too."</p>
 <p>Nagumo Sian-ssi looked at my erect dick and put her mouth to the urethral opening, starting to suck the semen remaining in my urethra as if sucking on a straw. Yukiko-nim, who was looking at my dick with regret for being late, raised her body and sucked on my nipples, then gradually went up to suck on my neck, and soon found my lips and started kissing.</p>
-<p>"Haeum~! Chwook, tsuup, chwup♥"</p>
+<p>"Haeum! Chwook, tsuup, chwup♥"</p>
 <p>I didn't know if it was the sound of kissing or the sound of sucking my dick, but the tsu-eup tsu-eup sound echoed through the room, and I started moving my hands too.</p>
 <p>I touched Yukiko-nim's back, which was completely bare, then lowered my hand to touch Yukiko-nim's magical butt, which was both soft and chewy, and touched Nagumo Sian-ssi's bikini breasts, which were exposed in the front, enjoying the softness.</p>
 <p>I felt incredibly good just from the touch of my hands. I didn't think there could be a more pleasant touch than this among the sensations I could feel with my hands.</p>

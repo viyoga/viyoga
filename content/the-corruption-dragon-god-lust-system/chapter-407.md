@@ -19,7 +19,7 @@ chapter = 407
 
 <p>“Let’s go,” he said, patting Isabel’s ass and grabbing one of her breasts firmly.</p>
 
-<p>“Nghnn~~ okay, hubby!” Isabel flashed a big smile.</p>
+<p>“Nghnn okay, hubby!” Isabel flashed a big smile.</p>
 
 <p>Soon, the two dried their bodies and left the bathroom, quickly getting dressed.</p>
 

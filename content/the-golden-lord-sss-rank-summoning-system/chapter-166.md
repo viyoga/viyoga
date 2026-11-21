@@ -19,7 +19,7 @@ chapter = 166
 <p>Most of the wardrobe had come with the mansion, and she was surprised to find such a... revealing design tucked among the rest.</p>
 <p>With her cheeks warming, she finally decided to try it on, stepping into the dress and sliding it up her body.</p>
 <p>The fabric glided up her long, delicate legs, hugged tightly over her wide hips, and finally climbed onto her breasts, where two thin strips of cloth met in an inverted V above her nipples, puffy buds pressed hard against the thin material, their shape outlined perfecly.</p>
-<p>"Nghnn~~" she whimpered at the dress’s tightness, the thin fabric cutting deep into the soft flesh of her breasts and carving obscene grooves through them.</p>
+<p>"Nghnn" she whimpered at the dress’s tightness, the thin fabric cutting deep into the soft flesh of her breasts and carving obscene grooves through them.</p>
 <p>Her massive orbs spilled out generously on either side of the thin straps, nearly their entire length bared to the open air.</p>
 <p>She tugged at the back, trying to pull it lower, but the stretchy fabric stubbornly refused to extend much past the curve where her perfect buttocks met the tops of her succulent thighs.</p>
 <p>Curious, she turned around and gave a little testing hop on the balls of her feet.</p>

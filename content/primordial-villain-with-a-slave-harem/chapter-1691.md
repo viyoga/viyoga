@@ -14,7 +14,7 @@ chapter = 1691
 <p>The succubus tail at Vex's hip swayed once and curled inward along her inner thigh in a slow, possessive coil, the tapered tip tracing the skin just below the hem of her clothes as if the mere act of declaring her man's supremacy aloud made parts of her respond before her mind caught up. She utterly adored this spell, these new powers, this transformed physique... All of it was...</p>
 <p>Magnificent.</p>
 <p>The dark cores of her pentagram eyes burned with ancient hunger, thoroughly and unapologetically in love.</p>
-<p>"Nonsense?" She purred, and the abyssal energy bleeding from her brand deepened the red glow across her stomach. "It's nothing but the undeniable truth~"</p>
+<p>"Nonsense?" She purred, and the abyssal energy bleeding from her brand deepened the red glow across her stomach. "It's nothing but the undeniable truth"</p>
 <p>The comparison materialized in front of Ryonosuke's eyes.</p>
 <p>[Quinlan Elysiar]</p>
 <p>[Vitality: 224]</p>
@@ -29,7 +29,7 @@ chapter = 1691
 <p>His grin faltered. His eyes moved through the numbers with the efficiency of a veteran reading a battlefield report, pulling conclusions from the shape of the data before the details finished landing. The stat spread was too well-rounded. Vitality over 220, Magic over 270, everything else competitive. A balanced, jack-of-all-trades build not many could pull off.</p>
 <p>"Not bad stats. I'll give it to you, woman, your guy is great for barely being level 70. I bet he has some interesting class attributes," he muttered, and the grin came back with a grudging edge.</p>
 <p>The tail went taut at her hip as the brand below her navel blazed brighter, and the smile she wore turned indecently smug.</p>
-<p>"You haven't been paying attention to the elders' briefings, have you? Or maybe just no one bothered to tell you~" She pressed her fingers against the burning mark on her womb as if touching a shrine. "My Hubby is..."</p>
+<p>"You haven't been paying attention to the elders' briefings, have you? Or maybe just no one bothered to tell you" She pressed her fingers against the burning mark on her womb as if touching a shrine. "My Hubby is..."</p>
 <p>A second notification seared across Ryonosuke's vision in the same crimson script as the first, and the stat blocks hovering in front of him shuddered as new lines materialized above them.</p>
 <p>[The Hexwitch has chosen to reveal the truth. Bear witness to the full scope of the comparison.]</p>
 <p>[Ryonosuke Fujimori — Level: 74]</p>
@@ -42,7 +42,7 @@ chapter = 1691
 <p>The same red outline, the same armored shape, the same absent eyes looking down at him with imperial disinterest. But the context had changed, and the figure that had been imposing a moment ago now towered as a preview of a monster the continent had never seen and would not survive if it was allowed to finish growing.</p>
 <p>"Lord Ryonosuke! We'll report you to the elders! Don't try to stop us anymore!" Both retainers moved in the same breath, flanking Vex with their katanas drawn and angled for the kill.</p>
 <p>Vex didn't look at them. Her eyes stayed on Ryonosuke as the finger she'd used to point at him earlier rose again, abyssal energy bleeding from the Bloodfather's brand to gather at the tip of her nail in a bead of dark red light.</p>
-<p>"[Hubby Supremacy Tax~]"</p>
+<p>"[Hubby Supremacy Tax]"</p>
 <p>The drain hit Ryonosuke like a hand reaching into his chest and ripping out a fistful of what made him whole.</p>
 <p>His Magic stat plummeted. It had read 78 a moment ago.</p>
 <p>Now it was falling, and the wrongness was so fundamental that his vision tunneled and his legs threatened to buckle. The number kept dropping past anything he'd known since he first picked up a glaive as a boy. 78 became 50, became 30, became the kind of number he carried as a young man before reaching his first bottleneck at level 9, and it didn't stop until it hit 10 and the world went quiet in a way he had never known.</p>

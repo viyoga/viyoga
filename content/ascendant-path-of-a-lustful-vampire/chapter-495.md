@@ -16,15 +16,15 @@ chapter = 495
 <p>"I will no longer hold back," Duncan said with a frown.</p>
 <p>"I never asked you to," Caius said and unleashed his Mana, exuding the magical signature of the Fourth Circle.</p>
 <p>While many in this crowd were learning of it for the first time, Caius had never gone out of his way to hide his Circle. Of all the things about him that he was keeping a secret, this wasn't one of them.</p>
-<p>Another ~Windy Path~ and he was going after Duncan again. What followed was a fast-paced alternation of attack and defensive maneuvers. Duncan launched spells of the Fifth Circle and Caius either deflected them or split them apart.</p>
+<p>Another Windy Path and he was going after Duncan again. What followed was a fast-paced alternation of attack and defensive maneuvers. Duncan launched spells of the Fifth Circle and Caius either deflected them or split them apart.</p>
 <p>For a while, Duncan succeeded in keeping Caius away, maintaining distance between them through movement spells, barrages of attacking spells, and the occasional defensive spell. He thought his success perfectly represented the difference between their Circles. He even boasted about it.</p>
 <p>"Are these really the skills you defeated a Demon with?" He asked and cackled as yet another column of fire overwhelmed Caius's parry and struck him in a blaze.</p>
 <p>But then, Duncan took another step and he heard the sound of a bell being tolled. He looked up and a purple bell was above his head. The sound Duncan had heard was just that of the spell being activated by his step… The next one was that of the bell actually tolling, unleashing a focused wave of Dark energy into his body.</p>
 <p>Duncan reacted quickly enough to erect defensive spells but it was already too late. The Dark Energy sought the very root of his existence, acting like it wished to snuff it.</p>
 <p>"Ah!" Duncan cried as he grabbed his chest. It was like a cold hand was wrapping around his soul, clenching hard to destroy it.</p>
-<p>~The Reaper's Toll~</p>
+<p>The Reaper's Toll</p>
 <p>A Dark Magic spell of Caius's creation, and the closest he had been to experiencing the Divine Nature instilled within Dark Magic. Death was an aspect of Darkness and a domain of Nyx, the Goddess of Primordial Darkness and it could be invoked in spell casting.</p>
-<p>~The Reaper's Toll~ essentially bypassed the physical body, attacking the soul to give its target a semblance of what it was like when death was close. Or more accurately, to give its target a semblance of what Caius decided it was like when Death was close.</p>
+<p>The Reaper's Toll essentially bypassed the physical body, attacking the soul to give its target a semblance of what it was like when death was close. Or more accurately, to give its target a semblance of what Caius decided it was like when Death was close.</p>
 <p>Rousing his Mana, Duncan fought the feeling and survived before the spell could complete its task. All that had taken a second at most and he was ready to keep running and maintain the distance between himself and Caius when he noticed dark smoke above his head.</p>
 <p>A dark hand was above him now, clenching malevolently. It unleashed a dominant pressure, with tyrannical and otherworldly energy that kept Duncan rooted until the hand came down in a *Bang!*</p>
 <p>"Ack!" Duncan groaned, successfully remaining on one knee despite the pressure.</p>
@@ -37,7 +37,7 @@ chapter = 495
 <p>He opened himself up then, letting his Divine energy slip deep into his inactive muscles at the same time he called those muscles to action. His physical strength went right past the Fourth Circle and with his sword as a conduit for his magic, Caius just faced off against every spell Duncan tossed his way, cutting himself a path.</p>
 <p>There was a reason Caius was using his sword. He didn't actually want to cut Duncan—unless he had to—but in his weeks of training, sparring, and more, he had gotten very attuned with the weapon. Learning to use it as a Mage would use an Arcane Tool.</p>
 <p>Channeling one's magic through their weapon is expected of a capable Mage-Knight. It might have taken a while and a lot of hard work but Caius had joined those ranks.</p>
-<p>~Windy Path~</p>
+<p>Windy Path</p>
 <p>The tunnel appeared and slammed into multiple flame columns Duncan had sent at Caius. But Caius didn't travel through the tunnel, he just used it to fan the flames of Duncan's flame columns, creating a massive inferno so thick that it blocked Caius from everyone's sight.</p>
 <p>Their senses were still trained on him though but they sensed nothing amiss. Wind and fire created the inferno and wind and fire were still all they sensed.</p>
 <p>Duncan sensed an attack coming and his defensive spell was ready. Except the attack had a controlled instability that allowed it to phase right through the defensive spell.</p>

@@ -223,7 +223,7 @@ Holding onto her hips, he made his way in but felt some resistance.
 
 Lilith nodded and in the next instant, a much tighter, squishier, and amazing feeling enveloped him.
 
-"Mhmmm~…" Lilith moaned softly. "…We should definitely do this often."
+"Mhmmm…" Lilith moaned softly. "…We should definitely do this often."
 
 Lith smiled and began pounding her. "Indeed."
 

@@ -11,11 +11,11 @@ chapter = 675
 
 <p>Clap</p>
 
-<p>“Nghnnn~~”</p>
+<p>“Nghnnn”</p>
 
-<p>“Aghn~~”</p>
+<p>“Aghn”</p>
 
-<p>“You bastard- pervert~~ AGHN~~! ♡”</p>
+<p>“You bastard- pervert AGHN! ♡”</p>
 
 <p>Xue Hua’s obscene moans echoed as she rode Qingyi.</p>
 
@@ -31,7 +31,7 @@ chapter = 675
 
 <p>Her legs spread apart, doing little more than giving Qingyi an even more perfect view of her body. The smooth plane of her stomach, the gentle curve of her waist, the way her breasts sat perky and full on her chest, trembling with every ragged breath she took.</p>
 
-<p>“Nghn~~ what shall we do now?” she asked between gasping moans, feeling Qingyi’s warm, calloused hands climb up her creamy skin until they reached her firm breasts, squeezing.</p>
+<p>“Nghn what shall we do now?” she asked between gasping moans, feeling Qingyi’s warm, calloused hands climb up her creamy skin until they reached her firm breasts, squeezing.</p>
 
 <p>His fingers sank into the supple flesh, the soft skin bulging between his digits as he kneaded them.</p>
 
@@ -83,7 +83,7 @@ chapter = 675
 
 <p>Rou’er, who had already recovered, approached, puffing out her chest with pride.</p>
 
-<p>“It’s the truth! And soon, I’m going to help big brother Qingyi take big sister Bai too! Big sister Xue Hua is so lucky to have caught big brother’s eye! Hehehe~”</p>
+<p>“It’s the truth! And soon, I’m going to help big brother Qingyi take big sister Bai too! Big sister Xue Hua is so lucky to have caught big brother’s eye! Hehehe”</p>
 
 <p>Hearing that, Xue Hua burst out laughing at the absurdity.</p>
 

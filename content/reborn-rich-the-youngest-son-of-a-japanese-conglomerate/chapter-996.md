@@ -34,7 +34,7 @@ chapter = 996
 <p>Although Taira Food was an important Affiliate Company, it was not a Core industry of the Taira Group. Nevertheless, the Reason Nagumo Sian was highly evaluated was precisely because she had completely dominated one region.</p>
 <p>Like Nagumo Sian's Taira Food, there were several Affiliate Companies that held absolute Positions in each city or prefecture and thus did not relocate to Neo Tokyo; most of these were companies managed by non-faction Bosses who had built their Foundations over a long Time.</p>
 <p>As such, while talking about the Work of the Taira Talent Development Center, the Taira Main family residence came into view. Because we had contacted them in advance that we were going to visit Taira Saburo's grave, no one blocked our vehicle.</p>
-<p>"I'll be waiting~!"</p>
+<p>"I'll be waiting!"</p>
 <p>Tsukiyo said, waving her Hand. When I asked if she wouldn't be bored alone, she said she could practice the forms of Shinkaiyatsude while waiting.</p>
 <p>We, leaving Tsukiyo and the Parking Lot behind, headed towards the Taira Family grave behind the Main family Mansion. For reference, Taira Danjo and Taira Shizuku had external schedules.</p>
 <p>As we walked, in the distance, a Woman coming out of the Taira Family grave and descending was seen. Judging by her black Clothes and black veil, she too seemed to be coming from visiting someone's grave.</p>
@@ -77,7 +77,7 @@ chapter = 996
 <p>**-EVE: You need to come to New York as soon as possible.**</p>
 <p>Yukiko, Sian Ancestor Worship Attire</p>
 <p>Yukiko</p>
-<p>Sian~!</p>
+<p>Sian!</p>
 <p>Arisu at the beach, requested by TheDreaming-nim. 1. Surprised Expression 2. Running</p>
 <p>1.</p>
 <p>2.</p>

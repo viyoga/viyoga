@@ -35,10 +35,10 @@ chapter = 564
 <p>As I sat down, my phone started vibrating. I wondered what kind of message it was so early in the morning, and when I looked at my phone, I saw a support line from the special class students.</p>
 <p>-Sakagami Rena: My lord, I am not worried about the exam. Please return in good health.</p>
 <p>-Naruse Shiyo: If sensei fails the exam, I'll take care of it myself! Don't worry about anything!</p>
-<p>-Otagi Yuka: Sensei-ssi, fighting~!</p>
+<p>-Otagi Yuka: Sensei-ssi, fighting!</p>
 <p>-Alik: Ryuta, I miss you.</p>
-<p>-Konoe Akina: Sensei, I know how hard you've worked, so I'm sure you'll have good results~!</p>
-<p>-Seizawa Shii: Ryuta-chi! Bring back something delicious~!</p>
+<p>-Konoe Akina: Sensei, I know how hard you've worked, so I'm sure you'll have good results!</p>
+<p>-Seizawa Shii: Ryuta-chi! Bring back something delicious!</p>
 <p>-Minamoto Lisa: Everyone is waiting for you to pass and come back... so hurry up.</p>
 <p>.</p>
 <p>.</p>
@@ -73,6 +73,6 @@ chapter = 564
 <p>Matsunaga Yuzuki sighed softly and immediately contacted Daigo Terue. She had a relieved expression, perhaps because the meeting that had been going on for several days had finally ended.</p>
 <p>If Taira Ryuta had been watching this meeting, he would have absolutely opposed this decision. This was because one of the two places was a trap-like travel destination at this time.</p>
 <p>-------------------------</p>
-<p>A rare smiling Kurayamada Kirie~!</p>
+<p>A rare smiling Kurayamada Kirie!</p>
 <p>Different art style</p>
 <p>I liked it, but I cut it because it didn't feel like a hime cut enough ㅎㅎ</p>

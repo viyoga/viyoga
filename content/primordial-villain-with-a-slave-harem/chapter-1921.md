@@ -46,13 +46,13 @@ chapter = 1921
 <p>"You’re all brown," the one on her arm marveled.</p>
 <p>"Sun-forged," Serika said solemnly.</p>
 <p>"Sun? Does the hair burn?"</p>
-<p>"Sure it does~" Serika mused and activated her powers, her red locks turning molten orange.</p>
+<p>"Sure it does" Serika mused and activated her powers, her red locks turning molten orange.</p>
 <p>The children screamed with delight.</p>
 <p>Many girls found their idol that day, while the boys...</p>
 <p>The stock value of confident, tanned, athletic women with red hair would rise exponentially by the time these boys came of age.</p>
 <p>Vex went by the hall doors at a trot with a rolled floor plan under one arm and a carpenter jogging to keep up with her.</p>
 <p>"No lock and no bolt goes on the outside of any door a child sleeps behind," she decreed, to the corridor at large. "A child in this house can always open her own door and walk out."</p>
-<p>"Nobody will ever be locked in anything again. And I will be checking every door myself, so do save us all the trouble~"</p>
+<p>"Nobody will ever be locked in anything again. And I will be checking every door myself, so do save us all the trouble"</p>
 <p>She was three rooms away before the carpenter finished writing it down.</p>
 <p>"It still needs a name," Jasmine said, arriving at Lucille’s side with the ledger closed. "The crown’s clerks won’t register ’that thing the Villain’s family is doing with the townhouse.’"</p>
 <p>"We are not calling it an orphanage," Lucille said. "Kids in orphanages get a bad reputation."</p>

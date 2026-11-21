@@ -40,9 +40,9 @@ chapter = 171
 <p>Jin Yong-tae: Okay. I'll wander around near the house for a bit and go in on time.</p>
 <p>Han Yu-gyeong: Okay, and I'm sorry I'm so busy with work after you came to Korea 😭</p>
 <p>Jin Yong-tae: It's okay. I was involved too, anyway.</p>
-<p>Han Yu-gyeong: Okay...! It might be late, so don't wait up and just play and sleep~!</p>
+<p>Han Yu-gyeong: Okay...! It might be late, so don't wait up and just play and sleep!</p>
 <p>Jin Yong-tae: Contact me if any unexpected situations arise.</p>
-<p>Han Yu-gyeong: Okay ❤️ Have fun~</p>
+<p>Han Yu-gyeong: Okay ❤️ Have fun</p>
 <p>I hadn't really decided what to do. It was awkward to meet Ha Ju-yoon in just an hour or two... And Ha Ju-yoon would probably be asleep early for management purposes. She's so strict with her diet, her sleep management must be considerable too.</p>
 <p>Hmm... Well, since I came all the way to Korea, should I go take a look at the MegaCorp youngest son's appearance NPC? If I meet a major NPC, the story might change, so with a suitable character....</p>
 <p>Okay, I've decided! I decided to go see an NPC who is close to Han Yu-gyeong's house and doesn't affect the story. I caught a taxi.</p>
@@ -88,5 +88,5 @@ chapter = 171
 <p>"Please give me just one Juangwa directly, and deliver the rest to my registered address."</p>
 <p>"Yes! It's a total of 1,507,237 points!"</p>
 <p>I'm glad I charged it when I was hoarding glasses from the ruins. Otherwise, I would have been short a lot. Since 1 point is 1 dollar, it was roughly a little less than 2 billion won. Looking at the receipt, Juangwa accounted for the largest portion of the price.</p>
-<p>"Then please pick up your items at counter number 3~! Thank you for using our service!"</p>
+<p>"Then please pick up your items at counter number 3! Thank you for using our service!"</p>
 <p>Eve smiled brightly and waved at me. Somehow, seeing that, I could sympathize with the machine-fucks a little.</p>

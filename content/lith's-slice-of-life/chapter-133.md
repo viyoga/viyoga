@@ -25,7 +25,7 @@ Arya didn’t mind Lith getting closer to her and being on her lap. She had a go
 
 He got up from Arya’s lap and said to her, “I will go shower and sleep now. Bye, teacher.”
 
-“Byebye~” Arya replied and waved her hand.
+“Byebye” Arya replied and waved her hand.
 
 After Lith left, Arya got up from the couch and went to her floor. Opening the door and walking inside, Arya stopped in her tracks. She looked at the all clean floor and it brought a smile upon her face.
 

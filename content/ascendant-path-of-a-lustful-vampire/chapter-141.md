@@ -7,7 +7,7 @@ chapter = 141
 
 <p>*BANG!!!*</p>
 <p>*DUUUM!!!*</p>
-<p>The last view anyone had of Kerwin Leopold was of him unleashing his canopy of water and now his form was completely shrouded in the darkness of the ~Black Hand~ spell as well as the dust that had billowed out from the powerful contact the spell had made with the ground.</p>
+<p>The last view anyone had of Kerwin Leopold was of him unleashing his canopy of water and now his form was completely shrouded in the darkness of the Black Hand spell as well as the dust that had billowed out from the powerful contact the spell had made with the ground.</p>
 <p>And then the darkness began to fade and the cloud of dust began to disperse to reveal Kerwin on one knee with his head bowed and one hand raised. It was the hand he had used to cast his defensive spell.</p>
 <p>Kerwin’s eyes rolled up in his sockets and he looked at Caius who was calmly observing him. He bowed his head over again and his raised hand fell to his side, dampening any hopes there might have been that he was about to counterattack.</p>
 <p>"Shit," he said in a voice lower than a whisper. But everyone heard it clearly and the hearts of the Council members all sank.</p>

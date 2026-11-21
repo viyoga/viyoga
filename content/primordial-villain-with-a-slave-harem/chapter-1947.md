@@ -8,7 +8,7 @@ chapter = 1947
 <p>Quinlan rode Synchra along the southern shore, smiling as his wives called to one another across the waves.</p>
 <p>"Daddy’s gone quiet!" Rosie noticed from her perch on his shoulders.</p>
 <p>"Just enjoying the moment."</p>
-<p>"Quinnie~ Your empress requests a kiss!"</p>
+<p>"Quinnie Your empress requests a kiss!"</p>
 <p>Kitsara brought her board alongside Synchra, her five white tails fanned out behind her.</p>
 <p>The foxy leaned toward him, tilted her board too far, and promptly tumbled off it.</p>
 <p>"Kyaa!"</p>

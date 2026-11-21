@@ -7,7 +7,7 @@ chapter = 327
 
 <p>Ethan stepped into his bedroom, his eyes fluttering as Ysara’s delicate hand tightened around his cock, her wet fingers gliding in slow, teasing strokes along the warm length of his shaft.</p>
 <p>The towel around his waist came loose, brushing softly against his cock as it slipped down and pooled silently at his feet, leaving him fully exposed to Ysara’s wandering hands.</p>
-<p>"Hmm... Ethan is so warm and thick, fufufu~" Ysara’s drunken, slurred voice echoed softly, her white hair spilling over her bare shoulders as she lowered her head, her golden eyes fixed on the massive member throbbing in her palm.</p>
+<p>"Hmm... Ethan is so warm and thick, fufufu" Ysara’s drunken, slurred voice echoed softly, her white hair spilling over her bare shoulders as she lowered her head, her golden eyes fixed on the massive member throbbing in her palm.</p>
 <p>"Slut..." Amelia murmured from over Ethan’s other shoulder, her voice equally intoxicated. "Slutty slut trying to steal my baby!"</p>
 <p>She tried to swat Ysara’s hand away, but the clumsy motion only sent her own palm landing on his shaft, her fingers clutching awkwardly right next to her friend’s.</p>
 <p>Ethan let out a long sigh as the door swung shut behind him with a soft click.</p>
@@ -22,7 +22,7 @@ chapter = 327
 <p>They were huge, full, and heavy, soft as clouds and supple as silk pillows, yet firm enough to defy the very gravity that insisted on dragging them downward—majestic, proud mountains of pale skin.</p>
 <p>The soft, voluminous flesh engulfed his face and collarbone, the warmth of her skin flooding his senses along with the sweet aroma rising from that milky expanse.</p>
 <p>His lips parted instinctively, capturing one of the stiff, pink nipples crowning her right breast, his tongue swirling and coiling around the sensitive nub.</p>
-<p>"Mhmmm~ Yes... sweetie... drink mommy’s milk," Amelia purred, her intoxicated voice echoing softly, her blue eyes half-lidded, her cheeks flushed a fiery red.</p>
+<p>"Mhmmm Yes... sweetie... drink mommy’s milk," Amelia purred, her intoxicated voice echoing softly, her blue eyes half-lidded, her cheeks flushed a fiery red.</p>
 <p>She kneaded her own breasts, and to Ethan’s surprise, a warm stream of sweet, creamy milk suddenly flooded past his lips, trickling down his tongue and filling his mouth with that addictive flavor.</p>
 <p>He slid his hands down along Amelia’s slim waist, pulling her flush against him, their bodies molding together as if crafted to fit.</p>
 <p>Her long, shapely legs parted naturally around Ethan’s hips as she mounted him, the searing heat of her bare skin melting against his.</p>
@@ -36,7 +36,7 @@ chapter = 327
 <p>Clap</p>
 <p>Two loud, resounding slaps rang through the room, Ysara’s slim palms landing with force on each of Amelia’s pale buttocks.</p>
 <p>The plump flesh flattened beneath her palms, cratering around her slender hands before rebounding with a heavy jiggle that rolled across both mounds in mesmerizing ripples, leaving vivid pink handprints blooming on the milky skin.</p>
-<p>"Nghnn~" Amelia moaned, just in time to feel Ysara’s hands clamp firmly around her waist.</p>
+<p>"Nghnn" Amelia moaned, just in time to feel Ysara’s hands clamp firmly around her waist.</p>
 <p>In the next instant, she felt Ethan’s cock—thick and heavy—its fat head pressing against the plump, pale lips of her tight pussy, her delicate folds molding around the throbbing tip.</p>
 <p>The shaft nestled into her Cleft of Venus, the swollen glans drinking in the endless heat and silky softness of those pale, dripping lips.</p>
 <p>"C-crazy bitch... what are you do- Ick!" Amelia’s drunken voice broke off in a sharp, sensual squeal, her blue eyes flying wide as her entire body trembled on top of Ethan.</p>

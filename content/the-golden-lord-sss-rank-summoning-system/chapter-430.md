@@ -6,7 +6,7 @@ chapter = 430
 +++
 
 <p>"I wonder if Husband’s balls are connected to some external dimension where tons of cum accumulate... there’s no way that much could fit in there..." Evelyn remarked.</p>
-<p>"Yeah." Elena scraped a bit of cum off the top of her nipple with her finger, gathering a thick, white strand, and brought it to her lips. "Not that I’m complaining, hehehe~"</p>
+<p>"Yeah." Elena scraped a bit of cum off the top of her nipple with her finger, gathering a thick, white strand, and brought it to her lips. "Not that I’m complaining, hehehe"</p>
 <p>Evelyn nodded, her tongue already poking out.</p>
 <p>Then her delicate tongue made contact. Not on Ethan’s cock, but on the exposed top of Elena’s right breast, right where the layer of cum was thickest.</p>
 <p>The huge, squishy breast sank around her tongue, so soft that the dark flesh parted under her touch as if it wanted to swallow her whole tongue.</p>

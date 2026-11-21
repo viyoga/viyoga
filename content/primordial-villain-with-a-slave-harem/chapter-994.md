@@ -32,7 +32,7 @@ chapter = 994
 <p>"..." Iris didn’t like what she was hearing. But then she realized one thing. "You wanted to bring Feng Jiai with you. Is that child going to play the role of your wife as well?"</p>
 <p>"..." It was Quinlan’s turn to remain silent while he cursed the woman’s sharp wits out of existence. "So you’d rather play the role of my daughter than my wife?"</p>
 <p>She nodded.</p>
-<p>But then Ayame’s voice suddenly cut in from across the chamber with an insufferable amount of sweetness. "Daughter~! Come, let Ayame Mommy fix your unruly bangs. You’ve been brooding again, haven’t you? Boy troubles? You know you know you can tell your mother everything~"</p>
+<p>But then Ayame’s voice suddenly cut in from across the chamber with an insufferable amount of sweetness. "Daughter! Come, let Ayame Mommy fix your unruly bangs. You’ve been brooding again, haven’t you? Boy troubles? You know you know you can tell your mother everything"</p>
 <p>The temperature in the room plummeted several degrees.</p>
 <p>Iris’s entire body twitched. Her face contorted like she’d just bitten into a century egg soaked in sewage. A tremor ran down her spine.</p>
 <p>"I..." Her voice cracked. "Refuse."</p>

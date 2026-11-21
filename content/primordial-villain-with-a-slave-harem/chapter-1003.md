@@ -12,7 +12,7 @@ chapter = 1003
 <p>The fact that she was lounging in a throne of cushions inside an enchanted chariot that regulated temperature to perfection—and that she hadn’t felt a real breeze in twenty years thanks to her servants—didn’t seem to soften her mood.</p>
 <p>In the second, somewhat smaller but still overly luxurious chariot nearby, her daughter was even more animated.</p>
 <p>Princess Selendra Ravenshade leaned forward as she whispered to one of her handmaids while her painted nails drummed excitedly on the edge of her seat.</p>
-<p>"Rumor has it that the Greenvales, those nasty forest-dwelling creeps, are gifting the King some high-value Consortium prisoners tonight!!" she chirped excitedly. "I wonder if there’s a bad boy among them... I’ve never had a high-profile criminal in my harem before. Oh~ How scandalous that would be~"</p>
+<p>"Rumor has it that the Greenvales, those nasty forest-dwelling creeps, are gifting the King some high-value Consortium prisoners tonight!!" she chirped excitedly. "I wonder if there’s a bad boy among them... I’ve never had a high-profile criminal in my harem before. Oh How scandalous that would be"</p>
 <p>She giggled with a fan elegantly hiding her wicked grin.</p>
 <p>The maid, head bowed, kept her tone neutral. "I’m afraid I don’t know, Young Lady. And, Young Lady, I humbly beg you to stop discussing such topics in the open. Your father still hasn’t found you a proper husband yet; you’re expected to be a lady of feminine virtues."</p>
 <p>"Ugh. You’re so boring," Selendra scoffed, already waving her off. "Go. Shoo. Bother my mother instead or something."</p>
@@ -29,7 +29,7 @@ chapter = 1003
 <p>"They’re wearing masks, so I can’t be sure, Young Lady."</p>
 <p>"Hmm..." The princess pouted, then fanned herself slowly. "Why are they even wearing masks? Any noble who was invited should know we can’t disguise ourselves in the noble district. That’s a royal decree, and it was mentioned in the invitation letter."</p>
 <p>With the last touch of hair set in place, Selendra gave herself one final glance, then got out of the chariot. Her heels clicked loudly as she made her way directly into the path of the approaching group, intercepting them just before they reached the gates.</p>
-<p>She placed herself squarely in their way, her lips curled into a faux-polite smile. "And just who do we have here, I wonder~" she purred.</p>
+<p>She placed herself squarely in their way, her lips curled into a faux-polite smile. "And just who do we have here, I wonder" she purred.</p>
 <p>...</p>
 <p>Quinlan was surprised to have already met such a high-profile person even before they entered the noble district.</p>
 <p>He didn’t know much about Selendra Ravenshade, but easily recognized the woman based on the portraits he’d been shown of her during their little research of the notable participants of the celebration. 𝐑Ã𐌽ỗ𝐁Ěꞩ</p>

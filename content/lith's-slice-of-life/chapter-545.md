@@ -139,7 +139,7 @@ Ralph, being the smarter one between the two, probably got corrupted by Dennis a
 
 He didn't lie to his friends.
 
-"Ah… Your Highness, you don't need to apologise for it!" Dennis exclaimed. "I was just joking, hehe~"
+"Ah… Your Highness, you don't need to apologise for it!" Dennis exclaimed. "I was just joking, hehe"
 
 That was true. Dennis wasn't serious when he said that, but he was too surprised and his words slipped out of his mouth automatically.
 

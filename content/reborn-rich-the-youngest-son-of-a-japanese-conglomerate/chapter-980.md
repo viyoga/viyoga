@@ -7,22 +7,22 @@ chapter = 980
 
 <p>"Then.... let's rest for a bit and see each other at the Competition."</p>
 <p>The family breakfast concluded with me. Taira Danjo and Taira Shizuku left first, and as I rose from my Seat to leave the restaurant, I felt a presence approaching me. When I saw who it was, it was Taira Gensuke.</p>
-<p>"Hey, Ryuta~! Congratulations!"</p>
+<p>"Hey, Ryuta! Congratulations!"</p>
 <p>While congratulating me, his smiling Expression was a bit awkward. Although he himself was a Branch Manager, with me, the youngest, getting a President's title, he didn't seem to be in a very good Mood. Of course, the Taira Logistics South American Branch might be large in scale, but there's still a difference between a Branch Manager and a President, you see.</p>
 <p>"I didn't know I'd receive this much of a Reward for the mission either. Thank you for the congratulations, Gensuke-hyungnim."</p>
 <p>"Alright.... See you later at the Banquet."</p>
 <p>I deployed the 'I don't know anything' Operation. I pretended to be bewildered, with the Feeling of 'I didn't know Grandfather would give me such a position.'</p>
-<p>"Youngest, congratulations~!"</p>
+<p>"Youngest, congratulations!"</p>
 <p>"Thank you, Nunim."</p>
 <p>Perhaps because Taira Kisa had her own Business, she offered sincere congratulations and went Outside.</p>
 <p>"Let's go Outside too, Mother."</p>
 <p>"Yes, let's go."</p>
 <p>At my Words, Yukiko also rose from her Seat and exited the restaurant with me. Outside the restaurant, Mimata Chieri and Linxiang were waiting for us.</p>
-<p>"Ryuta-nim~! Did you enjoy your Meal? The Taira Family also provided us with a Meal."</p>
+<p>"Ryuta-nim! Did you enjoy your Meal? The Taira Family also provided us with a Meal."</p>
 <p>"Ryuta-nim, I went hungry."</p>
 <p>Perhaps because the Meal was quite satisfying, Mimata Chieri was stroking her Belly and smiling, while Linxiang, who couldn't eat as an android, naturally said she went hungry. An obvious fact doesn't necessarily need to be reported, you know.</p>
 <p>"The Meal was delicious, but eating while talking about Work was a bit uncomfortable. But what about Diana?"</p>
-<p>"She has to guard the Car~! Someone might install something in the Car, you see."</p>
+<p>"She has to guard the Car! Someone might install something in the Car, you see."</p>
 <p>"During Mealtime, I guarded the Car instead of Saionji Diana-yang."</p>
 <p>Saionji Diana, who came along in the role of driver, seemed to be waiting in the Car. Even so, it's the Taira main family residence, so I wondered if anyone would do anything to the Car, but it seemed she was guarding it just in case. Hearing Linxiang's Words, it seemed she hadn't gone hungry, which was fortunate.</p>
 <p>"Don't just stand here, let's go to the Banquet Hall first. All the Upper Layer people of the Taira Group are gathered there, you see."</p>
@@ -51,20 +51,20 @@ chapter = 980
 <p>As I greeted her, Nagumo Sian, who had been standing with a slightly bored Expression, smiled, making her Eyes crescent-shaped.</p>
 <p>"Ryuta.... It's been a long time."</p>
 <p>Because she hadn't seen me for a long Period due to missions, Nagumo Sian welcomed me greatly. Of course, she had met me occasionally during missions, so if you count that, it hadn't been that long, but she still seemed happy to see me.</p>
-<p>"Sabu-nim~! Hello!"</p>
+<p>"Sabu-nim! Hello!"</p>
 <p>Mimata Chieri also saw Nagumo Sian, greeted her, and called her Sabu. Since Nagumo Sian was a hidden Master who had practiced the immortal arts passed down through generations, she said that she had helped Mimata Chieri learn the Eight Extremities Immortal Form Fist, a Fist Technique infused with the immortal arts that she had received from me.</p>
 <p>"Have you been well all this time?"</p>
 <p>"How could I have been well? Ryuta hasn't visited me...."</p>
-<p>At my Question, Nagumo Sian spoke with a slight whine. With an awkward Expression, I said, 'Aww~ you know I was on a mission,' and let her know it wasn't my Mistake. Everything, that Taira Danjo, who gave me the mission, was the bad one, I should push that narrative.</p>
+<p>At my Question, Nagumo Sian spoke with a slight whine. With an awkward Expression, I said, 'Aww you know I was on a mission,' and let her know it wasn't my Mistake. Everything, that Taira Danjo, who gave me the mission, was the bad one, I should push that narrative.</p>
 <p>Taira Yukiko, who was listening nearby, also tilted her Head at my Words, 'Is that so?'</p>
 <p>"This time, having taken charge of Taira Food distribution, I've been going around greeting People from the Group."</p>
-<p>"Then you should have come to me first~!"</p>
+<p>"Then you should have come to me first!"</p>
 <p>At my Words, Nagumo Sian spoke with a slight scolding tone. In fact, as Nagumo Sian said, since the name of the company I was in charge of was Taira 'Food' distribution, it could be said to be closer to Taira Food than any other company.</p>
 <p>"I have the Personality of saving the most delicious things for last. Meeting Grandmother-nim is the most enjoyable thing, so I saved it until the end."</p>
 <p>In fact, I had just been wandering around thoughtlessly as Taira Yukiko introduced me, but Nagumo Sian seemed pleased with my Answer, and gently pinched my Cheek.</p>
 <p>"Alright, since you've come to our side, I should introduce you to the non-factional People. Come this way."</p>
 <p>This time, I followed Nagumo Sian and headed to the Place where the non-factional People were gathered.</p>
-<p>Nagumo Sian B-cut after a long time~!</p>
-<p>Gojoy-nim requested Camilla's Tape and Breast-covering~!</p>
-<p>Tape~!</p>
-<p>Breast-covering~!</p>
+<p>Nagumo Sian B-cut after a long time!</p>
+<p>Gojoy-nim requested Camilla's Tape and Breast-covering!</p>
+<p>Tape!</p>
+<p>Breast-covering!</p>

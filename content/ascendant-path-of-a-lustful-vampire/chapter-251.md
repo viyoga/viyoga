@@ -44,15 +44,15 @@ chapter = 251
 <p>’Nonsense,’ she told herself trying to calm her erratically beating heart, ’I’m not in any danger.’</p>
 <p>But wasn’t she?</p>
 <p>Caius had known she would approach. And he had a spell prepared already, completing the cast just as he locked eyes with her.</p>
-<p>~Hellsong Stomp~</p>
+<p>Hellsong Stomp</p>
 <p>He stomped both his feet against the ground and dashed toward Cynthia.</p>
 <p>She saw him coming.</p>
-<p>As great a boost as ~Hellsong Stomp~ was for Caius, Cynthia was just far too high in Magic Circles to lose sight of him but he never hoped for that so it didn’t matter.</p>
-<p>Caius could have used ~Hellsong Dash~ which he had more control over but he picked the more unstable spell because the instability made it harder, by default, for an opponent—in this case Cynthia—to figure out what he had planned because, in a sense, not even he knew.</p>
+<p>As great a boost as Hellsong Stomp was for Caius, Cynthia was just far too high in Magic Circles to lose sight of him but he never hoped for that so it didn’t matter.</p>
+<p>Caius could have used Hellsong Dash which he had more control over but he picked the more unstable spell because the instability made it harder, by default, for an opponent—in this case Cynthia—to figure out what he had planned because, in a sense, not even he knew.</p>
 <p>He was just being dragged along by the movement spell so when Cynthia looked at his beyond handsome face getting closer to her, she didn’t see any look on purpose. She also didn’t move out of the way.</p>
 <p>Caius had expected that. Cynthia had nothing to fear from him as far as she knew so why would she try to dodge him? Also, he didn’t move to collide with her and actually made to go past her, which she watched happen with a confused smile wondering what he was thinking.</p>
 <p>Just as he was getting past her, Caius reached out and grabbed Cynthia’s wrist. The one she didn’t have raised to cast a spell.</p>
-<p>Technically, he had been moving his hand since he first cast ~Hellsong Stomp~ because he had to. He timed it just right so he would be within range to make the wrist grab right when he needed to.</p>
+<p>Technically, he had been moving his hand since he first cast Hellsong Stomp because he had to. He timed it just right so he would be within range to make the wrist grab right when he needed to.</p>
 <p>It felt like his intent was to pull Cynthia away but she refused to be moved so she just grounded his movement spell and its flame fizzled out so now Caius was just standing with his hand holding tightly to her wrist.</p>
 <p>"What—?" Cynthia started to ask, still confused but before she could complete her question, Caius pulled closer to her pressing his chest flush against hers.</p>
 <p>Cynthia let out a gasp of surprise as her ample assets were getting squished against Caius’s pecs and she let out a sound that was low but resembled a moan when he wrapped an arm around her waist.</p>

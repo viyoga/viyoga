@@ -21,7 +21,7 @@ chapter = 1490
 <p>&lt;My, my. Is my adorable Little Ruin pouting?&gt;</p>
 <p>Nyxara.</p>
 <p>The demoness spoke from deep inside his soul realm, her tone carrying the lazy amusement of someone watching entertainment from a very comfortable seat. Knowing her, she was probably sprawled across his throne with her legs draped over the armrest, picking at her nails.</p>
-<p>&lt;You have no choice but to sit and wait like a good boy, unless you think you can bring down the barrier of a county capital all by yourself. Not even this Morgana girl could manage that, I bet~&gt;</p>
+<p>&lt;You have no choice but to sit and wait like a good boy, unless you think you can bring down the barrier of a county capital all by yourself. Not even this Morgana girl could manage that, I bet&gt;</p>
 <p>She was fishing.</p>
 <p>Quinlan didn't bite.</p>
 <p>&lt;Hmm?&gt; Nyxara pressed. &lt;Nothing? No bravado? No 'watch me'?&gt;</p>

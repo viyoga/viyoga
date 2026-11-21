@@ -58,7 +58,7 @@ chapter = 746
 <p>Cold. Sharp. Sudden.</p>
 <p>Like ice water poured down my spine. Like a blade being drawn in muted silence.</p>
 <p>I saw it. I saw everything that has been wrong since the siege began.</p>
-<p>Back in Emberfang, we overcame immense odds! It was a 50 vs ~2000 fight!</p>
+<p>Back in Emberfang, we overcame immense odds! It was a 50 vs 2000 fight!</p>
 <p>So why were we losing right now?!</p>
 <p>… Because I’d been reacting. Patching holes in a collapsing wall. Bandaging a broken neck. Scrambling like a cornered animal. No, scrambling like prey.</p>
 <p>Defending, when I was here to conquer. When I was born to Conquer!</p>

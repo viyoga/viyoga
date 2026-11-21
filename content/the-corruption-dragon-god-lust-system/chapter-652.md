@@ -93,7 +93,7 @@ chapter = 652
 
 <p>With a radiant smile, Madame Lao turned her face toward the back of the hall.</p>
 
-<p>“Oh… it seems our dear Black Rose has finally left her hiding place, fufufu~~”</p>
+<p>“Oh… it seems our dear Black Rose has finally left her hiding place, fufufu”</p>
 
 <p>A sweet, mature laugh escaped her lips as, from a secluded corridor, a dazzling figure emerged, silent footsteps echoing softly on the jade floor.</p>
 

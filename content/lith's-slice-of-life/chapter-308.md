@@ -55,7 +55,7 @@ They stayed like that for a few minutes and teleported back to Lith's room in th
 
 After coming back into the room, Lith said to Alexandra, "go practice and cultivate hard. I also have work to do. When you're done with your training and it's nighttime, you can come to my room. We'll sleep together, okay?"
 
-Alexandra nodded her head. "Okay. Bye-bye, darling~"
+Alexandra nodded her head. "Okay. Bye-bye, darling"
 
 Alexandra waved her hand and left after saying her goodbyes.
 

@@ -53,9 +53,9 @@ chapter = 947
 <p>Athena Mannerheim didn't stay in Finland for long and quickly returned to work hard on persuading the Anyaji prisoners.</p>
 <p>Perhaps because of that, I was able to obtain some information from the persuaded Anyaji prisoners. They told me about orphanages created under borrowed names where talented boys and girls were captured, and information about Anyaji's hidden siseol, so I was able to rescue the boys and girls and obtain wealth and data from the hidden siseol.</p>
 <p>Of course, when we went after hearing that information, some places were completely empty, but I guessed that the Anyaji branch in the region had likely noticed Anyaji's decline and had taken the items there separately.</p>
-<p>TheDreaming-nim requested Sawayanagi Mikiyo 1. Pressing breasts on the Subway~! 2. Hand Play in a public Restroom~!</p>
+<p>TheDreaming-nim requested Sawayanagi Mikiyo 1. Pressing breasts on the Subway! 2. Hand Play in a public Restroom!</p>
 <p>1.</p>
 <p>2.</p>
-<p>MidNightSKY-nim requested Alik wielding a geom containing Lightning and Sakagami Rena using Water Star~!</p>
-<p>Alik~!</p>
-<p>Sakagami Rena~!</p>
+<p>MidNightSKY-nim requested Alik wielding a geom containing Lightning and Sakagami Rena using Water Star!</p>
+<p>Alik!</p>
+<p>Sakagami Rena!</p>

@@ -27,13 +27,13 @@ chapter = 88
 <p>,Huh?"</p>
 <p>I couldn't understand what Han Yu-gyeong was saying, who suddenly had a mouthful of toothpaste foam and moved her mouth, so I asked again. Han Yu-gyeong rinsed her mouth at my question and brought her mouth to my ear. The mint scent brushed past my nose, probably because she had just brushed her teeth.</p>
 <p>,I love you♥"</p>
-<p>,Ah~."</p>
-<p>I pretended not to know that Han Yu-gyeong was waiting for an answer to,I love you' with a playful spirit and continued brushing my teeth. Then, Chi~! Han Yu-gyeong hit my arm. I also rinsed my mouth like Han Yu-gyeong, gave her a light kiss on the lips, and whispered,I love you' in her ear.</p>
+<p>,Ah."</p>
+<p>I pretended not to know that Han Yu-gyeong was waiting for an answer to,I love you' with a playful spirit and continued brushing my teeth. Then, Chi! Han Yu-gyeong hit my arm. I also rinsed my mouth like Han Yu-gyeong, gave her a light kiss on the lips, and whispered,I love you' in her ear.</p>
 <p>,Hehe, shall we go into the tub?"</p>
 <p>,Let's do that."</p>
 <p>Since it wasn't a very large tub, I went into the tub first and Han Yu-gyeong sat on top of me as if overlapping. We played with each other in the tub. We splashed water and tickled each other's bodies, but soon it became each other's caresses.</p>
 <p>The sounds of laughter and loud splashing were soon replaced by moans and light splashing sounds.</p>
-<p>,Haaang~! Heueum...!"</p>
+<p>,Haaang! Heueum...!"</p>
 <p>Han Yu-gyeong couldn't help but moan when I rubbed her erect and sensitive pink nipples with soapy hands.</p>
 <p>Han Yu-gyeong also squeezed out body wash and rubbed my dick without giving in to me. It felt different from getting a handjob with bare hands usually. It was more slippery and felt better.</p>
 <p>,Keueuk...! I like it...."</p>
@@ -76,9 +76,9 @@ chapter = 88
 <p>###</p>
 <p>Saying goodbye was always disappointing. Han Yu-gyeong, who followed me to the airport, was teary-eyed, and Dickson was also teary-eyed with joy when I gave Han Yu-gyeong 10 million won to take good care of her.</p>
 <p>,I'll come again during summer vacation, so don't be too lonely."</p>
-<p>,Okay.... I'll go in the middle too~!"</p>
+<p>,Okay.... I'll go in the middle too!"</p>
 <p>Yeah, it's not a long distance, and it's not a burden to go back and forth, so we can see each other in the middle. I gave Han Yu-gyeong a farewell kiss and boarded the plane.</p>
-<p>,Contact me when you arrive~!"</p>
+<p>,Contact me when you arrive!"</p>
 <p>,Okay, I'll contact you!"</p>
 <p>Han Yu-gyeong waved her hand until she couldn't be seen. I also waved my hand back and passed through the boarding gate and boarded the plane.</p>
 <p>,Hmm.... It was a rewarding business trip (?)."</p>

@@ -81,19 +81,19 @@ chapter = 1057
 <p>"Yes, my mind was racing."</p>
 <p>As Fujigasaki Rinka nodded her Head at my Words, her Blush faded a little, and her Complexion was quite pale compared to usual. If it seems she's not getting better while I watch, I'll have to bring up drastic measures.</p>
 <p>Yesterday was Pepero Day...! I didn't receive any Pepero, so I didn't know and it passed me by ㅠㅠ To commemorate the past Pepero Day, I've prepared some Pepero Day Illustrations ㅎㅎ</p>
-<p>Alik~!</p>
+<p>Alik!</p>
 <p>"Ryutta.... Just eat one."</p>
-<p>Han Yu-gyeong~!</p>
-<p>"Yongtae-ya~♡ Do I have to eat it all the way to the end?"</p>
+<p>Han Yu-gyeong!</p>
+<p>"Yongtae-ya♡ Do I have to eat it all the way to the end?"</p>
 <p>Rinka Surprised B-cut!</p>
 <p>Gojoy-nim requested 1. Hanako waving her Hand 2. Hanako in the car.</p>
 <p>1.</p>
 <p>2.</p>
-<p>TheDreaming-nim requested 1. Herta being subjected to Hand Play 2. M-Legs Herta~!</p>
+<p>TheDreaming-nim requested 1. Herta being subjected to Hand Play 2. M-Legs Herta!</p>
 <p>1.</p>
-<p>Herta was supposed to be the one being subjected, but she kept appearing in an attacking stance, so as an alternative, I made it into a breast-pulling scene as requested~!</p>
+<p>Herta was supposed to be the one being subjected, but she kept appearing in an attacking stance, so as an alternative, I made it into a breast-pulling scene as requested!</p>
 <p>2.</p>
 <p>Kkyu-it!</p>
-<p>Chomisaemeonji-nim requested Liz in a police uniform, Liz in a WWII Military Uniform~!</p>
-<p>Police Liz~!</p>
-<p>WWII Military Uniform Liz~!</p>
+<p>Chomisaemeonji-nim requested Liz in a police uniform, Liz in a WWII Military Uniform!</p>
+<p>Police Liz!</p>
+<p>WWII Military Uniform Liz!</p>

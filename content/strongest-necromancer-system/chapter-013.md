@@ -24,7 +24,7 @@ chapter = 13
 <p>Jason felt behind him for his knife, and once he felt it, he crouched as well and gave the signal:</p>
 <p>'Go!'</p>
 <p>Boom!</p>
-<p>HOWWWLLLL~!</p>
+<p>HOWWWLLLL!</p>
 <p>All the wolves suddenly shot forward as one, and Jason followed after them at a speed that he didn't know he possessed! The trees passed in a blur and their feet were barely touching the ground from how quickly they were moving!</p>
 <p>The stronger Pawn Rank II wolves were faster, and so they shot ahead of the pack, barreling forward like bats out of hell. But the other twelve Rank I's didn't fall too far behind as they followed behind their stronger counterparts!</p>
 <p>Surprisingly, Jason was able to keep up with the Rank I's! His eyes were trained on the Boss' hideout in the distance as he used the [Crimson Gaze] to watch their movement, and he was able to pick out the exact moment when the wolves in the hideout all figured out that they were under attack!</p>

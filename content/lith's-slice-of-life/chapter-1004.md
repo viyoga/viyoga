@@ -61,7 +61,7 @@ With that, Lith got to work and displayed his exceptional cooking abilities.
 
 …..
 
-"Mhm~"
+"Mhm"
 
 A moan inexplicably echoed out of Mayzin's mouth as she had the first spoonful of the legendary stew.
 

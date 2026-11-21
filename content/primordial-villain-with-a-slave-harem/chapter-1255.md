@@ -64,7 +64,7 @@ chapter = 1255
 <p>"Then I shall," Orianna jumped at the opportunity. Her voice was trembling with joy.</p>
 <p>With Rosie’s magic receding, the pink-haired, tatted baddie stepped closer, wrapped her arms around the small green girl, and pulled her in tight.</p>
 <p>"Kya!" Rosie squeaked cutely, then melted into giggles as the pink-haired woman began to very animatedly pat her head.</p>
-<p>"Ehehe~!!" Rosie’s tail-like vine swayed behind her as she laughed.</p>
+<p>"Ehehe!!" Rosie’s tail-like vine swayed behind her as she laughed.</p>
 <p>Time passed quietly in Quinlan’s courtyard. The frost that had been disturbed by the earlier scuffle settled once more.</p>
 <p>Rosie was now perched on Orianna’s lap with her legs kicking joyously while the Flower Queen hummed as she braided the dryad’s leafy hair with actual flower stems.</p>
 <p>"Rosie," Orianna finally said, glancing up at the white sky. "That title you mentioned earlier. The Primordial Villain. I’ve heard it before... when the announcement rang across the world. But who exactly is he?"</p>

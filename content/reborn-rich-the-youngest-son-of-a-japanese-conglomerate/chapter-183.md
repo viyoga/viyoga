@@ -15,7 +15,7 @@ chapter = 183
 <p>"How much is he?"</p>
 <p>"Since this guy is still a Man with intact Limbs, you'll have to give 155,000 Points."</p>
 <p>"I'll buy him."</p>
-<p>"Oh~! That's a good Choice." After this deal, I realized this Slave Trader was surprisingly an honest mister. Seeing that he spoke honestly about the Ability without exaggerating it. If he were any other businessman, he would have called this Regeneration boy a Troll-grade and demanded a million.</p>
+<p>"Oh! That's a good Choice." After this deal, I realized this Slave Trader was surprisingly an honest mister. Seeing that he spoke honestly about the Ability without exaggerating it. If he were any other businessman, he would have called this Regeneration boy a Troll-grade and demanded a million.</p>
 <p>"Next..." He locked the Regeneration boy's room Door and opened the next room. In the next room, there was a boy wearing a hood and with his Eyes closed. His Body was tightly wrapped in long Clothes, so his Limbs weren't visible, making it impossible to tell if he was thin or fat. His Face wasn't clearly visible because of the hood, but at least it was clear that his Eyes were closed.</p>
 <p>"This guy has X-Ray Ability." X-Ray... I'd been subjected to it once myself. When I met Nagumo Sian recently, the guy who sniped through the restaurant wall was an X-Ray Ability User, wasn't he? I wonder if he still hasn't been killed? I'm curious.</p>
 <p>"This guy is quite expensive. You'll be able to recover the Money you spent even if you go to the Gamble house just once or twice." Ah, he'd be useful for gambling too. I guess I was thinking too much about combat. X-Ray is also a pretty good Ability, so should I buy him?</p>

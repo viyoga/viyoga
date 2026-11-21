@@ -36,7 +36,7 @@ chapter = 305
 <p>Kaiden wasn’t one to complain.</p>
 <p>His palms slid across her flawless skin, massaging the slick warmth into every line of her body. His fingers traced down her impossibly narrow waist, over the tempting curve of her hips. That perfect contrast of slim elegance and voluptuous allure nearly made him go into action right then and there.</p>
 <p>"Tch!" Aria scoffed cutely when she realized he managed to hold back. The girl wanted to see if she could make her man forget that there were two women coming after her whom he was supposed to pay attention to...</p>
-<p>The girl quickly got bored with seeing him touch the parts of her body that she didn’t want him to. "We’re not making a family-friendly video, Kai... We’re not making any video at all, in fact. Stop being so reserved...~"</p>
+<p>The girl quickly got bored with seeing him touch the parts of her body that she didn’t want him to. "We’re not making a family-friendly video, Kai... We’re not making any video at all, in fact. Stop being so reserved..."</p>
 <p>Not waiting for a reply, she grasped his wrists and guided them higher, pressing his soapy hands onto her breasts. She even went as far as to close his palm around them.</p>
 <p>A low, satisfied hum escaped her lips in an instant. "I needed to feel this sooo bad..." Her back arched against his touch, instinctively giving him even more room to do whatever he so desired with her breasts.</p>
 <p>As she began massaging the scalp of her man, who was busy suckling on her breasts, her eyes shifted toward her friends for a moment. It was a mistake. Their image reminded the girl of the previous topic they were having.</p>

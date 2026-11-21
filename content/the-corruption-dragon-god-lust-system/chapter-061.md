@@ -59,7 +59,7 @@ chapter = 61
 
 <p>It really did feel like heaven.</p>
 
-<p>“Q-qingyi that’s not…” Elize stammered, her voice cut off by a muffled moan. “Mmph~”</p>
+<p>“Q-qingyi that’s not…” Elize stammered, her voice cut off by a muffled moan. “Mmph”</p>
 
 <p>Still, she made no move to push him away, his strong, powerful hands covering her small, delicate ones.</p>
 
@@ -71,13 +71,13 @@ chapter = 61
 
 <p>She winced slightly.</p>
 
-<p>“Y-yes, I just- mnghh~~” Her voice was interrupted by another moan and Qingyi watched with amusement as her lust rose.</p>
+<p>“Y-yes, I just- mnghh” Her voice was interrupted by another moan and Qingyi watched with amusement as her lust rose.</p>
 
 <p>When it reached seventy points, he finally gave himself a little more freedom.</p>
 
 <p>His hands trailed down Elize’s long, delicate reaching her shoulders before descending to her enormous breasts.</p>
 
-<p>“Ghn~~” she moaned, Qingyi’s hands sinking into the mountains of pale, creamy skin, trying to grab as much as possible.</p>
+<p>“Ghn” she moaned, Qingyi’s hands sinking into the mountains of pale, creamy skin, trying to grab as much as possible.</p>
 
 <p>Elize took a single step backwards, moving away from the cauldron, her ass pressing even harder against Qingyi’s rigid cock.</p>
 
@@ -93,7 +93,7 @@ chapter = 61
 
 <p>The legs of the chair creaked with the weight of both of them, but fortunately they didn’t give way.</p>
 
-<p>“Ghn~~ Qingyi… we shouldn’t be doing this…” Elize protested, but Qingyi ignored her.</p>
+<p>“Ghn Qingyi… we shouldn’t be doing this…” Elize protested, but Qingyi ignored her.</p>
 
 <p>Grabbing her breasts, he squeezed them together gently, admiring their size and beauty for a brief moment, his hands even seeming small in comparison.</p>
 
@@ -103,7 +103,7 @@ chapter = 61
 
 <p>“N-no… I mean…” She choked on her own words, each gentle squeeze of Qingyi’s hands on her breasts eliciting a depraved, muffled moan, her body melting in his arms.</p>
 
-<p>“Nghn~~ Yes… I want to…”</p>
+<p>“Nghn Yes… I want to…”</p>
 
 <p>She finally gave in as she felt Qingyi’s grip on her breasts strengthen, the pale, creamy skin spilling out between his fingers..</p>
 

@@ -56,7 +56,7 @@ chapter = 204
 <p>"Enjoy your meal. I'll see you tomorrow morning."</p>
 <p>Yukiko called out to the old man Fukami, who was about to say goodbye and leave.</p>
 <p>"We'll be eating bread and cereal tomorrow morning too, so you can rest in the morning and come at lunchtime."</p>
-<p>"Ah~ is that so? I understand."</p>
+<p>"Ah is that so? I understand."</p>
 <p>The old man Fukami smiled, bowed his head, and left the dining room. So, from now until lunchtime tomorrow, we're the only ones in the house? You sly Yukiko. Yukiko said she would eat cereal for breakfast in order to be alone with me without the villa caretakers interfering.</p>
 <p>"The house is nice."</p>
 <p>I cut the Mediterranean grilled octopus with a knife, put it in my mouth, and looked around the dining room as I opened my mouth. The building was nice on the outside, but the interior was also nice. The Mediterranean grilled octopus in my mouth was also excellent. It was grilled in olive oil and had a good aroma and was soft.</p>

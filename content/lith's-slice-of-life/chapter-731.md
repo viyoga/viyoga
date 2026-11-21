@@ -27,7 +27,7 @@ It then touched her and caused her to shiver, in excitement and anticipation.
 
 Lith's shaft then slowly made its way inside Bella and when he felt some resistance, he pushed through it and caused a jolt of pain and pleasure to course within her.
 
-"Ahhh~"
+"Ahhh"
 
 It pained slightly and Bella could even see blood trickle down her Prince's big cock. 
 

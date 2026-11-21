@@ -21,7 +21,7 @@ chapter = 924
 <p>"Huh?"</p>
 <p>At my Words, Otagi Yuka looked at me with an Expression that said, "What are you talking about?" I was just curious about her current Status after the battle, so I just said, "Shall I check?" without explaining.</p>
 <p>"Your Abilities, I mean. You became a Clan Lord this time, and your Level must have risen in this fight too...."</p>
-<p>"Oh, that? Good! I was curious anyway, so I'd be grateful if Ryuta-ssi would check it for me~!"</p>
+<p>"Oh, that? Good! I was curious anyway, so I'd be grateful if Ryuta-ssi would check it for me!"</p>
 <p>When I said I would check her Status Window with the Ruins' Glasses, Otagi Yuka couldn't hide her Expectation and showed a beaming smile. To meet Otagi Yuka's Expectation, I immediately put on the Ruins' Glasses.</p>
 <p>◆Name: Yuka Otagi Lv16</p>
 <p>Strength:16 Agility:16 Stamina:16 Resistance:16 Recovery:16 Sensitive Nerves:16 Appearance:16</p>
@@ -73,4 +73,4 @@ chapter = 924
 <p>The inherited Clan Traits were Golden Blood and Golden Malice, Traits from which immediate Combat Power was hard to expect. One of the other two Traits, Mist Transformation, was a Trait Otagi Yuka also possessed, allowing transformation into a Blood fog, and the second, Night Tracker, was a new Trait Otagi Yuka didn't have.</p>
 <p>◆Night Tracker "Narrative Race Trait": Remembers an Opponent's Body Scent. Can sense and Track the remembered Body Scent up to a distance of 30KM.</p>
 <p>Ah, so it was a Tracking or Investigation-type Trait. As expected, this wasn't a combat-oriented Trait either. Rather, looking at her Traits and Skills like Investigation and Conspiracy, Seiwa Rieko could be said to be a Talent more suited for the Investigation Department than for combat.</p>
-<p>Requested by ISaveI-nim, Shinoe Misano and Daigo Terue in sexy yukata~! Shinoe Misano! Daigo Terue~! Requested by Hwanbuljeoldaebulga-nim, former model Han Yu-gyeong in black Stockings, black Underwear, Belly button piercing, and armpit shot~! Kkiyot!</p>
+<p>Requested by ISaveI-nim, Shinoe Misano and Daigo Terue in sexy yukata! Shinoe Misano! Daigo Terue! Requested by Hwanbuljeoldaebulga-nim, former model Han Yu-gyeong in black Stockings, black Underwear, Belly button piercing, and armpit shot! Kkiyot!</p>

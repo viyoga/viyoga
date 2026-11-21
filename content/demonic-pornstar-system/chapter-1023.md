@@ -65,7 +65,7 @@ chapter = 1023
 <p>"...Please reconsider." Alexandra’s expression turned as dry as possible. "My heart won’t be able to take it if I have to worry about you drinking poison all the time."</p>
 <p>"I’d notice it and stop drinking."</p>
 <p>"..."</p>
-<p>"Give it up, Lexi~" Nyx purred. "Kai won’t suck blood all the time anyhow. I bet it being a pretty girl helped his appetite."</p>
+<p>"Give it up, Lexi" Nyx purred. "Kai won’t suck blood all the time anyhow. I bet it being a pretty girl helped his appetite."</p>
 <p>"Eh?" the blonde’s eyes widened.</p>
 <p>"What ’eh’?" Luna chuckled. "You think he’ll suck off a werewolf too?"</p>
 <p>"Language," Aria chided. "And Kai would absolutely repeat this on a filthy, hairy, male werewolf. He didn’t do it just because she was a pretty vampire girl. Right, Kai?"</p>

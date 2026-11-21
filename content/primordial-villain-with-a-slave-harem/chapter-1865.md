@@ -15,7 +15,7 @@ chapter = 1865
 <p>Black Fang left her post and walked through first, ahead of both of them, offering no explanation to anyone.</p>
 <p>Quinlan and Ayame traded a look over the space where she had been. Neither said one word. Some lessons only need learning once a day.</p>
 <p>Then Ayame took his arm, the last of Fujimori lands at her back and none of her attention on it, and grinned up at him with the shine he knew best.</p>
-<p>"Now then~ Let’s go see how that hopeless workaholic is doing."</p>
+<p>"Now then Let’s go see how that hopeless workaholic is doing."</p>
 <p>They stepped through together.</p>
 <p>...</p>
 <p>In the Ravenshade ducal seat, the crown’s requisition arrived between the fish course and the wine, and Duke Tharion Ravenshade let it wait through both.</p>

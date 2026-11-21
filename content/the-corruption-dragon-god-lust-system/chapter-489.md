@@ -7,7 +7,7 @@ chapter = 489
 
 <p>Feiyan didn’t seem even a fraction as concerned about those things as Qingyi.</p>
 
-<p>Kneeling between her husband’s legs, she simply reached for his cock. Her soft, wet lips closed around the reddish tip in a greedy kiss. “Guk nghnn~~” She gagged as she swallowed a little more.</p>
+<p>Kneeling between her husband’s legs, she simply reached for his cock. Her soft, wet lips closed around the reddish tip in a greedy kiss. “Guk nghnn” She gagged as she swallowed a little more.</p>
 
 <p>Her eyes lifted, filling with delight at her husband’s thoughtful and slightly proud expression as his cock sank to the back of her throat. She loved seeing her husband with that look. Almost as much as she loved his teasing expression, and of course, almost as much as she loved having her mouth and throat completely filled by that fat, throbbing cock.</p>
 
@@ -19,11 +19,11 @@ chapter = 489
 
 <p>Once again, she swallowed his cock. Her breasts swayed as her head moved rhythmically, her throat squeezing around his huge cock, struggling to milk it.</p>
 
-<p>“Ah… nghnnn~~” Feiyan paused for a moment, panting against Qingyi’s cock.</p>
+<p>“Ah… nghnnn” Feiyan paused for a moment, panting against Qingyi’s cock.</p>
 
 <p>She grabbed it with both hands, masturbating him with increasing speed, using her own saliva as lubricant for her fingers.</p>
 
-<p>“Mmhm~~ does hubby like that? Fufufu~~” Feiyan smiled, releasing her husband’s cock for a brief moment.</p>
+<p>“Mmhm does hubby like that? Fufufu” Feiyan smiled, releasing her husband’s cock for a brief moment.</p>
 
 <p>Her tongue slid against the sensitive tip, and her squeeze around the member became even stronger.</p>
 
@@ -33,7 +33,7 @@ chapter = 489
 
 <p>Taking a single moment for himself, he began to move his hips, pulling his cock out before thrusting it all the way back in again, fucking her throat as if it were a pussy.</p>
 
-<p>“Nghnnn~~ so big~~ aghnn~~ gulk~~” Feiyan gasped, her moans punctuated by soft gags as Qingyi’s cock throbbed painfully in her mouth.</p>
+<p>“Nghnnn so big aghnn gulk” Feiyan gasped, her moans punctuated by soft gags as Qingyi’s cock throbbed painfully in her mouth.</p>
 
 <p>She could feel it when her hubby reached his limit.</p>
 
@@ -43,7 +43,7 @@ chapter = 489
 
 <p>The beauty’s cheeks puffed up with the huge flow of hot, sticky cum invading her lips and then going down her throat in long, greedy gulps, her throat working incessantly.</p>
 
-<p>“Gulp… ah~~” Feiyan took one final gulp, feeling the hot cum go down before pulling away with an excited smile.</p>
+<p>“Gulp… ah” Feiyan took one final gulp, feeling the hot cum go down before pulling away with an excited smile.</p>
 
 <p>Her long, delicate fingers moved up to her lips, wiping away a small stream of cum that had leaked out.</p>
 
@@ -61,7 +61,7 @@ chapter = 489
 
 <p>“That fat, tight, tanned pussy really makes me proud…” He laughed, standing up and lifting her onto his lap.</p>
 
-<p>“You better be proud, fufufu~~” Feiyan cackled. Her sweet, sensual, and resounding laughter spread as they returned toward the temple. It was almost dark, and soon, Elize would start preparing dinner. As always, no one wanted to risk missing out on her cooking.</p>
+<p>“You better be proud, fufufu” Feiyan cackled. Her sweet, sensual, and resounding laughter spread as they returned toward the temple. It was almost dark, and soon, Elize would start preparing dinner. As always, no one wanted to risk missing out on her cooking.</p>
 
 <p>***</p>
 

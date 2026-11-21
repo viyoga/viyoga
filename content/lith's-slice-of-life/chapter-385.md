@@ -107,7 +107,7 @@ The entire water that was covering their bodies was gone within a few minutes an
 
 "Nghnn… honey, I am going to cum." Lith groaned and said.
 
-"Ahh~... Me too… Darling… Ahh… Kiss…"
+"Ahh... Me too… Darling… Ahh… Kiss…"
 
 Alexandra asked for a kiss and Lith happily obliged and did that. Their lips locked together and soon their tongues got entangled together as well.
 

@@ -79,7 +79,7 @@ chapter = 24
 
 <p>Luis sprawled out casually, lighting a cigarette and watching his wife’s little head bobbing between his legs. &quot;Wife, I have some work to do later. Let me enjoy this properly for now, okay?&quot;</p>
 
-<p>&quot;Okay~&quot;</p>
+<p>&quot;Okay&quot;</p>
 
 <p>Lily stroked his cock with one hand while licking his balls, murmuring, &quot;Hubby, I’ll download some AV these next few days. Next time, I’ll give you a titty fuck, okay?&quot;</p>
 

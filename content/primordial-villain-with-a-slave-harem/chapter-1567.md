@@ -19,7 +19,7 @@ chapter = 1567
 <p>Alexios's blade stopped.</p>
 <p>The killing stroke froze two feet from Morgana's skull. The tendons in his wrists bulged from the effort and his arms shook, the momentum of a blow meant to cleave an elven queen arrested by the sight of his own wife crumpled on the ground before him.</p>
 <p>"Accursed mongrel!" He was beyond furious. "Have you no honor?! You already have the Sovereign of Light on your side! Fight me properly!"</p>
-<p>"But I am~?" Quinlan mused.</p>
+<p>"But I am?" Quinlan mused.</p>
 <p>Alexios tried to sidestep. His legs drove left, angling around Morgana's form to reach Myrasyn from the flank.</p>
 <p>Too late. She finished the spell.</p>
 <p>"-Binding]!"</p>

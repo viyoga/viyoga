@@ -30,7 +30,7 @@ chapter = 429
 <p>Maybe Otagi Yuka knows SPF as well as I do. The family must have investigated SPF a lot since they are the opposite of them. As we walked, we talked about SPF with each other, and before we knew it, we arrived in front of the Dark Business branch.</p>
 <p>Otagi Yuka looked around with a slightly nervous expression and went inside. Looking at her very nervous expression, it was closer to checking whether SPF was watching this place than going into a love hotel as a student.</p>
 <p>Following Otagi Yuka, I went down to the basement and to the Dark Business branch, and Eve and Sakagami Rena were waiting.</p>
-<p>"Yuka~! Ryuta-ssi!"</p>
+<p>"Yuka! Ryuta-ssi!"</p>
 <p>"Eve, heueuk...!"</p>
 <p>Eve greeted us with a bright expression as always. Otagi Yuka seemed to be crying again when she saw her close friend Eve, and she hugged Eve and started crying. I heard the story on the way here, and she said that the nanny who raised her since she was a baby died, so the shock must be quite severe. Eve stroked Otagi Yuka's head, who was burying her face in her big, soft breasts and crying, and comforted her.</p>
 <p>We decided to wait for a while until Otagi Yuka stopped crying. After a while, Otagi Yuka stopped crying and we told Eve and Sakagami Rena about what happened at the Otagi family's mansion and showed them the letter from SPF.</p>

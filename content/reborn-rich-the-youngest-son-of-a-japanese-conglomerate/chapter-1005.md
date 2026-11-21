@@ -76,7 +76,7 @@ chapter = 1005
 <p>Kisa is welcoming him with a feeling of, "Oh my, are you Ryuta?" hehe</p>
 <p>Taira Kokoro</p>
 <p>Kokoro is managing her Expression as one of the Taira Successors hehe</p>
-<p>Chomisaemeonji-nim requested Liz Mukbang Hamburger, wearing a transparent raincoat~!</p>
-<p>Hamburger Mukbang~!</p>
-<p>Wow, look at that size...! Of course, I'm talking about the burger, not the breast~!</p>
-<p>Transparent raincoat~!</p>
+<p>Chomisaemeonji-nim requested Liz Mukbang Hamburger, wearing a transparent raincoat!</p>
+<p>Hamburger Mukbang!</p>
+<p>Wow, look at that size...! Of course, I'm talking about the burger, not the breast!</p>
+<p>Transparent raincoat!</p>

@@ -21,7 +21,7 @@ chapter = 1101
 <p>Linling plugged the Universal Connection Terminal into an old laptop, then opened the data. After tapping the keyboard a few times, she nodded her Head.</p>
 <p>"As expected, the moment I opened the data, a program to track the opponent was hidden inside. I'll remove this first."</p>
 <p>Linling, like a hacker in a movie, typed on the keyboard at an incredible speed, deleting the tracking program hidden within the data.</p>
-<p>"It's done~! The tracking program and some phrases in the data were combined, so it took a little time to delete them. You waited a long time, Yongtae-nim?"</p>
+<p>"It's done! The tracking program and some phrases in the data were combined, so it took a little time to delete them. You waited a long time, Yongtae-nim?"</p>
 <p>Actually, I thought it ended quickly even now. By Linling's standards, it seemed to have taken time.</p>
 <p>Thinking about it, for Linling, a high-level artificial intelligence, one of the few in the world, to take not just a few seconds but several minutes, it shows how incredible the security of the data in the Taira Laboratory was. Of course, if she had been directly connected to Linling, she would have removed the tracking program faster, but just now, she had to type commands directly on the keyboard, so that might have also taken more time.</p>
 <p>"So, what kind of data is it?"</p>
@@ -85,9 +85,9 @@ chapter = 1101
 <p>"Alright, tell me the position you desire."</p>
 <p>At words that were no different from permission to give him a high position, Taira Yuuichi smiled. And to demand what he had decided upon after talking with Taira Jiro, he opened his mouth.</p>
 <p>"The position I desire is...."</p>
-<p>Requested by TheDreaming-nim: 1. Asada Ei in a snowy alley 2. Naruse Shiyo at a snowy school swimming pool~!</p>
+<p>Requested by TheDreaming-nim: 1. Asada Ei in a snowy alley 2. Naruse Shiyo at a snowy school swimming pool!</p>
 <p>1.</p>
 <p>It wasn't specifically designated, but the pattern is quite pretty hehe.</p>
 <p>2.</p>
-<p>Just a B-cut~!</p>
+<p>Just a B-cut!</p>
 <p>The second illustration was one I made after mistakenly thinking Shiyo was Tsukiyo, then realized she wasn't hehe.</p>

@@ -28,7 +28,7 @@ chapter = 92
 <p>Ferro, feeling goosebumps, clamped his mouth shut as he had indeed tried to deny everything. Struggling for a short while, he finally sighed in defeat and slumped in his seat for a few seconds before finally getting up and leaving the room.</p>
 <p>A few minutes later, he came back with a recording orb filled with all his deals with the Gorfard family over the years.</p>
 <p>"Could I ask why you need them?"</p>
-<p>"Why…?" Taking the orb, Edgar gave his usual smile and said joyously, "Guess~!"</p>
+<p>"Why…?" Taking the orb, Edgar gave his usual smile and said joyously, "Guess!"</p>
 <p class="scene-break">· · ·</p>
 <p>The sun slowly rose on the horizon and the mist of the night slowly dissipated under its light.</p>
 <p>Standing in front the bowing Duke outside of the Sol's gave a polite smile before turning away, his group, having one more girl.</p>
@@ -78,7 +78,7 @@ chapter = 92
 <p>She just wanted to know and for that, she was ready for any sacrifice.</p>
 <p>This is how the carriage continued on the road.</p>
 <p class="scene-break">· · ·</p>
-<p>"Sol~"</p>
+<p>"Sol"</p>
 <p>The moment he stepped into the tower, he immediately caught a purple-haired girl jumping in his arms.</p>
 <p>"I missed you so much. You promised that we would spend some time together."</p>
 <p>"I am sorry Lilin. I was a little busy."</p>
@@ -90,7 +90,7 @@ chapter = 92
 <p>*Tch*</p>
 <p>"Hey, Set, why are you bothering me while I am talking to Sol?"</p>
 <p>Lilin, who was previously acting like a cute kitty in his arms raised her head and glared fiercely at Setsuna.</p>
-<p>"Haha~I am sorry. I didn't recognize you after 2 years. I mean, it's been a long time. You should be happy that his highness didn't forget you."</p>
+<p>"HahaI am sorry. I didn't recognize you after 2 years. I mean, it's been a long time. You should be happy that his highness didn't forget you."</p>
 <p>"Heh, 2 years is indeed a long time, but I guess that it wasn't enough for you to finish things with Sol."</p>
 <p>Lilin snickered, the innuendo in her words clear to everyone.</p>
 <p>Setsuna, refusing to lose, begins à long tirade, and Lilin, who was just as headstrong, also refused to give up.</p>

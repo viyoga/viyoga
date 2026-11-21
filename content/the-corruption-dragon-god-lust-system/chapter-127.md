@@ -13,7 +13,7 @@ chapter = 127
 
 <p>“Getting lazy, huh? Maybe I need to educate you a little.” Qingyi smiled, slipping out of her embrace and sitting down on the bed.</p>
 
-<p>“Ughn~~ I’ve had a busy week, okay?” she complained, massaging her burning ass.</p>
+<p>“Ughn I’ve had a busy week, okay?” she complained, massaging her burning ass.</p>
 
 <p>“Mine was full too.”</p>
 

@@ -67,11 +67,11 @@ chapter = 939
 <p>It seemed unbearable to be attacked at the same time on the representative erogenous zones of a woman, the pussy and breasts, but since her position was already pressed down by me from behind and she couldn't move, all Urabe Konoka could do was make loud moaning sounds.</p>
 <p>After being tormented by me for nearly thirty minutes and reaching Climax dozens of times, Urabe Konoka was finally able to be released after receiving my semen once again.</p>
 <p>It was quite a sight to see semen flowing from her pussy between Urabe Konoka's Legs after pulling out my cock. I got up from my seat with a satisfied Expression, put on my underwear and Shirt roughly, and left the Room to drink water.</p>
-<p>Alik surprised in the mountain training ground, Alik reaching out his Hand towards the Camera in the mountain training ground, requested by TheDreaming-nim~!</p>
+<p>Alik surprised in the mountain training ground, Alik reaching out his Hand towards the Camera in the mountain training ground, requested by TheDreaming-nim!</p>
 <p>1.</p>
 <p>2.</p>
-<p>Young Linling dancing while singing in the Coin Karaoke and Taira Kanna dancing in sexy lingerie, requested by MidNightSKY-nim~!</p>
-<p>Linling first~!</p>
-<p>I definitely put in the dancing prom, but since she's holding the Microphone, she's not dancing hehe. Reaching out her Hand like the first Illustration was the limit~.</p>
-<p>Kanna~!</p>
-<p>Kkiyot~!</p>
+<p>Young Linling dancing while singing in the Coin Karaoke and Taira Kanna dancing in sexy lingerie, requested by MidNightSKY-nim!</p>
+<p>Linling first!</p>
+<p>I definitely put in the dancing prom, but since she's holding the Microphone, she's not dancing hehe. Reaching out her Hand like the first Illustration was the limit.</p>
+<p>Kanna!</p>
+<p>Kkiyot!</p>

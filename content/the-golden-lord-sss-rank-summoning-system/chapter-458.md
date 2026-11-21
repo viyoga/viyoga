@@ -61,13 +61,13 @@ chapter = 458
 <p>The entire buttock flattened under the blow, the flesh spreading out beneath his palm before snapping back into shape with a heavy jolt.</p>
 <p>Short ripples ran across it and into the other cheek, making it quiver as well, the two globes knocking softly against each other before settling.</p>
 <p>When his hand withdrew, a pink handprint remained, glowing against the white of her skin like a flower in the snow.</p>
-<p>“Nghnn~~” Carmilla moaned loudly, her back arching from the impact, and her fangs slipped free of Ethan’s neck for a moment.</p>
+<p>“Nghnn” Carmilla moaned loudly, her back arching from the impact, and her fangs slipped free of Ethan’s neck for a moment.</p>
 <p>His powerful regenerative ability closed the two small holes in a single second, leaving behind only a trickle of blood that slowly ran down to his collarbone.</p>
 <p>“I know who you are, and I know I can’t resist you,” Ethan said, his voice low and hoarse.</p>
 <p>As he spoke, his hands went on eagerly massaging her ass. He kneaded the two squishy cheeks in slow circles, spreading them apart and letting them fall back together with a soft slap of flesh, feeling that milky, silky skin glide beneath his palms.</p>
 <p>“But don’t you think it would be more appropriate for you to introduce yourself first?” he asked, giving the marked cheek a firmer squeeze, his fingers sinking deep into the pink handprint.</p>
 <p>Carmilla gasped, her whole body trembling, her heavy breasts shivering against his chest. A long, delicate tongue slid across her lips, wiping away the blood that still stained them, without wasting a single drop.</p>
-<p>“Do forgive me, dear husband… it is only that, nghnn~~”</p>
+<p>“Do forgive me, dear husband… it is only that, nghnn”</p>
 <p>She moved her hips, grinding against his lap in slow, heavy circles. The full weight of that ass rolled over his thighs, the cool flesh spreading and shifting with every passr.</p>
 <p>“You smell divine… and your blood carries such potent divinity… it is simply exquisite.”</p>
 <p>She leaned down, her enormous breasts squashing flat against his abdomen and spilling out to the sides, and ran her tongue over Ethan’s powerful chest in a long, lingering lick—cold and wet—tracing the outline of every sculpted muscle.</p>

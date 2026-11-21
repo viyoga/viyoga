@@ -34,7 +34,7 @@ chapter = 1996
 <p>The morsel remained out of reach.</p>
 <p>"Vex!"</p>
 <p>The sharp little sound brought the white-haired woman back with a startled laugh. She glanced at the waiting bite, then at Blossom’s indignant blue eyes.</p>
-<p>"Oh! I’m sorry. I completely forgot about your existence. Here~"</p>
+<p>"Oh! I’m sorry. I completely forgot about your existence. Here"</p>
 <p>"Cruel Vex..." Blossom whined but took it before Vex could become distracted again. Quinlan kissed the Hexwitch’s cheek while she fed her, and Vex laughed against him, warm with the pleasure of being wanted and having somewhere to spend all the affection crowding her chest.</p>
 <p>Once the dogkin had swallowed, she took hold of his sleeve.</p>
 <p>"Blossom would also like one."</p>
@@ -47,7 +47,7 @@ chapter = 1996
 <p>"I’m flattered," Quinlan chuckled, wiping a little saliva from her chin with his thumb, and she promptly closed her lips around the tip before he could move it away.</p>
 <p>Vex leaned across his other shoulder and kissed him again, refusing to let Blossom have the last of him. Her tongue found his, and the two women took turns drawing him back into wet, open-mouthed kisses until he was laughing against their lips. Vex’s plate wobbled on her knee.</p>
 <p>At the workbench, Sera watched with an unabashed smile.</p>
-<p>"That looks lovely~"</p>
+<p>"That looks lovely"</p>
 <p>"You’re supposed to be watching the patient," Aurora reminded her, though the grin tugging at her own mouth spoiled the rebuke.</p>
 <p>"I have two eyes."</p>
 <p>"And they’re both over there." Aurora shook her head at Quinlan. "Get a room, you three. I hear sloppy slobbering instead of my own thoughts."</p>

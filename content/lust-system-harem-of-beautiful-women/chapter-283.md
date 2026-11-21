@@ -21,7 +21,7 @@ chapter = 283
 
 <p>&quot;I’m with Brother Luis because I like him. You’ve seen how good he is to me. Most importantly, he’s so handsome too. All my classmates envy me for finding such a good boyfriend.&quot;</p>
 
-<p>&quot;And he’s really strong too. Every time he makes me feel so good... Ooh, why am I saying these things~&quot;</p>
+<p>&quot;And he’s really strong too. Every time he makes me feel so good... Ooh, why am I saying these things&quot;</p>
 
 <p>Luis was completely dumbfounded hearing this. Ariana was unbelievably formidable, capable of making up any kind of talk on the spot.</p>
 

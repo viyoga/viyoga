@@ -33,7 +33,7 @@ The three left the room and Lucy was alone in the big lounge room with a firepla
 
 Lucy picked up the video call that Lith was doing to her and just as she did so, she heard,
 
-"Ahh~ Yes! Yes! Harder, Vaan! Faster, Eian!"
+"Ahh Yes! Yes! Harder, Vaan! Faster, Eian!"
 
 "What's going on…"
 

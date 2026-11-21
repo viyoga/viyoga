@@ -10,7 +10,7 @@ chapter = 1178
 <p>The lines of the Codex glowed brighter. The blob began to clear, shedding its darkness layer by layer. Where once the unstable echoes had twisted and writhed, souls as he knew them began to take shape.</p>
 <p>Quinlan soon opened his eyes. The last of the corrupted haze broke apart, leaving behind a cluster of purified soul motes that hovered quietly over his palm before returning to the Soul Reaper where they were stored until he wished to use them.</p>
 <p>Below, the battlefield was silent for half a second, then the remaining echoes of steel and screams caught up to his awareness. His second wave had already been wiped out.</p>
-<p>"How scary~" he mused playfully.</p>
+<p>"How scary" he mused playfully.</p>
 <p>A single word, and the air stirred. Twelve elite souls materialized before him, taking formation as the disciplined captains that they were, awaiting orders.</p>
 <p>Then came the next wave. Five hundred lesser souls rose once more, flooding toward the Fujimori ranks.</p>
 <p>He didn’t even bother watching them all form; his focus had already moved on.</p>

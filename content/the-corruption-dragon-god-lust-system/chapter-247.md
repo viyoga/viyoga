@@ -67,7 +67,7 @@ chapter = 247
 
 <p>She moved her right hand, thin, delicate fingers grabbing Qingyi’s left hand, pulling it to one of her huge breasts and making him squeeze it.</p>
 
-<p>“mmmghn~~” She moaned, pulling his other hand as well, feeling both his hands struggle to encapsulate the creamy skin of her huge twin mountains.</p>
+<p>“mmmghn” She moaned, pulling his other hand as well, feeling both his hands struggle to encapsulate the creamy skin of her huge twin mountains.</p>
 
 <p>“Can you make me forget all this?” she asked, her voice tearful and her mind taken by fragility.</p>
 
@@ -89,7 +89,7 @@ chapter = 247
 
 <p>He did, in fact, give her something else to focus on, the worries disappearing from her face, replaced by an obscene expression.</p>
 
-<p>“oghnn~~ aghnnn~~ Oh heavens! Oh heavens!” She moaned lustfully, her eyes soon finding themselves rolled back and her tongue out of her lips, drenching them in saliva.</p>
+<p>“oghnn aghnnn Oh heavens! Oh heavens!” She moaned lustfully, her eyes soon finding themselves rolled back and her tongue out of her lips, drenching them in saliva.</p>
 
 <p>The first orgasm soon hit her, followed by the second, third and fourth.</p>
 
@@ -99,7 +99,7 @@ chapter = 247
 
 <p>“Better now?” Qingyi asked.</p>
 
-<p>“Nghnn~~ yes…” Biyue nodded silently, snuggling into Qingyi’s arms.</p>
+<p>“Nghnn yes…” Biyue nodded silently, snuggling into Qingyi’s arms.</p>
 
 <p>“How long should your responsibilities to the orthodox alliance last?” Qingyi asked.</p>
 

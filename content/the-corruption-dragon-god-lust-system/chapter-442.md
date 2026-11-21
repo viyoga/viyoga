@@ -13,7 +13,7 @@ chapter = 442
 
 <p>Celestia shuddered, swallowed hard, and curiously squeezed her foot around Qingyi’s cock.</p>
 
-<p>“Ah!~~” A soft, sweet squeal escaped her pink lips as Qingyi’s cock responded, throbbing hard.</p>
+<p>“Ah!” A soft, sweet squeal escaped her pink lips as Qingyi’s cock responded, throbbing hard.</p>
 
 <p>The handsome young man just laughed at the sight.</p>
 
@@ -51,7 +51,7 @@ chapter = 442
 
 <p>He squeezed them firmly, depositing a soft kiss on one of her nipples before parting his lips, taking it into his mouth.</p>
 
-<p>“Nghnnn~~ Q-Qingyi… chosen hero… g-gentler… I promise to be a good girl for you and the goddess…”</p>
+<p>“Nghnnn Q-Qingyi… chosen hero… g-gentler… I promise to be a good girl for you and the goddess…”</p>
 
 <p>Hearing those words, Qingyi paused for a brief moment, his lips still sunk into Celestia’s tits as he raised his eyes.</p>
 
@@ -61,7 +61,7 @@ chapter = 442
 
 <p>Qingyi barely knew this woman, but he already loved every bit of her. He sucked a little harder, wrapping his tongue around one of her pink nipples and feeling a soft gush of milk invade his lips.</p>
 
-<p>“Mghnn~~ chosen hero… I-is that… milk?” Celestia moaned, clinging to Qingyi’s head for support.</p>
+<p>“Mghnn chosen hero… I-is that… milk?” Celestia moaned, clinging to Qingyi’s head for support.</p>
 
 <p>Her hips instinctively rose, Qingyi’s cock sliding between the plump, perfect cheeks of her ass, using her own sweat as lubricant.</p>
 
@@ -73,7 +73,7 @@ chapter = 442
 
 <p>Before Celestia could even say anything, Qingyi had already sealed her lips.</p>
 
-<p>“Ghghnn~~”</p>
+<p>“Ghghnn”</p>
 
 <p>A moan echoed, muffled and confused, Celestia’s lips parting and Qingyi’s tongue entering the inside of her mouth, tasting her delicious flavor.</p>
 

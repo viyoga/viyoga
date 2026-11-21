@@ -43,7 +43,7 @@ This man was sliding his cock in and out of her ass and knew full well where her
 
 She had gotten far too bullied today and enough was enough! She was going to take her stand now and tell her Master that—
 
-"Aahmm~"
+"Aahmm"
 
 Lith bit Fei's earlobe and hit her deep inside, making her let out a satisfied moan unknowingly.
 

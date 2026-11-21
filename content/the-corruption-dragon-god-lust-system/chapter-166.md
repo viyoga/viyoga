@@ -141,7 +141,7 @@ chapter = 166
 
 <p>Seeing her traits, Qingyi froze.</p>
 
-<p>“Uh? Aren’t you going to say anything? Too stunned by my beauty? Fufufu~~” Ruyan leaned forward, a teasing, sweet laugh escaping her plump red lips.</p>
+<p>“Uh? Aren’t you going to say anything? Too stunned by my beauty? Fufufu” Ruyan leaned forward, a teasing, sweet laugh escaping her plump red lips.</p>
 
 <p>“Maybe I can give you a hand.” She raised a single finger, pointing it towards the fallen Qingxue.</p>
 

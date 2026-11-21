@@ -7,7 +7,7 @@ chapter = 1282
 
 <p>He didn't yank forcefully, but he pulled just enough to tilt her head back. Enough that she had to meet his eyes.</p>
 <p>Her breath hitched.</p>
-<p>Quinlan leaned in, watching every twitch of her face as he held her there. "I was out of commission for too long," he murmured. "It shows. You haven't been disciplined in a long time, isn't that right~?"</p>
+<p>Quinlan leaned in, watching every twitch of her face as he held her there. "I was out of commission for too long," he murmured. "It shows. You haven't been disciplined in a long time, isn't that right?"</p>
 <p>Ayame swallowed, eyes locked on his. Her earlier smugness was nowhere to be found.</p>
 <p>A dozen seconds later, it was the oriental beauty who tore her gaze away first, trying to shake off the moment. Her cheeks held a faint heat she clearly did not want him to notice.</p>
 <p>She failed. Quinlan, of course, noticed.</p>
@@ -15,7 +15,7 @@ chapter = 1282
 <p>Her eyes lifted to meet his, and in them she found the same unyielding dominance she remembered from before his long rest. A force of will that never bent, never softened unless he chose to. A man incapable of submission in any form. The sight alone tugged something awake inside her, something that had sat quiet for months.</p>
 <p>Quinlan's grin turned cocky. "A young noble girl raised to become a duchess one day. A life built on privilege and expectation." He tilted her a little more, studying her as if she were a story he enjoyed reading. "But then she was betrayed, met the villain, and became his slave, which helped her see what she really was."</p>
 <p>Ayame's face went scarlet. She scoffed and looked away despite his hold. "Alexios was right. You're one hell of a fantasy writer, Quin. Your imagination knows no bounds."</p>
-<p>His smirk deepened even further. "Was it the contrast, I wonder? Going from a pampered princess to the slave of a criminal." His tone dropped to a smooth, probing hum. "Did that little shift in scenery let you discover your true self, I wonder~?"</p>
+<p>His smirk deepened even further. "Was it the contrast, I wonder? Going from a pampered princess to the slave of a criminal." His tone dropped to a smooth, probing hum. "Did that little shift in scenery let you discover your true self, I wonder?"</p>
 <p>Another shiver ran through her, much stronger than before. He had hit far too close to the truth.</p>
 <p>But Ayame, proud to her core, would never admit as much.</p>
 <p>She swatted his hand away from her hair, and her lips formed the most adorable pout Quinlan had seen from her in a long time. 11:11</p>

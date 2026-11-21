@@ -27,7 +27,7 @@ chapter = 45
 <p>She closed her eyes and waited for him to start.</p>
 <p>’He did offer it with that much confidence. So he should at least be decent, right?’ She thought as she felt his hands settle on her shoulders.</p>
 <p>And she got the answer the very next moment from her own mouth.</p>
-<p>"Nngh~"</p>
+<p>"Nngh"</p>
 <p>Her eyes shot open and her hand flew to her mouth.</p>
 <p>’Did I just... did that sound really come out of me?’</p>
 <p>’WHY... WHY IS HE SO GOOD AT THIS?!’ Her ears were burning so hot she could feel the heat spreading down her neck while Dante kept massaging like he hadn’t heard a thing.</p>

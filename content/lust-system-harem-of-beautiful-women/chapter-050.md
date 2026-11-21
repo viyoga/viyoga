@@ -5,7 +5,7 @@ weight = 50
 chapter = 50
 +++
 
-<p>&quot;Husband... stop touching, if you keep touching I can’t take it anymore~&quot;</p>
+<p>&quot;Husband... stop touching, if you keep touching I can’t take it anymore&quot;</p>
 
 <p>Lily lowered her voice, speaking as if sobbing, but her body was soft and offered no resistance.</p>
 
@@ -29,7 +29,7 @@ chapter = 50
 
 <p>The conservative wife was now stirred by Luis into spring passion. If it were before, she definitely wouldn’t have had the courage, but now, under her husband’s training, she also began to enjoy this unique stimulation.</p>
 
-<p>&quot;Let me help you lick it first~&quot;</p>
+<p>&quot;Let me help you lick it first&quot;</p>
 
 <p>Just as Lily was about to duck under the covers, Luis was already hard enough. He wrapped his arms around her waist, breathing heavily, &quot;Wife, put it in, I want to fuck you properly now.&quot;</p>
 
@@ -49,11 +49,11 @@ chapter = 50
 
 <p>Just that one centimeter distance, yet such an obvious change, both husband and wife felt it simultaneously.</p>
 
-<p>&quot;Wife, maybe it’s a second growth~&quot;</p>
+<p>&quot;Wife, maybe it’s a second growth&quot;</p>
 
 <p>Luis vaguely said, using both hands to grab her now full and enchanting peach butt, kneading it, licking her ear, and panting, &quot;Isn’t this more comfortable.&quot;</p>
 
-<p>&quot;Tingly... whole body weak, husband, so hard~&quot;</p>
+<p>&quot;Tingly... whole body weak, husband, so hard&quot;</p>
 
 <p>Lily began to uncontrollably rock slightly on her husband’s body, consciously biting her own bra in her mouth. Only this way could she control herself from moaning.</p>
 

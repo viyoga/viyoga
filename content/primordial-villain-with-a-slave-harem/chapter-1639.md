@@ -88,7 +88,7 @@ chapter = 1639
 <p>The grandmaster slowly lowered his face the rest of the way to the floor.</p>
 <p>He stayed there for a few seconds.</p>
 <p>It seemed... safe.</p>
-<p>&lt;No slacking~&gt; a honeyed elven purr sounded next, and the six of them all jolted upwards.</p>
+<p>&lt;No slacking&gt; a honeyed elven purr sounded next, and the six of them all jolted upwards.</p>
 <p>...</p>
 <p>Why had Quinlan walked away so abruptly?</p>
 <p>Simple. His new class was showing him something, and he had every intention of getting to the bottom of it immediately.</p>

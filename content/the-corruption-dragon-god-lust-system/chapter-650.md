@@ -51,7 +51,7 @@ chapter = 650
 
 <p>If Qingyi were to be injured there, he would be in serious trouble.</p>
 
-<p>The elder tried to stop his own disciple, but it was already too late. [Oh… poor thing, fufufu~~]</p>
+<p>The elder tried to stop his own disciple, but it was already too late. [Oh… poor thing, fufufu]</p>
 
 <p>Ruxue’s sweet and sensual giggle echoed in Qingyi’s mind, and he smiled in response.</p>
 

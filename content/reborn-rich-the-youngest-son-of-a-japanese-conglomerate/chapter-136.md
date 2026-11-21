@@ -18,7 +18,7 @@ chapter = 136
 <p>,I'll just pay for two extra people's accommodation."</p>
 <p>,Huh? Ah, no. I can't do that..."</p>
 <p>,Then, we will add a special dish for three people, customer."</p>
-<p>Hamahata Konoka-ssi's attempt to refuse the additional accommodation fee for two people was thwarted when the owner grandma appeared and added a special dish as a condition. I smiled slyly and took out money from my wallet. The owner grandma bowed at a right angle and said, Thank you, customer~! She was a grandma who was good at business.</p>
+<p>Hamahata Konoka-ssi's attempt to refuse the additional accommodation fee for two people was thwarted when the owner grandma appeared and added a special dish as a condition. I smiled slyly and took out money from my wallet. The owner grandma bowed at a right angle and said, Thank you, customer! She was a grandma who was good at business.</p>
 <p>,Of course, I have to pay for additional services. Can you show me how to use the private open-air bath?"</p>
 <p>,Ah! Please follow me, customer!"</p>
 <p>,Konoka, teach the customer well. And if they want, rub their back too."</p>
@@ -31,7 +31,7 @@ chapter = 136
 <p>,"Ah, ah... Then, I'll see you later."</p>
 <p>Even though I was wearing a raincoat, the rain kept seeping in, and the heat and humidity from my body were trapped inside the raincoat, making it sticky. I wanted to wash quickly. Hamahata Konoka-ssi greeted me and left the room, and I took off my clothes while the hot spring water was filling the open-air bath. My underwear was fine, but the short sleeves and the bottom of my pants were completely wet. It couldn't be helped since it was raining quite a bit.</p>
 <p>I hung up my clothes and went into the hot spring. The hot spring water had filled up to some extent while I was taking off and hanging up my clothes.</p>
-<p>,Euheo~!"</p>
+<p>,Euheo!"</p>
 <p>The temperature was just right, nice and warm. It smelled slightly of sulfur, so it seemed to be a hot spring containing sulfur. I can't remember what sulfur hot springs are good for.</p>
 <p>While it was raining, the rain was wetting me above my chest, and the warm hot spring water was preventing my body from getting cold below. As I was enjoying the hot spring bath while listening to the sound of rain and looking at the sea, the sliding door to my room opened and someone came in.</p>
 <p>,Excuse me."</p>
@@ -62,7 +62,7 @@ chapter = 136
 <p>,"Ah, that's... there's another custom on this island. Children whose parents have died are supposed to take the surname of their guardian. My parents passed away when I was young, so I've been using my grandma's surname since I was little."</p>
 <p>Ah, I shouldn't have asked. The atmosphere suddenly became chilly. A quick apology was the solution in this case. I politely apologized to Hamahata Konoka-ssi.</p>
 <p>,"I'm sorry for asking unnecessary questions."</p>
-<p>,"No~! They passed away when I was so young that I don't even remember them well."</p>
+<p>,"No! They passed away when I was so young that I don't even remember them well."</p>
 <p>Then that's a relief. I didn't say anything more and finished the remaining rice. Hamahata Konoka-ssi kindly smiled and placed a cup of tea in front of me.</p>
 <p>,"Thank you. By the way, I'm planning to take a walk after dinner, so can I borrow an umbrella?"</p>
 <p>,"Ah, if you're having tea, I'll bring it to you right away!"</p>

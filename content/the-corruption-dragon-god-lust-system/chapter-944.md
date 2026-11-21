@@ -69,7 +69,7 @@ chapter = 944
 
 <p>What was the point of having a thousand wives if he couldn’t give love to all of them?</p>
 
-<p>"This one here is my latest and most perfect creation. I’ve spent the last fifty thousand years working solely on it. It’s one of the main reasons I’ve been so isolated lately, fufufu~" Ziyue said, pointing to one of the ships.</p>
+<p>"This one here is my latest and most perfect creation. I’ve spent the last fifty thousand years working solely on it. It’s one of the main reasons I’ve been so isolated lately, fufufu" Ziyue said, pointing to one of the ships.</p>
 
 <p>It was relatively large—perhaps two or three times the size of an american football field—from the sword-like tip at the front to the powerful engines at the rear.</p>
 
@@ -95,6 +95,6 @@ chapter = 944
 
 <p>The sofa was large enough for dozens of people, and right in the center stood a 3D display synchronized with the entire galaxy, tiny stars spinning slowly around it.</p>
 
-<p>"Come on, young one, I’ll take you to the control room and show you the weapons, fufufu~" Ziyue said, as if she already knew exactly what Qingyi wanted to see most.</p>
+<p>"Come on, young one, I’ll take you to the control room and show you the weapons, fufufu" Ziyue said, as if she already knew exactly what Qingyi wanted to see most.</p>
 
 <p>Behind them, the wives began to spread out across the room, and Lingxi stretched her little arms toward the twinkling stars spinning in the center, grumbling as her father carried her away from them.</p>

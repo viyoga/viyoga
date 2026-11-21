@@ -51,11 +51,11 @@ Luna nodded her head. She understood what Lilith meant by this.
 
 Luna licked Lilith's clit and her pink slits that were parted due to Lith ramming his dick inside her. She then sucked on her clit and stimulated Lilith greatly.
 
-"Mhm~" Lilith moaned in satisfaction. She would never get tired of having herself get pounded by Lith's dick.
+"Mhm" Lilith moaned in satisfaction. She would never get tired of having herself get pounded by Lith's dick.
 
 A while later.
 
-"Ahh… Ahh… Yes baby… pound mama harder!~... Ah…" Lilith moaned as Lith's shaft penetrated her womb constantly and hit her deepest recesses.
+"Ahh… Ahh… Yes baby… pound mama harder!... Ah…" Lilith moaned as Lith's shaft penetrated her womb constantly and hit her deepest recesses.
 
 Luna was also responsible for this. She knew very well where her madam liked to be stimulated the most, and at the stage Lilith was in currently, she knew that the best thing to do was bite Lilith's clit.
 
@@ -77,7 +77,7 @@ Luna too increased the suction force with which she was sucking Lilith's clit an
 
 Spurrrt!
 
-"Ohhhh~"
+"Ohhhh"
 
 "Ahh…"
 

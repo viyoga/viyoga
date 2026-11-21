@@ -5,7 +5,7 @@ weight = 66
 chapter = 66
 +++
 
-<p>&quot;You’re a liar, Mom~. Didn’t you teach me that lying is bad?&quot;</p>
+<p>&quot;You’re a liar, Mom. Didn’t you teach me that lying is bad?&quot;</p>
 
 <p>&quot;No, I’m not lying... I’m telling the truth here!&quot;</p>
 
@@ -19,7 +19,7 @@ chapter = 66
 
 <p>&quot;I—I said it before; I’m not lying!&quot; At the very least... She could control her mouth from slipping.</p>
 
-<p>&quot;Then how could you lie that you don’t love getting your tits fondled, especially your sinful, erect nipples, Mom~?&quot; He could feel a distinct wetness spreading under her blouse.</p>
+<p>&quot;Then how could you lie that you don’t love getting your tits fondled, especially your sinful, erect nipples, Mom?&quot; He could feel a distinct wetness spreading under her blouse.</p>
 
 <p>&quot;I-it’s normal for an older woman to have that every morning!... ahhn... ahhn...&quot; Arielle lied, of course; she had been turned on from the very beginning.</p>
 
@@ -27,7 +27,7 @@ chapter = 66
 
 <p>&quot;Y-yes! I’m like this every morning, so it’s normal today, too... ahn.&quot;</p>
 
-<p>&quot;What I meant is that you are perverted every morning, Mom~.&quot; Owen wanted to laugh so hard because she was so clearly lying. It was plain for everyone to see.</p>
+<p>&quot;What I meant is that you are perverted every morning, Mom.&quot; Owen wanted to laugh so hard because she was so clearly lying. It was plain for everyone to see.</p>
 
 <p>&quot;Ahhn! You silly boy, of course not! Ahnn... ahnn...&quot; Arielle had fallen for her son’s wicked teasing once again.</p>
 
@@ -47,11 +47,11 @@ chapter = 66
 
 <p>Her panties were getting soaked. The blowjob had already made her wet... She had controlled herself then, but getting her back rubbed with his cock while her nipples were being pinched was simply too much.</p>
 
-<p>&quot;But your body is saying otherwise, Mom. Don’t try to evade my question, Mom~.&quot; Owen slowly pulled down his pants.</p>
+<p>&quot;But your body is saying otherwise, Mom. Don’t try to evade my question, Mom.&quot; Owen slowly pulled down his pants.</p>
 
 <p>&quot;Aghnnn... b-but...&quot;</p>
 
-<p>&quot;I already have everything memorized, Mom... saying that you don’t like it when you wanted it to begin with. How frivolous of you to act like that~.&quot; Owen raised his other hand and—</p>
+<p>&quot;I already have everything memorized, Mom... saying that you don’t like it when you wanted it to begin with. How frivolous of you to act like that.&quot; Owen raised his other hand and—</p>
 
 <p>Spank!</p>
 
@@ -67,7 +67,7 @@ chapter = 66
 
 <p>&quot;Ahnnn... ahhnnnn... I-I’m not... It’s my body that won’t listen to me...&quot; Her hands scraped against the table; only one more crucial hit and she would squirt! That would be terrible if she had to go to the meeting while soaked wet with her own love juices. Those MILFs were like hungry predators... They could smell something good even if it was miles away!</p>
 
-<p>&quot;Then how about we finally cross that bridge, Mom~?&quot; Owen whispered into her ear as he prepared to try his luck... No, he would finally tame the liar, the shameless MILF... and not just any simple MILF, but his mother!</p>
+<p>&quot;Then how about we finally cross that bridge, Mom?&quot; Owen whispered into her ear as he prepared to try his luck... No, he would finally tame the liar, the shameless MILF... and not just any simple MILF, but his mother!</p>
 
 <p>&quot;Ahhn... I-it’s bad. Doing bad stuff in the morning is...&quot; How could she think of something so wicked?</p>
 
@@ -83,7 +83,7 @@ chapter = 66
 
 <p>&quot;...&quot; Arielle remained silent. What he said was so ridiculous that her brain couldn’t process any words.</p>
 
-<p>&quot;Then... I’ll take that as a yes, Mom~?&quot; Owen guided her body to bend forward... an action her body gladly followed without fighting back.</p>
+<p>&quot;Then... I’ll take that as a yes, Mom?&quot; Owen guided her body to bend forward... an action her body gladly followed without fighting back.</p>
 
 <p>’Ohh!! I never thought that I could finally harvest my mom’s fruit! ’Owen roared in his mind as the pole was finally about to reach the hole!</p>
 
@@ -93,10 +93,10 @@ chapter = 66
 
 <p>&quot;J-just... do it gently, okay? And we do it quickly, okay?&quot; Arielle had finally had enough; her pussy was already screaming in protest at her blatant desperation.</p>
 
-<p>&quot;Just forget about the festival, M-mom. We will fuck like beasts until you are finally satisfied~.&quot; Owen slid her panties to the side, revealing her pink pussy that was already dripping wet and her asshole... perfectly clean, just like what he had seen last night.</p>
+<p>&quot;Just forget about the festival, M-mom. We will fuck like beasts until you are finally satisfied.&quot; Owen slid her panties to the side, revealing her pink pussy that was already dripping wet and her asshole... perfectly clean, just like what he had seen last night.</p>
 
 <p>Though it was much clearer now as the bright morning sunlight entered the house.</p>
 
 <p>&quot;N-no... I will get my a-ass roasted...&quot; she said, unable to forget the terror of the grandmother. That was why Grandma used to call her a crybaby, because she always cried every single time... Well, Grandma had been a strict woman back then.</p>
 
-<p>&quot;Hmm... well, it depends on your performance, Mom~.&quot; Owen rubbed his bare cock between her ass cheeks, forcing her head to bow down.</p>
+<p>&quot;Hmm... well, it depends on your performance, Mom.&quot; Owen rubbed his bare cock between her ass cheeks, forcing her head to bow down.</p>

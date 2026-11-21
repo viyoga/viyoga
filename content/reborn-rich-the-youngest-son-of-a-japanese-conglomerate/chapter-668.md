@@ -110,7 +110,7 @@ chapter = 668
 <p>"Instead?"</p>
 <p>"Next time, let's just do it on the bed in the room. My whole body aches from doing it on the bare floor."</p>
 <p>Seizawa Shii laughed, "Ahaha," as I tapped her shoulder and said that.</p>
-<p>"Ahaha~☆ Ryuta-cchi, are you weak?"</p>
+<p>"Ahaha☆ Ryuta-cchi, are you weak?"</p>
 <p>"It's not that I'm weak, it's that you're too strong."</p>
 <p>After finishing the conversation, we started cleaning up the laundromat for a while. We gathered the chair fragments in one place and started checking the broken washing machines one by one.</p>
 <p>"I can't use the towels. I have to throw them away."</p>

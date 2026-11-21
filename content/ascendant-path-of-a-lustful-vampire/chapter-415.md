@@ -24,7 +24,7 @@ chapter = 415
 <p>But they could recognize his shifted form. Or at least the vow that bound them to him could recognize his shifted form and it alerted them. That alert had only gotten stronger at the use of his Noble Authority which was the very power he had used to 'force' the vow in the first place.</p>
 <p>Alexia frowned at the mention of a Lord but because her mind didn't quite comprehend the idea that Vampires were addressing Caius with such fervent respect, she cast her senses wide which allowed Caius to shake his head at his Vampires, shutting down any more reverent call-outs to him.</p>
 <p>That said, with them here, he felt a bit better. It meant his Coven wasn't ignoring the situation. They just weren't telling him about it and while that annoyed him, it was in a different way that could be dealt with later.</p>
-<p>~'Draw your enemies over here.'~ he ordered his vampires in his head.</p>
+<p>'Draw your enemies over here.' he ordered his vampires in his head.</p>
 <p>The authority he had over the Coven was meant to mimic that of a Vampire creator with their spawn except it was even more binding because it was due to Nyx's divine ordinance.</p>
 <p>That said, Caius hadn't trained with the mental communications at all so he didn't know how to do it across great distances. The most he could do was read moods and such and he found that to be overwhelming enough because of how many Vampires there were he had contact with.</p>
 <p>However, with only these few and with them so close, he was sure he could do it. And he had to because ordering them vocally would only rouse Alexia's suspicion and outright expose him.</p>
@@ -32,7 +32,7 @@ chapter = 415
 <p>Drive, duty, and some worry that was melting away to make room for confidence.</p>
 <p>The confidence was because of Caius. With him here, the Leopold Vampires believed they really had a chance to win this. Already he had gotten rid of one and his partner had gotten rid of the other. If they kept this pace going, they just might win.</p>
 <p>'I'm really going to have to practice,' Caius thought in his head as he found himself getting swayed by thoughts and emotions that weren't his own and really had to focus to give the order.</p>
-<p>~'Draw your enemies here. You need to be close to me if you plan to survive any of this.'~ he said.</p>
+<p>'Draw your enemies here. You need to be close to me if you plan to survive any of this.' he said.</p>
 <p>The Leopold Vampires obeyed. Whether Caius used was shifted or not, whether he used his Noble Authority or not, he was to be obeyed. And since he seemed like a glimmer of hope in their slim chances anyway, they were all too ready to comply.</p>
 <p>There were three of them. With that count, it was clear they had been very outnumbered by the opposing Coven who were a group of eight. And that was excluding the one Alexia had crashed into with her carriage when she first drove over here.</p>
 <p>In other words, before Caius and Alexia's arrival, it had been one Leopold Vampire against at least two enemy Vampires. Caius had a feeling the City Guards, three of whom were too injured and weak to run much less fight, hadn't been much help.</p>
@@ -44,7 +44,7 @@ chapter = 415
 <p>These Three.</p>
 <p>A small group can move quickly and remain hidden which is important as the fact that the Leopolds had a festering coven in the Capital was meant to remain a secret.</p>
 <p>Upon receiving Caius's order, the Three struck at their enemies and moved. Because it looked like they were running, their opponents followed.</p>
-<p>~'Good. Now grab me and keep running.'~ Caius ordered.</p>
+<p>'Good. Now grab me and keep running.' Caius ordered.</p>
 <p>The fact that it looked like the three were trying to run away didn't just dupe their opponents, it duped Alexia as well. By the time one of them snatched Caius up and made a super run for it, she could only yell out,</p>
 <p>"Caius!"</p>
 <p>"I'll be alright!" Caius yelled back, "Trust me!"</p>

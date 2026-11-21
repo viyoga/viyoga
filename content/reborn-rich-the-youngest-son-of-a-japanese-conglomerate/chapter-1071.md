@@ -82,10 +82,10 @@ chapter = 1071
 <p>Athena Mannerheim, who had received Information that Anya Branch Kwon Masters would be mobilized for the mansion's Attack, asked her colleagues not to kill the Anya Branch Kwon Masters.</p>
 <p>Compared to the people at Anya Headquarters who had committed various evil deeds, there were more people at the branches who were closer to Laypersons training at martial arts halls affiliated with Anya in the Surroundings.</p>
 <p>She couldn't stand by and watch such people be Brainwashed and used as Weapons, so she asked her colleagues, even though she knew it was a stretch, and it was Fortunate that The Situation had resolved well.</p>
-<p>Today's B-cut~!</p>
-<p>Disqualified because she's holding two swords~!</p>
+<p>Today's B-cut!</p>
+<p>Disqualified because she's holding two swords!</p>
 <p>Disqualified because there's a space suit baby next to her (Linling?) haha</p>
-<p>Disqualified because it feels too SD~!</p>
-<p>Shinoe Misano, who received Ryuta's Contact requested by Gojoy-nim, Chieri, who wakes Ryuta in a cherry blossom park~!</p>
-<p>Shinoe Misano~!</p>
-<p>Chieri~!</p>
+<p>Disqualified because it feels too SD!</p>
+<p>Shinoe Misano, who received Ryuta's Contact requested by Gojoy-nim, Chieri, who wakes Ryuta in a cherry blossom park!</p>
+<p>Shinoe Misano!</p>
+<p>Chieri!</p>

@@ -62,15 +62,15 @@ chapter = 341
 <p>Yamashiro Ryuta: Then, would you like to come to our club's dinner party? It's at the Golden Dragon Hotel, or whatever hotel buffet.</p>
 <p>Kijimoto Jurie: I heard that's an expensive place, is it okay for me to go?</p>
 <p>Yamashiro Ryuta: Of course. You're our neighbor and always help our class's students. We can go together when we go down from the clubroom. I think we'll be going down in about 5 minutes.</p>
-<p>Kijimoto Jurie: Okay, I'll get ready~</p>
+<p>Kijimoto Jurie: Okay, I'll get ready</p>
 <p>After relaying the message to Kijimoto Jurie, I started preparing to go down. Everyone must have used a lot of calories trying to deduce(?) this case, as they were looking at me with sparkling eyes, telling me to go quickly.</p>
 <p>I don't know what kind of eyes Sakagami Rena, who is wearing a mask, is looking at me with, but she's also been running around with us to solve the case, so she must be hungry.</p>
 <p>"Let's go quickly, I'm hungry."</p>
-<p>"Yay~!"</p>
+<p>"Yay!"</p>
 <p>We all went down to the first floor. Kijimoto Jurie was waiting in the first-floor hallway, having taken off her usual white gown.</p>
 <p>I always thought she might be hot wearing a sweater over her school nurse gown, but it was a sleeveless kind of sweater. It suits her so well. Maybe it suits her because she has big breasts... The sunset was setting, so the picture was nice.</p>
 <p>"Kijimoto-seonsaengnim, let's go."</p>
-<p>"Yes~!"</p>
+<p>"Yes!"</p>
 <p>"Seonsaengnim, I was the one who said let's go together, hehe."</p>
 <p>Naruse Shiyo clung to Kijimoto Jurie and said with a cute voice. She takes good care of Kijimoto Jurie, so their relationship seemed quite close.</p>
 <p>"Ryuta...!"</p>

@@ -53,10 +53,10 @@ chapter = 1055
 <p>Still, it was fortunate that she didn't need surgery or other Treatment. For now, we left one Joesodang Agent outside Sabu's Hospital Room and returned to our accommodation to get some Sleep, planning to come back to the hospital in the Morning. Everyone had expended a lot of Stamina in battle and must be tired, so Rest was the priority.</p>
 <p>In the vehicle heading Home, I decided to Contact Eve. This Matter seemed to require coordinating with the Dark Merchant side. Since the Incident ultimately stemmed from the Dark Merchant auction, I decided to give them some Information so they could grasp the Situation.</p>
 <p>**-Ryuta: I've made a Proposal to the Federal Superhuman Management Department to pin the Responsibility for this Incident on the Obsidian Syndicate and Superior. I'm sending you a Text Message because I thought Eve should know.**</p>
-<p>**-EVE: Thank you for thinking of me~! I'll also watch how the Situation unfolds and Contact you if I have any new Information. I like the idea of pinning everything on the Obsidian Syndicate~!**</p>
+<p>**-EVE: Thank you for thinking of me! I'll also watch how the Situation unfolds and Contact you if I have any new Information. I like the idea of pinning everything on the Obsidian Syndicate!**</p>
 <p>The Dark Merchant usually didn't care whether people fought over an Item after an auction, but to maintain the Dark Merchant's Trust Level, there was a Rule that the party who submitted the Item should not steal or extort it back. Because of this Incident, the Obsidian Syndicate was now firmly marked by the Dark Merchant.</p>
 <p>**-Ryuta: Does the Dark Merchant itself intend to impose Discipline on the Obsidian Syndicate?**</p>
-<p>**-EVE: Of course~! We've decided not to pay the winning bid for the Fragment of Omniscience to the Obsidian Syndicate.**</p>
+<p>**-EVE: Of course! We've decided not to pay the winning bid for the Fragment of Omniscience to the Obsidian Syndicate.**</p>
 <p>They foolishly overstepped and now won't even receive the payment for the Fragment of Omniscience. In that case, the Dark Merchant seems to have made a huge profit, if they kept all the Fragment of Omniscience's payment.</p>
 <p>**-EVE: It's not a huge profit. The ship sinking this time, and... we have to pay compensation to the customers. Compensation will also be deposited into Ryuta-nim's Account.**</p>
 <p>Indeed.... If that massive Cruise ship sank and they have to pay compensation to the customers, even if they pocketed all the Fragment of Omniscience's payment, it wouldn't be a huge profit. But to maintain the Dark Merchant auction's Trust Level, they have no choice but to take action, which is why they're paying compensation this time.</p>
@@ -72,16 +72,16 @@ chapter = 1055
 <p>I had only asked for the opportunity to bid on a patent, but they were giving me priority rights out of gratitude. Priority rights mean the right to purchase first, so I can acquire the patent without competing with other companies. This is quite preferential treatment for the Price of an Idea. Perhaps because I'm the Black Knight, they valued my Idea quite highly.</p>
 <p>In that case, it was as good as having acquired one of Obsidian Pharmaceuticals' patents, so the pharmaceutical company project I had planned seemed likely to go smoothly this time.</p>
 <p>___________</p>
-<p>MidNightSKY-nim requested: Kijimoto Jurie, the school nurse, and Daigo Terue, the Chairperson, being Seduce-d in Erotic attire~!</p>
-<p>School Nurse~!</p>
-<p>Chairperson~!</p>
+<p>MidNightSKY-nim requested: Kijimoto Jurie, the school nurse, and Daigo Terue, the Chairperson, being Seduce-d in Erotic attire!</p>
+<p>School Nurse!</p>
+<p>Chairperson!</p>
 <p>Hwanbuljeoldae-bulga-nim requested: Old version Lisa, the Home Economics Teacher, lying down in a sleeveless dress shirt, skirt, and Stockings!</p>
-<p>Lisa~!</p>
-<p>Home Economics Teacher~!</p>
-<p>Gojoy-nim requested: 1. Yukiko surprised after a sudden Embrace, 2. Yukiko surprised when Ryuta sees her showering and getting dressed~!</p>
+<p>Lisa!</p>
+<p>Home Economics Teacher!</p>
+<p>Gojoy-nim requested: 1. Yukiko surprised after a sudden Embrace, 2. Yukiko surprised when Ryuta sees her showering and getting dressed!</p>
 <p>1.</p>
 <p>2.</p>
-<p>Chomisaemeonji-nim requested: 1. Liz in a red Uniform~! 2. Liz in tactical gear~!</p>
+<p>Chomisaemeonji-nim requested: 1. Liz in a red Uniform! 2. Liz in tactical gear!</p>
 <p>1.</p>
 <p>2.</p>
 <p>The last one is Liz, who forgot to put on her Pants hehe.</p>

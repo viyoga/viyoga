@@ -59,12 +59,12 @@ chapter = 769
 <p>Of course, whether her Ability to suppress her Presence could even deceive Machines was unknown, but it was a fact that she was much harder to Track than a Layperson.</p>
 <p>"I heard from my Liege that her Presence is very faint...."</p>
 <p>"Yeah. I just looked away for a moment, and she vanished with a hwik. That's why I said she'd be hard to find."</p>
-<p>"Don't worry, Teacher-nim! I'll search diligently~!"</p>
+<p>"Don't worry, Teacher-nim! I'll search diligently!"</p>
 <p>At my Words, Naruse Shiyo clenched both her Fists tightly and spoke with overflowing passion. Naruse Shiyo's Appearance like that was quite cute, but it seemed necessary to calm down Naruse Shiyo, whose Eyes were blazing.</p>
 <p>"It's not urgent, and we're going on a Ski Resort Travel from tomorrow afternoon after school, so don't get too heated."</p>
 <p>Because I didn't think Anya-ji would attack immediately, I calmed down Naruse Shiyo, who was showing excessive passion. Because if she burns too much passion, it will be difficult to generate momentum when needed.</p>
 <p>"Anyway, have you packed all your Travel Items for tomorrow?"</p>
-<p>"Of course~! I also packed the Ski Clothes Teacher-nim picked out yesterday..."</p>
+<p>"Of course! I also packed the Ski Clothes Teacher-nim picked out yesterday..."</p>
 <p>At Naruse Shiyo's Answer, Trauma involuntarily rushed over me. Yesterday, the department store was literally circled more than a hundred times.</p>
 <p>With 12 Students to look after, it took a very long Time, and if I praised one for looking good, the remaining Students would flock asking how they looked, and even if I said it was fine, if they didn't like it, they would keep dragging me around, committing the evil act(?) of showing me the Clothes they were wearing.</p>
 <p>The department store's closing Time was 8 PM, but the Young Ladies of the special class used their Power to postpone the department store's daily closing Time by a whopping two hours.</p>
@@ -76,11 +76,11 @@ chapter = 769
 <p>Suddenly, the Story of yesterday's department store came up, and I quickly became tired, so I decided to send Sakagami Rena and Naruse Shiyo Home.</p>
 <p>They both giggled, seeing my tired Expression. 'It was a bit much yesterday, wasn't it?' they said, then rose from their Seats.</p>
 <p>"See you tomorrow."</p>
-<p>"See you tomorrow, Teacher-nim~!"</p>
+<p>"See you tomorrow, Teacher-nim!"</p>
 <p>"Liege, have a good night."</p>
 <p>I saw Sakagami Rena and Naruse Shiyo off to the front door and entered the quiet Home. Thinking I should Sleep early since there was Travel tomorrow, I immediately went into the Bedroom.</p>
-<p>Nagumo Sian Belly Dancer requested by Gojoy-nim~!</p>
+<p>Nagumo Sian Belly Dancer requested by Gojoy-nim!</p>
 <p>Suit Skirt + Bra + Stockings + Armpit Lisa-ttang, Home Economics Teacher-nim requested by Hwanbuljeoldae-bulga-nim</p>
-<p>Starting with Lisa-ttang~!</p>
-<p>Home Economics Teacher-nim~</p>
-<p>Kkiyoooot~!</p>
+<p>Starting with Lisa-ttang!</p>
+<p>Home Economics Teacher-nim</p>
+<p>Kkiyoooot!</p>

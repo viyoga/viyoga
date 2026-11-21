@@ -37,7 +37,7 @@ chapter = 2007
 <p>Veshara gave the petite swordswoman a sunny smile.</p>
 <p>"You were enjoying yourself too. I saw you."</p>
 <p>"I was trying to end a lunatic’s rampage."</p>
-<p>"With such a happy face~"</p>
+<p>"With such a happy face"</p>
 <p>From a balcony across the street, a woman caught her neighbour’s sleeve.</p>
 <p>"Is that Captain Veshara?"</p>
 <p>"Why is she kneeling?"</p>
@@ -49,7 +49,7 @@ chapter = 2007
 <p>"Sera fixed it, Master."</p>
 <p>She flexed her fingers for him, then glared past his shoulder at Veshara.</p>
 <p>"Next time, Blossom is tearing that tail off."</p>
-<p>"You’ll have to catch it first, pupper~"</p>
+<p>"You’ll have to catch it first, pupper"</p>
 <p>"Blossom is not a dog!"</p>
 <p>Quinlan reached out to wipe the blood from the dogkin’s chin with his thumb. She pressed her cheek into his palm, her eyes still fixed on the woman she’d been hunting through the sky.</p>
 <p>He was proud of her. She’d been thrown across a room with a broken arm, then gone straight back into the fight. He loved that ferocity, even while the blood on his glove made him want to do quite a number of things to the draconic woman.</p>
@@ -69,7 +69,7 @@ chapter = 2007
 <p>Perhaps Quinlan would be more understanding. Still on her knees, Veshara leaned closer to him, her full lips curving as her voice softened into a purr.</p>
 <p>"Couldn’t you be a little kinder to me? I’m just a humble guard, I don’t have the salary-"</p>
 <p>"No."</p>
-<p>"Even if I ask very nicely~?" She drew out the last word, pushing her ample chest forward for his consideration.</p>
+<p>"Even if I ask very nicely?" She drew out the last word, pushing her ample chest forward for his consideration.</p>
 <p>"No."</p>
 <p>"Tch."</p>
 <p>Veshara sat back on her heels with a curl to her lip, dropping the sweet voice along with every pretence of being a poor, helpless maiden. She visibly wasn’t pleased with the realization that pushing her tits at him hadn’t worked.</p>
@@ -78,7 +78,7 @@ chapter = 2007
 <p>"..." Veshara gave the two women a deeply offended look. Her irritation lasted right up until she turned back to Quinlan, at which point she brightened into another lovely smile.</p>
 <p>"All right. I’ll play along instead of around, then."</p>
 <p>Quinlan looked down at her. "Does that include giving up the helpless little guard act?"</p>
-<p>"I’m on my knees, aren’t I~?" She held her scraped knuckles up for him to inspect. "Look what you’ve done to me."</p>
+<p>"I’m on my knees, aren’t I?" She held her scraped knuckles up for him to inspect. "Look what you’ve done to me."</p>
 <p>"You still haven’t cast a single spell," Quinlan spat.</p>
 <p>Around him, several of his women wore wry expressions. They’d been close enough to feel every kick and tail strike. Hearing him say it aloud did very little for their mood.</p>
 <p>"Yeah..." Ayame sighed. "She’s one annoying maniac, but she’s crazy powerful."</p>

@@ -95,7 +95,7 @@ chapter = 297
 
 <p>The tanned beauty was, as usual, working on her alchemy skills, her huge breasts exposed, protected only by a tiny bikini and squeezed together by her arms as she stirred a cauldron.</p>
 
-<p>“Oh my… fufufu~~ what have we here? The hubby really struck gold, hehehe,” Feiyan giggled.</p>
+<p>“Oh my… fufufu what have we here? The hubby really struck gold, hehehe,” Feiyan giggled.</p>
 
 <p>Her eyes flowed down Meilin’s plump, juicy ass and then up her full, cherry lips, which decorated a porcelain face.</p>
 

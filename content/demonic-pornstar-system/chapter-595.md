@@ -78,19 +78,19 @@ chapter = 595
 <p>Aria nodded, tone strict but caring. "You’re here. The trial is over. That’s what matters."</p>
 <p>Nyx leaned down, pressing soft kisses to his cheeks, one after another, slow and affectionate. "It’s all right," she purred. "Let us take care of you now."</p>
 <p>Kaiden closed his eyes and smiled. "... Alright."</p>
-<p>"What can we do for you? Would you like to~?" Bastet purred. The girls were ready to serve any and all his desires, whatever he wanted.</p>
+<p>"What can we do for you? Would you like to?" Bastet purred. The girls were ready to serve any and all his desires, whatever he wanted.</p>
 <p>Kaiden lay there for a moment, surrounded by expectant gazes, and waited for the familiar pull of carnal desires to surface.</p>
 <p>It didn’t.</p>
 <p>The thought surprised him more than anything else. His body was exhausted but steady, his mind calm in a way it rarely was after something like that. The fire was still there, banked and quiet, but desire, raw, hungry desire, simply wasn’t what he wanted right now.</p>
 <p>He swallowed, then spoke honestly.</p>
 <p>"I don’t really feel like that," he admitted, voice softer than before. "I just want to hold you girls in my arms and feel your warmth until I fall asleep." He hesitated, then added, almost shyly, "Is... is that okay?"</p>
 <p>For a heartbeat, there was silence.</p>
-<p>Then Nyx giggled, releasing a light, melodic sound as she leaned closer. "Is that okay, he asks~" she teased.</p>
+<p>Then Nyx giggled, releasing a light, melodic sound as she leaned closer. "Is that okay, he asks" she teased.</p>
 <p>"Master," Bastet laughed, tail flicking with amused delight, "you became a shy boy."</p>
-<p>Luna’s lips curved as she slid nearer, voice low and affectionate. "I like this more timid Kai~"</p>
+<p>Luna’s lips curved as she slid nearer, voice low and affectionate. "I like this more timid Kai"</p>
 <p>Calypso didn’t tease at all. She simply looked at him, eyes soft, something warm and sincere blooming in her expression. For someone usually so openly needy and sexually active, the lack of hunger in him felt... intimate. Romantic, even.</p>
 <p>Before Kaiden could spiral any further, Aria stamped her foot. "Girls. Don’t make fun of Kai."</p>
-<p>"We weren’t, though~?" they answered together, laughter blending easily.</p>
+<p>"We weren’t, though?" they answered together, laughter blending easily.</p>
 <p>Hands reached for him then. Fingers slipped beneath fabric, easing his clothes away with unhurried care. There was something reverent about it, the way they worked together, making sure he was comfortable at every step. Kaiden let himself relax into it, embarrassment melting into trust.</p>
 <p>They followed suit, shedding their own clothes without spectacle or competition. Just skin, warmth, closeness. When they climbed into bed with him, it wasn’t chaotic. They shifted, adjusted, murmured softly until all five fit around him, bodies tucked in at his sides or resting gently atop his broad chest.</p>
 <p>For once, there was no bickering. No playful jostling for position. No kitty fighting, alongside a lot of hissing.</p>

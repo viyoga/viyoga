@@ -26,9 +26,9 @@ chapter = 975
 <p>The next Screen was an Interview Scene between the reporter and Genbaki, and when asked if it was a Product from the same company as the cyber implant he used in yesterday's match, Genbaki nodded firmly and answered Cyberware.</p>
 <p>Even though he was being cursed at for his poor performance yesterday, he is doing a great job of Advertising even the cyber implant for everyday life, so I should tell Eve to give Genbaki a bonus.</p>
 <p>Thanks to this, the SNS and Internet Reactions are quite explosive, and several chat messages had come from Eve on the Am-Sang App while I was sleeping.</p>
-<p>-EVE: Ryuta-nim~! Inquiries about cyber implants have increased tremendously since yesterday's match!! The Internet Reactions are also very good!</p>
+<p>-EVE: Ryuta-nim! Inquiries about cyber implants have increased tremendously since yesterday's match!! The Internet Reactions are also very good!</p>
 <p>-EVE: Ryuta-nim! Did you see Genbaki-ssi's Interview? There are definitely a lot more inquiries about the model for everyday life! The Site became unstable, so I had to increase the traffic...!</p>
-<p>-EVE: Ah, it's time for you to Sleep~! Please Contact me when you wake up!</p>
+<p>-EVE: Ah, it's time for you to Sleep! Please Contact me when you wake up!</p>
 <p>Eve seemed quite excited that the Business she started ambitiously was doing well from the start. The cyber implant Business was definitely a big Market. The World War III ended 8 years ago, but the number of People without Limbs has greatly increased due to the local wars and various Terror attacks that have continued to occur from time to time, and as a result, cyber implant companies have sprung up like mushrooms after the rain.</p>
 <p>Of course, only a few companies survived due to technical problems, Costs, and A/S. Cyberware will have to overcome several crises to become one of the few surviving companies, but judging from the current Situation, the start seems good.</p>
 <p>- Ryuta: I just woke up. I saw the news, and it seems like the ad campaign is working well?</p>
@@ -36,7 +36,7 @@ chapter = 975
 <p>2,000 Reservations.... Some might say that's not that many, but considering that the company Cyberware was only known to the World yesterday, it was a considerable Performance. In addition, the cyber implant itself is a high value-added commodity, so each one is expensive and generates considerable profits, so 2,000 units would mean a considerable profit.</p>
 <p>-Ryuta: Is there anything I need to do?</p>
 <p>Eve was the one with the largest Share, but I was also nominally registered as the CEO of Cyberware, and if Cyberware does well, I will also make Money, so I asked Eve if there was anything I could do to help.</p>
-<p>-EVE: There's nothing in particular right now. But there are a few documents to process, so I'll send them to you by email~!</p>
+<p>-EVE: There's nothing in particular right now. But there are a few documents to process, so I'll send them to you by email!</p>
 <p>- Ryuta: Okay. I'll take care of the documents quickly!</p>
 <p>It seemed that there wasn't much I could do to help yet. I opened my inbox and started checking the documents I had to process. After checking all the documents, I got out of Bed and put on a Gown. I was planning to ask Linling to do this Paperwork.</p>
 <p>She explained even the clauses I didn't know and worked hard as if it were her own Work, so I had received a lot of Help from Linling over the past few days.</p>
@@ -51,11 +51,11 @@ chapter = 975
 <p>Genba Kiyohira nodded his Head. He was already wearing a cyber Suit, and if he wore a Helmet that could hide his True Identity, no one on the streets of New York would know that he was Genba Kiyohira, the UMC openweight Champion.</p>
 <p>'Let's go! You have to suffer on the streets to come to your senses, you Bastard!'</p>
 <p>Musashi Takuro, wearing a Helmet, urged Genba Kiyohira. Genba Kiyohira sighed softly, then put on his Helmet and stepped out into the night streets of New York.</p>
-<p>Gojoy-nim requested Minamoto Lisa in casual Clothes and Underwear~!</p>
+<p>Gojoy-nim requested Minamoto Lisa in casual Clothes and Underwear!</p>
 <p>Casual Clothes</p>
 <p>This is Lisa, who has been wearing cashmere polo shirts and tennis Skirts often recently hehe.</p>
-<p>Underwear~!</p>
-<p>TheDreaming-nim requested a Remake of Yang Seol-hui's prison in Chapter 209 1. Remake of the Main Story Illustration 2. Remake of the Bonus Illustration~!</p>
+<p>Underwear!</p>
+<p>TheDreaming-nim requested a Remake of Yang Seol-hui's prison in Chapter 209 1. Remake of the Main Story Illustration 2. Remake of the Bonus Illustration!</p>
 <p>1.</p>
 <p>2.</p>
 <p>Yang Seol-hui's atmosphere has changed a lot from the old Illustration, so I don't get the old Feeling hehe.</p>

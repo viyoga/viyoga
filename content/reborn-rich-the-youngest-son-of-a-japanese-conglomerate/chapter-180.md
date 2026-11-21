@@ -21,7 +21,7 @@ chapter = 180
 <p>As expected of artificial intelligence, she remembered my business. Thinking about memory, I don't know how much storage capacity Eve-ssi's data has, but considering the times, it must have a huge capacity, right?</p>
 <p>, "What would you like to buy today?"</p>
 <p>, "There are things I want to buy... and things I want to sell, but let's look at the catalog first."</p>
-<p>, "Yes~!"</p>
+<p>, "Yes!"</p>
 <p>The offline items sold at the Dark Merchant Guild branch reflected the characteristics of each city, and the items in the catalog were full of cyberpunk-esque things, befitting the Pyongyang Technology Special City.</p>
 <p>There was also the Centipede Spine, a basic cyber implant that was implanted along the spine in the shape of a centipede, and there were many cybernetic eyes and prosthetic hands.</p>
 <p>Ah, right. Pyongyang was a paradise for people who went with the modification trait, wasn't it? Since most of the items were cyber implants, there wasn't much I could use without getting modified.</p>

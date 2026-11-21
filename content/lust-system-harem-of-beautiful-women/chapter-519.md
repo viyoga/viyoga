@@ -5,7 +5,7 @@ weight = 519
 chapter = 519
 +++
 
-<p>&quot;Hey, isn&#x27;t this Sister Kiara? Working so hard~&quot;</p>
+<p>&quot;Hey, isn&#x27;t this Sister Kiara? Working so hard&quot;</p>
 
 <p>Downstairs in the community, the usually lackadaisical property management staff had suddenly sprung into action, putting up banners and doing publicity with the residents.</p>
 
@@ -17,7 +17,7 @@ chapter = 519
 
 <p>Sister Kiara&#x27;s expression shifted. She gritted her teeth and said, &quot;Don&#x27;t spout nonsense. That was a personal grudge between you and someone else. The police station has already made it clear, so don&#x27;t try to falsely accuse me.&quot;</p>
 
-<p>&quot;Oh, listen to you, talking so convincingly~ Aren&#x27;t you afraid of being struck by lightning for saying things like that?&quot;</p>
+<p>&quot;Oh, listen to you, talking so convincingly Aren&#x27;t you afraid of being struck by lightning for saying things like that?&quot;</p>
 
 <p>Over the next few days, although the two property teams didn&#x27;t come to actual blows, the atmosphere was incredibly tense. They openly did publicity in each other&#x27;s communities without any pretense of reservation.</p>
 

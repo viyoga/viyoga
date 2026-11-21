@@ -50,7 +50,7 @@ chapter = 937
 <p>Since Dang So-hwa had received several Neo Tokyo construction projects and was busy, if she was excluded due to being busy, it seemed I could ask Kijimoto Jurie to check it once. Since I didn't know when the Blood Doctors (Hyeol-ui) of the Otagi Family would be dispatched, I should contact Kijimoto Jurie, who was nearby.</p>
 <p>"Just a moment."</p>
 <p>As I thought of it, I contacted Kijimoto Jurie. After the battle yesterday, Kijimoto Jurie had obtained Corpse Poison (sidok) from the pile of Corpses in the Donggul (Cave), and immediately disappeared, saying she would research it.</p>
-<p>-Yes~! Yamashiro seonsaengnim~!</p>
+<p>-Yes! Yamashiro seonsaengnim!</p>
 <p>Before the Phone Call even rang once, Kijimoto Jurie answered the Phone Call. Surely she wasn't waiting for my Phone Call all this time? Although the speed at which she answered the Phone Call was a little chilling, I immediately got to the point.</p>
 <p>"Jurie seonsaengnim, I have a Request for you."</p>
 <p>-What is it?</p>
@@ -79,12 +79,12 @@ chapter = 937
 <p>"Urabe wants your Husband's Penis (yukbong)."</p>
 <p>Hanakame Whispered, but because he was so close, it seemed Urabe Konoka heard it too, and her already flushed Face turned crimson. Urabe Konoka, who heard that Whisper, didn't deny it, so it seemed Hanakame's Story wasn't wrong.</p>
 <p>Tsukiyo B-cut!</p>
-<p>Requested by TheDreaming-nim: Sakagami Rena in the warehouse. 1. Tied with Rope (batjul)~! 2. Handcuffed~!</p>
+<p>Requested by TheDreaming-nim: Sakagami Rena in the warehouse. 1. Tied with Rope (batjul)! 2. Handcuffed!</p>
 <p>1.</p>
 <p>The Scene of her hanging in empty space seems to have only appeared once by chance haha.</p>
 <p>2.</p>
 <p>For the second Illustration, since the Compositions are all similar, I'm only uploading two images haha.</p>
-<p>Requested by MidNightSKY-nim: 1. Shii surprised by the value displayed on the Monitor while holding a grip strength measuring sponge~! 2. Liz happily eating the Dessert received as an offering~!</p>
+<p>Requested by MidNightSKY-nim: 1. Shii surprised by the value displayed on the Monitor while holding a grip strength measuring sponge! 2. Liz happily eating the Dessert received as an offering!</p>
 <p>1.</p>
 <p>Because the sponge created foam, it felt like I came to clean and ended up finding an Erotic video haha.</p>
 <p>2.</p>

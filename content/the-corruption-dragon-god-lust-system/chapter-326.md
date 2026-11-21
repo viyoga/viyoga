@@ -37,11 +37,11 @@ chapter = 326
 
 <p>He brought his hands up to her long white hair, stroking it gently as she increased the speed and force with which she moved her breasts, making them jiggle heavily whenever they hit Qingyi’s lap.</p>
 
-<p>“Nghnn~~ are you coming, hubby? I can feel you- mghn~~” Isabel moaned, interrupting her words as she lowered her head, swallowing the tip of Qingyi’s cock.</p>
+<p>“Nghnn are you coming, hubby? I can feel you- mghn” Isabel moaned, interrupting her words as she lowered her head, swallowing the tip of Qingyi’s cock.</p>
 
 <p>In the next moment, her cheeks inflated with cum, her beautiful green eyes rolling back as her throat worked, swallowing large, greedy gulps.</p>
 
-<p>“Gulp- ah~~ hubby was so full today, hehehe…” She giggled softly, touching her full, pink lips as she cast a provocative glance at Qingyi.</p>
+<p>“Gulp- ah hubby was so full today, hehehe…” She giggled softly, touching her full, pink lips as she cast a provocative glance at Qingyi.</p>
 
 <p>“I was saving it for you,” Qingyi smiled back before finally entering the water, pulling Isabel and Xueyao onto his lap, feeling both of their huge breasts against his chest.</p>
 
@@ -61,9 +61,9 @@ chapter = 326
 
 <p>Approaching Elize from behind, Qingyi grabbed her massive breasts, eliciting a high-pitched, startled squeal from her.</p>
 
-<p>“Nghnn~~ husband… What brings you here?” she asked, blushing softly as Qingyi’s hands slid into her cleavage, massaging her huge tits, reaching her nipples and squeezing gently.</p>
+<p>“Nghnn husband… What brings you here?” she asked, blushing softly as Qingyi’s hands slid into her cleavage, massaging her huge tits, reaching her nipples and squeezing gently.</p>
 
-<p>“Aghnn~~” a gasping moan escaped Elize’s lips as a gush of milk escaped from her nipples, staining her robes.</p>
+<p>“Aghnn” a gasping moan escaped Elize’s lips as a gush of milk escaped from her nipples, staining her robes.</p>
 
 <p>That pair of milkers was truly divine.</p>
 
@@ -75,7 +75,7 @@ chapter = 326
 
 <p>“Your husband won’t be able to be here for lunch, so count that as me showing up early, okay?” He grinned, her nipples escaping his lips with a wet pop, milk oozing from the large orbs of pale, round skin.</p>
 
-<p>“Oghn~~ Yes, husband…”</p>
+<p>“Oghn Yes, husband…”</p>
 
 <p>Slapping her ass, he finally left, waking up inside Jin Meilin’s flying ship.</p>
 
@@ -87,10 +87,10 @@ chapter = 326
 
 <p>Sighing, he looked at Meilin and Margareth, sleeping peacefully in his arms.</p>
 
-<p>“Hm~~” A sleepy sigh escaped Margareth’s lips, whose beautiful blue eyes slowly opened.</p>
+<p>“Hm” A sleepy sigh escaped Margareth’s lips, whose beautiful blue eyes slowly opened.</p>
 
 <p>Meilin, on the other side of him, also opened her eyes slightly, her beautiful porcelain face staring at Qingyi for a brief moment.</p>
 
 <p>“What, you’re not going to kiss your husband good morning?” Qingyi asked, slapping Meilin’s bare butt, her hand leaving a subtle mark on the pale skin of her ass cheeks.</p>
 
-<p>“Agh~~ you…” Meilin gave a high-pitched, cute squeal, but before she could even complain, Qingyi sealed her lips with a passionate kiss.</p>
+<p>“Agh you…” Meilin gave a high-pitched, cute squeal, but before she could even complain, Qingyi sealed her lips with a passionate kiss.</p>

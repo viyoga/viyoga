@@ -46,7 +46,7 @@ chapter = 200
 <p>She had tears in her eyes, as if she had forgotten her own words that she had just said, "It's not like we're parting forever, so don't be sad."</p>
 <p>,How am I supposed to live without seeing Investor-nim?,</p>
 <p>,You're seeing me right now.,</p>
-<p>,Aii~. Don't joke around.,</p>
+<p>,Aii. Don't joke around.,</p>
 <p>,It's not like we're parting forever, so don't be too sad. We can meet anytime.,</p>
 <p>,Okay. I'll hold back, so you have to give me a reward when we meet next time, okay?,</p>
 <p>Sawayanagi Azuma was asking for a reward, not noticing anything strange even when I quoted her own words. A reward.... What should I give her? If it's a reward, is that the only thing?</p>

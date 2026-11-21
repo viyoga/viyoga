@@ -9,7 +9,7 @@ Lith held Lucy's buttocks with both his hands and parted them slightly to see he
 
 Lith then took his shaft out and poked it on Lucy's entrance. Soon, he slowly pushed it inside and within moments, he was deep inside Lucy.
 
-"Mhm~" Lucy hummed in pleasure as she felt full.
+"Mhm" Lucy hummed in pleasure as she felt full.
 
 Alexandra could only feel slightly jealous and wait. She squeezed Lucy's boobs and played with her nipples till it was her turn.
 
@@ -43,13 +43,13 @@ A while later, Lucy reached her orgasm and squirted her juices on Lith's lower b
 
 Lith didn't cum yet and being energetic as he was, he took out his shaft from Lucy and immediately thrust it into Alexandra's pussy.
 
-"Ohhh!~" Alexandra wasn't ready for this and it greatly surprised her and made her feel pleasured as she felt Lith's cock inside her.
+"Ohhh!" Alexandra wasn't ready for this and it greatly surprised her and made her feel pleasured as she felt Lith's cock inside her.
 
 Lith rammed his dick inside Alexandra's pussy in missionary position while Lucy lay on her. He took support of Lucy's butt while moving his hips.
 
 Lucy recovered after a few minutes and noticing it was Alexandra getting fucked by Lith, she bit onto her nipple and kneaded her other breast like dough.
 
-"Ahhh~ Ahhh~ Your High– Ahhh~" Alexandra couldn't speak anything and was only able to moan. Lucy didn't give her a chance to speak.
+"Ahhh Ahhh Your High– Ahhh" Alexandra couldn't speak anything and was only able to moan. Lucy didn't give her a chance to speak.
 
 A while later, Lith increased the intensity and speed of his thrust and finally after a few minutes….
 
@@ -57,7 +57,7 @@ A while later, Lith increased the intensity and speed of his thrust and finally 
 
 Spurrrt!
 
-"Ohhhh~"
+"Ohhhh"
 
 "Ngghh…"
 

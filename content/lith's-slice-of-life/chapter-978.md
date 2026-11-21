@@ -145,7 +145,7 @@ Lith clicked his tongue and getting off her, flipped her on her knees, positioni
 
 PAH!
 
-"Mhmm~…" Lucifer moaned in happiness. "Someone's annoyed?"
+"Mhmm…" Lucifer moaned in happiness. "Someone's annoyed?"
 
 Lith didn't answer her and spanked her other cheek, eliciting another moan from her. He shoved his cock inside her cunt once again and began pounding her.
 

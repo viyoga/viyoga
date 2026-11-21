@@ -29,9 +29,9 @@ chapter = 321
 <p>When he finally reached her chest, he gently cupped her small breasts in his large hands.</p>
 <p>Sol was in no hurry. He wanted to savor each and every part of Kiyohime. He didn’t want this to just be about him venting his stress on her beautiful body.</p>
 <p>Leaning down, he gently licked the areola of her right breast before finally nibbling her nipple, then sucking on her breast. At the same time, he lightly pinched her left nipple.</p>
-<p>“Nn~!”</p>
+<p>“Nn!”</p>
 <p>Kiyohime leaked out a shivering groan— her pale white skin flushed and showed an amorous shade of red that gave her an air of vulnerability.</p>
-<p>“Sol~”</p>
+<p>“Sol”</p>
 <p>Hearing her mutter his name with such a sultry voice made Sol’s heart pound with excitement.</p>
 <p>He wanted more. He wanted to completely mess her up. Such ravenous thoughts filled his brain.</p>
 <p>Regretfully leaving her enticing breasts, Sol continued to trail down south as he left kisses on her stomach until he finally reached the place he was dying to witness again.</p>
@@ -39,7 +39,7 @@ chapter = 321
 <p>Her stomach was so thin he wondered if there was any flesh other than her organs in there, but her navel had a nice shape. He slowly slid his hand down toward her vulva.</p>
 <p>“Let’s see what we have here."</p>
 <p>Looking up, he smirked towards Kiyohime before grabbing her legs and pushing them aside.</p>
-<p>“Ah~ Don't look, please.”</p>
+<p>“Ah Don't look, please.”</p>
 <p>The redness of her face increased further as she felt slightly faint headed. Embarrassment clouded her mind to the point that she forgot she could easily break free from his clasps if she really wished so. Though, the reality probably was that she simply didn't wish to break free…</p>
 <p>Ignoring her false words of protest, Sol observed her closed puffy mound already glistening with her love juice.</p>
 <p>Even though she had already spent a long night of passion with Sol not so long ago, the lips of her vagina were still completely shut, looking as if they had never been used.</p>
@@ -51,7 +51,7 @@ chapter = 321
 <p>Sol would have loved to say she was a cute frog but he preferred to traverse on the side of caution and opted not to say that out loud. Not all sweet words had to be said after all.</p>
 <p>“Don’t move.”</p>
 <p>His fingers finally arrived at her small crevice–</p>
-<p>“Nh~”</p>
+<p>“Nh”</p>
 <p>–</p>
 <p>— And a tremor of rocking pleasure immediately ran through Kiyohime's body.</p>
 <p>Each time his middle finger moved up and down her slit, her voice left her with a sigh of ecstasy. She tried to close her legs out of embarrassment, but that did nothing to stop his moving fingers.</p>
@@ -71,7 +71,7 @@ chapter = 321
 <p>Sol was sure that she was ready to take him now and with her powerful body, he could completely go wild with no fear. But as always, he wanted to make her cum first.</p>
 <p>He loved seeing his lover lose themselves in the throes of passion. It was such an empowering feeling that he would exchange it for nothing else.</p>
 <p>With that decided, he sped up his fingers. He also pressed harder against her clitoris, increasing the waves of stimulation.</p>
-<p>“Please~ Wait~”</p>
+<p>“Please Wait”</p>
 <p>Kiyohime was honestly a little surprised. The climax she sensed coming was so powerful it actually scared her.</p>
 <p>Feeling “good” was an understatement. The signals reaching her brain were definitely pleasure, but it was so strong she could have easily confused them for pain. If this continued much longer, she was certain she would lose her mind.</p>
 <p>She tried to stop her hips to avoid that.</p>
@@ -85,7 +85,7 @@ chapter = 321
 <p>Kiyohime clutched at the sheets because she felt like she would float away if she did not.</p>
 <p>“No need to hold yourself back.”</p>
 <p>Sol's whisper sent a tremor down her spine.</p>
-<p>“Yes~!!”</p>
+<p>“Yes!!”</p>
 <p>Her body trembled as she accepted the pleasure and hissed loudly as liquid gushed forth from her lower body, completely wetting the bed and filling the room with her musky and sweet scent.</p>
 <p>Then she collapsed limply onto the bed, panting loudly, her eyes completely unfocused but her mind floating as if it was on cloud nine.</p>
 <p>As she was now, she wished for nothing more than to rest. But she had forgotten something crucial…</p>

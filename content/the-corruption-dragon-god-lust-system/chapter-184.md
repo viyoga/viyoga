@@ -73,7 +73,7 @@ chapter = 184
 
 <p>Her little feet tapped excitedly as Elize put a piece of cake in her mouth.</p>
 
-<p>“I told you I was her favorite, fufufu~~” Ruxue turned her face away as she hugged little Yao tightly.</p>
+<p>“I told you I was her favorite, fufufu” Ruxue turned her face away as she hugged little Yao tightly.</p>
 
 <p>Qingyi’s face darkened, watching little Yao’s gaze. Had she really chosen Ruxue over Elize and Feiyan? How was that possible?</p>
 

@@ -25,10 +25,10 @@ chapter = 1190
 <p>Then, her grin sharpened, mischief returning to full force. She straightened her posture and looked at the princess again.</p>
 <p>Felicity instantly picked up on it. Her body tensed as she raised her arms defensively. "You... you better not have more of those shocking stories!"</p>
 <p>Feng’s lips stretched into a wolfish grin.</p>
-<p>&lt;Oh, but I do... Princess~&gt;</p>
+<p>&lt;Oh, but I do... Princess&gt;</p>
 <p>Felicity froze. The words hadn’t come from Feng’s mouth; they had echoed inside her mind.</p>
 <p>Her eyes darted around, alarmed. "What?! Where did that- What was that voice?!"</p>
-<p>&lt;I’m in your head~&gt; Feng’s voice purred in her thoughts again, followed by a faint giggle.</p>
+<p>&lt;I’m in your head&gt; Feng’s voice purred in her thoughts again, followed by a faint giggle.</p>
 <p>"WHAT?!" Felicity yelped out loud, clutching her head.</p>
 <p>Feng finally broke into laughter. &lt;Relax, relax! It’s one of Quin’s spells. Since you’re his slave now, you can use it too. It’s a mental link connecting all his [Subjugated] people, think something at me instead of saying it, and I’ll hear you.&gt;</p>
 <p>Felicity hesitated but gave it a try, closing her eyes for a second. &lt;Can... you hear me?&gt;</p>

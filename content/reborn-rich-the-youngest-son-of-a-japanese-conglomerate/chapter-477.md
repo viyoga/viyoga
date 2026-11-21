@@ -14,7 +14,7 @@ chapter = 477
 <p>,How are you going to give the gift?</p>
 <p>,Please choose it together on the computer at home.</p>
 <p>Ah, she meant buying a gift online at home. As soon as it was decided that I would have a home date with Oofuchi Erika, the class became quite noisy.</p>
-<p>,Ooh~! Ryuta-cchi, just because you're alone with Oofuchi-ching, don't do anything weird to her~!!</p>
+<p>,Ooh! Ryuta-cchi, just because you're alone with Oofuchi-ching, don't do anything weird to her!!</p>
 <p>,That's right, no perverted stuff!</p>
 <p>,No perverted stuff, but if it's Oofuchi, wouldn't you play VR games together?</p>
 <p>The special class students were making a fuss because the decision for a home date was made due to the lewd feeling of being alone at home.</p>
@@ -66,7 +66,7 @@ chapter = 477
 <p>Oofuchi Erika showed me her phone at my question, and it was a part for VR equipment. It seemed that she was interested in this field, so she chose something related to VR.</p>
 <p>,Just a moment...</p>
 <p>Looking at Oofuchi Erika's screen, I bought the part that Oofuchi Erika had chosen with my phone. Of course, I didn't forget to change the shipping address to here.</p>
-<p>,Thank you~!</p>
+<p>,Thank you!</p>
 <p>,It's nothing, Oofuchi, you worked hard, so I'm giving you a gift... If you're grateful, get good grades next time too.</p>
 <p>Actually, I couldn't do anything similar to a date with Oofuchi while her mother was watching, and I could say that my mission was complete if I gave her the gift, but seeing Daigo Terue dressed so splendidly, I couldn't bring myself to say that I was leaving right away. It seems that Oofuchi Erika's scheme has succeeded.</p>
 <p>,Sensei, since you've come all this way, have a cup of tea and stay for dinner!</p>

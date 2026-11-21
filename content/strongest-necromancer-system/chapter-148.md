@@ -12,7 +12,7 @@ chapter = 148
 <p>"Mr. Jason, what tactic do you plan to use in the Gate?"</p>
 <p>"Do you think your ocular ability will be enough to help you fight off monsters?"</p>
 <p>"Mr. Jason, give me a moment! Just a moment!"</p>
-<p>"Nya! Jason is here! Say hello to the star nation nya~!"</p>
+<p>"Nya! Jason is here! Say hello to the star nation nya!"</p>
 <p>The reporters were trying their best to get Jason’s attention by shoving their microphones or cameras in his face, and the guild representatives on the opposite side were also completely focused on Jason as their calls and messaging became more intense. They knew there was no point in trying to recruit Jason until he had actually gotten a proper assessment, but they were already trying to get their bosses and guild leaders to give them an estimated figure to present to Jason so he could join their guild!</p>
 <p>Jason didn’t pay any attention to the crowd around him as his eyes slowly focused on the good-looking woman frowning down at him from the SMD building entrance. It was obvious that she had been giving some sort of speech before he came, and Jason waved at her to apologize for interrupting before he started moving towards the other teenagers.</p>
 <p>"BOSS!"</p>

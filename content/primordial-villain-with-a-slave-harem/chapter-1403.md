@@ -23,7 +23,7 @@ chapter = 1403
 <p>Her voice rang out bright and clear. She stopped precisely two steps in, feet together, hands folded over her dress, which was a beautiful, crystal blue attire instead of her BDSM-like leather gear. Lumi became a statue on the spot.</p>
 <p>Miri squealed.</p>
 <p>"Oh, she is too precious!" Lumi said, already moving.</p>
-<p>"Come here, you sweet girl~" Miri chirped.</p>
+<p>"Come here, you sweet girl" Miri chirped.</p>
 <p>They descended on her at once.</p>
 <p>Blossom's ears vanished under gentle hands. Fingers brushed through her hair, thumbs rubbing the soft base of her ears as if they had waited years for the opportunity. Blossom held her posture for a whole second longer, smile steady, before a small giggle slipped out.</p>
 <p>Her tail betrayed her first, starting to sway rapidly.</p>

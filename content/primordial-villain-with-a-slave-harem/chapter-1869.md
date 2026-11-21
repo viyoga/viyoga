@@ -91,4 +91,4 @@ chapter = 1869
 <p>"He’s got an entire machine running."</p>
 <p>"Yes."</p>
 <p>Silence returned, the two of them looking at each other for a long moment. Then...</p>
-<p>"Look at you~"</p>
+<p>"Look at you"</p>

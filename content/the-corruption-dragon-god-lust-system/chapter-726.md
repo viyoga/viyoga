@@ -45,7 +45,7 @@ chapter = 726
 
 <p>His lips parted and closed over one of her pink nipples, capturing it greedily.</p>
 
-<p>“Nghnn~~” Xue Hua moaned softly, her hands flying to Qingyi’s black horns and clinging to them as if they were anchors.</p>
+<p>“Nghnn” Xue Hua moaned softly, her hands flying to Qingyi’s black horns and clinging to them as if they were anchors.</p>
 
 <p>Her back arched instinctively, pressing her soft breasts even harder against his face.</p>
 
@@ -63,7 +63,7 @@ chapter = 726
 
 <p>He sucked nonstop, persistently, until he finally felt that sweet, warm, creamy liquid flood his mouth.</p>
 
-<p>“Aghnn~~ Q-Qingyi, g-gentler!” Xue Hua whimpered, her eyes rolling back as her entire body shuddered in waves.</p>
+<p>“Aghnn Q-Qingyi, g-gentler!” Xue Hua whimpered, her eyes rolling back as her entire body shuddered in waves.</p>
 
 <p>It was always so embarrassing to feel her own milk dripping into his mouth… and, at the same time, so obscenely pleasurable…</p>
 
@@ -89,7 +89,7 @@ chapter = 726
 
 <p>Slowly, Rou’er pulled back, letting the member slip from her lips with a wet, obscene pop. A thick rope of saliva stretched and broke between her rosy lips and the throbbing tip.</p>
 
-<p>“Aghnn~~ is big brother Qingyi ready to cum in Rou’er’s little mouth yet? Rou’er can’t wait any longer!”</p>
+<p>“Aghnn is big brother Qingyi ready to cum in Rou’er’s little mouth yet? Rou’er can’t wait any longer!”</p>
 
 <p>She pouted, making a begging face that drew a muffled laugh from Qingyi.</p>
 
@@ -113,4 +113,4 @@ chapter = 726
 
 <p>Rou’er’s body fell backward, and his cock slipped from her lips. At that very moment, a final thick, obscene spurt of cum splattered across her face, painting her white from forehead to chin.</p>
 
-<p>“Ah…” She ran her tongue over her lips, savoring what she could reach before letting out a weak, satisfied giggle. “Hubby’s semen tastes so good, hehe~”</p>
+<p>“Ah…” She ran her tongue over her lips, savoring what she could reach before letting out a weak, satisfied giggle. “Hubby’s semen tastes so good, hehe”</p>

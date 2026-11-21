@@ -78,10 +78,10 @@ chapter = 879
 <p>"Standing still, what are you doing? Come at me."</p>
 <p>High School Days Rinka Master</p>
 <p>Her hair length was a bit shorter than now hehe</p>
-<p>Requested by Gojoy-nim: Athena belly dancer and Athena Tape attire~!</p>
+<p>Requested by Gojoy-nim: Athena belly dancer and Athena Tape attire!</p>
 <p>Belly Dancer</p>
-<p>Tape Attire~!</p>
+<p>Tape Attire!</p>
 <p>Requested by TheDreaming-nim: Aitana 1. Cute panties balls run, 2. Covering her groin and Charging</p>
 <p>1.</p>
 <p>2.</p>
-<p>Kkiyot~!</p>
+<p>Kkiyot!</p>

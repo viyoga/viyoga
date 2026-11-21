@@ -5,7 +5,7 @@ weight = 79
 chapter = 79
 +++
 
-<p>&quot;Ngh~hnn, my mind is going blank!! Ahnn... ahn, push harder... ahhnn.&quot; Arielle grabbed both sides of the table to have a better grip.</p>
+<p>&quot;Nghhnn, my mind is going blank!! Ahnn... ahn, push harder... ahhnn.&quot; Arielle grabbed both sides of the table to have a better grip.</p>
 
 <p>’Ahhnn, I want to... ahn... ahn, please pound me more, my dear Wen... ahnn!’ She was clearly having her own intense pleasure.</p>
 
@@ -15,7 +15,7 @@ chapter = 79
 
 <p>&quot;We won’t stop until you are finally satisfied, Mom, so express the feelings inside your heart.&quot;</p>
 
-<p>&quot;Ngh~hhnn... ahhnn, feelings... yeshh... I’m so lonely... ahnnn, my dear... Wen, ahhnn...&quot;</p>
+<p>&quot;Nghhhnn... ahhnn, feelings... yeshh... I’m so lonely... ahnnn, my dear... Wen, ahhnn...&quot;</p>
 
 <p>&quot;I know that you are so lonely, Mom. I can feel that you crave more...&quot;</p>
 
@@ -79,11 +79,11 @@ chapter = 79
 
 <p>’Argh! I’m about to cum! Just one full thrust was all it took!’ Owen roared internally.</p>
 
-<p>&quot;Nggghh~hhhnnnn!!!! Ahh... ahhh... I’m cumming, I’m cumming, Wen!!&quot; Arielle’s moans went to the max, like a dam that was about to break down.</p>
+<p>&quot;Nggghhhhhnnnn!!!! Ahh... ahhh... I’m cumming, I’m cumming, Wen!!&quot; Arielle’s moans went to the max, like a dam that was about to break down.</p>
 
 <p>&quot;Let’s cum together, Mom! Take my divine seed!&quot;</p>
 
-<p>&quot;Ngg~hhhnnn... yeshh... let’s cum together, my dear Wen, ahhn!&quot;</p>
+<p>&quot;Ngghhhnnn... yeshh... let’s cum together, my dear Wen, ahhn!&quot;</p>
 
 <p>Spurt!! Spurt!! Spurt!!</p>
 
@@ -95,7 +95,7 @@ chapter = 79
 
 <p>’I’m so happy, ehehe... my son filled my inside... ahnnn... I’m really a scandalous mother.’</p>
 
-<p>&quot;Nghh~hhhnn... ahnn... ahnn... so good, ahnnn...&quot; Her legs gave out, while her hands finally lost their grip. Her eyes almost rolled backward as she spoke with difficulty, and her squirt didn’t stop yet.</p>
+<p>&quot;Nghhhhhnn... ahnn... ahnn... so good, ahnnn...&quot; Her legs gave out, while her hands finally lost their grip. Her eyes almost rolled backward as she spoke with difficulty, and her squirt didn’t stop yet.</p>
 
 <p>She was still releasing her love juices, filling the whole room with her unique fragrance, together with her son’s divine seed. It was truly a work of art between a perverted mother and her loving son.</p>
 

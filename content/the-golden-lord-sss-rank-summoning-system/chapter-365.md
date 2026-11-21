@@ -45,7 +45,7 @@ chapter = 365
 <p>The plump flesh caved inward beneath the twin impacts before rebounding in slow, heavy waves, ripples spreading outward across the pale, silken curves.</p>
 <p>Before the tremors could fully settle, his fingers closed and sank deep into that soft warmth, pressing until small dimples bloomed around each fingertip.</p>
 <p>Those tender curves molded around his hands with indecent ease, as if her flesh had been sculpted for the sole purpose of fitting into his grip.</p>
-<p>"L-Lord Ethan, what are you—? Nnghnnn~~" A sweet moan slipped past her lips before she could swallow it, her knees wobbling for a moment beneath the sudden mix of shock and shame.</p>
+<p>"L-Lord Ethan, what are you—? Nnghnnn" A sweet moan slipped past her lips before she could swallow it, her knees wobbling for a moment beneath the sudden mix of shock and shame.</p>
 <p>At the same time, Ethan pulled her firmly against him.</p>
 <p>Her full breasts crushed against his firm chest, flattening beneath the pressure, the pale softness spilling further from beneath her neckline as the underboob was pushed downward, as if begging for attention.</p>
 <p>Faelith shuddered from head to toe, her mature elven features flushed with a deep blush that trickled down her neck and faded into the cleavage of her breasts.</p>

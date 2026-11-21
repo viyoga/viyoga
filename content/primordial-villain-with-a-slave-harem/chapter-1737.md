@@ -8,7 +8,7 @@ chapter = 1737
 <p>"So, master...?" Vex purred.</p>
 <p>"It's none of your concern, disciple."</p>
 <p>The words left Black Fang quietly.</p>
-<p>"Ohoho~ A nameless disciple now, am I?" Vex closed the distance again, pressing herself against Black Fang's side with her tail curling around her thigh, chin tilted up, voice dropping to a conspiratorial murmur. "I can't wait to hear what really happened during your 'rescue.'"</p>
+<p>"Ohoho A nameless disciple now, am I?" Vex closed the distance again, pressing herself against Black Fang's side with her tail curling around her thigh, chin tilted up, voice dropping to a conspiratorial murmur. "I can't wait to hear what really happened during your 'rescue.'"</p>
 <p>Black Fang stood like a woman being climbed by a cat she couldn't bring herself to throw away.</p>
 <p>"But first..."</p>
 <p>Vex's eyes shifted toward the remaining pockets of resistance, and the playfulness in her expression hardened into the same killing focus she'd worn when she took Ryonosuke's head.</p>

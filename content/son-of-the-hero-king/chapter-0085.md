@@ -11,14 +11,14 @@ chapter = 85
 <p>"Please… make a mess out of me."</p>
 <p>Sol felt his reasoning nearly snap. Letting out a big sigh at how destructive Medea could be, he bent down and kissed her deeply, their bodies slowly entwining.</p>
 <p>Finally, while Medea was completely focused on the kiss, he slowly pushed his gland in her tight vagina.</p>
-<p>"Nn~"</p>
+<p>"Nn"</p>
 <p>Medea leaked out a small groan. Having a penis that’s bigger than a finger spread her entrance was a bit painful. At the same time, her body that was driven into climax several times was rampaging from expecting pleasure and began to convulse.</p>
 <p>Meanwhile, Sol could feel a fierce resistance once he reached her hymen. His worries were proven true, but he calmed down.</p>
 <p>Sol hesitated for a short while before deciding that piercing through it in one go would be better for her.</p>
 <p>"Medea, I am sorry."</p>
-<p>"Wha~"</p>
+<p>"Wha"</p>
 <p>Her hips shook the moment he gave a deep thrust.</p>
-<p>“Ah, ahh~!”</p>
+<p>“Ah, ahh!”</p>
 <p>At that moment, she lost the chastity she had protected for so long.</p>
 <p>Her thin eyebrows curved as that thick stake was driven into her. While pain surged through her crotch.</p>
 <p>She stifled a scream from the intense pain racing through her hidden hole as her hymen was broken and hugged Sol tightly. At the same time, her nails scratched his back, but Sol did not mind as the pain she was feeling was without a doubt way worse.</p>
@@ -42,7 +42,7 @@ chapter = 85
 <p>Sol was astonished at how amazing a woman she was. The tightness was to be expected with a virgin, but the way she moaned in joy and agony was indescribably sexy. She stirred up his sadism like no one else.</p>
 <p>He had considered being a little gentler with her, but she made him want to do it more roughly.</p>
 <p>He lifted her up so she was seated on his lap and thrust powerfully up into her from below. To avoid the pain of having her full weight gathered on their union, she desperately clung to his body.</p>
-<p>"Ah~! Ah~ !”</p>
+<p>"Ah! Ah !”</p>
 <p>Beads of sweat appeared on her flushed face and heated breaths escaped her lips thanks to the unknown feeling surging through her entire body.</p>
 <p>Her love juices dripped out with an obscenely wet sound while his massive member thrust in and out of her.</p>
 <p>Her mind gradually faded away and she had trouble thinking straight, almost like she had a serious fever. A vague white feeling surrounded her and she could focus only on the presence of the giant penis thrusting up into her crotch.</p>
@@ -50,14 +50,14 @@ chapter = 85
 <p>When he changed his angle, her body started trembling. He focused on the same place and rubbed his glans.</p>
 <p>"Ah! There, it’s amazing there, it’s making me tremble, this, this is… sex?"</p>
 <p>Sol smiled as he asked, "Indeed. Does it feel good? "</p>
-<p>"Nn~! Yes! It’s hot deep inside my stomach… I… I’m cumming again."</p>
+<p>"Nn! Yes! It’s hot deep inside my stomach… I… I’m cumming again."</p>
 <p>"Very well. I’m going to make you cum as much as you like."</p>
 <p>"Ah… I’m cumming. Nnnn…. If you’re so rough then I’m going to cum right away–Sol!!"</p>
 <p>She screamed again and hugged him tightly. Her hot vagina began to contract, making Sol lose the little amount of control he had left.</p>
 <p>The giant object inside her grew even larger and throbbed while she could feel something coursing through it.</p>
 <p>Growling deeply, he kissed her as he began to release his semen inside of her.</p>
 <p>“I-I’m cumming!” He announced while a hot liquid erupted from the tip.</p>
-<p>“Ah, it’s going inside me. Th-there’s so much. Ah~ !”</p>
+<p>“Ah, it’s going inside me. Th-there’s so much. Ah !”</p>
 <p>A hot liquid was spreading within her vagina. And while she experienced being cummed inside for the first time, she also achieved another climax.</p>
 <p>“Ah!?”</p>
 <p>A shrill scream left her mouth and then she collapsed backward. The double stimulus being too strong for someone who was a virgin just a few moments ago.</p>
@@ -78,10 +78,10 @@ chapter = 85
 <p>Thankfully, the new position filled her with delight as it seemed to reach even deeper than she thought possible.</p>
 <p>As the bare-breasted witch stood on all fours like a dog, he reached below her arms and grabbed her breasts.</p>
 <p>He bounced them around for fun and stroked the hardened nipples while starting to move his hips again.</p>
-<p>“Nn~!”</p>
+<p>“Nn!”</p>
 <p>He parted the back of her silver hair and kissed the white nape of her neck. He then licked along with her shoulder blades and spine.</p>
 <p>“Your back is so pretty."</p>
-<p>"Ah~ !"</p>
+<p>"Ah !"</p>
 <p>Medea wiggled her back in embarrassment, though it was obvious how much she was enjoying his compliments.</p>
 <p>The large quantity of love juices and semen were mixed by his rod.</p>
 <p>It would flow out whenever he thrust inside and it was mixed together whenever he pulled back.</p>

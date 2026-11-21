@@ -60,7 +60,7 @@ chapter = 1260
 <p>At that word, even the seasoned elites shifted. Their boots scuffed against the stone.</p>
 <p>"Scar?!" one whispered. "She was higher level than the Captain when she was alive..."</p>
 <p>Another swallowed hard. "And if that’s really Devil... Goddess help us. Rumors didn’t speak about this armor, he became even stronger since the last time..."</p>
-<p>Before Garrett could steady their resolve, a soft, teasing voice drifted through the air. "Hubby, you’re so famous now~"</p>
+<p>Before Garrett could steady their resolve, a soft, teasing voice drifted through the air. "Hubby, you’re so famous now"</p>
 <p>A red-haired woman emerged. Her eyes were marked with pentagrams that glowed brightly. Blood soaked her clothes, still dripping from the blade she held casually at her side. Despite the gore, she smiled joyously.</p>
 <p>Garrett knew her too. Dying her hair red did not mean the captain couldn’t recognize the face that was plastered on so many wanted posters.</p>
 <p>"Vex the Hexblade..."</p>

@@ -28,7 +28,7 @@ chapter = 1449
 <p>Her eyes dropped lower.</p>
 <p>"…Blonde elf with big tits."</p>
 <p>Seraphiel stiffened instantly. "Keep your eyes away, sex demon. Only Quin gets to tarnish my innocence."</p>
-<p>Nyxara licked her lips. "You and innocence in the same sentence? You're fooling no one, especially not me, miss~ I can smell kinks oozing from your core from over here~" "Daughter?" Sylvaris gasped.</p>
+<p>Nyxara licked her lips. "You and innocence in the same sentence? You're fooling no one, especially not me, miss I can smell kinks oozing from your core from over here" "Daughter?" Sylvaris gasped.</p>
 <p>"This is getting old!" Seraphiel cried. She kept getting exposed in front of her very traditional and judgmental mother!!</p>
 <p>Nyxara grinned and finally looked back at Quinlan, clearly feeling victorious. "As I was saying. That would have been the end state. I would exist inside you as a constant presence. And before you ask why, it's because the Shriek of Ruin is shaped by both the succubus and the conqueror. If you were already a finished being, firmly rooted in your path, our union would have settled differently, perhaps."</p>
 <p>She smiled tenderly at him. "But you're not."</p>
@@ -63,7 +63,7 @@ chapter = 1449
 <p>Then she squeaked and launched herself at him. "KYAAA!!!" Arms locked around his neck. Lips everywhere. Warm pressure along his jaw, his collar, the side of his throat. Too many quick kisses to count. Too many hickies left to mark him as hers.</p>
 <p>"I love you!" she declared between kisses. "I loooove you!❤️ Stupid, arrogant Ruin of mine!!❤️❤️ You better live up to your word, okay?! Men who fail to do so are no men at all!"</p>
 <p>Quinlan sighed while his arms came up to hold her. "I know."</p>
-<p>"Good~" She hummed happily against his neck.</p>
+<p>"Good" She hummed happily against his neck.</p>
 <p>He took the barrage of unfiltered emotions for a few seconds before speaking again. "Okay. So you're my guide now. My… supporter." His gaze shifted slightly. "Then why are you here? You should be inside my body, living in your pink mark on my back, right? That's how you described it."</p>
 <p>Nyxara finally pulled back. Her euphoric expression softened, turning ever so slightly more focused.</p>
 <p>"That was exactly how it happened. I entered you, I threaded myself through your blood, your nerves, your thoughts. That's why we could converse even after my body disintegrated."</p>

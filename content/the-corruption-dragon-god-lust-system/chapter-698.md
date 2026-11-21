@@ -31,7 +31,7 @@ chapter = 698
 
 <p>The heavy breast overflowed between his fingers, dark flesh spilling out in thick, glossy bulges with, the sheer mass of it refusing to be contained by a single hand.</p>
 
-<p>“You nghnnn~~ scoundrel…” Khaedryss cursed through clenched teeth, grinding her hips lightly as she sought maximum contact between the plump, scalding lips of her pussy and his skin.</p>
+<p>“You nghnnn scoundrel…” Khaedryss cursed through clenched teeth, grinding her hips lightly as she sought maximum contact between the plump, scalding lips of her pussy and his skin.</p>
 
 <p>Her anus clamped down on Qingyi’s cock with unmatched force, as if trying to crush it and pull it even deeper inside her.</p>
 
@@ -39,7 +39,7 @@ chapter = 698
 
 <p>When she finally reached the top, with only the swollen head still lodged inside her, she let her hips drop all at once.</p>
 
-<p>“Nghnn~~ fuck!” Khaedryss moaned loudly, her ass colliding with Qingyi’s lap in a thunderous slap of flesh, her pussy crushing against his groin with a force that nearly made her faint.</p>
+<p>“Nghnn fuck!” Khaedryss moaned loudly, her ass colliding with Qingyi’s lap in a thunderous slap of flesh, her pussy crushing against his groin with a force that nearly made her faint.</p>
 
 <p>The plump meat of her buttocks squashed flat against his thighs on impact, spreading obscenely wide before snapping back into shape, rippling outward in thick, heavy waves that rolled up her spine.</p>
 
@@ -61,13 +61,13 @@ chapter = 698
 
 <p>His face, buried in those enormous breasts, wore only a soft smile as his hands slid back down to that slender waist, letting her work and relieve herself.</p>
 
-<p>“Aghnnn~~ fuck~~ fuck! AGGHNN~~” Khaedryss lost control, the pace of her hips climbing higher and higher, her forearms sinking deep into her own tits as she pushed them even harder against Qingyi’s face.</p>
+<p>“Aghnnn fuck fuck! AGGHNN” Khaedryss lost control, the pace of her hips climbing higher and higher, her forearms sinking deep into her own tits as she pushed them even harder against Qingyi’s face.</p>
 
 <p>She didn’t want to let him breathe, not even for a single moment.</p>
 
 <p>She wanted everything he saw, for the rest of his life, to be those huge tits covering his entire field of vision.</p>
 
-<p>“Ah~~ Qingyi~” Khaedryss called out in a honeyed voice. “My husband… Don’t run away from your responsibility this time! Get me pregnant! Fuck my tight plump pussy! Fill me with your seed and make my belly swell with your children!”</p>
+<p>“Ah Qingyi” Khaedryss called out in a honeyed voice. “My husband… Don’t run away from your responsibility this time! Get me pregnant! Fuck my tight plump pussy! Fill me with your seed and make my belly swell with your children!”</p>
 
 <p>Her movements exploded with speed, the grip of her anus on Qingyi’s cock tightening in a sudden burst of desire.</p>
 

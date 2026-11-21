@@ -41,7 +41,7 @@ chapter = 110
 
 <p>Thrust! Thrust! Thrust!</p>
 
-<p>&quot;Ngh~hnn! Ahhn... I can’t breathe... ahnn!&quot; Her mind went blank as he rammed his cock all the way in, hitting her womb and forcing her hands to tap the floor wildly.</p>
+<p>&quot;Nghhnn! Ahhn... I can’t breathe... ahnn!&quot; Her mind went blank as he rammed his cock all the way in, hitting her womb and forcing her hands to tap the floor wildly.</p>
 
 <p>She couldn’t process the sudden surge of massive size filling her up completely.</p>
 

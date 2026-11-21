@@ -10,15 +10,15 @@ chapter = 1847
 <p>She swallowed the whole thing behind a circling step and a lowered blade.</p>
 <p>"Your base is still honest," she noted. "Who taught you that, I wonder?"</p>
 <p>"Some cocky brat who needs a good spanking."</p>
-<p>"Wrong answer. It was a peerless visionary. A saintess~"</p>
+<p>"Wrong answer. It was a peerless visionary. A saintess"</p>
 <p>Quinlan wanted to respond, but his brain was overwhelmed. She said his body was unfair, but Quinlan felt hers was a much greater weapon. At least against him.</p>
 <p>She was plain breathtaking.</p>
 <p>Sweat had come up on her by now, and the crimson mark rode low on her belly through every rotation. He watched it a beat too long.</p>
 <p>"That mark is far too perfect. I should become an artist."</p>
 <p>Sweat ran the line of her spine and disappeared, her thighs flexed through every cut she committed to, and the firelight made thorough use of all of it. He watched openly, the way he’d promised himself he would the day she first told him her terms.</p>
-<p>"Perish the mere thought before you get even more cocky. The physique made it, not you. You were merely the ink, not the artist, and the ink does not get to sign the piece. Second... Eyes up, pervert~" She read the audit mid-exchange and punished it, cracking the outside of his knee.</p>
+<p>"Perish the mere thought before you get even more cocky. The physique made it, not you. You were merely the ink, not the artist, and the ink does not get to sign the piece. Second... Eyes up, pervert" She read the audit mid-exchange and punished it, cracking the outside of his knee.</p>
 <p>"No."</p>
-<p>"So be it. Watch all you want while I claim victory~"</p>
+<p>"So be it. Watch all you want while I claim victory"</p>
 <p>She wasn’t wrong. On any scorecard the duel belonged to her, and it was not close. His body wore her penmanship across ribs, shoulder, forearm, thigh, while she had taken exactly one hit in return, a flat parry-slap against her hip that she had allowed just to feel its weight.</p>
 <p>The problem, she was discovering, was what the scorecard refused to measure.</p>
 <p>*THWACK!*</p>

@@ -38,7 +38,7 @@ chapter = 895
 <p>Luna’s eye twitched.</p>
 <p>"Just for the record." Nyx glanced at the examiner, then at the younger one still pressed against the wall, then back at Luna. "What I did earlier? If I hadn’t controlled it, Miss Examiner and her technicians would’ve become compressed meat paste."</p>
 <p>The examiner went white. Her colleague made a sound that wasn’t quite a word.</p>
-<p>Nyx giggled, sly and bright. "I wanted to make a statement, so I let a tiny little drop through~ That was all~"</p>
+<p>Nyx giggled, sly and bright. "I wanted to make a statement, so I let a tiny little drop through That was all"</p>
 <p>The silence that followed was the silence of professionals recalculating whether their hazard pay covered this.</p>
 <p>"We need more defenses," the examiner said instantly.</p>
 <p>More minutes passed as the association made a second round of preparations, then Aria stepped up.</p>

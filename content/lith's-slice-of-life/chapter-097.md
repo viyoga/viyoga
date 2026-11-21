@@ -43,7 +43,7 @@ Lith arrived in front of a five storey building. It wasn’t very huge nor was i
 
 “You three will be living with me together in this building until you graduate. I’ll be staying on the top floor, you can come to me anytime if you need something and if I am not available, call me on the number I shared with you on the way.
 
-Get to know each other well and be good kids. See ya~”
+Get to know each other well and be good kids. See ya”
 
 Arya briefly informed them a few things and entered the building.
 

@@ -39,12 +39,12 @@ chapter = 165
 <p>Ha Ju-yoon, who spat out my dick along with the semen, coughed and smiled at me. I pulled out a wet wipe and wiped around Ha Ju-yoon's mouth and wiped up the semen that had fallen on the floor.</p>
 <p>"Now I'll do it for you."</p>
 <p>I took off Ha Ju-yoon's remaining underwear. As I expected, her big, white, soft breasts and her smooth pussy, which had no hair because she had gotten a Brazilian wax, were revealed. I lowered my hand and gently rubbed the outer part of Ha Ju-yoon's pussy. It was already completely flooded, as if she had already gone once while sucking my dick. My hand became soaked with the vaginal fluid that had flowed down to her thighs.</p>
-<p>"Haaheung...! There's no need for more foreplay. Just... just put Yong-tae's dick in~!"</p>
+<p>"Haaheung...! There's no need for more foreplay. Just... just put Yong-tae's dick in!"</p>
 <p>Ha Ju-yoon wiggled her hips back and forth and begged me. Dew was dripping from Ha Ju-yoon's petals, which were already horny as could be, and Ha Ju-yoon's seductive eyes were already clouded with lust.</p>
 <p>I picked up Ha Ju-yoon and went to the bedroom. I threw Ha Ju-yoon onto the bed and climbed on top of Ha Ju-yoon's body. Ha Ju-yoon spread her legs wide as if welcoming me. I wiggled my waist slightly and rubbed Ha Ju-yoon's Clitoris with my glans.</p>
 <p>"Haaht! Haaht! Euuueung!!"</p>
 <p>Ha Ju-yoon, who was rubbing her Clitoris, one of the most sensitive areas, with her glans, rolled her eyes and was almost about to die. After rubbing her Clitoris with my glans for about two minutes, Ha Ju-yoon spread her toes wide and climaxed again.</p>
-<p>"Haaheung~! I'm going, I'm going, I'm goooing!"</p>
+<p>"Haaheung! I'm going, I'm going, I'm goooing!"</p>
 <p>Vaginal fluid came out of her pussy like shooting a water gun, and my dick was coated in vaginal fluid even though I hadn't put it inside her pussy.</p>
 <p>"Haa.... Haa.... Haaheuh.... Now, now.... Put it in, Yong-tae-ya."</p>
 <p>As Ha Ju-yoon said, I grabbed my dick with my hand and aligned it with Ha Ju-yoon's vaginal opening. My thick glans widened Ha Ju-yoon's narrow pussy and slowly went inside.</p>
@@ -65,7 +65,7 @@ chapter = 165
 <p>"Aren't you sorry to Yu-gyeong-a!?"</p>
 <p>"Heueungat! Haaht! I'm sorry, I'm sorry for being such a lewd mom♥"</p>
 <p>She's definitely a lewd mom, judging by what she's doing now. I sucked Ha Ju-yoon's slender, white neck. I don't know why, but I wanted to leave my mark on Ha Ju-yoon. Did I want to leave a mark on this maso-mom that she was mine? Even I couldn't understand my actions. I was just raping Ha Ju-yoon as I pleased, doing whatever came to mind because my reason was almost gone due to desire.</p>
-<p>"Haaheueut! No, no.... If it shows on my neck, no~!"</p>
+<p>"Haaheueut! No, no.... If it shows on my neck, no!"</p>
 <p>"You can just lie and say it's your husband."</p>
 <p>"Still.... Haaht! Yong-tae-yaa!"</p>
 <p>I moved my dick roughly so that Ha Ju-yoon couldn't say anything more. As I continued to stimulate her by hitting her cervix, Ha Ju-yoon, who had been resisting me sucking her neck until now, hugged my body tightly and trembled.</p>

@@ -67,7 +67,7 @@ chapter = 377
 <p>After looking at my phone and sending a line of encouragement to Kiyohira, the sun had already set.</p>
 <p>Kiyohira didn't know what I was suddenly talking about, but I just sent the line because I felt sorry for him for some reason. Should I say that I feel a bit sorry that his skills are similar to those of a high school girl like Kujo Kina...? I felt complicated. I hope Genbaki gets lucky and gets a good trait, but it'll be difficult.</p>
 <p>I heard we're having a barbecue in front of the villa for dinner. The staff will grill everything, so I can just go down and eat like at a buffet.</p>
-<p>,Sensei~! I was just about to call you, but you came at the right time."</p>
+<p>,Sensei! I was just about to call you, but you came at the right time."</p>
 <p>,I was lying in bed and lost track of time."</p>
 <p>Konoe Akina greeted me as she saw me coming down. Looking around, I saw that they had already piled up a mountain of meat, and the staff were grilling the meat non-stop. Next to them, there was an ice box filled with alcohol and drinks, and next to that, there was a swimming pool where some students were already floating around in their swimsuits.</p>
 <p>I've thought about this several times, but is this really a picnic? It just feels like a vacation for rich students. Well, maybe I'm too stuck in my stereotypes about picnics. This is probably what a picnic is like for St. Francis students.</p>

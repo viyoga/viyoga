@@ -265,7 +265,7 @@ Lith kissed her lips again but in a short peck. He moved to her neck and stopped
 
 
 
-“Mhm~”
+“Mhm”
 
 
 
@@ -475,7 +475,7 @@ The firm cherry in his mouth, the soft melons on his face, and the absolute perf
 
 
 
-“Mhm~ baby… no biting…”
+“Mhm baby… no biting…”
 
 
 
@@ -485,7 +485,7 @@ Lith bit her nipple harder.
 
 
 
-“Ah~~”
+“Ah”
 
 
 
@@ -505,7 +505,7 @@ He bit again.
 
 
 
-“Ah~~ naughty boy!”
+“Ah naughty boy!”
 
 
 
@@ -525,7 +525,7 @@ She stroked Lith’s cock faster.
 
 
 
-“Why are you being so mischi—ahh~, today…”
+“Why are you being so mischi—ahh, today…”
 
 
 
@@ -590,7 +590,7 @@ Lith sucked harder and pinched her other nipple with his fingers.
 
 
 
-“Mhm~”
+“Mhm”
 
 
 

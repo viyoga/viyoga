@@ -13,7 +13,7 @@ But he kept it aside for now and let go of Alea's hand.
 
 "Let's have a seat and talk." He said calmly.
 
-"Okay~" Alea was as cheerful as always despite the problem that occurred a while ago.
+"Okay" Alea was as cheerful as always despite the problem that occurred a while ago.
 
 As they took a seat, Mayzin's gaze was fixed on Lith and she was staring at him intensely, what was going on in her head, only she knew.
 

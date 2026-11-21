@@ -95,7 +95,7 @@ chapter = 12
 
 <p>Luis chuckled and said, &quot;Once we have our own place, we can fuck wherever we want. Unlike last night, when we had to act like thieves.&quot;</p>
 
-<p>Lily blushed and coquettishly said, &quot;You’re so annoying~ Last night, didn’t I do whatever you wanted?&quot;</p>
+<p>Lily blushed and coquettishly said, &quot;You’re so annoying Last night, didn’t I do whatever you wanted?&quot;</p>
 
 <p>Amid their intimate playfulness, the couple finished their wonderful meal. Holding hands, they went shopping at the mall and bought a lot of snacks before heading home.</p>
 
@@ -135,7 +135,7 @@ chapter = 12
 
 <p>As they kissed and cuddled, Luis’s cock was already painfully hard from holding her alluring body. With a light press of his hands, Lily knew what her husband wanted.</p>
 
-<p>Now too aroused to resist, she lay on the sofa, took off Luis’s pants, and removed her own tank top. Blushing, she said, &quot;Husband, you’re so big~ How am I supposed to take it?&quot;</p>
+<p>Now too aroused to resist, she lay on the sofa, took off Luis’s pants, and removed her own tank top. Blushing, she said, &quot;Husband, you’re so big How am I supposed to take it?&quot;</p>
 
 <p>&quot;Wife, when my mind is preoccupied and stressed, I might neglect you sometimes. But my needs have always been this big.&quot;</p>
 
@@ -171,7 +171,7 @@ chapter = 12
 
 <p>Worse, it seemed to have a temper, as if this high-level artificial intelligence had developed its own personality.</p>
 
-<p>&quot;Husband, don’t squeeze so hard~ Or I won’t have the strength~&quot;</p>
+<p>&quot;Husband, don’t squeeze so hard Or I won’t have the strength&quot;</p>
 
 <p>Lily’s breasts were very sensitive, and the kneading was almost too much for her. Moaning softly, she knelt between his legs, supporting his cock and sucking the head.</p>
 

@@ -20,7 +20,7 @@ chapter = 1959
 <p>He lifted his saber and brought it down across the pirate’s neck. The black blade cut through flesh and bone, striking the ice beneath with a sharp crack.</p>
 <p>The severed head rolled onto its cheek. Blood poured from the stump as the captain’s body jerked against the stone bindings.</p>
 <p>Vex wiped her sword on the pirate’s coat while Lucille rested her hammer against her shoulder.</p>
-<p>"What an epic first battle~" the Bloodmonger purred.</p>
+<p>"What an epic first battle" the Bloodmonger purred.</p>
 <p>Around the ship, the surviving raiders began dropping their weapons onto the ice.</p>
 <p>None were spared.</p>
 <p>...</p>

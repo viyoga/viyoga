@@ -30,12 +30,12 @@ chapter = 1102
 <p>"Ryuta-nim, are you all ready?"</p>
 <p>As I was wearing a dark Suit for the funeral and tying my necktie, Linxiang's Voice was heard from outside. Those accompanying me to the funeral today were my secretary Linxiang and my driver Tsukiyo.</p>
 <p>In fact, most of my core Subordinates were not affiliated with the Taira Group, so there was no particular Reason for them to attend today's funeral. Those with Work would do their own Work, and those who returned from the USA, because I gave them a few days of Vacation, would either rest or attend to personal matters.</p>
-<p>"Yeah, I'm done~!"</p>
+<p>"Yeah, I'm done!"</p>
 <p>I, having finished tying my necktie, answered Linxiang and opened the door to leave. As expected, for attending the funeral, Linxiang was also wearing a black Dress, and even though it was a black Dress that didn't reveal her Figure and had no particular Exposure, it suited her quite well.</p>
 <p>"Let's go down for now."</p>
 <p>"Yes."</p>
 <p>Although there was plenty of time, the car traffic was quite heavy during the last Taira competition, so we decided to leave a little early. There was no need to arrive late and attract attention.</p>
-<p>"Older Brother~!"</p>
+<p>"Older Brother!"</p>
 <p>Discovering me from afar in the Parking Lot, Tsukiyo was seen excitedly waving her Hand. Originally, Tsukiyo's driver attire was a dark Suit, so there was no need to prepare separate Clothes.</p>
 <p>Fujigasaki Rinka contacted me yesterday, and Fujigasaki Rinka decided to depart for Japan with Sajo-nim in a few days, so Tsukiyo would soon be able to meet her Sabu and Grandmaster.</p>
 <p>"As you know, today's schedule is Taira Kitsumasa's funeral. Taira Jiro's forces are expected to fully gather...."</p>
@@ -52,25 +52,25 @@ chapter = 1102
 <p>Of course, according to what I heard from Minamoto Risa, the Minamoto side was also not in a position to comfortably watch the Taira's succession competition. With a Woman named Minamoto Katsue, who possessed excellent Skill, entering Japan, predictions were continuing that the Minamoto side would also begin a succession competition. The fact that the deceased Taira Katsumasa did not achieve any particular results in Europe was also because of this Woman named Minamoto Katsue, so her Skill must be considerable.</p>
 <p>"There will be almost no one focusing on us at the funeral, so let's just observe how The Situation unfolds and act in a way that benefits us."</p>
 <p>"Understood. Still, since Yongtae-nim is so Tall and Handsome, there's no way he won't attract attention."</p>
-<p>"That's right~! Older Brother is handsome, so everyone will stare."</p>
+<p>"That's right! Older Brother is handsome, so everyone will stare."</p>
 <p>The two doting fools were saying the terrible Words that Yongtae-nim/Older Brother is handsome, so he will receive everyone's attention. Today, the war of nerves between Taira Jiro and the other succession competitors would be no joke, and if I received everyone's Gaze, that would also be a considerably big Problem.</p>
-<p>Only Taira Kanna would say, "Orabeoni, the funeral Suit suits you well too~!" but the other Taira Successors would definitely not think well of it. In fact, today's funeral had a slightly unsettling Reason. It was because Taira Kanna kept sending Text Messages like, "Orabeoni, I'll see you after a long time. I'm looking forward to it♥."</p>
+<p>Only Taira Kanna would say, "Orabeoni, the funeral Suit suits you well too!" but the other Taira Successors would definitely not think well of it. In fact, today's funeral had a slightly unsettling Reason. It was because Taira Kanna kept sending Text Messages like, "Orabeoni, I'll see you after a long time. I'm looking forward to it♥."</p>
 <p>Even when she was the Student Council President of St. Francis Girls' Academy, Taira Kanna had kidnapped me without hesitation, so there was a Possibility she would cause some Incident, regardless of whether the current Place was a funeral. Of course, it was highly possible it was just a Text Message saying she was looking forward to seeing me after a long time, but the Crazy Taira Kanna, who had a screw loose somewhere, always had to be watched carefully. Still, at this funeral, only Taira Kanna was someone to worry about, which was Fortunate. Surely there wouldn't be another Crazy Person, right?</p>
-<p>Christmas Special Illustration~!</p>
+<p>Christmas Special Illustration!</p>
 <p>Requested by TheDreaming-nim: 1. Alik in a Santa Hat 2. Taira Kisa as Rudolph</p>
 <p>1.</p>
 <p>2.</p>
-<p>Requested by JeongChucky-nim: 1. Home Economics Teacher as Santa Girl holding a Candy Sword~! 2. Simyeonui ttal, "I'm the Gift"~!</p>
+<p>Requested by JeongChucky-nim: 1. Home Economics Teacher as Santa Girl holding a Candy Sword! 2. Simyeonui ttal, "I'm the Gift"!</p>
 <p>1.</p>
 <p>Simyeonui ttal in Gift Wrapping</p>
-<p>You requested "Abyss Princess," so I made it Simyeonui ttal, who is the closest~!</p>
-<p>Requested by Hwanbuljeoldaebulga-nim: Lisa in a Santa Bikini with armpit Exposure, Home Economics Teacher~!</p>
-<p>Home Economics Teacher~!</p>
-<p>Requested by Meokguja-nim: Ryuta in Rudolph makeup~!</p>
-<p>Requested by Gojoy-nim: Taira Camilla's Ordinary Santa Attire, Sexy Santa Attire~!</p>
+<p>You requested "Abyss Princess," so I made it Simyeonui ttal, who is the closest!</p>
+<p>Requested by Hwanbuljeoldaebulga-nim: Lisa in a Santa Bikini with armpit Exposure, Home Economics Teacher!</p>
+<p>Home Economics Teacher!</p>
+<p>Requested by Meokguja-nim: Ryuta in Rudolph makeup!</p>
+<p>Requested by Gojoy-nim: Taira Camilla's Ordinary Santa Attire, Sexy Santa Attire!</p>
 <p>Ordinary?</p>
 <p>Her Figure itself is Erotic, so it doesn't feel Ordinary hehehe</p>
-<p>Sexy Santa~!</p>
-<p>Requested by Gojoy-nim: Chapter 58 Illustration Remake~!</p>
+<p>Sexy Santa!</p>
+<p>Requested by Gojoy-nim: Chapter 58 Illustration Remake!</p>
 <p>1.</p>
 <p>2.</p>

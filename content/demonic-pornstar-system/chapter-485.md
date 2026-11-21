@@ -11,7 +11,7 @@ chapter = 485
 <p>Six hundred points gained from less than ten minutes of carnage.</p>
 <p>’Holy crap...’</p>
 <p>"... Having high-level invaders show up might actually be insanely profitable," he muttered. "As long as you manage not to die horribly, I guess."</p>
-<p>Calypso hummed, pleased. "The danger-to-profit ratio is perfect~"</p>
+<p>Calypso hummed, pleased. "The danger-to-profit ratio is perfect"</p>
 <p>He ignored the seductive lilt, barely, and focused as a new text box flickered into existence.</p>
 <p>A remnant of the demonic pornstar system that was now fused with his dungeon interface, or rather, devoured it.</p>
 <p>Then his focus moved on to something else. A new feature.</p>
@@ -69,7 +69,7 @@ chapter = 485
 <p>Kaiden exhaled.</p>
 <p>"Yeah. This is definitely different."</p>
 <p>Calypso’s voice drifted faintly to his ears. Even though he wasn’t mentally beside her, he could hear her sensually seductive voice.</p>
-<p>"Darling~ Are you planning something~? Tell me! I’m too excited..."</p>
+<p>"Darling Are you planning something? Tell me! I’m too excited..."</p>
 <p>Kaiden smiled faintly as he ignored her for now and let the creation-mode vision sharpen into perfect clarity as rows of sleek menus unfolded before his mind’s eye.</p>
 <p>[Dungeon Management - Shop]</p>
 <p>Tabs opened like the pages of a divine grimoire:</p>

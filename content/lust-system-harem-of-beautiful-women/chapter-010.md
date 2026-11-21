@@ -9,7 +9,7 @@ chapter = 10
 
 <p>Their joined parts were now exposed right in front of his mother-in-law. Then he lowered his head to kiss his wife’s small mouth, held her shoulders, and thrust his hips forward, driving his hard cock deep into her pussy again and again.</p>
 
-<p>&quot;Ah~ husband... you’re fucking me so hard~!!&quot;</p>
+<p>&quot;Ah husband... you’re fucking me so hard!!&quot;</p>
 
 <p>In the pitch-black master bedroom, the sound of heavy breathing was chaotic yet faint. Ruth peeked through the door crack, her eyes wide open, staring unblinkingly at the scene.</p>
 
@@ -23,9 +23,9 @@ chapter = 10
 
 <p>The sound of flesh slapping against flesh was crisp and loud, accompanied by a rhythm that resembled splashing water, all at a rapid pace. Combined with her daughter’s satisfied moans echoing through the room, each sound clawed at Ruth’s heart, making her breath quicken and her body restless. She crossed her legs uneasily, realizing her panties were already soaked.</p>
 
-<p>&quot;Ah~... husband, you’re so amazing, you’re fucking me to death, so hard~...&quot;</p>
+<p>&quot;Ah... husband, you’re so amazing, you’re fucking me to death, so hard...&quot;</p>
 
-<p>&quot;You’re thrusting too deep, I can’t take it~... you’re fucking me to pieces~!!&quot;</p>
+<p>&quot;You’re thrusting too deep, I can’t take it... you’re fucking me to pieces!!&quot;</p>
 
 <p>Encouraged by Luis and lost in the throes of lust, Lily no longer held back her moans, crying out in pleasure.</p>
 
@@ -33,7 +33,7 @@ chapter = 10
 
 <p>Just listening to these lewd sounds reverberating through the living room made Ruth feel her blood heat up, her entire body unbearably restless.</p>
 
-<p>&quot;Husband~... I’m coming again, I’m coming again~!&quot;</p>
+<p>&quot;Husband... I’m coming again, I’m coming again!&quot;</p>
 
 <p>After being licked to two orgasms and fucked to two more in the missionary position, Lily felt like she was going insane. She had never imagined sex could feel this incredible.</p>
 
@@ -49,7 +49,7 @@ chapter = 10
 
 <p>But then Luis slowly pulled his cock out. The moment it slipped free, it twitched. Ruth’s first thought was, How is it still so hard after cumming?</p>
 
-<p>&quot;Husband, you haven’t cum yet~...?&quot;</p>
+<p>&quot;Husband, you haven’t cum yet...?&quot;</p>
 
 <p>Lily moaned weakly, her words striking Ruth like a thunderbolt. How is that possible?</p>
 
@@ -57,7 +57,7 @@ chapter = 10
 
 <p>Then, Luis picked Lily up in a princess carry and said with a smirk, &quot;Wife, let’s go to Mom’s room and continue!&quot;</p>
 
-<p>&quot;Eek, no~! What if we get caught? Let’s just go back to our room, okay?&quot;</p>
+<p>&quot;Eek, no! What if we get caught? Let’s just go back to our room, okay?&quot;</p>
 
 <p>With her shy and timid personality, combined with her mother’s domineering presence, Lily was naturally nervous.</p>
 
@@ -73,65 +73,65 @@ chapter = 10
 
 <p>Of course, he couldn’t let his wife notice, or she’d die of embarrassment. After climbing onto the bed, he adjusted their position so Lily’s back was facing the curtains.</p>
 
-<p>&quot;Husband, it’s so hard... like iron~!&quot;</p>
+<p>&quot;Husband, it’s so hard... like iron!&quot;</p>
 
-<p>Luis sat boldly on the bed while Lily knelt upright, taking his cock into her mouth and sucking eagerly. Her face flushed as she looked up at her husband with adoration, murmuring drunkenly, &quot;Husband~... how much longer are you going to fuck me~...&quot;</p>
+<p>Luis sat boldly on the bed while Lily knelt upright, taking his cock into her mouth and sucking eagerly. Her face flushed as she looked up at her husband with adoration, murmuring drunkenly, &quot;Husband... how much longer are you going to fuck me...&quot;</p>
 
-<p>&quot;Suck it properly first. There’s more for you to enjoy later~.&quot;</p>
+<p>&quot;Suck it properly first. There’s more for you to enjoy later.&quot;</p>
 
 <p>Luis grinned smugly.</p>
 
 <p>Looking down at his stunningly beautiful wife kneeling and sucking his cock, her red lips wrapped around his shaft, submissive as a slave, any man would be satisfied.</p>
 
-<p>Lily was already fucked into exhaustion. After sucking for a while, she was clearly tired. Luis signaled for her to turn around and said, &quot;Wife, I’ll take you from behind. You love this position, right~...&quot;</p>
+<p>Lily was already fucked into exhaustion. After sucking for a while, she was clearly tired. Luis signaled for her to turn around and said, &quot;Wife, I’ll take you from behind. You love this position, right...&quot;</p>
 
-<p>As he spoke, his fingers brushed her lips, and Lily sucked on them, moaning drunkenly, &quot;Mhm~... like that... like a little bitch, you fuck me so deep~...&quot;</p>
+<p>As he spoke, his fingers brushed her lips, and Lily sucked on them, moaning drunkenly, &quot;Mhm... like that... like a little bitch, you fuck me so deep...&quot;</p>
 
 <p>Then she turned around on her own, raising her peach-like ass for her husband to enjoy, her face dazed with anticipation for the coming storm.</p>
 
-<p>Luis stepped forward, rubbing the head of his cock against her slit, making her moan. Excited, he said, &quot;Wife, look at Mom’s clothes and lingerie... they’re so sexy~...&quot;</p>
+<p>Luis stepped forward, rubbing the head of his cock against her slit, making her moan. Excited, he said, &quot;Wife, look at Mom’s clothes and lingerie... they’re so sexy...&quot;</p>
 
 <p>Lily was conservative and insecure, always dressing plainly, even her underwear was dull—a tragedy compared to her mother.</p>
 
 <p>Lily instinctively glanced at her mother’s open closet. The nightgowns inside were shorter than hers, the lingerie had lace and cutouts, and there were even thongs...</p>
 
-<p>&quot;Eek, why are you talking about that~... ah~!!&quot;</p>
+<p>&quot;Eek, why are you talking about that... ah!!&quot;</p>
 
 <p>Lily’s words immediately turned into moans as Luis grabbed her waist and thrust forward hard, his cock returning to its familiar territory, instantly enveloped by her tight, wet heat.</p>
 
 <p>The sound of flesh slapping against flesh echoed through the bedroom again, fast and relentless. From Ruth’s angle, she could clearly see how her daughter was moaning like a bitch under her son-in-law’s thrusts.</p>
 
-<p>&quot;Next time we fuck, wear your mom’s lingerie~...&quot;</p>
+<p>&quot;Next time we fuck, wear your mom’s lingerie...&quot;</p>
 
-<p>&quot;Eek, no~... what are you thinking~...&quot;</p>
+<p>&quot;Eek, no... what are you thinking...&quot;</p>
 
-<p>&quot;To look sexier~... it’ll make your husband even more excited~...&quot;</p>
+<p>&quot;To look sexier... it’ll make your husband even more excited...&quot;</p>
 
-<p>&quot;Hubby, you’re such a pervert~... do you have thoughts about Mom~...&quot;</p>
+<p>&quot;Hubby, you’re such a pervert... do you have thoughts about Mom...&quot;</p>
 
 <p>&quot;Of course not, don’t talk nonsense!!!&quot;</p>
 
-<p>&quot;I don’t believe you~... Mom’s boobs are so big, you and Brother-in-law are always sneaking looks~...&quot;</p>
+<p>&quot;I don’t believe you... Mom’s boobs are so big, you and Brother-in-law are always sneaking looks...&quot;</p>
 
 <p>Lily, who had always been conservative and rarely moaned beyond soft whimpers, had now completely fallen into depravity under her husband’s guidance.</p>
 
 <p>The safety of their private world and the overwhelming pleasure of lust made her let go, whispering dirty talk with her husband. She never imagined her mother could hear everything.</p>
 
-<p>&quot;Stupid husband~... you must be, talking about Mom’s boobs~... you’re even harder now, ah~...&quot;</p>
+<p>&quot;Stupid husband... you must be, talking about Mom’s boobs... you’re even harder now, ah...&quot;</p>
 
-<p>&quot;Ah~... perverted husband~... really~...&quot;</p>
+<p>&quot;Ah... perverted husband... really...&quot;</p>
 
 <p>Lily’s moans grew more intense because Luis, now thoroughly stimulated, suddenly reached forward to roughly grope her sensitive breasts while thrusting his cock deep into her with each powerful slam.</p>
 
 <p>Every thrust buried him to the hilt, each one making Lily cry out as if in pain, now unable to form words.</p>
 
-<p>&quot;I can’t hold back anymore~...&quot;</p>
+<p>&quot;I can’t hold back anymore...&quot;</p>
 
 <p>Finally, Luis couldn’t take it anymore. He pressed his body tightly against hers, the head of his cock swelling as it pressed against her cervix.</p>
 
 <p>As his slit opened, thick, hot cum shot deep into her wonderful body.</p>
 
-<p>&quot;Ah~!!&quot;</p>
+<p>&quot;Ah!!&quot;</p>
 
 <p>Already overstimulated and having lost count of her orgasms, Lily convulsed violently at the scalding sensation, nearly passing out. Her body was drenched as if she’d been pulled from water.</p>
 
@@ -141,7 +141,7 @@ chapter = 10
 
 <p>The moment the door closed, Ruth’s legs gave out, and she slumped to the floor.</p>
 
-<p>&quot;That little beast, who knew he was so strong~!!&quot;</p>
+<p>&quot;That little beast, who knew he was so strong!!&quot;</p>
 
 <p>Ruth checked the time—over half an hour, all of it high-intensity thrusting. It was practically animalistic.</p>
 

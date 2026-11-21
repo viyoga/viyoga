@@ -6,15 +6,15 @@ chapter = 41
 +++
 
 <p>-Ah, so Kazu-chan scored, you know? He was totally on fire that day, it was amazing.</p>
-<p>,I also watched Smith-ssi's goal highlights on YouTube. Congrats~!,</p>
+<p>,I also watched Smith-ssi's goal highlights on YouTube. Congrats!,</p>
 <p>Gokado Hanako was on a date with Honjo Tokiatsu, and while Honjo Tokiatsu was away for a moment, she was talking on the phone with her friend Kagawa Umi.</p>
 <p>-Oh, right. Taira Ryuta-gun got a girlfriend, you know?</p>
 <p>,Oh, really?,</p>
 <p>Gokado Hanako acted like she didn't care when Kagawa Umi told her this, saying "Oh, really?" but when Taira Ryuta's name came up, her heart ached a little. And just like Pavlov's dog salivating at the sound of a bell, hearing Taira Ryuta's name made her pussy tingle.</p>
 <p>-I think she's a model. She seems to be American, and she's super pretty. Did Ryuta-gun hook up with such a beauty because he's handsome too? Well, Kazu-chan is much more my type, hohoho!</p>
 <p>,Hanako-chan, I'm back.,</p>
-<p>,Ah, Toki-chan's here. Talk to you later~!,</p>
-<p>-Okay! Have a good date~!</p>
+<p>,Ah, Toki-chan's here. Talk to you later!,</p>
+<p>-Okay! Have a good date!</p>
 <p>Honjo Tokiatsu, who had briefly left to submit something to the school before the date started, returned. The Gokado Hanako and Honjo Tokiatsu couple had been in a cold war after Gokado Hanako's Driver's license camp, because Honjo Tokiatsu had dinner and drinks with their childhood friend, Yamana Mikuni, without telling her.</p>
 <p>Gokado Hanako criticized Honjo Tokiatsu for having dinner and drinks without telling her, while he restricted her so much, and Honjo Tokiatsu admitted his double standards and said he wouldn't restrict her anymore.</p>
 <p>After that, the two got along again and started dating every few days again, and today was a date day. Because they matched their Thursday schedules similarly, the Gokado Hanako and Honjo Tokiatsu couple always dated on Thursdays and weekends. Of course, there were many times when they skipped it if they were busy, but they mainly met on Thursdays and weekends.</p>
@@ -32,7 +32,7 @@ chapter = 41
 <p>,Hanako?,</p>
 <p>,Get undressed quickly, Toki-chan.,</p>
 <p>Honjo Tokiatsu was unable to adapt to Gokado Hanako, who had become sexier after attending the camp Driver's license academy recently. Before, she was a girlfriend who had gentle sex that seemed to warmly embrace him, but after attending the camp Driver's license academy, she became more animalistic.... She changed to pursue more pleasure. Of course, being this proactive wasn't bad, but the downside was that it was overwhelming to keep up with.</p>
-<p>,Haaang~! Hiaaang!!!,</p>
+<p>,Haaang! Hiaaang!!!,</p>
 <p>Gokado Hanako, who laid Honjo Tokiatsu down on the bed, put on a condom, and then rode him like a horse, shaking her hips excitedly in a cowgirl position. Honjo Tokiatsu was like, "Ugh... ugh..." and couldn't stand it for even 3 minutes before he ejaculated.</p>
 <p>,Ugh... I'm coming!,</p>
 <p>,Heua...? Already?,</p>

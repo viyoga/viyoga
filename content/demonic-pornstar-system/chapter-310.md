@@ -31,7 +31,7 @@ chapter = 310
 <p>Kaiden didn’t even know what to say. Nyx was right, and she knew it.</p>
 <p>The Space Valkyrie leaned into her bindings, lifting her chin with imperious grace even while utterly vulnerable. "My little gremlin bestie might like to call me a cuck for loving it when you play with the others..." Her voice dipped. "But don’t you dare mistake me for a background character." Her eyes glinted, competitive fire burning hot behind the amusement. "I am a player, Kai. A very big player."</p>
 <p>Her body arched, emphasizing every bound curve, every glint of smooth skin under the light. "I refuse to be outshone by the others. Even my dearest friends. Especially my dearest friends. So tonight, I’ll charm your heart and earn the number one spot in one perfect swoop. By being the first girl who gives you her anal virginity... and takes your first time too."</p>
-<p>The smug little giggle that followed was pure Nyx, taunting yet so unbearably sweet. "Hehehe~ They’ll be so mad once they realize what happened!"</p>
+<p>The smug little giggle that followed was pure Nyx, taunting yet so unbearably sweet. "Hehehe They’ll be so mad once they realize what happened!"</p>
 <p>And then she dropped the bomb with her smile widening devilishly.</p>
 <p>"Oh... and by the way? I’m streaming. A whole bunch of girls are waiting with bated breath for your response, Kai."</p>
 <p>To punctuate it, she gave her ass another wiggle. The supple flesh quivered under the motion.</p>

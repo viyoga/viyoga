@@ -11,7 +11,7 @@ chapter = 172
 
 <p>Water began to fall down her body, dripping into the deep valley of her large, snowy breasts and down her shapely hips, slowly sweeping away the sweat and dirt that soaked her skin.</p>
 
-<p>“Nghnn~~” She gasped as a pair of powerful hands grabbed her from behind, their fingers trailing down her slim, soft belly before moving up to her large breasts.</p>
+<p>“Nghnn” She gasped as a pair of powerful hands grabbed her from behind, their fingers trailing down her slim, soft belly before moving up to her large breasts.</p>
 
 <p>“What makes master so anxious?” Qingyi asked, pressing her lips against Qingxue’s neck in a soft kiss.</p>
 
@@ -81,7 +81,7 @@ chapter = 172
 
 <p>“And besides, it’s not like you’re not going to compensate me.”</p>
 
-<p>“Nghhn~~ What do you mean by compensate?” Qingxue blushed deeply in Qingyi’s arms.</p>
+<p>“Nghhn What do you mean by compensate?” Qingxue blushed deeply in Qingyi’s arms.</p>
 
 <p>“What do you think?” Qingyi laughed provocatively, his already stiff member rising up and pressing against the soft, fat mound that hid the pink interior of Qingxue’s pussy.</p>
 
@@ -89,7 +89,7 @@ chapter = 172
 
 <p>With a soft sigh, she took it in her mouth, her soft pink tongue pressing against the base as her inexperienced throat tried to swallow it.</p>
 
-<p>“Mmm~” It wasn’t long before she got the hang of it, her cheeks sinking as she sucked her disciple’s member eagerly, her head moving, retreating almost to the tip before swallowing it all again.</p>
+<p>“Mmm” It wasn’t long before she got the hang of it, her cheeks sinking as she sucked her disciple’s member eagerly, her head moving, retreating almost to the tip before swallowing it all again.</p>
 
 <p>“Master learns quickly. Do you know how long it took Feiyan to do that?” Qingyi stroked Qingxue’s long silver hair, her cheeks turning even rosier.</p>
 
@@ -97,9 +97,9 @@ chapter = 172
 
 <p>Qingxue continued to suck Qingyi’s cock until she felt it pulsing in her throat, a soft grunt escaping the handsome young man’s lips as he released an explosion of cum into his master’s mouth.</p>
 
-<p>“Glup~ Glup~” Qingxue tried to swallow as much as she could, but in the end she had to pull back, great gushes of cum hitting her face and covering her with the hot, viscous liquid that soon oozed over her pale, large tits.</p>
+<p>“Glup Glup” Qingxue tried to swallow as much as she could, but in the end she had to pull back, great gushes of cum hitting her face and covering her with the hot, viscous liquid that soon oozed over her pale, large tits.</p>
 
-<p>“Nghnn~~ Ah! You shameless disciple, do you really have no respect for your master?” she gasped, swallowing one last gulp of Qingyi’s cum.</p>
+<p>“Nghnn Ah! You shameless disciple, do you really have no respect for your master?” she gasped, swallowing one last gulp of Qingyi’s cum.</p>
 
 <p>“The master was the one who got down on her knees. We could have done it many different ways,” Qingyi reminded her, making her shudder softly.</p>
 

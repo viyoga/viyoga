@@ -57,7 +57,7 @@ chapter = 468
 <p>Ethan sighed, his fingers clenching tighter around Carmilla’s hips. They sank into the cool, soft flesh of her waist, leaving faint dimples in her pale skin, but his thrusts never lost their rhythm.</p>
 <p>“What’s wrong, my husband?” she asked, leaning down over him, her golden hair spilling around them like a curtain. Her breasts swung forward with the motion, heavy and warm, grazing his chest.</p>
 <p>“Apparently that pig at the cathedral in the capital of the Kingdom of the Burning Ice has actually declared a crusade against me,” he said, drawing a low giggle out of her.</p>
-<p>“Fufufu~ Well… that was to be expected.” She shook her head, red eyes glinting in the dark. “Beheading him wasn’t enough, apparently… This time, I’ll turn that son of a bitch into dust.”</p>
+<p>“Fufufu Well… that was to be expected.” She shook her head, red eyes glinting in the dark. “Beheading him wasn’t enough, apparently… This time, I’ll turn that son of a bitch into dust.”</p>
 <p>Ethan smiled and brought his palm down on one of her buttocks with a sharp slap.</p>
 <p>His eyes drifted back to the second-to-last line of that system notification.</p>
 <p>A unique heroine accompanying a crusade.</p>

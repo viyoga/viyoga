@@ -120,7 +120,7 @@ chapter = 23
 <p>Was it not a given that she should feel a bit lighter after spitting out everything that was stockpiled in her chest?</p>
 <p>'What will he think? What will he say? Will he be disgusted? disappointed?'</p>
 <p>"I see. Teacher is truly a worthless slothful and without any redeeming features."</p>
-<p>'Ah~! So this is it.'</p>
+<p>'Ah! So this is it.'</p>
 <p>Her heart felt a pain never before felt, even the betrayal of Jupiter didn't feel as painful as the words spoken by Sol.</p>
 <p>"But– So what?"</p>
 <p>'What?'</p>

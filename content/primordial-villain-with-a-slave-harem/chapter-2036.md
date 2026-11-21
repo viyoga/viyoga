@@ -81,7 +81,7 @@ chapter = 2036
 <p>Sera waved to the visitors and came inside with Lyra and Aurora. Morgana followed after setting down the basket, only for Sera to shut the door in her face.</p>
 <p>A moment later, the former queen opened it again.</p>
 <p>"..."</p>
-<p>Sera smiled sweetly at her. "Oh! There you are~"</p>
+<p>Sera smiled sweetly at her. "Oh! There you are"</p>
 <p>Morgana stepped inside and closed the door behind herself.</p>
 <p>From a long table near the windows came a girl’s indignant protest.</p>
 <p>"It was falling apart! I had to eat it!"</p>

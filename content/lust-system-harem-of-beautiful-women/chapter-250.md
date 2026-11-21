@@ -39,11 +39,11 @@ chapter = 250
 
 <p>Lily held her husband, her gaze filled with deep affection, her face radiant with love and intoxication. She simply didn’t know what words could adequately describe her happiness.</p>
 
-<p>Luis embraced his delicate wife’s body, his hands roaming freely, then teased her in a joking manner, &quot;If you feel shortchanged, well, maybe we could have your eldest sister repay with her body~ After all, your husband is a major lecher.&quot;</p>
+<p>Luis embraced his delicate wife’s body, his hands roaming freely, then teased her in a joking manner, &quot;If you feel shortchanged, well, maybe we could have your eldest sister repay with her body After all, your husband is a major lecher.&quot;</p>
 
 <p>&quot;Hmph, I knew it!&quot;</p>
 
-<p>Lily actually began pondering this seriously, her expression even showing a hint of excitement as she said, &quot;Husband, I think that’s not a bad idea either~ My eldest sister is such a beauty with such a great figure. What’s wrong with letting my husband have a taste?&quot;</p>
+<p>Lily actually began pondering this seriously, her expression even showing a hint of excitement as she said, &quot;Husband, I think that’s not a bad idea either My eldest sister is such a beauty with such a great figure. What’s wrong with letting my husband have a taste?&quot;</p>
 
 <p>&quot;She spends my husband’s money and is supported by my husband. Her brother-in-law treats her far better than her own husband does. That qualifies him to have her serve him.&quot;</p>
 

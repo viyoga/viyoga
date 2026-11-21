@@ -49,7 +49,7 @@ chapter = 483
 <p>But it wasn’t the only thing that started to ’pop up’...</p>
 <p>Somehow... Kaiden couldn’t exactly fault the woman any longer.</p>
 <p>Calypso’s eyes glimmered with that "I heard everything your body just said" confidence only a demoness girlfriend could pull off. She leaned in, so close her hot breath washed over his ear, and whispered:</p>
-<p>"Anytime, anywhere. Just say the word, and I’m all yours, Darling~"</p>
+<p>"Anytime, anywhere. Just say the word, and I’m all yours, Darling"</p>
 <p>A shiver shot down his spine.</p>
 <p>He gulped hard, loud enough for Bastet to flick a feline ear, and forced his brain to snap back into professional mode. Now was not the time... This was the first time their dungeon was invaded; they couldn’t relax so freely. It would be incredibly reckless to do so.</p>
 <p>Thus, before Calypso’s hand could continue its adventurous journey south (again), he caught her fingers and held them still.</p>

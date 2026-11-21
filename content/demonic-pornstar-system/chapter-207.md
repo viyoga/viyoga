@@ -83,5 +83,5 @@ chapter = 207
 <p>"... What?" Damian didn’t know how to take that response.</p>
 <p>Kaiden’s voice remained level. Unapologetic. But also, not defensive.</p>
 <p>"If I didn’t exist, your sister’s life would be different. Vastly so. Maybe better. Maybe worse. No one can say for sure."</p>
-<p>Bastet spoke up suddenly. "But Master~ Didn’t we just delete all of Aria’s content from the weird web thing-"</p>
+<p>Bastet spoke up suddenly. "But Master Didn’t we just delete all of Aria’s content from the weird web thing-"</p>
 <p>"Don’t," Kaiden cut in.</p>

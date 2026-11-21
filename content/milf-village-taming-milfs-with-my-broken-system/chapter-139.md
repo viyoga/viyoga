@@ -67,7 +67,7 @@ chapter = 139
 
 <p>&quot;Mom, please open up! I’m back!&quot;</p>
 
-<p>&quot;Coming, sweetie~!&quot; her warm, sweet voice called out from inside, sounding instantly awake and cheerful.</p>
+<p>&quot;Coming, sweetie!&quot; her warm, sweet voice called out from inside, sounding instantly awake and cheerful.</p>
 
 <p>’Heh, so you didn’t feel tired waiting up for me at all, Mom...’ Owen grinned as the lock clicked.</p>
 

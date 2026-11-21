@@ -6,7 +6,7 @@ chapter = 365
 +++
 
 <p>However, Iris' childhood was truly cursed, evidenced by the next event in her life which saw Gilbert approaching her cell with a tray of warm food and a jovial smile plastered across his evil features.</p>
-<p>"~Happy birthday to you, happy birthday to you…~" He began singing merrily as he made some dance moves. "Happy thirteenth birthday, my daughter. You're a teenager now! Let's celebrate this occasion by skipping today's lectures." Gilbert stated as he placed a plate into her cell.</p>
+<p>"Happy birthday to you, happy birthday to you…" He began singing merrily as he made some dance moves. "Happy thirteenth birthday, my daughter. You're a teenager now! Let's celebrate this occasion by skipping today's lectures." Gilbert stated as he placed a plate into her cell.</p>
 <p>Instead of a cake, it was filled with meat and rice. He brought a chair to place it facing her cell and plopped down on it, then began happily eating from the second plate which was filled with the same meal.</p>
 <p>Iris didn't know where to place this strange occurrence. Thus far, she'd never been served warm meals by this horrible man.</p>
 <p>Alarms instantly went off in my head, knowing full well that she should not touch this offering, but Iris was still a naive child who was robbed of the opportunities to develop her brain. After all, she'd been depressed since two years of age, and imprisoned since four. The only person she could talk with was her torturer, but she refused to converse with him completely.</p>

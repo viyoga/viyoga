@@ -20,11 +20,11 @@ chapter = 93
 <p>"Where did you find this woman? And why the hell are we taking her with us?"</p>
 <p>Jason allowed his jovial expression to even out into a look of seriousness and he narrowed his eyes and stared ahead while talking.</p>
 <p>"I found her when I was clearing out an orange gate."</p>
-<p>Screech~!</p>
+<p>Screech!</p>
 <p>For a split second, Gina lost control of the car when she heard what Jason just said, but she was sharp enough to catch the car and bring it back under her control before anything could happen! She turned to Jason with wide-eyed shock and told him to repeat that!</p>
 <p>"You what!?"</p>
 <p>"I was clearing out an orange gate and I saved her life."</p>
-<p>"Jason... just sigh~ Just start from the beginning. Please. This is going right over my head. I can’t really understand what you’re telling me. What do you mean you went into an orange gate? There weren’t any announcements on the SMD website. And you’re saying you found her in there and brought her back? Doesn’t that mean that she’s a Magical Beast?"</p>
+<p>"Jason... just sigh Just start from the beginning. Please. This is going right over my head. I can’t really understand what you’re telling me. What do you mean you went into an orange gate? There weren’t any announcements on the SMD website. And you’re saying you found her in there and brought her back? Doesn’t that mean that she’s a Magical Beast?"</p>
 <p>Jason frowned. He knew that explaining things would be difficult. Especially since Gina had been a part of the superhuman world for far longer than he had. Gina had been working as a superhuman for the better part of five years now. She had close to twenty Gate Dives under her belt and a concrete understanding of Gates, Magical Crystals, and Magical Beasts.</p>
 <p>If Jason told her the truth that his father had told him, then it would change a lot of the things that she thought were true. But he knew that he couldn’t leave her in the dark, especially if he wanted her help with all of this.</p>
 <p>"Alright. I need you to just listen to everything that I have to say. It’ll sound crazy and you probably wouldn’t believe any of it right away, but just listen, alright?"</p>

@@ -9,7 +9,7 @@ chapter = 86
 
 <p>&quot;I-it’s not, just as I said. It was for research purposes!! Ahnn!!..&quot;</p>
 
-<p>&quot;Research... of course. Then let’s do some research stuff again today, Mom~.&quot;</p>
+<p>&quot;Research... of course. Then let’s do some research stuff again today, Mom.&quot;</p>
 
 <p>One minute had already passed a long time ago... yet she was still showing it to him like her fruit waiting to be plucked.</p>
 
@@ -23,7 +23,7 @@ chapter = 86
 
 <p>&quot;Ahn... ahnn... n-no, it’s already been minutes, so we should s-stop now...&quot;</p>
 
-<p>&quot;Yet you are still showing it in front of me, Mom~?&quot;</p>
+<p>&quot;Yet you are still showing it in front of me, Mom?&quot;</p>
 
 <p>&quot;Ahnn... It’s because you are spoiled... ahhn...&quot;</p>
 
@@ -33,7 +33,7 @@ chapter = 86
 
 <p>’Or else... I will make a mess again... ahnn...’</p>
 
-<p>&quot;How about we do the deed right now, Mom~?&quot;</p>
+<p>&quot;How about we do the deed right now, Mom?&quot;</p>
 
 <p>&quot;Ahnn no, you said you only wanted to look... no other thing... ahnn...&quot;</p>
 
@@ -65,7 +65,7 @@ chapter = 86
 
 <p>She was clearly perverted, but she couldn’t say it out loud. She was a certified, shy, perverted mom who was completely wild when it was LIGHTS OFF.</p>
 
-<p>&quot;It’s already been 3 minutes, Mom~. How about I rub my cock... I won’t do anything other than that...&quot;</p>
+<p>&quot;It’s already been 3 minutes, Mom. How about I rub my cock... I won’t do anything other than that...&quot;</p>
 
 <p>&quot;Ahhnn... h-how did things come to this...?&quot;</p>
 

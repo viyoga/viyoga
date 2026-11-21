@@ -47,7 +47,7 @@ chapter = 737
 
 <p>The two women shuddered in his grasp, soft moans escaping their throats as delicate fingers climbed up to rest on his shoulders.</p>
 
-<p>“nghnn~~ Looks like hubby’s already dying of anticipation for a little fun, fufufu~” Feiyan gave a teasing giggle, her hands rising to grasp her own breasts, pulling the white cups covering her nipples downward.</p>
+<p>“nghnn Looks like hubby’s already dying of anticipation for a little fun, fufufu” Feiyan gave a teasing giggle, her hands rising to grasp her own breasts, pulling the white cups covering her nipples downward.</p>
 
 <p>Biyue acted with a bit more shyness, her cheeks flushing a delicate pink, but in the end she did the same, and the tiny bikini covering her breasts soon slid to the floor.</p>
 
@@ -75,7 +75,7 @@ chapter = 737
 
 <p>Without hesitation, he moved to Biyue, his lips taking her nipple with equal hunger.</p>
 
-<p>“nghn~~ h-husband~” Biyue moaned, clutching one of Qingyi’s black horns while Feiyan grabbed the other.</p>
+<p>“nghn h-husband” Biyue moaned, clutching one of Qingyi’s black horns while Feiyan grabbed the other.</p>
 
 <p>Both women arched their backs, pushing their bodies forward, offering themselves even more.</p>
 
@@ -91,7 +91,7 @@ chapter = 737
 
 <p>Pop</p>
 
-<p>“Aghn~~”</p>
+<p>“Aghn”</p>
 
 <p>The nipple slipped from Qingyi’s lips and the breast bounced heavily against Biyue’s delicate chest.</p>
 

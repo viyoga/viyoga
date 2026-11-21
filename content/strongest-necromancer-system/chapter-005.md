@@ -44,7 +44,7 @@ chapter = 5
 <p>"Get up and follow me."</p>
 <p>Jason spoke to the boys around him in a quiet tone as he started to head to the side quietly. The boys were still moaning on the floor, and one of them groaned as his stomach pain got really bad. Jason turned to him with a frustrated look on his face.</p>
 <p>"Stop bitching and get up! I didn't even hit you that hard, you fucking pussy!"</p>
-<p>Growl~!</p>
+<p>Growl!</p>
 <p>The growl of a beast reached Jason's ear at the next moment, and he froze in place like a deer in headlights! The sound of steps coming closer echoed through the forest, and Jason immediately knew that Magic beasts were coming towards them!</p>
 <p>Jason whispered to the boys!</p>
 <p>"Hey, get up! Get up and move!"</p>

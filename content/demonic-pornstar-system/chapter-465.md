@@ -11,7 +11,7 @@ chapter = 465
 <p>Nyx and Luna sat cross-legged on the floor with their hands hovering above each other.</p>
 <p>"Ready?" Nyx asked, eyes sparkling with mischief.</p>
 <p>Luna cracked her knuckles. "You’re so going to cry."</p>
-<p>"We’ll see, stormy bestie~"</p>
+<p>"We’ll see, stormy bestie"</p>
 <p>Nyx placed her palms over Luna’s. "The game begins when I count to one. If I manage to pull my hands back without them getting touched, I win. If you manage to touch my hands, you win. After each round, we switch. Ready?"</p>
 <p>This was a bit of a different version of the game played by most in the world, focused on having only one chance to strike instead of infinite.</p>
 <p>"Ready," Luna nodded.</p>
@@ -65,7 +65,7 @@ chapter = 465
 <p>Luna’s gaze softened in utmost agreement. "No. He’s so much more than that."</p>
 <p>Nyx looked at her hand one more time, still throbbing.</p>
 <p>Then she sighed. "You still hit like a sociopath."</p>
-<p>"This is what we call a skill issue, bestie~" Luna grinned.</p>
+<p>"This is what we call a skill issue, bestie" Luna grinned.</p>
 <p>"Hmph."</p>
 <p>...</p>
 <p>On the bench in the back, things were calmer.</p>

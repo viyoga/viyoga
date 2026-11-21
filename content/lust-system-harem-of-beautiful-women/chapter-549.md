@@ -105,7 +105,7 @@ chapter = 549
 
 <p>The unprecedented shame brought a strange, new sensation, confirming for her, who had once doubted her own submissive leanings, that this was indeed her truth.</p>
 
-<p>&quot;Come on, let your sister have some fun too~&quot;</p>
+<p>&quot;Come on, let your sister have some fun too&quot;</p>
 
 <p>Luis was holding Hela&#x27;s little head and starting to thrust, his hands simultaneously grabbing her breasts, not just kneading them but also using his fingers to pinch her sensitive nipples hard.</p>
 

@@ -17,7 +17,7 @@ chapter = 2027
 <p>"Men are all the same! They beat an evil bitch, enslave her, and decide the matter is finished!" Kitsara rested a hand on Quinlan’s shoulder. The affection in her touch did nothing to soften the hatred in her eyes as she looked past him at Morgana.</p>
 <p>"We women remember things long after the matter is ’concluded’ by men. I’ll never forget how you almost destroyed my family."</p>
 <p>"I remember what she did," Quinlan replied, looking up at his wife. "Could you give us a moment?"</p>
-<p>"Of course, Quinnie~"</p>
+<p>"Of course, Quinnie"</p>
 <p>Kitsara leaned down to kiss the side of his helmet, then caught Blossom by the hand. Their laughter followed them up the passage.</p>
 <p>Morgana watched them go, her fingers aching around her staff.</p>
 <p>"You... allowed this?"</p>

@@ -29,7 +29,7 @@ chapter = 51
 <p>"Huh? What do you... ah!" It took Alice only a moment to realize, quickly pulling away and then blushing.</p>
 <p>Evelyn, standing beside them, couldn’t suppress a hearty laugh.</p>
 <p>It was good to be back, even if they’d only been gone for a few hours.</p>
-<p>Bringing her face close to Alice’s ear, the tanned beauty whispered. "Tonight we’re going to teach our perverted Lord a big lesson, aren’t we? Hehehe~~"</p>
+<p>Bringing her face close to Alice’s ear, the tanned beauty whispered. "Tonight we’re going to teach our perverted Lord a big lesson, aren’t we? Hehehe"</p>
 <p>Alice shuddered at those words, her face flushing a vibrant red.</p>
 <p>After a moment’s hesitation, she nodded quickly in agreement.</p>
 <p>"Get some rest. I still have a few things to take care of." Ethan gave Evelyn a gentle pat on the back, resisting the urge to place his hand a little lower.</p>

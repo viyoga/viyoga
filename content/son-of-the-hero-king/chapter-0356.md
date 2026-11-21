@@ -78,7 +78,7 @@ chapter = 356
 <p>Silence lingered for a while between the three as they tried to relax. They knew very well that bathing was just a pretext.</p>
 <p>The true discussion was about to take place. A discussion that would decide how things would go between them.</p>
 <p>But it was then,</p>
-<p>“Oh my! What a coincidence~!Would the three of you be able to accommodate two more?”</p>
+<p>“Oh my! What a coincidence!Would the three of you be able to accommodate two more?”</p>
 <p>The three phoenixes turned toward the door as two new people intruded.</p>
 <p>One pink-skinned girl accompanied by a blue-haired one.</p>
 <p>A smiling Skuld and a slightly uncomfortable and frowning Kiyohime.</p>

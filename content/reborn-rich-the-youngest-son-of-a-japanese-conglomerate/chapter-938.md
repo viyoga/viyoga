@@ -63,10 +63,10 @@ chapter = 938
 <p>Although I sprayed an enormous amount of semen into Urabe Konoka's mouth, Urabe Konoka didn't spill any of the semen and gulped it down.</p>
 <p>"Beu-hee-ee-ee...♥"</p>
 <p>Urabe Konoka spat out my cock and opened her mouth to show me that she had drunk all the semen. Urabe Konoka wore an Expression of Ecstasy, as if she had eaten a delicacy.</p>
-<p>Urabe B-cut~!</p>
-<p>Requested by MidNightSKY-nim: Ryuta playing electric Guitar and Ryuta wielding a Dokkaebi Club~!</p>
-<p>Guitar~!</p>
-<p>Dokkaebi Club~!</p>
-<p>Requested by IseibuI-nim: Arisu Nae wearing only a Corset~!</p>
-<p>Arisu first~!</p>
-<p>Nae~!</p>
+<p>Urabe B-cut!</p>
+<p>Requested by MidNightSKY-nim: Ryuta playing electric Guitar and Ryuta wielding a Dokkaebi Club!</p>
+<p>Guitar!</p>
+<p>Dokkaebi Club!</p>
+<p>Requested by IseibuI-nim: Arisu Nae wearing only a Corset!</p>
+<p>Arisu first!</p>
+<p>Nae!</p>

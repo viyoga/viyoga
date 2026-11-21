@@ -56,7 +56,7 @@ chapter = 74
 <p>At first glance, there seemed to be no particular difference between the doppelganger and the original. But a more cursory inspection would reveal many flaws.</p>
 <p>"This is really incredible."</p>
 <p>Setsuna complimented as she continued to inspect it. As one of the people closest to Sol, even she couldn't say with assurance she wouldn't be fooled for at least a few seconds after seeing the doppelganger. For warriors like her who could reach or surpass sound speed, few seconds were basically an eternity.</p>
-<p>"Fufufu~! This is nothing. My doppelganger skills rely on my understanding of the one I am copying. The more I know him the more realistic I can make it."</p>
+<p>"Fufufu! This is nothing. My doppelganger skills rely on my understanding of the one I am copying. The more I know him the more realistic I can make it."</p>
 <p>Setsuna smiled at how Milia was basically bragging about her understanding of Sol. She respected Milia a great deal, but her smug face somehow irked her, making her eyebrows twitch in irritation.</p>
 <p>Milia, being apt at observation, didn't miss this but feigned ignorance as she asked, "What's the matter? Or perhaps, are you doubting my words?"</p>
 <p>Setsuna scoffed at that. "I don't doubt that. But don't act as if you know him the best."</p>

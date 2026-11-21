@@ -31,7 +31,7 @@ chapter = 56
 <p>"Yes, it’s not much different... Honestly, given the size of Lake Azur, it wouldn’t be all that wrong to consider it a sea." Ethan replied, also taking off his boots, an action that was repeated by Alice.</p>
 <p>"Hm..." Evelyn took another step toward the water, feeling the dry sand grow damp, a small wave touching her delicate feet.</p>
 <p>It was pleasant, neither too cold nor too hot. The perfect temperature to cool off on a hot day.</p>
-<p>"Want to get a little wet? I didn’t bring any swimwear, but luckily I came in a dark dress today, hehehe~~." Alice giggled, smoothing out her thick brown dress.</p>
+<p>"Want to get a little wet? I didn’t bring any swimwear, but luckily I came in a dark dress today, hehehe." Alice giggled, smoothing out her thick brown dress.</p>
 <p>She loved her white dresses, especially the way Ethan looked at her whenever she got a little wet while wearing one, her pink nipples and the curve of her full cleft of Venus visible beneath the thin, damp fabric.</p>
 <p>Obviously, such a sight wasn’t meant for any other man, so she would never get wet in public if she were wearing her white dress.</p>
 <p>Fortunately, with that dress, no one would see anything, even if she got soaked.</p>
@@ -50,7 +50,7 @@ chapter = 56
 <p>Watching the two of them play, chasing after each other and splashing water at one another, Ethan simply smiled with satisfaction, enjoying their laughter and the sway of their huge tits as they tossed themselves into the water.</p>
 <p>It was the good life.</p>
 <p>After a few seconds, Alice finally caught up to Evelyn, throwing herself on top of her, their voluptuous bodies intertwining and their cleavages meeting, Alice’s pale, milky skin rubbing against Evelyn’s tanned, creamy skin.</p>
-<p>"I won, hehehe~~" Alice, straddling Evelyn, let a victorious laugh escape her lips.</p>
+<p>"I won, hehehe" Alice, straddling Evelyn, let a victorious laugh escape her lips.</p>
 <p>"Because I let you win, silly." Evelyn spun around, quickly pinning Alice down, both of them sinking into the water.</p>
 <p>After a little more wrestling, they finally separated, their clothes disheveled and their breasts exposed to the cold air, soaked and crowned by puffy, pink nipples.</p>
 <p>It was a technical tie, but neither of them was interested in winning.</p>

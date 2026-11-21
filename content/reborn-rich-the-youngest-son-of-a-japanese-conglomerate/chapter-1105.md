@@ -16,8 +16,8 @@ chapter = 1105
 <p>"The UK? What are you talking about?"</p>
 <p>Just as I began to speak, intending to explain the Situation I knew from information on the assassination, Taira Kanna, having finished her condolences, returned and asked what I was talking about.</p>
 <p>"Ah, I've roughly heard about the Situation when Kitsumasa was assassinated. I was about to explain it to Arisu."</p>
-<p>"I was curious too! Tell me quickly, Nephew-nim~!"</p>
-<p>As Taira Kanna said, 'Tell me quickly~!' with a touch of Aegyo, Arisu frowned slightly, but I pretended not to see and opened my mouth to tell the Story I intended to.</p>
+<p>"I was curious too! Tell me quickly, Nephew-nim!"</p>
+<p>As Taira Kanna said, 'Tell me quickly!' with a touch of Aegyo, Arisu frowned slightly, but I pretended not to see and opened my mouth to tell the Story I intended to.</p>
 <p>"Alright. I'll continue the Story. If we combine the Information heard from the UK side and from various other sources, it seems Taira Kitsumasa let his Guard down when Minamoto Katsue from the Minamoto side left Europe. So, after carousing late into the night at a Club, the Assassin didn't miss the Gap that appeared when both the Guard and Taira Kitsumasa were relaxed."</p>
 <p>As I explained the content gathered from the Information from the UK, the Story of Minamoto Katsue I heard from Minamoto Risa, and various other sources, everyone nodded their Heads, understanding.</p>
 <p>"But Aunt Kokoro hasn't arrived yet. Is she not planning to come at all?"</p>
@@ -69,5 +69,5 @@ chapter = 1105
 <p>Nae Fitzgerald nodded her Head at Taira Kanna's Words. Everyone at this table had incredible Senses, so even though Taira Kanna and I spoke in whispers, they were listening to the Story with intrigued Expressions, as if asking, 'Something like that happened?'</p>
 <p>"Taira Blood relatives and those seated at the Taira Group Executive table, please follow. The Chairman is looking for you."</p>
 <p>While we were deep in Conversation, a servant came and began to lead everyone around our table towards the Taira Main family's back garden. Since only Taira Blood relatives and Taira Group Executives, not all guests, were called, it seemed there was something business-related to discuss. In my opinion, it was likely about the whereabouts of Taira Jiro's Eldest son, Taira Yuuichi, who had decided to return to Japan.</p>
-<p>Since there were no particular requests today, I'll be uploading the Cover B-cuts~!</p>
+<p>Since there were no particular requests today, I'll be uploading the Cover B-cuts!</p>
 <p>It felt like a 'menhera'-style Guitarist would suit her, so I tried giving her a Guitar hehe.</p>

@@ -31,10 +31,10 @@ chapter = 2018
 <p>"We have a fortress to live in. What do you mean, on the ground? We get to live rent-free, too!!"</p>
 <p>"Yeah, well... Actually, hmm..."</p>
 <p>As the women were debating the benefits and drawbacks of living in a dirt mound, the rest of the party was lively as well.</p>
-<p>"Could I have some of that, Hubby~?"</p>
+<p>"Could I have some of that, Hubby?"</p>
 <p>Vex indicated the bread in Black’s hand. He dipped it in the sauce before bringing it to her mouth, and she accepted it with a pleased hum, leaning comfortably into his side.</p>
 <p>"Good?"</p>
-<p>"Mm~"</p>
+<p>"Mm"</p>
 <p>"Master! Blossom would also like to be fed!"</p>
 <p>The dogkin immediately came around to his other side. Black chuckled as she opened her mouth, her ears pointing eagerly toward him while he prepared her bite.</p>
 <p>Tavi looked down at the bread in her own hand.</p>

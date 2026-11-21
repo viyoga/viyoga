@@ -34,15 +34,15 @@ chapter = 642
 <p>After sending the money to the account opened by Minamoto Risa, I turned on Mitube. Because Uenozono Karen's vlog had just been uploaded.</p>
 <p>KAREN's School Life Vlog - Festival Preparation.</p>
 <p>It was a simple title, but after the New Namgyeong City Cyber Zombie incident, attaching the name Uenozono Karen and St. Francisco Girls' Academy attracted a lot of attention. This video hadn't been uploaded for long, but the number of views was considerable.</p>
-<p>-Hello, everyone. I'm preparing for the festival with my friends right now~!</p>
+<p>-Hello, everyone. I'm preparing for the festival with my friends right now!</p>
 <p>Uenozono Karen's appearance is shown, and the familiar sight of the special class is in the background.</p>
-<p>-We're planning to sell club magazines and run a cafe this time. We're moving things in preparation for tomorrow's festival right now~!</p>
+<p>-We're planning to sell club magazines and run a cafe this time. We're moving things in preparation for tomorrow's festival right now!</p>
 <p>Soon, the special class students moving things were shown, and Minamoto Risa, carrying a blueprint with what to put where printed on it, was seen on the screen giving instructions. Minamoto Risa was also seen smiling at the camera and waving her hand slightly.</p>
-<p>-Actually, I haven't been able to do club activities until now because of my idol activities. Like this indirectly... Ah, Teacher~!</p>
+<p>-Actually, I haven't been able to do club activities until now because of my idol activities. Like this indirectly... Ah, Teacher!</p>
 <p>While Karen was talking, the screen switched and my appearance carrying luggage was shown. Hmm... I look good. I turned it on to check because my appearance was coming out in the vlog</p>
 <p>-If you purchase club magazine A, you can receive a photocard of our homeroom teacher here.</p>
 <p>At Uenozono Karen's words, I gave a shy smile as if I was embarrassed, and soon the screen switched to Uenozono Karen's face.</p>
-<p>-If you purchase club magazine B, you can receive my photocard~! Just so you know, the money isn't coming to me. The profits from my photocard will be donated to the victims of the New Namgyeong incident.</p>
+<p>-If you purchase club magazine B, you can receive my photocard! Just so you know, the money isn't coming to me. The profits from my photocard will be donated to the victims of the New Namgyeong incident.</p>
 <p>The next scene showed Uenozono Karen saying, 'Those who can come, please come and participate in the donation?', and she started moving luggage with the children. And the video ended by briefly showing the students working and moving luggage as if it were fast-forwarded.</p>
 <p>There wasn't much content, but it seemed like Minamoto Risa's requested club magazine advertisement was certain. Because the comment section was exploding.</p>
 <p>-I'm in Mexico, so I'm too sad that I can't buy Karen's photocard😭</p>

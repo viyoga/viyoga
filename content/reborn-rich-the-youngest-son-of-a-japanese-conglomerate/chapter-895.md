@@ -43,10 +43,10 @@ chapter = 895
 <p>"First, have one team exclusively Track Takakusaki Gengo and continue to Track him. And...." Asada Ei stood up from her Seat. And she opened her Mouth towards the Joseodang combat group sitting on one side.</p>
 <p>"It would be good for us to also achieve one Achievement, wouldn't it? Everyone, stand up."</p>
 <p>Home Ec teacher B-cut!</p>
-<p>Requested by MidNightSKY-nim, Alik shooting Lasers~!</p>
+<p>Requested by MidNightSKY-nim, Alik shooting Lasers!</p>
 <p>Magician Alik hehe</p>
-<p>Requested by Gojoy-nim, Jinmija Yeosa's Usual Attire and underwear Attire~! Usual Attire~!</p>
-<p>Underwear~!</p>
+<p>Requested by Gojoy-nim, Jinmija Yeosa's Usual Attire and underwear Attire! Usual Attire!</p>
+<p>Underwear!</p>
 <p>Requested by TheDreaming-nim, Tape Eve at the Casino 2. Eve doing a handstand! 1.</p>
 <p>2.</p>
 <p>Kkiyot</p>

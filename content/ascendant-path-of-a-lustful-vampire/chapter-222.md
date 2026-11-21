@@ -5,12 +5,12 @@ weight = 222
 chapter = 222
 +++
 
-<p>The more Aurelius thought on Caius’s words, with the ~Heindyll~ symbol above his palm, the more sense they made to him and the more he realized their potential truth.</p>
+<p>The more Aurelius thought on Caius’s words, with the Heindyll symbol above his palm, the more sense they made to him and the more he realized their potential truth.</p>
 <p>Looking at Aurelius, Caius couldn’t help but think his life was a bit ironic;</p>
 <p>The more Aurelius advanced in Magic Circles, the more of his last life he would remember and understand which would naturally grant him this obscure but essential information about Light Magic.</p>
 <p>However, to advance in Magic Circles, he needed those important informations which he could only get by advancing. It’s very cyclical and seems designed to keep him trapped and locked forever in a Bottleneck. A paradox of sorts.</p>
 <p>Caius wondered if he’d have to recreate more situations in the original story that led to Aurelius’s breakthrough epiphanies. After all, he may have just set a precedent by doing this.</p>
-<p>"I’ll meditate on this," Aurelius said as the ~Heindyll~ symbol fizzled out from atop his palm.</p>
+<p>"I’ll meditate on this," Aurelius said as the Heindyll symbol fizzled out from atop his palm.</p>
 <p>"Yes, you should do that," Caius said with a nod.</p>
 <p>This moment besides not being as it had been in the original story (I.e involving Kaya directly) had also happened a bit late and Caius hoped it would not derail the schedule of trials to come.</p>
 <p>Aurelius was eyeing Caius just as Caius eyed him. The suspicious expression he had had when this conversation first started, was back now.</p>
@@ -29,16 +29,16 @@ chapter = 222
 <p>Also, looking through the Arcane Codex is very difficult and straining on the mind. So what could have possessed Caius to endure such mind-breaking strain and the potentially irritating factor of Light Magic Arcane Symbols to help Aurelius achieve a breakthrough?</p>
 <p>Especially when they both barely even qualified as friends.</p>
 <p>They hardly ever said anything to each other and Aurelius had never voiced his struggle. Hell, he had never said anything to his actual friends about it so why...</p>
-<p>Why would Caius just intuitively realize his struggle and so quickly relate it to something he had apparently gone through recently himself and then go the extra mile to find just the right Arcane symbol (The ~Heindyll~ symbol) that would help with the bottleneck?</p>
+<p>Why would Caius just intuitively realize his struggle and so quickly relate it to something he had apparently gone through recently himself and then go the extra mile to find just the right Arcane symbol (The Heindyll symbol) that would help with the bottleneck?</p>
 <p>It just seemed like far too much work to do for an acquaintance and warranted suspicion.</p>
 <p>It also furthered a feeling Aurelius had had since he and Caius were paired to face Professor Cynthia Kragsten on their first week at Lochxen which was that Caius seemed to know him more than should be possible. Only this time, Aurelius wasn’t sure he should be looking at such a thing favorably.</p>
 <p>Not when he had been having a feeling of being watched for a few weeks now.</p>
 <p>"What is it?" Caius asked when Aurelius just kept looking at him, his brows pulling closer and closer together.</p>
 <p>"Hmm? Oh, it’s nothing," Aurelius said and his expression brightened, going from suspicious to appreciative in a second. He even accompanied that with a smile.</p>
-<p>"Thank you for this," Aurelius said as he cast the ~Heindyll~ symbol again, "I think I’ll keep looking into this before I head to class."</p>
+<p>"Thank you for this," Aurelius said as he cast the Heindyll symbol again, "I think I’ll keep looking into this before I head to class."</p>
 <p>"Yeah, you do that," Caius said and turned around to walk ahead to the Alchemy classroom.</p>
-<p>Aurelius watched him walk. His appreciative expression shifted back to suspicion as he stared at Caius’s back until he turned a corner to the classroom door and was gone from sight, at which point, Aurelius directed his blue eyes down to stare at the ~Heindyll~ symbol again.</p>
-<p>Whatever he might suspect of Caius, this symbol truly might be his breakthrough. He was already determined to go poring through the Arcane Codex for more symbols like ~Heindyll~ that could help him understand what Light Magic truly meant.</p>
+<p>Aurelius watched him walk. His appreciative expression shifted back to suspicion as he stared at Caius’s back until he turned a corner to the classroom door and was gone from sight, at which point, Aurelius directed his blue eyes down to stare at the Heindyll symbol again.</p>
+<p>Whatever he might suspect of Caius, this symbol truly might be his breakthrough. He was already determined to go poring through the Arcane Codex for more symbols like Heindyll that could help him understand what Light Magic truly meant.</p>
 <p>•••</p>
 <p>Caius wasn’t dumb and his sensitivity worked well enough for him to know Aurelius’s expression had become one of suspicion once he turned around and headed to class first.</p>
 <p>That was likely problematic but it didn’t really matter. Not right now anyway. What mattered, as far as Caius was concerned, was that Aurelius take the hint he had been given and use it as he should.</p>

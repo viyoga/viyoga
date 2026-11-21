@@ -91,4 +91,4 @@ Vaan had no change in his expression and he said, “I was busy. And you should 
 
 Hearing this, the lady chuckled and kissed Vaan on his cheek. She then put her hand inside his robes to hold his shaft and said while stroking it in a seductive tone,
 
-“Oh Vaan~, it seems you don’t know your uncle.”
+“Oh Vaan, it seems you don’t know your uncle.”

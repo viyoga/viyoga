@@ -6,7 +6,7 @@ chapter = 143
 +++
 
 <p>[Medea’s world]</p>
-<p>“Heh~~So after a few days of waiting, the young prince finally graced us with his presence. I am about to faint in joy.”</p>
+<p>“HehSo after a few days of waiting, the young prince finally graced us with his presence. I am about to faint in joy.”</p>
 <p>Sol immediately cringed when he entered Medea’s world and heard those words.</p>
 <p>Giving a bitter smile, he turned toward the origin of the voice.</p>
 <p>There, sitting next to Medea was a woman entirely clad in white, except for her hair that was black.</p>
@@ -30,10 +30,10 @@ chapter = 143
 <p>Letting another sigh, she shook her head, “Perhaps I am really being too meddlesome. I will stop for now.”</p>
 <p>Saying so, she turned toward Sol, “So, I can already guess why you are here and the answer is no. I do not know how to save that little girl. I could ask Asmodeus, but that old snake really hates you, you know?”</p>
 <p>There Ambrosia let out a laugh full of happiness.</p>
-<p>“You should hear him when he complains to me about you. You are touching his dear little granddaughter, but he can do nothing about it. What is more, it seems like you are about to put your claws on another daughter of his. Fufufu~! This is so fun.”</p>
+<p>“You should hear him when he complains to me about you. You are touching his dear little granddaughter, but he can do nothing about it. What is more, it seems like you are about to put your claws on another daughter of his. Fufufu! This is so fun.”</p>
 <p>This was new information, “Granddaughter? Daughter?”</p>
 <p>Ambrosia shook her head, “This isn’t a story I wish to share with you. You just need to know that when you enter the Astral realm, you should really avoid his zone.”</p>
-<p>Speaking till there, Ambrosia stopped, “Hum~Now that I think about it, there is indeed a way. It was just so unlikely that I had unconsciously discarded it.”</p>
+<p>Speaking till there, Ambrosia stopped, “HumNow that I think about it, there is indeed a way. It was just so unlikely that I had unconsciously discarded it.”</p>
 <p>For Sol, those words seemed like honey. He perked up considerably and asked,</p>
 <p>“Which way? ”</p>
 <p>There, Ambrosia answered solemnly,</p>
@@ -61,19 +61,19 @@ chapter = 143
 <p>But this was a problem for another time.</p>
 <p>“Thank you for all that information, mother-in-law.”</p>
 <p>Now that he had a solution, the weight on his shoulders was definitely lighter. As such, he couldn’t help but tease Ambrosia a little as he thanked her with a cheeky smile.</p>
-<p>“Oh?” Ambrosia was a little surprised before she began laughing, “This is the first time I was called like that since ever. Hahaha~! Brat, I like you. I hope my daughters will be happy with you.”</p>
+<p>“Oh?” Ambrosia was a little surprised before she began laughing, “This is the first time I was called like that since ever. Hahaha! Brat, I like you. I hope my daughters will be happy with you.”</p>
 <p>“Daughters?” Sol’s cheeky smile cramped a little, “Daughter, you mean...right?”</p>
-<p>“Heh~! Is the little dragon afraid? Then again I guess you only developed a relationship with Medea, so it can’t be helped.”</p>
+<p>“Heh! Is the little dragon afraid? Then again I guess you only developed a relationship with Medea, so it can’t be helped.”</p>
 <p>Sol could only give a small laugh.</p>
 <p>Medea, on the side, simply shook her head. She was happy that Ambrosia liked Sol. After all, back then, Ambrosia had taken one look at Jupiter and simply sneered before leaving.</p>
 <p>As if knowing what she was thinking, Ambrosia shot her a look,</p>
 <p>“That bastard was clearly using you. I could see from the start that he was no good. But I also know that there is nothing more stubborn than a woman blinded by love. That’s why I decided to let you make your own mistakes. After all, a heartbreak is nothing rare — Who would have thought that yours would last centuries?”</p>
 <p>“Mother… I am…”</p>
-<p>“Forget it, don’t apologize.” Ambrosia waved her hand, “I am happy that you woke up and finally found a good man. Even though said man is a few centuries younger than you. But hey, they say love knows no barrier! Hahaha~”</p>
+<p>“Forget it, don’t apologize.” Ambrosia waved her hand, “I am happy that you woke up and finally found a good man. Even though said man is a few centuries younger than you. But hey, they say love knows no barrier! Hahaha”</p>
 <p>Medea covered her face with her hand. She wished for nothing more than to find a hole and crawl in.</p>
 <p>Meanwhile, Sol smiled happily as he watched the cute reaction of Medea.</p>
 <p>“Mother-in-law, you shouldn’t be too hard on her. After all, I am the one who chased after her.”</p>
-<p>“Heh~? Seems like a story I would have to hear later. Sadly, now we need to discuss something more serious.”</p>
+<p>“Heh? Seems like a story I would have to hear later. Sadly, now we need to discuss something more serious.”</p>
 <p>Reaching there, the smile on her face vanished and was replaced by a solemn look.</p>
 <p>“Firstly, I would like to apologize for the trouble my stupid daughter, Kali, brought you.”</p>
 <p>Sol was surprised at her apologies.</p>

@@ -37,7 +37,7 @@ chapter = 54
 <p>Most surprising was Aurelius’ Mandala losing here when it had managed against Professor Kragsten’s lightning attack during Combat Magic Class. It drove into the heads of many just how serious the situation was.</p>
 <p>Worse yet, after their first combined blasts, the Fire-Cracking Lizards were getting primed for another. This time, no one tried defensive spells. They just ran and tried to put distance between themselves and the coming blast.</p>
 <p>The force of the explosion still sent them flying. Caius hit the ground with Kaya and Eloise within two feet of him. And then he heard the pitter-patter sounds of tiny feet running across the grassy ground and looked to see multiple Lizards coming his way.</p>
-<p>~Wind Scythe~</p>
+<p>Wind Scythe</p>
 <p>The spell circle appeared and transformed into a focused wind attack that he swung at the Lizards. Most were fast enough to avoid it. The unlucky ones were sliced in two, littering the ground with their guts.</p>
 <p>"You’re to pacify them, not kill them," Professor Gilligan said.</p>
 <p>"Don’t think we have a choice," Eloise said through gritted teeth looking to be preparing a killing spell-cast of her own. She was mostly talking to herself but the Professor heard her easily.</p>

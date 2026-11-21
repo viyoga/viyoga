@@ -5,7 +5,7 @@ weight = 127
 chapter = 127
 +++
 
-<p>“Hum~Hum~Hum.”</p>
+<p>“HumHumHum.”</p>
 <p>Under the moonlight, in the zone belonging to the Gorfard, a short white-haired man no more than 160 cm, was humming while skipping in the street devoid of people.</p>
 <p>Sometimes, he would look at the sky with attention, and sometimes, he would just close his eyes and hum.</p>
 <p>‘This world is finally going to know justice.’</p>
@@ -36,7 +36,7 @@ chapter = 127
 <p>Watching his three-targets jump from the Injured wyverns while in mid-air, he smiled.</p>
 <p>‘It’s time to hunt.’</p>
 <p>He couldn’t kill them from 700 meters away in the sky, but now that they had come down, it was time for him to act.</p>
-<p>"Hum~Hum~Hum"</p>
+<p>"HumHumHum"</p>
 <p>Humming a song that he alone could hear, he began to search for his prey.</p>
 <p class="scene-break">· · ·</p>
 <p>[Highland zone]</p>

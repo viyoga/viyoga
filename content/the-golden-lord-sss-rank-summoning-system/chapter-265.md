@@ -29,7 +29,7 @@ chapter = 265
 <p>"Three? Not all nine?" Arwen asked, a slight hint of confusion crossing her face.</p>
 <p>"The goddess of life helped me once, and I think highly of her. If the other two goddesses are anything like her, then they deserve my trust as well.</p>
 <p>As for the other six, I’m still not sure if they’ll be worthy of worship from the people of Goldenveil."</p>
-<p>"Fufufu~ few men dare to challenge the worthiness of a god," Arwen let out a laugh full of amusement, her shoulders trembling lightly with the soft sound.</p>
+<p>"Fufufu few men dare to challenge the worthiness of a god," Arwen let out a laugh full of amusement, her shoulders trembling lightly with the soft sound.</p>
 <p>"I dare to declare that I will take the most powerful expert in the history of the elven people as my wife right in front of her. Why wouldn’t I dare to challenge a God’s dignity?"</p>
 <p>"Well, that’s true," Arwen said, feeling Ethan’s hand drifting a little too far down, his strong fingers already sinking into the plump, sensual curve of her buttocks.</p>
 <p>The supple flesh gave beneath his firm grip, the lush cheek molding around his fingers, the thin fabric of her gown stretching taut over the indented curve with his squeeze.</p>

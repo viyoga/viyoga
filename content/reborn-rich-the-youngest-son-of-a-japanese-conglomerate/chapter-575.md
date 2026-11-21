@@ -35,7 +35,7 @@ chapter = 575
 <p>"Ah! Ryuta-cchi, how could you play around with another woman and leave us behind!"</p>
 <p>While I was getting recommendations for cosmetics from the part-timer, Seizawa Shii, who had found me while shopping, shouted. Playing around.... That sounds weird.</p>
 <p>"Playing around...? I just got some cosmetic recommendations."</p>
-<p>"But you were getting too close~!"</p>
+<p>"But you were getting too close!"</p>
 <p>Seizawa Shii ran up to me, put her arm around mine, and glared at the part-timer. She was pretty enough that even this kind of troublemaking was worth watching, but the part-timer, as if the best thing to do was not to engage, apologized and quickly left.</p>
 <p>"Hehehe...☆ I defeated her. I did well, right?"</p>
 <p>Seizawa Shii looked around at the other special class students and spoke, and half of them nodded, while the other half shook their heads as if they were dumbfounded. Half of them agreed with Seizawa Shii, so it seemed like there were quite a few students who had a sense of ownership, like, "Yamashiro Ryuta is our teacher!"</p>
@@ -63,9 +63,9 @@ chapter = 575
 <p>Of course, it would be difficult if Ha Ju-yoon pretended to know me here, but I was a little disappointed that she didn't even acknowledge me at all. She could have at least said, "Are you Karen's homeroom teacher?" To relieve this disappointment, I'll have to torment her at night later.</p>
 <p>________</p>
 <p>Second requested Hanbok pics!</p>
-<p>Oofuchi Erika~!</p>
-<p>Sakagami Rena~!</p>
+<p>Oofuchi Erika!</p>
+<p>Sakagami Rena!</p>
 <p>Naruse Shiyo!</p>
-<p>Alik~!</p>
+<p>Alik!</p>
 <p>When I was trying to make a two-person pic of Lisa and Shii, an error suddenly occurred</p>
-<p>It came out like this and didn't work well, so that's it for today~! hehe I'll upload the rest of the requested Hanbok pics tomorrow!!</p>
+<p>It came out like this and didn't work well, so that's it for today! hehe I'll upload the rest of the requested Hanbok pics tomorrow!!</p>

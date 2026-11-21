@@ -40,7 +40,7 @@ chapter = 1073
 <p>"Aunt and Arisu, don't you have anything to say?"</p>
 <p>I subtly hinted, slowly trying to receive a Gift from Arisu and my Aunt. The two looked at each other, then took out a shopping bag with the Legion logo on it, which had been placed in a corner of the reception room, and handed it to me.</p>
 <p>"Ufufu...! It's a Gift, Ryuta"</p>
-<p>"Mom and I chose it together~!"</p>
+<p>"Mom and I chose it together!"</p>
 <p>What could the Gift they personally chose be? I checked the contents of the shopping bag with Expectation.</p>
 <p>A few hours ago.</p>
 <p>"Did I mishear because I'm not fully awake yet? Tell me again."</p>

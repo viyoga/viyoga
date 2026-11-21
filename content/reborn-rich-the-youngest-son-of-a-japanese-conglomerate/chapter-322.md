@@ -23,10 +23,10 @@ chapter = 322
 <p>From the start, Seizawa Shii, who was always making a fuss, was freaking out, saying "Cho yabai!" and Minamoto Risa was looking at me with slightly contemptuous eyes, calling me a pervert and amplifying the misunderstanding.</p>
 <p>These guys... Why are they making such a big deal out of this? Even though the previous homeroom teacher was fired for sexual assault. I shouted before the situation got worse.</p>
 <p>,Don't make a fuss. Alik and I have known each other for a long time!"</p>
-<p>,Hmm...! Was that it? Eheh~☆ I misunderstood for nothing?"</p>
-<p>I wanted to pinch and stretch Seizawa Shii's white cheeks as she stuck out her tongue and went "Eheh~☆," but I held back. I thought, "Yeah, it's understandable to misunderstand because of the previous homeroom teacher," and decided to be grateful that the misunderstanding was cleared up.</p>
+<p>,Hmm...! Was that it? Eheh☆ I misunderstood for nothing?"</p>
+<p>I wanted to pinch and stretch Seizawa Shii's white cheeks as she stuck out her tongue and went "Eheh☆," but I held back. I thought, "Yeah, it's understandable to misunderstand because of the previous homeroom teacher," and decided to be grateful that the misunderstanding was cleared up.</p>
 <p>,And I'm not advising any clubs yet, so don't think about joining a club that I'm advising and try to join a club that suits you."</p>
-<p>,Ehh...! That's too bad~! I wanted to join Ryuta-jji's club."</p>
+<p>,Ehh...! That's too bad! I wanted to join Ryuta-jji's club."</p>
 <p>Not only Seizawa Shii, but also Alik, Konoe Akina, and Otagi Yuka seemed to feel disappointed at my words. It's troublesome to be too popular....</p>
 <p>,And Alik already has a club she's decided to join, right?"</p>
 <p>Come to think of it, Alik has to join the Cheongsim Hall, which is advised by her home teacher, Shimokawabe Airen, right? Because she decided to learn swordsmanship from Shimokawabe Airen. Alik, hearing my words, nodded with an expression as if she had remembered something she had forgotten.</p>
@@ -34,13 +34,13 @@ chapter = 322
 <p>After that, we had some small talk, and the morning assembly time ended, so I organized the attendance book. Today, the hikikomori students who don't usually come to school and Uenozono Karen, who is doing idol activities, were absent. Uenozono Karen attended school only about twice a week.</p>
 <p>Still, shouldn't I see the faces of the students who don't come to school since the teacher has changed...? The principal seemed to be mumbling something, so I should ask Kasaoka Yuzuki, the head of the third grade, about this matter.</p>
 <p>,Make sure to decide what club activities you're going to do this week! See you at the end of the day."</p>
-<p>,Bye, Ryuta-jji~!"</p>
+<p>,Bye, Ryuta-jji!"</p>
 <p>,See you later, seonsaengnim!"</p>
 <p>I heard the students' greetings and left the classroom. As I turned around to close the classroom door, I saw Seizawa Shii and Minamoto Risa approaching Alik. Fortunately, they didn't seem to have any intention of ostracizing Alik.</p>
 <p>Alik transferred to this special class for third graders and caused not a typhoon or a strong wind that would flutter skirts, but a gentle breeze that would make the students feel good. She truly deserves to be called the transfer student of gentle breeze.</p>
 <p>###</p>
 <p>As Yamashiro Ryuta, the homeroom teacher, left the classroom, Seizawa Shii and Minamoto Risa approached Alik.</p>
-<p>,You're Alik, right? So cute~!"</p>
+<p>,You're Alik, right? So cute!"</p>
 <p>,Alik, cute?"</p>
 <p>When Alik asked back with a naive expression, Seizawa Shii screamed and hugged Alik with her large breasts.</p>
 <p>,Did you really know the homeroom teacher from before?"</p>

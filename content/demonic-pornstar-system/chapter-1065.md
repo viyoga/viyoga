@@ -23,7 +23,7 @@ chapter = 1065
 <p>Vespera leaned back to look up at him, distinctly displeased with the son she was still holding. Kaiden grinned down at her and tightened his embrace, drawing her comfortably against him again.</p>
 <p>Her indignation softened in his arms. With a sigh, she let her cheek rest against his chest.</p>
 <p>"Never would I have predicted that Alice would be the easier child to manage..."</p>
-<p>"Are you grumbling, Mother~?"</p>
+<p>"Are you grumbling, Mother?"</p>
 <p>"..."</p>
 <p>Yunohana covered her mouth, giggling.</p>
 <p>Kaiden kissed the top of his mother’s head before easing his hold enough to look at her.</p>

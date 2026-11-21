@@ -12,7 +12,7 @@ chapter = 27
 <p>’Is that why he left me on seen?’ She couldn’t help feeling guilty after realising it.</p>
 <p>[Dante: I only saw your messages now. Were you that worried about me?]</p>
 <p>Emma’s thumb froze over the screen.</p>
-<p>’Of course I was, you idiot~’ She thought, as if it were a matter of fact, a smile emerging on her lips. But of course, she wasn’t going to admit it that easily.</p>
+<p>’Of course I was, you idiot’ She thought, as if it were a matter of fact, a smile emerging on her lips. But of course, she wasn’t going to admit it that easily.</p>
 <p>[Emma: As your big sister, how could I not be worried after hearing you want to leave all of us?!]</p>
 <p>[Emma: Anyways, you said you were sick, right? Are you okay? Did you take medicine? Are you feeling better?]</p>
 <p>Dante read the first message and then the second, the two contradicting each other. He found it funny and shook his head.</p>

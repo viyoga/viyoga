@@ -69,4 +69,4 @@ chapter = 1413
 <p>Her eyes widened. Her composure shattered.</p>
 <p>"You!!!" she began shrieking. "You defiled my body! You corrupted your goddess!"</p>
 <p>Quinlan's grin spread wider. Satisfaction was plain on his face.</p>
-<p>"Did I~?"</p>
+<p>"Did I?"</p>

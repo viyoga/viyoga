@@ -82,13 +82,13 @@ chapter = 73
 <p>The pressure surrounding Sol vanished as fast as it came. A beautiful smile slowly forming on his face before he slowly bent down and spoke to the Duke's ear.</p>
 <p>"Let it be the last time. Otherwise, there won't be any castle left for me to visit."</p>
 <p>The Duke impassible as always chuckled a little,</p>
-<p>"Ohohoh~! What a frightening young lad. Indeed. I was wrong. You are in no way like your father. Should I say that you inherited the pride of your mother?"</p>
+<p>"Ohohoh! What a frightening young lad. Indeed. I was wrong. You are in no way like your father. Should I say that you inherited the pride of your mother?"</p>
 <p>Looking at the old man in front of him, Sol continued with a straight face.</p>
 <p>"I am neither. I am me. I am Sol Dragona Luxuria. I am your prince and your future king. Never forget that."</p>
 <p>Sol didn't like to flaunt his authority. But for a noble, much less the crown prince, acting humble was nothing more than a disgrace.</p>
 <p>He will never use his authority to bully people, but he will never shy away from using it on people who underestimated him.</p>
 <p>The standoff between the two lasted for a short while before a good-natured smile formed on the Duke's lips.</p>
-<p>"Ohohoh~! Indeed. Indeed. Forgive this old man." Bowing a little, he said without any frustration in his voice, "Your highness, I the Duke of Highland, am happy to welcome you to my abode. I hope it will please you."</p>
+<p>"Ohohoh! Indeed. Indeed. Forgive this old man." Bowing a little, he said without any frustration in his voice, "Your highness, I the Duke of Highland, am happy to welcome you to my abode. I hope it will please you."</p>
 <p>Giving a nod, Sol gestured to Milia and Setsuna to follow him in. Inwardly, he gave a bitter smile.</p>
 <p>'It seems like I am facing an old fox.'</p>
 <p>This night promised to be very interesting.</p>

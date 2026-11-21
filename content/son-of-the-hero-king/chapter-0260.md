@@ -30,7 +30,7 @@ chapter = 260
 <p>“Call me Lady Sekhmet. That would do for now. Now then, for how long do you plan to keep me in here? Or do you think I will be able to harm you with the Dragon’s Empress right here?”</p>
 <p>Tiamat nodded to herself but shook her head with a little smirk.</p>
 <p>“You are very slippery. I didn’t put this circle because I feared you would hurt us. I did it because I do not wish to let you run using a time node.”</p>
-<p>“Tsk~! I thought I would be able to avoid something troublesome.”</p>
+<p>“Tsk! I thought I would be able to avoid something troublesome.”</p>
 <p>She plopped down on the ground like a sleepy cat and yawned,</p>
 <p>“Let’s get this done with now. I can’t stay awake for too long.”</p>
 <p>“Well then, Kiyohime, Lady Sekhmet, let me tell you a little story.”</p>

@@ -31,12 +31,12 @@ chapter = 99
 <p>"Ah..." Evelyn halted mid-swing, her last blow releasing a slight burst of air.</p>
 <p>The sudden stop sent her large, tanned tits into a heavy sway beneath the tight neckline of her leather top, their soft weight settling slowly against each other.</p>
 <p>She looked up at Ethan and smiled sensually.</p>
-<p>"Look who remembered his secondary wives. Were you too busy filling Elena’s tits with your cum to come say good morning to us? Fufufu~~"</p>
+<p>"Look who remembered his secondary wives. Were you too busy filling Elena’s tits with your cum to come say good morning to us? Fufufu"</p>
 <p>She was clearly joking, though a hint of jealousy tinged her voice.</p>
 <p>"I’m sorry, love. Tonight I’ll be all yours and Alice’s..." Ethan stepped closer, pulling her into his arms.</p>
 <p>His hands dropped onto her ass with a loud smack, the plump flesh flattening under his palms before bouncing back, warm and slick with sweat.</p>
 <p>Soft ripples traveled across both cheeks from the impact, and Evelyn pressed tighter against him, the heavy swell of her breasts squishing against his chest.</p>
-<p>"Nghnn~~ yeah, and don’t you dare think about sleeping! ♡"</p>
+<p>"Nghnn yeah, and don’t you dare think about sleeping! ♡"</p>
 <p>She sank her teeth into Ethan’s shoulder, drawing a pained grunt from him.</p>
 <p>They weren’t even in bed yet and she already wanted to devour him.</p>
 <p>"Alice has something to show you, too."</p>

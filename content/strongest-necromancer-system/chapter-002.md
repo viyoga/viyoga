@@ -42,7 +42,7 @@ chapter = 2
 <p>As far as Jason was concerned, the superhumans didn't pay their bills, so why should he care about them?</p>
 <p>Ding!</p>
 <p>The sound of the diner door opening echoed before a loud voice sang out excitedly.</p>
-<p>"I'm baaaack~!"</p>
+<p>"I'm baaaack!"</p>
 <p>Jason groaned and Mira called out an excited greeting.</p>
 <p>"Gina! So nice to see you again!"</p>
 <p>The person who entered the diner was a beautiful girl with long red hair and green eyes. She had a magnificent figure with a large bust and wide hips that were enough to attract the eyes of any man. She was currently wearing a pair of tight jeans and a black t-shirt that had the words 'Bhad Barbie' embroidered on the front.</p>

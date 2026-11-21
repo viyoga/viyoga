@@ -8,10 +8,10 @@ chapter = 1990
 <p>"Black! Let me live or your healer is dead!"</p>
 <p>Marielle aimed her staff at Seraphiel’s back on the sheltered balcony, waiting for Black to look at her. If he wanted his healer alive, he would have to let them leave.</p>
 <p>Seraphiel glanced over her shoulder at the staff, then turned toward the woman holding it. Her bow of light hung loosely from one hand.</p>
-<p>"Oh~ You picked me?"</p>
+<p>"Oh You picked me?"</p>
 <p>"Stay still!" Marielle jabbed the staff toward her chest. "Black! Are you listening?! Tell your women to move away!"</p>
 <p>The elf looked down at the staff’s tip with a spreading smile.</p>
-<p>"You thought I was the weak one? Oh, Quin, did you hear that? Your hopeless little healer has been taken hostage~"</p>
+<p>"You thought I was the weak one? Oh, Quin, did you hear that? Your hopeless little healer has been taken hostage"</p>
 <p>She sounded delighted. Marielle pressed the tip against her, desperate to make the laughing bitch understand that her life was being threatened.</p>
 <p>"I’ll burn a hole through you!"</p>
 <p>"Okay." Seraphiel’s smile widened, baring her teeth. The cruelty on her delicate face made Marielle want to snatch the staff back.</p>
@@ -27,7 +27,7 @@ chapter = 1990
 <p>She grabbed Seraphiel’s wrist with her good hand, trying to force it down. The curvaceous woman watched her struggle with a delighted smile, her dagger hanging idly beside her hip. Marielle pulled harder, kicking against the wall, but couldn’t make the elf’s arm bend.</p>
 <p>"There it is." The Dawnbringer smiled with extreme cruelty. "You’re finally singing after all the terrible things you said about my friends and husband."</p>
 <p>Her fingers tightened, cutting the next breath into a thin, desperate whistle. Marielle dug her nails into the hand holding her, and the Dawnbringer laughed at the effort.</p>
-<p>"Keep going~ It’s a beautiful tune I longed to hear~"</p>
+<p>"Keep going It’s a beautiful tune I longed to hear"</p>
 <p>A shake of Seraphiel’s arm tore Marielle’s grip loose and sent her legs swinging. Before she could catch the wrist again, the elf shook her harder, knocking the back of her head against the wall.</p>
 <p>"Still trying to tell us what to do?"</p>
 <p>Marielle’s mouth worked around a reply that wouldn’t come. She could hear the wet choking sounds she was making, could feel the blood from her split lip running over the fingers buried in her throat. The woman holding her only looked happier as she struggled.</p>
@@ -35,14 +35,14 @@ chapter = 1990
 <p>Through [Empowerment], the Magic that fed Seraphiel’s healing also strengthened her body and accelerated her movements. Marielle had felt the blows one after another without managing to raise her free hand against any of them.</p>
 <p>When the mage’s kicks began to falter, the Dawnbringer eased her fingers enough to let her drag in a ragged breath. Marielle coughed blood down her chin, clutching at the wrist again while her boots swung above the floor.</p>
 <p>"You’re... a healer..."</p>
-<p>"Yes~ But waiting for someone to hurt my family so I can be useful got old quick. Now I kill the bastards before they can do it. Aren’t I smart?"</p>
+<p>"Yes But waiting for someone to hurt my family so I can be useful got old quick. Now I kill the bastards before they can do it. Aren’t I smart?"</p>
 <p>Marielle tried to brace her heels against the wall and lift some of her weight off her throat. She’d chosen the woman tending the wounded, the one whose hands had been so gentle opening their cocoons. Now she hung from one of those hands while the elf mocked her.</p>
 <p>"No! Please, no!"</p>
 <p>"Aww. But you were being so brave a moment ago."</p>
 <p>The blonde beauty drew her away from the wall, taking even that support from her. Marielle’s legs thrashed in empty air as Seraphiel brought them face-to-face, inspecting her tear-streaked features with shameless pleasure.</p>
 <p>"There. That’s a much nicer expression on you."</p>
 <p>"Nyxara’s influence is clear on you..." Behind the blonde elf, Aurora sighed as she sealed the patients beneath a second barrier.</p>
-<p>"What do you mean? I always was a vicious woman~ I can just hide it better than some."</p>
+<p>"What do you mean? I always was a vicious woman I can just hide it better than some."</p>
 <p>Marielle tried to look toward Andre. Seraphiel followed her gaze, then turned the mage in her grip and drove her face into the wall.</p>
 <p>*CRACK!*</p>
 <p>Released from the elf’s hand, Marielle dropped into a heap at its foot. The blow left her staring at the paving through swimming patches of light, unable to make sense of the blood dripping beneath her face.</p>

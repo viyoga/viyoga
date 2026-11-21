@@ -67,12 +67,12 @@ chapter = 928
 <p>This was because everyone knew how important Taira Saburo was to Taira Kanna, and how obsessively Taira Kanna fixated on Taira Saburo. Many had suffered for acting against Taira Kanna's wishes here, so they did nothing.</p>
 <p>"Don't be too Taut Tension. Saburo Orabeoni has already passed on...."</p>
 <p>Taira Kanna spoke wistfully, but she was already thinking of someone other than Taira Saburo. She was thinking about Taira Ryuta, the greatest Gift Saburo Orabeoni had left behind.</p>
-<p>Sakagami Shiine (Sakagami Rena's Mother) requested by TheDreaming-nim 1. Masturbation wearing only panties in a Movie Theater 2. Pressing breasts against a car window~!</p>
+<p>Sakagami Shiine (Sakagami Rena's Mother) requested by TheDreaming-nim 1. Masturbation wearing only panties in a Movie Theater 2. Pressing breasts against a car window!</p>
 <p>1.</p>
 <p>2.</p>
 <p>This is the only Illustration where the car window and phone are both on. I don't know if the Lora is conflicting or if Shiine is using Ninjutsu, but the phone Screen isn't showing up haha.</p>
 <p>The Last one is a Scene where she steals the phone altogether kkeuk kkeuk kkeuk.</p>
-<p>Ryuta and Lisa-ttang passionately Singing in a karaoke room requested by MidNightSKY-nim~!</p>
-<p>Ryuta~!</p>
-<p>Lisa-ttang~!</p>
-<p>"You! Sing with me~!!"</p>
+<p>Ryuta and Lisa-ttang passionately Singing in a karaoke room requested by MidNightSKY-nim!</p>
+<p>Ryuta!</p>
+<p>Lisa-ttang!</p>
+<p>"You! Sing with me!!"</p>

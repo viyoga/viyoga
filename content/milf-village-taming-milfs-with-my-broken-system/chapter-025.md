@@ -17,7 +17,7 @@ chapter = 25
 
 <p>&quot;Ahhnn... you are a silly... boy... ahnn...&quot; She was already enjoying everything, so why act shy now?</p>
 
-<p>&quot; I’m just helping you, Mom. We aren’t doing anything bad~&quot; He ground his shaft slowly against her...a deliberate movement to see her reaction more.</p>
+<p>&quot; I’m just helping you, Mom. We aren’t doing anything bad&quot; He ground his shaft slowly against her...a deliberate movement to see her reaction more.</p>
 
 <p>&quot;...&quot; Arielle just stayed silent, as the dampness between her thighs is building up now..</p>
 
@@ -27,7 +27,7 @@ chapter = 25
 
 <p>Yes, it was just a massage... a special massage from her son.</p>
 
-<p>&quot; Just relax your body, we aren’t doing anything weird anyway. I’m just relieving your tense body mom~&quot;</p>
+<p>&quot; Just relax your body, we aren’t doing anything weird anyway. I’m just relieving your tense body mom&quot;</p>
 
 <p>Owen pressed his fingers harder, forcing her to bite her lips.</p>
 
@@ -47,15 +47,15 @@ chapter = 25
 
 <p>Arielle wanted to dig a hole and dive in as her moans are slowly crumbling her mother figure...she’s like a MILF in heat.</p>
 
-<p>&quot;No... no, Mom. I’m helping you here, so it’s your responsibility not to make such lewd sounds~&quot; Owen tapped the answer button and instantly twisted her nipples harder.</p>
+<p>&quot;No... no, Mom. I’m helping you here, so it’s your responsibility not to make such lewd sounds&quot; Owen tapped the answer button and instantly twisted her nipples harder.</p>
 
 <p>&quot;Ahh--mhhff...&quot; She covered her mouth so fast.</p>
 
 <p>She hadn’t expected Owen to hit the accept button and immediately slide his fingers back under to pinch her erect nipples!</p>
 
-<p>&quot;Heh that’s it, Mom. Don’t make any weird noises, or else Father might catch you doing strange stuff with your son~&quot; He was truly a menace, driving psychological nails right into her head from time to time.</p>
+<p>&quot;Heh that’s it, Mom. Don’t make any weird noises, or else Father might catch you doing strange stuff with your son&quot; He was truly a menace, driving psychological nails right into her head from time to time.</p>
 
-<p>Husband: &quot;GOOOOOD EVENING, DARLING~! HOW WAS YOUR DAY?&quot;</p>
+<p>Husband: &quot;GOOOOOD EVENING, DARLING! HOW WAS YOUR DAY?&quot;</p>
 
 <p>The man’s voice boomed from the speaker. He sounded quite passionate as he called his wife, incredibly sweet.</p>
 

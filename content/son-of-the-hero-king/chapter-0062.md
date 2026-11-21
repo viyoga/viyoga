@@ -36,8 +36,8 @@ chapter = 62
 <p>Setsuna couldn't help but curl a little in her seat as she tugged her blue hair. She hated this color because it showed that she wasn't chosen. Perhaps if she also had the blessing, her uncle wouldn't have betrayed them?</p>
 <p>"Sol!"</p>
 <p>She received a second surprise as she saw the previously stern and mysterious Supreme daughter change into a doting woman as she rushed so fast she was invisible to her eyes before taking the young boy in her arms.</p>
-<p>"Hah~! My little Sol! That blockhead finally let you come visit me again. I thought I had to level the tower before she relinquished."</p>
-<p>"Stop~ it's embarrassing. There are other people in the room~"</p>
+<p>"Hah! My little Sol! That blockhead finally let you come visit me again. I thought I had to level the tower before she relinquished."</p>
+<p>"Stop it's embarrassing. There are other people in the room"</p>
 <p>Finally able extricate himself from this blissful suffering, the little Sol who was just 3 years old at that time came in front of Setsuna and asked in a lively and gentle voice while stretching his hand in sign of greeting.</p>
 <p>"Hello! I am Sol Luxuria. Who are you?"</p>
 <p>"Ah…"</p>
@@ -46,7 +46,7 @@ chapter = 62
 <p>"She is a slave who will fight at the arena in a few days. She will begin her training there."</p>
 <p>Both Sol and Setsuna were startled, but Setsuna didn't deny. She was a smart girl. She wouldn't deny the one who was sheltering her openly. Though, at the moindre signe of truly making her a slave, she would bolt out of the room and the flee the city in flash.</p>
 <p>Giving a sad smile at how helpless she was, she had a handshake with Sol.</p>
-<p>"I see~ happy to meet you." Then, fidgeting a little he asked, "Hey, can I ask something?"</p>
+<p>"I see happy to meet you." Then, fidgeting a little he asked, "Hey, can I ask something?"</p>
 <p>"Wh-what?"</p>
 <p>"Hum...This is my first time to meet a wolf girl. Can I touch your ears?"</p>
 <p>The entire face of Setsuna was immediately flushed. Ears and tails were important part of the body of a beast-kin that's why,</p>

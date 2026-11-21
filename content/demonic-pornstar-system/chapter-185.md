@@ -29,7 +29,7 @@ chapter = 185
 <p>Meanwhile, the heavy sniffing action going on in the bathtub transitioned seamlessly into something more tactile.</p>
 <p>Bastet’s tongue, a soft, warm, and remarkably agile instrument, darted out. First, a tentative touch, then a more confident, saliva-rich lick tracing the length of him. Her eyes, still wide and dilated, fluttered closed in sheer bliss as she continued her exploration of her master’s delicious body, her bronze skin practically vibrating with sheer delight.</p>
 <p>"Mrowl..."</p>
-<p>"Mhhhmm~"</p>
+<p>"Mhhhmm"</p>
 <p>*Slurp!*</p>
 <p>Little satisfied whimpers escaped her throat between licks, serving as a clear indication of her absolute contentment with her current situation. She was defeated and subjugated in the most humiliating manner, her pride utterly dismantled, yet a profound, unsettling peace settled over her. She simply couldn’t bring herself to care about it.</p>
 <p>Kaiden looked down at Bastet, watching her work with a feral energy. Her head bobbed up and down his length, her tongue flicking out of her mouth, letting the world see a mesmerizing flash of pink.</p>

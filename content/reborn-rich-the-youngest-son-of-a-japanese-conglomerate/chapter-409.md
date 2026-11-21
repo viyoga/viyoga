@@ -40,7 +40,7 @@ chapter = 409
 <p>###</p>
 <p>'As expected, my Lord is a great hero...!'</p>
 <p>Ninja girl Sakagami Rena, who was hiding her body with optical camouflage in a corner of the ceiling, muttered inwardly as she watched the explicit sex between Yamashiro Ryuta and Kasaoka Yuzuki.</p>
-<p>EVE: If you wait at room 501 of our branch's love hotel, Ryuta-nim will go~!</p>
+<p>EVE: If you wait at room 501 of our branch's love hotel, Ryuta-nim will go!</p>
 <p>Today, after school, Sakagami Rena was preparing to go home when she received a message from Eve. She didn't know why Eve was helping her with what she was doing, but when she heard that Yamashiro Ryuta was her prospective Lord, Eve was helping her without her knowing. Since the ninja Sakagami family and the Dark Merchant Guild were in a mutually beneficial relationship, Sakagami Rena knew that the Miyashi branch of the Dark Merchant Guild was in a love hotel district.</p>
 <p>Sakagami Rena had been following Yamashiro Ryuta to get to know her prospective Lord, following Eve's advice that she had to know him well in order to serve him as her Lord.</p>
 <p>She couldn't skip class, so she followed him to Korea a little late and looked around Yamashiro Ryuta's business, and saw him having sex with a young and beautiful entrepreneur named Han Yu-gyeong, and when Yamashiro Ryuta returned to Japan, she continued to watch him and saw him having sex with the school nurse, Kijimoto Jurie, and Daigo Terue.</p>
@@ -67,7 +67,7 @@ chapter = 409
 <p>'If I serve my Lord, will I be able to feel it too?'</p>
 <p>Before she knew it, the 'prospective' in 'prospective Lord' was gone. Sakagami Rena's mind was gradually hardening in one direction.</p>
 <p>-----</p>
-<p>Valentine's Day Chocolate Gift~!!</p>
-<p>A gift from naked Kasaoka Yuzuki~!</p>
-<p>A sincere chocolate from the Home Economics Teacher~!!</p>
-<p>A tsundere-flavored gift from Minamoto Lisa~!!</p>
+<p>Valentine's Day Chocolate Gift!!</p>
+<p>A gift from naked Kasaoka Yuzuki!</p>
+<p>A sincere chocolate from the Home Economics Teacher!!</p>
+<p>A tsundere-flavored gift from Minamoto Lisa!!</p>

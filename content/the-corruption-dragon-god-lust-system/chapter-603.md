@@ -9,11 +9,11 @@ chapter = 603
 
 <p>They were in a slightly shallower part of the hot spring, the water barely reaching their knees, rippling with the movement of Qingyi’s hips.</p>
 
-<p>“Ghnnn~~” Rongyan’s lips parted with the impact, her hands immediately flowing to her full, firm breasts.</p>
+<p>“Ghnnn” Rongyan’s lips parted with the impact, her hands immediately flowing to her full, firm breasts.</p>
 
 <p>She squeezed them hard and then turned her face, looking at Qingyi behind her.</p>
 
-<p>“What’s the matter? Do you think your wife is too cute to fuck her hard? Fufufu~~” Rongyan gave a naughty little laugh, ready to turn around and climb on top of him if he didn’t act soon.</p>
+<p>“What’s the matter? Do you think your wife is too cute to fuck her hard? Fufufu” Rongyan gave a naughty little laugh, ready to turn around and climb on top of him if he didn’t act soon.</p>
 
 <p>Fortunately, it wasn’t necessary.</p>
 
@@ -21,7 +21,7 @@ chapter = 603
 
 <p>A loud thud echoed, followed by a sweet, naughty little scream from Rongyan, her whole body trembling.</p>
 
-<p>“Yeah that’s better~~” She moaned, her eyes rolling back in pleasure.</p>
+<p>“Yeah that’s better” She moaned, her eyes rolling back in pleasure.</p>
 
 <p>It had been no more than four days since the last time she had sex with Qingyi, but she felt as if she hadn’t seen him in months, too addicted to that huge cock to live without it inside her.</p>
 
@@ -37,7 +37,7 @@ chapter = 603
 
 <p>“Hm… my little angry hamster is out of control today, huh?” Qingyi laughed, resting his hands on her ass, lifting her onto his cock before letting her fall back down.</p>
 
-<p>“Nghnn~~ I wonder whose fault it is… idiot~~♡” Rongyan gasped through clenched teeth and rolled eyes, an explosion of pleasure taking over her groin and spreading throughout her entire body. Locking her legs and taking her stance, she began to move her hips. First in a slow ride, feeling every inch of Qingyi slide inside her.</p>
+<p>“Nghnn I wonder whose fault it is… idiot♡” Rongyan gasped through clenched teeth and rolled eyes, an explosion of pleasure taking over her groin and spreading throughout her entire body. Locking her legs and taking her stance, she began to move her hips. First in a slow ride, feeling every inch of Qingyi slide inside her.</p>
 
 <p>But soon that ride lost control and gained speed and momentum. Every loud, wet slap of those plump, perfect cheeks hitting his hips was met with a powerful bounce and a naughty moan.</p>
 
@@ -67,7 +67,7 @@ chapter = 603
 
 <p>She let the cock slip out of her mouth.</p>
 
-<p>“Ah~~ I want a fight… a real fight.” She stood up, wrapping her arms around him.</p>
+<p>“Ah I want a fight… a real fight.” She stood up, wrapping her arms around him.</p>
 
 <p>“You know it’s dangerous to let any of you go out… I still don’t know what dangers this place holds.” Qingyi sighed, returning the hug. “Hm… it doesn’t have to be now… I still have a lot to train. I just want to break a few bones… It’s been so long since I’ve had a good, real fight.</p>
 

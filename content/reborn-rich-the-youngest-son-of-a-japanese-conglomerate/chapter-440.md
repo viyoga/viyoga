@@ -45,7 +45,7 @@ chapter = 440
 <p>She wouldn't misunderstand, would she...? She lost consciousness while fighting and woke up to find her clothes taken off, and the first person she saw when she opened her eyes was me, standing naked with my dick dangling.... It was a situation that anyone would misunderstand.</p>
 <p>"Don't misunderstand, and listen to my explanation."</p>
 <p>"Sensei, in this obvious situation, I'd like you to tell me what isn't a misunderstanding...?"</p>
-<p>I don't know if Otagi Yuka-ssi will believe that 'I'm a sex healer who can heal injured people with sex~!', but I started talking as much as possible so that Otagi Yuka-ssi could understand.</p>
+<p>I don't know if Otagi Yuka-ssi will believe that 'I'm a sex healer who can heal injured people with sex!', but I started talking as much as possible so that Otagi Yuka-ssi could understand.</p>
 <p>"H, how's the injured area now? It was very serious."</p>
 <p>"...Yeah, I'm definitely okay."</p>
 <p>"I actually fixed it with sex. I have the ability to heal with sex."</p>

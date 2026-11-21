@@ -51,7 +51,7 @@ chapter = 756
 
 <p>"Adoptive mother... you’ll let this unfilial son fill you with his seed, won’t you?"</p>
 
-<p>"Mghnn~ d-don’t say those embarrassing things, you... you~ ah~"</p>
+<p>"Mghnn d-don’t say those embarrassing things, you... you ah"</p>
 
 <p>Qingyi gripped the top of her ass with both hands, his fingers sinking deep into the tender, soft flesh right where her plump buttocks met her wide hips, her curves tapering into the graceful arc of her delicate jade waist.</p>
 
@@ -59,7 +59,7 @@ chapter = 756
 
 <p>*CLAP*</p>
 
-<p>"AGHNNN~"</p>
+<p>"AGHNNN"</p>
 
 <p>His pelvis crashed into her plump ass with a loud, wet slap, the pale flesh quaking violently from the impact, ripples coursing through her full buttocks like a churning lake of milk.</p>
 
@@ -77,15 +77,15 @@ chapter = 756
 
 <p>*CLAP*</p>
 
-<p>"Sweetheart... I am your— nghnn~~"</p>
+<p>"Sweetheart... I am your— nghnn"</p>
 
 <p>*CLAP*</p>
 
-<p>"w-wait~ ah~~ oghn~~"</p>
+<p>"w-wait ah oghn"</p>
 
 <p>*CLAP*</p>
 
-<p>"nghnn~~"</p>
+<p>"nghnn"</p>
 
 <p>*CLAP*</p>
 
@@ -109,7 +109,7 @@ chapter = 756
 
 <p>Under the squeezing pressure, thin jets of warm milk burst from her hardened, puffy nipples, splattering against the mattress beneath her in wet, milky patches.</p>
 
-<p>"Q-Qingyi~ what is this? ah~ what are you doing to your mommy, oghnn~~ you unfilial son?! What are you— nghnn~" Rouxi couldn’t finish the sentence.</p>
+<p>"Q-Qingyi what is this? ah what are you doing to your mommy, oghnn you unfilial son?! What are you— nghnn" Rouxi couldn’t finish the sentence.</p>
 
 <p>The moment her voice broke, her eyes widened, and Qingyi’s cock, at its limit, finally released.</p>
 

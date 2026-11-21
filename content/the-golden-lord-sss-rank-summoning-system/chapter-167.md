@@ -48,7 +48,7 @@ chapter = 167
 <p>His eyes widened as she threw herself into his arms.</p>
 <p>Her long legs wrapped around his waist, thighs clamping tight against his hips, while her enormous, soft, fragrant dark tits smashed into his face, smothering him in a warm, perfumed avalanche of flesh.</p>
 <p>The plush, dusky mounds swallowed his features whole, the two pillowy globes molding around the contours of his nose and cheeks.</p>
-<p>"Ah... My naughty, perverted Lord... I was already dying of longing, fufufu~"</p>
+<p>"Ah... My naughty, perverted Lord... I was already dying of longing, fufufu"</p>
 <p>Elena giggled, her supple, silken mounds quivering against Ethan’s face.</p>
 <p>But she soon froze, noticing all those strange stares fixed upon her.</p>
 <p>Aerick, his family, Adam, and Veronica, who was clinging to Alice.</p>

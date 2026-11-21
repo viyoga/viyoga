@@ -57,7 +57,7 @@ chapter = 207
 <p>Of course, the closer one was to one of the main cities and the more beautiful the scenery became.</p>
 <p>This was even more so in their personal gardens that were filled with large and beautiful trees, giving the impression of being in a tropical forest.</p>
 <p>It was in one such a garden, in Gabriel's palace, that an uncommon scene was happening.</p>
-<p>"AhAhAh~!... Nn !"</p>
+<p>"AhAhAh!... Nn !"</p>
 <p>One girl, her arms resting on a tree, was facing a continuous deep and relentless assault from the boy behind her and all she could do was bite her lips to stifle her moans.</p>
 <p>Her upper body was still clad in a white robe, but the lower part of the dress had been pushed up on her back, revealing her firm and toned brown ass.</p>
 <p>Pounding her from behind with deep strokes was none other than Sol, the very man who had been sentenced to a sure death by Tiamat should he not train.</p>

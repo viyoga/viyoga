@@ -29,7 +29,7 @@ chapter = 1810
 <p>She’d been begging him to find Ignis and go out for drinks with him, or whatever mundane guy stuff they wanted, but that never materialized. Perhaps later.</p>
 <p>Quinlan didn’t really get why she was so hopeful he’d one day find a male friend, and he didn’t agree one bit. Surrounding himself with gorgeous babes was literal perfection, the best way for a man to lead his life. He didn’t miss having a perpetually grumbling, hairy creature in his life.</p>
 <p>Yet here he was, doing this for Alexios, because he... respected that old fucker too much. If their situations were reversed, Quinlan would be disgusted to take that pill from another man. He would still do it, no doubt, but he wouldn’t like it one bit. That’s why he did what he did.</p>
-<p>Ayame’s soft giggles sounded, far too happy for him for a reason Quinlan really didn’t understand."&gt; &lt;Hehe~&gt; Ayame’s soft giggles sounded, far too happy for him for a reason Quinlan really didn’t understand.</p>
+<p>Ayame’s soft giggles sounded, far too happy for him for a reason Quinlan really didn’t understand."&gt; &lt;Hehe&gt; Ayame’s soft giggles sounded, far too happy for him for a reason Quinlan really didn’t understand.</p>
 <p>But if she was happy...</p>
 <p>...</p>
 <p>The third batch died a little past midnight.</p>

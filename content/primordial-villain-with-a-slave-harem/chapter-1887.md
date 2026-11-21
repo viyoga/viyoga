@@ -11,7 +11,7 @@ chapter = 1887
 <p>In the western gallery, the mood was vastly different.</p>
 <p>"Oh, now that’s organized!" Jasmine leaned forward with her chin on her knuckles, nodding slowly at the counting-house. "Intake, processing, review, collection. She built a working ministry and she doesn’t even know she did it. I’m soo jealous!"</p>
 <p>"That fire looks damn hot," Serika grinned with professional envy.</p>
-<p>Kitsara whistled, low and long, five tails going at once. "And she gets to keep them forever~"</p>
+<p>Kitsara whistled, low and long, five tails going at once. "And she gets to keep them forever"</p>
 <p>"Kaelira." Seraphiel leaned over the rail beside her, entirely too delighted. "Serious question. Is that hot enough to work steel?"</p>
 <p>Kaelira studied the glow under the distant pillar with her arms folded, and gave it real thought, because she gave everything real thought.</p>
 <p>"What nonsense is that question?" the tomboy elf asked dryly. "Of course they’re hot enough."</p>

@@ -29,7 +29,7 @@ chapter = 282
 <p>Sawayanagi Azuma announces today's schedule and goes up to her room. She's probably going to change into her swimsuit. I'm going to get an eyeful today.</p>
 <p>I also went up to my room, put on the trunk-type swimsuit I wore on vacation with Yukiko, and came outside.</p>
 <p>When I went down to the valley, there were several people playing in the water because it was a summer Sunday.</p>
-<p>"Ryuta~!"</p>
+<p>"Ryuta!"</p>
 <p>Alik, wearing a one-piece swimsuit, ran to me. Alik was wearing a navy blue one-piece swimsuit with a design like a school swimsuit, and he had a surprisingly voluptuous figure. I could feel him slowly growing. I didn't raise him, but I felt proud to see him growing up.</p>
 <p>"Mari-chan chose it for me."</p>
 <p>"It's pretty, Alik."</p>
@@ -63,8 +63,8 @@ chapter = 282
 <p>Lianna Holden, wearing a bikini in the style of the American flag, made a grand entrance, and Sawayanagi Seari, wearing a white one-piece swimsuit in contrast to Alik, came down to the valley, blushing shyly.</p>
 <p>Unfortunately, sniper Sawayanagi Mikiyo came wearing a rash guard, and Jung Da-rim, the last of the women, was wearing a swimsuit but seemed uninterested in playing in the water, wearing Seryutai's green field jacket.</p>
 <p>I think she'll probably look at the grass around the valley and play. I hope she finds some good medicinal herbs.</p>
-<p>"Those who want to play in the water, play in the water, and everyone have fun~!"</p>
-<p>"Yay~!"</p>
+<p>"Those who want to play in the water, play in the water, and everyone have fun!"</p>
+<p>"Yay!"</p>
 <p>At Sawayanagi Azuma's words, everyone went into the water, or some of the men approached the female tourists who were already playing in the water and were flirting with them. Since they were all PMC agents, they had good bodies and seemed to be doing well with the women.</p>
 <p>"Kyahaha! Come at me!"</p>
 <p>Fujigasaki Rinka was playing in the water, splashing water without distinguishing between friend and foe, and the water that Fujigasaki Rinka splashed was so stinging that it seemed to contain energy.</p>
@@ -79,7 +79,7 @@ chapter = 282
 <p>"Master did it too!"</p>
 <p>After that, we splashed water like crazy. Fujigasaki Rinka also seemed to have come to her senses from my attack, and I could feel her adjusting her strength. Of course, she shot very strongly when she shot water at me.</p>
 <p>After playing in the water for a while, Alik was hit by Fujigasaki Rinka's water stream, which was aimed at me, and Alik was pushed back by the water stream and fell.</p>
-<p>"Alik~! Are you okay?"</p>
+<p>"Alik! Are you okay?"</p>
 <p>"Uung...! I'm okay, Ryuta."</p>
 <p>He said he was okay, but Alik was breathing heavily, as if he was a little upset. Alik didn't splash water at Fujigasaki Rinka, but ran at her and made a melee attack.</p>
 <p>"What, you little cat! You have to use water, not your body!"</p>

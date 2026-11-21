@@ -11,7 +11,7 @@ chapter = 143
 <p>,"Arisu-ssi seems too Caucasian to be from the Taira family...."</p>
 <p>,"Ah, I'm a quarter. My grandmother is American, and my mother married an American father."</p>
 <p>Arisu gently accepted the race question, which could be seen as rude. Arisu probably gets these questions often, so she didn't seem to think it was rude.</p>
-<p>,"Ah~ a quarter.... So Ryuta is also one-quarter American?"</p>
+<p>,"Ah a quarter.... So Ryuta is also one-quarter American?"</p>
 <p>,"No, my grandmother is a different person. Olivia-nim, who is Arisu's grandmother, passed away, and Taira Shizuku-nim, who married after that, is my grandmother."</p>
 <p>,"Ah, the grandmothers are different. Thinking about it that way, you're less related than typical cousins, right?"</p>
 <p>Ah, is that so? Come to think of it, that's right. Usually, cousins have the same grandmother, so even though Arisu is a cousin, she's much less related than that.</p>
@@ -46,7 +46,7 @@ chapter = 143
 <p>Taira Ryuta: Yes, please tell me.</p>
 <p>Cherry-chan🍒: Nagumo Sian-nim wants to hire East Weapon. It seems like she wants to hire on a large scale. So I've scheduled a phone call with my Sunbae-nim.</p>
 <p>Taira Ryuta: I'll go to the East Weapon building after lunch.</p>
-<p>Cherry-chan🍒: Okay~!</p>
+<p>Cherry-chan🍒: Okay!</p>
 <p>When I finished the Line message, everyone was looking at me. Have they never seen someone touch their phone before? Why is everyone looking at me?</p>
 <p>,"What is it?"</p>
 <p>,"You looked so serious."</p>
@@ -68,10 +68,10 @@ chapter = 143
 <p>,"So, I think I need to go to the company after lunch."</p>
 <p>,"Ah, is that so? Well, it can't be helped...."</p>
 <p>,"I can play with our Umi, hehe...."</p>
-<p>,"Aww~ why are you like this, hohoho."</p>
+<p>,"Aww why are you like this, hohoho."</p>
 <p>It seems like my friends are settled for now, and I opened my mouth to Arisu's ear.</p>
 <p>,"Arisu, I'll give you a tour of the company."</p>
-<p>,"Really? Hehe. I was disappointed because I thought we were breaking up so soon~!"</p>
+<p>,"Really? Hehe. I was disappointed because I thought we were breaking up so soon!"</p>
 <p>Arisu was very happy at my words that I would give her a tour. If we had broken up so soon after meeting for the first time in a while, she probably would have been very sulky. And Kiyohira had a slightly disgusted expression as the couple was lovey-dovey on both sides.</p>
 <p>,"I should have brought my girlfriend from America too....."</p>
 <p>Kiyohira, who likes chubby women, seemed to have many women who fit his taste in America, where the obesity rate is high. So he happily continues to meet and change girlfriends. He says he has a girlfriend now, but when I saw the picture, he was dating a Caucasian woman who seemed pretty decent if she lost weight.</p>

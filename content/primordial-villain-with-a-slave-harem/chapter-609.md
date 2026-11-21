@@ -5,7 +5,7 @@ weight = 609
 chapter = 609
 +++
 
-<p>[Author: Forgot to include Quinlan’s picture with the elements surrounding him for the first ~90 mins after posting yesterday’s chapters. My apologies. You can check the picture in this paragraph.]</p>
+<p>[Author: Forgot to include Quinlan’s picture with the elements surrounding him for the first 90 mins after posting yesterday’s chapters. My apologies. You can check the picture in this paragraph.]</p>
 <p>...</p>
 <p>"Quinnie, mommy is so proud of you!" Lumi squealed while hugging me deeply into her voluptuous bosom. I’d just finished detailing my rank-up trial. Both mothers of mine were shocked, just like Malakar was. Based on what the Soul Records have told me, I was indeed an anomalous existence.</p>
 <p>That didn’t deter either of my mothers from showering me in love and adoration, though.</p>

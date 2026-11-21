@@ -25,8 +25,8 @@ chapter = 374
 <p>I blocked Kujo Kina's heel drop with my forearm. My forearm felt a little numb, so it was quite strong. But to my eyes, which had the Saint of Fist skill, it was a clearly visible technique, so I was able to prepare for the impact.</p>
 <p>Since one of Kujo Kina's legs was on my arm, I threw a low kick at her remaining supporting leg.</p>
 <p>Kujo Kina, rather, used my arm as a stepping stone and avoided the low kick by doing a backflip. She really had the quick movements that suited her leopard bikini. It was an incredibly animalistic movement.</p>
-<p>"Wow~! Amazing."</p>
-<p>"Ryuta-cchi, don't lose~!!"</p>
+<p>"Wow! Amazing."</p>
+<p>"Ryuta-cchi, don't lose!!"</p>
 <p>Cheers erupted when Kujo Kina did a backflip. Certainly, to the female students, Kujo Kina's movements seemed light, and they seemed to think I was at a disadvantage. Some who knew my skills well didn't think that at all, but since all I had shown was blocking and a low kick, it was natural for them to think that way.</p>
 <p>"Hap!"</p>
 <p>Kujo Kina shouted and kicked again. Since there was a difference in physique between us, Kujo Kina seemed to be using kicks more than punches. It seemed like she was planning to play the match focusing on kicking techniques because the reach difference was too great to fight with punching techniques.</p>
@@ -48,7 +48,7 @@ chapter = 374
 <p>But she couldn't beat me, who had gone through all sorts of hell. I dodged or blocked all of Kujo Kina's attacks to neutralize them. And while dodging Kujo Kina's punch, I grazed Kujo Kina's chin with a counter punch.</p>
 <p>It wasn't a very powerful blow, but Kujo Kina staggered and fell straight down. Her brain was momentarily shaken by the hit to her chin, causing her to faint.</p>
 <p>"Waa!"</p>
-<p>"Ryuta-cchi~! Amazing!"</p>
+<p>"Ryuta-cchi! Amazing!"</p>
 <p>"Is Kina okay?"</p>
 <p>To the female students, Kujo Kina, who had been constantly attacking, fell with just one of my counters, so it must have been a very exciting match to watch.</p>
 <p>Kijimoto Jurie, who had been sitting next to the ring, rushed over to check on the fallen Kujo Kina. She wasn't knocked out from being hit by me a lot, but rather fainted because her brain was shaken, so she probably didn't suffer any major injuries.</p>

@@ -122,8 +122,8 @@ chapter = 906
 <p>****</p>
 <p>Fujigasaki Rinka shouted at the Gwonmaeng Fist Technique Masters to prevent further harm, then charged at Takakusaki Gengo alone.</p>
 <p>At that Moment, the torches flickered violently, sweeping away the shadows that obscured Takakusaki Gengo's Face. Takakusaki Gengo was grinning from ear to ear, watching Fujigasaki Rinka approach him.</p>
-<p>Gojoy-nim requested Nagumo Sian in underwear in a provocative pose~!</p>
+<p>Gojoy-nim requested Nagumo Sian in underwear in a provocative pose!</p>
 <p>Due to her huge breasts, she might look a bit bloated, but Sian Maman actually has a quite thin waist haha</p>
-<p>TheDreaming-nim requested Beach Diana Lich 1. Breast Morphing Running 2. Interview~!</p>
+<p>TheDreaming-nim requested Beach Diana Lich 1. Breast Morphing Running 2. Interview!</p>
 <p>1.</p>
 <p>2.</p>

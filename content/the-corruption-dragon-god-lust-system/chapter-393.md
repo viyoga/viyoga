@@ -51,7 +51,7 @@ chapter = 393
 
 <p>It was more than enough for him to almost reach the realm of the false immortal and begin preparations to finally become a true immortal.</p>
 
-<p>“Nghnn~~”</p>
+<p>“Nghnn”</p>
 
 <p>A sweet, soft moan echoed to Qingyi’s right, and a pair of beautiful emerald eyes opened.</p>
 
@@ -59,7 +59,7 @@ chapter = 393
 
 <p>“Uh…” She raised her torso gently, her huge breasts swaying as she stretched and scratched her sleepy eyes.</p>
 
-<p>Suddenly, she stopped, looked at Qingyi and flashed a blushing smile. “hubby… ready to be smothered by my huge titties? Fufufu~~”</p>
+<p>Suddenly, she stopped, looked at Qingyi and flashed a blushing smile. “hubby… ready to be smothered by my huge titties? Fufufu”</p>
 
 <p>Without even giving Qingyi a chance to reply, she leaned forward and pressed her mountains of chocolaty flesh against his face, enveloping him in an endless sea of softness.</p>
 
@@ -89,7 +89,7 @@ chapter = 393
 
 <p>Qingyi, naturally, couldn’t miss the opportunity to slap that full, voluptuous and shapely ass, His hand meeting the pale skin with a loud, wet slap.</p>
 
-<p>“Nghnn~~ you… shameless little husband…” Qianyao moaned as she stood up, her ass cheeks jiggling like jelly, the shockwave from Qingyi’s slap traveling through her voluptuous flesh.</p>
+<p>“Nghnn you… shameless little husband…” Qianyao moaned as she stood up, her ass cheeks jiggling like jelly, the shockwave from Qingyi’s slap traveling through her voluptuous flesh.</p>
 
 <p>“Come on, your father must be waiting for us…” Qingyi smiled, giving her huge tits a final squeeze before walking away, watching her finish changing.</p>
 

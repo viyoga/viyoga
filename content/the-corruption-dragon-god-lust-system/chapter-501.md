@@ -73,7 +73,7 @@ chapter = 501
 
 <p>‘We have to stop by the Valemont Kingdom branch too… Qingyi thought, focusing his gaze on the obsidian beauty beside him.</p>
 
-<p>“I don’t need those uncomfortable things,” Khaedryss declared, puffing out her chest. “My perfect body should be- ah! Nghnnn~~”</p>
+<p>“I don’t need those uncomfortable things,” Khaedryss declared, puffing out her chest. “My perfect body should be- ah! Nghnnn”</p>
 
 <p>Khaedryss’ words were interrupted by a thunderous slap and a powerful shockwave spread through her fat ass, causing her entire body to tremble.</p>
 
@@ -89,7 +89,7 @@ chapter = 501
 
 <p>The moment Feiyan saw Khaedryss, naked beside Qingyi, she was unable to stop a big, sensual smile from spreading across her red lips.</p>
 
-<p>“Oh… Big sister Khaedryss is truly beautiful! Fufufu~~”</p>
+<p>“Oh… Big sister Khaedryss is truly beautiful! Fufufu”</p>
 
 <p>“Yes, yes, yes!”</p>
 

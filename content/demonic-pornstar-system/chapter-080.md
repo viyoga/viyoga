@@ -7,7 +7,7 @@ chapter = 80
 
 <p>"Hmm..." She mused with a coy smile while staring at the throbbing serpentine monster. "The doctor did order a sperm collection so that we could analyze your seed for potential problems. How about getting to it now? Maybe I can find a way to also help with your big problem while doing so..."</p>
 <p>As soon as that declaration left her lips, a truly comical event happened. His shaft was so desperate to feel the caressing of this heavenly existence that it outright freed itself from its chains when it tore his zipper apart and emerged from his pants in its full glory, greeting Aria with a standing ovation.</p>
-<p>Aria giggled amusedly for a few seconds before she managed to collect herself, "Oh~? I see you are very eager to undergo the collection procedure, Mister Kaiden."</p>
+<p>Aria giggled amusedly for a few seconds before she managed to collect herself, "Oh? I see you are very eager to undergo the collection procedure, Mister Kaiden."</p>
 <p>"Yes, Miss Nurse!"</p>
 <p>"Then, without further ado, let me get to it," she said while grabbing two latex gloves and putting them on her hands to retain at least the smallest modicum of pretend professionalism, after which she climbed into his bed and kneeled between his legs. Kaiden was in a reclined sitting position so he could see perfectly well what the girl was doing.</p>
 <p>Aria closed in on his shaft as she eyed it from only an inch away. Then, she started sniffing his member before exploring it with her fingers. "Hmm... Yes, something is definitely wrong here. Too much blood coalesced in your penis as a side effect of the treatment you received. We must relieve you of this pain immediately, or it might burst."</p>

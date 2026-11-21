@@ -33,7 +33,7 @@ chapter = 792
 <p>Looking around inside the helicopter, Minamoto Risa was not visible. Since we had split into two helicopters just like when we came, she seemed to be in the other helicopter.</p>
 <p>"First... everyone suffered through an unexpected Situation. It will be a little past Evening when we arrive, so everyone will go straight Home, right?"</p>
 <p>Even without Minamoto Risa, I had to do what needed to be done. Since the snow had suddenly stopped, the police had arrived, and the Minamoto-ga's helicopter had come, nothing had been decided about what to do today, so I first asked the Students.</p>
-<p>"What are you talking about? On the contrary, since it's already past Evening, we should eat a Meal together~! We'll be getting off at the academy, so we can have Dinner at a nearby restaurant and then part ways."</p>
+<p>"What are you talking about? On the contrary, since it's already past Evening, we should eat a Meal together! We'll be getting off at the academy, so we can have Dinner at a nearby restaurant and then part ways."</p>
 <p>At my Words, Kujo Kina said, stroking her Belly as if hungry. After having lunch, being in the hot spring, searching, catching Kotowazuki, and undergoing police investigation, the sky was already getting a little dark.</p>
 <p>Since it would take another hour by helicopter to St. Francis Girls' Academy, they would be extremely hungry upon arrival. Then, I also thought it might be good to have Dinner and part ways, as Kujo Kina suggested.</p>
 <p>"Then I'll open a poll in the Line chat room. Let's decide with that."</p>
@@ -74,12 +74,12 @@ chapter = 792
 <p>"Eve is the one in the Dark Shark Underground, right?"</p>
 <p>"Yeah. She also handles my broker Work. She's quite trustworthy."</p>
 <p>Seizawa Shii, who was talking about Eve, checked her phone again when it vibrated. Minamoto Risa subtly glanced at the Screen next to her, and it was the special class group Line chat room.</p>
-<p>"Oh?! A poll appeared in the special class Line chat room. Lisa-ttang~! Will we part ways immediately after arriving at the academy? Or will we have Dinner and then part ways?"</p>
+<p>"Oh?! A poll appeared in the special class Line chat room. Lisa-ttang! Will we part ways immediately after arriving at the academy? Or will we have Dinner and then part ways?"</p>
 <p>"Since our ski Travel schedule was until tomorrow anyway, let's have Dinner together before we go. Everyone's okay with that, right?"</p>
 <p>Minamoto Risa looked at her classmates inside the helicopter and asked. Seeing all her Friends nod their Heads, it seemed they were all Regrettable to part ways like this.</p>
 <p>Minamoto Risa watched her Friends voting on their phones, and realized something. Among those Students, there must be some who had engaged in Lewd Acts with Yamashiro Ryuta.</p>
 <p>'As the Main Wife, I need to sort things out once and for all...'</p>
 <p>Although no one had decided it, Minamoto Risa decided to become the Main Wife herself. That thought would later cause a great commotion, but for now, it was merely a small thought in Minamoto Risa's Head.</p>
-<p>Leggings Lizhael requested by Lee Seung-joo_367-nim~!</p>
-<p>Magical Girl Alik requested by ISaveI-nim~!</p>
+<p>Leggings Lizhael requested by Lee Seung-joo_367-nim!</p>
+<p>Magical Girl Alik requested by ISaveI-nim!</p>
 <p>Kkiyoooot!</p>

@@ -25,7 +25,7 @@ As Alea finished saying that, Agalea's heart was struck by an arrow of wholesome
 
 "Aww, my sweet Alea, come here." Agalea pulled Alea in for a hug. She kissed her on the cheeks and softly called out her name with love.
 
-"Mama~," Alea said the same as well with a smile.
+"Mama," Alea said the same as well with a smile.
 
 "My dear, you don't have to think so much. Whenever you feel like being with mama, just come. Mama will make time even if there isn't any." Agalea said while patting Alea's back.
 
@@ -33,7 +33,7 @@ As Alea finished saying that, Agalea's heart was struck by an arrow of wholesome
 
 "Yes, really."
 
-"Yay!~ I love mama so much!" Alea hugged Agalea tighter and rubbed her cheeks on her face.
+"Yay! I love mama so much!" Alea hugged Agalea tighter and rubbed her cheeks on her face.
 
 Agalea became happier watching her daughter be satisfied by such small things.
 

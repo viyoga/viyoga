@@ -65,7 +65,7 @@ chapter = 918
 
 <p>Plap</p>
 
-<p>"Aghnn~~"</p>
+<p>"Aghnn"</p>
 
 <p>Yuehan’s ass jiggled all over from the impact. Both cheeks bounced upward, hung there for a split second, then dropped back down, soft and heavy, the skin still trembling as they came to rest.</p>
 
@@ -73,11 +73,11 @@ chapter = 918
 
 <p>Clap</p>
 
-<p>"Q-Qingyi~"</p>
+<p>"Q-Qingyi"</p>
 
 <p>Plap</p>
 
-<p>"Oghnn~~"</p>
+<p>"Oghnn"</p>
 
 <p>That ass didn’t get a second of peace.</p>
 
@@ -89,7 +89,7 @@ chapter = 918
 
 <p>Plap</p>
 
-<p>"Aghnn~~ s-so big... Q-Qingyi... filling me up so much~~"</p>
+<p>"Aghnn s-so big... Q-Qingyi... filling me up so much"</p>
 
 <p>She melted into obscene moans, her eyes rolling back until almost only the whites showed, drool trickling from the corner of her mouth and soaking into the pillow.</p>
 
@@ -109,7 +109,7 @@ chapter = 918
 
 <p>The red imprint of his five fingers appeared on her pale skin almost instantly.</p>
 
-<p>"Ahn~!"</p>
+<p>"Ahn!"</p>
 
 <p>Yuehan let out a short cry, arching her back and pushing her butt even higher against him.</p>
 

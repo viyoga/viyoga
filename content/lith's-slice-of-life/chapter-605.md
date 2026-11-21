@@ -113,7 +113,7 @@ Alea got up from her seat and smiling, turned to look at Lith and did a thumbs u
 
 "Little cousin, good luck and do well! I'll be cheering for you while away from the court. Come quickly to me when you're done, okay?"
 
-"Baibai~" Alea waved her hand and left without waiting to hear Lith's response.
+"Baibai" Alea waved her hand and left without waiting to hear Lith's response.
 
 Lith didn't understand why she said that and turned to look at Agalea, expressing he didn't understand what had just happened and how to respond to it.
 

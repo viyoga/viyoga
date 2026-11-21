@@ -77,13 +77,13 @@ chapter = 204
 
 <p>It wasn’t long before his face was engulfed in the soft, warm embrace of the huge twin mountains of Ruxue and Elize, while Yunfei, master of the priestesses, sank her face into his groin and swallowed his member voraciously.</p>
 
-<p>“Mmm~~ gluck gluck~” Wet sounds escaped Yunfei’s throat as she sucked non-stop until she felt Qingyi’s seed explode in her mouth, swallowing large gulps before pulling back, making room for the other girls to have their turn too.</p>
+<p>“Mmm gluck gluck” Wet sounds escaped Yunfei’s throat as she sucked non-stop until she felt Qingyi’s seed explode in her mouth, swallowing large gulps before pulling back, making room for the other girls to have their turn too.</p>
 
 <p>After making love to each of the priestesses, Qingyi found himself alone with Feiyan, holding the bronzed beauty from behind.</p>
 
 <p>The loud smacks of her plump ass hitting his lap echoed throughout the temple, each impact sending shockwaves through her voluptuous buttocks, that rippled like waves on a ocean.</p>
 
-<p>“Oghnn~~ Did hubby really miss that little pussy so much?” Feiyan asked in a voice quivering from Qingyi’s blows behind her, her long, delicate fingers grabbing and squeezing her own tits.</p>
+<p>“Oghnn Did hubby really miss that little pussy so much?” Feiyan asked in a voice quivering from Qingyi’s blows behind her, her long, delicate fingers grabbing and squeezing her own tits.</p>
 
 <p>“What do you think?” Qingyi laughed, gripping her buttocks tightly, feeling the creamy, incomparably soft skin spilling out between his fingers.</p>
 
@@ -91,7 +91,7 @@ chapter = 204
 
 <p>With a final grunt, he forced everything forward, leaning on Feiyan’s waist as his hips sank into her fat ass, releasing his cum into her womb.</p>
 
-<p>“Arghnn~~! Hnnng fuck!” A guttural, obscene moan escaped Feiyan’s lips, her tongue leaving her mouth and drenching her full, red lips with saliva.</p>
+<p>“Arghnn! Hnnng fuck!” A guttural, obscene moan escaped Feiyan’s lips, her tongue leaving her mouth and drenching her full, red lips with saliva.</p>
 
 <p>Qingyi’s right hand went from her waist to one of her breasts, squeezing it firmly while the other flowed up to her face, his index finger sinking into her lips.</p>
 

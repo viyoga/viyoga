@@ -18,9 +18,9 @@ chapter = 1862
 <p>That said... Doctrine demanded certainty before steel, and Kaede of all people had forfeited the right to act on anything less.</p>
 <p>Proof first.</p>
 <p>So she stayed where she was, pressed against the cold stones, and listened for the sounds a domestically abused woman makes.</p>
-<p>"By the way~" Ayame’s voice floated out to the courtyard, bright with mischief. "I’ve decided to conduct an audit."</p>
+<p>"By the way" Ayame’s voice floated out to the courtyard, bright with mischief. "I’ve decided to conduct an audit."</p>
 <p>"Sounds serious."</p>
-<p>"Very. Of every lie you told me in our first month~ Item one." A rustle of silk; the sound of a chin being planted on a chest. "You told me the women of Earth are so evil they must be drained of their sinister blood once a month, or they turn into banshees and terrorize the men."</p>
+<p>"Very. Of every lie you told me in our first month Item one." A rustle of silk; the sound of a chin being planted on a chest. "You told me the women of Earth are so evil they must be drained of their sinister blood once a month, or they turn into banshees and terrorize the men."</p>
 <p>"Yeah. I have firsthand experience."</p>
 <p>"...But it’s not true."</p>
 <p>"But it is."</p>
@@ -35,7 +35,7 @@ chapter = 1862
 <p>"What do you mean?" Quinlan asked with complete sincerity, innocent as an angel.</p>
 <p>"..." A pause arrived, alongside fiercely narrowed eyes.</p>
 <p>The investigation, too, continued. Paired with a second mighty glare from a Fujimori woman.</p>
-<p>"Item two~ The metal birds."</p>
+<p>"Item two The metal birds."</p>
 <p>"Airplanes."</p>
 <p>"You claimed hundreds of people sit inside one. Drinking juice. Sleeping. Watching plays. While it flies above the clouds."</p>
 <p>"All true."</p>
@@ -58,7 +58,7 @@ chapter = 1862
 <p>"Let the record be corrected." He stretched the smugness sideways, molding her noble features into increasingly stupid shapes. "Strip the primordial body. Strip my sexy samurai slave. Drop me at that construction site at level 1 with zero bronze coins to my name. Within ten years at the latest the world would still learn my name, and history would still record me as the gigachad dominator of the universe. It is simply the way things were meant to be."</p>
 <p>"...Pfhh." Ayame, cheeks stretched to their engineering limits, gave him the single most doubtful look ever aimed at a primordial. "You, Quinlan Elysiar, shall never be permitted to call anyone else delusional."</p>
 <p>He stretched wider.</p>
-<p>"Yhou’d die of shcurvy~ Or jusht break your arm, becomph unable to work, and end up a homelesh beggar. Or..." Her eyes lit up inside the stretched face. "Or yhou’d fall into debt and get shold off as a poor little shlave boy~"</p>
+<p>"Yhou’d die of shcurvy Or jusht break your arm, becomph unable to work, and end up a homelesh beggar. Or..." Her eyes lit up inside the stretched face. "Or yhou’d fall into debt and get shold off as a poor little shlave boy"</p>
 <p>She delivered the entire prognosis through the fish face, unrepentant to the last, and got her whole head wobbled side to side for it while her giggles spilled out between his fingers.</p>
 <p>Kaede catalogued the technique: facial deformation, administered to a giggling victim who could cause a great deal of pain due to her position if she objected.</p>
 <p>The case file was becoming difficult to read.</p>
@@ -67,5 +67,5 @@ chapter = 1862
 <p>The ancestors, who had witnessed considerably more than words on that floor within the last day, declined to answer.</p>
 <p>Inside, Ayame slid down her man by degrees, pressing unhurried kisses to his neck, his collarbone, the center of his chest, humming happily between each one. Then her mouth drifted sideways, and her tongue dragged flat across his nipple, slow and thorough.</p>
 <p>"That’s one way to apologize," said Quinlan.</p>
-<p>"Apologize? For what? Telling the truth? I’m merely auditing~" she murmured against his skin, and giggled at her own joke, and did it again, louder about it.</p>
+<p>"Apologize? For what? Telling the truth? I’m merely auditing" she murmured against his skin, and giggled at her own joke, and did it again, louder about it.</p>
 <p>*Chu.*</p>

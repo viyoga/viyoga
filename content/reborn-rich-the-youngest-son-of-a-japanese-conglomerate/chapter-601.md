@@ -6,7 +6,7 @@ chapter = 601
 +++
 
 <p>I parked the car in the love hotel parking lot and went down to the underground Am Sang branch where Eve was waiting. I was expecting her to be wearing something unusual today, and she was wearing a Kimono. It was a Kimono with a white background and red flower patterns, which suited Eve's hair color well.</p>
-<p>"Ryuta-nim~☆ You're here early?"</p>
+<p>"Ryuta-nim☆ You're here early?"</p>
 <p>"The traffic wasn't bad since it's a weekday afternoon."</p>
 <p>We exchanged brief greetings, and I sat down in the seat Eve had prepared for me. Eve was looking at me with an expression that seemed to be begging for a reaction to her outfit, so I smiled slightly and opened my mouth.</p>
 <p>"But why a Kimono today?"</p>
@@ -14,7 +14,7 @@ chapter = 601
 <p>Ah, was that it? Actually, when I was in Korea, it hadn't been long since I left Japan, so I didn't think about it, and when I was in South China, there were so many urgent situations that I didn't miss Japan either.</p>
 <p>Still, it felt good to see a woman with a great body wearing a Kimono after a long time. Each country's traditional clothing has its own moe points, and personally, I like Kimonos because they have a kind of delicate feeling, or something like that....</p>
 <p>"It suits you, Eve. It matches your hair color."</p>
-<p>"Thank you for the compliment, Ryuta-nim~☆"</p>
+<p>"Thank you for the compliment, Ryuta-nim☆"</p>
 <p>Eve was quite pleased with my compliment. I don't know if it's because of the program or if she's really happy. But I decided to believe that Eve is really happy.</p>
 <p>"First of all.... Here you go."</p>
 <p>I first took out the data I had hacked from the SCSMC's secret research lab from my pocket and handed it to Eve. Eve received the UCT I handed over with an expression as if she were receiving an amazing gift, and then plugged it into a nearby terminal.</p>
@@ -24,7 +24,7 @@ chapter = 601
 <p>"Ryuta-nim, can we buy Ai algorithms from Am Sang?"</p>
 <p>Ah, Eve has been collecting data on Ai for a while. I also stole and sold BS Group's technology in Pyongyang before.</p>
 <p>"I understand."</p>
-<p>"Thank you, I'll give you a good price~!"</p>
+<p>"Thank you, I'll give you a good price!"</p>
 <p>As soon as Eve finished speaking, a notification sound rang from my smartphone. When I checked my smartphone, I saw that 60 million Am Sang points had been deposited.</p>
 <p>60 million Am Sang points is.... about 8 billion yen. Because I had invested all my Am Sang points in various investments due to the recent situation in New Nanking City, my Am Sang points were running dry, so I was glad that I could replenish them with this.</p>
 <p>"Now that you have points again, you can receive Eve's special service, Eve's recommendation service☆"</p>
@@ -76,4 +76,4 @@ chapter = 601
 <p>In the end, this meal at Shin Kang House was concluded with Han Gyeong-jae apologizing to Han Yu-gyeong on behalf of everyone. Of course, judging from the explosive expression of the hot-tempered second son, Han Woo-min, it was impossible to think that the attempt to seize TG Tech would end here.</p>
 <p>_____________________</p>
 <p>Kimono Eve B-cut!</p>
-<p>Eve-jjang~!! Kawaii!</p>
+<p>Eve-jjang!! Kawaii!</p>

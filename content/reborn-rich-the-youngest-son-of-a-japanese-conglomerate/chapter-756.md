@@ -42,7 +42,7 @@ chapter = 756
 <p>"Fufu.... It's good that there's a next time, Orabeoni♡"</p>
 <p>No matter how much Taira Kanna had sent the Student Council Students away, I didn't want to thrust my waist in a Situation where I didn't know when they might come in. But despite my refusal, Taira Kanna fixated on the words "next time," and with a yandere Expression, she touched her cheeks with both hands and smiled.</p>
 <p>"Th-that's right. I'll leave for today."</p>
-<p>"Yes. Go, Orabeoni~♡"</p>
+<p>"Yes. Go, Orabeoni♡"</p>
 <p>Receiving Taira Kanna's greeting, I came out of the Student Council Room and turned on my phone. A huge number of text messages and missed calls had come in. Most were from special class Students or Han Yu-gyeong, Arisu, Mimata Chieri, etc., but among them, an unfamiliar text message had arrived.</p>
 <p>-Ryuta, it's your second eldest uncle, Jiro. I'd like to meet and talk.</p>
 <p>As if what I had talked about with Taira Kanna coincided, Taira Jiro's text message had arrived. Phone calls had also come several times, but naturally, I, who had been kidnapped, couldn't answer, so they had gone to missed calls.</p>
@@ -52,11 +52,11 @@ chapter = 756
 <p>In Taira Jiro's office, as the phone rang, Taira Jiro checked his phone screen and frowned. On the phone screen, the name Taira Ryuta was displayed.</p>
 <p>"Insolent bastard. He ignored my Phone Call, and only now he's calling me...."</p>
 <p>Taira Jiro, who had been quietly cursing Taira Ryuta, smiled as if he had never done so and answered Taira Ryuta's Phone Call.</p>
-<p>"Nephew-nim~! I waited a lot for your Phone Call!"</p>
+<p>"Nephew-nim! I waited a lot for your Phone Call!"</p>
 <p>-I apologize. I had my phone turned off due to a mission.</p>
 <p>He wanted to say something about his Contact being daringly ignored, but if a mission was used as an excuse, even Taira Jiro could do nothing. Because the one who gave that mission was none other than his Father, Taira Danjo.</p>
 <p>Even Taira Jiro, who feared nothing in the World, couldn't argue about the mission because he feared his Father, Taira Danjo.</p>
-<p>"If it's a mission, there's nothing to be done~! How about meeting with this uncle after a long time and talking?"</p>
+<p>"If it's a mission, there's nothing to be done! How about meeting with this uncle after a long time and talking?"</p>
 <p>-I apologize, but could I know what matter it is about?</p>
 <p>'Insolent bastard. If I say let's meet, you should just meet....'</p>
 <p>Taira Jiro, while cursing Taira Ryuta internally, opened his mouth as if nothing was wrong and stated the Reason he wanted to meet this time.</p>
@@ -80,6 +80,6 @@ chapter = 756
 <p>At Taira Jiro's Words, Tateyama Genta answered with an even more confident Attitude. Recently, Mithril was gradually becoming more expensive, but with this Contract, Taira Steel seemed like it could gain enormous profit.</p>
 <p>MidNightSKY-nim requested the Gyaru-fication Illustration of Taira Kanna!</p>
 <p>Strangely, the Gyaru feeling comes out better in the Miyashiro Municipal High School uniform than in the St. Francisco Girls' Academy uniform, hehehe.</p>
-<p>Hwanbuljeoldae-bulga-nim requested the leopard bikini and micro bikini~!</p>
+<p>Hwanbuljeoldae-bulga-nim requested the leopard bikini and micro bikini!</p>
 <p>Micro Bikini</p>
 <p>I typed "micro bikini," but I don't know if it's that micro, hehe.</p>

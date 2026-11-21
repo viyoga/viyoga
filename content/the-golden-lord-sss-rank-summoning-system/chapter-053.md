@@ -53,7 +53,7 @@ chapter = 53
 <p>Standing up, he finally left the office, walking to the kitchen, where Alice had just finished preparing breakfast and Evelyn was already eating voraciously.</p>
 <p>"Ah... didn’t you even wait for your man?" Ethan smiled, giving Evelyn’s butt a little pat; she had her back to him, devouring a doughnut.</p>
 <p>"Hm... you took too long, and these things smell so good." Evelyn didn’t even turn to face him, devouring yet another doughnut.</p>
-<p>"I know they are; I made them with lots of love for both of you, hehehe~~" Alice gave a sweet little laugh, moving closer and making Ethan open his mouth so she could feed him.</p>
+<p>"I know they are; I made them with lots of love for both of you, hehehe" Alice gave a sweet little laugh, moving closer and making Ethan open his mouth so she could feed him.</p>
 <p>Obviously, he didn’t refuse such treatment, taking a greedy bite of the fried doughnut in her hands.</p>
 <p>It was sweet, but not too sweet, with a crispy exterior and a soft interior.</p>
 <p>Receiving an approving look from her husband, Alice couldn’t help but give a cheerful smile.</p>

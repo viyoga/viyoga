@@ -87,4 +87,4 @@ chapter = 723
 <p>The one who liked having dinner at the lab the most was Linling. If we went to another restaurant, Linling, being a hologram, wouldn't be able to follow, but in the lab's cafeteria, she could watch me eat.</p>
 <p>__________</p>
 <p>Linling Cyber Suit</p>
-<p>This is Linling simulating various versions of the cyber suit~!</p>
+<p>This is Linling simulating various versions of the cyber suit!</p>

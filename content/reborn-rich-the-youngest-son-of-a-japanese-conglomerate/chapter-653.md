@@ -8,7 +8,7 @@ chapter = 653
 <p>"Hweo-eok!"</p>
 <p>Nakasone Risshin woke up in a sweat, bolting upright in bed. It was a terrible nightmare. He hadn't had a nightmare since becoming a disciple of Kinui Tatsuo, but today, a terribly vivid nightmare had him tossing and turning all night.</p>
 <p>Strangely enough, though, he couldn't remember the content of the nightmare. He only remembered how difficult and painful it was; he couldn't recall any of the characters or the story from the nightmare.</p>
-<p>"Ssa-hyung~! Come eat!"</p>
+<p>"Ssa-hyung! Come eat!"</p>
 <p>Ageba Tsurumi's cheerful voice came from outside. Although they had decided to serve Kinui Tatsuo as their master on the same day, Nakasone Risshin was the oldest, so he became the third disciple, following Kujo Kina, who had become a disciple earlier. The remaining three younger disciples were also ranked in order of age.</p>
 <p>In fact, he was only nominally the third disciple; the first disciple had lost his life in a battle with Anya District, so Nakasone Risshin was effectively Kinui Tatsuo's second disciple.</p>
 <p>"Yeah, I'm coming."</p>
@@ -32,7 +32,7 @@ chapter = 653
 <p>The funny thing about this story is that St. Francisco Girls' Academy had a lot of events. I had only been there since the second semester, but I had experienced school events such as picnics, autumn sports days, Halloween festivals, graduation trips, and the festival a few days ago.</p>
 <p>Other schools would have festivals for a year, but we had them in one semester, so it could be said that we had more than twice as many events compared to other schools. I didn't understand why they were whining about not having any events when we had so many.</p>
 <p>"There are a lot of fun things in college, so enjoy them after you graduate."</p>
-<p>"Oooo~! Ryuta-jji is an old man~! Oooo!"</p>
+<p>"Oooo! Ryuta-jji is an old man! Oooo!"</p>
 <p>Seizawa Shii made 'ooo' sounds, calling me an old man, but I wondered what her reaction would be if she knew that I was the same age as her or only a year older.</p>
 <p>"Anyway, the exam is in the third semester, so enjoy the remaining second semester. Most of you have already decided on your next step, right?"</p>
 <p>In fact, the least influential exam at St. Francisco Girls' Academy was the final exam in the third semester of the third year. As students from prestigious families, they already had a blueprint for their future, and it was designed to lead straight to a brilliant future like a train rail, so the final exam in the third semester of the third year had no impact whatsoever.</p>
@@ -43,7 +43,7 @@ chapter = 653
 <p>I heard that Oofuchi Erika was going to a prestigious university specializing in her strengths, VR diving and science, and there was a high probability that she would work with Shido Tsubaki, who is currently the co-representative of the company.</p>
 <p>Finally, Uenozono Karen said that she would not go to college or would only be enrolled at St. Francisco Girls' Academy and would focus on her idol activities.</p>
 <p>So, since all the students in the special class had already decided what they would do after graduation, the final exam was not a very important matter.</p>
-<p>"Oooo~! Is that what a teacher should say? Oooo!"</p>
+<p>"Oooo! Is that what a teacher should say? Oooo!"</p>
 <p>"Oooo!"</p>
 <p>Of course, telling them to just take the exam casually was not something a teacher should say. Still, I thought they would have more important things to do than a useless exam, so it was practical advice.</p>
 <p>"Of course, students who are taking exams for universities other than St. Francisco Women's University need to focus because their grades will be reflected, but the rest of you, it's meaningless, so make more memories during that time."</p>
@@ -53,7 +53,7 @@ chapter = 653
 <p>"Didn't we get a vacation voucher for winning the sports day? We can use that to go on a trip with the whole class."</p>
 <p>Since we had a vacation voucher as a prize for winning the sports day, if we used it on Friday, we could go on a trip from Friday to Sunday, so I could create an event that Seizawa Shii wanted so much.</p>
 <p>"Ah! That's right! We had that...!"</p>
-<p>"Since it's a one-day vacation voucher, if we use it on Friday, we can play from Friday to Sunday~!"</p>
+<p>"Since it's a one-day vacation voucher, if we use it on Friday, we can play from Friday to Sunday!"</p>
 <p>"It's almost time for the morning assembly, so let's talk about it next time, and everyone, have a good day in class today."</p>
 <p>I left the special class, leaving behind the students who were happy to remember the vacation voucher that I had forgotten. The story had gotten quite long, and it was almost time for the first period teacher to come. I went to the education preparation room and sat down.</p>
 <p>An alarm popped up on the tablet I had left on my desk, saying that I had received an email, so I turned on the tablet with my fingerprint and checked it.</p>
@@ -79,5 +79,5 @@ chapter = 653
 <p>Of course, military specifications will not be sold to civilians, but we need to create a response logic for why we don't sell them, because they might ask why we don't sell them.</p>
 <p>I wrote down my impressions of the first and second advertisements for feedback and then played the next advertisement.</p>
 <p>____________</p>
-<p>Arisu Advertisement Version~!</p>
+<p>Arisu Advertisement Version!</p>
 <p>It's a shame that the gun wasn't more cybernetic ㅎㅎ</p>

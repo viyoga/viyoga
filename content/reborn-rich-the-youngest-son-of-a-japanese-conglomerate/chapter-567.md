@@ -8,7 +8,7 @@ chapter = 567
 <p>As expected, money talks, because even though we decided on our graduation trip destination on Monday, just three days before our Thursday departure, we had no trouble securing flights or accommodations. It was partly because mid-November isn't peak season, but if you're working with the connections and money of a prestigious Japanese family, getting flights and accommodations is probably a piece of cake.</p>
 <p>Especially since Southern China is now called South China (officially the Republic of China) because pro-Japanese Taiwan won World War III and took over southern China. So, when they heard that daughters of prestigious Japanese families were coming for a graduation trip, they were quite cooperative, and we were able to quickly secure accommodations and flights.</p>
 <p>,Did everyone get their itineraries?</p>
-<p>,Yes~!</p>
+<p>,Yes!</p>
 <p>Everyone answered my question excitedly. They all had two large suitcases each, and their faces were flushed, so they seemed to be feeling the excitement of the trip. It seemed like the Korean Wave was becoming popular again recently, which made it even more so.</p>
 <p>,Load your luggage... Everyone, get on the bus.</p>
 <p>We were meeting at school early in the morning and then taking a bus to Fujikawa Airport in Yamanashi Prefecture, where Miyashi is located. Fujikawa Airport is a relatively new airport, and it had a more private feel than other airports, mainly serving private planes, business jets, and private jets.</p>
@@ -16,18 +16,18 @@ chapter = 567
 <p>Now, as the homeroom teacher of the special class, I was officially using the airport, so there were no problems.</p>
 <p>,Is everyone on board?</p>
 <p>The bus was large, but it was a limousine bus with very wide seat spacing, so with our 13 students, plus the school nurse Kijimoto Jurie, who was accompanying us again this time, and Shimokawabe Airen, the home economics teacher who was secretly going as a bodyguard, and me, the homeroom teacher, there weren't many seats left. I heard it was a large 49-seater bus, but they reduced it to 23 seats so you could lie down without any problems.</p>
-<p>,On the way to the airport~! My seatmate is my close friend....</p>
+<p>,On the way to the airport! My seatmate is my close friend....</p>
 <p>I was sitting in the driver's seat, which could be called the homeroom teacher's designated seat, and I could hear Uenozono Karen filming a vlog with a GoPro. Her attendance was precarious, so she couldn't do her idol activities, so it seemed like she was trying to create content by filming a vlog during the graduation trip. I guess her agency told her to do it again since her sports day vlog was quite a hit.</p>
 <p>,We're departing.</p>
 <p>With the driver's words, the bus moved smoothly. Another bus with a different class was moving ahead, and the special class was the last to depart. As I watched the school get further and further away, I took out my phone. I felt a vibration.</p>
 <p>-Han Yu-gyeong: The bus must have left by now?</p>
 <p>I sent Han Yu-gyeong the itinerary for the school trip, so she sent me a KakaoTalk message as if she was watching the situation.</p>
 <p>-Jin Yong-tae: Yeah, we just left. Are you waiting for me?</p>
-<p>-Han Yu-gyeong: Yeah~! Of course😍</p>
+<p>-Han Yu-gyeong: Yeah! Of course😍</p>
 <p>Even if I went to Seoul, I couldn't meet Han Yu-gyeong as I pleased because I had a fixed itinerary. I guess I could only meet her at night after finishing all the day's schedule, but I felt a little sorry that she was waiting for me from the morning and I couldn't meet her properly.</p>
 <p>Han Yu-gyeong was also having a busy time with TG Tech and her own business, and she said that she was building an information network like I had been doing. I knew the talent in Korea well, so I organized and sent her information on talent, so I'm sure Han Yu-gyeong would do well on her own.</p>
 <p>Of course, talent isn't everything, but Han Yu-gyeong has money, wisdom, and knowledge, so she'll do well.</p>
-<p>-Ha Ju-yoon: Yong-tae~! You're bringing back souvenirs, right?</p>
+<p>-Ha Ju-yoon: Yong-tae! You're bringing back souvenirs, right?</p>
 <p>Since I was going to Korea, Ha Ju-yoon asked me to bring back some of the things she enjoyed eating while she was in Japan as a gift. It wasn't a difficult request, so I bought a few things as gifts yesterday while shopping with the students. Of course, I didn't forget to buy something for Han Yu-gyeong either.</p>
 <p>-Jin Yong-tae: Yes, Ju-yoon-nuna. Of course, I bought them.</p>
 <p>-Ha Ju-yoon: I have something prepared for Yong-tae too, so look forward to it♥</p>
@@ -67,5 +67,5 @@ chapter = 567
 <p>,Oh, I think we've arrived!</p>
 <p>After talking for a while, Shimokawa Airen looked out the window and said that we had arrived in Korea. She seemed quite excited because it was really her first time in Korea. This body is half Korean, and the spirit is 100 percent Korean, so when I saw a Japanese woman excited about traveling to Korea, I felt a strange sense of satisfaction.</p>
 <p>____________</p>
-<p>Ha Ju-yoon after a long time~!</p>
+<p>Ha Ju-yoon after a long time!</p>
 <p>Which of the two models do you like?</p>

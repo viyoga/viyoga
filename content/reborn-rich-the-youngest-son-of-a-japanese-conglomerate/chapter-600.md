@@ -8,7 +8,7 @@ chapter = 600
 <p>The week-long break that Daigo Terue-san promised wasn't going to start right away; first, there was a memorial service for the presumed-dead homeroom teacher of Class C.</p>
 <p>Since not everyone made it back safe and sound, and there was one presumed casualty, St. Francisco Girls' Academy probably felt obligated to hold a service out of respect for the bereaved family and the school staff.</p>
 <p>,Did everyone get some good rest yesterday?</p>
-<p>,I ate so much of what I wanted to eat, Ryuta-cchi~!</p>
+<p>,I ate so much of what I wanted to eat, Ryuta-cchi!</p>
 <p>,Alik, slept soundly....</p>
 <p>,Did you rest well, sensei?</p>
 <p>I asked, looking at the students gathered in the classroom, all dressed in black, before heading to the memorial service.</p>
@@ -18,7 +18,7 @@ chapter = 600
 <p>It just seemed like only Seizawa Shii-ssi didn't know, as she doesn't pay any attention to things she's not interested in. I overheard Minamoto Lisa-ssi, who was sitting next to her, saying, ,Idiot, it's the art teacher, and Seizawa Shii-ssi asking back, ,Really?</p>
 <p>,So, what is everyone going to do during this break?</p>
 <p>I suddenly got curious and asked the students. It was practically a week-long vacation, so I was curious about what the students would be doing.</p>
-<p>,I'm going to Korea~!</p>
+<p>,I'm going to Korea!</p>
 <p>Uenozono Karen-ssi said, raising her hand. Recently, she couldn't go back and forth to Korea because she would fail if she missed any more classes, but it seemed like she was going to Korea during this week-long break, though I didn't know if she would be resting or doing entertainment activities.</p>
 <p>,Still, it's also a break, so don't work too much, okay?</p>
 <p>,I know! I'm going to hang out with the Serifs unnie-deul!</p>
@@ -31,7 +31,7 @@ chapter = 600
 <p>,Alik is going on training with Moka-sensei.... I wanted to play with Ryuta.</p>
 <p>Alik said with a slightly gloomy expression. I had a brief conversation with Shimokawabe Airen-ssi about this, and she said that she was going to train Alik even harder because of this incident, so he would be going on a week-long training. Shimokawabe Airen-ssi, who is in charge of the fairly large club Cheongsim Hall, also received a week-long vacation as she participated in this Shin-Nankyo City graduation trip.</p>
 <p>And she said it would be okay to leave it to the Cheongsim Hall club president for about a week. The Cheongsim Hall side was also preparing for the festival in December, so it was a time when they didn't necessarily need a faculty advisor to teach martial arts.</p>
-<p>,I'm going with Alik too~!</p>
+<p>,I'm going with Alik too!</p>
 <p>It was Naruse Shiyo-ssi. Perhaps because she lured the giant robot with Shimokawabe Airen-ssi when heading from the zoo to the hotel, it seemed like Shimokawabe Airen-ssi would also look after Naruse Shiyo-ssi's martial arts. Since Naruse Shiyo-ssi lacked technique compared to her excellent physical abilities, it would be good for both me and her if she grew a lot during this week.</p>
 <p>In addition, Minamoto Lisa-ssi said she would get counseling for a day and then rest, and Oofuchi Erika-ssi, who didn't have any particular trauma because she played so many zombie shooting games, said she would do what she wanted to do for a week, and Shido Tsubaki-ssi said she would write an article about the Shin-Nankyo City disaster for the newspaper.</p>
 <p>The other students also had things to do, so it seemed like they would make good use of the week-long vacation they received for consolation and rest.</p>

@@ -16,7 +16,7 @@ chapter = 373
 <p>The reaction was too calm, making me feel awkward... I shouted to Shido Tsubaki, who was going to listen to the other students' menus, to make the dessert shaved ice! Seizawa Shii, who was listening to the conversation at a nearby table, spoke to me. Seizawa Shii was wearing a white frilly bikini. Her casual clothes were also a frilly dress, so is she unifying the theme with frills?</p>
 <p>,Yakisoba and grilled corn? That's modest, Ryuta-chi?"</p>
 <p>,It's a beach house vibe. So I tried to pick a beach house menu."</p>
-<p>,Hee... I've never been to a beach house before~!"</p>
+<p>,Hee... I've never been to a beach house before!"</p>
 <p>Well... Most of them here are daughters of prestigious families, so they probably haven't been to a beach house that sells cheap food.</p>
 <p>Only Urabe Konoka, who is not from a prestigious family as an adopted daughter of the Urabe family, or Oofuchi Erika, who is only from a prestigious family in name, would have experience with beach houses. Of course, Alik is also an adopted daughter of a prestigious family who was not originally from a prestigious family, but let's skip over Alik because Alik is Russian.</p>
 <p>,Tell me about beach houses, Ryuta-chi."</p>
@@ -41,7 +41,7 @@ chapter = 373
 <p>In addition to the game, it seemed like they chose the dessert with my subject as the homeroom teacher in mind. Certainly, when I looked again, cider and milk were also brought by the staff after the watermelon.</p>
 <p>They put the watermelon on a mat so that sand wouldn't get on it after it was broken.</p>
 <p>The very first hitter in the watermelon breaking was Konoe Akina. Konoe Akina was wearing a bikini with red flowers on a black background, which suited Konoe Akina's black hair and red eyes quite well.</p>
-<p>,Sensei, please cheer me on~♥"</p>
+<p>,Sensei, please cheer me on♥"</p>
 <p>,Konoe, fighting! I'll buy you something delicious if you break the watermelon."</p>
 <p>Konoe Akina asked me to cheer her on and then covered her eyes with a long cloth. At that moment, a certain wave spread forward from Konoe Akina as the epicenter. She wouldn't be using her mystic eyes to get something delicious from me, would she?</p>
 <p>Konoe Akina quickly approached the watermelon and struck it with a stick. Everyone cheered and congratulated Konoe Akina on her success. Originally, you're supposed to cover your eyes and move in the direction that the people around you are calling out to break the watermelon. It's amazing that she broke it without listening. She must have used the power of her mystic eyes.</p>
@@ -56,10 +56,10 @@ chapter = 373
 <p>I decided to enjoy myself by moving as the students called out without using the abyss or other abilities. The staff was already cutting up the broken watermelon in the back to make hwachae, so it seemed like I could just enjoy the watermelon breaking and eat the hwachae.</p>
 <p>When I put on the eye patch, I could hear the students' voices guiding me.</p>
 <p>,It's on the right! Ryuta-chi!"</p>
-<p>,Go straight ahead~! Sensei!"</p>
+<p>,Go straight ahead! Sensei!"</p>
 <p>Guided by the students, I struck the area where I thought the watermelon was with all my might, but it felt like I was striking the sand field.</p>
 <p>,Kyahahaha! How can you go to a completely different place, Sensei!"</p>
-<p>,Ahaha~! Ryuta-chi is so funny!"</p>
+<p>,Ahaha! Ryuta-chi is so funny!"</p>
 <p>When I took off the eye patch, the watermelon was in a completely different place. It seemed like the students had guided me to a completely different place to play a prank. They were all mischievous.</p>
 <p>The next turn was Kijimoto Jurie's, but we decided to skip it to check on Naruse Shiyo, who was not feeling well for a while. As the homeroom teacher, I also asked about Naruse Shiyo's condition, and Kijimoto Jurie told me that she just needed to rest a little because she had overdone it playing today.</p>
 <p>The hwachae that the staff brought out was not much different from the one I used to eat before I possessed it, probably because they knew the recipe well and made it. It was a slightly nostalgic taste.</p>
@@ -69,7 +69,7 @@ chapter = 373
 <p>That was probably the place where Kujo Kina and I would be sparring. When I looked to the side, Kujo Kina was wearing fighting trunks over her bikini and stretching. It was okay to fight right now, but I should at least pretend to stretch.</p>
 <p>It would be quite embarrassing if I beat Kujo Kina without even stretching.</p>
 <p>-------</p>
-<p>Swimsuits mentioned today~!</p>
+<p>Swimsuits mentioned today!</p>
 <p>Kujo Kina's leopard swimsuit</p>
 <p>It's hard to adjust the muscles ㄷㄷ But where did the leopard tail come from...?</p>
 <p>Konoe Akina's floral swimsuit</p>

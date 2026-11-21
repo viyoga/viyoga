@@ -1,11 +1,11 @@
 +++
-title = "Chapter 413: Feels So Good~~~ [18+]"
+title = "Chapter 413: Feels So Good [18+]"
 weight = 413
 [extra]
 chapter = 413
 +++
 
-<p>&quot;Brother in law... it feels so good~&quot;</p>
+<p>&quot;Brother in law... it feels so good&quot;</p>
 
 <p>Avery let out a moan, her eyes growing hazy once more. This time, she wrapped her arms around Luis’s head, her small hands no longer uncertain where to rest.</p>
 

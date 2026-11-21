@@ -59,7 +59,7 @@ chapter = 239
 
 <p>“You womanizing scoundrel, can’t you go a single day without taking advantage of an innocent woman?” Ruxue’s angry voice echoed in Qingyi’s mind, but he ignored it.</p>
 
-<p>“Nghnn~~” Xueyao’s lips opened in a soft, high-pitched moan as Qingyi’s fingers touched her tits.</p>
+<p>“Nghnn” Xueyao’s lips opened in a soft, high-pitched moan as Qingyi’s fingers touched her tits.</p>
 
 <p>Her hands instinctively retreated, clutching at her own hips.</p>
 
@@ -67,7 +67,7 @@ chapter = 239
 
 <p>They were already naturally large, but this made them seem even bigger.</p>
 
-<p>“Y-young hero… do you really need to mghnn~~ touch like that?” Xueyao asked, panting.</p>
+<p>“Y-young hero… do you really need to mghnn touch like that?” Xueyao asked, panting.</p>
 
 <p>Her ears were tucked and behind her, her fluffy tail was wagging in erratic movements.</p>
 
@@ -81,7 +81,7 @@ chapter = 239
 
 <p>“I’m sorry, senior, I was just in awe of their beauty,” Qingyi spoke, his words only causing even more confusion in Xueyao, whose face was already completely taken over by a fiery red blur.</p>
 
-<p>“B-beauty? Ahnn~~ Does the young hero think they’re beautiful?”</p>
+<p>“B-beauty? Ahnn Does the young hero think they’re beautiful?”</p>
 
 <p>“Yes, they are.” Qingyi finally moved his mouth, his lips sinking into the incomparably soft skin of her right breast, forming a light suction around the pink, puffy nipple.</p>
 

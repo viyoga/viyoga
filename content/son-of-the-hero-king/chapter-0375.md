@@ -40,7 +40,7 @@ chapter = 375
 <p>He was horny as he could be and he could tell she was more than ready too to take him in.</p>
 <p>He pulled his penis back some, adjusted the position of his hips, and pressed the tip straight against her vaginal entrance, parting it with his thick girth.</p>
 <p>“Here I go, dear.”</p>
-<p>“AH~! Finally~!”</p>
+<p>“AH! Finally!”</p>
 <p>Skuld hissed in pleasure as she felt Sol’s penis slowly pass through her small entrance. She groaned from his size and nearly lost her footing due to the feebleness that attacked her legs, due to the sudden intense rush of pressure disorienting her bodily senses, but he supported her raised knees to keep her in position while he slowly pushed deeper and deeper inside of her.</p>
 <p>He had the entirety of his bulbous head inside her now. Her spread vaginal entrance was squeezing tightly around his aroused head, but he still had a while to go before he was fully inside her. Her tightness was truly no joke. He got this for trying to fit his thick and long member inside such a lithe body.</p>
 <p>She cried out as soon as he pushed deeper inside. Her cheeks were so flushed that her cheeks had become entirely dyed in the color of red, the red and pink contrast was truly fascinating to watch, and her mouth was slack with arousal. It hadn’t been that long since they had sex last but she felt like it had been an eternity since she had felt his member inside her. This feeling of fullness was something she would never get tired of.</p>

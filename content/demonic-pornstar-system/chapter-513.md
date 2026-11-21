@@ -17,8 +17,8 @@ chapter = 513
 <p>What made the change was that, one, it was about ’them.’</p>
 <p>And second, that they did not address anything.</p>
 <p>The mysterious group the world had already been whispering about had just thrown gasoline onto every rumor and lit a match.</p>
-<p>This wasn’t a "Here’s who we are, nice to meet you~" introduction to the group.</p>
-<p>This was a "You want answers? Aw, unlucky~" declaration.</p>
+<p>This wasn’t a "Here’s who we are, nice to meet you" introduction to the group.</p>
+<p>This was a "You want answers? Aw, unlucky" declaration.</p>
 <p>And people loved and hated every second of it.</p>
 <p>To make things worse - or better, depending on who you asked - the Sinners had slipped in scenes that weren’t in any of their previous videos.</p>
 <p>Emilia scrubbed the timeline back with trembling eyes, stopping at the throne reveal.</p>

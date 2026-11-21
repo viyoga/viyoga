@@ -13,7 +13,7 @@ chapter = 682
 
 <p>Her slender fingers pressed against the large tits, the creamy skin packed tight around his cock, swallowing him in suffocating heat as the plump tit-flesh squished around every inch of his length.</p>
 
-<p>“Ah~~ slurp~~ yeah~~ and you should really make the most of it! Fufufu~~ 2” Margareth giggled, running her warm tongue over the tip of his member. She lifted her breasts up and down, raising them until the head nearly disappeared, then letting them plummet back against his groin with a wet, lewd smack.</p>
+<p>“Ah slurp yeah and you should really make the most of it! Fufufu 2” Margareth giggled, running her warm tongue over the tip of his member. She lifted her breasts up and down, raising them until the head nearly disappeared, then letting them plummet back against his groin with a wet, lewd smack.</p>
 
 <p>The heavy mounds bounced on impact, soft ripples coursing through them in slow, hypnotic waves before settling back into shape, only for her to lift them and do it all over again.</p>
 
@@ -49,7 +49,7 @@ chapter = 682
 
 <p>Her fair, slightly golden skin was streaked white with hot semen, long sticky ropes of it trickling lazily down her ample orbs, pooling in her cleavage and clinging to her stiff pink nipples.</p>
 
-<p>“Fufufu~~♡”</p>
+<p>“Fufufu♡”</p>
 
 <p>Margareth used magic to clean herself, then her tongue to clean Qingyi’s cock. Once finished, she turned her back to him and settled into his lap.</p>
 
@@ -97,7 +97,7 @@ chapter = 682
 
 <p>points.</p>
 
-<p>“Aghnn~~ uh~~ so big, hehehe~~ so thick~~♡” Rou’er mumbled, intoxicated by her latest orgasm.</p>
+<p>“Aghnn uh so big, hehehe so thick♡” Rou’er mumbled, intoxicated by her latest orgasm.</p>
 
 <p>Qingyi laughed and gave her round, firm ass a gentle pat. The soft flesh rippled from the point of contact in a delicate wave before he offered his member for her to clean.</p>
 
@@ -107,4 +107,4 @@ chapter = 682
 
 <p>Qingyi sat back on the bed, eyes shining with satisfaction.</p>
 
-<p>“There you go, big brother Qingyi, all clean, hehehe~~♡” Rou’er let out a soft giggle, and just at that moment, a faint pulse of Qi spread through the decelerating ship, signaling their arrival.</p>
+<p>“There you go, big brother Qingyi, all clean, hehehe♡” Rou’er let out a soft giggle, and just at that moment, a faint pulse of Qi spread through the decelerating ship, signaling their arrival.</p>

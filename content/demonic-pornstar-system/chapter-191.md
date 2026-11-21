@@ -21,7 +21,7 @@ chapter = 191
 <p>"Wait..." she muttered, looking from the barely visible house to the road behind them. "This isn’t... this isn’t where I think it is, right?"</p>
 <p>The tanned chick was practically vibrating now, her usual manic, chaotic energy cranked into full-blown hype mode. She tiptoed and squinted her eyes at the mansion, pupils dilated, a feral grin spreading across her face.</p>
 <p>Before anyone could respond, Aria clapped her hands cheerfully with so much gusto that the seatbelt across her lap barely kept her from bouncing in place.</p>
-<p>"I can’t believe it~! I’m getting to see Mom, Lux, and Damian so soon after being separated!" she said with sparkly eyes, radiating pure joy.</p>
+<p>"I can’t believe it! I’m getting to see Mom, Lux, and Damian so soon after being separated!" she said with sparkly eyes, radiating pure joy.</p>
 <p>Rae’s head whipped toward Kaiden, eyes wide with gleaming excitement.</p>
 <p>"... Kaiden!" Her voice was low but electric, like a fuse about to go off.</p>
 <p>Kaiden only smirked, amused by how the girl was outright tweaking at the prospect of visiting this place. He didn’t know she harbored such strong feelings about ’them.’</p>

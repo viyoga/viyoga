@@ -1,5 +1,5 @@
 +++
-title = "Chapter 22: Hubby is delicious~~ 18+"
+title = "Chapter 22: Hubby is delicious 18+"
 weight = 22
 [extra]
 chapter = 22
@@ -17,8 +17,8 @@ chapter = 22
 <p>’Do I like this?’ Ethan repeated in his mind, enjoying Alice’s slightly clumsy but tasty blowjob, accompanied by the incomparable embrace of those huge tits.</p>
 <p>This was heaven for him!</p>
 <p>He relaxed, caressing the beauty’s blonde hair, feeling her mouth take more and more of his huge, veiny eight-inch meat stick.</p>
-<p>"Gulk—nghnn~~" Alice choked as ethan’s cock reached the depths of her throat, her eyes watering, fiery with desire.</p>
-<p>"Ah... so big~~ so... salty~~ fufufu~~ hubby is delicious~~" She pulled back, words she never thought she’d be able to say escaping her mouth.</p>
+<p>"Gulk—nghnn" Alice choked as ethan’s cock reached the depths of her throat, her eyes watering, fiery with desire.</p>
+<p>"Ah... so big so... salty fufufu hubby is delicious" She pulled back, words she never thought she’d be able to say escaping her mouth.</p>
 <p>Squeezing her breasts tightly and using her own saliva as lubricant, she began to move them.</p>
 <p>The creamy skin slid down the member, reaching the top and completely swallowing the glans before going down, the soft base hitting Ethan’s lap.</p>
 <p>With a little effort, she established a rhythm, using her tits as masturbators while she licked the tip of his cock, feeling that salty taste invade her lips.</p>
@@ -34,10 +34,10 @@ chapter = 22
 <p>She would allow him to have other wives, but not without marking her territory first.</p>
 <p>With one final movement, Alice felt it.</p>
 <p>Ethan’s cock throbbed painfully in her mouth before exploding, releasing a thick stream of hot cum.</p>
-<p>"Gulp~~ ghnn~~" She swallowed the first gush, her cheeks inflating as her eyes widened, the pearly, viscous liquid sliding down her throat.</p>
+<p>"Gulp ghnn" She swallowed the first gush, her cheeks inflating as her eyes widened, the pearly, viscous liquid sliding down her throat.</p>
 <p>Still, she didn’t back down.</p>
-<p>"Gulp~~ Gulp~~ Gulp~~" Three more greedy gulps echoed as she sucked on Ethan’s cock, swallowing the cum voraciously, without wasting a single drop.</p>
-<p>"Ahn~~" Alice moaned, the member escaping the warm, wet grip of her mouth with a pop, drenched in her own saliva.</p>
+<p>"Gulp Gulp Gulp" Three more greedy gulps echoed as she sucked on Ethan’s cock, swallowing the cum voraciously, without wasting a single drop.</p>
+<p>"Ahn" Alice moaned, the member escaping the warm, wet grip of her mouth with a pop, drenched in her own saliva.</p>
 <p>With one final gulp, she looked up, opening her mouth and showing her tongue. "Did I do well, hubby?"</p>
 <p>Alice blushed deeply, remembering having seen this in one of the many romance novels in her mother’s collection.</p>
 <p>The male protagonist always loved that in those books... Ethan loved it too, right?</p>

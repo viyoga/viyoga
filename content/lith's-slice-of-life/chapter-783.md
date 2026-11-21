@@ -47,7 +47,7 @@ He had come to a similar place with his mother too and really liked it. Since Al
 
 Lith pulled Alexandra close and hugging her, said with a smile, "Happy honeymo—"
 
-Smoooooooch!~
+Smoooooooch!
 
 Alexandra didn't give him time and immediately went in for a kiss. There was no need for talking anymore and they just should fuck!
 
@@ -69,7 +69,7 @@ He inserted his fingers in both her tight holes and tried to loosen them up slig
 
 Lith then raised her leg up and having a good access to her fuckhole, waited not a second and shoved his cock deep into her vagina in one powerful thrust.
 
-"Nnnghhhhh!~"
+"Nnnghhhhh!"
 
 Alexandra broke the kiss and moaned loudly.
 

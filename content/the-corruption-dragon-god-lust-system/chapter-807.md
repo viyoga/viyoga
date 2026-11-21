@@ -51,7 +51,7 @@ chapter = 807
 
 <p>Her delicate palms sank even deeper into the sides of her enormous breasts, and with determination in her eyes, she began to move her head up and down the exposed part of his cock, her long hair sliding over her shoulders in time with each stroke.</p>
 
-<p>"Mhmm~~ slurp~~ gmhnn~~" The wet sounds of her mouth working around his cock completely engulfed the vast garden, echoing obscenely through the open space.</p>
+<p>"Mhmm slurp gmhnn" The wet sounds of her mouth working around his cock completely engulfed the vast garden, echoing obscenely through the open space.</p>
 
 <p>Strands of saliva flowed endlessly down the large, pale member—a long, thick, twenty-three-centimeter rod of flesh—fully lubricated by her lips and dripping down her ample breasts, mixing with the milk still dripping from her hard nipples.</p>
 
@@ -75,7 +75,7 @@ chapter = 807
 
 <p>It was time to give that tight throat a good fucking!</p>
 
-<p>"Gurhk~ Ghuk~ Glugh~ Ghuk" Obscene sounds erupted from Rouxi’s throat with every powerful thrust, thick saliva and spit dripping down her chin and onto her exposed breasts, mixing with the milk still leaking from her hardened nipples.</p>
+<p>"Gurhk Ghuk Glugh Ghuk" Obscene sounds erupted from Rouxi’s throat with every powerful thrust, thick saliva and spit dripping down her chin and onto her exposed breasts, mixing with the milk still leaking from her hardened nipples.</p>
 
 <p>The movements grew faster and faster until, finally, Qingyi reached his limit, spilling directly into her esophagus in thick, hot jets, forcing her to swallow every thick drop without even tasting it.</p>
 

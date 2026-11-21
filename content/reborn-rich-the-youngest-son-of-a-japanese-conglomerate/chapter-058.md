@@ -14,7 +14,7 @@ chapter = 58
 <p>She should have at least said something! Asako Ukie regretted it a little. If she happened to see him again, she would definitely get his LINE ID.</p>
 <p>,Hello, everyone in Group 74. I'm Taira Ryuta, the mentor for Group 74."</p>
 <p>A miracle happened. The prince had become her mentor. The other nine group members also all had bright expressions. When she looked at the mentors of the other groups, they were all tired-looking uncles and aunties. It seemed like the goddess of fortune was constantly following her.</p>
-<p>,Mentor-niim~! Are you Chairman-nim's grandson that the Chairman-nim mentioned?"</p>
+<p>,Mentor-niim! Are you Chairman-nim's grandson that the Chairman-nim mentioned?"</p>
 <p>,Hehe, I wonder?"</p>
 <p>,Mentor-nim, how old are you?"</p>
 <p>,Mentor-nim!"</p>

@@ -43,7 +43,7 @@ Lith's stay in the academy was short, but the ones in his batch had forever ingr
 
 "Oh? You were in the same batch as the Vampire Prince? Come, come, come, have a seat. Hahaha!"
 
-"What?! Same class as t, the Vampire Prince!?! Iyaaa~! Why didn't you say it before!??"
+"What?! Same class as t, the Vampire Prince!?! Iyaaa! Why didn't you say it before!??"
 
 Students of Class A-1 from Lith's batch were in high demand everywhere in the world till this day.
 

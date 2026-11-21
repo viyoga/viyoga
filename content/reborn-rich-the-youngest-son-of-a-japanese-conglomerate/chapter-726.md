@@ -81,7 +81,7 @@ chapter = 726
 <p>Simyeonui ttal looked at me with a complicated expression. It was an expression mixed with gratitude, affection, and apology. I made a reassuring expression and kissed Simyeonui ttal as if to reassure her that it was okay.</p>
 <p>I closed my eyes for a moment during the kiss, and when I opened my eyes again, I was already at the Shin Kai Hime Shrine of the Urabe family. As Simyeonui ttal said, it seemed that I couldn't maintain the time together any longer because I couldn't resonate.</p>
 <p>______</p>
-<p>Simyeonui ttal Furisode Illustration B-cut~!</p>
+<p>Simyeonui ttal Furisode Illustration B-cut!</p>
 <p>I changed the model, does it look okay?</p>
 <p>It came out with a very Demon King-like feel, hehehe.</p>
 <p>Stewardess Home Teacher requested by RefundAbsolutelyNotPossible-nim!!</p>

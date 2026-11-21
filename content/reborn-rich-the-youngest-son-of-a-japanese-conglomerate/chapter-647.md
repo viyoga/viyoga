@@ -56,7 +56,7 @@ chapter = 647
 <p>Ah, I just went there... Saionji Diana had an expression behind her hidden hair that said, "You don't want to go?", so I said, "No, let's go!" and had no choice but to go back to the Blue Heart Hall's tea house together.</p>
 <p>Of course, the rest of the Blue Heart Hall people, except for Alik, looked at me like a playboy when they saw me bringing another woman back so quickly.</p>
 <p>###</p>
-<p>"Ah~! Annoying!"</p>
+<p>"Ah! Annoying!"</p>
 <p>There was a woman with a backpack who had just gotten off at Miyashi Station. The woman who said it was annoying while getting off didn't leave the station right away and sat on a bench that was prepared.</p>
 <p>"Originally, I should be eating Sanzokuyaki (Nagano Prefecture's fried chicken dish) in Nagano. Miyashi only has famous prestigious girls' schools and rich people's villas... I don't like it, really."</p>
 <p>It was a woman grumbling as if something had gone wrong with her plan. The woman had hair between light white and silver, and looked to be in her early twenties.</p>
@@ -65,7 +65,7 @@ chapter = 647
 <p>She grumbled again as if the person named Seigo had called this woman who was going to Nagano to Miyashi.</p>
 <p>"First, I need to book a place to stay. I don't want to sleep with sweaty men..."</p>
 <p>The woman with light hair muttered and started looking for accommodation on her smartphone. But for some reason today, it wasn't easy to make a reservation.</p>
-<p>"Aish~! Why are all the reservations full?"</p>
+<p>"Aish! Why are all the reservations full?"</p>
 <p>A poster attached to a train station pillar suddenly caught the woman's eye as she nervously messed up her hair and shouted.</p>
 <p>St. Francisco Girls' Academy Festival 2053 12/4- 12/5! Enjoy it together!</p>
 <p>Now I understood. Guests from other places were making reservations at accommodations because of the festival.</p>
@@ -76,7 +76,7 @@ chapter = 647
 <p>"Kakan, did you come to pick me up?"</p>
 <p>If a giant over 2 meters tall was standing close without a sound, ordinary women would be very surprised, but it seemed that they knew each other because she called his name and spoke.</p>
 <p>"I have no choice because the master asked me to take care of you."</p>
-<p>"Ah~ I don't want to sleep with men...!"</p>
+<p>"Ah I don't want to sleep with men...!"</p>
 <p>"I'll give you a private room, so don't worry."</p>
 <p>Kakan said bluntly as if appeasing his disobedient niece. The woman with light hair got up from her seat with an unavoidable expression.</p>
 <p>"In the first place, the time we were supposed to meet was not today, but much later. Why did you call me in advance?"</p>
@@ -89,7 +89,7 @@ chapter = 647
 <p>The woman with light hair sighed and followed Kakan. The woman with light hair easily caught up with Kakan's steps, who was walking quickly, and started chattering next to him.</p>
 <p>"If you have time, can I go to the St. Francisco whatchamacallit Girls' Academy festival tomorrow?"</p>
 <p>"The master will tell you that too."</p>
-<p>"Ah, seriously~! Don't joke around!"</p>
+<p>"Ah, seriously! Don't joke around!"</p>
 <p>With the woman's annoyed voice as the last sound, no one was left in Miyashi Station except for the station staff.</p>
 <p>__________________</p>
 <p>Home Teacher B-cut!</p>

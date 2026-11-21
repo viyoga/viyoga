@@ -15,7 +15,7 @@ chapter = 831
 <p>"Scar..." Nyx’s voice came out small and shaking between moans. "Can you... haah... can you stroke my hair? While I take Kai on...?"</p>
 <p>Scarlet stared at her for a full second. Then her jaw worked once, she exhaled through her nose, and her fingers slid into Nyx’s damp pink hair and combed through it in long, slow strokes that started at her crown and ran all the way down to where the wet ends pooled against her thighs.</p>
 <p>"You’re a greedy one, aren’t you?" Scarlet muttered, but her fingers were gentle. "I promised to give you an inch but you’re taking a mile..."</p>
-<p>"Mhm~" Nyx smiled through the tears, her eyes closing as Scarlet’s hand moved through her hair and Kaiden’s cock moved inside her, and the combination of the two made her melt so completely that the moan she released was less sound and more surrender.</p>
+<p>"Mhm" Nyx smiled through the tears, her eyes closing as Scarlet’s hand moved through her hair and Kaiden’s cock moved inside her, and the combination of the two made her melt so completely that the moan she released was less sound and more surrender.</p>
 <p>"You’re..." Scarlet started, stopped, realized the wine was across the room, and pushed forward without it. "You’re doing great, kid."</p>
 <p>"That’s... haah... the worst encouragement I’ve ever heard..."</p>
 <p>"I’m not a damn sex coach!!" Scarlet’s ears went crimson. "What do you want from me?! I give pep talks before charges, not while someone’s getting...!"</p>
@@ -29,7 +29,7 @@ chapter = 831
 <p>Aria had risen from the pillows. Luna had peeled herself off the sheets. Calypso and Bastet had untangled from each other. All four of them knelt behind Kaiden in a line, their palms flat against his back, his sides, his hips, and when he thrust forward they pushed with him, eight hands driving his cock into Nyx with a force that tore a scream from the pink-haired girl’s throat so raw the lanterns flickered.</p>
 <p>He pulled back. Eight hands pulled with him, fingers hooking his hips, guiding the retreat. Then they shoved him forward again, and the wet, heavy impact of his pelvis against Nyx’s ass echoed off the stone.</p>
 <p>They found the rhythm together. Four women kneeling behind their man, pushing and pulling him into their best friend in synchronized strokes that turned his thrusts into something driven by all of them at once, and the pace they set was merciless, their arms flexing in concert as they fed him into Nyx over and over.</p>
-<p>"Give pink bestie everything she deserves, Darling~" Calypso purred from behind his right hip, her red palms firm against his skin.</p>
+<p>"Give pink bestie everything she deserves, Darling" Calypso purred from behind his right hip, her red palms firm against his skin.</p>
 <p>"Make this cow moo, Kai!" Luna smirked from his left, shoving him forward with both hands.</p>
 <p>Aria said nothing. Her fingers pressed into his lower back and pushed with steady, loving force, her silver eyes warm on the pink hair spilling across Scarlet’s lap.</p>
 <p>Bastet’s tanned hands found the base of his spine. "For Nyx, Master," she murmured, and pushed.</p>

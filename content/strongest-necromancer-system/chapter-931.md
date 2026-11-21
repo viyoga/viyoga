@@ -24,7 +24,7 @@ chapter = 931
 <p>Hendrix spoke up from behind with a frown on his face, and even though Fiona was not happy about his tone, Fiona couldn’t help but agree! It was very difficult for any world to nurture a Sage, and many worlds that had practiced magic for centuries didn’t have even one Sage! How was Gina able to reach this level so quickly?</p>
 <p>Gina didn’t bother trying to argue with Hendrix’s argument, and Gina simply called out her spirit companion.</p>
 <p>"Ulyn, come here for a moment."</p>
-<p>’Yawn~ Wha-? What’s going on?’</p>
+<p>’Yawn Wha-? What’s going on?’</p>
 <p>Ulyn’s sleepy voice echoed from inside Gina’s hair, and Gina told her to come out again. Ulyn rubbed her eyes sleepily before she gently floated out of Gina’s hair! But Ulyn was immediately shocked awake when she saw multiple people staring at her at the same time!</p>
 <p>’W-What’s all this, Gina!? Are you trying to ambush me in my sleep!? You’ll never take me alive!’</p>
 <p>"No, it’s nothing like that. I just wanted to introduce you to my family."</p>

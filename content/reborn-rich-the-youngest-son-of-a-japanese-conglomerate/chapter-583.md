@@ -35,7 +35,7 @@ chapter = 583
 <p>At this hotel, we were using an entire floor, and it felt like a penthouse with multiple rooms, so the special class decided to use the same floor. Of course, as a man, I couldn't use the same floor and decided to use a private room on the floor below.</p>
 <p>,The accommodation this time is on the 19th floor, so use the rooms as divided beforehand. I'll be in room 1802 on the 18th floor, so come there if anything happens."</p>
 <p>,You're not going to wander around outside here either, are you, Ryuta-cchi?"</p>
-<p>,That's right~! Don't go anywhere and just play with us at night!"</p>
+<p>,That's right! Don't go anywhere and just play with us at night!"</p>
 <p>Because of what happened in Seoul, the special class students looked at me with suspicious eyes.</p>
 <p>,Unfortunately, I don't know anyone in Neo Nanjing. I'll be staying at the hotel all night, so don't worry."</p>
 <p>I answered with a serious expression, indicating that I really wouldn't go out. I really didn't know anyone in Neo Nanjing, so there was no reason to go out at night. As it was a newly built city, there weren't many hidden items, so there was no benefit to exploring. Except for the graduation trip schedule, I was planning to just stay at the hotel in China.</p>
@@ -52,7 +52,7 @@ chapter = 583
 <p>,Ryuta, get in quickly. Alik is hungry..."</p>
 <p>Many of the students hadn't eaten the in-flight meal because they were sleeping, so they seemed to have taken the elevator to eat lunch right away because they were hungry.</p>
 <p>The door closed, and when I looked at the elevator, I saw "5th Floor, St. Francisco Girls' Academy Reserved" written in my vision. Even though this was the second time after Pyongyang, I still hadn't gotten used to the VR device.</p>
-<p>Ding~! 5th floor!</p>
+<p>Ding! 5th floor!</p>
 <p>It was an elevator announcement in Japanese, as there were Japanese people on board, according to the VR device. When we got off the elevator, there were arrows on the floor guiding us to where we needed to go, probably because it was reserved, so we could easily go to the restaurant chartered by St. Francisco Girls' Academy.</p>
 <p>The restaurant served traditional Chinese food. We had Chinese food for our first meal in Seoul too, so there was something strangely in common. Of course, what we ate in Seoul was jajangmyeon, which could be called Korean food that you can't really see in China, but still, Chinese food is Chinese food...</p>
 <p>The menu was a blank white paper, but when I looked at it with the VR device, I could see the menus translated into Japanese. This is amazing.</p>
@@ -64,7 +64,7 @@ chapter = 583
 <p>,Alik doesn't like dogs, bears, or cats..."</p>
 <p>Alik, unlike a Russian girl, didn't like bears. She didn't like dogs or cats either, and when I heard the story, it was because they were competitors for discarded food when she was wandering alone after losing her mother.</p>
 <p>Really... She's saying it with such a blank expression, but she fought with stray cats and stray dogs to get food, so I don't know what kind of expression to make every time I hear it. Alik said she liked dolphins. It seemed like she chose a cute animal that wasn't in a food competition (?) relationship.</p>
-<p>,I like lions~! How about you grow your hair out like a lion's mane, Ryuta-cchi?"</p>
+<p>,I like lions! How about you grow your hair out like a lion's mane, Ryuta-cchi?"</p>
 <p>Seizawa Shii said she liked lions and made an unreasonable request to me. Grow my hair out like a lion's mane... Isn't that too much?</p>
 <p>,I like ferrets."</p>
 <p>Sakagami Rena uniquely chose ferrets. Ferrets are cute too, but when asked about favorite animals, ferrets wouldn't be the first thing that comes to mind.</p>

@@ -39,7 +39,7 @@ chapter = 62
 <p>###</p>
 <p>,'I should have just gone home.'</p>
 <p>Asako Ukie regretted it. Taira Ryuta-nim was letting them use the medium-sized bathhouse, but not using it together, so she shouldn't have stayed without going home just to see a man's face for a moment.... She felt like an unfilial daughter.</p>
-<p>Ebie Miyuka: Please come to this place by 2 PM after lunch~!</p>
+<p>Ebie Miyuka: Please come to this place by 2 PM after lunch!</p>
 <p>A message from Ebie Miyuka, who was acting as the team leader, had arrived on LINE. Since there were trainees who didn't go home even on weekends, the cafeteria continued to operate, so there was no need to worry about meals. She just felt self-loathing for not going home because she was obsessed with a man.</p>
 <p>Asako Ukie went to the cafeteria alone. The menu was good. It was a Western-style set with a piece of steak, pasta, and soup. As expected of a large company, the meals were good. She received the food on a tray and was wondering where to sit when she saw a prince on one side!</p>
 <p>I have to act naturally without being too awkward. Asako Ukie made a resolution in her mind and headed to the seat where Taira Ryuta was having lunch.</p>
@@ -57,7 +57,7 @@ chapter = 62
 <p>,"Ah, I thought so too. I heard that there are teams that are fighting. As a mentor, I'm really at a loss as to what to do if our team members fight."</p>
 <p>Asako Ukie felt like this situation was a dream. Not only was she eating with Taira Ryuta, whom she thought of as a prince, but she was even talking to him like this...! After the meal, they sat on a bench and had a cup of coffee from the vending machine. That coffee was the most delicious coffee Asako Ukie had ever had. Even the coffee from a barista who won the World Barista Championship wouldn't be this delicious.</p>
 <p>,"I have to prepare the bathhouse, so I'll be going now."</p>
-<p>,"Thank you for your hard work, Mentor-nim~!"</p>
+<p>,"Thank you for your hard work, Mentor-nim!"</p>
 <p>After Taira Ryuta left, Asako Ukie returned to her room feeling like she was floating in the air. The time was.... One o'clock. There's still some time until two o'clock. Asako Ukie lay down on the bed and looked at her phone for a while.</p>
 <p>Then, without realizing it, she dozed off. Was it because she lay down right after eating?</p>
 <p>,"Ah, no!"</p>
@@ -86,6 +86,6 @@ chapter = 62
 <p>Dionysus's Bath Bomb "Rare Consumable": When added to bathwater, it improves marital harmony.</p>
 <p>In simple terms, it was an aphrodisiac to be added to bathwater. It didn't have a strong effect, but everyone had a crush on me, so it was a great success even without a strong effect. The excitement effect was present even in the steam, so I hadn't turned on the ventilation fan. I bought it on the black market, but I didn't expect to use it here.</p>
 <p>On the large waterbed that I had prepared an hour in advance, several women were sprawled out with ahegao expressions, and a few with good stamina were enjoying the warmth in the tub.</p>
-<p>,"Mentor-nim, come into the tub too~!"</p>
+<p>,"Mentor-nim, come into the tub too!"</p>
 <p>,"Hurry!"</p>
 <p>At the urging of the women in the tub, I pretended to be reluctant and went to the tub. I was looking forward to the remaining three weeks of training.</p>

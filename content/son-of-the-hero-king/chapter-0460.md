@@ -43,7 +43,7 @@ chapter = 460
 <p>Now finally, there was Sol, The Knight and Tank of the team… He was clad entirely in a ferocious looking black armor that was built like an iron fortress [1]. He was also holding a black helmet in his right hand. On his left hand was a towering shield that was almost as tall as him, giving the impression that he was a crusader ready to crush all enemies standing in his way with his shield of justice and valor.</p>
 <p>Sol had been the one to send the design of this armor to the personnel involved and he was quite happy with the result that came out.</p>
 <p>The armor was rather heavy and weighed nearly one ton. But this weight was just enough for him to not feel like he was wearing nothing.</p>
-<p>“Oh my~ You look quite dashing in that armor of yours.”</p>
+<p>“Oh my You look quite dashing in that armor of yours.”</p>
 <p>“I decided to go all out. After all, I can’t really expose myself if I want to have fun, and wearing a wig is a pain.”</p>
 <p>Persephone chuckled slightly at the answer before shaking her head. She wanted to tell that this armor was clearly a little too well made. Any adventurer would immediately know that he was some rich kid. But then again this whole thing was nothing more than a way to pass time for them so they didn’t need to worry about the minor details.</p>
 <p>“Anyways, everyone looks great and it seems like we all chose the dark theme.”</p>

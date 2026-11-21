@@ -68,7 +68,7 @@ chapter = 72
 <p>"So what?"</p>
 <p>"After all, the people who killed your family members, weren't they the nobles? Why did all of you, not one of you, rush to the nobles, rush to the merchants' homes, but rush to Hydral's home, to hate him, to hate me?"</p>
 <p>Suddenly, no one spoke.</p>
-<p>"Ah~ I see."</p>
+<p>"Ah I see."</p>
 <p>Seraphina laughed, picking up the terrified man, and punched him in the face, almost shattering his jaw.</p>
 <p>"Because, Hydral never hurt you, and I never really, attacked you."</p>
 <p>"Just because... of that."</p>

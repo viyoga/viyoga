@@ -15,7 +15,7 @@ chapter = 125
 <p>"Yes, daddy."</p>
 <p>She immediately reached for her shorts and took them off in one motion before she reached out and held onto Jason’s shoulder as he leaned over her. His muscles rippled under her hands, and Gina felt her entire body shiver when he pressed his member against her entrance. Jason was huge!</p>
 <p>Gina bit her lip while staring up into Jason’s eyes, and she groaned when Jason suddenly began to penetrate her!</p>
-<p>"Oh, yes~!"</p>
+<p>"Oh, yes!"</p>
 <p>Gina tightened her hand against Jason’s shoulder as she felt him filling her up, and she pulled Jason down for a deep kiss!</p>
 <p>Jason felt Gina’s tightness surrounding his member, and he reached back and raised one of her legs up to give himself more room before finally slamming forward!</p>
 <p>Bam!</p>

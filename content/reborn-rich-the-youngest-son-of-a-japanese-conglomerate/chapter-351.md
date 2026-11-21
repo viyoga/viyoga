@@ -86,9 +86,9 @@ chapter = 351
 <p>"Well, it's better than my dad? My dad still has a lot of girlfriends..."</p>
 <p>For reference, Seizawa Shii's dad is a current member of the National Assembly and a former minister. This is a huge scandal story, is it okay to talk about it so casually?</p>
 <p>"Still, it's a teacher's privacy, so keep it a secret from the kids."</p>
-<p>"Ehhh~! I wanted to tell the kids because it's a really fun story!"</p>
+<p>"Ehhh! I wanted to tell the kids because it's a really fun story!"</p>
 <p>"I'll grant you one wish, so please bear with it."</p>
-<p>"A wish? Okay. I don't have anything in mind right now, so I'll keep it~!"</p>
+<p>"A wish? Okay. I don't have anything in mind right now, so I'll keep it!"</p>
 <p>Then, a beep sounded and the alarm went off, indicating that Seizawa Shii's laundry, which she had come earlier, was finished. Seizawa Shii said, "Ah, the laundry is done!" and opened the washing machine and started putting the laundry in. I stared intently at the laundry that Seizawa Shii was putting in as revenge for what happened earlier. Seizawa Shii was about to say something to me, but she had something she did, so she just focused on putting the finished laundry in the basket.</p>
 <p>"Don't look! It's embarrassing, Ryuta-chi."</p>
 <p>"I was embarrassed too."</p>

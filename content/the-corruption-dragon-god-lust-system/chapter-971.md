@@ -93,7 +93,7 @@ chapter = 971
 
 <p>Those fat, heavy tits slid down and settled on his collarbone, spreading under their own weight like warm dough, engulfing his chin and spilling over his shoulders.</p>
 
-<p>"Hehehe~ Do you like my outfit, hubby? Big Sis Akane says it makes my boobs look even prettier."</p>
+<p>"Hehehe Do you like my outfit, hubby? Big Sis Akane says it makes my boobs look even prettier."</p>
 
 <p>"Hahaha." Qingyi laughed, one hand sliding slowly down the curve of her back. "They’re beautiful anyway, silly girl. But they look bigger than before... have you been using some secret technique?" he teased.</p>
 

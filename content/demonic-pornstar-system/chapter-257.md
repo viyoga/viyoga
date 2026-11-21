@@ -50,12 +50,12 @@ chapter = 257
 <p>Bastet.</p>
 <p>She stepped up beside him without uttering a single word. Her hips swayed with the elegance of a born predator, the muscles beneath her deep tan skin coiling with each step. Her tail flicked idly, its golden bands chiming with a faint jingle, as her long ears twitched to track every noise in the corridor.</p>
 <p>Her eyes narrowed, turning into vertical slits.</p>
-<p>"Are these creatures serious right now~?" she purred, more to herself than anyone else. Her gaze lingered on the handmaidens, still floating eerily in formation near their cursed mirrors.</p>
+<p>"Are these creatures serious right now?" she purred, more to herself than anyone else. Her gaze lingered on the handmaidens, still floating eerily in formation near their cursed mirrors.</p>
 <p>"Staying back there? Really?" Her good mood turned foul as she felt a great sense of disrespect being thrown her way. "You dare stand idly by out in the open in my presence?! You think you’re safe?"</p>
 <p>Diaz, still scanning the formation, gave a curt nod. "That is their strategy. Let the environment do the heavy lifting. They draw you in, then teleport and bleed you dry."</p>
 <p>Bastet’s smile deepened.</p>
 <p>A slow, dangerous upward curl of her lips happened, forming what could be best described as the grin of a lioness who spotted cornered prey.</p>
-<p>"I see~ So that’s how it is~"</p>
+<p>"I see So that’s how it is"</p>
 <p>She raised one arm into the air lazily. A single index finger extended skyward, tracing a glowing line in the air. It shimmered gold, then pulsed with deep orange. Within a mere moment, solar energy began spiraling around her finger, dancing like playful fireflies drawn to the sun queen’s presence.</p>
 <p>Sasha slapped her forehead with a loud groan. "Did you people not give the monster girl a basic rundown on enemy tendencies? She seriously thinks no one tried ranged attacks on this monster type before?"</p>
 <p>Leon sighed beside her, watching Bastet’s back and magic gathering at her fingertips. "It’s not a matter of trying. When no one engages them in melee, they gain insane resistances. Mages burn through their whole mana pool with zero results, and archers can unload a full quiver without scratching them. On top of that, they regenerate as long as their mirrors are intact."</p>

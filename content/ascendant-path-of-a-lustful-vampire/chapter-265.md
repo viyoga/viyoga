@@ -36,7 +36,7 @@ chapter = 265
 <p>He unfurled the scroll first and looked through it with a smile. Being a Vampire, his mind couldn’t be affected by the Arcane symbols like a normal human/humanoid but he could still tell what made this set different from the one everyone else got to use.</p>
 <p>These Arcane Symbols were not meant to be used to create spells, just to cheat the amount of Evolutionary charge within a person so there were only about 27 of them but they were enough.</p>
 <p>Caius touched the page with his index and middle fingers, flooding it with his Mana so that he didn’t just read the symbols, he got them ingrained into his very mind.</p>
-<p>He then flexed his hand and cast a small Arcane symbol that read in the common tongue as ~Blaze~ and unleashed a small ball of fire to consume the Manuscript and reduce it to ashes.</p>
+<p>He then flexed his hand and cast a small Arcane symbol that read in the common tongue as Blaze and unleashed a small ball of fire to consume the Manuscript and reduce it to ashes.</p>
 <p>Arlette’s mouth gaped in surprise at that.</p>
 <p>"Why would you do that?" She asked.</p>
 <p>"It’s fine," Caius said gently with a smile, "I have a copy in my head now. And it’s only a foundational piece anyway. I’ll need to complete it before I start to dispense it."</p>

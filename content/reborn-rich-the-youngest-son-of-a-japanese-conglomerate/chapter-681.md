@@ -7,8 +7,8 @@ chapter = 681
 
 <p>The atmosphere on the last day of school before vacation was somehow different. Actually, compared to other schools, St. Francis Girls' Academy didn't have a particularly competitive or studious atmosphere, and there weren't a lot of events to just hang out and play, so I thought there wouldn't be much anticipation for the vacation ceremony, but that wasn't the case.</p>
 <p>Since there was no morning duty, I went to work a little late, and the expressions of the students I met on their way to school were all incredibly good. I thought that even at a laid-back school like this, the students must be welcoming the vacation.</p>
-<p>,Korean teacher~! Good morning!</p>
-<p>,Yamashiro seonsaengnim, good morning~!</p>
+<p>,Korean teacher! Good morning!</p>
+<p>,Yamashiro seonsaengnim, good morning!</p>
 <p>,Yeah, good morning.</p>
 <p>I greeted the students who recognized me and headed to the special class building. Before entering the education preparation room, I glanced around the classroom and saw that about half of the students had arrived.</p>
 <p>When I entered the education preparation room, today's schedule was printed out on the fax machine. The schedule was nothing special, just watching the vacation ceremony on video and then going home. Since the teachers also had vacation from tomorrow, they could go home right away if they didn't have anything to do.</p>
@@ -16,8 +16,8 @@ chapter = 681
 <p>While all the students were arriving at school, I made about two exam questions. If I made about three more questions, and did a few paperwork tasks that I had to do as a teacher for the third semester, there wouldn't be much work left as a teacher.</p>
 <p>When it was about time, I went to the classroom and all the students were there.</p>
 <p>,Good morning.</p>
-<p>,Hello, seonsaengnim~!</p>
-<p>,Ryuta-tachi, good morning~!!</p>
+<p>,Hello, seonsaengnim!</p>
+<p>,Ryuta-tachi, good morning!!</p>
 <p>Maybe because it was the vacation ceremony, all the special class students were excited. There was still some time before the vacation ceremony started, so I was planning to spend the time chatting.</p>
 <p>,What are you all going to do during the vacation?</p>
 <p>,Alik and I are going on ascetic training with Shimokawabe seonsaengnim....</p>
@@ -37,7 +37,7 @@ chapter = 681
 <p>For some reason, when the word adult came out, I felt something eerie. I must have been mistaken, right?</p>
 <p>After Taira Kanna's vacation speech ended, the next turn, Academy Director Daigo Terue's speech, began, and Daigo Terue gave a speech that wasn't very long as usual and ended the vacation ceremony. As expected, she's the best Academy Director if you only look at the short speeches.</p>
 <p>,Okay, the vacation ceremony is over, so go home now.</p>
-<p>,Eii~! We can't see you for two weeks, don't be so cold, Ryuta-tachi?</p>
+<p>,Eii! We can't see you for two weeks, don't be so cold, Ryuta-tachi?</p>
 <p>Seizawa Shii said, sounding disappointed, because I told them to go without any special greetings.</p>
 <p>,Then?</p>
 <p>,It's almost lunchtime, so shall we all have lunch together? What do you all think?</p>
@@ -49,7 +49,7 @@ chapter = 681
 <p>,But there are still some kids who have time, so let's eat with them.</p>
 <p>,I guess so. My dad said he's busy with the National Assembly schedule and told me to eat next time.</p>
 <p>Seizawa Shii's dad is a member of the National Assembly, so is there something he's busy with now...? I was about to think about what was going on, but the students who had appointments were just looking at me, so I chuckled.</p>
-<p>,Okay, everyone worked hard in the second semester, and let's see each other in two weeks~! Only those who don't have appointments and want to have lunch with me stay, and everyone else go home.</p>
+<p>,Okay, everyone worked hard in the second semester, and let's see each other in two weeks! Only those who don't have appointments and want to have lunch with me stay, and everyone else go home.</p>
 <p>,I wanted to go too, but it's a shame, seonsaengnim.</p>
 <p>Konoe Akina looked at me with a very disappointed expression, hugged me tightly, and then went out of the classroom. And like Konoe Akina did, as if it was allowed, all the special class troublemakers hugged me one by one and went out.</p>
 <p>,I have to go back to my main family today. I have a meal with my father....</p>
@@ -61,7 +61,7 @@ chapter = 681
 <p>Minamoto Risa waved her hand at me and Seizawa Shii and then went out of the classroom. The remaining students were Seizawa Shii and the six who decided to follow me.</p>
 <p>Otagi Yuka and Saionji Diana had bad relationships with their families, so there was no reason to go see them, Alik and Naruse Shiyo were usually with their families, and they said the ascetic training was tomorrow, so they had time today. Urabe Konoka and Sakagami Rena said they were going to see their families in the evening, so they could have lunch together as well.</p>
 <p>,Okay then.... There's still some time before lunch, so shall we play in the club room for a while before we go?</p>
-<p>,Good! There are a lot of fun things in the club room, so we can play~!</p>
+<p>,Good! There are a lot of fun things in the club room, so we can play!</p>
 <p>,Let's go up quickly!</p>
 <p>At the students' urging, I walked down the hallway and up the stairs. When I looked at the window on the side where the stairs turned, I saw Minamoto Risa carrying her bag and going somewhere. That's not the main gate side? Where is she going?</p>
 <p>,Risa-tan is going to her main family by helicopter.</p>

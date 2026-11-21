@@ -19,9 +19,9 @@ Keith's thick thighs were suffocating him, making him achieve the dream of every
 
 Twenty minutes later.
 
-"Ohhhh~!"
+"Ohhhh!"
 
-"I'm cumming… cum..mingggg~!"
+"I'm cumming… cum..mingggg!"
 
 Keith's body shivered intensely while her quivering insides splashed Lith's face with her love juice, drowning him.
 

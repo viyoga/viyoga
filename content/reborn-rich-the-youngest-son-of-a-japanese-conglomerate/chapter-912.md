@@ -67,7 +67,7 @@ chapter = 912
 <p>Endless Despair, already having a large Size and a hideous Appearance with exposed muscle fibers, changed into a monstrous Appearance. Due to its heavily distorted Muscles and transformed skeleton, the trace of Takakusaki Gengo had already disappeared.</p>
 <p>"Is this Phase 2...?"</p>
 <p>Naruse Shiyo muttered as she looked at that appearance. It seemed her words were roughly correct, but I didn’t feel like I was going to lose. Because by continuously fighting Endless Despair until now, my mastery of the Creation Chaos Style had increased, and I had slightly glimpsed the true essence of the Creation Chaos Style.</p>
-<p>TheDreaming-nim requested naked Yang Seol-hui's 1. Rooftop Sniping 2. Kick Cut~!</p>
+<p>TheDreaming-nim requested naked Yang Seol-hui's 1. Rooftop Sniping 2. Kick Cut!</p>
 <p>1.</p>
 <p>2.</p>
 <p>Kkiyot!</p>

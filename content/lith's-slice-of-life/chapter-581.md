@@ -5,7 +5,7 @@ weight = 581
 chapter = 581
 +++
 
-"Ralph-chwaaaaan!~"
+"Ralph-chwaaaaan!"
 
 Avelyn jumped on Ralph from behind and hugged him tightly.
 
@@ -13,13 +13,13 @@ A vein popped on Ralph's forehead, and he became annoyed. He was in the middle o
 
 "Don't just barge in like that. Have some elegance and reservation, mothe—"
 
-"Mo-ommy!~" Avelyn said with a bright smile after sealing Ralph's lips with her finger.
+"Mo-ommy!" Avelyn said with a bright smile after sealing Ralph's lips with her finger.
 
 "Say, mommy, or I am not listening to you. We are not in public now, are we?" Avelyn argued.
 
 Ralph knitted his brows. "You know—"
 
-"Mommy!~, I won't hear even a single word from you if you don't say it." Avelyn said again with a happy smile.
+"Mommy!, I won't hear even a single word from you if you don't say it." Avelyn said again with a happy smile.
 
 Ralph's annoyance was starting to peak but being a calm and composed person, he didn't lose himself to his mother's antics.
 
@@ -29,7 +29,7 @@ A few seconds later, Ralph sighed and gave up. There was no way for him to argue
 
 He took a deep breath and, embracing the cringe, said, "Mommy, can you get off?"
 
-"Wooohooo!~" Avelyn started clapping her hand as she finally got a victory against her son. He had bullied her on the phone for far too long, and finally, she heard what she wanted to hear most!
+"Wooohooo!" Avelyn started clapping her hand as she finally got a victory against her son. He had bullied her on the phone for far too long, and finally, she heard what she wanted to hear most!
 
 But despite being happy, she hugged him tighter and said, "Nopesies. Mommy is not going anywhere."
 
@@ -115,7 +115,7 @@ Avelyn thought about it and said, "well… it's not as exciting as having sex wi
 
 Ralph nodded. "So get ready; we have to leave soon."
 
-"Okie~" Avelyn agreed. She was about to leave now, but then she turned to look at Ralph and asked, "Ralph, can I have a promise?"
+"Okie" Avelyn agreed. She was about to leave now, but then she turned to look at Ralph and asked, "Ralph, can I have a promise?"
 
 Ralph turned to face her and stared at her, wondering what she wanted now.
 
@@ -123,7 +123,7 @@ Avelyn extended her pinky and said, "Promise Mommy that your first will be Mommy
 
 Ralph sighed. His mother didn't believe him, it seemed. But he didn't argue and extended his pinky as well, promising her.
 
-"Woohoo!~" Avelyn became happy and hopped her way out of his room.
+"Woohoo!" Avelyn became happy and hopped her way out of his room.
 
 Finally having some peace, Ralph returned to dressing up for the banquet, eventually causing the drama in the lust's castle to finally end.
 

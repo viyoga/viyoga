@@ -109,7 +109,7 @@ chapter = 378
 
 <p>&quot;How about seafood? Let me properly show my filial respect to you today.&quot;</p>
 
-<p>&quot;Great~ I’m going to fleece you thoroughly today. The disciple shall repay the master’s debt.&quot;</p>
+<p>&quot;Great I’m going to fleece you thoroughly today. The disciple shall repay the master’s debt.&quot;</p>
 
 <p>At six-oh-five, Hail appeared punctually at the law firm, still impeccably groomed, looking very refined, cultured, and dignified.</p>
 

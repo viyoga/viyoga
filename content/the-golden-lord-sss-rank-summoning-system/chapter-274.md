@@ -29,7 +29,7 @@ chapter = 274
 <p>His palm came down on the elf’s plump ass with a loud smack.</p>
 <p>The heavy flesh caved beneath the impact, his fingers sinking deep into the tender mound before a languid wave rolled outward from the point of contact, traveling across the entire curve until it crossed the cleft and set the other cheek trembling in sympathetic response.</p>
 <p>The sound profaned the sacred silence of the place.</p>
-<p>"Nghnnn~~ You naughty human lord~" Arwen didn’t push him away, letting out a soft giggle that echoed through the vastness of the cathedral. "Do you want to take a priestess’s purity right here on this sacred altar?"</p>
+<p>"Nghnnn You naughty human lord" Arwen didn’t push him away, letting out a soft giggle that echoed through the vastness of the cathedral. "Do you want to take a priestess’s purity right here on this sacred altar?"</p>
 <p>"Would your goddesses curse me for that?" Ethan chuckled softly, his hands gripping her hips before spinning her effortlessly in his arms.</p>
 <p>"Hm... No. The purity of the priestesses of the three goddesses must be maintained, but since you’re the one taking it, there shouldn’t be any problems. They’re not like that fanatic of the sun," Arwen replied, a smile playing on her lips.</p>
 <p>As she was spun around, her hands instinctively reached for the corners of the altar, her delicate fingers closing around the cold gold and polished silver.</p>
@@ -42,7 +42,7 @@ chapter = 274
 <p>She had never imagined this would be the path destiny would choose for her, but she wasn’t going to complain.</p>
 <p>Ethan was a handsome man; he seemed to respect his women and had brought back to her some of the people she had loved most in her life.</p>
 <p>For someone whose soul was doomed to oblivion, that wasn’t so bad.</p>
-<p>"Nghnn~~" Arwen moaned, feeling Ethan’s hands slide down over her round buttocks, his fingers digging deep into the soft flesh, kneading the plump curves as the supple mass spilled between his fingers, as if he were trying to merge his hands into her very skin.</p>
+<p>"Nghnn" Arwen moaned, feeling Ethan’s hands slide down over her round buttocks, his fingers digging deep into the soft flesh, kneading the plump curves as the supple mass spilled between his fingers, as if he were trying to merge his hands into her very skin.</p>
 <p>Grabbing the fabric of her dress, he gave it a firm tug.</p>
 <p>The sound of tearing cloth echoed through the sacred cathedral, followed by a high-pitched, sweet squeal that escaped the elf’s lips.</p>
 <p>Keeping her body leaning forward, she lifted her left hand from the altar, her slender fingers elegantly brushing a strand of greenish hair away from her beautiful emerald eyes.</p>

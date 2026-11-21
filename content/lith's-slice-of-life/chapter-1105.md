@@ -67,7 +67,7 @@ Lith took his shaft out and made her look at it.
 
 As her gaze was locked in it, he slowly moved it close to Luna's pussy and dramatically slid it in, ensuring Rivera watched. "It was done by her:"
 
-"Ohhh~!"
+"Ohhh!"
 
 Lith suddenly thrusted in one go, making Luna moan, and slamming his balls on Rivera's face, dumbfounding her. "A war breakout was necessary and your role was vital. The assault that happened that day…"
 

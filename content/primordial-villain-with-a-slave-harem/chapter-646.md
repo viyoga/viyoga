@@ -37,7 +37,7 @@ chapter = 646
 <p>A strong flinch overcame Kitsara's body before she protested, &lt;I'm not little, I'm a fully grown woman who's 50!&gt;</p>
 <p>&lt;Eyy, that's the second in command of the Ascendants! She's not an easy one to trick! I'm proud of you, Ayame.&gt;</p>
 <p>&lt;Shut your trap, I'm mad at you right now.&gt;</p>
-<p>&lt;You have my consent in the bag already, Baby~&gt; Lucille purred right into my mind. &lt;Enjoy the horny princess to your heart's content. You deserve a break.&gt;</p>
+<p>&lt;You have my consent in the bag already, Baby&gt; Lucille purred right into my mind. &lt;Enjoy the horny princess to your heart's content. You deserve a break.&gt;</p>
 <p>&lt;Although Blossom didn't have a favorable first impression of Horny Bitch, Blossom is more than okay with it! Master should do whatever makes him happy. Blossom is sure she'll come to like Horny Bitch once she gets to know her better, Master has good taste. Blossom loves all her new sisters.&gt;</p>
 <p>&lt;Aww, she truly is like a golden retriever. But why are you calling me Horny Bitch as if it became my official name? I have a name given to me by my loving father, you know?! You may call me Lady Kitsara.&gt;</p>
 <p>My dog-girl completely ignored everything the foxkin in my arms said save for the first sentence. &lt;Blossom is not a dog!&gt;</p>

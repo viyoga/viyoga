@@ -10,7 +10,7 @@ chapter = 1858
 <p>Nothing was discussed.</p>
 <p>Her eyes came back into focus one inch from his, and found him already watching her, warm and terrible.</p>
 <p>"You knew," she said.</p>
-<p>"Did I~?"</p>
+<p>"Did I?"</p>
 <p>"You said nothing."</p>
 <p>"You were the one who wanted to ’fight’ me so bad." A long, deep stroke rolled through her mid-glare. "I merely obliged. You can’t blame me."</p>
 <p>The look she aimed at him would have opened throats in any other room. Delivered from the crest of his pace, naked, trembling, arms locked around his neck and voice in pieces, it lost a certain amount of edge in transit.</p>

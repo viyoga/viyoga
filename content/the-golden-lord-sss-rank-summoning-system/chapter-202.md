@@ -62,6 +62,6 @@ chapter = 202
 <p>Deep shadows shrouded her figure, leaving only two details visible.</p>
 <p>Blood-red eyes, carrying an ancestral hunger, slowly opened, and as her lips parted to whisper something, sharp fangs glinted in the twilight.</p>
 <p>On her finger, she wore a ring that, if Ethan were there, he would quickly recognize as a more delicate, feminine version of the Blood Emperor’s ring.</p>
-<p>"Ah~ my prophesied dear husband..." Pale, delicate hands rose from the darkness, fingers trailing slowly through the air as the silhouette of a voluptuous body emerged from the shadows, her hourglass waist tapering before flaring into wide, womanly hips. "I am ready for you..."</p>
+<p>"Ah my prophesied dear husband..." Pale, delicate hands rose from the darkness, fingers trailing slowly through the air as the silhouette of a voluptuous body emerged from the shadows, her hourglass waist tapering before flaring into wide, womanly hips. "I am ready for you..."</p>
 <p>She dragged her tongue slowly across her naturally blood-red lips, her whole body trembling with anticipation, the soft swell of her huge bosom rising and falling with each quickened breath.</p>
 <p>At long last, the millennia of waiting had come to an end.</p>

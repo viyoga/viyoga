@@ -5,7 +5,7 @@ weight = 352
 chapter = 352
 +++
 
-<p>“Ahh ~ ohh!” Another moan escaped from her lips, loud and desperate.</p>
+<p>“Ahh  ohh!” Another moan escaped from her lips, loud and desperate.</p>
 
 <p>She felt every inch, her grandson’s cock claiming her in a way that made her heart pound with both heat and shame. Her nipples hardened, brushing his shaft with each thrust as waves of pleasure surged through her body.</p>
 

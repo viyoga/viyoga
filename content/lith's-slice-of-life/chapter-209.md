@@ -113,7 +113,7 @@ A group of three students were walking along a mountain slope.
 
 In a ruins of a small city.
 
-“Yaaa~, mate I didn’t know this tournament was so easy, haha! There’s nothing to do but follow the map. Are we gonna win like this?” A student said to another beside him.
+“Yaaa, mate I didn’t know this tournament was so easy, haha! There’s nothing to do but follow the map. Are we gonna win like this?” A student said to another beside him.
 
 “Yup. Let’s just hope that this…”
 

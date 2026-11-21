@@ -8,7 +8,7 @@ chapter = 1070
 <p>Fifteen thousand points each. From his throne in the palace, Kaiden watched the Arcane Lance Battery recharge in the catalog preview.</p>
 <p>Last time, he had worried over an eight-hundred-point creature upgrade. Now he was choosing where to put four of these magnificent things, imagining an intruder struggling along an exposed ledge only to find that barrel turning toward them.</p>
 <p>Nyx reached past him to indicate the far end of a shelf.</p>
-<p>"What about here, Kai? They’d have to cross the whole shelf while it’s looking at them. Plenty of time to regret coming~"</p>
+<p>"What about here, Kai? They’d have to cross the whole shelf while it’s looking at them. Plenty of time to regret coming"</p>
 <p>The firing lane reached over the Monolith station and down the climb, where his defenders could hold enemies while the weapon recharged.</p>
 <p>"Sounds good," he told her, saving the placement.</p>
 <p>He wanted to keep those guns intact, too. Beside the battery’s entry waited an Aegis Pylon, its three curved arms spreading a transparent dome in the preview.</p>
@@ -39,7 +39,7 @@ chapter = 1070
 <p>[Cost: 5 DMP.]</p>
 <p>In the preview, the palm-sized creature rested in a hollow with one leg against its silk. When a beetle caught the strand, it turned toward the disturbance and drummed its legs against the wood.</p>
 <p>Nyx leaned closer.</p>
-<p>"Could we have those beside the climbing routes? Someone snaps a thread, and the Gunner above them hears the little darling having a fit~"</p>
+<p>"Could we have those beside the climbing routes? Someone snaps a thread, and the Gunner above them hears the little darling having a fit"</p>
 <p>"Away from the Quakelords," Calypso added. "Unless we want to hear that every time they swing."</p>
 <p>Kaiden added forty spiders and chose sheltered crevices beside the defenders’ posts, beyond the bridges his Quakelords would be shaking. The threads would break easily; the warning would give his Gunners somewhere to aim.</p>
 <p>"Could we collect some of the silk too, Master?" Bastet asked. "I’d like to see how it takes a weave."</p>
@@ -66,7 +66,7 @@ chapter = 1070
 <p>"Semi-Creation Mode lets me shape whatever land I’ve just bought," he explained, showing Yunohana where the new boundary would run. "I can keep expanding along the edges, but reshaping the old terrain has to wait until High-Tier."</p>
 <p>Six square kilometres of Hollow Peaks went beside the chasm’s mountains, with broad valleys for his reserves and caves above them for the flyers. Between the outer ridges, he laid four square kilometres of Black Dunes, whose sand would muffle the movement of troops behind them.</p>
 <p>Calypso followed a route between the dunes with her fingertip.</p>
-<p>"Could we give them firm ground through here, Darling? A whole row of those mauls waiting when someone gets over the ridge~"</p>
+<p>"Could we give them firm ground through here, Darling? A whole row of those mauls waiting when someone gets over the ridge"</p>
 <p>Kaiden widened the lane until a formation could emerge abreast. The reserves could reach the Japanese crossings from there without crowding the creatures already on guard.</p>
 <p>Then he brought the old magma region forward.</p>
 <p>The thin river winding down its spiral made him remember Melty’s broken jaw. She had kept fighting while the creature that injured her drank away the ground beneath her, leaving her sisters exposed on cooling rock.</p>

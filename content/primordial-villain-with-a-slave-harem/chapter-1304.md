@@ -62,5 +62,5 @@ chapter = 1304
 <p>The man's hand closed around her arm and dragged her down. He shoved them toward a small iron gate, unlocked it, and pushed them inside one by one. The cell had no benches, no light except for what leaked from a torch in the hall.</p>
 <p>The gate clanged shut.</p>
 <p>"What do you want from us?" Feng grunted, looking up. The man glanced back. His grin stretched slowly, revealing uneven yellow teeth.</p>
-<p>"Who knows~?"</p>
+<p>"Who knows?"</p>
 <p>In that horrible grin, Feng dreaded that the worst she could imagine was coming for them.</p>

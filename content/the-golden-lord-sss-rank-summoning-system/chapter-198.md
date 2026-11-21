@@ -10,14 +10,14 @@ chapter = 198
 <p>A single glance was all the beauty needed to understand what it was. Her gaze drifted toward Ethan’s maids, and a soft smile curved her lips.</p>
 <p>Strange feelings were stirring in her heart, and, well, what better way to deal with them than to find things to do?</p>
 <p>The moment Ophelia’s intense gaze fell upon them, the maids shuddered, a chill crawling down their spines.</p>
-<p>"You girls... what are you waiting for? Come over to your new teacher! I’m going to teach you everything I know, just right, fufufu~"</p>
+<p>"You girls... what are you waiting for? Come over to your new teacher! I’m going to teach you everything I know, just right, fufufu"</p>
 <p>Ophelia’s words echoed sweetly through the dining room, yet to the maids’ ears, they rang out like a death sentence freshly pronounced.</p>
 <p>What kind of trouble had their Lord gotten them into?</p>
 <p>Right after breakfast, the girls shared a few affectionate moments with Ethan before going their separate ways to their respective tasks.</p>
 <p>Alice went to continue Veronica’s magic lessons, Evelyn left to train with Mireya, Elena withdrew to work on her projects, and before long, Ethan found himself alone in Ophelia’s company.</p>
 <p>The maids had already gathered in a spacious hall at the center of the mansion, anxiously awaiting their new teacher, who was strolling through the corridors alongside their young lord.</p>
 <p>The two walked close together, Ophelia’s body pressed against Ethan’s side, his right arm draped over her shoulders.</p>
-<p>"Do you really need to... nghnn~~ touch me like this while we walk?"</p>
+<p>"Do you really need to... nghnn touch me like this while we walk?"</p>
 <p>Ophelia asked, a low moan slipping past her lips.</p>
 <p>Her gaze slowly drifted down to her own cleavage, where Ethan’s right hand was buried deep, grasping the ample, creamy crown of one of her pale breasts.</p>
 <p>As large as his masculine palm was, it couldn’t fully encase even that exposed mound, the soft flesh bulging around his fingers.</p>
@@ -31,7 +31,7 @@ chapter = 198
 <p>A muffled moan vibrated against his lips as his grip on her breast tightened, his fingers sinking even deeper into the tender, pillowy flesh.</p>
 <p>Their tongues met and tangled, her delicate, pink tongue dancing against his for a brief, heated moment, until he finally pulled away, a thin thread of saliva still bridging their lips.</p>
 <p>Ophelia blushed deeply, her mature, beautiful face cycling through a hundred emotions in the span of a single second.</p>
-<p>"Mmmhn~ I betrayed my own son for you, killed all his operatives in Goldenveil, and even gave my body to you... Can you at least tell me what kind of unholy ability you used on me?"</p>
+<p>"Mmmhn I betrayed my own son for you, killed all his operatives in Goldenveil, and even gave my body to you... Can you at least tell me what kind of unholy ability you used on me?"</p>
 <p>What frightened her most, honestly, was that she was fully aware of everything that had happened, and yet she still couldn’t bring herself to resist.</p>
 <p>It was as if something deep within her heart was rewriting the very essence of how she saw the world, gradually molding her into a woman who could love nothing but Ethan.</p>
 <p>"It’s a secret. But i can tell you if..."</p>
@@ -62,5 +62,5 @@ chapter = 198
 <p>Ophelia’s eyes narrowed for a brief moment, only to widen the very next instant.</p>
 <p>She knew that name very well.</p>
 <p>Her lips parted in a sweet laugh as she shook her head.</p>
-<p>"I know his father. He’s a sadistic, cruel son of a bitch. He must be going crazy over his son’s death, hahaha~"</p>
+<p>"I know his father. He’s a sadistic, cruel son of a bitch. He must be going crazy over his son’s death, hahaha"</p>
 <p>At that moment, she noticed Ethan’s confused look, his lips parting.</p>

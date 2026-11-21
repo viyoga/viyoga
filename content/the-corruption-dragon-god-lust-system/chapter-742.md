@@ -43,7 +43,7 @@ chapter = 742
 
 <p>Her slender muscles flexed beneath her milky skin before her sleepy eyes finally settled on him.</p>
 
-<p>“Hmm~~ the tournament is supposed to start today, isn’t it?” she murmured, her voice still heavy with sleep as she checked the time on a magical artifact resting atop the bedside table.</p>
+<p>“Hmm the tournament is supposed to start today, isn’t it?” she murmured, her voice still heavy with sleep as she checked the time on a magical artifact resting atop the bedside table.</p>
 
 <p>It was just dawn on the planet of the Myriad Beasts Sect, and the first match wouldn’t take place until noon.</p>
 

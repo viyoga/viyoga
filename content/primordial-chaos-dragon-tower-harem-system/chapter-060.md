@@ -34,7 +34,7 @@ chapter = 60
 <p>A few moments later, Kent was seated with his shirt off, abs fully displayed. Alina gulped, captivated by his perfect physique. However, it didn’t take long for the heavy assets on her chest to also come into view.</p>
 <p>’Damn, those are much bigger than they appear in her clothes,’ Kent thought inwardly as his hands instinctively grabbed onto her waist and moved to her Boobs.</p>
 <p>The next moment, his lips were around her nipples, sucking on them with fervor.</p>
-<p>"Mmmmhh~"</p>
+<p>"Mmmmhh"</p>
 <p>Alina moaned softly, feeling Kent’s tongue teasing and swirling around her sensitive spot, sending waves of pleasure coursing through her body.</p>
 <p>Kent grabbed hold of her ass and moved her to sit on his lap as he sucked on her nipples and started to knead her butt. The softness of her butt, even through the clothing, was already pleasing to the hand.</p>
 <p>The pleasure was immediate, and Kent loved it. He moved and began removing her clothes as he kissed his nipples and began kissing around the boobs.</p>
@@ -46,8 +46,8 @@ chapter = 60
 <p>"Let’s get to the good stuff," Kent said, and then he gently removed her panties, which were already soaking wet.</p>
 <p>Kent looked at her and smiled, "Don’t worry, it won’t be long now."</p>
 <p>He gently inserted his finger at her tiny entrance and started brushing it against her clit.</p>
-<p>"MmmmhhH~"</p>
-<p>"AaaaahhhH~"</p>
+<p>"MmmmhhH"</p>
+<p>"AaaaahhhH"</p>
 <p>Her moans immediately filled the room. However, Kent didn’t care about that. His finger was glowing golden as he worked on her lower lips, making sure her upper lips continued to sing for him.</p>
 <p>He had activated the Divine Pervert touch, making sure she experienced extra honey-ness. Of course, Kent wasn’t using it at even 10%, but the feeling alone drove her crazy.</p>
 <p>"AaahhhhH...I am cummming"</p>

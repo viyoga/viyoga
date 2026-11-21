@@ -43,7 +43,7 @@ chapter = 726
 <p>With a final huff, she sauntered to the edge of the bath and leapt in with barely a splash, settling in beside Kitsara with an annoyed grumble.</p>
 <p>"I swear</p>
 <p>Kitsara giggled, playfully petting her hair.</p>
-<p>"There, there~”</p>
+<p>"There, there”</p>
 <p>"Stop petting me!” she snapped, but didn’t move away.</p>
 <p>In fact, she even relaxed a little, settling in as the warm water worked its magic.</p>
 <p>Meanwhile, I looked down at Vex again, smiling like the smug bastard I was.</p>

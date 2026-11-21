@@ -6,7 +6,7 @@ chapter = 275
 +++
 
 <p>Clap</p>
-<p>"Ah~! Mghn~~ g-gentler, Ethan...," Arwen gasped at the impact, a soft, sweet squeal escaping her parted lips, her plump cheeks quivering from the lingering sting of his palm.</p>
+<p>"Ah! Mghn g-gentler, Ethan...," Arwen gasped at the impact, a soft, sweet squeal escaping her parted lips, her plump cheeks quivering from the lingering sting of his palm.</p>
 <p>Following the slap came Ethan’s cock—long, thick, and throbbing, even bigger than she had imagined—falling heavily onto her buttocks with a wet, sticky smack, the flushed tip already weeping pre-cum.</p>
 <p>The rigid shaft sank instantly between her full buttocks, the supple cheeks swallowing it whole. Her soft, warm skin molded itself perfectly around the more than twenty centimeters of flesh, as if it had been made for the sole purpose of embracing him.</p>
 <p>Honestly, in both size and shape, Arwen was bigger and more perfect than even Evelyn. It was hard to compare her ass to anyone else’s.</p>
@@ -16,13 +16,13 @@ chapter = 275
 <p>"It’s going to hurt a little at first... okay?" he warned her, tenderness softening his hoarse voice.</p>
 <p>Not that it was really necessary.</p>
 <p>Arwen was a fourth-stage warrior, and even as a mana user, her body retained a power few could rival. Ethan wouldn’t be able to hurt her even if he tried; not unless she allowed it herself.</p>
-<p>"I-I know... Nghnn~~," Arwen replied, her love juices already trickling in glistening strands down the inside of her pale thighs, gathering into pearls before dripping onto the silver floor inscribed with elven runes beneath her delicate, trembling feet.</p>
+<p>"I-I know... Nghnn," Arwen replied, her love juices already trickling in glistening strands down the inside of her pale thighs, gathering into pearls before dripping onto the silver floor inscribed with elven runes beneath her delicate, trembling feet.</p>
 <p>"Just get it all inside me already... the anticipation is going to kill me before the pain does, fufufu."</p>
 <p>Her words echoed softly through the cathedral, trailing off into a sweet yet clearly nervous giggle.</p>
 <p>Ethan smiled, easing his hips forward, the plump pale lips of her pussy parting reluctantly to embrace the head of his cock like a snug ring of wet, scorching flesh.</p>
 <p>Drawing a sharp breath, he gathered his strength and drove forward. Twenty-one centimeters of throbbing cock disappeared into Arwen’s tight pussy in a single, merciless stroke, the virgin flesh stretching to accommodate the thick, relentless invasion.</p>
 <p>Plap</p>
-<p>"E-Ethan~~ AGHNN~~!"</p>
+<p>"E-Ethan AGHNN!"</p>
 <p>A loud, high-pitched shriek tore from the High Elf’s lips, ricocheting off the towering walls of the sacred cathedral.</p>
 <p>Stone walls that had stood in silent reverence for over one hundred thousand years, never having witnessed such an obscene sound, were now flooded with a symphony of moans and the wet slapping of flesh against flesh.</p>
 <p>Ethan’s pelvis crashed into her buttocks, his eyes squeezing shut in pure pleasure.</p>
@@ -34,15 +34,15 @@ chapter = 275
 <p>Arwen herself was startled by the lewdness of her own words, her eyes widening for a brief moment.</p>
 <p>She had no time to question herself, however, for Ethan’s hips had already burst into motion, drawing back before slamming forward with full force against her ass.</p>
 <p>Clap</p>
-<p>"Oghnn~~"</p>
+<p>"Oghnn"</p>
 <p>A loud, wet slap rang out, followed by a sensual moan that reverberated through the distant vaults.</p>
 <p>Plap</p>
 <p>Another impact struck the elf’s buttocks before the previous moan had even faded, his cock sinking deep enough to kiss the entrance of her womb.</p>
-<p>"Nghnn~~ g-goddesses... g-give me strength to nghnn~~"</p>
+<p>"Nghnn g-goddesses... g-give me strength to nghnn"</p>
 <p>Clap</p>
-<p>"To take this huge human cock oghnn~~~"</p>
+<p>"To take this huge human cock oghnn"</p>
 <p>Plap</p>
-<p>"In this mghnnn~~ t-tight little elven pussy aghnnn~~"</p>
+<p>"In this mghnnn t-tight little elven pussy aghnnn"</p>
 <p>Her breasts thrashed wildly beneath her torso with every deep thrust, the stiff pink nipples dragging across the cold gold of the altar as her body was driven forward again and again. Her tight pussy swallowed his cock all the way to the base each time, gripping him in a wet, sucking kiss.</p>
 <p>Ethan’s blood boiled at Arwen’s words.</p>
 <p>He didn’t know if she was teasing him on purpose with those lewd words, but it was working!</p>

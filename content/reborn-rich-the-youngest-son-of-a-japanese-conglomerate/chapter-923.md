@@ -68,4 +68,4 @@ chapter = 923
 <p>"Kyaaak...!"</p>
 <p>Saionji Diana was already lying beside me. I could use Telekinesis with much less Power than before, and with greater smoothness and precision. I slapped Saionji Diana's buttocks and got up from the bed.</p>
 <p>"I'm going to shower." The Rewards from the Takakusaki Gengo Raid were considerable, so I could enjoy a pleasant Shower from Morning.</p>
-<p>Requested by TheDreaming-nim, Exposure Maid Mari and Exposure Maid Mari's Masturbation~! Exposure Maid Mari~! Exposure Maid Mari Masturbation~!</p>
+<p>Requested by TheDreaming-nim, Exposure Maid Mari and Exposure Maid Mari's Masturbation! Exposure Maid Mari! Exposure Maid Mari Masturbation!</p>

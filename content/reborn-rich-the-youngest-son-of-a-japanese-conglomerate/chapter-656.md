@@ -32,7 +32,7 @@ chapter = 656
 <p>-Chun Ha-rin "I decided to collaborate after seeing TG Tech CEO Jin Yong-tae. TG Tech co-CEO Jin Yong-tae is a very talented and handsome businessman."</p>
 <p>After seeing the article, the number of people suspecting the relationship between Chun Ha-rin and me increased, and there was a side effect that a rumor arose that Jin Yong-tae was a member of the Jeil Group, but I was satisfied that the completely absurd conspiracy theories had disappeared.</p>
 <p>Besides, since the name of the Jeil Group carries weight in Korea, as long as that rumor exists, fewer people in Korea will mess with TG Tech. Almost no one is hostile to the Jeil Group.</p>
-<p>"Ryuta-cchi~! What are you looking at? We need to decide on the restaurant for the second day quickly, you know? We have a lot of people, so we need to make reservations in advance!"</p>
+<p>"Ryuta-cchi! What are you looking at? We need to decide on the restaurant for the second day quickly, you know? We have a lot of people, so we need to make reservations in advance!"</p>
 <p>Seizawa Shii called out to me as I was looking at my phone and spacing out. Ah, that's right. It was club time after class. We were deciding on the ski resort to go to in January and setting the schedule.</p>
 <p>"I eat anything well, so... I think that lamb restaurant would be good."</p>
 <p>"Great! It's good for Ryuta-cchi to choose at least one place he wants to go."</p>
@@ -40,13 +40,13 @@ chapter = 656
 <p>"But you seem to be in a good mood today?"</p>
 <p>"I got a part-time job after a long time! It's a good thing, so I'm going to work hard."</p>
 <p>Ah, I see. The mysterious part-time job that Seizawa Shii always talked about must have come in. I didn't know what it was yet, but since she said it was a good thing, I didn't think I needed to stop her.</p>
-<p>"Okay~! Done! We've finished planning the second day's schedule that we were supposed to do today, so let's all go home!"</p>
+<p>"Okay! Done! We've finished planning the second day's schedule that we were supposed to do today, so let's all go home!"</p>
 <p>"I'll make the reservations."</p>
 <p>Seizawa Shii got up from her seat after finishing all the writing, and Shido Tsubaki said she would make the reservations, so everyone decided to end the club activities for today.</p>
 <p>"Is your part-time job from today?"</p>
 <p>"No? Today is... um, something like an interview? That's why I was rushing a bit, sorry Ryuta-cchi."</p>
 <p>"No, have a good trip. Call me if it's dangerous."</p>
-<p>"Ahahaha~☆ Ryuta-cchi, that's the first time I've heard you worry like that. Don't worry. Nothing will happen."</p>
+<p>"Ahahaha☆ Ryuta-cchi, that's the first time I've heard you worry like that. Don't worry. Nothing will happen."</p>
 <p>Seizawa Shii told me not to worry, waved her hand, and ran out of the club room. She must be really busy.</p>
 <p>###</p>
 <p>Buaaang!</p>

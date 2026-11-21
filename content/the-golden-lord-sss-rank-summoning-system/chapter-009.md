@@ -12,7 +12,7 @@ chapter = 9
 <p>"Ah... You’re awake..." Alice smiled shyly, pulling the hem of her dress, trying to cover herself a little.</p>
 <p>"I was preparing a bath for us... The ritual should begin at noon, so we need to be ready..."</p>
 <p>"You look beautiful..." Ethan smiled back, approaching her before pulling her into an embrace, wrapping his hands around her waist before letting them fall onto her plump rear.</p>
-<p>"Ngh~" A muffled moan escaped Alice’s lips as the hard slap landed on her ass, the sharp snap echoing through the house as a shockwave spread across her voluptuous flesh.</p>
+<p>"Ngh" A muffled moan escaped Alice’s lips as the hard slap landed on her ass, the sharp snap echoing through the house as a shockwave spread across her voluptuous flesh.</p>
 <p>Without the slightest modesty, Ethan moved his hands, lifting her dress slightly and revealing the pale, pure skin of her ass, grabbing her buttocks passionately.</p>
 <p>"N-not here... We need to get ready soon, I need to take you to the meeting place without anyone seeing." Alice murmured, her face flushed as she pushed against his chest.</p>
 <p>"Just a quickie..." Ethan hugged her even tighter, his body pressed firmly against hers, his cock throbbing hard against Alice’s abdomen.</p>
@@ -24,7 +24,7 @@ chapter = 9
 <p>He wasted no time in positioning himself behind her, his hips pressing firmly against her ass as he held her by the waist.</p>
 <p>Her buttocks rose like two plump, perfect, round orbs, as if they were gifts from heaven.</p>
 <p>The thin fabric of her dress did little to cover them.</p>
-<p>"Nghnn~~ ah!" Alice let out a sigh punctuated by soft moans, her breathing becoming heavier.</p>
+<p>"Nghnn ah!" Alice let out a sigh punctuated by soft moans, her breathing becoming heavier.</p>
 <p>Behind her, Ethan slid his hands down the sides of her body, feeling the contours of her perfect curves under the thin fabric, until his fingers finally found the hem of the dress.</p>
 <p>He lifted the dress slowly, revealing her thighs and, soon after, her panties.</p>
 <p>The thin, damp fabric was stuck to her skin, the transparency of the wet white panties revealing the perfect outline of her soft, plump vulva.</p>
@@ -37,7 +37,7 @@ chapter = 9
 <p>Every part of her fought to crush him inside her, to milk every last drop of his cum.</p>
 <p>With one final thrust, he pushed himself all the way in, keeping his hands where her buttocks met her hips and delicate waist, grabbing as much soft, squishy flesh as he could.</p>
 <p>His fingers left red marks on her pale skin.</p>
-<p>"Nghnn~~ you’re... aghnn~~ filling me up so much~~ mghnn~~ oh gods~~" Alice lost control of her lips, barely paying attention to the obscene words that escaped as her body lost strength.</p>
+<p>"Nghnn you’re... aghnn filling me up so much mghnn oh gods" Alice lost control of her lips, barely paying attention to the obscene words that escaped as her body lost strength.</p>
 <p>Her breasts bounced as a second impact hit her ass, her whole body being sent forward before bouncing off Ethan’s cock again.</p>
 <p>The young man behind her picked up the pace, quickly reaching top speed, Alice’s moans turning into nothing more than squeals punctuated by the impacts of his hips against her ass.</p>
 <p>Her delicate fingers sank into the folds of the wooden wall, her eyes rolling back as Ethan fucked her pussy mercilessly.</p>

@@ -15,7 +15,7 @@ chapter = 26
 <p>Soon, the beauty found herself with both legs on Ethan’s shoulders. Her butt aligned with his hips, something long, thick, and throbbing pressing against her most intimate part.</p>
 <p>The shorts did little to separate them.</p>
 <p>"I’m your master, you know? You’re the bold one here..." He said, moving his hips a little harder, hugging Evelyn’s thick, shapely thighs for support, his fingers sinking into the soft flesh.</p>
-<p>"Nghnn~~" She moaned, feeling the pressure between her legs increase.</p>
+<p>"Nghnn" She moaned, feeling the pressure between her legs increase.</p>
 <p>With some difficulty, she purred, "You think I’m as easy as Alice? Your pretty, sexy face won’t..."</p>
 <p>Evelyn suddenly gritted her teeth, putting all the strength of a second-stage awakened out there.</p>
 <p>"Tame me that easily!" She roared, her aura exploding out of her body.</p>
@@ -36,7 +36,7 @@ chapter = 26
 <p>Instead, he readied his right hand, throwing it with full force toward Evelyn’s lower body.</p>
 <p>The tanned beauty’s eyes widened. A sharp squeal escaped her pink lips as Ethan’s palm sank into the soft, plump flesh of her perfect ass.</p>
 <p>A powerful shockwave spread through the vast flesh, the round orbs rippling like a stormy sea.</p>
-<p>"Nghnn~~ pervert!"</p>
+<p>"Nghnn pervert!"</p>
 <p>[Magnificent! The host is a combat genius!]</p>
 <p>"Hehehe, I know, no need to praise me." Ethan chuckled, immediately stepping back.</p>
 <p>"That’s not a compliment!" Evelyn shouted angrily, kicking toward Ethan’s chest.</p>
@@ -51,13 +51,13 @@ chapter = 26
 <p>"If I can’t hit you, I’ll at least suffocate you until you see stars!" Evelyn roared. Her breasts hit Ethan’s face and her legs wrapped around his hips.</p>
 <p>A wild smile took over her face and she squeezed, pulling Ethan against her breasts, using her vast flesh to muffle his voice.</p>
 <p>The young man choked, struggling to breathe against those vast mountains, his face covered by nothing but a sea of creamy, tanned skin.</p>
-<p>"You... nghnn~~" Evelyn’s words died in her throat.</p>
+<p>"You... nghnn" Evelyn’s words died in her throat.</p>
 <p>Her eyes widened as Ethan’s hands flowed down to her rear, landing on her perfect orbs with a loud, resounding smack.</p>
 <p>His fingers closed immediately, grabbing as much flesh as they could. Evelyn’s grip on his head weakened.</p>
-<p>"What are you— aghnn!~~" A loud slap echoed. Ethan’s right palm landed hard on Evelyn’s buttocks, a shockwave spreading across the perfection.</p>
+<p>"What are you— aghnn!" A loud slap echoed. Ethan’s right palm landed hard on Evelyn’s buttocks, a shockwave spreading across the perfection.</p>
 <p>She bit her lower lip, pressing her clenched fists against Ethan’s chest and then lifting her torso up against him.</p>
 <p>Her eyes lowered, passing over Ethan’s face and chest, once lean but now gaining shape as they trained.</p>
 <p>Finally, they reached the point where their bodies met. Her legs still wrapped around his hips, a thick, throbbing bulge pressing against her.</p>
-<p>"Bastard~~ this cock better be as honeyed as Alice makes it out to be!" Evelyn groaned. Her nails dug into the pale skin of Ethan’s chest.</p>
+<p>"Bastard this cock better be as honeyed as Alice makes it out to be!" Evelyn groaned. Her nails dug into the pale skin of Ethan’s chest.</p>
 <p>"And if it isn’t?"</p>
 <p>"I’ll bite it off!"</p>

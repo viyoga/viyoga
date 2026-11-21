@@ -8,7 +8,7 @@ chapter = 257
 <p>Okutama-machi, being a mountain village in Tokyo, surprisingly had tourist demand. It was mainly thought of by people who came to enjoy camping or who wanted to get away from the bustling city but couldn't afford to go far.</p>
 <p>So, there was a surprisingly large hotel, and coincidentally, there was a room like the largest party room, so I rented it, and since driving would be impossible after drinking, I additionally booked 2 rooms for the women and 3 rooms for the men.</p>
 <p>I was just planning to play in the big room and sleep there right away.</p>
-<p>,The room is big~. Oppa.</p>
+<p>,The room is big. Oppa.</p>
 <p>,Alik and Darim are going to spread out the pizza.</p>
 <p>Alik took Jeong Darim, who was surprised by the hotel room, and started spreading out the pizza on the table. Seven pizzas were spread out, and I put the ice cream, drinks, and alcohol that Alik and Jeong Darim had chosen in the refrigerator. They'll eat the jelly and snacks on their own if I put them on one side.</p>
 <p>Soon after, the Sawayanagi Azuma team bought chicken, and the Sawayanagi Tobe team couldn't grill meat, so they bought a large amount of skewers.</p>
@@ -19,7 +19,7 @@ chapter = 257
 <p>Sawayanagi Azuma bought a sufficient amount of chicken, but she said it with an expression of wondering if it might not be enough.</p>
 <p>,You guys aren't adults yet, so it's drinks for you.</p>
 <p>I said, handing the trainees bags of drinks. Choi Jin-ha, Lee Doo-young, and Kim Young-chan looked disappointed, but there's nothing they can do about it.</p>
-<p>,I'll have beer~!</p>
+<p>,I'll have beer!</p>
 <p>Rianna Holden happily took a can of beer, Sawayanagi Azuma chose a highball, and Sawayanagi Tobe chose Sake.</p>
 <p>I'm immune to poison because of my Abyss-Bound Body trait, but I'm also immune to intoxication, so I was thinking of just drinking a soft drink, but I chose a beer that goes well with chicken or pizza.</p>
 <p>,How's Doo-young doing? Has his regeneration ability gotten any better?</p>

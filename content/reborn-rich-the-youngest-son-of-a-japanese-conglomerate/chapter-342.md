@@ -33,19 +33,19 @@ chapter = 342
 <p>"Yes, the Blue Heart Hall also has company dinners often, so it's easy to handle the kids. If you just feed them a lot of delicious food, they'll grab their stomachs and go home on their own."</p>
 <p>Isn't that food torture? She's a martial arts club advisor, so she's quite tough when it comes to handling the kids. Feeding them delicious food until they can't eat anymore.</p>
 <p>"Konoe."</p>
-<p>"Yes~! Seonsaengnim."</p>
+<p>"Yes! Seonsaengnim."</p>
 <p>I called Konoe Akina, the club president, before taking Kijimoto Jurie away.</p>
 <p>"Here's my card, so pay the bill and you can use it to pay for more if you want to have more fun."</p>
 <p>"Hehe, the buffet is already paid for. It's a hotel owned by my family, so I can't accept money from seonsaengnim. I'll take care of the rest of the bill today too."</p>
 <p>Ah, is that so? Konoe Akina insisted on the Golden Dragon Hotel because she wanted to treat me. I unconsciously stroked Konoe Akina's head because I found her thoughtfulness cute. Konoe Akina blushed at my stroking and quietly enjoyed my touch.</p>
-<p>"Ehh~! Ryuta-chi, why are you only stroking Kono-chan? Me too!"</p>
+<p>"Ehh! Ryuta-chi, why are you only stroking Kono-chan? Me too!"</p>
 <p>"Ryuta, give Alik a pat-pat too."</p>
 <p>Seizawa Shii and Alik, seeing me stroking Konoe, came up and offered their heads to me. I stroked their heads as if I couldn't help it.</p>
 <p>"I'm going to leave first, so have fun and see you tomorrow."</p>
-<p>"Yes~!"</p>
-<p>"Ryuta-chi~! Don't do anything bad to the nurse-chan, okay?"</p>
+<p>"Yes!"</p>
+<p>"Ryuta-chi! Don't do anything bad to the nurse-chan, okay?"</p>
 <p>"Would I?! I'm just taking her home."</p>
-<p>"Ehh~! No fun."</p>
+<p>"Ehh! No fun."</p>
 <p>There were various reactions when I said that while supporting Kijimoto Jurie. Of course, Seizawa Shii annoyed me the most, but I roughly finished the conversation and went outside the hotel.</p>
 <p>"Um, Kijimoto seonsaengnim. Where is your house?"</p>
 <p>"Heehee, I don't know...!"</p>
@@ -74,7 +74,7 @@ chapter = 342
 <p>I said that and immediately took off Kijimoto Jurie's clothes. Kijimoto Jurie pretended to be embarrassed and moved her body to make it easier for me to take off her clothes.</p>
 <p>"You have a good body?"</p>
 <p>I knew she had a good body because of her huge breasts and hip size that were obvious even when she was wearing clothes, but she had an amazing body. Her big breasts, big hips, slender waist, smooth legs, and good skin texture combined to make her the perfect body for extracting a man's semen.</p>
-<p>"Heuuheung.... I don't know~."</p>
+<p>"Heuuheung.... I don't know."</p>
 <p>Is "I don't know" her catchphrase? She kept repeating "I don't know" when she pretended to be drunk earlier. I reached out to Kijimoto Jurie's breasts. Kijimoto Jurie's soft and squishy breasts sucked my hand in like a swamp.</p>
 <p>"Haaheuhng...!"</p>
 <p>"Good breasts."</p>

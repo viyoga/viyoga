@@ -90,7 +90,7 @@ chapter = 919
 <p>With the Word "but," her already flushed Face became even redder.</p>
 <p>"...If they're your children, several would be good."</p>
 <p>Yamashiro Ryuta, who heard those Words, tightly embraced Minamoto Risa. Hearing such Words, there was no Man who wouldn't be pleased.</p>
-<p>Minamoto Risa, as if embarrassed, playfully pushed Yamashiro Ryuta away, saying, "Oh, stop it~" but soon she quietly settled into Yamashiro Ryuta's Embrace.</p>
+<p>Minamoto Risa, as if embarrassed, playfully pushed Yamashiro Ryuta away, saying, "Oh, stop it" but soon she quietly settled into Yamashiro Ryuta's Embrace.</p>
 <p>"And if we get married later, I have a wedding I want to have."</p>
 <p>"Tell me anything."</p>
 <p>Yamashiro Ryuta said. In fact, Minamoto Risa of the Minamoto Family or Yamashiro Ryuta of the Taira Family (though he was still hiding it) could have any dream wedding they wished, so it didn't Matter what Minamoto Risa wanted. Because he could grant anything.</p>
@@ -104,29 +104,29 @@ chapter = 919
 <p>"If it's Parents...." "You mean make Minamoto Ushin cosplay?" Yamashiro Ryuta made a dumbfounded Expression and looked at Minamoto Risa. And since Minamoto Ushin looked menacing, he thought Bowser would suit him.</p>
 <p>"Ever since I was little, I wanted to be congratulated by the characters from the Comic I liked.... Ehehe."</p>
 <p>Seeing Minamoto Risa's foolishly smiling Expression, Yamashiro Ryuta couldn't bring himself to tackle her.</p>
-<p>Requested by Iseibu-nim: Ha Ju-yoon and Jinmija Yeosa wearing sexy Hanbok with a Courtesan feel! Since there was no new model-specific LORA trained for a Courtesan feel, I just made them with a sexy Hanbok feel~!!</p>
-<p>Ha Ju-yoon first~!</p>
-<p>Jinmija Yeosa~!</p>
+<p>Requested by Iseibu-nim: Ha Ju-yoon and Jinmija Yeosa wearing sexy Hanbok with a Courtesan feel! Since there was no new model-specific LORA trained for a Courtesan feel, I just made them with a sexy Hanbok feel!!</p>
+<p>Ha Ju-yoon first!</p>
+<p>Jinmija Yeosa!</p>
 <p>See-Through Hanbok is nice, hehe.</p>
-<p>Requested by Hwanbuljeoldaebulga-nim: 1. Sexy lingerie + black Stockings 2. Teacher Gajeong and Lisa-ttang wearing Jeans and a lace Bra! It's 2 requests with 2 characters each, so a total of 4 requests, which violates the rules, but since it's a commemorative Illustration, I'll do it for you, hehe. From next time, please make requests according to the rules-yong~!</p>
-<p>Lisa-ttang number 1 first~!</p>
-<p>Lisa-ttang number 2~!</p>
-<p>Teacher Gajeong number 1~!</p>
-<p>Teacher Gajeong number 2~!</p>
-<p>Requested by Gojoy-nim: Hangari Muneo Hanakame lying naked on her side~!</p>
+<p>Requested by Hwanbuljeoldaebulga-nim: 1. Sexy lingerie + black Stockings 2. Teacher Gajeong and Lisa-ttang wearing Jeans and a lace Bra! It's 2 requests with 2 characters each, so a total of 4 requests, which violates the rules, but since it's a commemorative Illustration, I'll do it for you, hehe. From next time, please make requests according to the rules-yong!</p>
+<p>Lisa-ttang number 1 first!</p>
+<p>Lisa-ttang number 2!</p>
+<p>Teacher Gajeong number 1!</p>
+<p>Teacher Gajeong number 2!</p>
+<p>Requested by Gojoy-nim: Hangari Muneo Hanakame lying naked on her side!</p>
 <p>The last Illustration was originally made horizontally and then rotated vertically, hehe.</p>
-<p>Requested by MidNightSKY-nim: Kanna feeling Climax after receiving a Ring, and Lisa-ttang, also receiving a Ring and emitting Steam, looking dazed and dizzy~!</p>
+<p>Requested by MidNightSKY-nim: Kanna feeling Climax after receiving a Ring, and Lisa-ttang, also receiving a Ring and emitting Steam, looking dazed and dizzy!</p>
 <p>Kanna!</p>
 <p>She's climaxing quite intensely, wow. It was a bit difficult because the Ring wouldn't go where I wanted it to go, sob sob.</p>
-<p>Lisa-ttang~!</p>
+<p>Lisa-ttang!</p>
 <p>While wondering how to express "dazed and dizzy," I just made her Eyes spin, hehe.</p>
-<p>Requested by TheDreaming-nim: Karen Masturbating with her Legs in an M-shape on the Subway, and Athena Masturbating on a park bench~!</p>
-<p>Karen first~!</p>
-<p>Athena~!</p>
+<p>Requested by TheDreaming-nim: Karen Masturbating with her Legs in an M-shape on the Subway, and Athena Masturbating on a park bench!</p>
+<p>Karen first!</p>
+<p>Athena!</p>
 <p>Because of the phone camera screen, I had to put twice the steam, hehehe.</p>
-<p>Requested by Skyperry-nim: Nagumo Sian and Kijimoto Jurie naked with M-shaped Legs and doing a double peace sign~!</p>
-<p>Nagumo Sian first~!</p>
+<p>Requested by Skyperry-nim: Nagumo Sian and Kijimoto Jurie naked with M-shaped Legs and doing a double peace sign!</p>
+<p>Nagumo Sian first!</p>
 <p>Would you like to spread your Legs once?</p>
 <p>The last one is Ahegao double peace!</p>
-<p>Nurse Kijimoto Jurie~!</p>
-<p>As expected, the last one is Ahegao double peace~! hehe</p>
+<p>Nurse Kijimoto Jurie!</p>
+<p>As expected, the last one is Ahegao double peace! hehe</p>

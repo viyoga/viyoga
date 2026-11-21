@@ -60,10 +60,10 @@ chapter = 916
 <p>At the hooded Elderly Person's cackling, the New Black Knight stared at the hologram map for a Moment, then went Outside.</p>
 <p>"You'll have to do it quickly! If you don't return within the Limit, the Armor will explode!!"</p>
 <p>The hooded Elderly Person shouted, watching the New Black Knight leave the Home. And after cackling for a long time again, he sent the skinny slaves after the New Black Knight. This was so that when the Black Knight dealt with the gang and human trafficking Organization, they could retrieve the items from that Place. Several hours later, news reports began to pour in that the Black Knight, who had disappeared since last year, had appeared in New York.</p>
-<p>TheDreaming-nim requested 1. Seari running on a forest path 2. Seari dancing Zero Two in the forest~!</p>
+<p>TheDreaming-nim requested 1. Seari running on a forest path 2. Seari dancing Zero Two in the forest!</p>
 <p>1.</p>
 <p>When I included 'people from', shirtless hikers came running after her, so I just deleted them haha.</p>
 <p>2.</p>
-<p>Gojoy-nim requested Nagumo Sian in a breast-emphasizing pose and a bra-removing pose in the kitchen~!</p>
-<p>Breast emphasis~!</p>
-<p>Bra removal~!</p>
+<p>Gojoy-nim requested Nagumo Sian in a breast-emphasizing pose and a bra-removing pose in the kitchen!</p>
+<p>Breast emphasis!</p>
+<p>Bra removal!</p>

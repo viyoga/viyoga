@@ -40,10 +40,10 @@ chapter = 259
 <p>Back on his feet, Caius parried the staff, one... twice... three times. The third time carried more force than the first two and caused his sword arm to swing off to the side, exposing his chest to be poked.</p>
 <p>"Ah!" Caius cried in pain but he grabbed the staff then and gripped it tight before calling on the muscles whose true potential he had so far been able to unlock in his arm so he could shove the staff aside and then go charging in.</p>
 <p>He took a couple of fingers off his sword handle to form seals and they were enough to cast a movement spell.</p>
-<p>~Hellsong Dash~</p>
+<p>Hellsong Dash</p>
 <p>The red spell circles appeared and he was filled with warmth before the flames burst from his feet and he traveled even faster.</p>
 <p>"I see you’re making good use of that spell I taught you," Lucian said right before Caius stabbed his sword at him.</p>
-<p>Lucian leaned to the side to avoid it and slammed a hand against Caius’s chest to send him sliding away. It also forced Caius to release the staff. But Caius refused to get too far. ~Hellsong Dash~ was still active so he used its propulsion to stall his backslide and closed in to swing his sword at his father again.</p>
+<p>Lucian leaned to the side to avoid it and slammed a hand against Caius’s chest to send him sliding away. It also forced Caius to release the staff. But Caius refused to get too far. Hellsong Dash was still active so he used its propulsion to stall his backslide and closed in to swing his sword at his father again.</p>
 <p>This time though, Lucian’s staff was free so the two went at it parry for parry. Jabs for jabs. Swings for swings. However, where Lucian dodged Caius’s attacks with relative ease, Caius suffered for his survival.</p>
 <p>At times he even sacrificed his well-being and allowed himself to be hit just to get a good crack at Lucian because every time he went out of his way to avoid getting struck, it always messed with his footing and/or caused him to move away and increase the distance between them which was exactly what he didn’t want.</p>
 <p>And so, on and on, they went with Caius now sporting a couple of bruises all over and an aching rib or three. The longer the duel went on though, the more attuned Caius felt he was with the situation. His brows were furrowed and his eyes narrowed as he sought an opening.</p>

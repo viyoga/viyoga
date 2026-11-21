@@ -15,29 +15,29 @@ chapter = 583
 
 <p>His hands roamed over their bodies possessively, unable to get enough of touching them. Their own hands actively sought out the man&#x27;s cock. Each of them grasped his massive shaft with one small hand, no longer awkward as they stroked it.</p>
 
-<p>&quot;Sister Yana, your breasts are so soft~&quot;</p>
+<p>&quot;Sister Yana, your breasts are so soft&quot;</p>
 
-<p>&quot;Minda, your little ass is the perkiest, it looks especially good in jeans~&quot;</p>
+<p>&quot;Minda, your little ass is the perkiest, it looks especially good in jeans&quot;</p>
 
 <p>As they intimately caressed each other, the mother and daughter sank deeper into indulgence and began to relax, even having some shameless conversations.</p>
 
-<p>&quot;Mom, your breasts are really nice-looking... you&#x27;ve kept them in such good shape~&quot;</p>
+<p>&quot;Mom, your breasts are really nice-looking... you&#x27;ve kept them in such good shape&quot;</p>
 
-<p>&quot;You little brat, yours aren&#x27;t small either~&quot;</p>
+<p>&quot;You little brat, yours aren&#x27;t small either&quot;</p>
 
 <p>Minda said this with a mischievous smile, reaching out to cup her mother&#x27;s breast and knead it gently. &quot;Mom, how does it feel?&quot;</p>
 
 <p>Yana was quite composed and didn&#x27;t flinch away. She cast a charming, sidelong glance at her daughter and asked, &quot;How should it feel?&quot;</p>
 
-<p>&quot;Does it feel better when I squeeze them, or when brother-in-law squeezes them~&quot;</p>
+<p>&quot;Does it feel better when I squeeze them, or when brother-in-law squeezes them&quot;</p>
 
 <p>Minda asked playfully.</p>
 
 <p>Yana said softly, &quot;Neither feels good...&quot;</p>
 
-<p>&quot;Mom, don&#x27;t be shy, heheh~&quot;</p>
+<p>&quot;Mom, don&#x27;t be shy, heheh&quot;</p>
 
-<p>Watching the mother and daughter frolic, a wave of pride welled up inside Luis. His pent-up desire surged once more, and he breathed heavily, &quot;Sister Yana, why don&#x27;t you and Minda lick me for a while~&quot;</p>
+<p>Watching the mother and daughter frolic, a wave of pride welled up inside Luis. His pent-up desire surged once more, and he breathed heavily, &quot;Sister Yana, why don&#x27;t you and Minda lick me for a while&quot;</p>
 
 <p>&quot;You&#x27;re always so mischievous... what do you take us for.&quot;</p>
 
@@ -61,7 +61,7 @@ chapter = 583
 
 <p>Yana was still hesitating, but her daughter Minda boldly knelt between the man&#x27;s legs, smiling as she licked the head of his cock.</p>
 
-<p>What amused and exasperated Yana the most was that her daughter actually grabbed her hand and said, indistinctly, &quot;Mom... come and lick with me, I want to learn too~&quot;</p>
+<p>What amused and exasperated Yana the most was that her daughter actually grabbed her hand and said, indistinctly, &quot;Mom... come and lick with me, I want to learn too&quot;</p>
 
 <p>This little minx... how had she become so wild, completely without shame?</p>
 
@@ -71,7 +71,7 @@ chapter = 583
 
 <p>At that moment, the mother felt somewhat at a loss. After all, they were both respectable women. They could cooperate during a threesome, but actively taking the initiative to pleasure was new territory.</p>
 
-<p>&quot;Sister Yana... lick the shaft~&quot;</p>
+<p>&quot;Sister Yana... lick the shaft&quot;</p>
 
 <p>&quot;Minda, baby, that&#x27;s perfect... yes, licking along the corona of the head feels the best.&quot;</p>
 
@@ -95,7 +95,7 @@ chapter = 583
 
 <p>According to the System&#x27;s task, he was supposed to cum inside Minda this time.</p>
 
-<p>But Minda immediately looked at him pitifully and said, &quot;Brother-in-law... we did it once this morning, and you were so rough just now... can you be with Mom first, okay~&quot;</p>
+<p>But Minda immediately looked at him pitifully and said, &quot;Brother-in-law... we did it once this morning, and you were so rough just now... can you be with Mom first, okay&quot;</p>
 
 <p>She could feel the man&#x27;s urgent desire. Although she craved his intense, wolf-like conquest and deeply savored that feeling,</p>
 

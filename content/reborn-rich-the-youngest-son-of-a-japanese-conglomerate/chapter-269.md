@@ -7,7 +7,7 @@ chapter = 269
 
 <p>,Haa.... Haa.... Yong-tae-yaang, now, come now♥,</p>
 <p>Han Yu-gyeong was lying on the bed, her pussy wide open with hazy eyes, tempting me. I started pressing my glans against Han Yu-gyeong's wet pussy hole.</p>
-<p>Ssuuuk~!</p>
+<p>Ssuuuk!</p>
 <p>Han Yu-gyeong's pussy was already soaked with vaginal fluids and had already reached its peak once, so there was nothing to stop my dick.</p>
 <p>My dick went all the way into Han Yu-gyeong's deepest spot at once, tapping her cervix.</p>
 <p>,Haaang! Yong-tae-yaaang♥,</p>

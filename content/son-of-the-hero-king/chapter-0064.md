@@ -15,12 +15,12 @@ chapter = 64
 <p>Even now, as she concentrated, she still couldn't feel him, even though she was able to see him.</p>
 <p>Seeing her reaction, Sol was a little startled as he remembered something before saying, "It should be alright now?"</p>
 <p>As he said, even though outwardly nothing had changed, she could indeed feel him again. She was a little curious about what happened but she knew that Sol would tell her when it would be necessary.</p>
-<p>"Hehe~ This current situation reminds me of our first meeting."</p>
+<p>"Hehe This current situation reminds me of our first meeting."</p>
 <p>Thinking of this Setsuna couldn't help but blush in shame. Back then she had misunderstood his intentions and collapsed before finally waking up, with him next to her.</p>
 <p>"To be honest I was very flustered when I saw you faint like that. I didn't think that my innocent question would be met with such a response. As a result during our first few days of interaction, you would always hide your tail and ears and flee the moment you felt my presence."</p>
 <p>"Please, Your highness, stop!!"</p>
 <p>Covering her completely red face with her hands, Setsuna screamed with a pitiful voice. Just remembering those events gave her the envy to bury herself into a hole.</p>
-<p>"Hahaha~!"</p>
+<p>"Hahaha!"</p>
 <p>Sol laughed happily at this sight. The usual Setsuna was an incredibly stoic woman. She was someone he both loved and respected dearly. She was also someone he wished to protect and give–No, share happiness with.</p>
 <p>Finally stopping laughing, he lowered his head as he said,</p>
 <p>"It was a draw."</p>
@@ -53,7 +53,7 @@ chapter = 64
 <p>Even though her voice was beautiful, it gave an ethereal feeling. One of total disdain.</p>
 <p>"I, I do not know. I do not know."</p>
 <p>The one answering had most of his features hidden, but from his voice and frail hand, it was easy to deduct that he was a rather old man.</p>
-<p>"Heh~ You are still hesitating after coming this far? Should I remind you that your granddaughter is only alive because of my care? Should I remind you that she does not have long to live? Finally… Should I remind you about the fact that the only way to save her is to have the core of a dragon or the heart of a phoenix?"</p>
+<p>"Heh You are still hesitating after coming this far? Should I remind you that your granddaughter is only alive because of my care? Should I remind you that she does not have long to live? Finally… Should I remind you about the fact that the only way to save her is to have the core of a dragon or the heart of a phoenix?"</p>
 <p>The man seemed to hunch further under the words of the seemingly young woman.</p>
 <p>"But–"</p>
 <p>"But nothing. I despite wishy-washy people the most. Make a choice. But know that I do not plan to indefinitely keep your granddaughter alive."</p>

@@ -65,9 +65,9 @@ chapter = 644
 <p>,We're selling club magazines here. You only need to buy one.",</p>
 <p>,This is A? Give me 500 copies of this.",</p>
 <p>,Huh?",</p>
-<p>Minamoto Risa asked again, thinking she had misheard. The orange-haired sunglasses woman laughed, spread out her hand, showed all five fingers, and said again, "500 copies~!"</p>
+<p>Minamoto Risa asked again, thinking she had misheard. The orange-haired sunglasses woman laughed, spread out her hand, showed all five fingers, and said again, "500 copies!"</p>
 <p>,Ah... 500 copies, it's 1,200 yen per copy, so it's 600,000 yen.",</p>
-<p>,Here you go~!",</p>
+<p>,Here you go!",</p>
 <p>The orange-haired sunglasses woman, who had prepared the cash in advance, immediately took out a wad of 10,000 yen bills and paid. Although it was a thin book, 500 copies were heavy, so she had Seizawa Shii take them to the car that the orange-haired sunglasses woman had parked.</p>
 <p>,Hello.",</p>
 <p>,Ah, Sawayanagi-ssi. How many...?",</p>

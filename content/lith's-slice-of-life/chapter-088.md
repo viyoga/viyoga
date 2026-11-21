@@ -91,7 +91,7 @@ Lucy felt good when her mother licked her but she had to do her job too. She sta
 
 Lith removed his fingers and let his big sister take over. After getting freed, he completely focused himself on his mother’s butt hole. He looked at his big sister and she too looked at him. He showed her his two fingers and she too did the same. The both nodded at the same time in understanding and shoved their fingers in their mother’s vaginal hole and ass hole at the same time.
 
-“Ohhh~”
+“Ohhh”
 
 Lilith moaned in ecstasy. She felt so good at the simultaneous penetration in her pussy and ass hole that she actually had a small orgasm.
 
@@ -109,7 +109,7 @@ After a few more minutes,
 
 *SPRRRUTTT*
 
-“Ohhhhh~”
+“Ohhhhh”
 
 Lilith had a big orgasm this time and her back arched up a little and her eyes were half closed. She felt as if she was on cloud nine right now. It felt too good and she was savouring this post orgasm bliss of hers. She had subconsciously hugged Lucy tighter and pushed her pussy on her mouth deeper.
 

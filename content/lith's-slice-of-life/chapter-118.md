@@ -51,7 +51,7 @@ But now it seems that this thing backfired due to Arya misunderstanding this sit
 
 Lith’s expression softened after listening to his teacher’s words. He hugged her back and let go of any grievances he may have had due to this talk. They stayed in such a position for a few minutes and Arya let go of Lith. She patted his head and said
 
-“I have to go now. I have some work. Bye-bye~”
+“I have to go now. I have some work. Bye-bye”
 
 “Bye, teacher. See you in the dorm.” Lith said, waving goodbye to Arya.
 

@@ -54,7 +54,7 @@ chapter = 1928
 <p>"Radiantly well fed."</p>
 <p>She leaned back to inspect him, eyes bright. "That’s right! Quinnie feeds- wait, no, allow me to change topic," the white-haired beauty realized it was best to keep her protein-rich diet hidden from her father. "Stubborn wolf let you come?"</p>
 <p>"Nobody lets me do anything, girl." He glanced past her at the festival, at the children, at the plows, and took his time about the next one. "Are you happy?"</p>
-<p>"Stupidly~" Kitsara beamed, instantly.</p>
+<p>"Stupidly" Kitsara beamed, instantly.</p>
 <p>"Good."</p>
 <p>"Letting me be Quin’s might’ve been the best decision of your life," Kitsara giggled, hugging tight.</p>
 <p>"No."</p>

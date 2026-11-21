@@ -66,18 +66,18 @@ chapter = 1042
 <p>If so, I was confident I could win even with my current self. Of course, even if he was the future Behemoth, I wasn't weak now, so it was a Match worth trying.</p>
 <p>But there was one Problem. The fact that I had to fight while protecting the unconscious Sajo.</p>
 <p>I wish the Transport team I called earlier would arrive quickly.... If things continued like this, Sajo's Safety would be in Danger, and my Safety would also be in Danger.</p>
-<p>Requested by Gojoy-nim, Chapter 38, Shinoe Misano taking off her outer Clothes in the moonlight-drenched Bedroom, Shinoe Misano taking off her Shirt~!</p>
-<p>Taking off outer Clothes~!</p>
-<p>Shirt~!</p>
+<p>Requested by Gojoy-nim, Chapter 38, Shinoe Misano taking off her outer Clothes in the moonlight-drenched Bedroom, Shinoe Misano taking off her Shirt!</p>
+<p>Taking off outer Clothes!</p>
+<p>Shirt!</p>
 <p>This is the Bra version and No Bra version haha.</p>
-<p>Requested by Chomisaemeonji-nim, Liz wearing only a garter belt, Liz wrapped only in a towel after a Shower~!</p>
-<p>Garter belt~!</p>
-<p>Towel~!</p>
-<p>Requested by MidNightSKY-nim, a surprised Fujigasaki Rinka, Alik Training~!</p>
-<p>Rinka Sabu~!</p>
-<p>Alik~!</p>
+<p>Requested by Chomisaemeonji-nim, Liz wearing only a garter belt, Liz wrapped only in a towel after a Shower!</p>
+<p>Garter belt!</p>
+<p>Towel!</p>
+<p>Requested by MidNightSKY-nim, a surprised Fujigasaki Rinka, Alik Training!</p>
+<p>Rinka Sabu!</p>
+<p>Alik!</p>
 <p>I forgot to input Pants, so Alik appeared wearing only the Martial Arts Uniform top haha. I like this Appearance too, so I'm uploading it hehehehe.</p>
-<p>Requested by TheDreaming-nim, Alik on Stage 1. breast-gathering pose 2. Jumping and making a peace sign~!</p>
+<p>Requested by TheDreaming-nim, Alik on Stage 1. breast-gathering pose 2. Jumping and making a peace sign!</p>
 <p>1.</p>
 <p>2.</p>
 <p>I had quite a lot of fun making #2 because Alik is so cute haha.</p>

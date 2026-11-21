@@ -1,5 +1,5 @@
 +++
-title = "Chapter 662: I Am Horny, But Only Around My Husband~"
+title = "Chapter 662: I Am Horny, But Only Around My Husband"
 weight = 662
 [extra]
 chapter = 662
@@ -7,7 +7,7 @@ chapter = 662
 
 <p>Luis held her with a mixture of amusement and exasperation, saying, &quot;Wife, right now it feels like you&#x27;re even hornier than I am.&quot;</p>
 
-<p>&quot;I am horny, but only around my husband~&quot;</p>
+<p>&quot;I am horny, but only around my husband&quot;</p>
 
 <p>Lily coquettishly grabbed his cock and began to stroke it gently, murmuring in a soft, flirtatious voice, &quot;Husband, I think if we create an opportunity, it would be very easy for you to get Chloe.&quot;</p>
 

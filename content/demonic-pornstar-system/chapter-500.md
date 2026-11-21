@@ -114,7 +114,7 @@ chapter = 500
 <p>Yeah. Forget "inspect."</p>
 <p>They pounced.</p>
 <p>Calypso’s palm ran boldly along his chest with unhidden interest. "I want to lick so bad..."</p>
-<p>She then met his eyes, gave a quick shrug, and declared, "Eh, being reserved is not my style." She then leaned down, tracing a trail of saliva along his abs before pulling back to lick her lips. "Delish~" she purred.</p>
+<p>She then met his eyes, gave a quick shrug, and declared, "Eh, being reserved is not my style." She then leaned down, tracing a trail of saliva along his abs before pulling back to lick her lips. "Delish" she purred.</p>
 <p>Meanwhile, Bastet stood behind him, fingers ghosting his skin, outright vibrating with barely suppressed hunger. Her eyes were needy as she sniffed his skin. "Master, you smell so appetizing," she whispered, utterly depraved, and began nuzzling her head against his back in a very needy manner.</p>
 <p>Just then...</p>
 <p>*BRRRRRRRM!!*</p>

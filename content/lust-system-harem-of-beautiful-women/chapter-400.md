@@ -1,5 +1,5 @@
 +++
-title = "Chapter 400: Assistant Brook~~~ [18+]"
+title = "Chapter 400: Assistant Brook [18+]"
 weight = 400
 [extra]
 chapter = 400
@@ -87,7 +87,7 @@ chapter = 400
 
 <p>As Hela swayed her hips, walking gracefully into the adjoining bedroom, she threw another seductive glance and said, &quot;Brook is genuinely one of us, you know. She’s my son’s elder cousin’s wife, the eldest sister-in-law of the family.&quot;</p>
 
-<p>&quot;By seniority, shouldn’t I be calling her ’sister-in-law’? Haha, sister-in-law, take it deeper~&quot;</p>
+<p>&quot;By seniority, shouldn’t I be calling her ’sister-in-law’? Haha, sister-in-law, take it deeper&quot;</p>
 
 <p>The adulterous couple flirted without restraint, making Brook’s face burn completely red. Yet all she could do was keep sucking and bobbing on the cock.</p>
 
@@ -107,7 +107,7 @@ chapter = 400
 
 <p>Relishing this sudden carnal fortune and unexpected conquest, Luis excitedly licked his lips.</p>
 
-<p>&quot;Sister-in-law is so wet~ Is it from sucking my cock, or from watching your respected Auntie lick my cock that’s got you so turned on?&quot;</p>
+<p>&quot;Sister-in-law is so wet Is it from sucking my cock, or from watching your respected Auntie lick my cock that’s got you so turned on?&quot;</p>
 
 <p>The lewd words clearly aroused Brook even more, but a married woman’s shame made her clamp her jaw shut, refusing to cry out.</p>
 

@@ -28,8 +28,8 @@ chapter = 472
 <p>She was very disappointed in herself because it was only a difference of one rank. If she had just taken one more step...! She regretted that she might have been in the top 6 if she had studied even for thirty minutes more each day.</p>
 <p>Deureureuk!</p>
 <p>"Good work today!"</p>
-<p>"Ryuta-cchi~! Come quickly!"</p>
-<p>"Sensei, you worked hard too~!"</p>
+<p>"Ryuta-cchi! Come quickly!"</p>
+<p>"Sensei, you worked hard too!"</p>
 <p>While Saionji Diana was regretting, the classroom door opened and homeroom teacher Yamashiro Ryuta and vice homeroom teacher Kurayamada Kirie entered. When Yamashiro Ryuta greeted them, most of the students welcomed him. The students who were disappointed with their own grades and were feeling down, like Saionji Diana, were quiet, but no one seemed to care much.</p>
 <p>Yamashiro Ryuta, who was standing at the teacher's desk, began to take something out of a file. It was an envelope with a name written on it. It seemed to be the midterm exam report card.</p>
 <p>"This is your report card. The rankings have been released, but it shows what scores you received in which subjects, so analyze it well and work harder on your weak subjects and make the most of your strengths in the next exam, and your grades will be much better than this time."</p>
@@ -47,7 +47,7 @@ chapter = 472
 <p>"Next is Kujo Kina, who improved by 15 points. It's not enough to be in the top 6, but still, good job."</p>
 <p>"As expected! Effort doesn't betray you! Just like my muscles...!"</p>
 <p>"Don't say weird things and sit down."</p>
-<p>"Yes~!"</p>
+<p>"Yes!"</p>
 <p>Kujo Kina, who had been excited and making a fuss, sat down in her seat with a strange answer at Yamashiro Ryuta's words, and the students who saw this all laughed. But Saionji Diana didn't laugh. Surely it wasn't over here? She was only waiting for Yamashiro Ryuta's mouth to open again.</p>
 <p>"Lastly, Saionji Diana, who improved her average score by a whopping 26 points. Good job."</p>
 <p>"Ah...!"</p>
@@ -56,9 +56,9 @@ chapter = 472
 <p>To have improved by 26 points.... Even if it was because of the injury, the shock of losing her parents, and being in the hospital for nearly a year, her previous grades must have been very low.</p>
 <p>"A total of 9 people will receive gifts. If I give them to one person a day, it will take a week. What should I do? One person a day? Or two people?"</p>
 <p>The 9 students began to oppose the idea of two people a day. It seemed like they were all thinking, "How can I not receive a full day when I've earned this spot through hard study?"</p>
-<p>"It has to be one person~!"</p>
+<p>"It has to be one person!"</p>
 <p>"It's a date, so it has to be one person a day, Ryuta-cchi!"</p>
-<p>"Uh-huh! I told you it's not a date~! We're just going together to buy a gift."</p>
+<p>"Uh-huh! I told you it's not a date! We're just going together to buy a gift."</p>
 <p>It wasn't that I didn't understand Yamashiro Ryuta's position of absolutely denying that it was a date, but the female students' thoughts would be different.</p>
 <p>"Then, let's start from today. I have a teacher's meeting today because the grades came out, so I'll assume that we'll meet after that's over and I've prepared. Decide the order among yourselves and send me a personal LINE message with what time and where to meet. Closing assembly is over."</p>
 <p>Yamashiro Ryuta, who seemed busy with the meeting, organized his files and went outside. As the classroom door closed with a deureureuk, the class president, Minamoto Risa, stood at the teacher's desk.</p>

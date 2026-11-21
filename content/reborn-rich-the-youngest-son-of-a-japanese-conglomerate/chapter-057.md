@@ -6,7 +6,7 @@ chapter = 57
 +++
 
 <p>"Welcome to the number one Taira Group in Japan!"</p>
-<p>A famous A-list MC from Taira Entertainment was holding the microphone as the host. The new employees were like, "Heeeh~!" and seemed to think that the Taira Group was the best after all, probably because they were seeing a celebrity who only appeared on TV.</p>
+<p>A famous A-list MC from Taira Entertainment was holding the microphone as the host. The new employees were like, "Heeeh!" and seemed to think that the Taira Group was the best after all, probably because they were seeing a celebrity who only appeared on TV.</p>
 <p>In fact, that MC ajosshi is also a Taira Group employee, so of course he would come if they told him to. He belongs to Taira Entertainment, after all. He gets paid much more than a regular employee, but he's in a similar position in that they both get a monthly salary. In Japan, except for a few, celebrities are on a salary system, so the company takes a bigger cut.</p>
 <p>"Now, we will begin the event with a congratulatory speech from the Chairman of the Taira Group, Taira Danjo-nim!"</p>
 <p>With the MC's words, Taira Danjo-harabeoji, with his white hair flowing down, came up to the podium wearing a suit. Maybe it's because I only saw him at the main house, but I've only ever seen him wearing a men's Kimono, so this is my first time seeing him in a suit. As expected of the Chairman of a group competing for the top spot in Japan, he looked good in a suit too. He had a certain gravitas about him.</p>
@@ -50,7 +50,7 @@ chapter = 57
 <p>"Thank you, Grandfather! I'll buy something delicious to eat."</p>
 <p>I took the white envelope and smiled as I greeted Taira Danjo-harabeoji. Grandfather is the best after all. The limousine carrying Taira Danjo-harabeoji disappeared without answering my thanks. When I opened the white envelope, there were 50 ten thousand yen bills inside. 500,000 yen... Do the Taira people have no sense of money?</p>
 <p>With nothing to do, I returned to the auditorium, and it seemed that the admission ceremony was over. The new trainees were forming small groups and heading to their respective rooms. Each room was for one person, but members of the same group were placed near each other. Naturally, men and women were assigned to different buildings, but members of the same gender group were assigned rooms close to one another.</p>
-<p>Heeh~ Handsome guy....</p>
+<p>Heeh Handsome guy....</p>
 <p>Some of the new trainees saw me and whispered to each other. Hmm, is this the life of a handsome man? It was a new feeling because I hadn't felt it before the possession. I ignored the whispering and entered the auditorium. As expected, most of the staff were clearing the chairs.</p>
 <p>"I'll help too!"</p>
 <p>I ran over and helped clear the chairs. The staff were awkward because of what had just happened, but I thought it was better to have a reputation for working hard than being arrogant, so I had to work hard. Clearing chairs was nothing to me, who had excellent physical abilities.</p>

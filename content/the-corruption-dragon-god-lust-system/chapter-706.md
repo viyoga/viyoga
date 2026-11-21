@@ -93,7 +93,7 @@ chapter = 706
 
 <p>Her enormous, heavy breasts—the largest among all his wives—mashed against his firm chest, those soft, colossal mounds flattening between them and bulging outward at the sides.</p>
 
-<p>“Nghnnn~~” Auranys moaned softly, only to soon notice the serious look on Qingyi’s face.</p>
+<p>“Nghnnn” Auranys moaned softly, only to soon notice the serious look on Qingyi’s face.</p>
 
 <p>“What happened?”</p>
 

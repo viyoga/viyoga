@@ -47,10 +47,10 @@ chapter = 544
 <p>The festival was still far away, but it seemed like they were starting to prepare little by little. They were writing about topics such as date experiences, date fashion, and recommended meals for dates that they had done at the Date Experience Club, so if they started now, they would be able to make it in time for the festival with plenty of time to spare.</p>
 <p>,I don't think I can join you today...?</p>
 <p>,I was going to get Ryuta-jji to review my writing, but does that mean you have to look at it all at once later?</p>
-<p>,Please be sure to participate next time~!</p>
+<p>,Please be sure to participate next time!</p>
 <p>Fortunately, participation wasn't mandatory today. Now that I had sent Sakagami Rena to the Naruse family, I couldn't just laugh and chat with the students in the club. I had to wait for contact, so I couldn't do club activities today.</p>
 <p>,Urabe, stop by the education preparation room before going to the club, and the rest of you have fun with your club activities today.</p>
-<p>,Yes~!</p>
+<p>,Yes!</p>
 <p>I told Urabe Konoka to stop by for a moment and returned to the education preparation room. Soon after, Urabe Konoka carefully opened the door and came in.</p>
 <p>,What did you call me for?</p>
 <p>,Yeah, there's something I want to ask you. Do you know much about onmyoji?</p>

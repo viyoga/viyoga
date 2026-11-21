@@ -48,7 +48,7 @@ chapter = 301
 <p>Ha Ju-yoon-ssi's daughter did a good job, so I was thinking of giving her some morning service.</p>
 <p>"Euum... Did you sleep well?"</p>
 <p>"Yes. I slept well because I slept in Nuna's arms."</p>
-<p>"You~"</p>
+<p>"You"</p>
 <p>Chup chup, tsu-eup...!</p>
 <p>While I was kissing Ha Ju-yoon, the sound kept coming from the TV.</p>
 <p>-Assemblyman Choi Seok-hoon, a five-term assemblyman, recently proposed a law to limit the powers of espers after the Dignity Health Park disaster in the United States....</p>
@@ -62,7 +62,7 @@ chapter = 301
 <p>"You know Ryuta is mine from this morning, right?"</p>
 <p>It was Nae Fitzgerald's voice. She must have approached stealthily and knocked on the door when she saw signs that we were going to have sex.</p>
 <p>"Unni, let's do it together."</p>
-<p>"Shall we~?"</p>
+<p>"Shall we?"</p>
 <p>At Ha Ju-yoon's suggestion, Nae Fitzgerald opened the door and came in. She was smiling broadly, excited at the thought of having sex with me from the morning.</p>
 <p>I'm going to exercise from the morning. If I do it with these two, Yukiko will definitely join in.</p>
 <p>###</p>
@@ -76,7 +76,7 @@ chapter = 301
 <p>"Oh, that's right. I have to catch the plane...!"</p>
 <p>Ha Ju-yoon clapped her hands as if she had just remembered.</p>
 <p>"I'll go out and see if there's anyone there first, so come out when I text you."</p>
-<p>"Okay. Please make sure our company model doesn't get into a difficult situation~."</p>
+<p>"Okay. Please make sure our company model doesn't get into a difficult situation."</p>
 <p>Nae Fitzgerald asked me to make sure Ha Ju-yoon didn't get into a scandal, and was pulling out a tissue to wipe the semen flowing down her thighs.</p>
 <p>I came out of the bathroom. It was quite a secluded place at the airport, so there weren't many people. It seemed a bit difficult for disabled people to come all the way here, so the disabled toilet would be safer.</p>
 <p>As expected, when I looked around, everyone was busy going their own way. I sent a text saying, "You can come out now," and Nae Fitzgerald, wearing a hat and mask, and Ha Ju-yoon, wearing a hat, mask, and sunglasses, came out of the bathroom.</p>

@@ -24,7 +24,7 @@ chapter = 835
 <p>And she was smiling.</p>
 <p>Small, shaky, devastatingly cute, the kind of pretty that five S-tier women in various states of undress couldn’t overshadow, with her cheeks still burning and her blue eyes glistening and her whole body radiating the stubborn warmth of someone who had decided to stop being afraid.</p>
 <p>Arms wrapped around her from behind, holding her tightly.</p>
-<p>"I’m really proud of you, Alex~"</p>
+<p>"I’m really proud of you, Alex"</p>
 <p>Nyx’s chin rested on Alexandra’s shoulder, her pink hair spilling against the blonde’s neck, and the smug satisfaction radiating off her could have powered the lanterns by itself.</p>
 <p>She’d known. Of course she had.</p>
 <p>She hadn’t been forcing her childhood best friend into something she didn’t want. She’d just asked the question she already knew the answer to, because Nyx Cosmos did not gamble on the people she loved.</p>

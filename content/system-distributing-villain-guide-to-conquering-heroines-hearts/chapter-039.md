@@ -10,7 +10,7 @@ chapter = 39
 <p>"You’re really cruel, you know that?" Dante said in an aggrieved tone.</p>
 <p>"Besides, I would never get tired of eating your food! Not till the day I die!" He added with an offended face, as if he was more angry about being accused of that than her teasing him.</p>
 <p>Natasha was caught off guard by his words. Her eyes widened in surprise and a warm feeling spread through her chest.</p>
-<p>"Okay. You promised." She said, and a charming look appeared on her face without her even realizing it. "You can’t go back on your words~"</p>
+<p>"Okay. You promised." She said, and a charming look appeared on her face without her even realizing it. "You can’t go back on your words"</p>
 <p>Gulp!</p>
 <p>Dante’s throat went dry the second he saw that expression. He wasn’t joking when he said those words. Because he was going to make this woman his, and it wasn’t a matter of if but when.</p>
 <p>And that resolve only grew stronger with every minute he spent with her.</p>

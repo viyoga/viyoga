@@ -35,7 +35,7 @@ chapter = 2005
 <p>Synchra couldn’t take another like it.</p>
 <p>Veshara withdrew her fist beneath Vex’s cut and slapped the flat of the sword with her other palm. The impact wrenched the Hexwitch’s arms sideways, but Vex turned with it, keeping hold of her weapon as Black Fang came over the table.</p>
 <p>The serpent blade went straight for Veshara’s throat.</p>
-<p>"Oh, this one’s dangerous~"</p>
+<p>"Oh, this one’s dangerous"</p>
 <p>Veshara bent backward beneath its edge, her grin spreading as she pushed off the ruined floor. Her hips followed her shoulders into a backward flip, bringing her boots up toward the ceiling.</p>
 <p>Quinlan saw the kick coming.</p>
 <p>"[Earth Armor]!"</p>

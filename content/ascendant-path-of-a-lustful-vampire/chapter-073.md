@@ -31,22 +31,22 @@ chapter = 73
 <p>Caius smiled but did look over at Kaya who was battling Doran Langston.</p>
 <p>"She’ll be fine," he said confidently, "You need me more than she does."</p>
 <p>"No, I don’t," Delia insisted through gritted teeth and, as though to prove her point, the storm around her surged and struck up at Aurelius who was still standing on his footholds of light.</p>
-<p>Aurelius thrust one of the golden spell circles he had cast forward and it transformed into the circle inlaid with squares that was his ~Mandala~ spell.</p>
-<p>"I knew it," Caius thought as ~Mandala~ successfully held off against Delia’s spell.</p>
+<p>Aurelius thrust one of the golden spell circles he had cast forward and it transformed into the circle inlaid with squares that was his Mandala spell.</p>
+<p>"I knew it," Caius thought as Mandala successfully held off against Delia’s spell.</p>
 <p>If Aurelius was using that already then he had already decided to go all out. More all-out than he had so far and likely more than Delia could handle.</p>
 <p>Sure enough, barely moved an inch by the attacks that hit his defensive spell, Aurelius was already thrusting his other hand forward and firing a beam of pure light down at Delia.</p>
 <p>She congealed a shield of wind and lightning for herself, using it to force the beam to the side only to then realize, the beam was only one of many.</p>
 <p>The others landed soon enough and bombarded her defense until they broke through and came directly at her face. Empowered by the storm around her, Delia managed to move to the side just in time to avoid the beam but when it hit the ground, it didn’t scorch the concrete but rather left behind a golden glow. The glow spread until it had formed into a web of light that fired strings also composed of light that wrapped around Delia’s body to hold her tight.</p>
 <p>Delia strained against the hold and called for the storm around her to surge to her aid but then she realized the strings were doing more than holding her. They were separating her from her spell. Sundering her connection to the storm until it fizzled out.</p>
-<p>"The ~Spinner’s Nest~..." Caius mumbled in recognition of the spell. That was a nasty one.</p>
-<p>It was yet another spell created by Aurelius’ past life in his service of the Goddess of Light. It didn’t have as much potential as ~Mandala~ but it was very strong still and easily outclassed a normal Third Circle Light magic spell.</p>
+<p>"The Spinner’s Nest..." Caius mumbled in recognition of the spell. That was a nasty one.</p>
+<p>It was yet another spell created by Aurelius’ past life in his service of the Goddess of Light. It didn’t have as much potential as Mandala but it was very strong still and easily outclassed a normal Third Circle Light magic spell.</p>
 <p>"You—fucker..." Delia struggled to say because the strings were now wrapping around her chest and neck.</p>
-<p>Aurelius turned his wrist as he kept the spell up while he canceled ~Mandala~ so he could cast a different spell that he directed at the ground by Delia’s feet.</p>
+<p>Aurelius turned his wrist as he kept the spell up while he canceled Mandala so he could cast a different spell that he directed at the ground by Delia’s feet.</p>
 <p>A golden spell circle appeared and conjured a large pillar that floated just high enough to be aimed at Delia’s side. It pulled back ready to slam forward in a hit that would surely have sent Delia flying out of the Outer Ring.</p>
 <p>But then Caius was there.</p>
-<p>Boosted by ~Hellsong Dash~, he placed a hand on Delia’s chest, his hand touching her breasts just so slightly (not entirely on purpose) as he pushed her away to take her place at that spot at the same time that he thrust his other hand forward forward and cast ~Galleon’s Gate~ to intercept the pillar.</p>
+<p>Boosted by Hellsong Dash, he placed a hand on Delia’s chest, his hand touching her breasts just so slightly (not entirely on purpose) as he pushed her away to take her place at that spot at the same time that he thrust his other hand forward forward and cast Galleon’s Gate to intercept the pillar.</p>
 <p>Why did he push Delia away when he could have just cast the spell? Well, there was a possibility that the defensive spell wouldn’t hold and he felt he had a better chance of not getting knocked out of the ring than the girl who was currently tied up in strings of light.</p>
-<p>Fortunately, despite the pillar’s insistent pushing, ~Galleon’s Gate~ held on and swallowed at least half of it until they both vanished as one.</p>
+<p>Fortunately, despite the pillar’s insistent pushing, Galleon’s Gate held on and swallowed at least half of it until they both vanished as one.</p>
 <p>Annoyed that Caius had had to step in to help, Delia let a chaotic storm ripple out from inside her to create a destructive spell circle that superimposed itself over that of the spell holding her in strings. There was a violent reaction and then...</p>
 <p>*BOOM!*</p>
 <p>Out of the cloud of wind crackling with lightning that followed the explosion, Delia stumbled out. As immune to Elemental chaos as she was, the explosion had taken a toll on her. Even then, her grey eyes were wild with an intent for violence that she directed at Aurelius floating above.</p>

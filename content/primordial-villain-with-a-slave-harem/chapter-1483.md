@@ -49,7 +49,7 @@ chapter = 1483
 <p>The Goddess of Thalorind had heard his question. And she had answered through the mouth of the man he had put a bounty on.</p>
 <p>"Are you weeping right now, old man?"</p>
 <p>Alexios's spine straightened. "You will address me with respect, Parasite."</p>
-<p>"Sure thing~"</p>
+<p>"Sure thing"</p>
 <p>"Stop mocking father! You two should be good friends!" Felicity chirped.</p>
 <p>Quinlan's tone did not change.</p>
 <p>"Tell him to remove the bounty from my head for a start. And stop hunting the Vesper Consortium."</p>

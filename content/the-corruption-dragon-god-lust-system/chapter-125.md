@@ -15,7 +15,7 @@ chapter = 125
 
 <p>His hands went down her delicate waist, grasping her huge, heart-shaped buttocks, feeling the voluptuous, succulent skin spilling out between his fingers.</p>
 
-<p>“Mmhn~~ It’s… it’s okay, husband.” She moaned, pulling his face tightly against her huge tits.</p>
+<p>“Mmhn It’s… it’s okay, husband.” She moaned, pulling his face tightly against her huge tits.</p>
 
 <p>“But it doesn’t feel okay.” Qingyi lifted his face, his piercing black eyes meeting her beautiful brown eyes, hurt and tearful.</p>
 
@@ -27,7 +27,7 @@ chapter = 125
 
 <p>The fabric didn’t stay on her hips for long, a soft grunt escaping the beauty’s lips as Qingyi grabbed it, ripping it in a single movement and throwing it to the floor.</p>
 
-<p>“Nghnn~~ Do you know how much I paid for that dress?” She gasped as her naked body was completely revealed, her fat pussy pressing against the huge, throbbing bulge in his pants.</p>
+<p>“Nghnn Do you know how much I paid for that dress?” She gasped as her naked body was completely revealed, her fat pussy pressing against the huge, throbbing bulge in his pants.</p>
 
 <p>“I’ll buy another one later.” Qingyi spoke, one of his hands roaming around Feiyan’s delicate waist before sinking into her breasts, too big to fit in his palm.</p>
 
@@ -45,17 +45,17 @@ chapter = 125
 
 <p>He slapped her ass hard, feeling the tanned, creamy skin tremble between his fingers as her movements became faster.</p>
 
-<p>“Nghnn~~ Yes… I didn’t touch myself even once. I’ve been waiting for you… just you,” she said between panting moans, her breasts bouncing uncontrollably as she felt Qingyi’s cock reach even deeper inside her, hitting the walls of her womb.</p>
+<p>“Nghnn Yes… I didn’t touch myself even once. I’ve been waiting for you… just you,” she said between panting moans, her breasts bouncing uncontrollably as she felt Qingyi’s cock reach even deeper inside her, hitting the walls of her womb.</p>
 
 <p>“What a dutiful wife…” Qingyi grabbed Feiyan’s breasts, squeezing hard as she bounced on his cock.</p>
 
 <p>He could already feel his cock at its limit, the walls of her pussy writhing around his member, trying to milk him for every last drop.</p>
 
-<p>“Husband… I’m coming – aghnn~~” A guttural moan escaped Feiyan’s lips as her pussy squirted non-stop, her body shuddering with her first orgasm in months.</p>
+<p>“Husband… I’m coming – aghnn” A guttural moan escaped Feiyan’s lips as her pussy squirted non-stop, her body shuddering with her first orgasm in months.</p>
 
 <p>At the same time, Qingyi’s cock pulsed painfully, spurting large loads of hot cum into her womb, filling her completely.</p>
 
-<p>“Ahnn~~ nghnn~~” Feiyan collapsed on top of Qingyi, her huge ass rising up and his cock slipping out of her fat pussy lips with a wet pop, pearly threads of semen connecting them for an instant.</p>
+<p>“Ahnn nghnn” Feiyan collapsed on top of Qingyi, her huge ass rising up and his cock slipping out of her fat pussy lips with a wet pop, pearly threads of semen connecting them for an instant.</p>
 
 <p>“Satisfied?” Qingyi wrapped his arms around her, pulling her head against his broad chest as their sweaty bodies curled up in the luxurious bed sheets.</p>
 
@@ -69,7 +69,7 @@ chapter = 125
 
 <p>“She had suspicions about me, she wanted to take me to the Nine Peaks Basin so that the Tang family elders could study me. Luckily, I managed to escape and ended up in an isolated country called the Heavenly Thunder Kingdom.”</p>
 
-<p>“Oh… I knew it, even experts from the nine peaks basin can’t resist the husband! Fufufu~~” Feiyan’s sweet laughter took over the luxurious room, soon replaced by a provocative look as she mounted Qingyi again, leaning on his chest.</p>
+<p>“Oh… I knew it, even experts from the nine peaks basin can’t resist the husband! Fufufu” Feiyan’s sweet laughter took over the luxurious room, soon replaced by a provocative look as she mounted Qingyi again, leaning on his chest.</p>
 
 <p>“So… you’re not going to tell me you’ve been suppressing your desires too, are you? Tell me, who’s my new little sister?”</p>
 

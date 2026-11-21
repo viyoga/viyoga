@@ -9,11 +9,11 @@ chapter = 471
 <p>At someone's shout, the special class students who were sitting down for lunch jumped up and rushed out.</p>
 <p>Next to the infirmary, across from the education preparation room, a ranking chart was posted on the bulletin board, boldly labeled '2053 Second Semester Midterm Exam Results.' On the right was a large paper with the school-wide scores, and on the left, a slightly smaller paper with the special class scores.</p>
 <p>The first student to arrive was Seizawa Shii, who was sitting in the very front row today. Otagi Yuka and Sakagami Rena saw Seizawa Shii's speed and their eyes sparkled. Even if she was sitting at the very front of the classroom, being faster than the vampire Otagi Yuka and the ninja Sakagami Rena meant she had considerable athletic ability.</p>
-<p>"Phew~ I barely made 6th place!"</p>
+<p>"Phew I barely made 6th place!"</p>
 <p>Seizawa Shii, who was checking her scores, sighed. Seizawa Shii, who was quite smart and had studied hard this time, was confident in being in the top ranks, so she didn't expect to barely scrape into 6th place, which was the rank for which her homeroom teacher, Ryuta-sensei, promised a gift. Still, because she was such a positive person, Seizawa Shii decided to be happy about being in the top 6, rather than being disappointed that her score was lower than she thought.</p>
 <p>"Still, your overall ranking is high."</p>
 <p>Urabe Konoka, who had recently become close to Seizawa Shii, comforted her. Soon after, Minamoto Lisa, who had arrived, looked at the ranking chart with a slightly frustrated expression. Unlike Minamoto Lisa's frustrated expression, Seizawa Shii smiled brightly and congratulated Minamoto Lisa.</p>
-<p>"Lisa-tan~! Congrats on 2nd place!"</p>
+<p>"Lisa-tan! Congrats on 2nd place!"</p>
 <p>"What's the point of being 2nd in the class.... Taira Kanna is 1st in the whole school, so I can't be completely happy."</p>
 <p>The relationship between the Tairaga and Minamoto families was so famous that all of Japan knew about it, so Minamoto Lisa, as a member of the Minamoto family, couldn't happily enjoy her score. That's because Taira Kanna, the object of comparison, was ranked 1st in the entire school.</p>
 <p>"Being the student council Chairman and 1st in the whole school, Taira Danjo-ojisan must be happy."</p>
@@ -49,7 +49,7 @@ chapter = 471
 <p>"I thought you'd feel bad if someone with a higher rank than you congratulated you."</p>
 <p>"Hmm, that's true."</p>
 <p>Shido Tsubaki nodded, saying that Minamoto Lisa's words seemed right. In this way, the students who had high ranks were excited, but the rest of the students who didn't make it into the top 6 quietly returned to their seats.</p>
-<p>"No! I worked hard this time...! I was going to go to the department store with Ryuta-sensei and ask him to buy me exercise equipment~!!"</p>
+<p>"No! I worked hard this time...! I was going to go to the department store with Ryuta-sensei and ask him to buy me exercise equipment!!"</p>
 <p>Of course, there were also students like Kujo Kina who couldn't accept their scores and caused a ruckus. Kujo Kina was wildly venting her anger by swinging her fists in the air.</p>
 <p>"What's all the commotion? Class is starting, so hurry up and go in!"</p>
 <p>Kujo Kina's rampage was ended by her homeroom teacher, Yamashiro Ryuta, who had belatedly finished his meal. Kujo Kina shouted 'Damn it!' and went into the classroom.</p>

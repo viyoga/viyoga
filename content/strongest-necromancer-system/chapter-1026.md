@@ -22,7 +22,7 @@ chapter = 1026
 <p>Jason opened his eyes, and Stella gasped as she saw that his eyes were filled with flames! His very essence had been consumed by the fire, and his Soul had inherited the crimson glow!</p>
 <p>The Matrices around Jason’s body increased in brightness, and all the cultivators in the room immediately took a step back and bowed their heads as they saw fire surging out from Jason’s body and converging to form a massive creature right over Jason’s shoulder!</p>
 <p>The Phoenix awakened in its splendour and landed on Jason’s shoulder before it lifted its head and released a shrill cry that shook the temple walls!</p>
-<p>CAWWWWW~!</p>
+<p>CAWWWWW!</p>
 <p>Every single cultivator immediately got down to their knees before the great Spirit Beast, and Stella felt her eyes widen in shock as she gazed upon the supernatural image of her master! Stella did not need anyone to tell her what had happened here anymore, and Stella could already feel her heart racing as she came to a realisation! How could she have ever doubted her master’s ability? How could she have ever imagined that this would end any other way?</p>
 <p>Jason had been judged by the elements, and he had been judged by a beast from beyond this realm, and none could find any fault within him! Jason had proven his worth, and he was now a true wielder of the element of Fire!</p>
 <p>Ding!</p>

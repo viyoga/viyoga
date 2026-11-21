@@ -93,7 +93,7 @@ chapter = 449
 
 <p>With nothing else to test, he just left his sea of consciousness and went to check on his wives.</p>
 
-<p>“Finally remembered that we exist, huh? Fufufu~~” Feiyan’s sweet and sensual laughter echoed.</p>
+<p>“Finally remembered that we exist, huh? Fufufu” Feiyan’s sweet and sensual laughter echoed.</p>
 
 <p>Most of the other girls were going to take care of preparing a good meal for their husband.</p>
 
@@ -109,7 +109,7 @@ chapter = 449
 
 <p>“Your husband is a very busy and ambitious man…” said Qingyi, squeezing Feiyan’s breasts lightly.</p>
 
-<p>“Nghnn~~ like what? Sticking his cock into the tight pussy of a holy priestess?”</p>
+<p>“Nghnn like what? Sticking his cock into the tight pussy of a holy priestess?”</p>
 
 <p>Feiyan rolled over in Qingyi’s arms, turning towards him. She knelt on the bench and then sat down hard.</p>
 

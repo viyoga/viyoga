@@ -23,13 +23,13 @@ Right at this moment, space fluctuated a few meters away from the four, a pink-h
 
 The low neckline of the gown also made the upper region of her breasts visible. Though that was the case, those were the only revealing parts and the rest of her body was covered in the pleated silk gown. It was her formal wear.
 
-“Ralph chaaann!~” The woman said in a melodious voice and ran towards Ralph.
+“Ralph chaaann!” The woman said in a melodious voice and ran towards Ralph.
 
 “M-mother!?” Ralph let go of the two’s collar and yelled in surprise.
 
 The woman, aka Ralph’s mother, was fast and before Ralph could get a chance to run away, she hugged him from behind and spun in circles while lifting him slightly in the air.
 
-“Yaaa~ Ralph chan!~ Mama missed you!” Ralph’s mother said happily while spinning in circles along with him.
+“Yaaa Ralph chan! Mama missed you!” Ralph’s mother said happily while spinning in circles along with him.
 
 Lith, Dennis, and Emilia smiled as they watched this scene unfold. They didn’t interrupt this mother-son moment and let them be. The priest at the sidelines also didn’t say anything since they weren’t disrupting the peace in the church.
 

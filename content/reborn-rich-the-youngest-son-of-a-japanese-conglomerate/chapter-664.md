@@ -85,7 +85,7 @@ chapter = 664
 <p>,But why are you eating potato chips?</p>
 <p>,I didn't eat dinner. I'm hungry....</p>
 <p>I see. I put the laundry in the washing machine, sat next to Seizawa Shii, and took the potato chips that Seizawa Shii was eating and ate them.</p>
-<p>,Hey~! I told you I didn't eat dinner.</p>
+<p>,Hey! I told you I didn't eat dinner.</p>
 <p>,Potato chips aren't dinner. Let's do laundry and eat dinner somewhere together.</p>
 <p>Somehow Seizawa Shii's expression didn't look good, so I suggested that we eat dinner together, and Seizawa Shii started to sob and tear up as if my worried heart was conveyed.</p>
 <p>_______</p>

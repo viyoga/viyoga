@@ -71,7 +71,7 @@ chapter = 250
 
 <p>His tongue left his mouth, sliding through the valley between Feiyan’s breasts, tasting her sweat.</p>
 
-<p>“Nghnn~~ It’s dirty in there, silly hubby.” She moaned, her hands resting on Qingyi’s shoulders.</p>
+<p>“Nghnn It’s dirty in there, silly hubby.” She moaned, her hands resting on Qingyi’s shoulders.</p>
 
 <p>“Dirt?… I just taste the sweet nectar of a working woman…” Qingyi smiled, his tongue trailing up her neck to meet her full, succulent lips.</p>
 
@@ -99,11 +99,11 @@ chapter = 250
 
 <p>Without hesitating any longer, Qingyi lined him up with her entrance, taking a single moment to kiss her before putting everything inside.</p>
 
-<p>“Oghnn~~ take it easy hubby! Aghnn~~” Feiyan moaned, her whole body shuddering as she felt Qingyi’s cock hit the walls of her womb.</p>
+<p>“Oghnn take it easy hubby! Aghnn” Feiyan moaned, her whole body shuddering as she felt Qingyi’s cock hit the walls of her womb.</p>
 
 <p>It wasn’t long before the pleas for him to take it easy died down, her huge breasts pressed against Qingyi’s chest, her voluptuous flesh quivering with each thrust.</p>
 
-<p>“Nghnn~~ fuck… fuck! Mghnn~~ faster hubby… fuck that pussy harder hubby!” She exclaimed between gasping moans, her mind lost in pleasure.</p>
+<p>“Nghnn fuck… fuck! Mghnn faster hubby… fuck that pussy harder hubby!” She exclaimed between gasping moans, her mind lost in pleasure.</p>
 
 <p>Qingyi obviously obeyed her, grabbing her hips for support and thrusting even harder, feeling her pussy trying to crush him.</p>
 

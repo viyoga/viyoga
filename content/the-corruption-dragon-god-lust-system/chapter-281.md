@@ -11,7 +11,7 @@ chapter = 281
 
 <p>“Ready for another round already?” He smiled as he moved closer, leaning on her waist as he aligned his cock with her wet entrance .</p>
 
-<p>“Ghnnn~~” Isabel moaned as Qingyi penetrated her, her entire body swaying with the powerful thrust as his cock made its way inside her.</p>
+<p>“Ghnnn” Isabel moaned as Qingyi penetrated her, her entire body swaying with the powerful thrust as his cock made its way inside her.</p>
 
 <p>“Ah… I can feel it… inside me,” she whispered, placing her hand on her slim belly, feeling the bulge of Qingyi’s cock as he moved inside her tightness.</p>
 
@@ -25,7 +25,7 @@ chapter = 281
 
 <p>It seemed they would have a little more competition when it came to drowning him in their milkers.</p>
 
-<p>“Ughn~~ do you nghnn~~ like them?” Isabel turned her face, her voice broken by the high-pitched moans caused by Qingyi’s thrusts, her parted lips quickly sealed by his.</p>
+<p>“Ughn do you nghnn like them?” Isabel turned her face, her voice broken by the high-pitched moans caused by Qingyi’s thrusts, her parted lips quickly sealed by his.</p>
 
 <p>This kiss lasted for long moments, their tongues entwining in a gentle dance before Qingyi pulled back.</p>
 
@@ -51,7 +51,7 @@ chapter = 281
 
 <p>A jet of hot, white milk splashed across her dark, elastic skin, ricocheting off her delicate torso, jiggling violently.</p>
 
-<p>“Is that… milk? How is that nghnn~~ possible?” Isabel questioned, but received no answer from Qingyi, who immediately sank into her other breast, sucking even more voraciously.</p>
+<p>“Is that… milk? How is that nghnn possible?” Isabel questioned, but received no answer from Qingyi, who immediately sank into her other breast, sucking even more voraciously.</p>
 
 <p>It was strange; apart from the taste, that liquid was rich in energy, but it was Mana, not Qi.</p>
 
@@ -61,13 +61,13 @@ chapter = 281
 
 <p>It wasn’t long before the beauty completely forgot that she was producing milk, her mind filled with pleasure.</p>
 
-<p>“Ngh~~ Oh goddess… F-fast, fuck me f-faster!~~ Aghnn~~” Isabel screamed, pulling Qingyi tightly against her big tits.</p>
+<p>“Ngh Oh goddess… F-fast, fuck me f-faster! Aghnn” Isabel screamed, pulling Qingyi tightly against her big tits.</p>
 
 <p>She felt the creamy liquid leaking from her nipples in jets with each squeeze of his powerful hands, massaging them as if he were milking her.</p>
 
 <p>The sweet, white liquid contrasted with her dark, flawless skin, slowly dripping down the huge orbs of flesh.</p>
 
-<p>“Fill that tight little pussy with your nghnn~~ seed!” She ordered, losing control of her own tongue, arching her back as her pussy squirted non-stop, another orgasm hitting her.</p>
+<p>“Fill that tight little pussy with your nghnn seed!” She ordered, losing control of her own tongue, arching her back as her pussy squirted non-stop, another orgasm hitting her.</p>
 
 <p>She only realized what she had just said when it was too late. Her face flushed as she searched for somewhere to hide it.</p>
 

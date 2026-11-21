@@ -29,13 +29,13 @@ chapter = 812
 <p>Photo</p>
 <p>Luckily, Prince-nim came as our exam proctor WWW He's even more handsome in real life. ദ്ദി(◠‿◠)</p>
 <p>Comments(6)</p>
-<p>└You're Hidden Camera-filming again, tsk tsk tsk... Thank you so much~! I'll save it to my Photo album hehehe</p>
+<p>└You're Hidden Camera-filming again, tsk tsk tsk... Thank you so much! I'll save it to my Photo album hehehe</p>
 <p>└WWW I thought you were scolding them for Hidden Camera-filming</p>
 <p>└Ryuta-sensei is in the special class, so the appearance probability is too low. It's too hard to see him outside of exam period. I used to hate exam period, but these days I'm happy because it's exam period WWW So many Photos get uploaded.</p>
 <p>└It's definitely good that many Photos are uploaded during exam period WWWWW</p>
-<p>└I hope he becomes a middle school Class Teacher next year~!</p>
+<p>└I hope he becomes a middle school Class Teacher next year!</p>
 <p>└Middle schoolers joined here too? Ryuta-sensei is incredibly popular (●ˇ∀ˇ●)</p>
-<p>└Yes~ He'll be a high school third-year Class Teacher again~ He'll be our class's Class Teacher~</p>
+<p>└Yes He'll be a high school third-year Class Teacher again He'll be our class's Class Teacher</p>
 <p>└Why doesn't he proctor our class? Why doesn't he proctor our class? Why doesn't he proctor our class? Why doesn't he proctor our class? Why doesn't he proctor our class? Why doesn't he proctor our class? Why doesn't he proctor our class? Why doesn't he proctor our class? Why doesn't he proctor our class? Why doesn't he proctor our class?</p>
 <p>└Crazy bitch is Spamming again... (ఠ ̥̆ ఠ)</p>
 <p>"This... I can leave this."</p>
@@ -71,8 +71,8 @@ chapter = 812
 <p>Oofuchi Erika muttered to herself and closed the Prince of Prison website. The next site Oofuchi Erika entered was a black market site.</p>
 <p>"Mom, Sorry. But the Result will be good."</p>
 <p>Oofuchi Erika muttered and purchased an item from the black market.</p>
-<p>Requested by Gojoy-nim: Sakagami Rena Belly Dancer, Breast Covering~!</p>
+<p>Requested by Gojoy-nim: Sakagami Rena Belly Dancer, Breast Covering!</p>
 <p>I usually make her a Belly Dancer, but since Rena is a ninja, I tried giving her a Fan with an oriental Feel ㅎㅎ</p>
 <p>Both the open and closed ones came out well ㅎㅎ</p>
-<p>Next, Breast Covering~!</p>
-<p>Kkiyoooot~!</p>
+<p>Next, Breast Covering!</p>
+<p>Kkiyoooot!</p>

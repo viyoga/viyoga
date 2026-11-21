@@ -23,7 +23,7 @@ chapter = 1733
 <p>Below, Black Fang watched the dwarf king with the faintest flicker of life behind her eyes, so muted and so brief that anyone other than Quinlan might've missed it.</p>
 <p>Then it was gone, and the Venomborne Terror turned her back on the limbless king in the sky as if he had ceased to exist, and the massacre resumed.</p>
 <p>"Sera."</p>
-<p>"Mmhm~"</p>
+<p>"Mmhm"</p>
 <p>The glow returned, and the skin sealed shut.</p>
 <p>Ragnar screamed louder than he had during any cut.</p>
 <p>The venom was still inside, threading deeper through rebuilt tissue, and the healing detonated every sensitized nerve at once as new flesh grew around the substance and pressed it tighter against the endings it had already claimed.</p>

@@ -13,7 +13,7 @@ chapter = 374
 <p>Instead, she crawled right over Aria. The yandere princess was far too busy gagging down Kaiden’s length to notice, until Bastet’s round ass hovered above the girl’s back and her weight finally settled. She sat on Aria’s shoulders as though the woman were nothing but a seat.</p>
 <p>Aria didn’t even twitch, utterly consumed by the bobbing rhythm of her head as she swallowed and slurped around Kaiden’s shaft.</p>
 <p>Now within reach, Bastet clasped her hands behind Kaiden’s neck.</p>
-<p>"Master...~"</p>
+<p>"Master..."</p>
 <p>Her breath fanned against his lips before she captured his mouth in a kiss that melted into raw hunger. It was wet, obscene, full of tongue, saliva, and needy little noises that poured from her throat in waves of purring.</p>
 <p>Her soft lips clung to his, her tongue tangled desperately with his own, and her voice became a needy trill of heat and lust.</p>
 <p>"Mmmm... Master... I love you...❤️"</p>

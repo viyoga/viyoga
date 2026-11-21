@@ -115,7 +115,7 @@ The loud slapping sounds of flesh interrupted the elders and they couldn't answe
 
 Milia, knowing the plans, cleared her throat and said, "So, elders. As you all know, that is indeed my brother and—"
 
-"Ahhh~"
+"Ahhh"
 
 Milia was interrupted by the redhead's sudden moan.
 

@@ -28,7 +28,7 @@ chapter = 663
 <p>,"It would be nice to have something like that."</p>
 <p>,"Right? I should try developing it."</p>
 <p>Shimokawabe Airen doesn't know that TG Tech is under me, but she seems to be guessing that I have development skills because she knows that I am Taira.</p>
-<p>,"Seonsaeng-ssi~! I've loaded all the luggage! Get in quickly!"</p>
+<p>,"Seonsaeng-ssi! I've loaded all the luggage! Get in quickly!"</p>
 <p>It seemed that they were loading luggage into the car while I was talking to Shimokawabe Airen. Yoda Grandpa and his disciples are moving to the Kujo family's mansion, so they were packing their luggage, and it seems they have loaded it all.</p>
 <p>I said to Shimokawabe Airen, "Let's go," and walked to the car. Even though I came in a van with a lot of passengers this time, I couldn't move everyone at once, so I told Urabe Konoka to bring a bigger car when she came, so we could go at once without having to call a separate car.</p>
 <p>The special class students except for Kujo Kina and Shimokawabe Airen were in the car I came in, and Yoda Grandpa's disciples were in the car Urabe Konoka came in.</p>
@@ -40,16 +40,16 @@ chapter = 663
 <p>I made a new meat party appointment and headed to the Kujo family's mansion across the darkened road. After driving for about twenty minutes, we arrived at the Kujo family's mansion and were treated to dinner by Kujo Kina.</p>
 <p>As expected of the prestigious Kujo family, the dinner was also excellent, and there were a lot of proteins, so I could see why Kujo Kina was muscular.</p>
 <p>As expected, Yoda Grandpa was so impressed by eating the high-class food of a prestigious family that he was eating while saying, "It's delicious, it's delicious!" As expected, I can see tears welling up in his eyes. Still, he didn't shed tears in front of his disciples, he just welled up.</p>
-<p>,"Ryuta, ah~."</p>
+<p>,"Ryuta, ah."</p>
 <p>Alik sat next to me and put what he had eaten and found delicious into my mouth. He watched me eat deliciously, nodded with a satisfied faint smile, and repeated the meal.</p>
-<p>,"Seonsaengniim~! Please eat what I give you too~!"</p>
+<p>,"Seonsaengniim! Please eat what I give you too!"</p>
 <p>Naruse Shiyo, who looked a little dangerous, held out a large piece of steak towards my mouth. She was just putting the steak that came out in front of her into my mouth, so I couldn't help but grumble.</p>
 <p>,"No, you have to cut it so I can eat it in one bite!"</p>
 <p>,"My lord, eat it boldly like a hero!"</p>
 <p>Sakagami even made a fuss about being a hero, so everyone at the table's attention was focused on me and the large piece of steak.</p>
 <p>Hoo.... I can't help it. I let out a small sigh and bit into the steak. Of course, the steak was cooked very softly, so it was easily bitten with my bite marks.</p>
 <p>,"Ahaha...! You really eat boldly."</p>
-<p>,"I want to eat like that too~!"</p>
+<p>,"I want to eat like that too!"</p>
 <p>,"Sabu, give me a big piece of meat too!"</p>
 <p>Most people laughed while watching me eat, and Yoda Grandpa's young disciples were making a fuss trying to imitate me because my bold appearance looked fun.</p>
 <p>,"Ehehe.... Indirect kiss...."</p>

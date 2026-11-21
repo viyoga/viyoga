@@ -5,27 +5,27 @@ weight = 45
 chapter = 45
 +++
 
-<p>&quot;Hehe... then why is your body thoroughly enjoying my divine weapon, Auntie~?&quot;</p>
+<p>&quot;Hehe... then why is your body thoroughly enjoying my divine weapon, Auntie?&quot;</p>
 
 <p>&quot;I-im..not, it’s because of the air...&quot;</p>
 
-<p>&quot;Ohh...what’s the connection between the air and your actions today Auntie~&quot;</p>
+<p>&quot;Ohh...what’s the connection between the air and your actions today Auntie&quot;</p>
 
 <p>&quot;I-it’s hot, yes..that’s it. It’s hot right now..&quot;</p>
 
-<p>&quot;Heh...You’re already behaving like a beast in heat, falling in love with it the very first time you lay eyes on it Auntie~&quot;</p>
+<p>&quot;Heh...You’re already behaving like a beast in heat, falling in love with it the very first time you lay eyes on it Auntie&quot;</p>
 
 <p>&quot;...&quot; Pamela, couldn’t bring up any word anymore...what Owen drilled into her mind, a bullseye!</p>
 
-<p>&quot;Not to mention you’re savoring the sensation while staring directly at your devoted husband’s back~&quot; Owen pressed on mercilessly.</p>
+<p>&quot;Not to mention you’re savoring the sensation while staring directly at your devoted husband’s back&quot; Owen pressed on mercilessly.</p>
 
 <p>He knew he only needed one final push to completely shatter her fragile, &quot; Playing-To-Get-Barrier&quot;.</p>
 
 <p>&quot;....&quot; Another heavy silence hung between them, only by the droning sound of the television broadcast.</p>
 
-<p>&quot;Then I’m going to take that silence as an absolute ’yes,’ Auntie~&quot;</p>
+<p>&quot;Then I’m going to take that silence as an absolute ’yes,’ Auntie&quot;</p>
 
-<p>&quot;I’m going to slide myself right inside your clothing now~&quot; He waited enough; it was finally time to reap the rewards of his hard labor!</p>
+<p>&quot;I’m going to slide myself right inside your clothing now&quot; He waited enough; it was finally time to reap the rewards of his hard labor!</p>
 
 <p>A pent-up housewife eager to explore and discover a new thing was always the sucker...making it hard to refuse such new discovered treasure trove.</p>
 
@@ -49,7 +49,7 @@ chapter = 45
 
 <p>Fortunately, her casual loungewear was highly elastic, offering the perfect amount of flexibility.</p>
 
-<p>&quot;Don’t make a single sound, Auntie. Just focus on preparing our breakfast, okay? I’ll handle all the heavy lifting down here~&quot; Owen began working the space between her ass.</p>
+<p>&quot;Don’t make a single sound, Auntie. Just focus on preparing our breakfast, okay? I’ll handle all the heavy lifting down here&quot; Owen began working the space between her ass.</p>
 
 <p>His weapon was sliding along her lower back because its sheer length extended far beyond her waistline.</p>
 
@@ -57,7 +57,7 @@ chapter = 45
 
 <p>&quot;O-okay, but d-don’t push things any further, or I’ll get genuinely upset...&quot; she stammered, desperately trying to focus on the cutting board while her lower half thoroughly melted from the intense rubbing and the sticky precum that began to coat her ass, and her back.</p>
 
-<p>&quot;Of course, Auntie Pam. Your ass is absolutely incredible~&quot; He could feel the remarkable plushness of her bust, almost as if her body were trying to swallow him whole.</p>
+<p>&quot;Of course, Auntie Pam. Your ass is absolutely incredible&quot; He could feel the remarkable plushness of her bust, almost as if her body were trying to swallow him whole.</p>
 
 <p>Unfortunately for her ass, even though she tried her best to envelop the entire divine cock, it was a futile effort against such immense thickness.</p>
 
@@ -69,7 +69,7 @@ chapter = 45
 
 <p>&quot;D-don’t... don’t release it inside my clothes...&quot; she whispered in a panic, simultaneously arriving at her own absolute limit.</p>
 
-<p>&quot;Do you really want me to make a massive mess all over the kitchen tiles? You know your husband will easily smell it~&quot; he countered smoothly, grasping her hips and squeezing them with immense force.</p>
+<p>&quot;Do you really want me to make a massive mess all over the kitchen tiles? You know your husband will easily smell it&quot; he countered smoothly, grasping her hips and squeezing them with immense force.</p>
 
 <p>&quot;N-no... but only outside, alright?&quot; She quickly amended her stance, realizing the floor was far more risky!</p>
 
@@ -103,7 +103,7 @@ chapter = 45
 
 <p>Yes..it’s a transparent one.</p>
 
-<p>&quot;Heh, even your busty figure can’t completely contain it all, Auntie Pam~&quot; Owen observed with immense satisfaction, thrilled that she had accepted his mark without any real protest.</p>
+<p>&quot;Heh, even your busty figure can’t completely contain it all, Auntie Pam&quot; Owen observed with immense satisfaction, thrilled that she had accepted his mark without any real protest.</p>
 
 <p>&quot;H-how am I supposed to clean this up? I-it’s too much...&quot; Pamela swallowed hard, a specific detail from Morenne’s gossip flashing through her mind.</p>
 
@@ -111,7 +111,7 @@ chapter = 45
 
 <p>Now, the opportunity for Pamela to experience that same forbidden indulgence was about to slip away.</p>
 
-<p>&quot;Clean it up right now, Auntie. Take it into your mouth and tidy me up, okay~?&quot; Owen wasn’t about to waste any time;</p>
+<p>&quot;Clean it up right now, Auntie. Take it into your mouth and tidy me up, okay?&quot; Owen wasn’t about to waste any time;</p>
 
 <p>He was going to secure his blowjob right here and now.</p>
 

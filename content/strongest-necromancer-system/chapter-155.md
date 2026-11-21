@@ -18,7 +18,7 @@ chapter = 155
 <p>+240 Kill Points</p>
 <p>——</p>
 <p>The spidermonkey’s coven was filled with beasts, and Jason slowly lost count of just how many they had killed the longer the day went. The five of them went further into the forest as time passed, but they still hadn’t met anyone else for some time now.</p>
-<p>"Hah~ I’m fucking tired."</p>
+<p>"Hah I’m fucking tired."</p>
 <p>Darren exclaimed from the side as he fell back on his ass. Henry was also breathing heavily with his hands on his knees, and both of them could tell that their mana was very low. Henry’s mana capacity was higher than Darren’s, but Henry had to use his mana to constantly shoot and resummon the water from his bottle. Darren’s mana was used only to tell his drones what to do, and the large magical crystal he put in the drones did most of the heavy lifting, so Darren’s mana was almost at the same level as Henry’s.</p>
 <p>Jason, on the other hand, didn’t look any different from when he first came into the gate. He was still holding the sword in one hand, and the other hand was back in his pocket since he returned the dagger to his Alternate Dimension. His eyes looked around calmly, and it wasn’t until a few seconds later that he finally spoke.</p>
 <p>"Where are the instructors?"</p>

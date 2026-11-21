@@ -25,7 +25,7 @@ chapter = 160
 
 <p>Shockwaves spread through the voluptuous flesh as he gripped tightly.</p>
 
-<p>“Ughnn~~ the husband’s hungry, huh? The banquet will only start in a few hours, but…” Feiyan paused for a moment, bringing her face close to Qingyi’s.</p>
+<p>“Ughnn the husband’s hungry, huh? The banquet will only start in a few hours, but…” Feiyan paused for a moment, bringing her face close to Qingyi’s.</p>
 
 <p>Her mature, sensual voice echoed in his ear as she continued, “Why doesn’t the husband devour me first? As an appetizer for the banquet…”</p>
 
@@ -33,7 +33,7 @@ chapter = 160
 
 <p>“With all the pleasure in the world!” Qingyi placed his left hand on Feiyan’s waist, his fingers sinking into her slim belly while his right hand went up to one of her tits, gripping it tightly.</p>
 
-<p>“Ahnn~~” The tanned beauty shuddered, her full, red lips opening in an obscene moan as her long, delicate fingers gripped Qingyi’s shirt.</p>
+<p>“Ahnn” The tanned beauty shuddered, her full, red lips opening in an obscene moan as her long, delicate fingers gripped Qingyi’s shirt.</p>
 
 <p>With a single movement, she ripped it open, revealing his toned belly.</p>
 
@@ -41,13 +41,13 @@ chapter = 160
 
 <p>The next moment, a twenty-three centimeter monster slipped out, hitting Feiyan’s pussy with a wet pop and eliciting another obscene moan from her.</p>
 
-<p>“Nghn~~ husband seems to have gotten even bigger today…” She smiled as she lined Qingyi’s cock up with her wet entrance, her fat, soft lips opening as he slowly penetrated her.</p>
+<p>“Nghn husband seems to have gotten even bigger today…” She smiled as she lined Qingyi’s cock up with her wet entrance, her fat, soft lips opening as he slowly penetrated her.</p>
 
 <p>“He was missing you, hahaha.” Qingyi laughed as he brought his other hand to Feiyan’s large breasts, squeezing them together, feeling the soft, delicate skin spilling out between his fingers as they sank into a sea of softness and warmth.</p>
 
 <p>Their volume was clearly too much for Qingyi’s hands.</p>
 
-<p>“Mhnn~~ good to know… my tight little pussy missed him too!” Feiyan spoke, her dirty words contrasting with her sweet, sexy voice.</p>
+<p>“Mhnn good to know… my tight little pussy missed him too!” Feiyan spoke, her dirty words contrasting with her sweet, sexy voice.</p>
 
 <p>Slowly, she sat down on Qingyi’s cock, the great length making its way into the tight walls of her pussy.</p>
 
@@ -61,7 +61,7 @@ chapter = 160
 
 <p>“You really are like a degenerate little demon today, huh?” The handsome young man laughed, retracting his hands and letting Feiyan’s breasts bounce freely as she rode him.</p>
 
-<p>“Nghnn~~ What? Husband mmph~~ doesn’t like little demon Feiyan?” She gasped between obscene moans, lowering her face onto Qingyi while still moving her hips non-stop.</p>
+<p>“Nghnn What? Husband mmph doesn’t like little demon Feiyan?” She gasped between obscene moans, lowering her face onto Qingyi while still moving her hips non-stop.</p>
 
 <p>“No… I love that little demon!” Qingyi exclaimed as he kissed her, their tongues intertwining in a passionate kiss.</p>
 
@@ -71,7 +71,7 @@ chapter = 160
 
 <p>Qingyi also reached his limit, his cock throbbing painfully before exploding in great gushes of his hot, viscous semen into Feiyan’s womb, filling her to the brim.</p>
 
-<p>“Aghnn~~” Feiyan collapsed on top of Qingyi, her ass rising up and his cock slipping out of her pussy.</p>
+<p>“Aghnn” Feiyan collapsed on top of Qingyi, her ass rising up and his cock slipping out of her pussy.</p>
 
 <p>Another two spurts of cum fell onto the perfect, round orbs of flesh that formed his buttocks, their natural size not inferior to the best implants in the world where Qingyi lived and their softness, incomparable.</p>
 

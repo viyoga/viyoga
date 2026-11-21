@@ -14,7 +14,7 @@ chapter = 1923
 <p>The pace they were setting would’ve floored any professional dungeon explorer.</p>
 <p>Behind the labyrinth’s little stone doorway, buried countries unfolded, one per floor, corridor systems feeding chamber after chamber, and all of it stocked full of monsters.</p>
 <p>"Left tunnel," Kaelira reported from behind her tower shield, runes flaring along its rim as tortoise shot and cleavers hammered it in turns. "Eight more incoming."</p>
-<p>"I see them~" Vex sang from atop a dead orc, one hand weaving, and a wave of grey rot rolled across the chamber floor like spilled water.</p>
+<p>"I see them" Vex sang from atop a dead orc, one hand weaving, and a wave of grey rot rolled across the chamber floor like spilled water.</p>
 <p>Green flesh withered. Six charging orcs folded mid-stride, muscle rotting off the bone, and Vex hopped down to open the nearest one’s throat with her sword, as an afterthought.</p>
 <p>A Gloomhide Prowler dropped from the wall at her back before her boots touched the floor. Two dancing steps took her out from under its claws, and the third put her blade up through its jaw.</p>
 <p>"Four minutes," Black Fang said from above.</p>

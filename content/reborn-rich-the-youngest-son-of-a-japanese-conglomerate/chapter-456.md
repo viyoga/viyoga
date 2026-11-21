@@ -6,7 +6,7 @@ chapter = 456
 +++
 
 <p>"Did you do well on the exam?"</p>
-<p>"Ah! Why did you make it so difficult, Ryuta-jji~!"</p>
+<p>"Ah! Why did you make it so difficult, Ryuta-jji!"</p>
 <p>"Isn't the second foreign language exam today?"</p>
 <p>"Oh, right, hehe."</p>
 <p>Seizawa Shii said something strange for no reason, so I scolded her. The second foreign language exams, including Korean, were on Wednesday. She's probably just messing with me because she wants to play around.</p>
@@ -29,7 +29,7 @@ chapter = 456
 <p>"For reference, I bought the newly released custom perfume from Légion for the kids who didn't ask me to buy them anything."</p>
 <p>As I gave Urabe Konoka the perfume box, Seizawa Shii asked me what custom perfume was.</p>
 <p>"It's a custom perfume where you visit in person, have your appearance scanned, or show a photo, and Ai manufactures a perfume that suits that appearance."</p>
-<p>"Ah! I should have asked for perfume instead of a useless autographed handkerchief~!"</p>
+<p>"Ah! I should have asked for perfume instead of a useless autographed handkerchief!"</p>
 <p>Seizawa Shii wore a tearful expression, holding a handkerchief with autographs from several Hollywood stars. It's her own fault for choosing a strange gift to torment me. Seizawa Shii had eyes like an abandoned cat, but I didn't feel much sympathy.</p>
 <p>"I'll use it well, Teacher."</p>
 <p>Urabe Konoka took the perfume with a fairly satisfied expression. Minamoto Risa, the young lady of the Minamoto family, seemed awkward to ask for a gift, and Uenozono Karen and Konoe Akina, who didn't even know there was a gift request because they were absent, didn't choose separate gifts, so they received perfume like Urabe Konoka.</p>

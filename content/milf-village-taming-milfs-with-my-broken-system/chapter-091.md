@@ -23,7 +23,7 @@ chapter = 91
 
 <p>&quot;Just a moment, Mom... *slurp, slurp...*&quot; Owen licked her armpits. She smelled so good that he simply couldn’t stop his tongue from moving.</p>
 
-<p>&quot;Ngg~hnn, that tickles! Don’t lick my armpits... they’re sweaty!&quot; Arielle tried pushing his head away, but to no avail. Owen didn’t budge at all and pushed further in, licking every inch clean.</p>
+<p>&quot;Ngghnn, that tickles! Don’t lick my armpits... they’re sweaty!&quot; Arielle tried pushing his head away, but to no avail. Owen didn’t budge at all and pushed further in, licking every inch clean.</p>
 
 <p>&quot;Lick... lick... I think it’s time for me to savor you completely, Mom.&quot;</p>
 

@@ -161,7 +161,7 @@ She walked close to her and bowing, said, "There's a call from the Dracula Castl
 
 Surprised by the sudden call, Avelyn took the phone and answered it with a smile.
 
-"Fi-chan~~ How are you?" Avelyn asked.
+"Fi-chan How are you?" Avelyn asked.
 
 "I'm good. I'm good. Ava, I'll get to the point, there's an important broadcast happening. It's of our children and…"
 

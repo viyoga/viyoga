@@ -69,7 +69,7 @@ chapter = 201
 
 <p>Before she could even say anything, he was already upon her, their lips meeting and their tongues dancing around each other as she awkwardly answered.</p>
 
-<p>“What do you want? Mghm~~ shameless junior…” She blushed embarrassedly.</p>
+<p>“What do you want? Mghm shameless junior…” She blushed embarrassedly.</p>
 
 <p>“You know what I want… the nails of a certain angry tigress have left me quite sore, don’t you think it’s time she made it up to me?” Qingyi soon spun Rongyan around, putting her on all fours.</p>
 
@@ -87,7 +87,7 @@ chapter = 201
 
 <p>His hips hit her ass with a wet smack, a suppressed moan escaping her lips as her whole body was seized by deep pleasure.</p>
 
-<p>“Nghn~~ fuck! Heavens! Mghmm~~” She didn’t even notice her tongue slipping out of her lips as Qingyi pounded her non-stop, the sounds of skin hitting skin and her obscene moans echoing throughout the room.</p>
+<p>“Nghn fuck! Heavens! Mghmm” She didn’t even notice her tongue slipping out of her lips as Qingyi pounded her non-stop, the sounds of skin hitting skin and her obscene moans echoing throughout the room.</p>
 
 <p>“You look even tighter than before, you know that?” Qingyi questioned, slapping her ass again and grabbing her hair, pulling back, revealing the face contorted in pleasure that was hidden in the pillow.</p>
 

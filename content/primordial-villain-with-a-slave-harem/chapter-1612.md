@@ -52,9 +52,9 @@ chapter = 1612
 <p>&lt;Nyxara.&gt;</p>
 <p>&lt;Y-yes, my adorable Ruin?&gt;</p>
 <p>&lt;I'm really dissatisfied with your contributions recently.&gt;</p>
-<p>&lt;Are you calling me useless?!&gt; She whined, theatrical and wounded. &lt;Sorry, sorry~ I had an inkling where this was going and didn't want to spoil the surprise. I would have advised you not to enter the lair of an Archduke Vampire otherwise.&gt;</p>
+<p>&lt;Are you calling me useless?!&gt; She whined, theatrical and wounded. &lt;Sorry, sorry I had an inkling where this was going and didn't want to spoil the surprise. I would have advised you not to enter the lair of an Archduke Vampire otherwise.&gt;</p>
 <p>&lt;You say that like he's a really big deal. What level is he?&gt;</p>
-<p>&lt;Now that's something I really can't answer.&gt; Her voice dropped into a sly purr. &lt;But you could ask him yourself. Though he might respond with big words your 'slow head' struggles to understand... Should this extremely useful and dedicated and beautiful demoness interpret for you~?&gt;</p>
+<p>&lt;Now that's something I really can't answer.&gt; Her voice dropped into a sly purr. &lt;But you could ask him yourself. Though he might respond with big words your 'slow head' struggles to understand... Should this extremely useful and dedicated and beautiful demoness interpret for you?&gt;</p>
 <p>Before Quinlan could respond, the Archduke's voice cut through.</p>
 <p>"I see my words have not landed." The creature watched Quinlan's silence with the patience of the ancient. "To speak plainly: I sold the elixirs to lure a primordial."</p>
 <p>"I understood that!" Quinlan grumbled. "I was gathering my thoughts."</p>

@@ -23,11 +23,11 @@ chapter = 61
 <p>They showered with the mentor-nim there? Slightly stuttering, she asked, and they looked at each other again. And they nodded as if they had agreed on something.</p>
 <p>"The mentor-nim left, and we cleaned up before leaving and sweated a lot, so we showered, right?"</p>
 <p>"Yeah! That's right."</p>
-<p>"We were so sweaty~."</p>
+<p>"We were so sweaty."</p>
 <p>Asako Ukie thought she was possessed by a perverted spirit because the word "sweat" sounded so lewd, and nodded.</p>
 <p>"I want to shower in the conference room once too."</p>
-<p>"Asako-ssi's turn will come next time. It feels re~ally good, showering in the conference room..."</p>
-<p>It feels re~ally good, does the conference room building's shower room have some other function? Asako Ukie said, "I hope so," and entered her room. And to soothe her tired body from the tour all day, she took off her clothes and entered the shower room.</p>
+<p>"Asako-ssi's turn will come next time. It feels really good, showering in the conference room..."</p>
+<p>It feels really good, does the conference room building's shower room have some other function? Asako Ukie said, "I hope so," and entered her room. And to soothe her tired body from the tour all day, she took off her clothes and entered the shower room.</p>
 <p>The warm water poured from the showerhead, soaking her whole body. Showers are all the same. It should feel like this no matter where you do it, so why does it feel so good to do it in the conference room? Asako Ukie, unable to understand, lathered up a shower towel and scrubbed her body. The talent development center was all good, but there was a personal shower room in the room, but no personal bathtub. Of course, there was a large public bath in the talent development center that everyone could use, but she was a little reluctant.</p>
 <p>She didn't want to show herself to so many people. And Asako Ukie thought that if many people used it, it might be a bit of a hygiene problem.</p>
 <p>"But I'm going back home on the weekend, so I can soak in the bathtub then..."</p>
@@ -56,10 +56,10 @@ chapter = 61
 <p>###</p>
 <p>"Me? You're doing a mock investment?"</p>
 <p>Listening to the group members' chattering, each person has 10 million yen in capital and buys stocks based on today's prices, and the rankings are based on the prices on the fourth Wednesday. They're doing all sorts of things.</p>
-<p>"Yes, please recommend something, mentor-nim~!!"</p>
+<p>"Yes, please recommend something, mentor-nim!!"</p>
 <p>"Still, it's a task for you guys, so you should find investment opportunities first and then compare them to the places I recommend before choosing."</p>
 <p>They're probably making them do this mock investment to test their research skills and insight. If I help too much, their abilities won't develop, so I spoke a bit sternly.</p>
-<p>These 74 group women are talents who will go into each subsidiary as my hands and feet and ask me for information or do secret operations, but if I help them all just because they say, "Please recommend something~," they will miss the opportunity to develop their abilities. Still, they need to have various abilities to secure their positions and benefit me.</p>
+<p>These 74 group women are talents who will go into each subsidiary as my hands and feet and ask me for information or do secret operations, but if I help them all just because they say, "Please recommend something," they will miss the opportunity to develop their abilities. Still, they need to have various abilities to secure their positions and benefit me.</p>
 <p>"You can have meetings here, and you know that the snacks and drinks are in the refrigerator and the cupboard next to it, right? I'll be working in my personal office over there, so if you have any questions or suggestions, come in and ask."</p>
 <p>I went into my personal office and turned on my laptop. The work of the education support team was quite piled up. I couldn't do much work because I had three new group members yesterday. Still, there was a lot of work, especially from Deputy Team Leader Suzuki Chisami, who seemed dissatisfied with me commuting to and from the 74 group office.</p>
 <p>"This is annoying. If I get the chance..."</p>
@@ -86,7 +86,7 @@ chapter = 61
 <p>"Sachiko."</p>
 <p>"Ehh?"</p>
 <p>While Koikawa Sachiko was surprised that I suddenly called her by her first name instead of her last name, I unhesitatingly touched Koikawa Sachiko's breasts, especially her nipples.</p>
-<p>"Aah~!"</p>
+<p>"Aah!"</p>
 <p>"As long as you have these breasts, it's a lie to say that you don't look like a woman. Look at this."</p>
 <p>I put Koikawa Sachiko's hand on my dick, who was writhing. Koikawa Sachiko seemed startled for a moment, but then she held my dick tightly like a precious object.</p>
 <p>"If you weren't feminine, would I have become like this?"</p>

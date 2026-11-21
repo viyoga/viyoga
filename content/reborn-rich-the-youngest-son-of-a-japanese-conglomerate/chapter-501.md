@@ -8,7 +8,7 @@ chapter = 501
 <p>"Ryuta-nim...."</p>
 <p>With my skillful touch, Konoe Akina is now naked, not even her underwear remains. Perhaps because she can't see, she's looking at me with a slightly fearful expression mixed with a faint smile, making it difficult to decipher.</p>
 <p>Konoe Akina's nude body was beautiful. Her skin, with little melanin, shone with a pale white light, and only her nipples, slightly raised towards the sky, and her hairless pussy area added a peach-colored, light pink hue, perhaps due to her excitement in the atmosphere.</p>
-<p>"Haaah~!"</p>
+<p>"Haaah!"</p>
 <p>As I grasped her soft-looking, perky breasts, Konoe Akina closed her unseen eyes and moaned. I hadn't even teased her nipples, just held them, but her reaction was quite intense. Perhaps because she couldn't see, her other senses seemed to have become more sensitive.</p>
 <p>Konoe Akina's breasts were more on the soft side than the firm side. It felt like carefully touching a large dollop of whipped cream, and the way my fingers sank into her breast flesh and the sensation of it greatly excited me. Of course, unlike real whipped cream, they didn't collapse when touched but maintained their shape.</p>
 <p>Konoe Akina's nipples, which had been hard since I first touched them, became as hard as they could be, revealing their presence in my palm, as if excited by my caressing her breasts. I rolled my palm to stimulate her nipples along with her breasts.</p>
@@ -43,7 +43,7 @@ chapter = 501
 <p>"Yes, cum deep inside Akina's pussy, hng...!"</p>
 <p>I grabbed the base of my cock with my hand and ejaculated into Konoe Akina's deepest part, then grabbed my urethra with my hand and pulled out my cock. And I sprayed my semen into Konoe Akina's eyes. I've done anmyeonsajeong (facial ejaculation) before, but angusajeong (eyeball ejaculation) is a first.</p>
 <p>Pwahhh!</p>
-<p>"Kyaa~!"</p>
+<p>"Kyaa!"</p>
 <p>Having blocked my urethra for a moment, a huge amount of semen gushed out and covered Konoe Akina's face. Konoe Akina seemed quite surprised when a hot, sticky, and strangely smelling liquid suddenly poured onto her face.</p>
 <p>"Haa, haa.... Is what's on my face now semen?"</p>
 <p>"Yeah. My semen has recovery properties, so they say spraying it directly into the eyes works, but I ended up spraying it all over your face."</p>
@@ -75,4 +75,4 @@ chapter = 501
 <p>Yesterday was Teacher's Day, so here's the home teacher illustration requested by JungChucky-nim!!</p>
 <p>Theory Class</p>
 <p>Practice</p>
-<p>Since she's a home teacher, she's wearing an apron during practice~!! ㅎㅎ</p>
+<p>Since she's a home teacher, she's wearing an apron during practice!! ㅎㅎ</p>

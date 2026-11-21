@@ -20,7 +20,7 @@ chapter = 1952
 <p>Quinlan smiled at her. "One day we’ll get there for sure. But let’s see what we find along the way."</p>
 <p>"Preferably somewhere with people who know how to cook well," Serika added. "I’d love to try a new cuisine."</p>
 <p>"We just ate a sea monster," Aurora reminded her.</p>
-<p>"And it was both delicious and exciting, wasn’t it? I’m feeling encouraged to be adventurous~"</p>
+<p>"And it was both delicious and exciting, wasn’t it? I’m feeling encouraged to be adventurous"</p>
 <p>Below them, the shallows darkened into deep blue. Quinlan raised the group on a climbing current, giving them a wider view as they passed beyond the pale seabed.</p>
 <p>The coastline stretched away on either side behind them. Ahead, sunlight flashed across an expanse of water so vast that he kept searching for a break in it.</p>
 <p>He wanted to know what lived beneath that surface and what waited on the far shore. Perhaps the first town they found would have something worth buying, or someone who could give him a proper fight.</p>
@@ -80,7 +80,7 @@ chapter = 1952
 <p>"Others row boats, and we travel like this," Kitsara grinned, getting seated.</p>
 <p>Her lover had carved a special holding zone for her five tails.</p>
 <p>Quinlan sat near the front, facing forward like a pilot, while the girls spread blankets over the seats. Vex joined him with a plate of meat, tucking herself beneath his arm.</p>
-<p>"The foxy is right. This is amazing, so you deserve a reward. Here, Hubby~"</p>
+<p>"The foxy is right. This is amazing, so you deserve a reward. Here, Hubby"</p>
 <p>He accepted the bite she offered without a second thought. Vex smiled and leaned against him, choosing his next bite while he watched the ocean ahead.</p>
 <p>Once everyone finished eating, they packed their belongings away. Quinlan lifted them from their seats with wind magic, then crumbled the empty craft into sand with his earth magic and let it fall into the sea.</p>
 <p>The broad body had made them easier to spot from below. He preferred to approach unfamiliar lands as a group of distant figures, easily mistaken for birds.</p>

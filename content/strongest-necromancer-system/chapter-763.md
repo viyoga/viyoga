@@ -19,12 +19,12 @@ chapter = 763
 <p>Those two words echoed like a hypnotic command in Gina’s head, and Gina didn’t even think twice as she walked over to Jason! The chair Jason was sitting in was more than large enough to fit two people, and Gina gently ran her hand over Jason’s shoulder before she began to straddle him. Jason put his hands on Gina’s pale thighs, and he pulled her in close and leaned back so that she was looking down at him! Gina’s long red hair fell over them both like a curtain of blood, and Gina ran her hand over Jason’s chiseled face before she brought her hand down and ran it across Jason’s lips. Gina spoke in a low, sultry voice.</p>
 <p>"I missed you so much, Jason."</p>
 <p>Jason couldn’t stop the smile that spread on his face once he heard that, and he raised his hand to the back of Gina’s head before he pulled her down into a heated kiss!</p>
-<p>"Mmh~"</p>
+<p>"Mmh"</p>
 <p>Gina moaned into Jason’s mouth as she pressed herself tighter against him! Gina shuffled forward until her breasts were squeezed tightly against Jason’s chest, and Gina felt a shiver go through her body as she felt Jason’s member poking her ass through his trousers! One of Jason’s hands was in Gina’s hair as he held her down for the kiss, and the other hand travelled up her thigh and back towards her ass before he gave it a rough squeeze! Gina gasped before she let out another moan, and she pulled back before speaking in a rough voice!</p>
 <p>"I need you, Jason. Please."</p>
 <p>Jason looked up into Gina’s eyes, and in there, he saw an intense wave of lust that had completely taken over Gina’s rational mind! Gina was breathing heavily, and each time she huffed, her breasts would bounce in a hypnotic way that drew him in more and more! Gina looked so hot in that moment that she could’ve asked for the world, and Jason would have found a way to give it to her! Gina reached down for Jason’s belt, and Jason adjusted himself slightly to give Gina enough room to reach inside and grab his member! Gina pulled it out easily, and Jason looked on with lidded eyes as Gina slowly slid off his lap before she slowly went to her knees between his legs. Gina’s eyes were still on Jason’s own as she slowly pumped his member with her soft hands, and Jason grunted as Gina’s small pink tongue peeked out and licked across the length of his member!</p>
 <p>Gina shivered as she finally got a taste of Jason, and Jason could see the lust in her eyes grow into something else more intense as she brought her head to the tip and immediately consumed Jason’s member!</p>
 <p>"Oh, fuck."</p>
 <p>Jason cursed while throwing his head back, and he put one hand in Gina’s long red hair as he started to guide her to move!</p>
-<p>Slurp~! Slurp~! Slurp~! Slurp~! Slurp~!</p>
+<p>Slurp! Slurp! Slurp! Slurp! Slurp!</p>
 <p>Gina was sucking Jason off like a woman who had been starving for decades!</p>

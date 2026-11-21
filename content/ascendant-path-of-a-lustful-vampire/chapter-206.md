@@ -13,7 +13,7 @@ chapter = 206
 <p>Lea believed strongly in her picking the Bullcroc and its defences should still remain far from what anyone in the class could break past but she couldn’t help but be (for want of a better word) nervous.</p>
 <p>The Bullcroc nailed its eyes on Aurelius ready to return the favor for the pain it had endured. It opened its massive maw and let out a roar that sent ripples through the air and smacked into Aurelius’s face, causing his hair to blow back. His body was gripped at that moment and he found himself temporarily immobile.</p>
 <p>And then the Beast charged at him. It moved faster than it ever had thus far. Basically leaping right from the start. And as quick a spell caster as Aurelius was, he found his mind a bit too sluggish. And when he finally managed to form the required seals, he transitioned into a defensive spell instead.</p>
-<p>But just as ~Mandala~ began to shimmer into appearance, something darted past him. Aurelius only caught the barest glances of it out of the corner of his eyes and then he heard the sound of impact...</p>
+<p>But just as Mandala began to shimmer into appearance, something darted past him. Aurelius only caught the barest glances of it out of the corner of his eyes and then he heard the sound of impact...</p>
 <p>*BAM!*</p>
 <p>... and saw Caius’s arm in the position of someone who had just completed a punch. Even more, the Bullcroc’s head was turned to the side as though the punch had had an effect.</p>
 <p>The eyes of everyone went wide but upon further investigation, they saw the beastly outlines of superimposed limbs composed of Mana on Caius’s arms and legs.</p>
@@ -33,7 +33,7 @@ chapter = 206
 <p>He went tumbling back and then rolled to his knees but the force of the strike from the Four-star beast had been so great that, even then, he still slid back a couple of feet.</p>
 <p>But then, he let the swiftness of the Wyvern Trait envelope him and went charging forward. He arrived within a foot of the Bullcroc before its brain could even register the speed and leaped to throw out a spin-kick at its scaly head.</p>
 <p>As he did, Caius had a seal prepared and infused Mana into it causing a red spell circle to appear around his ankle as he cast his best/only Third Circle movement spell.</p>
-<p>~Hellsong Dash~</p>
+<p>Hellsong Dash</p>
 <p>Fire blazed from his legs, infusing even more force into an already power-packed kick right before it connected to the Bullcroc’s head and sent it sliding one foot away.</p>
 <p>Before Caius even landed back on the ground, he heard Delia’s yell from above.</p>
 <p>"OUT OF THE WAY!!!"</p>

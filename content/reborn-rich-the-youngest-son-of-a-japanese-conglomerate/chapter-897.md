@@ -76,9 +76,9 @@ chapter = 897
 <p>"Team A? Understood. I'll return as quickly as possible."</p>
 <p>Asada Ei, who hastily hung up the phone, shouted to the combat unit, who were still tidying up, "I'll go first!" and began to descend the stairs in a hurry. Asada Ei, who had remained almost expressionless even in battle, now wore a very urgent and anxious Expression. This was because the member of Team A was none other than her superior and savior, Taira Ryuta.</p>
 <p>Asada Ei B-cut!</p>
-<p>Requested by TheDreaming-nim, Kirie participating in a naked body Fighting competition~!</p>
-<p>Kick~!</p>
-<p>Phone camera version~!</p>
+<p>Requested by TheDreaming-nim, Kirie participating in a naked body Fighting competition!</p>
+<p>Kick!</p>
+<p>Phone camera version!</p>
 <p>Since it's a wrestling ring prompt, she automatically wears shoes and knee pads haha.</p>
-<p>Requested by MidNightSKY-nim, Liz researching Attire to Seduce Ryuta~! The bikini with an open bottom needed seaweed attached, so I just made it a regular bikini haha.</p>
+<p>Requested by MidNightSKY-nim, Liz researching Attire to Seduce Ryuta! The bikini with an open bottom needed seaweed attached, so I just made it a regular bikini haha.</p>
 <p>Kkiyot haha</p>

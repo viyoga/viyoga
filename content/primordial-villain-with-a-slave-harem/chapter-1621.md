@@ -90,14 +90,14 @@ chapter = 1621
 <p>He read them again.</p>
 <p>'...thank the Goddess's sexy lacy panties.'</p>
 <p>A low, delighted purr unspooled in his skull.</p>
-<p>&lt;Those panties most certainly deserve every syllable of praise, my adorable Ruin~&gt; Nyxara purred. &lt;Yet I do believe I am owed a little adoration myself, don't you think?&gt;</p>
+<p>&lt;Those panties most certainly deserve every syllable of praise, my adorable Ruin&gt; Nyxara purred. &lt;Yet I do believe I am owed a little adoration myself, don't you think?&gt;</p>
 <p>&lt;...did you do something?&gt;</p>
 <p>&lt;Mm. The moment that nasty class came to you, I blocked its passive effect. As long as you refrain from casting a single Cultist spell, the restriction stays contained, much as our cute little Mimi keeps the Seed of Corruption from erupting.&gt;</p>
 <p>A pause.</p>
 <p>&lt;So... are you still dissatisfied with my recent contributions, my love?&gt;</p>
 <p>Quinlan exhaled slowly into his helm.</p>
 <p>&lt;You're the best.&gt;</p>
-<p>&lt;Hehehe~&gt;</p>
+<p>&lt;Hehehe&gt;</p>
 <p>The purr melted back into whatever corner of his soul realm she currently occupied.</p>
 <p>...</p>
 <p>Runners left Sylvaenor in every direction. Shrine maidens sprinted down root-paths only elves could walk, low-level girls rode mounts that had not been saddled in a century, and warrior-captains shouted the names of distant cities at their sisters before watching them move out.</p>

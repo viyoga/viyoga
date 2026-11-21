@@ -135,7 +135,7 @@ Due to such a cold hearted society being in place, the Demons barely trusted any
 
 There was also a natural drive to be stronger as a moment's weakness could lead to a permanent disappearance from this universe.
 
-The vixen, after getting the proposal from the giant, giggled and said, "I've just got my nails done, I'm not in the mood to flirt with you two. Bye~~"
+The vixen, after getting the proposal from the giant, giggled and said, "I've just got my nails done, I'm not in the mood to flirt with you two. Bye"
 
 The vixen disappeared from the court along with her lackeys and the giant clicked his tongue in annoyance.
 

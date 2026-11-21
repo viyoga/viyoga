@@ -37,7 +37,7 @@ chapter = 869
 
 <p>Her soft buttocks wobbled with every subtle roll of her hips, the milky flesh molding itself against him as if she wanted to keep him nestled between those cheeks forever.</p>
 
-<p>"Ah~ Akane-sama wants it! Akane-sama wants it so much!" she responded to his words, a sweet, lewd little squeal spilling from her lips right after, her red eyes shining with pure desire.</p>
+<p>"Ah Akane-sama wants it! Akane-sama wants it so much!" she responded to his words, a sweet, lewd little squeal spilling from her lips right after, her red eyes shining with pure desire.</p>
 
 <p>The young dragon smiled, sliding his hand over the perfect curves of the demoness’s buttocks.</p>
 
@@ -53,7 +53,7 @@ chapter = 869
 
 <p>Plap</p>
 
-<p>"Aghn~ f-fuck!" An obscene squeal tore from Akane’s trembling lips, accompanied by the heavy sound of her plump ass slamming down onto Qingyi’s lap.</p>
+<p>"Aghn f-fuck!" An obscene squeal tore from Akane’s trembling lips, accompanied by the heavy sound of her plump ass slamming down onto Qingyi’s lap.</p>
 
 <p>The pale flesh flattened against his thighs on impact before springing back, a shivering wave rolling through hes cheeks before racing up her spine.</p>
 
@@ -61,7 +61,7 @@ chapter = 869
 
 <p>Akane’s entire body shuddered, the strength draining from her legs as her gasping breaths echoed through the silent pavilion.</p>
 
-<p>"Hm~ Q-Qingyi-chan... hubby~ hehehe~" she giggled softly to herself, a dazed smile spreading across her flushed face. "Ognn~~ so big..."</p>
+<p>"Hm Q-Qingyi-chan... hubby hehehe" she giggled softly to herself, a dazed smile spreading across her flushed face. "Ognn so big..."</p>
 
 <p>The next moment, she felt Qingyi’s strong hands grip her delicate waist.</p>
 
@@ -93,7 +93,7 @@ chapter = 869
 
 <p>The pavilion was filled with nothing but the obscene slaps of flesh against flesh and her increasingly loud, shameless moans as she frantically rode that enormous cock.</p>
 
-<p>"Ah~ Q-Qingyi-chan~ cock is so big~ hehehe~ filling Akane-sama up so much... ah~" she sighed, closing her red eyes as she lost herself in the overwhelming sensation.</p>
+<p>"Ah Q-Qingyi-chan cock is so big hehehe filling Akane-sama up so much... ah" she sighed, closing her red eyes as she lost herself in the overwhelming sensation.</p>
 
 <p>The speed at which she rocked her hips increased, and so did the force behind every drop.</p>
 
@@ -103,7 +103,7 @@ chapter = 869
 
 <p>She was already teetering on the very edge of her limit, and at that pace, he wouldn’t be able to hold out much longer either.</p>
 
-<p>"Aghnn~~ Ognnn~~ Uhn~" Akane’s moans grew louder and louder, her eyes widening as her entire body trembled uncontrollably, every muscle drawing tight.</p>
+<p>"Aghnn Ognnn Uhn" Akane’s moans grew louder and louder, her eyes widening as her entire body trembled uncontrollably, every muscle drawing tight.</p>
 
 <p>Finally, with one last thrust, she let her ass drop onto Qingyi’s lap with all her might, her body twisting violently as her eyes rolled back.</p>
 
@@ -111,7 +111,7 @@ chapter = 869
 
 <p>At the same time, Qingyi, buried deep inside her, came as well, thick, hot jets of cum flooding her tight womb until there was no room left for anything else.</p>
 
-<p>"Ah~" Akane, with Qingyi’s cock still buried deep inside her, let herself fall backward, her head resting against his strong, defined chest.</p>
+<p>"Ah" Akane, with Qingyi’s cock still buried deep inside her, let herself fall backward, her head resting against his strong, defined chest.</p>
 
 <p>One of her hands slid down to her lower abdomen, her slender, pale fingers tracing the delicate skin, slightly swollen from the absurd amount of semen lodged inside her.</p>
 

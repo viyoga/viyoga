@@ -13,9 +13,9 @@ chapter = 223
 <p>Even when she tried to pull her ass away from the excessive pleasure, I was holding her tightly so she couldn't move, and she had to keep receiving my tongue attack, so Mimata Chieri-sunbae said it was too strong and reached her climax, firing a water gun at my face while making a pfft pfft sound. I could feel her thighs trembling through my cheeks. She came pretty spectacularly.</p>
 <p>A lot of it splattered on my face, so I wiped my face on the baby doll that Mimata Chieri-sunbae was still wearing. Then, I grabbed Mimata Chieri-sunbae's thin waist, lifted her up, and put her down on the floor from the table.</p>
 <p>"Now, Sunbae-nim, put your hands up."</p>
-<p>"Hooray~! Like this, Hubae-nim?"</p>
+<p>"Hooray! Like this, Hubae-nim?"</p>
 <p>I made Mimata Chieri-sunbae put her hands up and shout hooray, then I took off her baby doll. And I held her in a princess carry.</p>
-<p>"Ahaha~! Hubae-nim, jyoayo."</p>
+<p>"Ahaha! Hubae-nim, jyoayo."</p>
 <p>Mimata Chieri-sunbae's drunken antics were quite cute. She kept kissing my cheeks and lips, saying she liked me. I know that Mimata Chieri-sunbae's alcohol tolerance is quite high, but it seemed that the Elixir of Power was making people drunk quickly because it was an elixir.</p>
 <p>I can't ask this drunk person to give me a blowjob, so I should make today Sunbae-nim's happy service day for Mimata Chieri-sunbae.</p>
 <p>I changed the position of Mimata Chieri-sunbae, who I had been holding in a princess carry, so that she was facing me and hugging me. If I just lower my body like this, I'll be getting laid right away.</p>
@@ -44,7 +44,7 @@ chapter = 223
 <p>"Did you check the infiltration and escape routes while I was giving the congratulatory speech?"</p>
 <p>"It's not my first time at the Metropolitan Museum, Mom. Just do what we did before."</p>
 <p>When Nae Fitzgerald, who had come down from the stage, asked, Arisu Fitzgerald answered with a slightly indifferent expression.</p>
-<p>"Tsk~! You're just sulking because I wouldn't let you play with Ryuta, right?"</p>
+<p>"Tsk! You're just sulking because I wouldn't let you play with Ryuta, right?"</p>
 <p>"It's been a long time since I've seen you 'officially', Mom, but how can you take me to a 'job' right away like this?"</p>
 <p>"You can call this a mother-daughter date?"</p>
 <p>At Nae Fitzgerald's words, Arisu Fitzgerald opened her mouth with a slightly relieved expression, saying "Chee."</p>
@@ -82,4 +82,4 @@ chapter = 223
 <p>------Unused cuts</p>
 <p>Arisu</p>
 <p>Nae</p>
-<p>Auntie~! I'm dying!!</p>
+<p>Auntie! I'm dying!!</p>

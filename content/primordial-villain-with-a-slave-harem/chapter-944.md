@@ -5,7 +5,7 @@ weight = 944
 chapter = 944
 +++
 
-<p>"Good news, everyone~" Vex sang, holding up her now-dimmed communication artifact. "Black Fang agreed to back us up on the Aurelions brutal butchering matter. As for Jasmines mom, thatll take a little digging. Were gonna need time to locate her exact prison. We can only start moving without restraint once thats done."</p>
+<p>"Good news, everyone" Vex sang, holding up her now-dimmed communication artifact. "Black Fang agreed to back us up on the Aurelions brutal butchering matter. As for Jasmines mom, thatll take a little digging. Were gonna need time to locate her exact prison. We can only start moving without restraint once thats done."</p>
 <p>Quinlans lips turned upwards with satisfaction. A slow, genuine smile.</p>
 <p>"That woman really is something, isnt she? The Consortium is in a full-blown war with the Greenvale Dukedom, and from what I can tell, we arent exactly winning... Yet she still diverts assets just to help me settle a personal score..."</p>
 <p>Vex chuckled hearing that, brushing her white hair behind one ear. "Shes awesome for certain, hubby. As long as you dont ask any of her peers, that is. Theyd probably describe her with words like demonic, lunatic, and craziest, most unhinged bitch they ever had the displeasure of working with"</p>
@@ -35,7 +35,7 @@ chapter = 944
 <p>"Hehe! Its been my pleasure! That big, arrogant oaf wouldnt have survived without my guidance!"</p>
 <p>"Oh?" Ayame mused, eager to learn more about their journey.</p>
 <p>Meanwhile, Serika was quickly surrounded by Vex, Lyra, and Seraphiel.</p>
-<p>"Damn~" Vex purred, circling Serika like a cat eyeing a new toy. "Youve got an amazing build. I bet Raika would kill for a joint training session with you."</p>
+<p>"Damn" Vex purred, circling Serika like a cat eyeing a new toy. "Youve got an amazing build. I bet Raika would kill for a joint training session with you."</p>
 <p>"I dont know who that is... but Im always up to train, especially if thats with someone stronger than me," Serika replied with a calm nod of her head, which prompted the ever-so-slightly crazed Hexwitch to grin widely.</p>
 <p>Lyra stepped forward a little nervously and bowed deeply. "Youre a warrior who fought beside my Lord. Would you be willing to give me some pointers, Lady Serika? Im the main tank who protects my Lord and his family, but... I feel unworthy sometimes. Everyones growing faster than I can follow."</p>
 <p>Serika gave the pink-haired woman a long, appraising look. Then she smiled warmly.</p>

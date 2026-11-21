@@ -39,7 +39,7 @@ chapter = 567
 <p>[Black Hole]</p>
 <p>The moment the girl used her zone, space distorted, and a crimson light bloomed. It was as if she was being surrounded by a halo of iridescent fire, causing everything to warp around it.</p>
 <p>This gorgeous display was soon followed by a horrifying sight.</p>
-<p>“Impossible -Cough~”</p>
+<p>“Impossible -Cough”</p>
 <p>Bai Hu coughed blood as he witnessed the Mountain gate starting to disintegrate, the rocks weren’t just being attracted by the suction force of the black hole. They were changing and transforming in pure energy before being absorbed.</p>
 <p>“Stop it!”</p>
 <p>Bai Hu screamed but to no avail. This was the limitation he had put on himself. It was impossible for him to leave his place as things were now.</p>

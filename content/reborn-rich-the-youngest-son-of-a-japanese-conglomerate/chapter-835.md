@@ -30,7 +30,7 @@ chapter = 835
 <p>Actually, when I was deployed to St. Francis Girls' Academy, it was one of the secluded spots investigated by the Taira Information Team, but I lied and said I had investigated it for Minamoto Lisa.</p>
 <p>"Really? You searched for a secluded place just for me...! I'm touched, you...!"</p>
 <p>Minamoto Lisa said she was touched and hugged me. To be touched by something like this. It seemed she still had such High School Girl-like Emotions remaining.</p>
-<p>Minamoto Lisa, who had been hugging me for a while, released the hug, and looked at me with Eyes full of Expectation. Although she didn't speak, her Expression clearly said, 'Hurry up and transform~!', so I smiled and poured the Chaos of Creation into the Bracelet.</p>
+<p>Minamoto Lisa, who had been hugging me for a while, released the hug, and looked at me with Eyes full of Expectation. Although she didn't speak, her Expression clearly said, 'Hurry up and transform!', so I smiled and poured the Chaos of Creation into the Bracelet.</p>
 <p>As the Chaos of Creation flowed into the Bracelet, it flowed down as if frozen liquid was melting, and began to envelop my entire Body. And as it enveloped my entire Body, it gradually took on the form of Armor.</p>
 <p>"Wow...! The Black Knight is right before my Eyes...!"</p>
 <p>Perhaps because Minamoto Lisa's favorite ○-Punch Man was also a hero story, when I transformed into the Black Knight, who is called the hero of the Mortal World, her Reaction was very dramatic.</p>
@@ -45,13 +45,13 @@ chapter = 835
 <p>To have already seen through all the Events I was planning, that's amazing, isn't it? I hugged Minamoto Lisa in my Black Knight form and used telekinetic Flight. Naturally, I used Shadow Domination to make Minamoto Lisa and myself less visible, and as we flew over Miyashi, I filled Minamoto Lisa's Dopamine, which would have been bored from continuous studying.</p>
 <p>Finally, that day arrived. Friday morning dawned, the day of Genbaki's UMC Unlimited Class Champion challenge Match. Since I had decided to watch the Match with all the Students after a long time, I went to the academy with snacks I had bought in advance.</p>
 <p>"Alright, the morning Jorye will be in the club room, so let's all go up."</p>
-<p>As I entered, carrying popcorn, potato chips, and nachos in both hands, all the Students laughed. "What is this, Ryuta-jji~!" Seizawa Shii was the first to Tackle me, and the other Students also laughed and said something.</p>
+<p>As I entered, carrying popcorn, potato chips, and nachos in both hands, all the Students laughed. "What is this, Ryuta-jji!" Seizawa Shii was the first to Tackle me, and the other Students also laughed and said something.</p>
 <p>For today, when a Japanese Unlimited Class UMC Champion might be born again, Minamoto Lisa, Shido Tsubaki, Oofuchi Erika, and other Students in the university prep class decided to relieve their study Stress by watching the UMC Match for a while. Of course, Minamoto Lisa, who had flown extensively with the Black Knight yesterday, had an Expression that showed not an ounce of Stress.</p>
 <p>We all rushed up to the club room. Naruse Shiyo said that a doctor should be present because someone might hyperventilate while watching the Match, so the infirmary teacher Kijimoto Jurie also came to the club room with us.</p>
 <p>"First, today's Jorye is.... Canceled. It seems the school has nothing to say to you, with only Graduation remaining."</p>
 <p>The third-year High School Girls of St. Francis Girls' Academy were being treated almost like senior sergeants on their last tour. In fact, attendance requirements were significantly relaxed at this time, so Uenozono Karen had been absent for the past few days, including today. The reasons were recording and dance Practice for her next album release.</p>
 <p>For reference, Kujo Kina, who is serious about Martial Arts, was absent today, saying she flew directly to the USA with her Sabu and disciples to watch the Match. What incredible passion.</p>
-<p>"Then everyone, put whatever you want to eat in here and sit down~!"</p>
+<p>"Then everyone, put whatever you want to eat in here and sit down!"</p>
 <p>Naruse Shiyo, who brought a large Movie Theater popcorn tub from somewhere and spoke. It wasn't just me who prepared snacks; several Students had prepared their favorite snacks, so everyone filled their popcorn tubs with food without shortage.</p>
 <p>There were even Students who brought frozen Fries and fried them in a fryer, and those were Konoe Akina and Alik. Alik offered to make Fries because he was grateful for his friends' Support during the additional Test, and Konoe Akina offered to help, so the two of them were frying potatoes, emitting a savory Smell.</p>
 <p>"Alik, I like your Fries. Ryuta-jji, you eat a lot too."</p>
@@ -69,7 +69,7 @@ chapter = 835
 <p>Udeudeuk! With a chilling sound, the Match ended, and medical staff quickly and skillfully entered the ring, providing Chiryo to the bio-modified Western giant, ending in a Japanese Victory.</p>
 <p>"Certainly.... The Unlimited Class Matches are much more interesting."</p>
 <p>Otagi Yuka mumbled beside me, picking at her popcorn. I also nodded in Consent, then watched the next Match. After the continuous Unlimited Class Matches ended, finally, Genba Kiyohira's Turn approached.</p>
-<p>Requested by Hwanbuljeoldae-bulga-nim: Lisa, Home Ec Teacher with Belly button + Armpit + Thighs showing~!</p>
-<p>Starting with Lisa-ttang~!</p>
-<p>Home Ec Teacher~!</p>
-<p>Requested by seungj050-nim: Home Ec Teacher lying face down with Feet included Illustration~!</p>
+<p>Requested by Hwanbuljeoldae-bulga-nim: Lisa, Home Ec Teacher with Belly button + Armpit + Thighs showing!</p>
+<p>Starting with Lisa-ttang!</p>
+<p>Home Ec Teacher!</p>
+<p>Requested by seungj050-nim: Home Ec Teacher lying face down with Feet included Illustration!</p>

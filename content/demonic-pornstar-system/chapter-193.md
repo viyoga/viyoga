@@ -54,7 +54,7 @@ chapter = 193
 <p>Alice’s eyes twitched.</p>
 <p>No. It was her very soul that twitched.</p>
 <p>She slowly turned her head back toward Kaiden, her voice now dangerously high-pitched and sweet.</p>
-<p>"...Big brother~?"</p>
+<p>"...Big brother?"</p>
 <p>"Hmm?"</p>
 <p>"Do we have to bring them?" she asked, fluttering her lashes, trying her best puppy-dog impersonation. "Can’t they wait here in the garden...? We have a kennel somewhere around here... They can stay there while you come inside..."</p>
 <p>Silence.</p>

@@ -31,7 +31,7 @@ chapter = 568
 
 <p>Qingyi didn’t answer. His lips parted, taking one of her nipples, pink and soft.</p>
 
-<p>“Nghnn~~ I think that’s a yes, little sister,” Seraphine replied with a giggle, mounted on top of him.</p>
+<p>“Nghnn I think that’s a yes, little sister,” Seraphine replied with a giggle, mounted on top of him.</p>
 
 <p>Her hands slid down to her husband’s powerful abdomen.</p>
 
@@ -43,13 +43,13 @@ chapter = 568
 
 <p>He squeezed them gently at first, but soon squeezed hard enough to elicit a moan from Seraphine’s lips.</p>
 
-<p>“Nghnn~~” She gasped, her hands sliding down to his crotch, grabbing his large, throbbing cock, already soaked with the juices leaking from her pussy.</p>
+<p>“Nghnn” She gasped, her hands sliding down to his crotch, grabbing his large, throbbing cock, already soaked with the juices leaking from her pussy.</p>
 
 <p>She moved her knees, lifting herself onto his member and aligning it with her tight entrance.</p>
 
 <p>Without hesitation, she sat down. Her eyes rolled back as she felt the huge member push its way inside her, reaching the depths of her womb.</p>
 
-<p>“Aghnn~~ So big~~ Oghnn~~” Seraphine gasped, feeling Qingyi’s cock fill her completely.</p>
+<p>“Aghnn So big Oghnn” Seraphine gasped, feeling Qingyi’s cock fill her completely.</p>
 
 <p>She moved her hips and placed her hand on her slim belly, feeling that long, thick bulge move inside her, almost escaping the grip of her pussy before penetrating her with full force again.</p>
 
@@ -63,7 +63,7 @@ chapter = 568
 
 <p>Loud, wet smacks echoed with each impact of her full, perfect buttocks against Qingyi’s chest, shockwaves spreading across his round orbs.</p>
 
-<p>“Nghnn~~ Be gentler, hubby…” Elize gasped, grabbing his black hair tightly as she felt his tongue swirl around her sensitive nipples.</p>
+<p>“Nghnn Be gentler, hubby…” Elize gasped, grabbing his black hair tightly as she felt his tongue swirl around her sensitive nipples.</p>
 
 <p>Soon, nothing but the panting moans of the two sisters dominated the room, followed by the powerful slaps of flesh against flesh. Seraphine clung tightly to Qingyi’s shoulders as he abandoned Elize’s breasts.</p>
 
@@ -71,7 +71,7 @@ chapter = 568
 
 <p>With a big smile, she sat on that huge cock harder than ever, the walls of her pussy desperately squeezing around the thick member.</p>
 
-<p>“Aghnn~~ Husband is so delicious today~~ So hard~~ So~~ Oh, heavens~~ Mghnn~~” Seraphine bit her lower lip, trying to hold back the dirty words escaping her mouth.</p>
+<p>“Aghnn Husband is so delicious today So hard So Oh, heavens Mghnn” Seraphine bit her lower lip, trying to hold back the dirty words escaping her mouth.</p>
 
 <p>It was her special day, after all.</p>
 
@@ -85,7 +85,7 @@ chapter = 568
 
 <p>Her lips parted in a naughty moan, and she felt, gush after gush, the hot, viscous cum filling her womb until there was no room left for anything else.</p>
 
-<p>“Nghn~~ So full…” She smiled, collapsing on top of him.</p>
+<p>“Nghn So full…” She smiled, collapsing on top of him.</p>
 
 <p>Elize, who had been waiting patiently, soon took her sister’s place, also mounting Qingyi.</p>
 

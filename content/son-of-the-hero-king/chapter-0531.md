@@ -21,7 +21,7 @@ chapter = 531
 <p>He wouldn’t be first. Nor would he be the last.</p>
 <p>Sol’s eyes glittered, his blue eyes shone with a calm blue light as if they were the sky itself and were containing the vast expanse.</p>
 <p>He took a deep breath, his lungs were filled with pure air, and he used his core to absorb the mana within him, causing the very world to shake in his presence.</p>
-<p>Huff~</p>
+<p>Huff</p>
 <p>Finally, after holding his breath for a few minutes, he released it all and with it he could feel the stress that had been building up, slowly leaving him.</p>
 <p>His mind feels serene, rested.</p>
 <p>Everyday, Sol had to show the face of an impassive ruler who knew exactly what he was doing.</p>

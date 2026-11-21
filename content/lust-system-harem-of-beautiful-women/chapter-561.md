@@ -1,5 +1,5 @@
 +++
-title = "Chapter 561: Lick My Balls~"
+title = "Chapter 561: Lick My Balls"
 weight = 561
 [extra]
 chapter = 561
@@ -13,7 +13,7 @@ chapter = 561
 
 <p>This scene excited Luis and the little girl hiding in the shadows immensely; the feeling was wickedly depraved and intensely stimulating.</p>
 
-<p>&quot;Honey, I want it~&quot; Blanche moaned, writhing her body, her face full of spring desire after some oral.</p>
+<p>&quot;Honey, I want it&quot; Blanche moaned, writhing her body, her face full of spring desire after some oral.</p>
 
 <p>&quot;Where do you want it?&quot; Luis asked with a lewd smile, naturally wanting to give the hidden little girl an extra thrill.</p>
 

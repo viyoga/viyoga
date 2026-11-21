@@ -64,11 +64,11 @@ chapter = 543
 <p>I didn't think I would be rejected because he easily granted requests for information about other families, not money or manpower. As I hung up the phone and waited, Sakagami Rena-ssi, who had packed her things, peeked her face in and greeted me.</p>
 <p>,I'll be going, Master. I'll contact you as soon as I get new information.</p>
 <p>,Yeah, I'll let you know if I get new information too.</p>
-<p>,Yes~</p>
+<p>,Yes</p>
 <p>Sakagami Rena-ssi slightly bowed her head to me and closed the door. After waiting a bit, the Taira information team sent me an email with high-level information about the Naruse family, which had been newly organized with a higher security level.</p>
 <p>_____</p>
-<p>Harlequin Seizawa Shii cover requested by IsaveI-nim~!</p>
+<p>Harlequin Seizawa Shii cover requested by IsaveI-nim!</p>
 <p>Although the eye color is different (Harlequin has blue eyes ㅎㅎ), the hair color is also similar, so I couldn't use it as a cover because it seemed like there would be a copyright issue ㅎㅎㅎ</p>
 <p>I tried to make a Harlequin with Minamoto Risa-ssi requested by PIA1630820579898-nim (because the skin color is different and the hair color is also different....) and made it.</p>
 <p>I even changed the model, but I personally didn't like it, so I decided to make the cover with Naruse Shiyo, the main character of this 59th chapter! and made it ㅎㅎ</p>
-<p>Naruse Shiyo B-cut~!</p>
+<p>Naruse Shiyo B-cut!</p>

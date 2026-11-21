@@ -43,7 +43,7 @@ chapter = 23
 
 <p>Traits: Loyal, Natural alchemist, Seductive, Greedy, love pretty faces]</p>
 
-<p>“Hmm~” A subtle moan escaped Feiyan’s lips as her beautiful brown eyes opened, staring at the world around her in a strange way.</p>
+<p>“Hmm” A subtle moan escaped Feiyan’s lips as her beautiful brown eyes opened, staring at the world around her in a strange way.</p>
 
 <p>She felt different. Her senses were much sharper than before and she could feel her Qi reserves almost doubling, while her own meridians seemed much wider…</p>
 
@@ -89,7 +89,7 @@ chapter = 23
 
 <p>“Because you’re my wife, and I don’t want to lose you.” His words were simple, but enough to make her heart flutter and a silly smile dance across her lips.</p>
 
-<p>“The husband really knows how to tame a woman’s heart… I think he deserves a reward~” She whispered, her voice more mischievous than ever, her tone teasing as she settled into his lap.</p>
+<p>“The husband really knows how to tame a woman’s heart… I think he deserves a reward” She whispered, her voice more mischievous than ever, her tone teasing as she settled into his lap.</p>
 
 <p>“Hm… and what would that reward be?” he asked, his hands trailing down her delicate waist and wide hips before landing on her buttocks, the soft flesh spreading between his fingers as he increased the pressure of his grip.</p>
 
@@ -105,7 +105,7 @@ chapter = 23
 
 <p>The size of her breasts hadn’t changed much, but they were much fuller than before receiving the new bloodline and constitution, and her milk was even richer in Qi, just a single sip was enough to make Qingyi’s cultivation shudder.</p>
 
-<p>“Do you… nngh~~ like it?” She bit her plump lips as she arched her body slightly. It was only her nipples, but she couldn’t help feeling as if her whole body was on fire.</p>
+<p>“Do you… nngh like it?” She bit her plump lips as she arched her body slightly. It was only her nipples, but she couldn’t help feeling as if her whole body was on fire.</p>
 
 <p>“It’s even more delicious than before,” Qingyi pulled his face away momentarily, moving one of his hands to the moist, plump slit between her legs, massaging it as he went back to sucking on her breasts, enjoying every moan that escaped her lips as if they were the best melody he’d ever heard.</p>
 

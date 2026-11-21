@@ -28,7 +28,7 @@ chapter = 251
 <p>"First...." I explained about Famine to Fujigasaki Rinka. When I told her that he uses an Ash-Gray Aura similar in Grade to the Abyss, that this Ash-Gray Aura drains HP, and even that he flies and possesses quite powerful regenerative Ability, Fujigasaki Rinka rested her Chin on her Hand and thought for a Moment.</p>
 <p>"The flying part is a Problem. I'll have to fight him next time!" It was Fujigasaki Rinka, giving up coolly. At my Absurd Gaze, Fujigasaki Rinka shouted fiercely.</p>
 <p>"Fighting and winning in a favorable environment is the true warrior's way! The Fight between Miyamoto Musashi and Sasaki Kojiro...."</p>
-<p>"Yeah~ yeah." As my stamina had recovered a little, I answered Fujigasaki Rinka, who was about to give a Long Speech, half-heartedly, and got up from where I had been lying on the ring. I should go out and eat something. The calories I consumed today were so immense that I was on the verge of Famine. If this continues, I'll suffer Muscle Loss.</p>
+<p>"Yeah yeah." As my stamina had recovered a little, I answered Fujigasaki Rinka, who was about to give a Long Speech, half-heartedly, and got up from where I had been lying on the ring. I should go out and eat something. The calories I consumed today were so immense that I was on the verge of Famine. If this continues, I'll suffer Muscle Loss.</p>
 <p>"Wait."</p>
 <p>"Yes?" Fujigasaki Rinka, who stopped me as I was about to leave the Training ground, made a protein shake from the Shelf set up in a corner of the training room and handed it to me. As expected, she couldn't tolerate her Disciple suffering Muscle Loss.</p>
 <p>"Now, shouldn't we review our Duel?"</p>
@@ -50,7 +50,7 @@ chapter = 251
 <p>"You were the one in that Armor, older brother, weren't you? Kiyohira told me on the Phone Call earlier. That you could have fled together, but you participated in the battle because of me...."</p>
 <p>"That's natural. You and Kiyohira would have done the same." Kazuhiro, Kiyohira, and I were creating a touching Scene together, but at Fujigasaki Rinka's Words, that Atmosphere shattered with a 'wajangchang' sound.</p>
 <p>"Don't create a strange Atmosphere while eating a Meal."</p>
-<p>"Yep~!"</p>
+<p>"Yep!"</p>
 <p>"Sorry!" Fujigasaki Rinka, as if unable to stand the cringe-worthiness, muttered softly, then, as if to start a different Story, asked Arisu.</p>
 <p>"Arisu, you came to LA because you had Work in Hollywood too, right?"</p>
 <p>"Yes, because there's a Scene in the Movie with a lot of models. But because of this Incident, I don't know if I'll be able to film on time."</p>

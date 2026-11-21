@@ -31,9 +31,9 @@ chapter = 887
 <p>His thumb traced her jawline, brushing wet silver hair from her cheek. "I went too far."</p>
 <p>Aria stared at him.</p>
 <p>The hurt held for three more seconds. Then the emotion shifted behind her eyes, recognition, warmth, a knowing that ran deeper than the teasing or the jealousy, and a slow smile spread across her face.</p>
-<p>"Got you~" She snickered.</p>
+<p>"Got you" She snickered.</p>
 <p>"What?" Kaiden was confused.</p>
-<p>"I manipulated your manipulation~" Aria giggled, seemingly far too happy with herself.</p>
+<p>"I manipulated your manipulation" Aria giggled, seemingly far too happy with herself.</p>
 <p>"...Explain."</p>
 <p>She pressed her forehead against his, silver eyes dancing inches from his own. "Dummy, what needs explaining here? You knew how I’d react. I knew you knew. So I pretended to be hurt because I knew that when I did that you’d feel so guilty you’d pull me into your lap and apologize with that beyond adorable, stupidly sincere face."</p>
 <p>She traced a wet finger down the bridge of his nose. "You might not realize, but we’re fighting a war, Kai. A quiet little psychological war. Aren’t we basically husband and wife? We know too much about each other..."</p>

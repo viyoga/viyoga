@@ -54,7 +54,7 @@ chapter = 570
 <p>"..."</p>
 <p>Ravenna looked up; she had already sensed a team of extraordinary individuals making their way from the upper city to this dark lower city.</p>
 <p>She rubbed her forehead and, using a flat, emotionless tone, replied:</p>
-<p>"Yes, who could have done it? It's just impossible~ to~ guess."</p>
+<p>"Yes, who could have done it? It's just impossible to guess."</p>
 <p>---</p>
 <p>Author's Note:</p>
 <p>Writing a novel is way harder than I thought… Lately, I've had zero stockpiles, frantically writing just to keep up TT I still have to work during the day, going to bed at like 2 or 3 AM and waking up around 8 AM. I feel like I'm practically cultivating immortality here…</p>

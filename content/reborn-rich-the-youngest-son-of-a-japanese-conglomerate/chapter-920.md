@@ -16,12 +16,12 @@ chapter = 920
 <p>The sharp Fangs unique to vampires brushing lightly now and then, giving goosebump-inducing pleasure intermittently, was also a benefit of Otagi Yuka's special fellatio.</p>
 <p>"Kheu-eueut...! I'm cumming!"</p>
 <p>Unable to withstand Otagi Yuka's persistent mouth attack for over ten minutes, my cock ejaculated semen into Otagi Yuka's mouth. Gulping and gurgling, as my cock, which had continuously spurted semen, quieted down, Otagi Yuka, as if it were a waste, sucked and drank the remaining semen from my urethra. Perhaps because of the urethra cleaning, my cock, which was starting to go soft, hardened again.</p>
-<p>"Beh~♥"</p>
+<p>"Beh♥"</p>
 <p>After spitting out my cock, Otagi Yuka opened her mouth and showed the semen remaining on her tongue. Because my ejaculate volume was so large, even though she had swallowed it down her throat with gulping sounds during ejaculation, there was still quite a lot of semen left in her mouth.</p>
 <p>"Haaah.... I feel like I can live now."</p>
 <p>As she consumed my semen, Otagi Yuka's slightly hasty and irritable attitude from moments ago disappeared. Because a lack of vital energy would make her lose her Fading Reason, Otagi Yuka had urgently sucked my cock, and I, too, had not held back and immediately ejaculated semen into her mouth.</p>
 <p>"Are you okay now?"</p>
-<p>"No, not yet~♥ Since you've filled my upper mouth, now fill my lower mouth too♥"</p>
+<p>"No, not yet♥ Since you've filled my upper mouth, now fill my lower mouth too♥"</p>
 <p>Otagi Yuka, as if one serving of my semen wasn't enough, placed her hands on the Front Door, looked at me, swayed her buttocks enticingly, and seduced me. Perhaps because she had vigorously shaken her Head while performing Fellatio, her Bangs had fallen, which felt a bit new.</p>
 <p>At her seductive Appearance, I began to touch Otagi Yuka's panties, which were now full of Steamy Moisture. Because a lot of vaginal fluid had flowed out, Otagi Yuka's panties clung tightly with a sticky feeling and moisture, revealing the outline of her pussy.</p>
 <p>"Haa-euh-heung...! Teacher-ssi, your fingers feel good, haaang♥"</p>

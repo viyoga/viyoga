@@ -35,7 +35,7 @@ chapter = 49
 <p>"So, what you mean is —" Ansel's smile brightened.</p>
 <p>"You need my help, right?"</p>
 <p>The footsteps grew closer, and Seraphina could already hear the angry shouts outside.</p>
-<p>"Tick-tock, tick-tock~"</p>
+<p>"Tick-tock, tick-tock"</p>
 <p>Ansel mimicked the sound of a clock as he crouched down, gazing at Seraphina. "Time is running out, Miss Seraphina. You know what to say, don't you?"</p>
 <p>What would happen if I get caught? Would they think poorly of Hydral because of me? Would Marlina be angry? Do I have the right to demand a trial again? Hydral… what would Hydral do then?</p>
 <p>Does he... look down on me now?</p>

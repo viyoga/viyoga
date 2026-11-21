@@ -5,7 +5,7 @@ weight = 386
 chapter = 386
 +++
 
-<p>"Nghnnn~~ y-yeah," Evelyn nodded, her face flushed as her eyes darted between Ethan and Alice.</p>
+<p>"Nghnnn y-yeah," Evelyn nodded, her face flushed as her eyes darted between Ethan and Alice.</p>
 <p>The blonde beauty wasn’t at all happy that she couldn’t accompany her husband on this military campaign, but what could she do?</p>
 <p>She was pregnant.</p>
 <p>The child in her womb was being nourished perfectly thanks to the fruits of the Tree of Life, and she remained under the constant care of Arwen, who cast various life-nourishing spells upon her whenever possible.</p>

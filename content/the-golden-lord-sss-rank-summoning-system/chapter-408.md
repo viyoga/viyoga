@@ -55,7 +55,7 @@ chapter = 408
 <p>The Empress was already raising the goblet to her lips once more when, suddenly, she froze. It halted in midair, a finger’s breadth from her mouth.</p>
 <p>Her eyes flashed, and in the next instant, she was on her feet.</p>
 <p>The servant stared up at her with a puzzled expression, not understanding a thing, while a sweet cackle spilled from her mistress’s lips and spread through the dark hall.</p>
-<p>"Ah... my dear, sweet Blood Emperor... it’s you, isn’t it? I know it is! Fufufufu~"</p>
+<p>"Ah... my dear, sweet Blood Emperor... it’s you, isn’t it? I know it is! Fufufufu"</p>
 <p>The Empress stepped down from the throne.</p>
 <p>Her enormous breasts bounced with every step down the long black staircase.</p>
 <p>They were far too heavy for the neckline to hold in place, and each footfall sent them heaving upward before gravity dragged them back down, the two pale mounds colliding against one another in a slow, voluptuous sway.</p>

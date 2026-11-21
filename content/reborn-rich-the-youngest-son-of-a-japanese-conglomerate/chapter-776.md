@@ -50,7 +50,7 @@ chapter = 776
 <p>"It was crowded then, so I couldn't get Uenozono Karen-yang's photo Card signed. Please get me a photo Card with Uenozono Karen-yang's signature."</p>
 <p>"That's not difficult."</p>
 <p>It wasn't a more difficult Request than I had worried about. I just needed to ask Uenozono Karen for her signature, and since I had the Data for the photo Card, I could print it again. I nodded my Head at Takakusaki Athena's Condition, and Takakusaki Athena, whose Turn it was, excitedly began choosing her slice cake.</p>
-<p>"Well then~!"</p>
+<p>"Well then!"</p>
 <p>Takakusaki Athena, who had packaged strawberry cream Cheese flavor, rich chocolate flavor, and honey and Shiga Kogen Milk flavor slice cakes, waved her Hand at me and the Students and entered the Sanzokuyaki Store we had just come out of.</p>
 <p>By the way, our routes subtly overlap.... Did she see the same recommended Travel route on the internet?</p>
 <p>"Teacher! What are you doing? You should catch her and Torture her right now...!"</p>
@@ -87,10 +87,10 @@ chapter = 776
 <p>"Unfortunately, it's not content suitable for a reporter."</p>
 <p>As expected, both of them had asked out of Intrigue, not as Class President or Vice President.</p>
 <p>Still, I had the Goal of finding Takakusaki Athena, and since I had fortunately achieved that, today was a rather lucky day.</p>
-<p>Requested by Gojoy-nim~! Of Daigo Terue (Headmaster of St. Francis Girls' Academy) Suit, Underwear, Belly Dancer, and Naked Body Illustrations~!</p>
-<p>Suit~!!</p>
+<p>Requested by Gojoy-nim! Of Daigo Terue (Headmaster of St. Francis Girls' Academy) Suit, Underwear, Belly Dancer, and Naked Body Illustrations!</p>
+<p>Suit!!</p>
 <p>Because the Stockings' texture was good, I mainly created illustrations of her sitting, hehe.</p>
-<p>Underwear~!</p>
-<p>Belly Dancer~!</p>
-<p>Naked Body~!</p>
-<p>Kkiyoooot~!</p>
+<p>Underwear!</p>
+<p>Belly Dancer!</p>
+<p>Naked Body!</p>
+<p>Kkiyoooot!</p>

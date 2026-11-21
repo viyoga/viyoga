@@ -19,16 +19,16 @@ chapter = 248
 <p>It succeeded.</p>
 <p>With a final erratic rage against the wind that was undoing it, the column of flame finally dispersed into nothing.</p>
 <p>From the moment the funnel of wind made an appearance though, Caius had pulled one of his hands back to begin forming seals, leaving the job of keeping up the flame column to a single hand. He did this because he knew he couldn’t resist Cynthia’s unraveling for long anyway and it would just sap his mana to try. So instead, he decided to pivot and attack what she had most in her favor; Her Mana reserves.</p>
-<p>By the time his ~Erratic Fireball~ cast was dispersed, his seal forming was complete and a purple spell circle appeared to conjure darts of Dark Magic that went flying at the Combat Magic Professor.</p>
-<p>While those were still in the air, Caius cast the ~Dark Missiles~ spell two more times, essentially unleashing a barrage of Dark Magic darts to fly at her from all directions. Darts that could not be dodged and would follow until they made contact with her body or were destroyed.</p>
+<p>By the time his Erratic Fireball cast was dispersed, his seal forming was complete and a purple spell circle appeared to conjure darts of Dark Magic that went flying at the Combat Magic Professor.</p>
+<p>While those were still in the air, Caius cast the Dark Missiles spell two more times, essentially unleashing a barrage of Dark Magic darts to fly at her from all directions. Darts that could not be dodged and would follow until they made contact with her body or were destroyed.</p>
 <p>"Another Creation of yours, perhaps?" Cynthia said and it was unclear if she was just saying that because Caius admitted to creating the last spell he cast against her or because she sensed something in the Dark Magic darts—or the spell circles they were flying out of—that hinted at Caius being their creator.</p>
 <p>Aiming to keep to her end of the deal for the duel as best as she could, Cynthia didn’t rely on her insanely incredible reflexes. She faced the threat of the darts as she would as a Third Circle Mage which, she essentially was at the moment.</p>
 <p>She cast a Third Circle movement spell and began to glide out of the way of the darts, avoiding getting struck by them, sometimes by an inch at best. But as she moved, she was already casting a different spell which she used to summon a small Spell circle that crackled with electricity.</p>
-<p>The spell circle became lightning arrows about as small as the Dark Magic darts but definitely much faster simply on account of Lightning being the quicker element of the two. Most especially in this case. The darts of the ~Dark Missiles~ spell were fast but certainly not lightning-fast.</p>
+<p>The spell circle became lightning arrows about as small as the Dark Magic darts but definitely much faster simply on account of Lightning being the quicker element of the two. Most especially in this case. The darts of the Dark Missiles spell were fast but certainly not lightning-fast.</p>
 <p>Caius frowned as he watched Cynthia destroy dart after dart but he wasn’t upset. While he would have preferred to succeed with his surface-level goal that was so easy to avoid—as Cynthia was gracefully proving—this was not bad either.</p>
 <p>He had only a few seconds of her being focused on the darts to act so he studied her trajectory. He studied how she moved and mapped out where she would be a few seconds into the future. It was there that he picked as his target.</p>
 <p>He formed the required seals and bid his time, holding off on unleashing his prepared spell, and then...</p>
-<p>~Erratic Fireball!~</p>
+<p>Erratic Fireball!</p>
 <p>... He fired.</p>
 <p>The ball of flame shooting out flares of his built-in instability was let loose.</p>
 <p>Cynthia was in the midst of basically sliding backwards with the grace of a dancer when her incredible senses detected the coming attack. She was already on track to collide with it and to avoid that, she would need to react with reflexes at least a few more Circles above the Third which she decided not to do.</p>
@@ -41,6 +41,6 @@ chapter = 248
 <p>His brows were furrowed as he carried out his follow-up.</p>
 <p>He had known where Cynthia would be after getting hit. He wasn’t surprised she remained standing because the one thing she couldn’t nerf herself on for this duel, was her durability.</p>
 <p>Caius had a cast prepared just as Cynthia landed on her feet after a few seconds in the air. He raised one of his hands and a small spell circle appeared above it as one that was at least ten times larger appeared above Cynthia’s head.</p>
-<p>~Black Hand!~</p>
+<p>Black Hand!</p>
 <p>An overbearing sort of energy poured out of the massive spell circle above and from it came a massive smoky black hand that struck down on Cynthia immediately, hitting the ground with quite a bit of impact that enveloped Cynthia in the dark smoke that seemed to have made up the hand.</p>
 <p>*BAM!!!*</p>

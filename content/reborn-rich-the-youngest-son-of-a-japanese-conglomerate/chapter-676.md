@@ -9,7 +9,7 @@ chapter = 676
 <p>Naturally, the sex competition between the two was won by me, not either of them. I already had a lot of documents to process before the TG Tech firearms were released, so I used all my sex skills to turn them into pleasure-soaked messes and threw them on the bed before getting back to work on the documents.</p>
 <p>,Huu.... I'm finally done."</p>
 <p>I skipped dinner after sex to work on the documents, so I was getting hungry. Since I couldn't eat dinner alone, I should call the two who were sprawled out on the bed, right?</p>
-<p>,Yuka~! Shii~! What do you want for dinner?"</p>
+<p>,Yuka! Shii! What do you want for dinner?"</p>
 <p>When I called, Otagi Yuka and Seizawa Shii came out, dressed in light clothes, as if they had come to their senses while I was working on the documents. They were both wearing my short-sleeved T-shirt and briefs, and that look was subtly sexy.</p>
 <p>,I want to eat something hearty like a donburi today. I'm hungry after sweating so much."</p>
 <p>,I'm a little cold, so I want to eat sundubu-jjigae (soft tofu stew)."</p>
@@ -19,17 +19,17 @@ chapter = 676
 <p>This battle of nerves was actually because of Seizawa Shii, who was jealous of Otagi Yuka for having the key to my house. Of course, it hadn't been many days since I'd been with Shii, so I didn't have time to give her a key, and there was a lot of sensitive information in my house besides the fact that I was Taira, so I wasn't even thinking about giving Shii a key since I wasn't sure if she would be on my side yet.</p>
 <p>,Regardless of who I favor more, Yuka was given the key because she decided to work with me on a business even after graduation. Shii also knows this well, but security is important in these matters."</p>
 <p>,Is that so? Yuka decided to work with Ryuta-jji after graduation."</p>
-<p>Seizawa Shii looked a little relieved at my explanation. She didn't say anything like, 'I want to work with you after graduation too~!' to me, whether she was planning to continue as a freelance troubleshooter or if she had other ideas.</p>
+<p>Seizawa Shii looked a little relieved at my explanation. She didn't say anything like, 'I want to work with you after graduation too!' to me, whether she was planning to continue as a freelance troubleshooter or if she had other ideas.</p>
 <p>I was rather relieved by that reaction, because I had some ideas about Seizawa Shii's future, so I was thinking of guiding her to go in a different direction rather than sticking with me. Her role as a freelance troubleshooter isn't bad as it is.</p>
 <p>,Sorry for being so cranky, Yuka-jjing."</p>
 <p>,No, it was understandable that you misunderstood. The problem is the teacher-ssi who's meeting women like an octopus."</p>
 <p>In the end, I became the troublemaker? We bickered for a while, but the food came soon after, so this topic quickly passed.</p>
 <p>,Everyone burned a lot of calories, so eat a lot."</p>
-<p>,Okay~! I'll enjoy the meal, Ryuta-jji!"</p>
+<p>,Okay! I'll enjoy the meal, Ryuta-jji!"</p>
 <p>,I drank a lot of teacher-ssi's milk, but I'll enjoy the sundubu-jjigae (soft tofu stew) too."</p>
 <p>Everyone was hungry, so we ate dinner making only clattering sounds. Seizawa Shii and Otagi Yuka exchanged each other's food as if they had never had a war of nerves, and had a friendly dinner.</p>
 <p>,Huu...! I'm finally full."</p>
-<p>,I enjoyed the meal, Ryuta-jji~!"</p>
+<p>,I enjoyed the meal, Ryuta-jji!"</p>
 <p>,Sundubu (soft tofu) is always delicious."</p>
 <p>After finishing the meal and cleaning up, we looked at each other. The expressions that asked 'What should we do now?' gradually changed to eyes that looked at me stickily.</p>
 <p>,Ryuta-jji was too stormy earlier.... Now, be gentle."</p>
@@ -53,9 +53,9 @@ chapter = 676
 <p>-Yong-tae-yaa, I'm tired....</p>
 <p>I feel a little sorry when I think about how she must have worked hard for days without getting enough sleep to prepare for the release. Of course, I also processed some documents in Japan, but Han Yu-gyeong, Lara Sinclair, Eve, etc. must have had a much harder time than me, who was stuck here.</p>
 <p>,I'm sorry. I couldn't help much. But you did a great job with the presentation, right?"</p>
-<p>-No~! Yong-tae did everything he had to do. Were you watching the release announcement?</p>
+<p>-No! Yong-tae did everything he had to do. Were you watching the release announcement?</p>
 <p>,Of course. If I don't watch it, who will?"</p>
-<p>-Okay~! I feel energized when you say you watched it, Yong-tae. I'll hang up for now. Sales will start soon~!</p>
+<p>-Okay! I feel energized when you say you watched it, Yong-tae. I'll hang up for now. Sales will start soon!</p>
 <p>It took time to release the announcement, so sales will start in less than an hour. I can stay up for about a day, but the situation won't change if I don't sleep.... Should I go to sleep?</p>
 <p>I took my phone and lay down on the bed. I didn't fall asleep right away, and I was searching for TG Tech to read news articles, and most of the articles said that there were long lines at most American gun stores since yesterday to buy TG Tech's guns.</p>
 <p>It seemed like there were many people who wanted to try it because a new technology called an energy gun had come out. I felt pretty good that I could finish with good news before going to bed. Hmm.... Should I read one more article before going to bed? I wanted to keep reading these good news articles.</p>

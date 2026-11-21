@@ -93,7 +93,7 @@ chapter = 385
 
 <p>Ruxue stopped the movement of her head for a brief moment, keeping Qingyi’s cock inside her, swallowing fat spurt after fat spurt of cum.</p>
 
-<p>“Ah… nghnn~~” Ruxue finally pulled back, panting heavily, placing her hand on her slim, elegant belly.</p>
+<p>“Ah… nghnn” Ruxue finally pulled back, panting heavily, placing her hand on her slim, elegant belly.</p>
 
 <p>Raising her beautiful eyes to Qingyi, she stood up, exchanging caresses with Qingyi for a little while before finally returning to the world of the mind.</p>
 

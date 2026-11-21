@@ -63,7 +63,7 @@ chapter = 692
 <p>When I said that while grabbing Minamoto Risa's thin waist, Minamoto Risa smiled and asked me. In fact, I had never heard the word "teacher" from Minamoto Risa.</p>
 <p>Otagi Yuka and Kujo Kina also call me "Teacher-ssi" or "Teacher" to some extent, but Minamoto Risa did not call me "Teacher" because of her trauma from her former homeroom teacher. She called me "you" or omitted the subject at the beginning of the semester.</p>
 <p>"Of course, I'm a teacher because I teach you."</p>
-<p>"Is that so? Then.... Teacher~♥ Can you teach me this position too?"</p>
+<p>"Is that so? Then.... Teacher♥ Can you teach me this position too?"</p>
 <p>At the unexpected word "teacher" from Minamoto Risa's mouth, my dick was already raging and standing so stiff that it touched my navel.</p>
 <p>"I'll teach you everything Risa wants me to teach you...!"</p>
 <p>Tjjeolkeok...!</p>

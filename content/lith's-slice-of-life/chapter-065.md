@@ -33,7 +33,7 @@ Lith didn’t say anything anymore and got down for business. He licked her clit
 
 This continued for a bit and Lith put his fingers inside her and started fingering her.
 
-“Mhmm~”
+“Mhmm”
 
 Lilith moaned a little from his fingering. She had missed this a lot. She was very happy to get intimate again with her baby like this and this only made her become wet more and more as Lith went onto finger her.
 

@@ -22,7 +22,7 @@ chapter = 667
 <p>,Kyaa, what's this coming out of Ryuta-jji's dick hole?"</p>
 <p>Seizawa Shii screamed in surprise as the Cowper's fluid oozed out due to the stimulation. Then, she took a bit of the Cowper's fluid with her finger and rubbed it.</p>
 <p>,Didn't you learn about it in sex education? That's Cowper's fluid."</p>
-<p>,Ah, is that it? It's slippery and feels weird~☆"</p>
+<p>,Ah, is that it? It's slippery and feels weird☆"</p>
 <p>Seizawa Shii was delighted when I explained it to her. She had a proud expression, as if she had succeeded in something, as a direct phenomenon showing my arousal occurred. She seemed happy that she had given me pleasure herself.</p>
 <p>,Now, suck it with your mouth instead of your hand."</p>
 <p>,W-with my mouth? Isn't it too big? Ryuta-jji's dick is bigger than uncut futomaki (Japanese-style kimbap)?"</p>
@@ -54,7 +54,7 @@ chapter = 667
 <p>I took a step back and looked at Seizawa Shii's naked body. Seizawa Shii slightly covered her Pussy with her arms, but subtly gathered her breasts to emphasize them, smiling and looking at me.</p>
 <p>Looking at it like this, it's another mystery. She's strong enough to crush a light truck, but she's not muscular. Looking at it like this, she just has a somewhat firm body. I wonder what the source of her strength is.</p>
 <p>Looking at her pose, she seemed quite confident in her breasts. Of course, as Seizawa Shii was confident, they were quite beautiful breasts. Not too big, just the right size, large white breasts. They were the kind of breasts that someone with no patience would touch without realizing it.</p>
-<p>,Haaang...! Ryuta-jjii~ I'll be surprised if you touch me suddenly♥"</p>
+<p>,Haaang...! Ryuta-jjii I'll be surprised if you touch me suddenly♥"</p>
 <p>That impatient person was me. Seizawa Shii's elastic and bouncy breasts gave a different feeling than touching them over her bra. Perhaps because it was bare skin, the sense of closeness was better, making the feeling of touching them even better?</p>
 <p>,Shii's breasts are so pretty that I touched them without realizing it."</p>
 <p>,Ufufu, were they so pretty that you couldn't resist?"</p>

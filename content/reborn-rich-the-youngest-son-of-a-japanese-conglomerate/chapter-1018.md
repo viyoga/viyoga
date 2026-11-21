@@ -74,7 +74,7 @@ chapter = 1018
 <p>I gave Liz an Explanation and entered the empty booth. Then, I decided on the photo's theme and various Settings, and pointed to where the Camera was.</p>
 <p>"Just look there."</p>
 <p>"There, you mean...?"</p>
-<p>-Cheese~!</p>
+<p>-Cheese!</p>
 <p>When I smiled at the sound of "cheese" coming from the Machine, a Photo was taken. For the next shots, we took Sticker Photos with poses like finger hearts or kissing on the cheek.</p>
 <p>"And you can decorate each Photo however you want."</p>
 <p>"I will try to decorate it splendidly, my dear."</p>
@@ -97,7 +97,7 @@ chapter = 1018
 <p>"Liz, is there a song you want to sing too?"</p>
 <p>"Fufufu, give me the Microphone."</p>
 <p>Did Liz know any songs? As I wondered and handed over the Microphone, Liz sang without selecting a song.</p>
-<p>It was a song sung like "La~♪ La~♬" without Lyrics, but Liz's Voice and melody were so beautiful that I unconsciously fell completely under their spell.</p>
+<p>It was a song sung like "La♪ La♬" without Lyrics, but Liz's Voice and melody were so beautiful that I unconsciously fell completely under their spell.</p>
 <p>As I listened to her Singing blankly, Liz laughed, saying, 'Ufufufu,' and returned the Microphone to me. My blank Expression must have been a little funny.</p>
 <p>"Liz, that was incredibly good...! What song was that?"</p>
 <p>"Where do you think the Singing skill of Siren, one of my vassals, came from?"</p>
@@ -110,18 +110,18 @@ chapter = 1018
 <p>"Fufufu.... As you said, it was quite a dense date."</p>
 <p>In fact, we had intended to watch a Movie too, but we ran out of time and skipped it. After finishing our meal with various Conversations, we went to the nearby department store Parking Lot, got back into my car, and headed to the next date course.</p>
 <p>In fact, one could say the date ended with the Evening meal. After all, the Last course was a hotel where we would taste each other's bodies and share love.</p>
-<p>Liz B-cut~!</p>
+<p>Liz B-cut!</p>
 <p>This red attire was also considered for the date attire, but Clothes closer to casual wear were chosen haha.</p>
-<p>Chomisaemeonji-nim requested Office Look Liz, Nurse Liz~!</p>
-<p>Office Look~!</p>
-<p>Nurse Liz~!</p>
+<p>Chomisaemeonji-nim requested Office Look Liz, Nurse Liz!</p>
+<p>Office Look!</p>
+<p>Nurse Liz!</p>
 <p>I prefer the nurse attire more haha.</p>
-<p>TheDreaming-nim requested Ryuta using Creation Chaos Style Earth Vein Drawing/Star Shattering~!</p>
-<p>Earth Vein Drawing~!</p>
-<p>Star Shattering~!</p>
-<p>Kkiyot~!</p>
+<p>TheDreaming-nim requested Ryuta using Creation Chaos Style Earth Vein Drawing/Star Shattering!</p>
+<p>Earth Vein Drawing!</p>
+<p>Star Shattering!</p>
+<p>Kkiyot!</p>
 <p>Gojoy-nim requested Taira Camilla with her hair down, her Rest attire when resting, and Shower.</p>
-<p>Rest attire~!</p>
+<p>Rest attire!</p>
 <p>When Camilla rests, she wears a babydoll similar to what was uploaded before haha.</p>
-<p>Shower~!</p>
+<p>Shower!</p>
 <p>Since it's a Character whose Sex status hasn't been decided yet, I made the shots without showing her nipple haha.</p>

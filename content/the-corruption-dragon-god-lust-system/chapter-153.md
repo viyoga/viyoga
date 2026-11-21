@@ -81,7 +81,7 @@ chapter = 153
 
 <p>“It’s working!” Qingyi smiled, grabbing the immortal Qi crystal and pushing it against the blade of the heaven-defying dragon.</p>
 
-<p>“What are you-? nghnn~~” Ruxue’s questioning was interrupted by a loud groan as she felt a strange change in her body.</p>
+<p>“What are you-? nghnn” Ruxue’s questioning was interrupted by a loud groan as she felt a strange change in her body.</p>
 
 <p>She looked at the crystal in Qingyi’s hands, still absorbing the Qi crystals on the ground as it slowly melted on the blade of the sword.</p>
 

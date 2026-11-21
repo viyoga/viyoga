@@ -6,7 +6,7 @@ chapter = 540
 +++
 
 <p>After finishing buying souvenirs, we had lunch. Although there were Mot Burgers or Jetria in the amusement park, we could eat franchise burger joints anytime, so we had lunch at a restaurant in the amusement park.</p>
-<p>,Hmm...! It's not very good, just like I remember~☆,</p>
+<p>,Hmm...! It's not very good, just like I remember☆,</p>
 <p>As expected, it wasn't that delicious because it was the amusement park's own restaurant. The special class students had already been here in middle school and knew the taste, so they all ate it, saying it was a taste of memories. Of course, even if it's a taste of memories, it doesn't mean it's all delicious, but everyone seemed to have burned a lot of calories riding the roller coaster, so even though they said it wasn't good, they ate it all without leaving any.</p>
 <p>The special class girls, who had regained their energy with lunch, scattered back into the amusement park and began to enjoy the rides, and I had to ride each ride once with the female students in turn, like some kind of rite of passage.</p>
 <p>Almost all of the rides at Fuji-Q Highland were outside, so they didn't operate at night. As soon as it hit 6 PM, it was over, so I kept moving from one student to another without a break, constantly riding roller coasters.</p>
@@ -21,12 +21,12 @@ chapter = 540
 <p>Of course, as it was a barbecue party for young ladies of prestigious families, all the beef was top-grade Wagyu, the pork was the finest product made by crossbreeding Duroc and Kumamoto black pork, and the shrimp were expensive ones that cost 5,000 yen per 100 grams. It was an excessively expensive price for a dozen people to eat at once, but I had a lot of money. I also had Danjo-halbae's corporate card, so I bought the barbecue ingredients with the corporate card.</p>
 <p>After a short preparation, we sat around a huge grill table, put the meat and various ingredients we would eat in front of us, and waited for them to cook. The delicious smell of meat and shrimp cooking over charcoal stimulated our noses.</p>
 <p>We prepared not only salt and pepper but also other seasonings and herbs so that each person could sprinkle them according to their taste.</p>
-<p>,Hmm~! It's definitely delicious because lunch wasn't very good!,</p>
+<p>,Hmm! It's definitely delicious because lunch wasn't very good!,</p>
 <p>,It's true that lunch wasn't very good when I came to Fuji-Q Highland on a middle school picnic.,</p>
-<p>,Memories~!,</p>
+<p>,Memories!,</p>
 <p>,Memories!,</p>
 <p>While everyone was reminiscing about their middle school memories, Alik, who only had memories of being sold around to slave traders at that age, was diligently grilling and eating meat.</p>
-<p>,Ryuta, ah~.,</p>
+<p>,Ryuta, ah.,</p>
 <p>Alik brought a well-grilled piece of meat to my mouth. I ate the meat that Alik grilled. Hmm, it's well-grilled meat. The meat sprinkled with the few seasonings and herbs that Alik chose was quite delicious.</p>
 <p>,Is it delicious...?,</p>
 <p>,Yes, it's very delicious.,</p>

@@ -45,7 +45,7 @@ chapter = 372
 <p>Did I say it too seductively? Sakagami Rena nodded slightly at my words. And she said in a voice that could barely be heard, "I'll think about it." Yeah, this is enough for now.</p>
 <p>After sending Sakagami Rena back to her seat, I came back to my seat and all the students were there. Kijimoto Jurie was also wearing a plain one-piece swimsuit, but because she had such a good body, the plain swimsuit became like she was wearing a very lewd and obscene cosplay.</p>
 <p>"...."</p>
-<p>"Ooh~! Ryuta-cchi! Nice body?"</p>
+<p>"Ooh! Ryuta-cchi! Nice body?"</p>
 <p>When I returned to my seat, the female students' attention was focused on me, and most of them were blushing while looking at my body, and only Seizawa Shii was looking over my body while saying lines like a perverted old man doing sexual harassment.</p>
 <p>She ignored me all day during the love potion sheet incident, but look at her pretending to be strong in front of her classmates. If you look closely, Seizawa Shii was also blushing.</p>
 <p>It's my fault that my body is too sexy. But I can't help it. I came to the beach, so I can't be all covered up.</p>

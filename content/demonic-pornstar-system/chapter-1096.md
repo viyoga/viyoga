@@ -46,7 +46,7 @@ chapter = 1096
 <p>"May I have a look when you’re done?"</p>
 <p>"Perhaps... If I’m happy with the end result."</p>
 <p>"It’ll be perfect, I’m sure."</p>
-<p>"Hmm... Flattery will get you a lot of things from me, but this isn’t one of them, Kai~"</p>
+<p>"Hmm... Flattery will get you a lot of things from me, but this isn’t one of them, Kai"</p>
 <p>On the other sofa, Calypso made a soft, deeply interested sound.</p>
 <p>"Oh, Darling. Look at this."</p>
 <p>She turned her cookbook toward him, displaying a photograph of a roast beneath a glossy brown sauce. The neck of her loose black pajama shirt dipped as she leaned forward, and Kaiden took a moment to admire the red cleavage above it before examining dinner.</p>

@@ -75,7 +75,7 @@ chapter = 75
 <p>In his mind, Milia was always this serious and steady woman who sometimes spoiled him too much. Seeing her blush and stammer as she acted like a little girl was a sight that soothed his heart greatly.</p>
 <p>This also made him understand once again that even the people closest to him had different sides to them that he did not know.</p>
 <p>It would be stupid of him to presume the opposite. Seeing the naked body of your partner didn't mean that you saw his or her naked heart. It was important to not become complacent if one wished for a long and happy relationship.</p>
-<p>"Hahaha~ No worries. I must say that it was rather entertaining."</p>
+<p>"Hahaha No worries. I must say that it was rather entertaining."</p>
 <p>It was when just as he was about to begin teasing her,</p>
 <p>*Knock* *Knock* *Knock*</p>
 <p>An old and calm voice sounded after three knocks on the door,</p>

@@ -86,7 +86,7 @@ chapter = 1022
 <p>Aria hugged Kaiden’s arm as they continued toward the elevators, her own giggles warm against his shoulder.</p>
 <p>"My poor Kai."</p>
 <p>"You don’t sound very sorry for me."</p>
-<p>"I’m trying~"</p>
+<p>"I’m trying"</p>
 <p>"The yandere chick is digging how the other chicks looked at you now," Calypso translated for her Darling.</p>
 <p>"A lot of depraved chicks would absolutely adore a vampire boyfriend, though," Luna mused.</p>
 <p>"I refuse to believe that there are women who thought what Kai did was sexy," Alexandra contested. "I get some might find a dangerous, blood-sucking vampire boyfriend appealing, but he literally immobilized her within seconds..."</p>

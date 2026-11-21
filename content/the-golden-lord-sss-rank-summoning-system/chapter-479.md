@@ -26,7 +26,7 @@ chapter = 479
 <p>"No..." Hilda shook her head slowly, without taking her eyes off the screen. "It must have been after my death. But to have an item like this named after him, he must have been a truly fearsome figure."</p>
 <p>Ethan agreed. In a world where naval battles almost always took place blindly—without radar or satellite systems to locate the enemy—an ability capable of essentially pinpointing any fleet at any moment was simply too powerful.</p>
 <p>Whoever held that power decided when to fight, where to fight, and whether the enemy would even be able to escape.</p>
-<p>"Hm... let’s talk more about this tomorrow, pillow" Hilda yawned, letting her body drop back against him. Her heavy breasts flattened against Ethan’s chest as she hugged him tightly once more. "At least it was worth waking me up for this, fufufu~"</p>
+<p>"Hm... let’s talk more about this tomorrow, pillow" Hilda yawned, letting her body drop back against him. Her heavy breasts flattened against Ethan’s chest as she hugged him tightly once more. "At least it was worth waking me up for this, fufufu"</p>
 <p>The handsome young man nodded, letting out a long sigh and closing his eyes as well.</p>
 <p>Her warmth, the scent of salt and skin rising from her hair—all of it was pulling him back into sleep. But for quite a while, his mind kept circling back to that screen.</p>
 <p>Tomorrow would be a big day. He’d finally be able to test out that new, totally stolen ability.</p>

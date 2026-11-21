@@ -15,7 +15,7 @@ chapter = 176
 
 <p>Lily ate with immense satisfaction. All the way back to the city, she kept rubbing her stomach, complaining she was too full, that she’d gotten too fat and wouldn’t be able to lose the weight later.</p>
 
-<p>&quot;May the heavens bless me, let all the fat go to my breasts~&quot;</p>
+<p>&quot;May the heavens bless me, let all the fat go to my breasts&quot;</p>
 
 <p>Luis couldn’t control his lewd grin.</p>
 
@@ -63,7 +63,7 @@ chapter = 176
 
 <p>&quot;Get out of here, stop bragging! Hurry up and take them off!&quot;</p>
 
-<p>Yana’s playful side emerged too. She licked her lips, putting on a devilish expression, and said in a very sexy, tempting voice, &quot;Be a good boy and take your pants off~ Let Auntie play with you and give your body a check up.&quot;</p>
+<p>Yana’s playful side emerged too. She licked her lips, putting on a devilish expression, and said in a very sexy, tempting voice, &quot;Be a good boy and take your pants off Let Auntie play with you and give your body a check up.&quot;</p>
 
 <p>Combined with her current pink nurse uniform, it was undeniably titillating. Especially since they were bantering like this right in front of Lily, who was already giggling uncontrollably.</p>
 

@@ -57,7 +57,7 @@ Thinking so, Lith sprung into action by holding Emilia's waist and moving his hi
 
 Pah! Pah! Pah! 
 
-"Ahh!~ Yes! Yes!"
+"Ahh! Yes! Yes!"
 
 The intense thrusts resulted in loud slapping noises and Emilia liked it, evident from her happy moans.
 
@@ -77,7 +77,7 @@ A series of powerful thrust followed after, not letting Emilia even breathe.
 
 Spurrrtt! 
 
-"Ohhhhhhh!~"
+"Ohhhhhhh!"
 
 Emilia's juices squirted out like a waterfall and she fell down on the bed, lost in the heavenly pleasure.
 

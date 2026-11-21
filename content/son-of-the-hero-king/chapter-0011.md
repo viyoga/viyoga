@@ -34,7 +34,7 @@ chapter = 11
 <p>A teasing smile formed on her face as she uttered her following words.</p>
 <p>"Sol. Are you interested in becoming a monster like them?"</p>
 <p>Sol simply smiled thinly as a response. Some words once said were only cheapened. Sometimes, the silence was the best answer to a question. A man of great aspirations, he didn't wish to live under the shadow of his family all his life. He wanted to be his own person and create his own future — a future uninfluenced by others.</p>
-<p>"Fufufu~! Now that the pep talk is finished let's go back to more pressing matters... Your awakening. Sol, give me a summary of what you know about the awakening."</p>
+<p>"Fufufu! Now that the pep talk is finished let's go back to more pressing matters... Your awakening. Sol, give me a summary of what you know about the awakening."</p>
 <p>Sol slowly stirred his tea with his spoon as he mulled over his thoughts, organizing the information in his head in the most concise way possible, before finally answering.</p>
 <p>"Humans are the sole race on this world unable to use mana from birth and also the sole race unable to use magic naturally. This situation can only be redeemed once they reach their fifteenth birthday and go through a ritual which is collectively called as the Awakening. From that moment on, they can use mana. But only mana. Not magic."</p>
 <p>"What is the difference between mana and magic?"</p>

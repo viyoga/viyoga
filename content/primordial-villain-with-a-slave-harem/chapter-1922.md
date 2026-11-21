@@ -31,7 +31,7 @@ chapter = 1922
 <p>Vex had voted yes twice, for emphasis.</p>
 <p>"Name?" Vex asked brightly, quill poised, red eyes shining with civic enthusiasm.</p>
 <p>"M-Mara, my lady. Mara Wint. I have two boys. I kept a tavern kitchen before the war took... before." Her hands strangled each other at her waist. "I can cook for a hundred. I swear I can cook. Just give me the opportunity."</p>
-<p>"Wonderful~! One small formality." Vex turned the smile up a notch. "Master? She’s ready."</p>
+<p>"Wonderful! One small formality." Vex turned the smile up a notch. "Master? She’s ready."</p>
 <p>The woman beside Vex had not smiled all morning, or, by most accounts, ever.</p>
 <p>Black Fang set the collar on the table between them: plain slave iron, rune-cut, the same pattern that rode her throat back in Elvardian captivity.</p>
 <p>Locked shut, it took refusal away. Asked a question by the hand that closed it, the woman inside answered, and the runes burned if what came out of her was not the truth.</p>
@@ -43,7 +43,7 @@ chapter = 1922
 <p>Her voice cracked on nothing at all. "That’s everything that’s in me, my ladies. I swear it."</p>
 <p>The runes stayed quiet. Black Fang opened the collar.</p>
 <p>"Acceptable."</p>
-<p>"You passed~!" Vex translated, delighted, stamping the contract. "Kitchen wing, morning shift. Your boys will be educated while you work. Sign here~"</p>
+<p>"You passed!" Vex translated, delighted, stamping the contract. "Kitchen wing, morning shift. Your boys will be educated while you work. Sign here"</p>
 <p>Mara stared at the contract, then at the wage line on it, and her knees quit.</p>
 <p>She went down onto the boards on both of them and stayed there, one hand fisted in the hem of Black Fang’s coat, forehead pressed to her own knuckles, saying thank you over and over into the floor.</p>
 <p>She had walked into that house an hour ago expecting to be turned away at the door.</p>

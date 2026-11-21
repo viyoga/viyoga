@@ -57,13 +57,13 @@ chapter = 333
 <p>"You've also made it onto my list for revenge, Miss Ziegler. I will not forget your betrayal this time."</p>
 <p>Suellen's lips curved into a slight smile, "You will never surpass Miss Marlowe in the eyes of Lord Ansel, which means you are always at risk of being discarded. And when that time comes—"</p>
 <p>"By then, you might want to consider whether you've already been reduced to ashes by the Elder Princess," Ravenna retorted coldly.</p>
-<p>"Oh~ such a strong attack. Did I touch a nerve just now?"</p>
+<p>"Oh such a strong attack. Did I touch a nerve just now?"</p>
 <p>Suellen's eyes twinkled, "I'm terribly sorry, but the truth is as it stands, Miss Ziegler."</p>
 <p>"Compared to Miss Marlowe, who is loyal, adorable, beautiful, with a youthful innocence yet an undeniably sexy figure, and possessing unparalleled potential—"</p>
 <p>She lifted her chin slightly, spewing venomous words without reservation:</p>
 <p>"Your paranoia, self-centeredness, coldness, and generally off-putting personality, coupled with a physique that fails to arouse the slightest interest, not to mention your delusions that no one can comprehend... You are utterly worthless."</p>
 <p>"You are no match for the Elder Princess either—"</p>
-<p>"Hhehe, goodbye then, worthless Miss Ziegler~"</p>
+<p>"Hhehe, goodbye then, worthless Miss Ziegler"</p>
 <p>Without waiting for Ravenna to respond, Suellen's figure faded away. Clenching her fists and bowing her head, Ravenna remained silent for a long while before suddenly unleashing several shots towards the spot where Suellen had been.</p>
 <p>Indeed, from any perspective, whether it be personality or appearance, she couldn't compare to Seraphina.</p>
 <p>The only value Ravenna held, deemed worthless in the eyes of others, was her unique thoughts and abilities, which held unparalleled worth to that only fellow companion. Now, with his departure, the distinction between their statuses… blurred once more, leaving her to persevere alone.</p>

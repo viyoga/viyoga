@@ -71,9 +71,9 @@ chapter = 78
 
 <p>Owen slowly thrust his cock, slick with precum, toward her throbbing fruit—just a gentle thrust for a starter!</p>
 
-<p>&quot;Ngh~hhnn!!!... I-is it... in?... Ngh~hhbnnn!!&quot; Her head rolled backward while her hands scratched the table, looking as if her entire existence was being cleansed.</p>
+<p>&quot;Nghhhnn!!!... I-is it... in?... Nghhhbnnn!!&quot; Her head rolled backward while her hands scratched the table, looking as if her entire existence was being cleansed.</p>
 
-<p>&quot;Not yet, Mom~, the head is not even fully inside...&quot;</p>
+<p>&quot;Not yet, Mom, the head is not even fully inside...&quot;</p>
 
 <p>Owen was not lying, either. He was not even a quarter of the way in, yet her moans were about to shatter the fragile glass windows!</p>
 
@@ -89,17 +89,17 @@ chapter = 78
 
 <p>’ There’s no need for teasing anymore... She’s finally saying it. I think I have completed the teaching quest!’ Owen didn’t have any doubts; she was truly a starved MILF.</p>
 
-<p>&quot;Then take my cock, Mom ~!&quot; Owen’s final seal was officially broken now.</p>
+<p>&quot;Then take my cock, Mom !&quot; Owen’s final seal was officially broken now.</p>
 
-<p>&quot;Ngh~hhnn!!.. ahhhn.. ahhhn.. ahhhn, t-thrust it deeper, my dear... Ahhnn.. Ahnnn, Wen!!&quot;</p>
+<p>&quot;Nghhhnn!!.. ahhhn.. ahhhn.. ahhhn, t-thrust it deeper, my dear... Ahhnn.. Ahnnn, Wen!!&quot;</p>
 
 <p>’Holy... so tight!! Argh, Mom’s pussy is clamping my cock like crazy!’ Owen had barely shoved half of his cock in, as her cervix was so tight. It had clearly healed and narrowed as time went by, becoming incredibly tight.</p>
 
-<p>&quot;Ngh~hnn... I-is... nghnn...&quot; She didn’t finish what she wanted to say because Owen shoved it deeper; he wanted to go all in now!</p>
+<p>&quot;Nghhnn... I-is... nghnn...&quot; She didn’t finish what she wanted to say because Owen shoved it deeper; he wanted to go all in now!</p>
 
 <p>&quot;Hold your moans, Mom... I’m still only halfway.&quot;</p>
 
-<p>&quot;Ngh~hhnn... h-halfway? Are you saying that it’s still... ahhnn.. ahhnn.. ahhnn... h-half... Nghh~hhnn!&quot;</p>
+<p>&quot;Nghhhnn... h-halfway? Are you saying that it’s still... ahhnn.. ahhnn.. ahhnn... h-half... Nghhhhnn!&quot;</p>
 
 <p>&quot;Yes, Mom... Arghh, just hold... your voice...&quot;</p>
 
@@ -111,7 +111,7 @@ chapter = 78
 
 <p>&quot;I didn’t know that this could feel so good. We need to work hard, Mom!&quot;</p>
 
-<p>&quot;Ngh~hhnn... work hard... ahhn... yes... ahhn!&quot;</p>
+<p>&quot;Nghhhnn... work hard... ahhn... yes... ahhn!&quot;</p>
 
 <p>&quot;Yes, Mom, work hard. Now, I’m about to enter fully!&quot; Owen thrust his cock deeper, and the sound of squelching echoed through the small, lovely home.</p>
 

@@ -24,7 +24,7 @@ chapter = 226
 <p>I got a few more items while going around the factories in this area, but they were all prototype guns or discontinued rare guns, so they weren't that useful. I'll just give them to the Seryu-tai members. Still, they're PMC soldiers, so they have some military otaku sensibilities, so they'll like it.</p>
 <p>I stopped by the black market New York branch again, entrusted all the items I had obtained this time, asked them to send them to Japan, and returned to the mansion. When I arrived, it seemed like it was just the right time to eat lunch.</p>
 <p>"I'm back."</p>
-<p>"Oh~! Ryuta, you're still handsome as ever."</p>
+<p>"Oh! Ryuta, you're still handsome as ever."</p>
 <p>Oliver Fitzgerald, who had been on a business trip, must have returned, as he patted me on the shoulder heartily and greeted me.</p>
 <p>"Hello, Uncle."</p>
 <p>"Yes, it's lunchtime, so we can eat together."</p>

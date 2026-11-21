@@ -49,7 +49,7 @@ chapter = 60
 <p>"Mentor-nim, I'm done washing up."</p>
 <p>Ebie Miyuka-ssi came out, drying her wet hair with a towel. I want to do it a little more, but since it's her first experience, there's no need to push her too hard. I gave Ebie Miyuka-ssi an afterglow kiss and helped her get dressed. It was a bit late, but she had to sleep at the dorm.</p>
 <p>If I got caught by someone, bad rumors could spread, and although I don't do it at night, I do roll call in the morning, so I had to wake up in the dorm in the morning.</p>
-<p>"Mentor-nim, see you again tomorrow~!"</p>
+<p>"Mentor-nim, see you again tomorrow!"</p>
 <p>Ebie Miyuka-ssi greeted me in a bright voice and left the office. I waved my hand and went to the shower room. I hadn't chosen Cambion's Body yet, so I was thinking of choosing it in the shower room and checking how my body would change. It would be strange if I chose it while Ebie Miyuka-ssi was there and my body suddenly got bigger, so I didn't choose it until Ebie Miyuka-ssi left.</p>
 <p>You have selected the trait Cambion's Body.</p>
 <p>As soon as I chose it, I looked in the mirror and saw that my muscles were a little more defined. My skin color became a little whiter, and my appearance stats also increased, so I became a little more decadent. I was worried that it would hurt when I changed, but it didn't hurt at all. I felt like my body was changing, though.</p>
@@ -82,5 +82,5 @@ chapter = 60
 <p>Cambion's Body</p>
 <p>--------Bonus: Secret Meeting with Shinoe Misano in an Empty Office</p>
 <p>"Huh? You want me to dress like that? Hehe, you pervert."</p>
-<p>"I don't know why you're telling me not to wear a shirt and bra and to wear a suit... Kyaa! Don't tear my stockings~!"</p>
+<p>"I don't know why you're telling me not to wear a shirt and bra and to wear a suit... Kyaa! Don't tear my stockings!"</p>
 <p>After that, we did it like crazy 3 times.</p>

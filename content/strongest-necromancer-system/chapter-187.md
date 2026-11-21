@@ -29,7 +29,7 @@ chapter = 187
 <p>"Take that phone away from me. The Chief Commander isn’t some random person you can contact on any day. It’s a trick."</p>
 <p>Luther waved the phone away in annoyance without bothering to answer it and the lieutenant was shocked when the phone suddenly clicked off on its own. Luther turned back to the man in front of him and he raised a brow when he saw that the man was still smiling.</p>
 <p>"What the hell are you smiling at? You think I’m finished with –"</p>
-<p>Ring~! Ring~! Ring~!</p>
+<p>Ring! Ring! Ring!</p>
 <p>Commander Luther’s phone suddenly began to ring and he turned to look at it in surprise. He glanced back at the man smiling in front of him and frowned again before he turned around and grabbed his phone. He looked at the number there and he felt his eyes widen in shock as he slowly picked up and put it to his ear.</p>
 <p>"Sir."</p>
 <p>[Luther. Did you not hear that I wanted to speak with you?]</p>

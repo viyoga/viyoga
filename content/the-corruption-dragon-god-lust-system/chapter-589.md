@@ -79,7 +79,7 @@ chapter = 589
 
 <p>“Hm… okay, thanks, honey.” Qingyi kissed Ruxue’s lips and gave her huge tits a gentle squeeze.</p>
 
-<p>“Nghnnn~~ Come to the mind world when you’re done; the girls are excited to see the celestial heavens. Ruxue returned to the mind world, drawing a smile from Qingyi.</p>
+<p>“Nghnnn Come to the mind world when you’re done; the girls are excited to see the celestial heavens. Ruxue returned to the mind world, drawing a smile from Qingyi.</p>
 
 <p>Using his draconic eyes, he studied the flow of Qi at the door intently.</p>
 

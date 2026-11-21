@@ -37,7 +37,7 @@ chapter = 21
 
 <p>’Well, it’s a good thing... I can execute my plans accordingly, hehe.’ Owen knocked on the door... it was basic courtesy to knock before entering.</p>
 
-<p>&quot;Coming~!&quot; A melodic voice reached his ears... the motherly figure of Arielle was back.</p>
+<p>&quot;Coming!&quot; A melodic voice reached his ears... the motherly figure of Arielle was back.</p>
 
 <p>&quot;Oh my... where did you run off to, my dear Wen?&quot; She inspected Owen from every possible angle, looking at him with deep worry.</p>
 
@@ -47,7 +47,7 @@ chapter = 21
 
 <p>&quot;Ughn... you silly boy..&quot; she moaned slightly as she pinched his waist. Getting her ass fondled is not a welcoming she expected.</p>
 
-<p>&quot;Ehehe, my hand slipped, Mom~&quot;</p>
+<p>&quot;Ehehe, my hand slipped, Mom&quot;</p>
 
 <p>&quot;Hmph... you are getting naughty, my boy.&quot; She pinched his cheeks gently, shaking them to emphasize her words... though her body lied as she shifted uncontrollably.</p>
 

@@ -6,7 +6,7 @@ chapter = 16
 +++
 
 <p>-If you go to a driver's license cram school, guys will be all over you. I trust you, but be careful, Hanako. Make sure to refuse if they ask you to drink...</p>
-<p>"Ahaha! I'm going with Umi-chan, so it'll be fine. Tokiatsu worries too much about unnecessary things! Ah, I've arrived at the school now. I'll call you again later, so don't worry~!"</p>
+<p>"Ahaha! I'm going with Umi-chan, so it'll be fine. Tokiatsu worries too much about unnecessary things! Ah, I've arrived at the school now. I'll call you again later, so don't worry!"</p>
 <p>Gokado Hanako dismissed her boyfriend, Honjo Tokiatsu's, unnecessary worries and hung up the phone. It's so cute how anxious he gets.</p>
 <p>Honjo Tokiatsu, the boyfriend of Gokado Hanako, who is famous for her beautiful looks even at the university she currently attends, was childhood friends turned lovers. Honjo Tokiatsu, who thought he could date her because they were childhood friends, was anxious about the beautiful Gokado Hanako going around alone without him. Gokado Hanako found Honjo Tokiatsu's actions cute but also felt a bit suffocated. That's probably why she came to the cram school with her friend Kagawa Umi instead of her boyfriend.</p>
 <p>Her friend, Kagawa Umi, was waiting for her in front of the sign that read "Edogawa Cram Driver's License School."</p>
@@ -26,7 +26,7 @@ chapter = 16
 <p>"You crazy bastard. Then let's have a cup of tea. You'll be surprised if you find out what happened too."</p>
 <p>I called Smith Kazuhiro to the neighborhood. He came out quickly because he lived nearby. Smith Kazuhiro was a large Black man with dreadlocks. He was a huge man who felt more like a heavyweight martial artist than a soccer player.</p>
 <p>"I thought you were going to training camp?"</p>
-<p>"I just got back yesterday~! By the way, Hyung-nim, why have you gotten so big?"</p>
+<p>"I just got back yesterday! By the way, Hyung-nim, why have you gotten so big?"</p>
 <p>We naturally went to a family restaurant in the neighborhood where the unemployed gather, which had an unlimited drink bar. A pretty refreshing part-timer kindly asked us what we wanted to order. I had never ordered anything other than the drink bar until now, but I ordered a hamburger steak at the drink bar. Smith Kazuhiro only ordered from the drink bar because he was on a diet.</p>
 <p>Smith Kazuhiro, who took out his zero cola to my melon soda, put the melon soda in front of me with a *tak!* and asked me.</p>
 <p>"So, what happened?"</p>
@@ -45,14 +45,14 @@ chapter = 16
 <p>Of course, it was natural not to believe it if a middle and high school friend from a poor neighborhood said, "Our dad is actually a chaebol, haha." I showed him the Taira Group employee ID that Taira Danjo had given me.</p>
 <p>"Was it real? I thought you got a job at Edogawa Engineering..."</p>
 <p>"Grandpa canceled that and told me to come to work here."</p>
-<p>"Wow~! That's awesome?"</p>
+<p>"Wow! That's awesome?"</p>
 <p>Smith Kazuhiro was very surprised when I showed him the evidence. He kept saying "Wow! Wow!" and looked at the Taira Group employee ID.</p>
 <p>"By the way, why are you so big? You're bigger than me now?"</p>
 <p>Smith Kazuhiro was a muscular giant in his early 180s, so now he was shorter than me, who was in his late 180s. I told him that I ate herbal medicine on a trip to Korea, as I had told my relatives at the memorial service.</p>
-<p>"Hee~! A lot of amazing things are happening to Hyung-nim. So, you have a little over a week left before you have to go to work, what are you going to do during that time?"</p>
+<p>"Hee! A lot of amazing things are happening to Hyung-nim. So, you have a little over a week left before you have to go to work, what are you going to do during that time?"</p>
 <p>"I was thinking of going to a driver's license cram school. I heard that the law has changed this time, so you can get a license in a week."</p>
 <p>Smith Kazuhiro clapped his hands as if he was happy with what I said.</p>
-<p>"Ooh~! Can I go with you too?"</p>
+<p>"Ooh! Can I go with you too?"</p>
 <p>"Don't you have to train?"</p>
 <p>"Second-teamers like me are done with training camp, so I have four days off except for the weekend, so if I add a day or two of vacation, I'll have time to go to driving school. And the club told me to get a driver's license because my house is too far from the stadium."</p>
 <p>The club that Smith Kazuhiro belongs to, Tokyo FC, uses a stadium called Ajinomoto Stadium, which is quite far from Edogawa-ku, where Smith Kazuhiro lives. Edogawa-ku is in the east of Tokyo, and Chofu-shi, where Ajinomoto Stadium is located, is in the west of Tokyo, so if you look at it from the center of Tokyo, it is in the completely opposite position of east and west.</p>
@@ -62,7 +62,7 @@ chapter = 16
 <p>"Ah, then do you want to go together? Let's hang out for a week while living in the dorm. You're not going to drink because you're managing yourself."</p>
 <p>"Sounds good! I'll have to tell the club first. Hyung-nim, find a good driver's license cram school in the meantime."</p>
 <p>"Okay."</p>
-<p>"Somewhere with a lot of girls~!"</p>
+<p>"Somewhere with a lot of girls!"</p>
 <p>Ah, this guy was a huge womanizer. I had to say that he was like a Black man in a manga or Japanese porn, a guy who couldn't control his energy and was constantly changing women. It was fortunate that our tastes were different, so there were no overlapping women. Otherwise, I would have fought with this guy a lot because of women in high school.</p>
 <p>"Stop talking nonsense and contact the club."</p>
 <p>While Smith Kazuhiro was talking to the club, I searched for a driver's license cram school. Hmm.... Here it is. Edogawa Cram Driver's License School? It was nearby. Should I go here?</p>

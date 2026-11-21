@@ -15,7 +15,7 @@ chapter = 119
 <p>Above all, indignation.</p>
 <p>For some damn reason, she could no longer project murderous intent at him!</p>
 <p>What was happening?</p>
-<p>"Ughnn~... can’t you just cum already? Why is it taking so long?" She let out an irritated cry, drawing a smile from Ethan.</p>
+<p>"Ughnn... can’t you just cum already? Why is it taking so long?" She let out an irritated cry, drawing a smile from Ethan.</p>
 <p>The handsome young man wasn’t far from climaxing himself. And he obviously didn’t miss the opportunity of having her with her mouth open, waiting for him.</p>
 <p>"As you wish, Your Highness."</p>
 <p>His cock slipped from the tight embrace of her tits, and the heavy mounds fell apart with a soft, wet bounce, glistening with the slick trail left between them.</p>
@@ -27,7 +27,7 @@ chapter = 119
 <p>A man’s semen!</p>
 <p>Mireya wanted to bite down, but all she could do was swallow. The cum slid down her throat in greedy gulps, thick and warm.</p>
 <p>Gush after gush, it all went down until, finally, he pulled away. The member slipped from her lips with a wet pop, a thin string of saliva and cum stretching between them before snapping.</p>
-<p>"Ah... you damned scoundrel~ you dare force a princess to drink your cum?!" She roared, her face burning with outrage and shame.</p>
+<p>"Ah... you damned scoundrel you dare force a princess to drink your cum?!" She roared, her face burning with outrage and shame.</p>
 <p>"Well, you didn’t seem to be disliking it much, judging by how eagerly you swallowed, hehehe." Ethan chuckled, watching her cheeks glow red with embarrassment.</p>
 <p>Even Elena had had a hard time handling his cum the first time. But Mireya had swallowed it all without spilling a single drop.</p>
 <p>She even seemed to savor the cock in her mouth for a moment.</p>
@@ -49,7 +49,7 @@ chapter = 119
 <p>Ethan smiled.</p>
 <p>A single thought was enough to give her an immediate orgasm.</p>
 <p>With a soft chuckle, he lifted her off the floor, taking her in his arms.</p>
-<p>"Aghn~~ what the hell was that? I’ll never... I’ll never~" Mireya’s eyes slowly closed, and Ethan’s face flushed with heat.</p>
+<p>"Aghn what the hell was that? I’ll never... I’ll never" Mireya’s eyes slowly closed, and Ethan’s face flushed with heat.</p>
 <p>"You’re going to be my servant and also my woman now, whether you like it or not. Get some rest; tomorrow we’ll start the hunt to take you to the third stage." He smiled, his hands settling on the plump curves of Mireya’s butt.</p>
 <p>He didn’t squeeze. Just maintained gentle pressure, feeling the heavy warmth of her breasts pressed flush against his chest, the soft mounds flattened between their bodies and bulging slightly at the sides.</p>
 <p>She was quite warm for a death knight. Her skin was cold, of course, but not an unpleasant cold. Quite the opposite.</p>

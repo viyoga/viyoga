@@ -77,7 +77,7 @@ chapter = 3
 
 <p>Gulp...</p>
 
-<p>&quot;Oh my... let’s eat now, my dear Wen~&quot; She was satisfied to see that her son really liked what she had cooked... after all, these had been some of his favorites since he was a teenager.</p>
+<p>&quot;Oh my... let’s eat now, my dear Wen&quot; She was satisfied to see that her son really liked what she had cooked... after all, these had been some of his favorites since he was a teenager.</p>
 
 <p>&quot;So... how was work in the city? You’ve only visited our home now after you started living in the city.&quot; Arielle asked. She was really curious to know what life was like for her dear son after leaving his birthplace, the current place where his mother resided.</p>
 

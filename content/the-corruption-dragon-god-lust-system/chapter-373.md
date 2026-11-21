@@ -9,7 +9,7 @@ chapter = 373
 
 <p>“Are you sure you don’t want to beg for more?”</p>
 
-<p>“Nghn~~ N-no… Xueyao…” Bai Xueyao blushed even more deeply when she heard those words, her body seized by an explosion of pleasure.</p>
+<p>“Nghn N-no… Xueyao…” Bai Xueyao blushed even more deeply when she heard those words, her body seized by an explosion of pleasure.</p>
 
 <p>When she put her hand on her slim belly, she could feel Qingyi entirely inside her, a long, thick, throbbing rod filling her to the brim.</p>
 
@@ -27,7 +27,7 @@ chapter = 373
 
 <p>That was the kind of thing that would drive even the bitterest man to passion, let alone an already passionate man like Qingyi.</p>
 
-<p>“Nghnn~~ oghnn~~ H-hubby~~ f-faster ngfhnn~~ fuck Xueyao’s pussy f-faster- nghnn~~” Xueyao’s moans took over his mind, her shrill, adorable voice dominated by endless obscenities.</p>
+<p>“Nghnn oghnn H-hubby f-faster ngfhnn fuck Xueyao’s pussy f-faster- nghnn” Xueyao’s moans took over his mind, her shrill, adorable voice dominated by endless obscenities.</p>
 
 <p>“As you wish,” he smiled, coming up to full speed. The loud slaps of Xueyao’s full, perfect ass being fucked echoed throughout the temple, their rhythm unmatched.</p>
 

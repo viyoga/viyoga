@@ -5,7 +5,7 @@ weight = 487
 chapter = 487
 +++
 
-<p>“Nghnn~~ stop it, Nyan!” A high-pitched, frightened squeal echoed, followed by a feline meow, and then the sound of water hitting the floor.</p>
+<p>“Nghnn stop it, Nyan!” A high-pitched, frightened squeal echoed, followed by a feline meow, and then the sound of water hitting the floor.</p>
 
 <p>“You started it!” Another squeal replied. A beauty with silver hair and a fluffy snowy tail ran after the cat girl, holding a bucket full of water.</p>
 
@@ -35,7 +35,7 @@ chapter = 487
 
 <p>The two beauties floated a few inches above the ground, supported by invisible golden energy.</p>
 
-<p>“Nyan, Big Sister Qianyao is the best! Hehehe~~” Linyue giggled, her cat tail moving excitedly as she threw herself into the arms of the golden-eyed beauty, pressing her face against that huge pair of tits. “I could have saved you too…” Qingxue murmured beside them.</p>
+<p>“Nyan, Big Sister Qianyao is the best! Hehehe” Linyue giggled, her cat tail moving excitedly as she threw herself into the arms of the golden-eyed beauty, pressing her face against that huge pair of tits. “I could have saved you too…” Qingxue murmured beside them.</p>
 
 <p>Her voice was serene, calm, and cold as always, though now it was tinged with a subtle, shy warmth.</p>
 
@@ -75,7 +75,7 @@ chapter = 487
 
 <p>Their fat, perfect asses took over Qingyi’s thighs, while Seraphine’s breasts sought space against Elize’s enormous, heavy tits on his chest. “Mmm how did these things get so big?” Seraphine asked, gently patting one of Elize’s tits, her hand looking comically small compared to those huge, soft behemoths.</p>
 
-<p>“It’s a secret, fufufu~~” Elize giggled, squeezing those heavy milk jugs that her husband loved so much.</p>
+<p>“It’s a secret, fufufu” Elize giggled, squeezing those heavy milk jugs that her husband loved so much.</p>
 
 <p>Qingyi’s hands rose to the two women’s tits for support as Khaedryss flew into the air.</p>
 

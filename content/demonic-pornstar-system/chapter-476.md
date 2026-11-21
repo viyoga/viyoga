@@ -37,7 +37,7 @@ chapter = 476
 <p>She had taken to this new home like she was born for it. In fact, she seemed a little too comfortable.</p>
 <p>She’d even "adjusted" her maid uniform to better suit the dungeon’s abyssal aesthetic. Her once pristine black and white outfit was now a deep onyx trimmed in blood-red lace, hugging her voluptuous figure with dangerous precision. The neckline plunged daringly, a choker with a small black gem resting at her throat. Her golden hair was tied into a perfect high bun, leaving two loose strands framing her soft, teasing smile.</p>
 <p>And she dusted the gothic furniture like she was living her best life.</p>
-<p>"Hm~ hm~ hm~" she hummed, happy.</p>
+<p>"Hm hm hm" she hummed, happy.</p>
 <p>Kaiden lounged nearby, surrounded by his lovers, as well as Alice, curled up near.</p>
 <p>Vespera departed, but the girl was not dragged away. She would get to stay, at least for a bit.</p>
 <p>Their attention, however, wasn’t on Alexandra’s humming, but on the glowing projection inside their minds. The Awakened Media Platform’s broadcast flickered across their inner view.</p>

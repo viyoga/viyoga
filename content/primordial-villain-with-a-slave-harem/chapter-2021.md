@@ -8,7 +8,7 @@ chapter = 2021
 <p>A small gasp escaped before she could stop it. Her eyes narrowed with immediate anger at the lapse while her thighs tightened around his hips, holding him inside her as she adjusted to the thick length stretching her core.</p>
 <p>Their first duel had taught Black Fang how quickly his offense could steal both her pace and her voice. She remembered every shameful sound, every moment her body had answered him without her permission. Tonight she intended to keep command of both.</p>
 <p>Quinlan watched the woman above him settle onto every inch of his cock.</p>
-<p>"Mmh~" His approval came muffled through the gag.</p>
+<p>"Mmh" His approval came muffled through the gag.</p>
 <p>"Touching is still forbidden."</p>
 <p>He only just now realized that his hands had begun to leave their place beneath his head, such was the mesmerizing effect this woman had on his brain. With a muffled sigh, he returned them.</p>
 <p>Black Fang rose until only his head remained inside her, then brought herself down in one smooth stroke.</p>

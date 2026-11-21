@@ -6,7 +6,7 @@ chapter = 451
 +++
 
 <p>I spent the whole day intertwined with Arisu, spending time alone with her in the room until noon the next day. Thanks to the sacred pillar, Arisu didn't tire and craved my body. The sacred pillar restores stamina and heals wounds, but it doesn't alleviate the mental fatigue from pleasure, so she eventually fell asleep with a glossy face and snoring, but with a very satisfied expression.</p>
-<p>,Ah~ I feel refreshed! Is this really because I'm doing it with Ryuta?"</p>
+<p>,Ah I feel refreshed! Is this really because I'm doing it with Ryuta?"</p>
 <p>,Yeah, I'm a living recovery potion now. Tell me whenever you get hurt."</p>
 <p>Arisu, who woke up, felt incredibly refreshed and kept asking if it was because of sex with me, and I smiled and said yes. We left Arisu's accommodation room and headed to the restaurant where we had lunch yesterday.</p>
 <p>Because it was the weekend, the restaurant seemed short-staffed in the kitchen, so instead of a buffet, they served hamburgers. Being a big eater, I piled up two hamburgers and a huge amount of french fries and sat down. Arisu, who had eaten little yesterday and had hours of sex, seemed quite hungry as well, bringing a large handmade burger and a bunch of onion rings.</p>

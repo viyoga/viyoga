@@ -5,7 +5,7 @@ weight = 643
 chapter = 643
 +++
 
-<p>“Hm… fufufu~~” Isabel let out a mischievous giggle as she cupped her own cum-covered tits.</p>
+<p>“Hm… fufufu” Isabel let out a mischievous giggle as she cupped her own cum-covered tits.</p>
 
 <p>Qingyi’s thick, white cum stained her chocolaty boobs, dripping between her fingers as her forearms sank deep into the ample, heavy flesh.</p>
 
@@ -101,9 +101,9 @@ chapter = 643
 
 <p>“Do you have any idea where they are?” he asked, withdrawing his hand and giving her breasts a gentle pat underwater. The divine orbs wobbled at the touch, sending a soft ripple across the surface of the pool.</p>
 
-<p>“Aghnn~~ yeah… there must be some quite close to here.” Auranys replied with a moan. “I can feel a faint connection to them now that I’m in the Celestial Heaven… many were destroyed, but at least my crown must be intact.”</p>
+<p>“Aghnn yeah… there must be some quite close to here.” Auranys replied with a moan. “I can feel a faint connection to them now that I’m in the Celestial Heaven… many were destroyed, but at least my crown must be intact.”</p>
 
-<p>“Oh… do you want me to retrieve it and crown you the divine queen of my cock?” he teased, drawing a rosy smile from the goddess. “No… the girls would be dying of envy, fufufu~~♡” Auranys gave a sweet giggle and then buried her face in Qingyi’s chest. Soon, she too allowed sleep to overtake her.</p>
+<p>“Oh… do you want me to retrieve it and crown you the divine queen of my cock?” he teased, drawing a rosy smile from the goddess. “No… the girls would be dying of envy, fufufu♡” Auranys gave a sweet giggle and then buried her face in Qingyi’s chest. Soon, she too allowed sleep to overtake her.</p>
 
 <p>Beside her new sisters, she had learned to appreciate those sweet mortal pleasures, like sleep and food.</p>
 

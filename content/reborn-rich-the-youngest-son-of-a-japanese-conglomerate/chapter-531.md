@@ -14,7 +14,7 @@ chapter = 531
 <p>Alik awkwardly held the foil. And then he looked at his opponent. A skillful stance. The match hadn't even started yet, but he had the momentum to stab Alik right away. It seemed he was quite determined since the victory or defeat would be decided by this match.</p>
 <p>"Salut, En Garde! Etês vous Prêts, Allez!"</p>
 <p>He didn't know what it meant, but Alik knew that these words from the referee signaled the start of the match. Since Alik had a talent for languages, he was curious about the meaning of each word, but he knew that now was not the time to think about that.</p>
-<p>Shuuk~!</p>
+<p>Shuuk!</p>
 <p>The thin tip of the sword aimed for his abdomen and stabbed. In that instant, Alik thought, Fast! But when he controlled the electric current in his body and used neural acceleration, the world slowed down. Therefore, the foil being shot at Alik was also approaching slowly.</p>
 <p>Alik blocked the tip of his opponent's sword with the guard of the foil, then flicked the sword as if bouncing it off. It touched. If he did it too hard, a tragedy would occur where he pierced through the fencing uniform and his opponent's body, so it was a strike with considerable power control.</p>
 <p>-Bbeeeeeeeee...!</p>

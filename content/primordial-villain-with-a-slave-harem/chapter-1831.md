@@ -7,7 +7,7 @@ chapter = 1831
 
 <p>What followed was not quick, because Kaelira had never once rushed a piece she cared about.</p>
 <p>The frantic edge burned off and she settled in, unhurried and rhythmic, learning him one slow pass at a time, and what replaced the massacre was far worse for him: a devoted, wet, thorough patience that was utterly unembarrassed by its own sounds, exactly as instructed.</p>
-<p>*Mm... schlop... mmh~*</p>
+<p>*Mm... schlop... mmh*</p>
 <p>And she watched him the entire time. Big, happy, violet elven eyes stayed mashed into his and never once let go, shining up along his body with open delight at every hitch of breath she managed to cause, and Sera’s most devastating technique turned out to require no technique at all when the eyes doing it meant everything they said.</p>
 <p>The forest kept them company. The light-columns between the trunks slid by slow degrees, the birds came back one wary branch at a time and resumed their afternoon arguments, and the little sun over the bower crackled softly to itself while the Primordial’s lover worshipped at her own pace.</p>
 <p>Sera stayed at the hollow’s edge with her bare feet dangling into the air, toes swinging in small absent arcs while she watched, chin on her palms, her whole face gone soft. Somewhere along the way she’d started humming, an old elven melody, pretty and wandering, and it wove itself beneath the sounds of the work as if it had always belonged there.</p>
@@ -16,9 +16,9 @@ chapter = 1831
 <p>He lasted a long time, because upgrades or not, the stamina that came with the Primordial Breeding Physique had never gone anywhere. But that only gave her more time to practice, and by the end his hands were weakening around her ears, the most ominous creature on the continent coming apart by inches under a rookie’s devotion.</p>
 <p>"Kaelira." Gravel had come into his voice, and his hands tightened around her ears exactly as steady as she’d asked for. "It’s coming."</p>
 <p>Violet eyes flew wide, then darted sideways to her self-appointed big sis, asking for guidance with everything a face could ask while her mouth was this full.</p>
-<p>Sera had never looked smugger in her life. Chin on her palms, bare feet swinging merrily, she delivered the final lesson like it was a nursery rhyme. "Keep your tongue moving diligently around the shaft~ And then it’s just gulp~ gulp~ gulp~"</p>
+<p>Sera had never looked smugger in her life. Chin on her palms, bare feet swinging merrily, she delivered the final lesson like it was a nursery rhyme. "Keep your tongue moving diligently around the shaft And then it’s just gulp gulp gulp"</p>
 <p>The last three words came with a little roll of her throat that was somehow the lewdest thing anyone had said all day, and Kaelira went scarlet from hairline to shoulders without surrendering a single centimeter of her work.</p>
-<p>"Aww~" Sera’s grin softened at the edges. "Want big sis to hold your hand?"</p>
+<p>"Aww" Sera’s grin softened at the edges. "Want big sis to hold your hand?"</p>
 <p>A weak nod, tiny and instant and entirely without shame left to spend.</p>
 <p>Sera’s hand slid into hers and squeezed, and that settled that.</p>
 <p>Kaelira answered him with a hum, her free hand digging into his hip, anchoring the way she anchored against a pour gone violent. Then he pulsed hot against her tongue and gave his newest lover her first load, thick and generous and shamelessly primordial in volume.</p>

@@ -5,7 +5,7 @@ weight = 63
 chapter = 63
 +++
 
-<p>“Mghn~~” Elize shuddered as Qingyi’s strong hands grabbed her legs, placing her heels on his shoulders.</p>
+<p>“Mghn” Elize shuddered as Qingyi’s strong hands grabbed her legs, placing her heels on his shoulders.</p>
 
 <p>Elize couldn’t stop herself from covering her beautiful face, her arms squeezing her breasts as she brought her hands up to her flushed features.</p>
 
@@ -13,7 +13,7 @@ chapter = 63
 
 <p>It was such an awkward position…</p>
 
-<p>“Q-qingyi, can’t we -nghn~~… do this somewhere else? What if the girls see us?”</p>
+<p>“Q-qingyi, can’t we -nghn… do this somewhere else? What if the girls see us?”</p>
 
 <p>“Don’t worry…” Qingyi wrapped his arms around her delicate rosy knees.</p>
 
@@ -27,7 +27,7 @@ chapter = 63
 
 <p>That sight was truly heavenly, and in the new position, her pussy seemed even tighter around him.</p>
 
-<p>“Nghn~~ ahhh~~” Elize moaned, her head banging softly against the wood of the table as she arched her back.</p>
+<p>“Nghn ahhh” Elize moaned, her head banging softly against the wood of the table as she arched her back.</p>
 
 <p>Something was coming, and she felt it immediately.</p>
 
@@ -81,7 +81,7 @@ chapter = 63
 
 <p>He grabbed her breasts tightly, squeezing them as he opened his mouth, taking in both erect, pink nipples at the same time.</p>
 
-<p>“Nghhn~~ Q-qingyi, I need to finish breakfast, the girls are going- ngh~ mmph~~” Elize moaned as Qingyi sucked hard.</p>
+<p>“Nghhn Q-qingyi, I need to finish breakfast, the girls are going- ngh mmph” Elize moaned as Qingyi sucked hard.</p>
 
 <p>His tongue curled around the pink nipples, caressing the soft skin until his mouth was finally filled with the sweet, creamy, Qi-rich liquid.</p>
 

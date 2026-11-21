@@ -15,7 +15,7 @@ chapter = 695
 
 <p>The tip of Qingyi’s cock swayed just inches from her face, almost brushing her parted lips with every slight movement.</p>
 
-<p>“Aghn~~” A stifled moan escaped Rouxi, her fingers gliding up the immense length of the shaft, from base to glans, before sliding back down the way they came.</p>
+<p>“Aghn” A stifled moan escaped Rouxi, her fingers gliding up the immense length of the shaft, from base to glans, before sliding back down the way they came.</p>
 
 <p>A wet, slick sound echoed through the room.</p>
 

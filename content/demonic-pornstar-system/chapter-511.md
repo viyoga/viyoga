@@ -89,7 +89,7 @@ chapter = 511
 <p>Bastet appeared next, sprawled across a sun chair like the laziest monarch alive. Sunglasses on. Tail flicking with leisurely confidence. Absolutely no shame in sight.</p>
 <p>"Subjugating monsters."</p>
 <p>Calypso bounced onto the frame like a hyperactive rabbit, glowing faintly as she hopped in tiny circles.</p>
-<p>"Darling~ Darling~ Darling~!"</p>
+<p>"Darling Darling Darling!"</p>
 <p>The music shifted again—light amusement replaced by something tighter. Tense. Rising. Pulling everything toward the next accusation.</p>
 <p>"F-tiers... clearing a D-rank dungeon?"</p>
 <p>The cuts hit fast, synced perfectly with the mounting pulse:</p>

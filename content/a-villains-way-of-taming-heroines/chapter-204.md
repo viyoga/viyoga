@@ -49,7 +49,7 @@ chapter = 204
 <p>Ansel chuckled and ruffled the girl's snowy hair: "Then it's definitely."</p>
 <p>Seraphina's face lit up instantly, and she said joyfully: "So, I'm Ansel's most powerful pact head!"</p>
 <p>"Haven't you already decided that a long time ago?" Ansel waved his hand to clean the blood off the girl, pulled her into his arms, and rubbed her cheek with a smile: "There's no need to confirm it again."</p>
-<p>"Hehe~" Seraphina rubbed against Ansel's chest with delight, half-closing her eyes, and said contentedly: "Not only am I Ansel's most powerful pact head... I'm also definitely Ansel's best partner!"</p>
+<p>"Hehe" Seraphina rubbed against Ansel's chest with delight, half-closing her eyes, and said contentedly: "Not only am I Ansel's most powerful pact head... I'm also definitely Ansel's best partner!"</p>
 <p>The girl, as if she had a sixth sense, said something she would never have thought of before.</p>
 <p>"In this world, there must not be anyone more suitable to be Ansel's pact head than me, right!"</p>
 <p>This statement made Ansel pause for a moment. He looked up at Ravenna's back, but didn't notice anything unusual. The satisfaction in his eyes deepened, and he kissed Seraphina's cheek with a smile: "Of course, Seraphina, you are definitely my best partner."</p>

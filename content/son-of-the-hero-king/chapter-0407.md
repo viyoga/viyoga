@@ -43,7 +43,7 @@ chapter = 407
 <p>She wished to meet him and talk to him. But it seemed like it would be better to avoid him for the time being.</p>
 <p>Too many eyes would be on him.</p>
 <p>She had been lucky enough until now. There was no need to tempt Fate now. It was already wild enough as it was.</p>
-<p>“Hum~Hum~Hum~!”</p>
+<p>“HumHumHum!”</p>
 <p>—---</p>
 <p>After leaving the cemetery, Sol began to move fast. He had already wasted enough time by being sentimental.</p>
 <p>He did not enter the tower. As he did not wish to face Ambrosia nor any of the witches now. It was necessary for them to think about the way they would act in the future.</p>

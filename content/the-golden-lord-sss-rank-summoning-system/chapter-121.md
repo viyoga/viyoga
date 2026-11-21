@@ -53,7 +53,7 @@ chapter = 121
 <p>"H-husband!" she exclaimed as she was lifted into the air.</p>
 <p>Ethan had already sat down on the bench, and in one smooth motion, he pulled her onto his lap.</p>
 <p>Her full, shapely ass landed on his thighs with a soft smack, the plump flesh flattening against him under her own weight.</p>
-<p>"Nghnn~~ Did it have to be that rough?" she asked, shifting her hips on his lap.</p>
+<p>"Nghnn Did it have to be that rough?" she asked, shifting her hips on his lap.</p>
 <p>"I was just giving you a surprise." He smiled, leaning over her and planting a kiss on her neck.</p>
 <p>One hand slid over one of her large, pale tits, fingers sinking deep into the supple flesh as he squeezed possessively.</p>
 <p>The soft flesh overflowed between his fingers, too much to be held in a single hand, its warm, heavy weight pressing into his palm as the soft skin bulged around his grip.</p>

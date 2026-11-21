@@ -54,7 +54,7 @@ chapter = 661
 <p>-There is no such technique in Shinkai Yatsude...!</p>
 <p>Kaiju Kakan, with a hole blown through his chest, said in confusion. In fact, someone like Anya District's Four Heavenly Kings would know what techniques Shinkai Yatsude has.</p>
 <p>Basically, Takakusaki Gengo, the founder of the Anya District, stole and learned Shinkai Yatsude.</p>
-<p>"Yeah, it's the latest update~!"</p>
+<p>"Yeah, it's the latest update!"</p>
 <p>Actually, it's not really Shinkai Yatsude, but more like a technique from a parallel world.... Kaiju Kakan wouldn't know that, so I just said it as it came out, as if teasing him.</p>
 <p>I swung my fist again to aim Touch Abyss Piercing Void at his face, as he didn't seem to be thinking of dying even with a large hole in his chest from how his body had been transformed.</p>
 <p>-W-wait a moment...!</p>
@@ -62,7 +62,7 @@ chapter = 661
 <p>Kwaaaaa!</p>
 <p>I not only pierced Kaiju Kakan's face but completely obliterated his head. Still, it had increased in power each time I used it, even though I had only used it a few times.</p>
 <p>Still, the power in the dream was enough to create holes in space. I was still far from that. I need to get stronger.</p>
-<p>After turning Kaiju Kakan into a headless octopus, I first checked on the special class students' battle. They were unilaterally beating Kokubo Shiratsu to a pulp, as if running in a group with a "Waaah~!" in a manga, raising dust.</p>
+<p>After turning Kaiju Kakan into a headless octopus, I first checked on the special class students' battle. They were unilaterally beating Kokubo Shiratsu to a pulp, as if running in a group with a "Waaah!" in a manga, raising dust.</p>
 <p>Sakagami Rena, who had been waiting for an opportunity, used a water-attribute water escape, and Alik swung a sword made of lightning, frying him to death with electricity all over his body. As I expected, Kokubo Shiratsu seemed to be the weakest of the Four Heavenly Kings.</p>
 <p>This time, I turned my head to check on the fight between Shimokawabe Airen and Takakusaki Athena, and I saw quite a surprising scene.</p>
 <p>Takakusaki Athena was fighting Shimokawabe Airen, whom even I would have difficulty defeating, on equal terms.</p>
@@ -76,6 +76,6 @@ chapter = 661
 <p>"It's okay. First... let's go to where Old Man Yoda is. It'll be a headache if that woman joins him."</p>
 <p>I stopped the special class students who were asking if I was okay and ran out of the dojo with them.</p>
 <p>_____</p>
-<p>It's been a while since a Home Tutor's Kimono illustration~!</p>
+<p>It's been a while since a Home Tutor's Kimono illustration!</p>
 <p>Only mini Kimonos like this come out, and proper Kimonos don't come out often, so I forced them to wear Kimonos with a LORA file, haha.</p>
 <p>Kkiyooooot!</p>

@@ -38,7 +38,7 @@ chapter = 118
 <p>But he ran into a problem real quick.</p>
 <p>His cock was fully hard and pointing straight up. Trying to pull his pants over it was not happening no matter how hard he tugged.</p>
 <p>'Fuck... buddy, this is not the time! Go down already!'</p>
-<p>"Fufu~" Natasha covered her mouth with her hand, a laugh slipping out before she could stop it. But behind that laugh, her eyes went wide for a split second after seeing the real thing.</p>
+<p>"Fufu" Natasha covered her mouth with her hand, a laugh slipping out before she could stop it. But behind that laugh, her eyes went wide for a split second after seeing the real thing.</p>
 <p>It was one thing to see the outline through his pants.</p>
 <p>Seeing it out in the open was a completely different story.</p>
 <p>'It's even bigger than the one in my dream.' A jolt of heat shot straight between her legs.</p>
@@ -90,5 +90,5 @@ chapter = 118
 <p>"Master, about Emma..." Dante trailed off, knowing she would get the hint.</p>
 <p>Instead of pulling back, Natasha wrapped her fingers around his shaft. Her hand barely fit around it, the thick veins pulsing against her palm as she gave it a few slow strokes.</p>
 <p>She tilted her head down, her long hair falling around his face like a curtain. Her eyes were glazed with desire, her bottom lip caught between her teeth.</p>
-<p>"This will be our little secret~"</p>
+<p>"This will be our little secret"</p>
 <p>Share to your friends</p>

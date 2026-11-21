@@ -28,7 +28,7 @@ chapter = 49
 <p>The girl was a little disappointed that Jason didn't ask for her number, and she watched his retreating back with a small pout on her face. It wasn't her stop and she still had a few miles to go, but she quickly grabbed a pen and paper and wrote something down before she raced off the bus and shouted.</p>
 <p>"Wait! Jason!"</p>
 <p>Jason turned around when he heard her voice, and she stopped and put the paper in his hand with a smile. She winked at him and spoke in a low, inviting voice.</p>
-<p>"My name is Tiana. Call me for anything okay~"</p>
+<p>"My name is Tiana. Call me for anything okay"</p>
 <p>Tiana's tone left nothing to the imagination, and it was immediately obvious to Jason what she was proposing to him. Tiana laughed at his raised brow and then ran off to catch the next bus at the bus stop.</p>
 <p>Jason looked down at the paper with a resigned look before leaving. He was going to have to find a way to hide his face to stop things like this from happening.</p>
 <p>...</p>

@@ -9,7 +9,7 @@ chapter = 500
 
 <p>Powerful thuds echoed with each impact of his hips against her ass, the voluptuous flesh of the dragoness being taken by endless, powerful shock waves.</p>
 
-<p>“Aghnnn~~ nhnnn~~ fuck!~~ F-faster~~ oghnn~~”</p>
+<p>“Aghnnn nhnnn fuck! F-faster oghnn”</p>
 
 <p>The draconic beauty’s mind was already foggy. Her lips were drenched in saliva, her eyes rolled back, and her forked tongue extended obscenely.</p>
 
@@ -35,7 +35,7 @@ chapter = 500
 
 <p>He slowed the range of his movements but increased his speed, feeling Khaedryss’s pussy pulse around his cock harder than ever.</p>
 
-<p>“Ughm~~ quiet~~” She said, licking his finger, fighting the urge to take a bite.</p>
+<p>“Ughm quiet” She said, licking his finger, fighting the urge to take a bite.</p>
 
 <p>“Hahaha.”</p>
 
@@ -67,7 +67,7 @@ chapter = 500
 
 <p>Except for what painted her face, she wasted nothing.</p>
 
-<p>“Aghnn~~ is that enough?” she asked, her mature, sensual voice sounding slightly hoarse as she deposited one last kiss on Qingyi’s glans. “You’d better give me a progeny of strong offspring…”</p>
+<p>“Aghnn is that enough?” she asked, her mature, sensual voice sounding slightly hoarse as she deposited one last kiss on Qingyi’s glans. “You’d better give me a progeny of strong offspring…”</p>
 
 <p>“I will…</p>
 

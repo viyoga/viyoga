@@ -5,7 +5,7 @@ weight = 781
 chapter = 781
 +++
 
-<p>"Me, teasing my big brother?" Rou’er brought a hand to her chest in a theatrical gesture of innocence, letting herself be pulled into Qingyi’s lap on the bed. "Never~" she replied with a mischievous expression, her voice sweet and sly.</p>
+<p>"Me, teasing my big brother?" Rou’er brought a hand to her chest in a theatrical gesture of innocence, letting herself be pulled into Qingyi’s lap on the bed. "Never" she replied with a mischievous expression, her voice sweet and sly.</p>
 
 <p>Qingyi let out a low laugh and, with a quick flick of his fingers, stripped Rou’er of her clothes in one swift motion.</p>
 
@@ -27,7 +27,7 @@ chapter = 781
 
 <p>Rou’er, perched on his lap, kept her legs spread wide open, and when he pulled his hand back, her plump vulva slid down and pressed directly against the base of his shaft, drenching his hot cock with the sticky nectar of love.</p>
 
-<p>"Nghnn~~ yeah~ Rou’er deserves to have her little pussy punished by big brother Qingyi, hehehe~" she purred, the naughty words slipping from her parted lips and making Yunxi and Xue Hua blush fiercely.</p>
+<p>"Nghnn yeah Rou’er deserves to have her little pussy punished by big brother Qingyi, hehehe" she purred, the naughty words slipping from her parted lips and making Yunxi and Xue Hua blush fiercely.</p>
 
 <p>Qingyi’s hands slid down to her plump thighs, his fingers sinking deep into the pale, soft skin as he effortlessly lifted her over his cock, aligning his thick, throbbing shaft with the tight entrance of her pussy.</p>
 
@@ -43,7 +43,7 @@ chapter = 781
 
 <p>Never, in his entire life, had he felt anything even close to this.</p>
 
-<p>"Ah~ what’s the matter, big brother Qingyi? Hehehe~" Rou’er let out a knowing giggle; the pain of her broken virginity vanished in an instant, replaced by a delicious heat spreading through her belly.</p>
+<p>"Ah what’s the matter, big brother Qingyi? Hehehe" Rou’er let out a knowing giggle; the pain of her broken virginity vanished in an instant, replaced by a delicious heat spreading through her belly.</p>
 
 <p>She kept one hand resting on Qingyi’s broad shoulders while the other slid down to her own slender belly, tracing the outline of his cock beneath her thin skin.</p>
 
@@ -63,7 +63,7 @@ chapter = 781
 
 <p>[You have taken the purity of Long Rou’er, daughter of the Dragon God of Corruption and a woman of unparalleled origin in the Celestial Heaven, + 100,000 G Lust points]</p>
 
-<p>"Aghnn~~ s-so big... filling Rou’er’s tight pussy so full, hehehe~~ big brother Qingyi~" Rou’er moaned, Qingyi smiled slightly, giving Rou’er’s buttock a light pat. The soft flesh trembled at the gentle impact, rippling like pudding in a slow, heavy wave before settling back into place.</p>
+<p>"Aghnn s-so big... filling Rou’er’s tight pussy so full, hehehe big brother Qingyi" Rou’er moaned, Qingyi smiled slightly, giving Rou’er’s buttock a light pat. The soft flesh trembled at the gentle impact, rippling like pudding in a slow, heavy wave before settling back into place.</p>
 
 <p>He wasn’t surprised by that amount.</p>
 

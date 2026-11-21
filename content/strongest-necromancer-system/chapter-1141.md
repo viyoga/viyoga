@@ -13,10 +13,10 @@ chapter = 1141
 <p>Valeria turned to Jason curiously, and Jason nodded before saying:</p>
 <p>"It’s spirit energy, one of the purest forms of nature energy. I once went to a forest in Arandelle that was filled with this sort of energy, but it was nowhere near as pure as this."</p>
 <p>Valeria was still looking around in awe, and Jason couldn’t blame her. Even though Valeria and Stella couldn’t feel nature energy, they were still connected to nature, so there was no way they wouldn’t be able to feel the changes in the air and magic all around them! It was the same way a human could breathe better when they went from living in a smoky city to living in the countryside! Everything just felt better!</p>
-<p>"Huhuhu~ so you appreciate our forest. We’ve been crafting it for more than a hundred years now. It’s our crown jewel!"</p>
+<p>"Huhuhu so you appreciate our forest. We’ve been crafting it for more than a hundred years now. It’s our crown jewel!"</p>
 <p>Vion heard what Stella and Valeria said about the forest, and she felt a sense of pride fill her heart as she began bragging almost immediately! Jason walked a little closer to the fairy and said.</p>
 <p>"The forest is amazing. I don’t think I’ve ever seen anything like it."</p>
-<p>"Hohohoho~ of course you haven’t!"</p>
+<p>"Hohohoho of course you haven’t!"</p>
 <p>Vion exclaimed happily, and Jason spoke up again.</p>
 <p>"How can you do something like this? Did you infuse the trees with spirit energy?"</p>
 <p>Usually, there was no way a fairy would tell a regular mortal about the secret behind growing a spirit forest, but Vion was so proud of herself at that moment that she couldn’t stop herself from bragging about the forest! Vion huffed pompously before she answered!</p>

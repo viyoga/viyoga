@@ -9,13 +9,13 @@ chapter = 527
 
 <p>Qingyi slowed his pace slightly, loud and powerful smacks echoing as his hips hit Qingxue’s round butt, his cock going deeper and deeper inside her.</p>
 
-<p>“S-silence… shameless husband– I’m going to- nghnn~~ I’m going to~~” Qingxue couldn’t even finish her sentence, Qingyi’s hip movements gaining speed as a loud slap hit her shapely buttocks, leaving a red mark on her pale skin.</p>
+<p>“S-silence… shameless husband– I’m going to- nghnn I’m going to” Qingxue couldn’t even finish her sentence, Qingyi’s hip movements gaining speed as a loud slap hit her shapely buttocks, leaving a red mark on her pale skin.</p>
 
 <p>Qingxue lowered her head, her silver hair cascading over her face and covering her vision, her previously calm and cold voice replaced by a symphony of obscene moans as Qingyi fucked her mercilessly.</p>
 
 <p>Her neckline opened up, sliding down to her waist along with the rest of her dress, her voluptuous, firm breasts swaying freely with each powerful impact.</p>
 
-<p>“Qingyi… hubby… f-faster aghnn~~ faster! Aghnnn~~” The beauty completely lost control, her eyes rolling back as she gripped the hilt of her sword even tighter, her fingers turning white from the pressure.</p>
+<p>“Qingyi… hubby… f-faster aghnn faster! Aghnnn” The beauty completely lost control, her eyes rolling back as she gripped the hilt of her sword even tighter, her fingers turning white from the pressure.</p>
 
 <p>She could feel the speed increasing more and more, her words reduced to nothing but sensual moans as her pupils dilated.</p>
 
@@ -29,7 +29,7 @@ chapter = 527
 
 <p>“Uh? I didn’t hear you right…” Qingyi whispered in her ear, squeezing the woman’s breasts hard.</p>
 
-<p>“Y-yeah… YEAH~~ I like that, you aghnn~~ fuck~~ fuck~~ oh heavens!</p>
+<p>“Y-yeah… YEAH I like that, you aghnn fuck fuck oh heavens!</p>
 
 <p>Qingxue froze, her tongue slipping out from between her saliva-soaked cherry lips as her eyes rolled back again.</p>
 
@@ -41,13 +41,13 @@ chapter = 527
 
 <p>Immediately, the beauty’s legs lost their strength and her knees buckled, forcing her to crouch over a small puddle of cum.</p>
 
-<p>“Ah… so… full~~” Her voice, sweet and high-pitched, echoed against the metal of the sword she used as support to keep from collapsing to the floor.</p>
+<p>“Ah… so… full” Her voice, sweet and high-pitched, echoed against the metal of the sword she used as support to keep from collapsing to the floor.</p>
 
 <p>Regaining some strength and looking to the side, she saw Qingyi’s cock at the height of her mouth.</p>
 
 <p>She hesitated for a moment before taking the semi-erect member into her mouth, savoring the fluids that surrounded it as she sucked voraciously.</p>
 
-<p>*pop* “Ah~~”</p>
+<p>*pop* “Ah”</p>
 
 <p>She released Qingyi’s cock, now completely clean, her face tinged with a vibrant red as she struggled to her feet, the dress sliding down her hips and falling to the floor.</p>
 

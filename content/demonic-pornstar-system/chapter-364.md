@@ -19,7 +19,7 @@ chapter = 364
 <p>It was a small, petty defiance, but for a man drowning under Kaiden’s stare, it was all he had left.</p>
 <p>And then Scarlet pulled her own phone from her elegant lady’s bag. It was fiery red as well, just like every single item the woman wore, save for a few black accents that made the red pop even more. Scarlet was dedicated to her favorite color.</p>
 <p>She glanced at the screen, then gave a long, low whistle. Turning lazily toward Maximilian, her lips curved into a grin hot enough to burn.</p>
-<p>"Ouch," she groaned theatrically as if she’d just been punched in the guts. "You might want to see what your cronies want, fatty~"</p>
+<p>"Ouch," she groaned theatrically as if she’d just been punched in the guts. "You might want to see what your cronies want, fatty"</p>
 <p>As the president’s ceremony continued uninterrupted by the little hushed commotion in the back that couldn’t even be heard through the distance, some cameras that were turned toward them began snapping with renewed fervor. The Flame Monarch had just dragged him back into the spotlight.</p>
 <p>Maximilian’s jaw clenched so hard his teeth ground audibly. He sent her a sharp side-eye, brimming with annoyance, hatred, and the desperate wish that she would combust into ashes. But Scarlet’s smirk only widened, daring him to say anything out loud.</p>
 <p>His hand shook as it reached once more into his pocket. He pulled out the phone, which was already buzzing again.</p>

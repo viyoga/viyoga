@@ -28,7 +28,7 @@ chapter = 1075
 <p>"...I’d love to." He brought her hand to his lips.</p>
 <p>Yunohana watched him kiss her knuckles, delighted by how quickly he had answered, then leaned forward to rest her forehead against his.</p>
 <p>"I just said those words out loud, didn’t I?"</p>
-<p>"Yep~" he sang, then with a serious expression, asked, "You can take them back, you know?"</p>
+<p>"Yep" he sang, then with a serious expression, asked, "You can take them back, you know?"</p>
 <p>Yunohana gazed deep into Kaiden’s mesmerizing red eyes. "I do," she finally exhaled, remaining close on his lap.</p>
 <p>"But I won’t run away. Not tonight. Not from you..."</p>
 <p>This time she caught his face between her hands and kissed him, letting him feel how happy he had made her today. With his arms around her, she could take her time; he was staying.</p>
@@ -64,7 +64,7 @@ chapter = 1075
 <p>"Hah... But now..."</p>
 <p>Yunohana looked down at the skirt hiding his hand.</p>
 <p>"Now I would like you to take them off."</p>
-<p>Kaiden drew his hand from beneath her skirt and turned her sideways in his lap. "Your wish is my command~"</p>
+<p>Kaiden drew his hand from beneath her skirt and turned her sideways in his lap. "Your wish is my command"</p>
 <p>With one arm beneath her knees and the other supporting her back, he rose from the cushion.</p>
 <p>He carried her through the adjoining doorway into her bedroom, where a shaded lamp illuminated the bed and the folded covers waiting upon it. Yunohana pulled the door closed as they passed, keeping her other arm around his neck.</p>
 <p>At the bedside, Kaiden lowered her onto the covers. Her dark hair spread beneath her, framing a face still caught between nervous anticipation and the thrill of finally having him above her.</p>

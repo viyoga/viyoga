@@ -75,7 +75,7 @@ chapter = 392
 
 <p>They kissed briefly before Qianyao sat on his laps. Her shapely ass pressed into his hips, her pale cheeks squeezing against the bulge in the young man’s pants.</p>
 
-<p>“Do you really want to talk to Dad? nghnn~~” Qianyao asked, her voice interrupted by a moan as Qingyi reached for her breasts with both hands.</p>
+<p>“Do you really want to talk to Dad? nghnn” Qianyao asked, her voice interrupted by a moan as Qingyi reached for her breasts with both hands.</p>
 
 <p>He grasped them firmly. His fingers sank into the huge mountains of pale, soft flesh, incomparably full and round.</p>
 
@@ -93,13 +93,13 @@ chapter = 392
 
 <p>He aligned his cock with her pussy, preparing himself for a brief moment before thrusting in full force.</p>
 
-<p>“oghnn~~” Qianyao moaned, feeling Qingyi’s huge cock make its way into her wet, tight interior, reaching the depths of her womb.</p>
+<p>“oghnn” Qianyao moaned, feeling Qingyi’s huge cock make its way into her wet, tight interior, reaching the depths of her womb.</p>
 
 <p>Her whole body bounced with the thrust; her breasts rippled like jelly under the pressure of their clinging bodies.</p>
 
 <p>Qingyi silenced her with a kiss, pulling his hips back slightly before thrusting in full force again.</p>
 
-<p>“nghnn~~ aghnn~~ what if Dad doesn’t accept you?” She asked breathlessly, parting her lips, connected only by a thin thread of saliva and her extended tongue.</p>
+<p>“nghnn aghnn what if Dad doesn’t accept you?” She asked breathlessly, parting her lips, connected only by a thin thread of saliva and her extended tongue.</p>
 
 <p>“Don’t worry, your husband has his means.” Qingyi smiled, increasing the speed of his thrusts, enjoying every inch of Qianyao’s creamy skin against his.</p>
 

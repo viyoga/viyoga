@@ -171,4 +171,4 @@ chapter = 306
 
 <p>Is he using some kind of spell, she thought.</p>
 
-<p>The atmosphere was thick with strange ~ sexual tension, and it almost suffocated her.</p>
+<p>The atmosphere was thick with strange  sexual tension, and it almost suffocated her.</p>

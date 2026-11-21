@@ -25,7 +25,7 @@ chapter = 739
 
 <p>&quot;Wife, you sleep now. I still have things to do.&quot;</p>
 
-<p>&quot;Okay, honey. Love you~&quot;</p>
+<p>&quot;Okay, honey. Love you&quot;</p>
 
 <p>After some playful splashing in the bath like mandarin ducks, they went to bed and cuddled for a while without any intense actions. He just listened to his wife excitedly talking about the progress of her one-on-one time with Chloe.</p>
 

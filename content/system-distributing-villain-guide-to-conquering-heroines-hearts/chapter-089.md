@@ -15,7 +15,7 @@ chapter = 89
 <p>But then she remembered the guy had never even had a girlfriend, let alone done anything with a woman.</p>
 <p>So she tossed the idea out.</p>
 <p>After thinking it through, Natasha stared at him with some amusement. ’Well, he was right about one thing. If I didn’t have feelings for him, he would have gotten one hell of a beating for that.’</p>
-<p>’But now, here’s the hug you wanted~’ She pulled him into her arms before he could react and pressed his face right against her chest.</p>
+<p>’But now, here’s the hug you wanted’ She pulled him into her arms before he could react and pressed his face right against her chest.</p>
 <p>"You did great. I’m so proud of you." She praised him in a warm voice while a cunning light flickered behind her eyes. ’Don’t worry, Dante. Master will keep your little secret safe.’</p>
 <p>She had just gotten her hands on one of his weaknesses. And she fully intended to use it when the time was right.</p>
 <p>Dante was grinning from ear to ear with his face buried in her soft, squishy breasts. ’We meet again, old friends!’</p>

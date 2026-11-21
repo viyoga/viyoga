@@ -11,7 +11,7 @@ chapter = 419
 <p>Even if she's showing signs of blackmailing me, I have to point out what she did wrong. I immediately took Kurayamada Kirie, who had come to work, to the special class classroom.</p>
 <p>When I entered the special class, it was a rare day when all the students had come to school. Idol Uenozono Karen and sickly girl Naruse Shiyo were present, and there were no students like Sakagami Rena who suddenly had something come up and didn't attend. I looked around at the students and greeted them.</p>
 <p>,Did everyone have a good weekend?</p>
-<p>,Yes~!</p>
+<p>,Yes!</p>
 <p>,I went to Tokyo!</p>
 <p>,I was sick so I didn't have a good time...!</p>
 <p>Everyone was talking about what happened over the weekend in response to my question, and the classroom became as noisy as a marketplace. It seemed that Seizawa Shii and Minamoto Risa had been playing in Tokyo, and Naruse Shiyo had not been feeling well over the weekend.</p>
@@ -45,7 +45,7 @@ chapter = 419
 <p>When I talked about rewards for the lower-ranked students, some of the students who were not confident sighed in relief. Some students who were not in the gift-winning zone (?) might have given up on studying completely, so I also talked about welfare (?) for students whose grades had improved a lot.</p>
 <p>,Okay. There's only about two weeks left, so work hard... That's all for this morning's assembly. Any suggestions?</p>
 <p>,Increase it to 8th... no, 9th place, sensei!!</p>
-<p>,No? Study hard~!</p>
+<p>,No? Study hard!</p>
 <p>Leaving behind Kujo Kina's ridiculous suggestion, I left the class with Kurayamada Kirie. When I thought about whether I should give Kurayamada Kirie time to speak, I heard Kurayamada Kirie's voice from behind.</p>
 <p>,You're quite serious about your 'role' as a teacher.</p>
 <p>,Let's go to the education preparation room and talk first.</p>

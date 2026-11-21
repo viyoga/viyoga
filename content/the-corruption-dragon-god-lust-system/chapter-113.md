@@ -25,7 +25,7 @@ chapter = 113
 
 <p>“I haven’t tasted you yet.”</p>
 
-<p>“W-what? Agnh~~” The confusion on Yunfei’s face was soon replaced by a deep moan as Qingyi took one of her nipples into his mouth, sucking hard.</p>
+<p>“W-what? Agnh” The confusion on Yunfei’s face was soon replaced by a deep moan as Qingyi took one of her nipples into his mouth, sucking hard.</p>
 
 <p>Ruxue just watched, her hands flowing to her own breasts as she watched Qingyi suck on Yunfei’s nipples, the voluptuous flesh spilling out between her fingers as she squeezed it hard..</p>
 

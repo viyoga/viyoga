@@ -17,7 +17,7 @@ chapter = 1914
 <p>"Stop that."</p>
 <p>*Clink.*</p>
 <p>"I’m warning you-"</p>
-<p>"The Primordial Villain is coming for youuu~" the knight sang. "Conqueror of the elves. Liege lord of all Vraven. Surely his next great campaign is the gate knight who jingled forty bronze at him."</p>
+<p>"The Primordial Villain is coming for youuu" the knight sang. "Conqueror of the elves. Liege lord of all Vraven. Surely his next great campaign is the gate knight who jingled forty bronze at him."</p>
 <p>Down the wall, the other two were already wheezing.</p>
 <p>Every knight on this rotation knew the story, because Hadric had told it white-faced to anyone who would listen.</p>
 <p>Less than a year ago, a nobody with a shabby spear and a single silver to his name had paid the fee at this gate; Hadric had clinked the coins in his palm and smirked at the farmer behind his visor.</p>

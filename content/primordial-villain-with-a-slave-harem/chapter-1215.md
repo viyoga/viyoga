@@ -73,7 +73,7 @@ chapter = 1215
 <p>Beatrice followed suit with a shy smile. "Welcome back."</p>
 <p>Quinlan gave them a single nod and a welcoming smirk. "You two have kept the mansion standing, I see."</p>
 <p>Their eyes lit with quiet pride.</p>
-<p>Behind him, Kitsara’s tail flicked. "Hmmm~ Are you flirting with the maids, Quin?"</p>
+<p>Behind him, Kitsara’s tail flicked. "Hmmm Are you flirting with the maids, Quin?"</p>
 <p>The maids both froze, cheeks reddening in perfect sync.</p>
 <p>"They are teens, you perverted woman..." Seraphiel shook her head.</p>
 <p>Quinlan didn’t even bother to acknowledge the suggestion of the Slutty Foxy.</p>

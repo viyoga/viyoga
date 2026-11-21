@@ -23,32 +23,32 @@ chapter = 534
 <p>,Huh? It's okay. You're my father. It's natural for you to worry."</p>
 <p>Minamoto Risa apologized with an embarrassed expression, as if she was ashamed of her father's attitude. Actually, I wasn't that scared, so I was really okay. If Minamoto Ushin were to chop me up as he said, he would have to suffer considerable losses as well.</p>
 <p>When I came down from the podium, they handed me the number of medals that could be given to all the class members. Of course, the Most Outstanding Class didn't receive the award just because Minamoto Risa and I did well, but because all the students in the class did well, so we received as many medals as there were students.</p>
-<p>,Waaaaah~!"</p>
+<p>,Waaaaah!"</p>
 <p>When we brought the medals, all the students cheered. I gave each of the students in the class a medal. Even though it was just a plated medal from a school competition, the students were happy as if they had received an Olympic medal.</p>
 <p>,Everyone, you worked hard. Since we really won, let's have a company dinner that I'll pay for. You'll be sore from exercising tomorrow, so let's rest tomorrow and meet on Sunday."</p>
 <p>While Daigo Terue was giving the closing address, I congratulated the students and dismissed them in advance. Except for a few students, the rest were going to have dinner with their parents who had come today after a long time, so we couldn't have a company dinner today, and tomorrow, the students who don't usually train would probably be groaning with muscle pain, so I made a dinner appointment for Sunday.</p>
 <p>,...With this, we conclude the 137th Athletic Meet."</p>
 <p>The athletic meet was finally over. It was just one day, but it felt quite long because there were so many events.</p>
 <p>,You worked hard."</p>
-<p>,Ryuta-ssi~! I'm going to go now! My dad went back to Tokyo in the middle, so I'm going to have dinner with Lisa-tan and Ushin-ajusshi~☆"</p>
+<p>,Ryuta-ssi! I'm going to go now! My dad went back to Tokyo in the middle, so I'm going to have dinner with Lisa-tan and Ushin-ajusshi☆"</p>
 <p>,Thank you for your hard work, teacher!"</p>
 <p>When Daigo Terue's closing address was over, most of the students greeted me. The V-log filming team that was filming Uenozono Karen also came up to me and greeted me.</p>
 <p>,Thank you for your hard work filming."</p>
-<p>,Yes, you too, teacher~!"</p>
+<p>,Yes, you too, teacher!"</p>
 <p>Hmm, I wonder if this V-log will be uploaded to Mytube...? Even if Uenozono Karen is a famous idol, I don't think the V-log will become a hot topic. After sending all the students home, I headed straight home to get off work.</p>
 <p>###</p>
 <p>On Mytube, videos of the members' daily lives in V-logs were uploaded twice a week on Serif's official channel. This week, it was announced that a video of the athletic meet of Serif's youngest and only high school student, Karen, would be uploaded.</p>
 <p>The time announced for the video to be uploaded was 7 p.m. Before the video was released, Serif's fans were waiting for the video in the live chat.</p>
-<p>-I'm starting to admire Karen-yang, who goes to St. Francisco Girls' Academy~!</p>
+<p>-I'm starting to admire Karen-yang, who goes to St. Francisco Girls' Academy!</p>
 <p>-St. Francisco Girls' Academy? Is it a Christian school?</p>
 <p>-No, the founder is the missionary Saint Francisco. It's not a Christian school, but you can think of it as a Japanese version of a noble school.</p>
 <p>-Karen is still a baby.</p>
 <p>Since Serif had many overseas fans, there were many people who didn't know about St. Francisco Girls' Academy, a Japanese young lady's school. Before the video started, there were many chats asking about St. Francisco Girls' Academy or answering questions about it. Because translation has become easier, people of different nationalities could easily share their opinions through chat.</p>
-<p>-It's starting. Everyone be quiet~!</p>
+<p>-It's starting. Everyone be quiet!</p>
 <p>Soon, the announced time of 7 p.m. came, and the video started. The other members of Serif, except for Uenozono Karen, were shown on the screen wearing white T-shirts and red dolphin pants from St. Francisco Girls' Academy.</p>
-<p>,Today~ Serif! Hello!"</p>
+<p>,Today Serif! Hello!"</p>
 <p>After greeting, the members of Serif chatted and explained for a while, and then opened the door of a classroom. As the classroom was revealed, Uenozono Karen was immediately filmed looking surprised. Everyone poured out reactions saying she looked cute as her eyes widened in surprise.</p>
-<p>-Ah, Karen is so cute~!</p>
+<p>-Ah, Karen is so cute!</p>
 <p>-Look at her surprised face WWWWW</p>
 <p>-It seems like she didn't know they would come to the classroom with a camera LOL</p>
 <p>The reactions of the classmates who showed surprised reactions after Uenozono Karen were also shown, and the response was explosive.</p>

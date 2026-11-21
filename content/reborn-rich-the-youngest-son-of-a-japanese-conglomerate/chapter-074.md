@@ -10,11 +10,11 @@ chapter = 74
 <p>I brought my mouth to the pink nipple of the flesh-colored jellyfish and sucked. No matter how much I sucked, the nipple only got harder, and the liquid I wanted didn't come out. The thirst continued.</p>
 <p>Suddenly, a wave of flesh hits. Maybe it's because I'm harassing the jellyfish, but countless flesh-colored sea creatures rush at me. Damn it! I have to run away! But I couldn't escape. I get entangled with the flesh-colored sea creatures. A scallop opens its red insides and sucks my dick... .</p>
 <p>,Ugh!!</p>
-<p>,Haaahng~~!! You're finally awake? Hiing! Mentor-nim's morning boner is the best~!</p>
+<p>,Haaahng!! You're finally awake? Hiing! Mentor-nim's morning boner is the best!</p>
 <p>Ah, right. Yesterday, I couldn't overcome the flesh-colored barrage of 14 people and fell asleep. Is that why I had such a strange dream? I did it with 10 people before, and my legs were shaking, but yesterday I seemed to have fainted.</p>
 <p>Right now, one member of Group 74 is shaking her hips wildly on top of me. And some who woke up early were chasing pleasure by caressing my nipples, sucking my neck, or rubbing their pussies on my forearms while masturbating.</p>
 <p>Geez, what are you doing on top of a sleeping person? But the feeling from my dick is good.</p>
-<p>,Haaaahng~! Rubbing against Mentor-nim's veiny forearm is so good♥</p>
+<p>,Haaaahng! Rubbing against Mentor-nim's veiny forearm is so good♥</p>
 <p>,Hmm... Heut.... Ha...eum...hang....</p>
 <p>Since there are so many women, the way they express pleasure is compared to each other. Some people shout out their condition nakedly when they are excited, and some make subtle moans while suppressing their voices.</p>
 <p>That's how each person has different tastes, so I can do it without getting bored. First, in order to get rid of the group member who is presumptuously trying to pound on me, I grab her pelvis with my free hand that is not rubbing her pussy on my forearm and start high-speed piston movements by bouncing my hips.</p>
@@ -28,7 +28,7 @@ chapter = 74
 <p>Jjigeoeok...! Her closed pussy opened and began to caress my dick.</p>
 <p>,Haaahng! As expected, it's big! It feels strange...!</p>
 <p>It definitely felt different from the pussy from before. If you ask me to explain exactly what's different, I can't say in detail, but each woman had her own pussy. This time, in order to send two people at the same time, I put my finger in the pussy that was rubbing my forearm and caressed it, and I moved my waist so powerfully that it made a sound.</p>
-<p>,Haeueuaahng!! I love fingers! I love you, Mentor-nim~!</p>
+<p>,Haeueuaahng!! I love fingers! I love you, Mentor-nim!</p>
 <p>,Heueueung.... It's too strong, wait a minute, just a minute!</p>
 <p>While the two were singing a chorus of pleasure, the woman who was kissing me passed another sip of water to me. The thirst I had in my dream was because I was actually thirsty. It was only two sips of water, but it replenished some moisture in my body.</p>
 <p>Around the time the third hydration was taking place, the woman riding on top of me reached her climax with an almost screaming moan, and her thighs trembled. And soon, the woman who was being caressed by my hand also said, Oook, Oook...! She made a suppressed moan and sat down on the spot, spraying a fountain.</p>
@@ -38,11 +38,11 @@ chapter = 74
 <p>Even after sending four people, there were still ten left. It was so noisy that everyone except a few were awake now.</p>
 <p>,You're next.</p>
 <p>This time, the target was the woman who was sucking my nipple when I woke up. I lifted her up as she was and started facing each other. It was a position that required tremendous strength and endurance that ordinary men couldn't do, but that wasn't an obstacle for me.</p>
-<p>,Haaaahng~! This position is strange! I feel....Heuaahng!</p>
+<p>,Haaaahng! This position is strange! I feel....Heuaahng!</p>
 <p>As I was doing the standing fuck, the newly awakened women came to me, kissed me, caressed my body, and one daring woman sucked my anus. It was the first time my anus was being sucked, so I gasped and pulled my waist away, but the woman who was licking my anus grabbed my pelvis as if she wouldn't let go of the prey she had caught and started playing with her tongue greedily.</p>
 <p>But if I keep getting it, I get used to it. I moved my arm again and started the standing fuck. The quick-witted women realized that their turn would come when the woman being fucked by me reached her climax, and they reached out and started caressing the woman's nipples even while doing the standing fuck.</p>
 <p>The woman being fucked in the standing position couldn't come to her senses as her pussy and two nipples were being attacked simultaneously.</p>
-<p>,Haeueuaahng~! I don't know what's going on.... I don't know where this pleasure is coming from...!</p>
+<p>,Haeueuaahng! I don't know what's going on.... I don't know where this pleasure is coming from...!</p>
 <p>My dick, which had been dealing with four women, had been holding up well, but it couldn't hold up in the fifth one, and it poured semen into her womb. At the same time as my ejaculation, the woman also felt an orgasm, and her pussy contracted and craved my semen even more. There was no need to worry about pregnancy. Everyone ate birth control pills at the buffet and started eating, so I had been ejaculating inside without any worries since last night.</p>
 <p>,Haaaeueung!!</p>
 <p>When I pulled my dick out of her pussy, the semen fell out. I threw the half-fainted woman on the bed and looked around and shouted.</p>
@@ -65,10 +65,10 @@ chapter = 74
 <p>Arisu: Really? I wanted to see Ryuta too, so it would be nice if you came. I felt bad because I didn’t think we could go on a date. (╥ω╥)</p>
 <p>I can't help it. The original plan was to enjoy a late-night date and do it with Arisu once or twice, but today I was too tired for sex, so I was actually happy that the filming was delayed. But I have now completely made Group 74 and the rest on my side, so I was able to get a rough idea of the information of other subsidiaries.</p>
 <p>Taira Ryuta: By the way, what kind of filming is it today?</p>
-<p>Arisu: It's a mobile game commercial shoot, and I'm playing the role of an elf~!!(◕ᴗ◕✿)</p>
+<p>Arisu: It's a mobile game commercial shoot, and I'm playing the role of an elf!!(◕ᴗ◕✿)</p>
 <p>Certainly, there is no one else who can play an elf other than Arisu. Her sun-melted blonde hair and emerald green eyes naturally reminded me of an elf. Even when Arisu was an unknown model, she was often posted on the internet with the title of real-life elf, so the role of elf and Arisu were a perfect match.</p>
 <p>Taira Ryuta: It would suit you so well? I have to go see it.</p>
-<p>Arisu: ◝(⑅•ᴗ•⑅)◜..°♡ It's a little embarrassing.... But I think it would be nice if you came! Ah, I'm going into filming now. See you later~!!</p>
+<p>Arisu: ◝(⑅•ᴗ•⑅)◜..°♡ It's a little embarrassing.... But I think it would be nice if you came! Ah, I'm going into filming now. See you later!!</p>
 <p>I rested a little longer and headed to the filming location. It was a studio in Tokyo, so it was close and I was able to arrive quickly.</p>
 <p>,Who are you?</p>
 <p>A person who appeared to be a studio staff member stopped me and asked.</p>

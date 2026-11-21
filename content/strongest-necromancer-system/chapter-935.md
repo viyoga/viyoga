@@ -13,7 +13,7 @@ chapter = 935
 <p>Gina laughed as she realised Jason was right. There were a lot of girls in the family, and Jason was the only boy, so Gina was sure he would enjoy having a son to spend boys’ time with.</p>
 <p>"I want a boy as well. But I wouldn’t mind either way. I just want them to be healthy."</p>
 <p>Gina smiled as she put her hand over Jason’s own, and Jason grinned. Jason was about to say something, but he raised a brow when Gina suddenly bit her lip and closed her eyes while letting out a soft sound.</p>
-<p>"Mmmm~!"</p>
+<p>"Mmmm!"</p>
 <p>Gina’s body shook slightly as she stopped moving, and Jason could feel her tightening around his member! Jason’s grin widened, and he stared at Gina with a sadistic look in his eyes!</p>
 <p>"Did you just come?"</p>
 <p>Gina’s cheeks flushed immediately, and she stammered out a refusal!</p>
@@ -22,7 +22,7 @@ chapter = 935
 <p>"I won’t be gentle."</p>
 <p>Gina bit her lip and nodded into Jason’s shoulder, and Gina’s entire body shook as Jason slammed into her hard!</p>
 <p>SLAP!</p>
-<p>"OOH YES~!"</p>
+<p>"OOH YES!"</p>
 <p>....</p>
 <p>The next morning, Jason was in the downstairs training room with all his siblings and Stella. The training room was a large chamber that had been created like an underground bunker beneath the house. The entire room was painted white, and it consisted of a large stage where people could fight and a gantryway up above the stage where people could watch the fight from! Jason had built the training room for Gina after she said she needed a place to train her Spirit Arts, and Jason had carved a rune into the wall that would allow it to self-repair no matter how much damage was done to it!</p>
 <p>"Let’s go, Stella! Show her who’s boss!"</p>

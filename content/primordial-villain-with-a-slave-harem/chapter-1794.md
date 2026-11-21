@@ -57,7 +57,7 @@ chapter = 1794
 <p>Nyxara glanced down at the blade in her grip without lifting her head from Quinlan’s chest. "I forced it to speak to us, but this isn’t its natural state of being."</p>
 <p>Her grip shifted on the hilt. "I’m not only keeping it conscious without becoming its wielder, but I’m also forcing it to speak. It’s like sustaining a flame where there is no air. It won’t last much longer."</p>
 <p>"I see..." Aurora nodded. "Thank you for the explanation."</p>
-<p>"What’s there to thank? I just answered my sister-wife’s question~" Nyxara purred, drawing a heart on Quinlan’s skin.</p>
+<p>"What’s there to thank? I just answered my sister-wife’s question" Nyxara purred, drawing a heart on Quinlan’s skin.</p>
 <p>Isveth observed the demoness for a long moment, braving herself for the disrespect she was about to show toward one of the Holy Son’s women, then spoke up. "Forgive me, but Miss Demon is from beyond the Restriction, is she not? Surely she knows more than this corrupt sword spirit thing can offer."</p>
 <p>The response she received was far different than whatever the elf could’ve ever expected.</p>
 <p>Nyxara turned her face into Quinlan’s neck, hiding, and the words came out bare and small. "I’m sorry, my love..."</p>

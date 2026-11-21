@@ -53,8 +53,8 @@ chapter = 904
 <p>Now that he had discovered a new source of Power, the Oeisin, he became engrossed in the thought that if he made that Power his own, he could reach the Realm of the Magician he had seen.</p>
 <p>Young Rinka Sabu B-cut!</p>
 <p>I don't know why tiny Ryuta keeps appearing hehehe</p>
-<p>High school Sabu B-cut~!</p>
-<p>Toilet Byeontae Chieri, requested by TheDreaming-nim~! Tied with batjul, 1. Blindfold VER. 2. Sobbing with M-Shape Legs~!</p>
+<p>High school Sabu B-cut!</p>
+<p>Toilet Byeontae Chieri, requested by TheDreaming-nim! Tied with batjul, 1. Blindfold VER. 2. Sobbing with M-Shape Legs!</p>
 <p>1.</p>
 <p>2.</p>
 <p>M-Shape Legs are surprisingly difficult to achieve hehe. I've been struggling with them for a while and wondering what prompt to use, but trying it today, it seems I still can't get a satisfactory Intimate Posture hehe.</p>

@@ -60,7 +60,7 @@ chapter = 292
 <p>I waited until Ha Ju-yoon came to her senses and asked, and Ha Ju-yoon smiled bashfully and nodded.</p>
 <p>"I'm sorry, I guess I became weak because of this and that."</p>
 <p>"I'm sorry for suddenly putting you in this situation too."</p>
-<p>"Eeuigu~! Pervert, when did you make so many women?"</p>
+<p>"Eeuigu! Pervert, when did you make so many women?"</p>
 <p>When I apologized, she pinched my nipples and glared at me with a smile. Her expression was brighter than before, when she had a bit of a shadow.</p>
 <p>"Yeah, after doing this once, I don't think I can do it alone. It's still standing firm inside me, but I'd like to rest a little."</p>
 <p>Ha Ju-yoon smiled and said she would rest, then gently pushed me and got up from her seat. As my cock was pulled out, the Semen fell out in clumps.</p>
@@ -81,7 +81,7 @@ chapter = 292
 <p>"If you want to see the inside, you'll have to ask, right? Try your best, Ryuta♥"</p>
 <p>Nae Fitzgerald was still provoking me by shaking her breasts in front of my eyes. I opened my mouth as if possessed.</p>
 <p>"I want to see Nae-ssi's big, soft, white breasts...."</p>
-<p>"Hehe, good job, pervert-ssi. If you want to see them that much, look here~."</p>
+<p>"Hehe, good job, pervert-ssi. If you want to see them that much, look here."</p>
 <p>She slowly takes off her bra, loosening the hook on her back as if doing a strip show. Nae Fitzgerald's breasts, with white and large pink nipples, shook in front of my eyes.</p>
 <p>"Eung? What do you want to do now?</p>
 <p>What do I want to do with these breasts? All men would think the same thing.</p>
@@ -92,4 +92,4 @@ chapter = 292
 <p>As I was shaking my tongue, her pink nipples finally touched. I bit her breasts in one big bite as if not letting go of the prey I had caught and started tormenting her nipples with my tongue.</p>
 <p>-----</p>
 <p>Ha Ju-yoon's Fashion of the Day</p>
-<p>Yu-gyeong Mom likes it~!!</p>
+<p>Yu-gyeong Mom likes it!!</p>

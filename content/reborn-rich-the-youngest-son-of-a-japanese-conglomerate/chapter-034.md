@@ -15,7 +15,7 @@ chapter = 34
 <p>Sumikatsu: Hyung-nim, you didn't forget my debut match tomorrow, did you? Come and watch this body score a goal.</p>
 <p>Ah, that's right. Kazuhiro sent me two tickets for his debut match. It was a Sunday match, so I decided to go with Arisu. Thanks to Kazuhiro, I had one less date course to think about, so it was a bit easier.</p>
 <p>Taira Ryuta: I know. I'm going with a girl, so don't talk about Hanako.</p>
-<p>Sumikatsu: Ooh~! A different girl?</p>
+<p>Sumikatsu: Ooh! A different girl?</p>
 <p>Taira Ryuta: A different girl? I never even dated Hanako. What about you and Kagawa Umi-ssi?</p>
 <p>Sumikatsu: Good! She's smart, so she's charming. Sex is good too!</p>
 <p>Wow... They're still dating? They've been dating for quite a while. Kazuhiro is a horndog and gets bored easily, so he doesn't date girls for long. The longest he dated was when he was a virgin in his first year of high school, about half a year. After he lost his virginity, he was known as the "Ugly Woman Bomber of Edogawa High" because he dated and dumped so many girls.</p>
@@ -74,7 +74,7 @@ chapter = 34
 <p>Arisu was still cheerful. I sat in the passenger seat of the Porsche and gave Arisu a light peck on the lips. I giggled as I watched Arisu's face turn red as she chattered away.</p>
 <p>"Today, we're going to meet my friend Sayaka."</p>
 <p>"Tomorrow, we're going to meet my friend Kazuhiro."</p>
-<p>"Yeah, yeah~! We're going to meet each other's friends, alternating every day~."</p>
+<p>"Yeah, yeah! We're going to meet each other's friends, alternating every day."</p>
 <p>I brought my face closer to the excited Arisu and blew air into her ear. It was quite cute to see her flinch.</p>
 <p>"Tonight and tomorrow morning... you know?"</p>
 <p>"....Yeah."</p>

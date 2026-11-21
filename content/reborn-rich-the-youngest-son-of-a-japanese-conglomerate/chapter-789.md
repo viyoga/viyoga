@@ -59,7 +59,7 @@ chapter = 789
 <p>The 1st and 2nd floors had other facilities besides guest rooms, so it took some time to search, and since we used many guest rooms on the 3rd floor, it also took some time to look through all of them.</p>
 <p>The 4th and 5th floors had no guests, so everything was locked, allowing us to look around quickly, which is why we decided to take charge of two floors.</p>
 <p>"Let's look around and then gather at the restaurant again."</p>
-<p>"Yes~!"</p>
+<p>"Yes!"</p>
 <p>At my Words, everyone scattered to search their assigned areas.</p>
 <p>Oofuchi Erika, a member of Group 302 assigned to search the 1st floor, felt an uncomfortable feeling.</p>
 <p>Oofuchi Erika's Intuition, honed by years of Hikikomori life enjoying mystery novels, mystery comics, and games, was appealing that something was wrong.</p>
@@ -85,8 +85,8 @@ chapter = 789
 <p>"Wait a minute...!"</p>
 <p>As Oofuchi Erika said, "Wait a minute," and tried to re-enter the chat room, she saw another chat room. And she realized what it was that she had found strange.</p>
 <p>Sawayanagi Seari's casual attire, underwear attire, breast covering, and belly dancer attire requested by Gojoy-nim.</p>
-<p>Casual Attire~!</p>
-<p>Underwear~!</p>
+<p>Casual Attire!</p>
+<p>Underwear!</p>
 <p>Breast Covering.</p>
-<p>Belly Dancer~!</p>
+<p>Belly Dancer!</p>
 <p>I made it up to here, but some error occurred in the program, so I couldn't create the other requests ㅠㅠ</p>

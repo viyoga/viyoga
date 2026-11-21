@@ -25,7 +25,7 @@ chapter = 633
 <p>Then he chuckled aloud, shaking his head with amusement. ’That fits Luna far too well.’ The gamer girl had always had that streak in her, the desire to engineer her own fun when the world couldn’t provide it naturally.</p>
 <p>"So where are you taking us, Darling?" Calypso asked with curiosity in her voice.</p>
 <p>Kaiden grinned. "It’ll be a surprise."</p>
-<p>"So secretive~" Nyx purred.</p>
+<p>"So secretive" Nyx purred.</p>
 <p>The vehicle slowed to a stop in an empty location away from the main crowds. One of the Association members approached with a large bag and began distributing items to the group.</p>
 <p>"These masks will shield your faces from being noticed," the guard explained as he handed them out. "They transform your facial features instead of hiding them like a traditional mask, so you’ll blend in naturally."</p>
 <p>However, the guard’s expression turned dry as he looked toward Calypso and Bastet. The red-skinned demoness with her curved horns and the tanned cat-woman with her feline ears and tail weren’t going to be hidden by any mask. Their exotic features were far too distinctive.</p>

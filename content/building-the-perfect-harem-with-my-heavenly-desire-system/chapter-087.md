@@ -125,7 +125,7 @@ chapter = 87
 
 <p>After a while of walking, he finally reached the parking lot and spotted his white Lamborghini Murciélago in a sea of other cars. Even from afar, it stood out like a king among commoners.</p>
 
-<p>[Oooh~ there she is~] the System cooed. [Our beautiful baby. Come on, let’s take her for another spin before we head home]</p>
+<p>[Oooh there she is] the System cooed. [Our beautiful baby. Come on, let’s take her for another spin before we head home]</p>
 
 <p>Alex chuckled while moving closer toward the car. Then all of a sudden he stopped. The faint satisfaction on his face from today’s success immediately disappeared the moment he got a good look at his car.</p>
 

@@ -5,7 +5,7 @@ weight = 56
 chapter = 56
 +++
 
-<p>"The last step is about to begin. Hehehe~ Alfred, I hope you have completed the mission I gave you."</p>
+<p>"The last step is about to begin. Hehehe Alfred, I hope you have completed the mission I gave you."</p>
 <p>In one of the special rooms utilized only by the highest nobles, a red-haired man laid languidly with a blue wolf woman at his knees.</p>
 <p>He was none other than Leonard Gorfard. The Duke themselves did not join the festivities as they had to prepare themselves in the eventuality they were chosen for the first night. As such, only the heir/heiress was present, each of them, in the room representing their families.</p>
 <p>"Young lord, the matter has been handled carefully. We have already, let's say, convinced some of the gladiators who will most likely be chosen. To be sure, we also incited the white knight."</p>
@@ -13,7 +13,7 @@ chapter = 56
 <p>"From what I gathered, most of the paladins are dissatisfied with his Highness close relationship with The saintess."</p>
 <p>"Ex-saintess you mean. That bitch lost her blessing. I really wonder what wish she made."</p>
 <p>"Indeed, Ex saintess. Some of the paladins think that she was tricked by his highness in making this ritual. The white knight is one of her most fervent admirers."</p>
-<p>"Hehe~! Hahaha~! Perfect! This is simply perfect! I simply wanted to lower the honor of the royal family and increase our speaking rights, but with this move, you basically put the church and the royal family nearly at odds. Beautiful."</p>
+<p>"Hehe! Hahaha! Perfect! This is simply perfect! I simply wanted to lower the honor of the royal family and increase our speaking rights, but with this move, you basically put the church and the royal family nearly at odds. Beautiful."</p>
 <p>The old man bowed as he accepted the praise of his master without a once of pride. He personally found this move incredibly foolish from a bigger perspective. Creating tension between the church and the royal family when war was upon them was stupid beyond reason. Anyone else would have seen something wrong with what he had done. Thankfully he had such a stupid master. No, this too was the will of his goddess.</p>
 <p>'Praise the Crimson lady!'</p>
 <p>His prayer was suddenly interrupted by a piercing voice.</p>

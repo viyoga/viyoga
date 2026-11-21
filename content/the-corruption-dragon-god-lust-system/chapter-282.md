@@ -119,12 +119,12 @@ chapter = 282
 
 <p>“Did you sleep well?” He asked, increasing the strength of his grip on Isabel’s mountains of chocolatey skin, delighting in the sweet moan that escaped her rosy lips, feeling his fingers sink into that sea of incomparable softness.</p>
 
-<p>“Nghn~~ Yes, husband.” Isabel’s eyes quickly shifted from Qingyi to Ruxue, her huge boobs bouncing as she knelt over Qingyi’s lap.</p>
+<p>“Nghn Yes, husband.” Isabel’s eyes quickly shifted from Qingyi to Ruxue, her huge boobs bouncing as she knelt over Qingyi’s lap.</p>
 
 <p>“Oh… you must be one of the husband’s wives, you’re so beautiful!” Isabel gave a high-pitched squeal and hugged Ruxue.</p>
 
 <p>Qingyi’s head ended up right between the two pairs of huge, soft tits, Ruxue’s snow-pale skin contrasting with Isabel’s dark skin.</p>
 
-<p>“Oh my… oh my… such a sweet lady, that womanizing bastard is really blessed, fufufu~~.” Ruxue laughed elegantly, returning Isabel’s embrace.</p>
+<p>“Oh my… oh my… such a sweet lady, that womanizing bastard is really blessed, fufufu.” Ruxue laughed elegantly, returning Isabel’s embrace.</p>
 
 <p>Her cleavage slid smoothly down, the bare skin of her tits squeezing against the bare skin of Isabel’s breasts, their nipples meeting briefly.</p>

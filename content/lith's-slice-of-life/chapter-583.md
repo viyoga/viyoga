@@ -25,7 +25,7 @@ Lucifer charged towards the wall, hoping to break out, but only ended up hitting
 
 Lucifer frowned and was going to curse Mayzin but became startled as she felt a hand around her shoulders.
 
-"Lucifer~" She heard a gentle voice and felt herself get hugged tightly. With the tight hug came the sensation of softness behind her head.
+"Lucifer" She heard a gentle voice and felt herself get hugged tightly. With the tight hug came the sensation of softness behind her head.
 
 Lucifer knew this softness and she knew there was no way out of this now.
 

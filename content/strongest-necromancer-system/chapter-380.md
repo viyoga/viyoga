@@ -19,9 +19,9 @@ chapter = 380
 <p>Jason smiled, and he cut Gina off softly.</p>
 <p>"Gina, stop. I’m not saying this just because you mentioned it. We’ve been together all my life, and I honestly can’t think of anyone else that I’d rather spend eternity with. So, will you marry me, Gina Fey?"</p>
 <p>Gina burst out in tears once she heard Jason say the actual words, and Jason’s smile widened as he saw her nod while speaking through her sobs!</p>
-<p>"Of course, Jason! Hic~! Of course I’ll marry you! I love you so much."</p>
+<p>"Of course, Jason! Hic! Of course I’ll marry you! I love you so much."</p>
 <p>Jason sat up and gently helped Gina clean her tears before kissing her softly, and Gina hit him in the chest when she heard him laughing at her and calling her a crybaby.</p>
-<p>"I’m not a crybaby, hic~! Stop it~!"</p>
+<p>"I’m not a crybaby, hic! Stop it!"</p>
 <p>Gina pressed her face into Jason’s shoulder and wrapped her hands around him, and Jason kissed her neck with a smile. Jason had no idea what the future would bring, but if there was one thing that he was sure of, it was that he was more than willing to spend the rest of his life with this crazy woman. She was a crybaby with a soft heart, and her tongue was sharper than a razor, but Jason loved every bit of her, and he knew he always would.</p>
 <p>...</p>
 <p>The celebrations and parties around Radagan continued well into the next morning. Even though many cities and towns had been leveled after the fights they had against the Sovereign, there was still a sense of disbelief that had hung in the air the previous day, and a lot of people had only been swept up in the excitement and partied all night long. But now that they had finally gotten some rest, the world of Radagan woke up to a feeling of liberation, and they couldn’t help but celebrate the fact that they were finally free from a tyrant that had tormented them for so long.</p>

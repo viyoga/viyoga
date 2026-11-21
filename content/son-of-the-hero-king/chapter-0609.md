@@ -25,11 +25,11 @@ chapter = 609
 <p>Becoming a King was an important step and the result of the legend built by the user. From what Sol managed to understand by using his own knowledge of the other world, the closer the actions, personality, power, and legend of an individual were to a certain myth or legend on earth, the higher the chances of receiving that name.</p>
 <p>This was why Sol was not surprised by the name Invictus as it was without a doubt the results of his actions during the war both in the mortal realm and the astral realm. In both cases, he had remained victorious and in both cases, his actions had been witnessed by a large number of people.</p>
 <p>Invictus was the result of his efforts and he loathed the thought of destroying it. But it was inevitable.</p>
-<p>Crack~</p>
+<p>Crack</p>
 <p>Blood spurted from his mouth and this time it was not some bad blood that needed to be purified. The pain was tremendous and soul deep but this did not deter him in the slightest.</p>
 <p>In the course of history, a few daring, courageous, or lucky individuals rejected their King names and started from the stages of Duke. Tiamat, Lucifer, and even more recently, Lilith.</p>
 <p>But in all history, Sol was perhaps the only one to have rejected a name Twice.</p>
-<p>Crack~!!</p>
+<p>Crack!!</p>
 <p>This time, the name completely dimmed and was broken into thousands of pieces. Causing Sol’s eyes to roll over as his consciousness threatened to collapse. But Sol bit his tongue and forced himself awake.</p>
 <p>He could black out later. Now though he had work to do.</p>
 <p>Focusing, on the broken shards of Invictus's name Sol started gathering them and pouring them toward the letter “D” that had been on the verge of destruction. Invictus contained the legend of the Unconquered Sun and ever-victorious god. There was no way he was going to give up on those concepts as they would perfectly fit what he wished to accomplish.</p>

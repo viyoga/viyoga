@@ -29,7 +29,7 @@ chapter = 65
 <p>Shivering a little she stopped looking and turned back her attention to the fights that were ongoing in the Arena.</p>
 <p>'Aunt is seriously scary when she smiles like that.'</p>
 <p class="scene-break">· · ·</p>
-<p>"Fufufu~!"</p>
+<p>"Fufufu!"</p>
 <p>Laughing under her breath, "The fifth one should have been a member of the church. But it seems like he was slightly problematic, as such, Saintess Camelia decided to forbid him any contact with you until he received corrections."</p>
 <p>"Heh…"</p>
 <p>Understanding what Milia was saying but deciding to not waste brain cells on someone who wasn't particularly important as of now, Sol discarded him from his mind.</p>
@@ -57,12 +57,12 @@ chapter = 65
 <p>'This family is full of monsters.'</p>
 <p>It was when she was finally unable to hold on that the pressure suddenly vanished as if it was a lie.</p>
 <p>At the same moment, the door opened and the one who entered was none other than the prince himself.</p>
-<p>"Sol~!!!"</p>
+<p>"Sol!!!"</p>
 <p>Before she could even understand what was happening, Lilin was already jumping in the arm of the surprised prince.</p>
 <p>Seeing Lilin acting all girly while slightly blushing, she couldn't but feel that her worldview had been destroyed. She had to give her all to not scream in disbelief,</p>
 <p>'Who are you and what have you done to my friend!!!!??'</p>
 <p class="scene-break">· · ·</p>
-<p>"Sol~!!!"</p>
+<p>"Sol!!!"</p>
 <p>Caching the purple bolt that jumped in his arms, Sol was slightly surprised before his eyes widened in realization.</p>
 <p>"Lilin!!"</p>
 <p>Smiling happily from the bottom of his heart, he hugged her tightly while she responded back.</p>
@@ -70,7 +70,7 @@ chapter = 65
 <p>This was also one of the reasons why the relationship between the Gorfard family and the royal family was so strained.</p>
 <p>Lilin Luxuria was basically the spitting image of Lilith. Albeit a little shorter. She was as beautiful as Lilith and her curves were as bountiful.</p>
 <p>She was wearing a low skirt and a simple shirt that showed a little of her cleavage.</p>
-<p>"Hahaha~! I am really happy to see you. I thought you wouldn't come for my coming of age ceremony."</p>
+<p>"Hahaha! I am really happy to see you. I thought you wouldn't come for my coming of age ceremony."</p>
 <p>Releasing her from the hug, he admired his cousin whom he hadn't seen for about two years.</p>
 <p>Lilin had left the Tower of Babel one year after her awakening and since then, aside from some letters to show that she was alive, she never came back.</p>
 <p>"Hey," Pouting a little, she continued, "How could I miss this day? No matter how much I didn't want to come back, you are far more important to me."</p>

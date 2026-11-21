@@ -56,7 +56,7 @@ chapter = 282
 <p>The voice of Castitas suddenly changed and it was only then that Sol realized that Castitas hadn’t been using what he called ‘god’s voice’ until now. Her voice now was more distant, more regal. Reminding him once again that the woman in front of him, despite her appearance, was no human.</p>
 <p>Wings of flame formed in the air before flashing and entering Sol’s body.</p>
 <p>“Is that it?”</p>
-<p>“Fufufu~! Nirvana flame activates when you die or when you try to make someone go through Nirvana. Die and you will see the effect.”</p>
+<p>“Fufufu! Nirvana flame activates when you die or when you try to make someone go through Nirvana. Die and you will see the effect.”</p>
 <p>Sol could only give a bitter laugh at this joke. He also noticed that she went back to her earlier voice. In fact…Hearing her giggle, he had a distinct impression that this wasn’t the first time he heard it.</p>
 <p>‘Why can’t I pinpoint it?’</p>
 <p>It made no sense. His brain was far superior to that of a normal human. He should have been able to easily dig up a random memory of his.</p>

@@ -8,7 +8,7 @@ chapter = 365
 <p>I take back calling Minamoto Lisa cute when she asked me to hang out together 30 minutes ago. I'd forgotten, but going shopping at a department store with girls is incredibly annoying, boring, and exhausting. And with four of them, it's even worse. I'd say it's not just four times as hard, but four squared as hard?</p>
 <p>Well, watching each of the female students try on clothes that reflected their individual tastes was quite enjoyable, but the indecisive hesitation before choosing and the boring stories from the clerk giving compliments weren't fun, and neither was standing there awkwardly by myself.</p>
 <p>Besides, since the purpose of this department store's establishment was for the students of St. Francisco Girls' Academy, there weren't many men's clothes. There were some, but only enough to fill the assortment? So, the story was that there was almost nothing for me, a guy, to enjoy.</p>
-<p>,Tada~n! Ryuta-cchi, what do you think?"</p>
+<p>,Tadan! Ryuta-cchi, what do you think?"</p>
 <p>For a moment, exhausted, I was sitting blankly on a chair in the store when Seizawa Shii, wearing new clothes, squatted down in front of me and asked.</p>
 <p>"You can't tell what it looks like when you're squatting, stand up."</p>
 <p>"Okay, you have to give it a good look, okay?"</p>
@@ -46,15 +46,15 @@ chapter = 365
 <p>"It's time. Then let's go choose swimsuits now."</p>
 <p>Minamoto Lisa looked at the time and said to the other three. Finally, freedom. I said there wouldn't be a swimsuit fashion show from the beginning, so surely they won't drag me to the swimsuit store, right?</p>
 <p>"We can go separately now, right?"</p>
-<p>"Ryuta-cchi~! Don't tell me you were bored hanging out with us?"</p>
+<p>"Ryuta-cchi! Don't tell me you were bored hanging out with us?"</p>
 <p>"It was okay watching you guys try on clothes, but there aren't many men's clothes here, and the process of waiting is too boring. Normal guys have a hard time with this kind of thing."</p>
 <p>"Is that so? Next time I get a boyfriend, I'll buy the clothes first and do a fashion show separately."</p>
 <p>Seizawa Shii was somewhat convinced by my words. I don't know why the conclusion was a fashion show, but it seemed to have been conveyed well.</p>
 <p>"The swimsuit store is one floor up, right?"</p>
 <p>"Yeah! I haven't bought a swimsuit in a long time, so I'm quite excited!"</p>
 <p>I didn't want to be on this floor full of women's clothing either, so I walked with them to the escalator. The female students will go up, and I'll go down to the lower floor to find a place to rest.</p>
-<p>"Hey! Teacher~!"</p>
-<p>"Teacher-niim~!"</p>
+<p>"Hey! Teacher!"</p>
+<p>"Teacher-niim!"</p>
 <p>The girls who had just bought swimsuits were Konoe Akina's group, and Konoe Akina, Kujo Kina, Otagi Yuka, and Sakagami Rena were coming down the escalator.</p>
 <p>"Ryuta-cchi chose our clothes, so tell him to choose yours too!"</p>
 <p>Seizawa Shii said to the female students of Konoe Akina's group as she rode up the escalator. You... didn't you just say you understood?</p>

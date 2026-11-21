@@ -47,7 +47,7 @@ chapter = 137
 
 <p>Every now and then, a drop of warm, creamy liquid escaped, sliding down the pale, soft mountains.</p>
 
-<p>“Ahnn~~” The silver-haired beauty’s full, pink lips opened.</p>
+<p>“Ahnn” The silver-haired beauty’s full, pink lips opened.</p>
 
 <p>One of her hands unconsciously grasped one of her breasts while the other descended, her fingers pressing against the soaked panties, sinking into the deep valley of her vulva.</p>
 
@@ -71,7 +71,7 @@ chapter = 137
 
 <p>’Is that… a sword ego?’ Qingxue’s eyes widened, watching Ruxue take off her clothes.</p>
 
-<p>“Don’t tell me he’s going to… ghnn~~” Her voice was interrupted by another moan, her fingers sinking further into her pussy, circling her pink clitoris.</p>
+<p>“Don’t tell me he’s going to… ghnn” Her voice was interrupted by another moan, her fingers sinking further into her pussy, circling her pink clitoris.</p>
 
 <p>She was still unable to believe her own eyes as Qingyi pushed Ruxue onto the bed, laying Elize on top of her.</p>
 
@@ -81,13 +81,13 @@ chapter = 137
 
 <p>Qingyi pushed his cock between the two pussies, feeling it being crushed by a sea of incomparable softness.</p>
 
-<p>“Nghnn~~ What the hell is this depraved position?” Ruxue moaned, her sweet, panting breath joining Elize’s.</p>
+<p>“Nghnn What the hell is this depraved position?” Ruxue moaned, her sweet, panting breath joining Elize’s.</p>
 
 <p>“What? You don’t like it?” Qingyi laughed, thrusting his cock hard, his body slamming against the four orbs of soft, round, perfect flesh of their butts.</p>
 
 <p>Their moans echoed in unison as his cock took care of two pussies at the same time.</p>
 
-<p>“N-no… oghnn~~ I love this position!” Ruxue exclaimed, her lips sinking into Elize’s neck, licking the pale, smooth skin of the beautiful priestess.</p>
+<p>“N-no… oghnn I love this position!” Ruxue exclaimed, her lips sinking into Elize’s neck, licking the pale, smooth skin of the beautiful priestess.</p>
 
 <p>“You should!” Qingyi smiled, slapping Elize’s ass before turning his face to Yunfei, whose fingers were deep in her own plump pussy, masturbating as she watched her esteemed ancestor and beloved disciple being fucked.</p>
 
@@ -97,7 +97,7 @@ chapter = 137
 
 <p>Not only did her disciple have a legendary sword with an ego capable of forming a body of its own, but he was also having sex with her and other two women?</p>
 
-<p>“Nghn~~ resist, damned body!” she shouted to herself, but to no avail.</p>
+<p>“Nghn resist, damned body!” she shouted to herself, but to no avail.</p>
 
 <p>The movement of her hands became faster, an endless stream of love fluids soaking her panties and running down her shapely thighs.</p>
 

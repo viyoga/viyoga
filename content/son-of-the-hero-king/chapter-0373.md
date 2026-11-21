@@ -24,7 +24,7 @@ chapter = 373
 <p>As long as the deed was done by her lord, the center of all her faith and devotion, her response would still be the same. It didn't matter to her even if he were to burn her to cinders, she'd gladly accept that fate with all the happiness in the world as that was a fate that her lord had imparted her.</p>
 <p>Long story short, she was crazy as all hell.</p>
 <p>When the flames covering them both vanished, not one speck of dust – nor any other dubious substances could be found on their bodies. Sol had just used his most offensive move to clean the bodies of his lovers. Truly flabbergasting…</p>
-<p>“Haha~! If My sister or mother were to learn just how you used the holy flames right now, they would have probably gotten a heart attack by now.</p>
+<p>“Haha! If My sister or mother were to learn just how you used the holy flames right now, they would have probably gotten a heart attack by now.</p>
 <p>“So we should keep this a secret, right?”</p>
 <p>Sol winked at Nent, causing her to chuckle even more. Just imagining how Gabriel would react if she knew that Sol used this power just to wipe out some of his seed covering her descendants was enough to already make her day…</p>
 <p>“There is something I would like to try.”</p>

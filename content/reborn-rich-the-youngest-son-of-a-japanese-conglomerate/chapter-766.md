@@ -57,9 +57,9 @@ chapter = 766
 <p>I stroked Minamoto Risa's Head as she requested. Minamoto Risa, embraced on my knee, quietly received my strokes.</p>
 <p>"Cute."</p>
 <p>"I don't know... nyang."</p>
-<p>When I called her Cute, she acted cute, saying 'I don't know~', then belatedly added 'nyang' as if remembering. This Appearance was also Cute.</p>
+<p>When I called her Cute, she acted cute, saying 'I don't know', then belatedly added 'nyang' as if remembering. This Appearance was also Cute.</p>
 <p>"This time, keep the nyang-nyang pose and lie down."</p>
-<p>"Really~ how long are you going to keep this up...?"</p>
+<p>"Really how long are you going to keep this up...?"</p>
 <p>"Just this much."</p>
 <p>Honestly, I figured once sex began, the Pleasure would make her unable to keep adding 'nyang' or maintain the cat pose she was in, so I intended to enjoy this situation to the fullest before that.</p>
 <p>"Alright. C-can I lie down like this... nyang?"</p>
@@ -101,4 +101,4 @@ chapter = 766
 <p>└Anonymous 4: I also live in the Vicinity of the park, and the rumor about ghosts appearing is definitely circulating. There are also a few Witnesses. The urban legend of the face-holed ghosts, posted on the psychic experience submission bulletin board, became famous and began to take on more details through the Words of many people. The urban legend of the park's face-holed ghosts, which became a plausible urban legend through the mouths of countless people, became such a Topic among urban legend enthusiasts that it was made into a B-grade horror movie a few years later.</p>
 <p>"What? A face-holed ghost urban legend?"</p>
 <p>A man looking through Ratflix's movie list, Taira Ryuta, unaware that the true Identity of that ghost was himself, muttered, 'Trash....' and moved on to the next movie on the list.</p>
-<p>Cat Underwear Lisa-ttang B-cut~! I didn't realize the panties strap detail was also a Cat's Sole of the foot haha. White Gyaru VER!</p>
+<p>Cat Underwear Lisa-ttang B-cut! I didn't realize the panties strap detail was also a Cat's Sole of the foot haha. White Gyaru VER!</p>

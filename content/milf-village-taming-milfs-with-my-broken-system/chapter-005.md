@@ -33,13 +33,13 @@ chapter = 5
 
 <p>Well, no one was here to care, so why would he even place restraints on himself. He already promised that he was a free man, and he was true to his words.</p>
 
-<p>&quot;Oh my... you really have matured, my dear Wen~ hehe...you are so cute.&quot; Arielle said, feeling even more satisfied.</p>
+<p>&quot;Oh my... you really have matured, my dear Wen hehe...you are so cute.&quot; Arielle said, feeling even more satisfied.</p>
 
 <p>Never had she expected to receive such loving words from her usually cold and shy boy. She never even thought of Owen as a fully grown man... because she would forever treat him like her little boy...the boy who used to be too shy to express his feelings to his parents.</p>
 
 <p>&quot;I did? Then I’m really a grown-up man now... right, Mom?&quot; Owen asked, hugging her even tighter as his hands now drifted dangerously close to her tits...just below her armpits.</p>
 
-<p>&quot;Oh my... what a silly boy you are! Of course you are not a grown-up man... my dear Wen, you are still my boy! A lovely boy that I will always cherish the most~&quot; Arielle said while smiling.</p>
+<p>&quot;Oh my... what a silly boy you are! Of course you are not a grown-up man... my dear Wen, you are still my boy! A lovely boy that I will always cherish the most&quot; Arielle said while smiling.</p>
 
 <p>She could feel Owen’s hands moving against her, but she actually liked it.</p>
 

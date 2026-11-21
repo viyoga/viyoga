@@ -163,6 +163,6 @@ A few more minutes passed and…
 
 The clan head’s wife moaned:
 
-“Ahhh~ Ahhh~ I am cu…”
+“Ahhh Ahhh I am cu…”
 
 ‘Now!’

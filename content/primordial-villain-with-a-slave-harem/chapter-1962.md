@@ -93,7 +93,7 @@ chapter = 1962
 <p>"Then... don’t expect your title at home to settle an argument with a dragonkin. They’ll be interested in your strength. Your ancestry may interest them considerably less."</p>
 <p>"I see."</p>
 <p>Ayame glanced up at him, her smile widening.</p>
-<p>"&gt; &lt;We might’ve just found your people, my arrogant primordial~&gt;</p>
+<p>"&gt; &lt;We might’ve just found your people, my arrogant primordial&gt;</p>
 <p>"&gt; &lt;I’m remarkably humble.&gt;</p>
 <p>"&gt; &lt;Yes, of course. And I’m an ugly goblin.&gt;</p>
 <p>Iris spoke wisely."&gt; &lt;Took you long enough. Acceptance is the first step toward growth,&gt; Iris spoke wisely.</p>

@@ -84,7 +84,7 @@ chapter = 160
 <p>On the side, Chloe nodded shyly.</p>
 <p>“The same goes for me.”</p>
 <p>She felt incredibly uncomfortable in this room, she had never met most of them, but the concentration of power was simply insane.</p>
-<p>“Fufufu~! Sol stated clearly that this should concern all the women important to him, or–Perhaps you two do not want to be close to him? If so, you are free to go.”</p>
+<p>“Fufufu! Sol stated clearly that this should concern all the women important to him, or–Perhaps you two do not want to be close to him? If so, you are free to go.”</p>
 <p>‘Scheming bitch.’</p>
 <p>Snarling at Camelia’s provocative ways of formulating her words, Lilith, who had already stood up, sat back obediently, while Chloe deflated.</p>
 <p>“*Ahem* Since this is done, let’s speak about important matters. All the women reunited here are women who have a more or less deep relationship with Sol. Some are loverslovers, some are friendsfriends, some are family. But no matter the reasons, we all care for Sol and we wished to protect him. At least--that’s my opinion.”</p>

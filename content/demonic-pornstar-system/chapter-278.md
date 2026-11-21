@@ -6,7 +6,7 @@ chapter = 278
 +++
 
 <p>"Yes! That’s the look I wanted to see! That’s how I felt all my life!" she shrieked and spun on one of her centipede legs and bowed with exaggerated theatrical flair, nearly slipping in a pool of congealed blood, only to catch herself with a grotesque flourish.</p>
-<p>"Farewell, darlings~" she sang, dragging each syllable with sadistic glee. "I do hope you’ll enjoy getting acquainted... with true hunger."</p>
+<p>"Farewell, darlings" she sang, dragging each syllable with sadistic glee. "I do hope you’ll enjoy getting acquainted... with true hunger."</p>
 <p>At her command, a high-pitched whistle echoed through the chamber.</p>
 <p>The monstrous spiders froze, stopping their rampage.</p>
 <p>Then, with perfect obedience, they turned, skittering back to her as if they were trained hunting hounds. Their bodies began shrinking as they ran, grotesque cracking noises accompanying their regression. Towering war beasts became the size of large dogs, then small hounds.</p>

@@ -13,7 +13,7 @@ chapter = 9
 
 <p>Only when they first got together would Luis go two or three times. After a while, it became dull and monotonous.</p>
 
-<p>&quot;Ask it if it wants to sleep~&quot;</p>
+<p>&quot;Ask it if it wants to sleep&quot;</p>
 
 <p>Luis squeezed the full, soft breasts harder. The sensation was truly irresistible.</p>
 
@@ -45,7 +45,7 @@ chapter = 9
 
 <p>Luis murmured indistinctly, &quot;Wife, don’t hold back. I love hearing you moan.&quot;</p>
 
-<p>&quot;It’s so embarrassing~ Ah, husband, you can’t lick there~&quot;</p>
+<p>&quot;It’s so embarrassing Ah, husband, you can’t lick there&quot;</p>
 
 <p>&quot;This is called a rimjob. Feels good, right?&quot;</p>
 
@@ -57,13 +57,13 @@ chapter = 9
 
 <p>He adjusted his angle slightly, ensuring his mother-in-law could clearly see how he was giving his wife such extreme pleasure.</p>
 
-<p>Lily’s body trembled, her moans taking on a sobbing tone, &quot;It feels so good~ But it’s so ticklish~ Husband, ah~&quot;</p>
+<p>Lily’s body trembled, her moans taking on a sobbing tone, &quot;It feels so good But it’s so ticklish Husband, ah&quot;</p>
 
 <p>&quot;Ding... Wife’s favorability: 88%...&quot;</p>
 
-<p>The system’s voice in his mind was already ignored. Luis was now lost in carnal desire and wicked thoughts, not wanting to be distracted. As he licked, Lily began to lose control, crying out, &quot;Husband, no~ It’s too good!!&quot;</p>
+<p>The system’s voice in his mind was already ignored. Luis was now lost in carnal desire and wicked thoughts, not wanting to be distracted. As he licked, Lily began to lose control, crying out, &quot;Husband, no It’s too good!!&quot;</p>
 
-<p>&quot;You’re too good at this, your tongue’s inside~ Ah~&quot;</p>
+<p>&quot;You’re too good at this, your tongue’s inside Ah&quot;</p>
 
 <p>After just ten minutes, Lily sobbed and trembled as she was washed over by another climax.</p>
 
@@ -71,43 +71,43 @@ chapter = 9
 
 <p>The reflection of eyes in the darkness was obvious. Ruth, neglected for years, was fiery-tempered and hadn’t gotten close to any men. Watching her daughter’s live sex show would undoubtedly be an extreme stimulation for her.</p>
 
-<p>The thought made Luis even more aroused. His dick jumped excitedly. By now, Lily had recovered, gripping his cock and stroking it as she murmured, &quot;Husband, why aren’t you fucking me yet~ Do you still want to cum in my mouth?&quot;</p>
+<p>The thought made Luis even more aroused. His dick jumped excitedly. By now, Lily had recovered, gripping his cock and stroking it as she murmured, &quot;Husband, why aren’t you fucking me yet Do you still want to cum in my mouth?&quot;</p>
 
 <p>&quot;Wife, you get on top first!&quot;</p>
 
 <p>Luis lay directly on the floor. Though the tiles were a bit cold, it didn’t matter. To give his lustful mother-in-law a good show, he had to put in the effort.</p>
 
-<p>&quot;Okay~&quot;</p>
+<p>&quot;Okay&quot;</p>
 
 <p>Lily, now completely docile, complied with a dazed look, straddling Luis and spreading her legs. Her smooth, tender pussy was already a soaked, messy mess.</p>
 
-<p>&quot;Wife, you’re so wet~&quot;</p>
+<p>&quot;Wife, you’re so wet&quot;</p>
 
 <p>As the tip entered, Luis closed his eyes and groaned, feeling an all-encompassing tightness, as if her tender flesh was wrapping around him like tongues. It was a sensation he’d never experienced before.</p>
 
-<p>&quot;It’s all because of your licking~&quot;</p>
+<p>&quot;It’s all because of your licking&quot;</p>
 
 <p>Lily cooed, gently riding him a few times before sinking lower. The incredibly tight flesh slowly enveloped his entire dick. When she bottomed out, she grabbed Luis’s shoulders and cried out.</p>
 
-<p>&quot;Husband, it’s so hard~ It feels so good inside!!&quot;</p>
+<p>&quot;Husband, it’s so hard It feels so good inside!!&quot;</p>
 
 <p>Lily began to move up and down, her tight pussy milking her husband’s cock. Encouraged by Luis, she moaned and cried out freely.</p>
 
 <p>Her cowgirl position was especially beautiful. Watching his wife, swaying above him, Luis guided her to lewdly knead her own breasts—something she’d never done before.</p>
 
-<p>&quot;Wife, you’re so beautiful~&quot;</p>
+<p>&quot;Wife, you’re so beautiful&quot;</p>
 
 <p>Luis was almost entranced, watching his wife’s graceful movements above him, her snow-white breasts swaying, her body turning a seductive pink. It was an absolute visual feast.</p>
 
-<p>&quot;Husband~ I’m gonna cum, touch my tits~&quot;</p>
+<p>&quot;Husband I’m gonna cum, touch my tits&quot;</p>
 
 <p>Lily moaned tearfully, taking Luis’s hand to her breasts. The moment he touched them, she cried out again:</p>
 
-<p>&quot;Just like that, rougher~ Pinch my nipples.&quot;</p>
+<p>&quot;Just like that, rougher Pinch my nipples.&quot;</p>
 
 <p>Lily had always been reserved and conservative, never even heard cursing or harsh words. Yet now, her moans were so lewd it even shocked Luis a little.</p>
 
-<p>Her breasts were extremely sensitive. With a rough squeeze and pinch of her nipples, Lily screamed, &quot;Ahh~&quot; nearly rolling her eyes back.</p>
+<p>Her breasts were extremely sensitive. With a rough squeeze and pinch of her nipples, Lily screamed, &quot;Ahh&quot; nearly rolling her eyes back.</p>
 
 <p>Her pussy clenched powerfully, spraying a stream of hot fluids as her body convulsed for a while before she collapsed limply onto Luis’s chest.</p>
 
@@ -119,6 +119,6 @@ chapter = 9
 
 <p>Fuck... dragging it out. As expected, just starting out meant being a newbie.</p>
 
-<p>Luis couldn’t be bothered to complain because his wife had already recovered, her face dazed with satisfaction, her cheeks flushed as she kissed her husband’s face and murmured, &quot;Husband is so amazing~ I’m so useless, you haven’t even cum yet.&quot;</p>
+<p>Luis couldn’t be bothered to complain because his wife had already recovered, her face dazed with satisfaction, her cheeks flushed as she kissed her husband’s face and murmured, &quot;Husband is so amazing I’m so useless, you haven’t even cum yet.&quot;</p>
 
-<p>&quot;Then it’s hubby’s turn to feel good now, right~&quot;</p>
+<p>&quot;Then it’s hubby’s turn to feel good now, right&quot;</p>

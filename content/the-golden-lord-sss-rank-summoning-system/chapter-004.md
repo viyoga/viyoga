@@ -14,7 +14,7 @@ chapter = 4
 <p>Not that he thought something like that would last long.</p>
 <p>It was the system, after all. The system never changes.</p>
 <p>A few days, and he would be known as a super pervert around here too.</p>
-<p>"E-Ethan... How about I walk? Nghnn~~ Your injuries..." Alice called out, slightly embarrassed, using his injuries as an excuse.</p>
+<p>"E-Ethan... How about I walk? Nghnn Your injuries..." Alice called out, slightly embarrassed, using his injuries as an excuse.</p>
 <p>As the only child of a widowed father, her sex education had been limited.</p>
 <p>However, the books in her late mother’s library, including some spicy novels, had given her an idea of what that bulge meant.</p>
 <p>Ethan wouldn’t think she was a pervert if she revealed those thoughts, right?</p>
@@ -50,8 +50,8 @@ chapter = 4
 <p>Alice, completely relaxed, shuddered. A short, sharp squeal escaped her full, pink lips.</p>
 <p>"Careful!" Ethan exclaimed, releasing one hand from Blue’s reins and wrapping his arm around her.</p>
 <p>His hand fell upon one of her enormous breasts, and his fingers sank into the vast, pale flesh, far from being able to fully encapsulate it.</p>
-<p>"E-Ethan— Nghnnn!~~" Alice’s lips parted in a long, indecent moan, her toes curling as she gritted her teeth.</p>
-<p>"Annh~" She panted heavily. "Young master, your hand..."</p>
+<p>"E-Ethan— Nghnnn!" Alice’s lips parted in a long, indecent moan, her toes curling as she gritted her teeth.</p>
+<p>"Annh" She panted heavily. "Young master, your hand..."</p>
 <p>"Ah, sorry..." Ethan reluctantly withdrew his hand, the large twin mountains swaying briefly before she hugged her own chest, her face flushing.</p>
 <p>Alice leaned forward, her butt lifting along with her new position, her plump, soft cheeks perfectly aligned with Ethan’s lap.</p>
 <p>’Wet?’</p>

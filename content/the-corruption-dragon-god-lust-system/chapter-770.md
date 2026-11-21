@@ -23,7 +23,7 @@ chapter = 770
 
 <p>Ruxue tilted her head up and kissed him. They remained like that for a brief moment, their bodies pressed tightly together amid the steam curling up from the pool.</p>
 
-<p>"Ah~ come on... I’ll show you everything!" Ruxue let out a sweet giggle and stepped out of the water, her clothes materializing out of thin air to cover her voluptuous body, the fabric clinging to every curve.</p>
+<p>"Ah come on... I’ll show you everything!" Ruxue let out a sweet giggle and stepped out of the water, her clothes materializing out of thin air to cover her voluptuous body, the fabric clinging to every curve.</p>
 
 <p>Qingyi followed close behind, his own body covered by a fresh set of clothes formed with a simple flick of his Qi.</p>
 
@@ -51,7 +51,7 @@ chapter = 770
 
 <p>A little over a minute later, she released the ability. The aura of the beasts within the region now roared with far greater force, vibrating densely in the air.</p>
 
-<p>"Khaedryss is going to love this, since she cultivates by consuming beasts, fufufu~" Ruxue let out a sweet giggle, feeling Qingyi’s fingers clamp firmly around her slender waist.</p>
+<p>"Khaedryss is going to love this, since she cultivates by consuming beasts, fufufu" Ruxue let out a sweet giggle, feeling Qingyi’s fingers clamp firmly around her slender waist.</p>
 
 <p>"Can it be used to cultivate spiritual herbs as well?"</p>
 

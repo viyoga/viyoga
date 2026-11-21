@@ -109,7 +109,7 @@ chapter = 865
 
 <p>The soft, heavy globes bounced gently as they settled into position, glistening with warm beads of water, her puffy nipples hovering just a breath from his lips.</p>
 
-<p>"I’m going to smother you with these for the rest of your life! What do you think, Qingyi-chan? It’s a good deal, isn’t it? I know it is, hehehe~ Akane-sama is a genius of good deals!"</p>
+<p>"I’m going to smother you with these for the rest of your life! What do you think, Qingyi-chan? It’s a good deal, isn’t it? I know it is, hehehe Akane-sama is a genius of good deals!"</p>
 
 <p>Qingyi could only stare at the woman in disbelief.</p>
 

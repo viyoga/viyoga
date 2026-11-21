@@ -11,7 +11,7 @@ chapter = 1946
 <p>"Hmm, I’m getting the hang of this," Vex spoke with slightly more volume than required. This had the planned result of Quinlan glancing her way, which the Hexwitch rewarded with a gorgeous smile toward her lover.</p>
 <p>"This is so fun, Hubby... Wait, is this our honeymoon?"</p>
 <p>"This is the warm-up." Quinlan’s eyes shone with a glint his women knew far too well. A greedy primordial’s mounting desire to explore. "Our real honeymoon will be venturing into Thalorind proper and wreaking havoc."</p>
-<p>"Can’t wait~" Vex purred.</p>
+<p>"Can’t wait" Vex purred.</p>
 <p>"Faster, Daddy! Rosie wants to go with the Mommies! If she knew her Papa would just stand still while yapping, Rosie would’ve sat on her Mommies instead!"</p>
 <p>"You want speed, huh?" Quinlan tightened his hands around his daughter’s ankles and sent Synchra after them. Rosie shrieked with laughter as they climbed the wave, leaning forward until her chin rested on top of his head.</p>
 <p>"Higher!!!"</p>
@@ -26,7 +26,7 @@ chapter = 1946
 <p>"Kaelira! Come with me!"</p>
 <p>The smith was standing now, carefully testing how far she could tilt the wood. She glanced up at her best friend, smiling uncertainly.</p>
 <p>"I haven’t tried going that fast..."</p>
-<p>"Want a hand? We’ll do it together~"</p>
+<p>"Want a hand? We’ll do it together"</p>
 <p>Quinlan guided their boards alongside each other, and Kaelira reached for Sera. With her friend beside her, the elf leaned into the next swell, her smile growing as they picked up speed.</p>
 <p>"Ah... wait, this is fun!" Kaelira realized as she started getting the hang of it.</p>
 <p>"I know!"</p>
@@ -71,7 +71,7 @@ chapter = 1946
 <p>"I could watch you do that all day."</p>
 <p>"Master liked it?"</p>
 <p>"It was pure badassery. Very sexy," Quinlan nodded solemnly. He then moved Synchra alongside her, keeping one hand around Rosie’s ankle while he reached out to stroke Blossom’s head with the other.</p>
-<p>"My super talented Pupcake cannot stop impressing me~"</p>
+<p>"My super talented Pupcake cannot stop impressing me"</p>
 <p>Blossom nuzzled eagerly into his palm. Knowing she had impressed him made her so happy that she forgot to worry about the water, her fluffy tail wagging behind her as she beamed up at her Master.</p>
 <p>"Blossom will keep practicing!!"</p>
 <p>Vex circled back toward them, and Blossom followed her onto the next wave, smiling this time.</p>

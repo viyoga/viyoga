@@ -5,7 +5,7 @@ weight = 389
 chapter = 389
 +++
 
-"Mhm~..."
+"Mhm..."
 
 Arya moaned in satisfaction as Lith sensually thrust his shaft deep inside her.
 

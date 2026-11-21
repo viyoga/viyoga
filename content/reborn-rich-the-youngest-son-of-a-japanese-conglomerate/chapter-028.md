@@ -42,7 +42,7 @@ chapter = 28
 <p>Sanoe Misano-ssi was surprised as she looked at her watch. I also checked and it was 5:40. We talked for almost two hours. I subtly acted friendly and asked questions to find out Sanoe Misano-ssi's information, and Sanoe Misano-ssi also seemed to have enjoyed it, concentrating on the conversation without realizing how time was passing.</p>
 <p>,Let's go back to the office first, and Taira-ssi, please leave work. I have other things to do."</p>
 <p>,I understand. Thank you for your hard work today."</p>
-<p>,See you tomorrow~."</p>
+<p>,See you tomorrow."</p>
 <p>Sanoe Misano-ssi slightly raised her glasses, winked, and left the break room, and I came back to the office. Everyone except Deputy Team Leader Kurikake Kuma-ssi had left work and wasn't at their seats, and Kurakake Kuma-ssi was sitting at my seat with an annoyed expression, shaking his legs. No, why is he sitting in someone else's seat? When I came in, he gave up his seat and asked me a question.</p>
 <p>,New recruit, why are you so late?!"</p>
 <p>,I had an interview with the team leader, and time passed like this while we were talking."</p>

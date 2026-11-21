@@ -6,7 +6,7 @@ chapter = 1045
 +++
 
 <p>and chapter check contains erotic please surroundings this your "Die\! Black Knight\! Pay the price for disrupting Superior's event\!"</p>
-<p>Hwuung~!</p>
+<p>Hwuung!</p>
 <p>Behemoth's fist, which had grown continuously and now appeared to be 4 meters in Size, grazed my Head. At this Size, it no longer felt like a human.</p>
 <p>Just now, recalling a slight clue, I revised my strategy to evasion first, while thinking of a Solution instead of a method to accumulate damage on Behemoth.</p>
 <p>In fact, I should have used this strategy from the Early Stage, before Behemoth had accumulated buffs, thinking of a Solution and evading, but he had already received so many buffs that evading his attacks, moving at immense speed, was quite burdensome.</p>
@@ -66,8 +66,8 @@ chapter = 1045
 <p>When he first started taking hits, his Gaze held Killing Intent, aiming to kill me to the very end, and seeking an Opportunity. But now, it felt like he had given up everything. He seemed to have slowly realized that he couldn't escape alive.</p>
 <p>I wanted to hit him a few more times, but I was worried about my Sabu (Master/teacher) Fujigasaki Rinka, who hadn't immediately rushed over even after I had supposedly found her, so I gathered all the Gi (Energy) within Behemoth's Body towards his Head and made it explode.</p>
 <p>Because I had hit him so many times with Vajra Crush, I could now control Behemoth's Gi (Energy) without even touching him, thus gifting Behemoth his Last moment.</p>
-<p>Armor Ryuta Attack Pose B-cut~! Most came out with this Composition, but I liked the main text Composition, so I chose that one~! hehe</p>
-<p>Changed Cover B-cut~! I liked Compositions 1 and 2 more, but holding the Gun felt awkward, so they were eliminated hehe. The Last one, I liked the aiming Method, but the Muzzle was too low, so it was eliminated hehe.</p>
-<p>Chea yun-nim requested Ha Ju-yoon in a Wedding Dress~!</p>
-<p>Chomisaemeonji-nim requested Liz in a white Suit, and Liz wearing only a translucent white Shirt~! White Suit~! Shirt Liz</p>
+<p>Armor Ryuta Attack Pose B-cut! Most came out with this Composition, but I liked the main text Composition, so I chose that one! hehe</p>
+<p>Changed Cover B-cut! I liked Compositions 1 and 2 more, but holding the Gun felt awkward, so they were eliminated hehe. The Last one, I liked the aiming Method, but the Muzzle was too low, so it was eliminated hehe.</p>
+<p>Chea yun-nim requested Ha Ju-yoon in a Wedding Dress!</p>
+<p>Chomisaemeonji-nim requested Liz in a white Suit, and Liz wearing only a translucent white Shirt! White Suit! Shirt Liz</p>
 <p>TheDreaming-nim requested Herta Vogel 1. Breast Biting 2. Jump 1. 2. The remaining biting Mark illustrations had blood flowing from the bite marks, which felt a bit Sadistic, so I'm only uploading two images hehe.</p>

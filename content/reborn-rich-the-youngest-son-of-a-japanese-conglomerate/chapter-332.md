@@ -12,7 +12,7 @@ chapter = 332
 <p>"You gathered three people! Was that Minamoto's team's relaxation club? They won't be able to beat us easily!"</p>
 <p>Gathering three classmates was commendable, but the fact that there were no applications from other classes or grades despite putting up that flashy poster suggested that the Dating Experience Club hadn't made a big splash at the school. Or maybe the students got scared off by the word "dating" and didn't apply.</p>
 <p>"We're here too."</p>
-<p>"Ehehe, Ryuta-cchi~☆"</p>
+<p>"Ehehe, Ryuta-cchi☆"</p>
 <p>The teacher's prep room door burst open, and Minamoto Risa and Seizawa Shii entered. Huh...? Three more people were following behind them. One of them was a face I recognized.</p>
 <p>It was Urabe Konoka, formerly of Hamahata Konoka Prefecture, whom I'd seen at the Choohten Island Inn. I was sure she said she'd be here tomorrow... Did she come a little early?</p>
 <p>If so, then the other two are... Suspended students? Looking closely, they looked exactly like the ID photos in the student registry.</p>
@@ -51,7 +51,7 @@ chapter = 332
 <p>You have to supply sweets at times like this. I'm glad I put the fridge in yesterday. Everyone went to the fridge at my words and grabbed an ice cream each. Everyone was grabbing ice cream and pudding according to their individual tastes.</p>
 <p>Konoe Akina chose a strawberry yogurt-flavored ice cream, and Otagi Yuka chose a slightly creepy bright red cherry-flavored ice bar. Seizawa Shii chose a custard-flavored pudding, and Minamoto Risa and Urabe Konoka chose green tea-flavored Häagen-Dazs.</p>
 <p>The two suspended students made unique choices; former newspaper club member Shido Tsubaki took out the frozen gyudon I had put in and microwaved it, and Kujo Kina started mixing the protein powder I use for exercising at school. Both of them were acting so naturally that you wouldn't know there was anything wrong.</p>
-<p>As expected, they were both unusual guys. Even with my dumbfounded look, Shido Tsubaki was munching on the microwaved gyudon, and Kujo Kina vigorously shook the water mixed with protein powder and then did a one-shot, finishing it off with a "Kya~!" like she was drinking beer.</p>
+<p>As expected, they were both unusual guys. Even with my dumbfounded look, Shido Tsubaki was munching on the microwaved gyudon, and Kujo Kina vigorously shook the water mixed with protein powder and then did a one-shot, finishing it off with a "Kya!" like she was drinking beer.</p>
 <p>When everyone had finished their ice cream and such, I opened my mouth.</p>
 <p>"Let's just have the Minamoto and Seizawa team and the Konoe and Otagi team do rock-paper-scissors. We can't just keep arguing forever. Both teams have gathered three people, so let's leave the final decision to luck."</p>
 <p>In fact, this decision I made was extremely biased towards the Konoe Akina and Otagi Yuka team. Otagi Yuka, a vampire with superhuman physical abilities, wouldn't be able to lose to the ordinary female students Minamoto Risa and Seizawa Shii even if she wanted to.</p>
@@ -72,21 +72,21 @@ chapter = 332
 <p>Seizawa Shii stepped forward with an expression that she would definitely win.</p>
 <p>""Rock, paper, scissors- shoot!""</p>
 <p>I saw it...! Seizawa Shii's hand changed three times, and Otagi Yuka's hand also changed three times... The result was a draw with both of them throwing rock.</p>
-<p>"Ah! It's a tie~☆"</p>
+<p>"Ah! It's a tie☆"</p>
 <p>"Kuh...!"</p>
 <p>Seizawa Shii cutely tapped her head and stuck out her tongue, and Otagi Yuka looked at Seizawa Shii, who had shown unexpected skill, with wary eyes.</p>
 <p>Everyone here didn't know anything about Seizawa Shii. She had Otagi Yuka-level reflexes. I don't know about strength or technique, but she was definitely strong.</p>
 <p>"Ooh...! You two want to fight after this is over?"</p>
 <p>Kujo Kina seemed to have watched the two matches with interest and was applying for a sparring match (?) with Otagi Yuka and Seizawa Shii.</p>
 <p>"Let's hurry up and finish this and go home."</p>
-<p>"Hee~! Ryuta-cchi wants to go home?"</p>
+<p>"Hee! Ryuta-cchi wants to go home?"</p>
 <p>When I urged them to finish the match, Seizawa Shii approached me slightly and spoke to me.</p>
 <p>"Starting tomorrow, I'll be your advisor, so you can't go this early."</p>
 <p>"That's right! Then let's do rock-paper-scissors again."</p>
 <p>After hearing my answer, Seizawa Shii gave me a mischievous smile and stood in front of Otagi Yuka again.</p>
-<p>""Rock~paper~scissors!""</p>
+<p>""Rockpaperscissors!""</p>
 <p>The match started again, Seizawa Shii wasn't looking at Otagi Yuka's hand. She was giving me a strange smile.</p>
-<p>"Hee~! I lost? Sorry~ Risa-tan."</p>
+<p>"Hee! I lost? Sorry Risa-tan."</p>
 <p>"No, I lost too..."</p>
 <p>Seizawa Shii returned to her usual self, as if the strange smile she had just given was a lie, and apologized to Minamoto Risa, leaning on her back.</p>
 <p>"Kuh...!"</p>

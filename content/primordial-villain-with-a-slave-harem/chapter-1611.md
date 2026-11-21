@@ -26,7 +26,7 @@ chapter = 1611
 <p>If said god wasn't a naive hypocrite.</p>
 <p>In fact, the presence reminded him most of the primordials.</p>
 <p>&lt;Nyxara?&gt;</p>
-<p>&lt;No comment, my adorable Ruin~&gt;</p>
+<p>&lt;No comment, my adorable Ruin&gt;</p>
 <p>The demon in his soul was having a wonderful time. He could hear it in her voice alone, that lilting amusement she got when she knew what he didn't and had no intention of sharing.</p>
 <p>She'd already made her position clear. His life to explore, not hers to narrate.</p>
 <p>Helpful as always.</p>

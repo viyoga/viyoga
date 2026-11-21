@@ -5,7 +5,7 @@ weight = 494
 chapter = 494
 +++
 
-<p>&quot;No... Brother-in-law, ah~!!&quot;</p>
+<p>&quot;No... Brother-in-law, ah!!&quot;</p>
 
 <p>The little cousin moaned in shame, able to protect her front but not her back. The rear of her denim shorts was tugged down, her snow-white buttocks immediately falling into the man&#x27;s predatory grasp.</p>
 
@@ -15,7 +15,7 @@ chapter = 494
 
 <p>By the time she felt the chill on her lower body, it was too late. Her denim shorts and pink panties were rudely yanked down by the man, tangled around her ankles in a disheveled yet provocatively sexy manner.</p>
 
-<p>&quot;So beautiful~!&quot;</p>
+<p>&quot;So beautiful!&quot;</p>
 
 <p>Luis abruptly laid her down on the seat, forcing her delicate, weak legs apart, fully exposing her virgin sanctuary.</p>
 
@@ -31,7 +31,7 @@ chapter = 494
 
 <p>Now she felt the man&#x27;s lustful gaze was almost tangible, like flames licking at her private parts, making her shudder uncontrollably and secrete fluids in humiliating arousal.</p>
 
-<p>Her struggles were utterly useless. After admiring the view, Luis chuckled lewdly, &quot;Little cousin is a hairless pussy too, so pretty~!!&quot;</p>
+<p>Her struggles were utterly useless. After admiring the view, Luis chuckled lewdly, &quot;Little cousin is a hairless pussy too, so pretty!!&quot;</p>
 
 <p>Her family&#x27;s genetic traits were truly strong. Others might shave or trim, but for this entire family to be natural hairless pussies was just too adorable.</p>
 
@@ -59,7 +59,7 @@ chapter = 494
 
 <p>Eyes blurry with drunkenness, she hesitated, then whispered shyly, &quot;Brother-in-law... I feel a bit dizzy.&quot;</p>
 
-<p>&quot;Brother-in-law will make my Ariana feel good first~!!&quot;</p>
+<p>&quot;Brother-in-law will make my Ariana feel good first!!&quot;</p>
 
 <p>With that, Luis captured her cherry lips in a kiss. Ariana seemed to resign herself to fate, closing her eyes and passively parting her lips.</p>
 
@@ -69,11 +69,11 @@ chapter = 494
 
 <p>Meanwhile, his right hand covering her pussy began its mischief, parting the labial folds to find the sensitive little clit, a fingertip probing and gently stroking.</p>
 
-<p>&quot;Mmmph... Brother-in-law... no~!!&quot;</p>
+<p>&quot;Mmmph... Brother-in-law... no!!&quot;</p>
 
 <p>&quot;Brother-in-law, it feels so tingly, how can it be like this...&quot;</p>
 
-<p>&quot;I feel like I need to pee... I can&#x27;t take it, brother-in-law, stop playing with me~!!&quot;</p>
+<p>&quot;I feel like I need to pee... I can&#x27;t take it, brother-in-law, stop playing with me!!&quot;</p>
 
 <p>The little cousin, hair disheveled, let out sobbing moans. A virgin with no sexual experience was being played with like this for the first time.</p>
 
@@ -103,7 +103,7 @@ chapter = 494
 
 <p>The potent masculine scent made the young virgin gasp shyly. She instinctively tried to turn away, but Luis would not allow it. Chuckling darkly, he cradled her small head.</p>
 
-<p>The swollen glans pressed against her trembling lips as he breathed out excitedly, &quot;Open your mouth. Take it in~!!&quot;</p>
+<p>The swollen glans pressed against her trembling lips as he breathed out excitedly, &quot;Open your mouth. Take it in!!&quot;</p>
 
 <p>&quot;You got your pleasure, now it&#x27;s brother-in-law&#x27;s turn to feel good. Lick it properly... and brother-in-law won&#x27;t fuck you today.&quot;</p>
 

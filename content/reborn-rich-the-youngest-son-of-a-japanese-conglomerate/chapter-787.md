@@ -7,7 +7,7 @@ chapter = 787
 
 <p>are illustrations of there</p>
 <p>"Sseup, ha.... Sseup... ha! It's delicious!"</p>
-<p>"Mm, mm! It's spicy but delicious, Ryuta-cchi~!"</p>
+<p>"Mm, mm! It's spicy but delicious, Ryuta-cchi!"</p>
 <p>The special class Female Students, Takakusaki Athena, and I, who had come down to the restaurant, cooked the leftover flower shrimp from yesterday that I had brought, along with Instant Noodles, to make shrimp ramen.</p>
 <p>It was quite spicy by Japanese standards, so except for a few who handled spicy food well, everyone was eating with sseup-ha sounds (they all ate well, despite the spiciness). Then the University Students came down.</p>
 <p>They looked at us awkwardly for a moment, then soon went into the restaurant kitchen and came out with something they had made: simple toast sandwiches.</p>
@@ -35,8 +35,8 @@ chapter = 787
 <p>I conversed with Saionji Diana loudly enough for everyone to hear, telling her to rest, and then subtly winked at her, unseen by others. Saionji Diana also nodded with a strange Smile.</p>
 <p>Leaving Saionji Diana, we went down to the 1st floor and stepped Outside. The hot spring was built Outside the Resort accommodation, so we had to go out.</p>
 <p>The snowstorm was still raging. The Corpses I had dug up were almost invisible by now, and to get to the hot spring, we had to trudge through snow piled almost up to my thighs. However, since it was an experience hard to come by normally, the special class doggos were very excited to walk through the snowstorm. Of course, since I was doing the hardest work of breaking through the snow and making a path, the others might have been a bit more excited.</p>
-<p>"Wow~! This is the first Time I've seen so much snow~!"</p>
-<p>"Ryuta-cchi~! Eit~!"</p>
+<p>"Wow! This is the first Time I've seen so much snow!"</p>
+<p>"Ryuta-cchi! Eit!"</p>
 <p>They were troublemakers, excitedly jumping around and throwing snow at me, but as soon as they saw the hot spring building, they slipped into the Women's bath building as if nothing had happened.</p>
 <p>"Let's go in too."</p>
 <p>"Yes."</p>
@@ -67,7 +67,7 @@ chapter = 787
 <p>Ah, I see. So, roughly, the vice-president, the slut, the childhood friend, and the pretty girl, that sums it up.</p>
 <p>"Finally.... This isn't a very important Question, but are there any Lovers within the club?"</p>
 <p>"Hmm, within the club, you could say this guy Tomohiko and Hiragami are almost in a Relationship."</p>
-<p>"What are you talking about~? Soki!"</p>
+<p>"What are you talking about? Soki!"</p>
 <p>Suzuki Soki said this as a Playful Jest to my Question. Itsu Tomohiko waved his Hand as if it was nonsense, but his Face was slightly flushed. I couldn't tell if it was because of the hot spring or Shameful Blush. Itsu Tomohiko and Hiragami Noyu seemed to be frequent targets of teasing, perhaps because they were childhood friends. From the Answer, it seemed there were no people dating each other within the club.</p>
 <p>"Then it's our Turn, isn't it?"</p>
 <p>"Yes. Ask three questions."</p>
@@ -76,12 +76,12 @@ chapter = 787
 <p>"Then the second Question is.... Why are those Students so strong?"</p>
 <p>Shiojima Atsushi asked the second Question. It seemed he was asking after seeing the Skill Seizawa Shii and Kujo Kina had shown earlier in the Auditorium.</p>
 <p>"I understand they received Training by inviting traditional martial artists or excellent Fist Technique practitioners."</p>
-<p>Of course, that wasn't the whole Story, but I roughly told them it was due to Training. Everyone nodded their Heads, saying "Ah~!" at my Answer.</p>
+<p>Of course, that wasn't the whole Story, but I roughly told them it was due to Training. Everyone nodded their Heads, saying "Ah!" at my Answer.</p>
 <p>"Do those Students have boyfriends?"</p>
 <p>"Is this the third Question?"</p>
 <p>This Time, it was Itsu Tomohiko's Question. Itsu Tomohiko flinched slightly when I asked again, but soon nodded his Head.</p>
 <p>"Probably not, I think? If they were to date, wouldn't the Man have Problems? Even though they look like that, they are all Young Ladies of prestigious families...."</p>
-<p>"As expected...! Prestigious families have things like that. Is it something like a Political Marriage? How fascinating~!"</p>
+<p>"As expected...! Prestigious families have things like that. Is it something like a Political Marriage? How fascinating!"</p>
 <p>Itsu Tomohiko let out an Exclamation of Admiration at my Answer, as if it was fascinating. He looked a bit like a slut, so I wondered if he was asking to hit on the special class Students, but it seemed he asked out of pure Innocence.</p>
 <p>At the same Time.</p>
 <p>Saionji Diana stood in front of Room 306, the Male University Students' room. Saionji Diana placed her Palm on the card key reader at the Door.</p>
@@ -93,9 +93,9 @@ chapter = 787
 <p>The phone was unlocked, and Saionji Diana checked the Line and Text Messages Tanaka Norio had used.</p>
 <p>"I found it...!"</p>
 <p>Saionji Diana, who had been searching the phone for a while, looked at the phone and smiled slightly.</p>
-<p>Sawayanagi Azuma Illustration requested by Gojoy-nim~!</p>
-<p>Casual Attire~! As the Boss of Seryu Military Company, her casual attire is a Suit hehe.</p>
-<p>Underwear~!</p>
-<p>Breast Covering~!</p>
-<p>Lisa's Misi Attire requested by Lee Seung-joo_367-nim~! I wondered what Misi attire would be, so I just simply dressed her in a Dongtan Dress hehe.</p>
-<p>Baek Lisa~!</p>
+<p>Sawayanagi Azuma Illustration requested by Gojoy-nim!</p>
+<p>Casual Attire! As the Boss of Seryu Military Company, her casual attire is a Suit hehe.</p>
+<p>Underwear!</p>
+<p>Breast Covering!</p>
+<p>Lisa's Misi Attire requested by Lee Seung-joo_367-nim! I wondered what Misi attire would be, so I just simply dressed her in a Dongtan Dress hehe.</p>
+<p>Baek Lisa!</p>

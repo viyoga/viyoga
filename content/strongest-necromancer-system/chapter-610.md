@@ -17,7 +17,7 @@ chapter = 610
 <p>Slap! Slap! Slap! Slap! Slap! Slap!</p>
 <p>Jason’s face was twisted in pure torture! It was as if Gina knew exactly how fast he liked it, so she was doing the exact opposite at this moment and at just the right speed to torment him! Gina rode Jason like she had been born for this moment, and every time he entered her, he could feel that desperate desire to just slam up into her with even more force! But Jason couldn’t move, so Gina’s pace was all he could get!</p>
 <p>Slap! Slap! Slap!</p>
-<p>"Moan~"</p>
+<p>"Moan"</p>
 <p>Gina tried her best to keep the anger on her face in place, but as time passed, she could feel that familiar tingle in her toes whenever Jason slammed so deep into her, and she bit her bottom lip and threw her head back as she enjoyed the feeling of Jason hitting her deepest part over and over again. Gina had been trying to use this sex as a means to get rid of the complicated emotions she had been feeling, and at this moment, Gina couldn’t deny that it was definitely working! The only thing on her mind at this moment was pure lust!</p>
 <p>Slap! Slap! Slap! Slap!</p>
 <p>As time passed, Gina started to move faster on top of Jason, and Jason could see how Gina’s eyes shone with pure lust as she enjoyed herself. Gina’s breasts were bouncing hypnotically in front of Jason’s eyes, and Jason took that moment to try to grab hold of them, but Gina pushed Jason back to the bed and kept him there as she narrowed her eyes down at him! Gina sped up even more, and she leaned down and whispered in Jason’s ear seductively.</p>
@@ -43,7 +43,7 @@ chapter = 610
 <p>Bam! Bam! Bam! Bam! Bam!</p>
 <p>"Ugh, fuck!"</p>
 <p>Jason grunted as he felt Gina tightening around him, and he increased his pace even more! Jason’s head was buried in Gina’s shoulder as he pounded into her, and Gina eventually felt Jason tense as his orgasm started to approach! Gina tangled her hand in Jason’s hair, and she whispered into his ear in a heated voice filled with pure lust.</p>
-<p>"Come inside me, babe! Come inside! Moan~!"</p>
+<p>"Come inside me, babe! Come inside! Moan!"</p>
 <p>Gina suddenly moaned in a soft, sexy voice that sent a shiver through Jason’s body, and Jason grunted as he slammed into Gina one last time! The bed nearly broke from the sheer force of that thrust, and Jason’s entire body shook as he released everything into Gina! Gina wrapped her hand around Jason’s head and held him close to her as she felt him filling her up, and her eyes nearly went to the back of her head from the warmth she could feel flowing through her body.</p>
 <p>The two lovers stayed in that position for a few more minutes as they tried to come down from their orgasm, and Jason eventually released Gina’s legs, and he fell on Gina’s chest with a tired sigh. Gina’s heart was beating at a mile a minute as she tried to catch her breath, and she put her hand on Jason’s head and pet him gently with a glowing smile on her face. In truth, Gina couldn’t even remember what she had been angry about anymore, and the argument they had felt like something that happened a very long time ago.</p>
 <p>’I guess mum was right. Having sex is the best way to get rid of anger.’</p>

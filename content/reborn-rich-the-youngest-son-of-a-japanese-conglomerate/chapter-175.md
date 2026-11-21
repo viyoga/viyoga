@@ -20,7 +20,7 @@ chapter = 175
 <p>"Is there anything to go through? My mother raised me well without any inconvenience, what...."</p>
 <p>Ha Ju-yoon listened to my story and looked at me with a slightly pitiful gaze.</p>
 <p>Well, Jin Yong-tae was bullied as a child for being a Korean-Japanese resident and grew up without a father, but he made good friends like Kazuhiro and Kiyohira, and Jinmija Yeosa scolded him when he went astray and praised him when he did well, so he grew up without feeling much unhappiness. The bullying was also resolved after meeting Fujigasaki Rinka.</p>
-<p>"Good job~."</p>
+<p>"Good job."</p>
 <p>Ha Ju-yoon said, hugging me with her ample breasts. Hmm.... The feeling is good. It was a pleasant chest full of maternal love. I felt Ha Ju-yoon's soft chest and gently massaged it.</p>
 <p>"Ah.... Not now♥ I have a meeting at lunchtime."</p>
 <p>I wasn't thinking about having sex, I just touched it because the feeling of her chest was good. Looking at the time, it was almost eleven forty. I should slowly go back too.</p>
@@ -42,7 +42,7 @@ chapter = 175
 <p>Han Yu-gyeong, who returned around 3 o'clock, took a nap for about two hours and woke up. I kept bothering her all night and she went straight to work early in the morning, so she was tired and immediately passed out.</p>
 <p>"*Haaam*...! If I keep living with Yong-tae, I don't think I'll live long. Because he bothers me too much at night♥"</p>
 <p>"So you don't like it?"</p>
-<p>"Noo~ I like it♥"</p>
+<p>"Noo I like it♥"</p>
 <p>Han Yu-gyeong, who woke up from sleep, took out a suit from the closet and gave it to me, telling me to wear it. Since I had a custom suit made with Han Yu-gyeong when I first went to Korea, it seemed like Han Yu-gyeong remembered the size and had a new one made.</p>
 <p>It was a little tight because my body was a little bigger than before, but it fit me well. We each put on our clothes and went outside. I went outside and asked Han Yu-gyeong what I was curious about.</p>
 <p>"But why are you telling me to wear a suit?"</p>

@@ -31,7 +31,7 @@ chapter = 79
 <p>Dante’s face appeared almost instantly. Her clit twitched the second it did.</p>
 <p>’So he’s the answer.’ Her face flushed after realizing just how down bad her body was for Dante.</p>
 <p>She slowly recalled the feeling of his monstrous length pressing against her pussy and her hands wandering that muscular body of his. She could feel herself getting wetter without even touching herself.</p>
-<p>"Dantee~" She called his name in a needy voice, her hand sliding back down toward her soaking folds.</p>
+<p>"Dantee" She called his name in a needy voice, her hand sliding back down toward her soaking folds.</p>
 <p>The moment her finger touched her pussy, her whole body jolted like she had been shocked.</p>
 <p>"Yes, just like that!" As Dante heard her calling his name, a drop of pre cum formed on his swollen tip.</p>
 <p>"Dante, I’m sorry. But Master can’t resist anymore."</p>
@@ -39,17 +39,17 @@ chapter = 79
 <p>"Look. Master is so wet for you." She looked at her glistening fingers with a flushed face. She bit her lip and used her other hand to grab one of her breasts, squeezing it through her shirt.</p>
 <p>Her fingers moved faster, sliding between her folds with no resistance now.</p>
 <p>The wet sounds filled the quiet room as her pussy dripped onto the sheets. Her thighs trembled every time her thumb pressed down on her clit.</p>
-<p>"Hnng~" She slowly replayed the scenes from her dream and felt the orgasm building.</p>
+<p>"Hnng" She slowly replayed the scenes from her dream and felt the orgasm building.</p>
 <p>The dream had cut off right at the important part. Right when Dante started eating her pussy and right when she took his cock inside her.</p>
 <p>This time, she imagined what came after. Dante burying his face between her legs and eating her out like he was starving, and her sinking down on every inch of his length while she rode him.</p>
 <p>Her hips were moving on their own now.</p>
 <p>She fucked herself on her fingers while imagining it was Dante’s cock instead. She pictured herself on top of him, taking that thick length inside her. She imagined him calling her "Master" in that low voice while she bounced on his cock.</p>
 <p>Her fingers sped up on their own. She slid two inside while her thumb kept flicking her clit.</p>
 <p>The t-shirt she was wearing had disappeared somewhere along the way. She only had her bra on. Her free hand slipped underneath and teased her stiff nipples.</p>
-<p>"Nngh~" Dante, Master will do her best to teach you~" She moaned through her words as she thought of all the filthy things she was going to do to him in the name of teaching.</p>
+<p>"Nngh" Dante, Master will do her best to teach you" She moaned through her words as she thought of all the filthy things she was going to do to him in the name of teaching.</p>
 <p>As a master, she wasn’t even supposed to feel this way about her student. But the fact that she was getting off to the thought of ’teaching’ him was the nail in the coffin.</p>
 <p>Her back arched off the bed. Her thighs clamped around her own hand as the orgasm hit hard.</p>
-<p>"Ah~ Dante~ I AM COMING!" A broken moan tore out of her throat as her pussy clenched and pulsed around her fingers.</p>
+<p>"Ah Dante I AM COMING!" A broken moan tore out of her throat as her pussy clenched and pulsed around her fingers.</p>
 <p>Natasha screamed her student’s name without a shred of shame and squirted all over the bed, her love juices splattering across the sheets. The barrier she had set up collected every last drop without missing a single bit.</p>
 <p>"Fuck... Natasha!" Dante groaned her name as he came. His hand pumped faster, pushing himself over the edge.</p>
 <p>His cock throbbed in his grip. Thick ropes of cum shot out across his stomach and hand. He kept stroking through it, milking every last drop while he watched Natasha’s body slowly relax on the screen, her tits rising and falling with heavy breaths.</p>

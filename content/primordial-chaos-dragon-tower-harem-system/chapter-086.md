@@ -33,14 +33,14 @@ chapter = 86
 <p>"You would have to taste to confirm," Unity said, though she blushed.</p>
 <p>"Then here I come" Kent planted his tongue inside her nether cave. The moment his tongue entered her pussy cave, her body trembled.</p>
 <p>Kent grabbed her by the waist and sank his tongue deep into her as he began licking her pussy like it was some sweet toffee.</p>
-<p>"Mmmmmmhhh~"</p>
-<p>"Aaaaaaaaaaahh~"</p>
+<p>"Mmmmmmhhh"</p>
+<p>"Aaaaaaaaaaahh"</p>
 <p>Her moans filled the room.</p>
 <p>On the lower part of his body, Lilian’s saliva was drooling down Kent’s divine rod as she slurped and sucked on his dick.</p>
 <p>She might not have mastered the art yet, but she was trying her best to deepthroat him. It’s a worthy effort nonetheless.</p>
 <p>Whenever Kent’s dick touches her throat, a wave of pleasure will surge into his body. The feeling was just too intense that just ten minutes into her sucking, he could feel his load building up.</p>
 <p>But, of course, he had to drain Unity first. His tongue was licking and wiping her inner cave until Unity started vibrating on their face.</p>
-<p>"I am cummmminggg~"</p>
+<p>"I am cummmminggg"</p>
 <p>*Squirt* *Squirt* *Squirt*</p>
 <p>Her moan came loud and hard as she exploded her dam on Kent’s face. Her sweet nectar poured on her face and mouth and even choked him through his nose.</p>
 <p>"Damn, I want more" He sinks even deeper as he continues to lick. Soon, her dam burst again, and Kent, true to his words, swallowed and licked her dry. After licking her dry, he gently tosses her onto the bed.</p>
@@ -60,7 +60,7 @@ chapter = 86
 <p>Thus, Vexthra was the first wife, Unity Second, and Lilian third. This meant that in a threesome, Unity would go first since Vexthra wasn’t round to make it a foursome.</p>
 <p>He teased her for a few seconds by rubbing his dick against her Nether cave before putting it inside her.</p>
 <p>After making sure his dick was inside her body, he began thrusting. The next second, her moans filled the room. Kent wasn’t using any unique technique. He was just thrusting, making sure his dick hit all the right spots.</p>
-<p>"Mmmmmmhhh~"</p>
-<p>"Aaaaaaaaaaahh~"</p>
+<p>"Mmmmmmhhh"</p>
+<p>"Aaaaaaaaaaahh"</p>
 <p>Lilian sat on the bed, watching with anticipation. She didn’t want to admit it but wanted to monopolize Kent when she first saw him.</p>
 <p>But now, watching her former servant and friend taking his dick, she knew they had just started a marathon. She wanted to savour all the pleasures she could before going back to the academy.</p>

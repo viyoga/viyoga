@@ -35,7 +35,7 @@ chapter = 382
 <p>And since she had access to the fortress’s defensive arrays, whenever she sensed any man other than Ethan approaching, a single thought was enough for the power of her Rank S axe to drape her body in more modest clothing.</p>
 <p>Beyond armor, the axe could also replicate ordinary fabrics, which made it quite useful in everyday life.</p>
 <p>At the slap, Evelyn let out a sweet grunt that quickly dissolved into a long, trembling moan, her hips instinctively arching backward in search of more contact, that plump rear pressing right into his palm as though begging for a second strike.</p>
-<p>"Nghnn~~ P-pervert... can’t you see I’m busy?" Evelyn managed, trying in vain to force a tone of anger into her honeyed voice, her flushed cheeks betraying any attempt at irritation.</p>
+<p>"Nghnn P-pervert... can’t you see I’m busy?" Evelyn managed, trying in vain to force a tone of anger into her honeyed voice, her flushed cheeks betraying any attempt at irritation.</p>
 <p>"I see," Ethan nodded, leaning over her and pressing a slow kiss to her damp neck, his lips brushing against skin salty with sweat.</p>
 <p>Evelyn shuddered from head to toe, a shiver rolling up her spine. Mireya, watching the pair with her arms crossed, merely snorted and looked away with feigned disdain, her purple cheeks taking on a faint pink hue that betrayed her indifference.</p>
 <p>The many newly selected beauties had interrupted their training as well, now watching Ethan with flushed faces, muffled whispers spreading rapidly through the ranks.</p>

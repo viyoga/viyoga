@@ -23,7 +23,7 @@ chapter = 27
 
 <p>Leah stood up and took a few steps, her eyes clearly unable to hide her delight. Luis asked again with concern, &quot;How are they? Do they fit?&quot;</p>
 
-<p>&quot;They’re perfect~!&quot;</p>
+<p>&quot;They’re perfect!&quot;</p>
 
 <p>Leah, who had been acting shy all day, gave Luis a sweet smile.</p>
 
@@ -61,7 +61,7 @@ chapter = 27
 
 <p>But she wore a sweet smile because Luis had thrown all her old living supplies from the military training into the trash without hesitation, clapping his hands and saying, &quot;Got it. You’re so young but already nagging like your mom. I’ll take you to buy new ones tonight.&quot;</p>
 
-<p>&quot;Okay~!&quot;</p>
+<p>&quot;Okay!&quot;</p>
 
 <p>Leah smiled sweetly, her shy, lovestruck expression enough to make anyone’s heart flutter.</p>
 

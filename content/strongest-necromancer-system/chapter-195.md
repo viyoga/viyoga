@@ -5,7 +5,7 @@ weight = 195
 chapter = 195
 +++
 
-<p>Ring~! Ring~! Ring~!</p>
+<p>Ring! Ring! Ring!</p>
 <p>Jason blinked in surprise and turned away from the system tab to look at the bags that he kept at the side. The bags contained all the things that hadn’t burned down in their house earlier, so there were clothes, shoes, and some utensils in there. But Jason was able to immediately recognize the ringtone that was playing.</p>
 <p>’Gina’s phone.’</p>
 <p>Jason stood up and walked over to the bag to grab the ringing phone. He looked at the caller ID and immediately felt a hollow feeling in his chest when he saw the name ’mum’ with a heart blinking on the phone. Jason had known Gina’s parents for a long time since both families lived close together since Jason and Gina were kids. His family and theirs had been close friends for as long as Jason could remember, and it was only after Gina’s parents moved to a remote farm outside the city that they lost contact. But Jason could still remember Gina’s mother as a kind woman who had taken care of him and his siblings whenever his parents were busy with the shop, along with Gina’s stern father who always gave them some money to go to the candy store so they wouldn’t bother him. Jason didn’t know if he could talk to them right now.</p>

@@ -40,7 +40,7 @@ chapter = 547
 <p>"They said they'll be waiting in the club room."</p>
 <p>"Then we can go straight to school."</p>
 <p>Fortunately, it seemed that everyone was still in the club room, so I didn't have to call the kids who were at home again. We arrived at the school quickly, and I greeted the guards at the school gate.</p>
-<p>"Good work~!"</p>
+<p>"Good work!"</p>
 <p>"Yes, take care, teacher."</p>
 <p>The guards didn't say anything to me even though I was taking a student on the back of the bike. It seems that the lubrication I've been doing has been successful. We took the bike to the special class building and went straight up to the second floor.</p>
 <p>"Teacher-ssi! What's going on?"</p>
@@ -72,4 +72,4 @@ chapter = 547
 <p>Otagi Yuka, Urabe Konoka, and Sakagami Rena were still putting their heads together and thinking about how to safely release the seal. It seemed easy to just release it, but that was a dangerous thing for Naruse Shiyo, just like the Naruse family threatening Naruse Koyou to release the seal.</p>
 <p>----------------------------</p>
 <p>SD Alik!</p>
-<p>Kkawaiing~!</p>
+<p>Kkawaiing!</p>

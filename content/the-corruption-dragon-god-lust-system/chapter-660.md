@@ -49,7 +49,7 @@ chapter = 660
 
 <p>Seeing both her husband and the Grand Elder in silence, she stood up.</p>
 
-<p>“Very well, I’ll allow it. Don’t miss this chance; get closer to Qingyi and make sure you don’t miss out on any fortune by his side, fufufu~” Madame Lao chuckled, planting a seed with that final taunt.</p>
+<p>“Very well, I’ll allow it. Don’t miss this chance; get closer to Qingyi and make sure you don’t miss out on any fortune by his side, fufufu” Madame Lao chuckled, planting a seed with that final taunt.</p>
 
 <p>Xue Hua caught the teasing and blushed, clenching her fists tightly.</p>
 

@@ -20,7 +20,7 @@ chapter = 745
 <p>Konoe Akina explained her suspicion that Yamashiro Ryuta might not be sick and that he had been out of contact since meeting with student council Chairman Taira Kanna yesterday, suggesting he might have been kidnapped.</p>
 <p>"Wait, Ryuta-jji's skills are not ordinary.... If he was kidnapped, how did they manage to do it?"</p>
 <p>"That's why we're asking you, Shii. Since a skilled teacher was kidnapped, it would be troublesome if the enemy is stronger than our forces."</p>
-<p>"Is that so? Kanna-chi calling Ryuta-jji 'Oppa' gives me a bit of a fox-like feeling. If Ryuta-jji really was kidnapped as KinaKina-chan says, then I should lend a hand too~!"</p>
+<p>"Is that so? Kanna-chi calling Ryuta-jji 'Oppa' gives me a bit of a fox-like feeling. If Ryuta-jji really was kidnapped as KinaKina-chan says, then I should lend a hand too!"</p>
 <p>Having heard the whole story, Seizawa Shii rolled up her sleeves and enthusiastically expressed her determination to rescue their teacher.</p>
 <p>"Still, it's a dangerous job.... Here's the contract."</p>
 <p>Konoe Akina handed Seizawa Shii a contract. Of course, they could have just asked as fellow special class students, but since there was danger involved and for the sake of confidentiality, it was better to have a written contract.</p>
@@ -55,7 +55,7 @@ chapter = 745
 <p>"Haaah...!"</p>
 <p>As I pushed my dick deep into Taira Kanna's pussy, Taira Kanna trembled slightly and reached a small climax.</p>
 <p>As Taira Kanna said, it was already wet enough, but it wasn't the kind of feeling where it slid right in, probably because it was tight. I did it all day yesterday, and it's still this tight.... Her pussy has considerable restorative power.</p>
-<p>"Feels so good, euheung~! Oppa, do you want to see inside?"</p>
+<p>"Feels so good, euheung! Oppa, do you want to see inside?"</p>
 <p>Because she was wearing a school uniform, the inserted appearance was hidden by the skirt. So, depending on how you looked at it, it just looked like Taira Kanna was sitting on top of me.</p>
 <p>"Hehehe, if you want to see it that much, here's a sexy view of my wet pussy and haah! Oppa's heinous dick heuh! combined together!"</p>
 <p>No, I never said I wanted to see it. Of course, I'll watch if you show me. Before I could even protest that I didn't say that, Taira Kanna lifted her skirt and showed me the sight of me and her connected.</p>
@@ -67,7 +67,7 @@ chapter = 745
 <p>"Haa, heuheu, be quiet...! Oppa, your dick heuh! is saying something different...♡"</p>
 <p>My dick didn't say anything, but Taira Kanna was making things up. Still, I was curious about what she said, so I decided to ask.</p>
 <p>"What did my dick say?"</p>
-<p>"Haaang~♡ It wants to heuh! stay inside Kanna's pussy forever...!"</p>
+<p>"Haaang♡ It wants to heuh! stay inside Kanna's pussy forever...!"</p>
 <p>She was saying something ridiculous (of course, the feeling of Taira Kanna's pussy felt by my dick felt really good), so I decided to continue persuading her with what I had been saying until just now.</p>
 <p>"What about grandfather? It's not just me who's in trouble if I go missing during a mission."</p>
 <p>"What about grandmother? She cares about me a lot, she'll be sad if I go missing."</p>
@@ -77,7 +77,7 @@ chapter = 745
 <p>"Does Oppa hate me?"</p>
 <p>Taira Kanna's yandere-like eyes deepened. Hmm.... I think I need to answer this well.</p>
 <p>__________</p>
-<p>Bikini finger hearts of the nurse and home economics teacher requested by NoRefunds~!</p>
-<p>From the nurse~!</p>
-<p>Home economics teacher~!</p>
+<p>Bikini finger hearts of the nurse and home economics teacher requested by NoRefunds!</p>
+<p>From the nurse!</p>
+<p>Home economics teacher!</p>
 <p>Kkiyot!</p>

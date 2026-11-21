@@ -59,7 +59,7 @@ chapter = 379
 <p>“My Lord…”</p>
 <p>“What is the matter, Nef?”</p>
 <p>“I just… I can feel that you are quite tense. Anything wrong?”</p>
-<p>“Haaah~... It’s nothing. Let’s just say that I have received quite the nonsensical mission.”</p>
+<p>“Haaah... It’s nothing. Let’s just say that I have received quite the nonsensical mission.”</p>
 <p>Nefertiti smiled and caressed his hair, “No matter what happens, we will always be by your side.”</p>
 <p>“Thank you, Nef.”</p>
 <p>———</p>

@@ -58,7 +58,7 @@ chapter = 677
 <p>I didn't plan to ask about the marriage proposal right away either, so I turned on the tablet and was looking for a cartoon to watch. Hmm... Since Minamoto Lisa is watching ○Piece, should I watch ○Punch Man? I'm curious about how the story is progressing too.</p>
 <p>"I'm going to watch ○Punch Man."</p>
 <p>"Ah, really?!"</p>
-<p>As expected of a ○Punch Man otaku, she smiles brightly when I say I'm going to watch ○Punch Man. Then, with a proud expression, she says, "Have fun~!" and turns her gaze back to her tablet screen.</p>
+<p>As expected of a ○Punch Man otaku, she smiles brightly when I say I'm going to watch ○Punch Man. Then, with a proud expression, she says, "Have fun!" and turns her gaze back to her tablet screen.</p>
 <p>I was curious about where Minamoto Lisa was watching, so I took a peek and saw that she was watching the Desert Kingdom and Alligator arc. This arc is quite interesting too. I also turned on ○Punch Man and started rewatching it from episode 1. It's good to watch it from the beginning since I'm watching it anyway.</p>
 <p>"...."</p>
 <p>"...."</p>

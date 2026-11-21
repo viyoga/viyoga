@@ -47,7 +47,7 @@ chapter = 579
 
 <p>His hands moved up her body, cupping her breasts through the fabric of her gown.</p>
 
-<p>“Mmmhh ~ ” Emma’s head fell back against his shoulder, a soft moan escaping despite her concern about being watched.</p>
+<p>“Mmmhh  ” Emma’s head fell back against his shoulder, a soft moan escaping despite her concern about being watched.</p>
 
 <p>“Julian,” she whispered, even as her body arched into his touch. “We shouldn’t—not here—”</p>
 

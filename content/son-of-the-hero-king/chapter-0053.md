@@ -14,8 +14,8 @@ chapter = 53
 <p>"Oh, my!"</p>
 <p>Milia felt her heart pierced by a giant arrow at the hundred-megawatt smile Sol just sent to her.</p>
 <p>She had to admit, Sol with short hair had a real new type of charm.</p>
-<p>"Your highness was already incredibly handsome. Now though, you have a different type of smile. More like a bad boy. Fufufu~!"</p>
-<p>'Fufufu~! And I also got his hair for my new collection!'</p>
+<p>"Your highness was already incredibly handsome. Now though, you have a different type of smile. More like a bad boy. Fufufu!"</p>
+<p>'Fufufu! And I also got his hair for my new collection!'</p>
 <p>Sol, unaware of the disturbing thought she had, smiled back at her. The light of dawn was already coming and soon he would have to appear for the first time under the eyes of his future citizens.</p>
 <p>"Well, help me wear my armor."</p>
 <p class="scene-break">· · ·</p>
@@ -26,7 +26,7 @@ chapter = 53
 <p>In short, it was the kind of privilege only the rich could afford and as the crown prince. Sol could lack anything but money.</p>
 <p>On the side, Milia could be seen holding a tissue under her nose as she gave a thumbs up. The tissue, slightly wet with blood.</p>
 <p>"Your highness is perfect!!"</p>
-<p>"Hahaha~! Thanks. Well, it's time to go I guess. We shouldn't let my aunt wait."</p>
+<p>"Hahaha! Thanks. Well, it's time to go I guess. We shouldn't let my aunt wait."</p>
 <p class="scene-break">· · ·</p>
 <p>There was no gate between the tower and the coliseum. The fact was that gate were always two ways. Allowing a special gate from the Tower to the coliseum meant that the opposite direction was possible. The fact that the tower was connected to the church was only possible because of their relationship.</p>
 <p>As such, it was in a luxurious carriage, carried by four white nightmare horses. It was scheduled for Sol to come back on his own nightmare horse once the ceremony and the fight ended. It was a sort of demonstration, to show that even after fighting, the future king could still run on horseback.</p>

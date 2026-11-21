@@ -5,8 +5,8 @@ weight = 665
 chapter = 665
 +++
 
-<p>"Huuuk.... Huuuk, Hwaaaaang~! Ryuta-jji...!"</p>
-<p>Seizawa Shii hugged me and started crying. She wasn't just sobbing, she was wailing like, "Bweeeeh~!" so I was a little taken aback. She wouldn't cry this much over what happened at Yoda-halbae's dojo today. I don't know exactly what happened, but she must have had a pretty tough day. I patted Seizawa Shii on the back, comforting her without a word.</p>
+<p>"Huuuk.... Huuuk, Hwaaaaang! Ryuta-jji...!"</p>
+<p>Seizawa Shii hugged me and started crying. She wasn't just sobbing, she was wailing like, "Bweeeeh!" so I was a little taken aback. She wouldn't cry this much over what happened at Yoda-halbae's dojo today. I don't know exactly what happened, but she must have had a pretty tough day. I patted Seizawa Shii on the back, comforting her without a word.</p>
 <p>Shii, who had been crying for a while, stopped crying at my patting, but was still hiccuping, making a sound similar to hiccups after crying.</p>
 <p>"Are you feeling a little better? What's wrong?"</p>
 <p>"Eung, because of what happened today...."</p>
@@ -25,10 +25,10 @@ chapter = 665
 <p>"Let's apologize to Kujo and Yoda-yeonggam formally later, and think together about how to defend against mental attacks in the future."</p>
 <p>"What's Yoda-yeonggam?"</p>
 <p>Seizawa Shii tilted her head and asked at my words. Seizawa Shii isn't from the Star Wars generation. I searched for Yoda and showed it to Seizawa, who was sitting and hugging me.</p>
-<p>"Aaaha...! Ryuta-jji, what is that~? That's too much. That little old man is going to get angry~!"</p>
+<p>"Aaaha...! Ryuta-jji, what is that? That's too much. That little old man is going to get angry!"</p>
 <p>Seizawa Shii was laughing hysterically while telling me that I was being too much. Isn't laughing like that a more severe attitude than mine?</p>
 <p>"He's already angry enough. I only thought about it when we first met, but he noticed and kicked me in the shin."</p>
-<p>"You only thought about it, but he hit Ryuta-jji? Ahaha~☆ What a funny old man? Doesn't he have mind-reading powers?"</p>
+<p>"You only thought about it, but he hit Ryuta-jji? Ahaha☆ What a funny old man? Doesn't he have mind-reading powers?"</p>
 <p>After cheering up Seizawa Shii a little with the story about Yoda-halbae, I decided to ask her something I was curious about.</p>
 <p>"Why does Seizawa do fixer work?"</p>
 <p>"Well.... I've been super strong since I was a kid, and I started doing it because I could punish bad guys and get paid for it. Since when, middle school 3rd year? I've been doing it for five years now."</p>

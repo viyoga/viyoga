@@ -32,7 +32,7 @@ chapter = 997
 <p>-Ryuta: For now, tell them to wait a bit. I'll figure out what's going on and be there soon. Actually, I didn't have any particularly urgent things to do right now. The major competition was over, and I had done my part as Boss by achieving great Performance with East Weapon. And Taira Food distribution wasn't a company whose Performance would drop depending on the presence or absence of its Boss.</p>
 <p>Of course, before going to the USA, I had planned to weave a few conspiracies into the Taira Successor structure, and check the UCT that Yukiko had given me to learn about the Information Taira Shizuku had provided and the individuals from the Taira Saburo line who had left the Taira Family, but it seemed fine to change the order and go to the USA first.</p>
 <p>Conspiracies could be woven anytime, and the individuals from the Taira Saburo line who had left the Taira Family wouldn't just disappear somewhere while I was briefly in the USA.</p>
-<p>-EVE: Understood. Since you'll be here, you'll also need to handle Cyberware Work, so I'll prepare the necessary Documents~! -Ryuta: Yes~! See you soon.</p>
+<p>-EVE: Understood. Since you'll be here, you'll also need to handle Cyberware Work, so I'll prepare the necessary Documents! -Ryuta: Yes! See you soon.</p>
 <p>Although I said I'd go as early as possible, I still needed to talk with my various Staff Officers. First, I should Contact Linxiang, who would be at the company. When I called Linxiang, she answered before the Phone Call even rang once.</p>
 <p>-Yes, Boss-nim. Seeing her say "Boss-nim," it seemed there were employees around her. Since it was before lunch, they must be in the middle of Work.</p>
 <p>"Linxiang, I'll be going to the USA as soon as possible. For details, check with Eve, and I'll send you data through a secure channel, so understand that and create data to share with the Joseodang."</p>
@@ -45,7 +45,7 @@ chapter = 997
 <p>Tsukiyo asked what she would do as soon as I said I was going to the USA. Unfortunately for Tsukiyo, I wasn't planning to take her this time.</p>
 <p>I planned to give Tsukiyo the Mission of guarding my mansion and time to learn about my company Work by following Linling. This was because I thought Tsukiyo still needed Education to become one of my core Staff Officers.</p>
 <p>Furthermore, since it hadn't been long since she caught the eye of the Paranormal Phenomenon Management Bureau, going to the USA again might attract unnecessary attention, so I wasn't planning to take Tsukiyo on this trip to the USA.</p>
-<p>"Eh...! I want to go too~! Older Brother-aaang!"</p>
+<p>"Eh...! I want to go too! Older Brother-aaang!"</p>
 <p>Realizing from my Expression that I wouldn't take her, Tsukiyo threw a tantrum, saying she wanted to go together.</p>
 <p>"Tsukiyo, I want to go with you too, but...."</p>
 <p>I soothed Tsukiyo and told her the Reasons I had just thought of. As I explained each one, Tsukiyo pouted and reluctantly nodded her Head.</p>

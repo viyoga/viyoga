@@ -40,7 +40,7 @@ chapter = 1004
 <p>The Public Officials were kind, probably because I had promised to provide cyber implants at a discounted Price to the child of one of the Public Officials.</p>
 <p>Cyberware had recently become famous as a company that makes lifestyle cyber implants that are not significantly different from human Skin, so the Public Official in charge was very happy.</p>
 <p>"Here are the Documents."</p>
-<p>"Thank you, Ryuta-nim~!"</p>
+<p>"Thank you, Ryuta-nim!"</p>
 <p>Eve received the Documents I handed her. For reference, Eve was currently in the USA with her android Main body, not as a hologram.</p>
 <p>After I left St. Francis Girls' academy, there was no longer any Reason to be in Miyashi as an android body, so she immediately left Japan and came to the USA, she said. She said it was for Cyberware Work and also for personal Purpose.</p>
 <p>I asked Eve about that personal Purpose out of curiosity, but unlike the usual Eve who would answer anything I asked, she shook her Head with an embarrassed Expression, so I couldn't find out her Purpose.</p>
@@ -48,7 +48,7 @@ chapter = 1004
 <p>As Eve said, Cyberware could be considered my company, so this trip to the USA was naturally something I had to help with, but seeing my Sincerity in coming all the way to the USA, Eve seemed to have prepared a Gift of Information.</p>
 <p>"Thank you."</p>
 <p>After receiving the UCT that Eve handed me, I parted ways with Eve and returned to the Federal Superpower Management Department's Safe House. Since it was around lunch Time, I asked my Party what they wanted to eat, and then bought and packed what each of them wanted.</p>
-<p>"Haaam~! Disciple, you brought the Hamburger I requested, right?"</p>
+<p>"Haaam! Disciple, you brought the Hamburger I requested, right?"</p>
 <p>"Yes. Is this burger really that delicious?"</p>
 <p>I asked Fujigasaki Rinka, who was yawning as if she had just woken up and immediately looked for a burger. What Fujigasaki Rinka had requested was a Hamburger, and it seemed to be quite a famous Place, as I had to queue up to get it packed.</p>
 <p>I heard it was the Hamburger franchise that was expanding the fastest since the Third World War. It was called Mars Burger, and now that I think about it, if Mars means the planet Mars, is this a Mother Mars company Product?</p>
@@ -80,16 +80,16 @@ chapter = 1004
 <p>This Time, Lianna Holden spoke. Surprised by this Information, she had ketchup on her Mouth and was staring blankly at the Screen.</p>
 <p>"...A Storm of Confusion will sweep over New York."</p>
 <p>Musashi Takuro, who knew the Black Sage's Strength, muttered. If the Black Sage was only a part of this Matter, then, as Musashi Takuro said, a Storm of Confusion would truly sweep over New York.</p>
-<p>Chomise-meonji-nim requested Liz's breast covering and underwear Attire~!</p>
-<p>Breast covering~!</p>
-<p>Underwear~!</p>
+<p>Chomise-meonji-nim requested Liz's breast covering and underwear Attire!</p>
+<p>Breast covering!</p>
+<p>Underwear!</p>
 <p>TheDreaming-nim requested Gokado Hanako 1. Rainy Park 2. Falling on the Road</p>
 <p>1.</p>
 <p>2.</p>
 <p>When I tried with the requested loose panties, it came out like this, so from the next Image, I just put on normal panties hehe.</p>
-<p>As I mentioned a few days ago, due to an AI error, I'm currently organizing the LORA, so I couldn't apply the phone camera LORA ㅠㅠ. It seems it will be applicable from the next Request~!</p>
-<p>Hwanbuljeoldaebulga-nim requested Lisa, the lying Belly Dancer, and the Home Teacher-nim~!</p>
-<p>Lisa~!</p>
-<p>Home Teacher-nim~!</p>
-<p>Bonus~! Home Teacher-nim made with the Lisa model~!</p>
+<p>As I mentioned a few days ago, due to an AI error, I'm currently organizing the LORA, so I couldn't apply the phone camera LORA ㅠㅠ. It seems it will be applicable from the next Request!</p>
+<p>Hwanbuljeoldaebulga-nim requested Lisa, the lying Belly Dancer, and the Home Teacher-nim!</p>
+<p>Lisa!</p>
+<p>Home Teacher-nim!</p>
+<p>Bonus! Home Teacher-nim made with the Lisa model!</p>
 <p>I didn't even realize I hadn't changed the model, and then I checked, wondering, 'Huh, why doesn't it feel like the original Home Teacher-nim?' and it turned out I had made it with the Lisa model hehe.</p>

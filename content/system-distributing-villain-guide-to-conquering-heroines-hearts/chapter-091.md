@@ -20,7 +20,7 @@ chapter = 91
 <p>She quickly looked away, pretending to fix the pages of her book so he wouldn’t catch the redness creeping up her cheeks. ’Get a grip, Natasha. He’s just a boy talking about his dreams. Don’t read too much into it.’</p>
 <p>But no matter how much she told herself that, the warmth spreading inside her refused to go away.</p>
 <p>’...Fine then,’ she thought, glancing at him from the corner of her eye.</p>
-<p>’I’ll make sure I become someone worth protecting for you~’</p>
+<p>’I’ll make sure I become someone worth protecting for you’</p>
 <p>***</p>
 <p>Time slipped away faster than either of them realized.</p>
 <p>By the time Natasha finally called an end to the lesson, evening had already settled in. Both of them stepped out of the secret room together.</p>

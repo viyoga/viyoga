@@ -51,7 +51,7 @@ chapter = 949
 <p>Was a foot.</p>
 <p>Elegant, pale, and unmistakably elven with high arches, slender toes, and a delicate anklet that jingled with every movement. It stepped forward onto the cool earth with the grace of moonlight.</p>
 <p>Before Quinlan could even trace his gaze higher, a voice slipped through the portal. It was smooth, sultry, and unmistakably teasing.</p>
-<p>"Ah ah... no peeking, master~"</p>
+<p>"Ah ah... no peeking, master"</p>
 <p>Seraphiel.</p>
 <p>The warmth in her voice was playful, but the command beneath it was firm. He wasnt to look.</p>
 <p>"Even now, youre going to make me wait?"</p>

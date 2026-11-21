@@ -39,7 +39,7 @@ chapter = 480
 <p>She stood up, brushing the dust off her knees, and her eyes fell on a figure approaching rapidly through the trees, swift as a shadow.</p>
 <p>Seo-ah didn’t have time to react.</p>
 <p>Her eyes widened as the woman—slightly taller than her, with much larger breasts—threw herself at her with all her might.</p>
-<p>"Hehehe~ your vice-leader, BustyViper, has arrived, girls!" she declared, wrapping her arms around Seo-ah, the two of them crashing to the ground with a muffled thud of metal.</p>
+<p>"Hehehe your vice-leader, BustyViper, has arrived, girls!" she declared, wrapping her arms around Seo-ah, the two of them crashing to the ground with a muffled thud of metal.</p>
 <p>BustyViper let out a loud laugh as her enormous breasts swallowed Seo-ah’s face whole. The soft, heavy mounds spilled over the edges of her bodysuit’s cleavage, molding around Seo-ah’s nose and cheeks until there was nothing but warm, pillowy flesh in every direction.</p>
 <p>Seo-ah could only grunt, smothered under all that weight.</p>
 <p>As if that weren’t enough, BustyViper wiggled on her lap, laughing, her wide hips rolling up and down in small, lazy circles. Her plump butt pinned Seo-ah’s thighs against the cold ground, her fat buttocks flattening against the hard metal, bulging around the edges of the armor.</p>

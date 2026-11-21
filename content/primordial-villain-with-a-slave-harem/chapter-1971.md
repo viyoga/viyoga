@@ -54,7 +54,7 @@ chapter = 1971
 <p>Vex stood beside Quinlan with her new badge in one hand, still glaring at the stairs. He settled his hand on her white hair.</p>
 <p>"That was quite the speech."</p>
 <p>She looked up at him, the fury lingering for a moment before she registered the affection in his touch. His fingers stroked her head, and her lips parted in a delighted little smile.</p>
-<p>"Hubby~ It felt so good!"</p>
+<p>"Hubby It felt so good!"</p>
 <p>The murderous hexwitch leaned into his palm. She sheathed her sword and put her badge away, her eyes shining with happiness as she slipped an arm around his and pressed close to her husband.</p>
 <p>"Welcome to Sarthal!"</p>
 <p>The woman who had first spoken up lifted her mug toward them. Others cheered with her, and someone began clapping hard enough to turn heads at the stairs.</p>

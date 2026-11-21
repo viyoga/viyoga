@@ -53,7 +53,7 @@ chapter = 941
 <p>"It came earlier than expected, but an inspection is an inspection. That’s why the inspector gets exactly what the law entitles him to and nothing else."</p>
 <p>Everyone at the table listened to him attentively. He sounded genuinely at peace with hosting a federal audit on his first morning.</p>
 <p>Then his eyes flashed, deep, menacing crimson. "And when we find out who’s truly behind today, I want their name in my hands before the Bureau even knows we’re looking."</p>
-<p>"On it~" Nyx purred, phone out.</p>
+<p>"On it" Nyx purred, phone out.</p>
 <p>"Leave it to me, sir," Doug said, pen already clicking.</p>
 <p>"..." Vespera’s eyes mimicked her son’s as she watched Aria’s footage of a rancid rat. She knew their enemies wouldn’t sit still as Eclipse grew impossibly big, but that didn’t mean she needed to like what was happening.</p>
 <p>"Good," Kaiden smiled. "Let’s get to work, then."</p>

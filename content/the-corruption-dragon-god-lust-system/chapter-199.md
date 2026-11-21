@@ -21,7 +21,7 @@ chapter = 199
 
 <p>“Senior, what’s going on?” Qingyi asked, grabbing her waist and studying her body.</p>
 
-<p>“Nghnn~~” Rongyan moaned, opening her eyes for a brief moment before closing them again.</p>
+<p>“Nghnn” Rongyan moaned, opening her eyes for a brief moment before closing them again.</p>
 
 <p>At that moment, Qingyi noticed something on her chest.</p>
 
@@ -47,13 +47,13 @@ chapter = 199
 
 <p>He knew well that that kind of thing of sucking the poison out was bullshit, the poison spread throughout the body in seconds, but with good Qi control, it was totally possible to suck this poison out.</p>
 
-<p>“Mhmmn~~” Rongyan’s eyes widened, feeling a powerful hand resting on her fat, juicy buttocks while the other grabbed her left breast, squeezing tightly.</p>
+<p>“Mhmmn” Rongyan’s eyes widened, feeling a powerful hand resting on her fat, juicy buttocks while the other grabbed her left breast, squeezing tightly.</p>
 
 <p>“W-what are you doing?” She asked, her vision still a little shaky.</p>
 
 <p>“The senior has been poisoned, I’m sucking out the poison, don’t resist my Qi.”</p>
 
-<p>“You don’t have to ghnn~~ touch me there to remove the poison…” Rongyan gasped, her already flushed face becoming even more vibrant as she felt something large and pulsating pressing against her groin.</p>
+<p>“You don’t have to ghnn touch me there to remove the poison…” Rongyan gasped, her already flushed face becoming even more vibrant as she felt something large and pulsating pressing against her groin.</p>
 
 <p>[You touched a specialist of much higher cultivation than yours in an extremely indecent way! +3000 lust points]</p>
 
@@ -115,7 +115,7 @@ chapter = 199
 
 <p>Her ass hit his hips with a bang, his cock breaking through her virginity and hitting the walls of her womb.</p>
 
-<p>“Oghnn~~!” A loud, guttural moan escaped Rongyan’s lips, her whole body shuddering with pain and pleasure.</p>
+<p>“Oghnn!” A loud, guttural moan escaped Rongyan’s lips, her whole body shuddering with pain and pleasure.</p>
 
 <p>The legs of the bed shuddered before breaking apart.</p>
 

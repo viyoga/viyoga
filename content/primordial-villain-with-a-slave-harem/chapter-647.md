@@ -25,7 +25,7 @@ chapter = 647
 <p>The little foxy was caught in the maws of the beast.</p>
 <p>She tried to pull back for a moment, but my hands gripped onto her thighs, locking her in place.</p>
 <p>"You're such a brute!" Kitsara half-gasped, half-laughed. I soon noticed she offered no more resistance.</p>
-<p>I chuckled against her leaking cavern as I heard her reaction, the vibration of which made this fox woman shudder before she began sliding her crotch up and down on my lips, leaning into my licks and kisses. "Mmmm~ Who knew getting licked would feel this good…? Maybe the doggies were onto something all along."</p>
+<p>I chuckled against her leaking cavern as I heard her reaction, the vibration of which made this fox woman shudder before she began sliding her crotch up and down on my lips, leaning into my licks and kisses. "Mmmm Who knew getting licked would feel this good…? Maybe the doggies were onto something all along."</p>
 <p>I continued feasting on her liquids for a good minute before I detached my lips from hers.</p>
 <p>*Puah!*</p>
 <p>A loud, slutty noise welcomed my actions.</p>
@@ -51,7 +51,7 @@ chapter = 647
 <p>I swallowed her gasps, her moans, and every little sound she made as our lips and tongues moved in sync. The world around us faded: there was no wind, no sky, no ground beneath us. Just her, me, and the intoxicating heat between us.</p>
 <p>Feeling Kitsara was more than ready, I allowed my cock to give a kiss to her drenched lower lips, snapping her eyes wide open instantly. There were no words exchanged between us, for the dance of our tongues in her damp mouth never ceased for a single second. We did not even need to use [Master's Link] to communicate. Our eyes did all the work.</p>
 <p>A small shine in her gaze told me all I needed to know. She was more than ready. I used my hold on her butt to spread her folds apart before pushing my shaft into her warm, drenched pussy.</p>
-<p>"Mmmmmm~!!" Kitsara's strongest moan of the day welcomed my entrance. Her eyes closed in pleasure as if her brain wanted to spend all of its resources on embracing this moment to the fullest. Her inner walls clenched around my shaft tightly while our breaths mingled.</p>
+<p>"Mmmmmm!!" Kitsara's strongest moan of the day welcomed my entrance. Her eyes closed in pleasure as if her brain wanted to spend all of its resources on embracing this moment to the fullest. Her inner walls clenched around my shaft tightly while our breaths mingled.</p>
 <p>I began to thrust into her, each stroke of mine was deeper and more powerful than the last. My hands left her plush butt cheeks only to grip her hips firmly, guiding her movements to match mine.</p>
 <p>Kitsara's tail swayed back and forth, brushing against my legs. Her breasts bounced enticingly with our rhythm, with her nipples hardening from the rush of pleasure coursing through her body.</p>
 <p>As we reached new heights of ecstasy, the wind seemed to howl with approval. It caressed our skin, adding an exhilarating element to our intimate encounter. Kitsara's moans grew louder, more desperate as she neared her climax. Her nails dug into my shoulders, urging me on as she arched her back, offering herself fully to me.</p>

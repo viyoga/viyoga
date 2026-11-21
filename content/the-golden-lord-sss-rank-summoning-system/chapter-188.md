@@ -22,7 +22,7 @@ chapter = 188
 <p>He took one of her puffy nipples between his lips.</p>
 <p>The warm, swollen bud felt like a tender little pillow against his tongue, soft and pliant.</p>
 <p>The heated skin of her huge pale breast pressed against his face as she grabbed his hair, pulling him closer, the heavy mound molding around his cheek like warm, sweet dough, smothering him in soft, fragrant flesh.</p>
-<p>"Nghnn~~ darling... your mother is going to kill me, but I’ll let it slide just this once, okay?"</p>
+<p>"Nghnn darling... your mother is going to kill me, but I’ll let it slide just this once, okay?"</p>
 <p>Those words only confirmed what Ethan already knew.</p>
 <p>His mother was willing to train several powerful and sexy mages just to serve her own son, who wasn’t even born yet when she started accepting apprentices.</p>
 <p>If Ophelia were his mother’s apprentice, she should already be ready to serve him.</p>
@@ -56,7 +56,7 @@ chapter = 188
 <p>At that moment, Ethan pressed his finger even harder against her plump, tight pussy.</p>
 <p>[Ophelia’s Loyalty increases by 10%!]</p>
 <p>[Ophelia’s Opinion increases by 10 points!]</p>
-<p>"AGHNNN~~"</p>
+<p>"AGHNNN"</p>
 <p>Ophelia’s lips parted in a gasping moan and she shuddered, sensing even more strangeness in her mind.</p>
 <p>The initial disgust she had felt toward Ethan had already vanished completely.</p>
 <p>But why?</p>

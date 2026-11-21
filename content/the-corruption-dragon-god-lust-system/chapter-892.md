@@ -33,7 +33,7 @@ chapter = 892
 
 <p>The ample flesh spilled between his fingers under his possessive grip, each buttock molding itself perfectly to the shape of his palm, as if it had been sculpted for that exact purpose.</p>
 
-<p>"H-hey, what are you... nghnn~~"</p>
+<p>"H-hey, what are you... nghnn"</p>
 
 <p>Yuehan didn’t have time to complain. A low moan slipped past her lips before she could bite it back, her body shuddering as his fingers burrowed even deeper into her plump curves.</p>
 

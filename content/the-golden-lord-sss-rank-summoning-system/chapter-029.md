@@ -9,7 +9,7 @@ chapter = 29
 <p>Ethan felt the stone floor crack beneath him as Evelyn’s butt hit his hips.</p>
 <p>On the one hand, he had the wonderful feeling of being crushed by her pussy, that hot, creamy skin pressed against his, the softness of those full, perfect buttocks.</p>
 <p>On the other hand, couldn’t this crazy woman control her strength a little?</p>
-<p>"You aghnn~~" Evelyn moaned, her legs briefly losing strength. "So big~~♡"</p>
+<p>"You aghnn" Evelyn moaned, her legs briefly losing strength. "So big♡"</p>
 <p>Were all men this big and delicious?</p>
 <p>She spun around with Ethan’s cock still reaching the walls of her womb.</p>
 <p>Her hands went to his chest, the position of his arms forcing her huge, heavy tits to squeeze against each other in a beautiful and obscene sight.</p>
@@ -23,7 +23,7 @@ chapter = 29
 <p>"You did this to yourself." Ethan laughed, grabbing her tanned tits with both hands and squeezing. "I just helped a little..."</p>
 <p>Evelyn didn’t answer. She moved the powerful muscles in her leg and lifted her ass.</p>
 <p>With a soft moan, she dropped back down onto his lap, feeling his cock hit the depths of her womb.</p>
-<p>"I’m going to aghnn~~" She gasped. "Make you admit it!"</p>
+<p>"I’m going to aghnn" She gasped. "Make you admit it!"</p>
 <p>With a wild movement, Evelyn arched her back, her breasts escaping Ethan’s hands.</p>
 <p>Leaning on his thighs, she began to move her body at a steady pace, bouncing nonstop.</p>
 <p>Ethan relaxed as he felt his cock slide through her pussy, reaching her womb before retreating, her vaginal walls infinitely tight around him.</p>
@@ -35,14 +35,14 @@ chapter = 29
 <p>She gritted her teeth and leaned over him.</p>
 <p>The movements of her ass lost amplitude, but the speed doubled, her tanned skin slightly reddened by the impacts.</p>
 <p>"What?" Ethan replied, slapping her ass and grabbing it, his hand following the rhythm of her hips.</p>
-<p>"Don’t oghnn~~ look at me like that..." Evelyn said, lowering her head and arching her back.</p>
+<p>"Don’t oghnn look at me like that..." Evelyn said, lowering her head and arching her back.</p>
 <p>Her lips parted and then closed over his chest, giving a weak little bite.</p>
 <p>Ethan groaned, squeezing her plump ass hard, his fingers swallowed by that juicy, perfect flesh.</p>
 <p>Slowly, Evelyn’s lips rose, brushing against his, her beautiful gray eyes clouded with pleasure.</p>
 <p>She could feel, from the depths of her being, something coming, much more intense than the orgasm she had had while listening to Ethan and Alice’s sex.</p>
-<p>"Fuck... oh gods~~ oh fuck~~ FUCK!♡" Her eyes rolled back, her tongue slipping out in an obscene moan as her pussy squirted nonstop.</p>
+<p>"Fuck... oh gods oh fuck FUCK!♡" Her eyes rolled back, her tongue slipping out in an obscene moan as her pussy squirted nonstop.</p>
 <p>Evelyn buried her face in his shoulder, and at the same time, she felt him cum.</p>
-<p>"Nghnn~~ not inside, you bastard... do you want to get me pregnant?" she asked, groggy, his cock throbbing painfully inside her.</p>
+<p>"Nghnn not inside, you bastard... do you want to get me pregnant?" she asked, groggy, his cock throbbing painfully inside her.</p>
 <p>After a moment, the first thick gush of hot cum invaded her womb, followed by a third and then a fourth, filling her completely with the pearly, viscous liquid.</p>
 <p>His dick alone already filled her beyond limits, and it didn’t take long for the seed to leak out through the connection between them.</p>
 <p>"Hm... and is a second-stage warrior capable of getting pregnant without wanting to?" Ethan asked, wrapping his arms around Evelyn.</p>

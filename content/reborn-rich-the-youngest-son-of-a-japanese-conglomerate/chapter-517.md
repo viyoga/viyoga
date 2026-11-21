@@ -56,7 +56,7 @@ chapter = 517
 <p>"The scouting team should go to the Disciplinary Committee to get a map of the academy grounds and divide the areas. And the information team and the command team will work together to investigate the internet and gather information."</p>
 <p>"What about our support team?"</p>
 <p>Minamoto Risa took the initiative and set the tasks for today, but she didn't give any tasks to the support team. So, when I asked, Seizawa Shii answered.</p>
-<p>"Ryuta-ssi and Shido-tsu should buy us something delicious! The academy is so big, we'll be hungry after going around once~☆"</p>
+<p>"Ryuta-ssi and Shido-tsu should buy us something delicious! The academy is so big, we'll be hungry after going around once☆"</p>
 <p>Was the support team a support team that supports in that way...? I nodded and looked at Naruse Shiyo.</p>
 <p>"Then Naruse, shall we go on a shopping date with the teacher?"</p>
 <p>"A, a, a date?!"</p>

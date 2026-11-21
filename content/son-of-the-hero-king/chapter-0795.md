@@ -29,7 +29,7 @@ chapter = 795
 <p>However, that was not really the problem at hand. In fact, this was extremely normal in Lustburg.</p>
 <p>The thing that was out of the definition of normalcy was that—</p>
 <p>“Why the hell are you here!?”</p>
-<p>“Oh!!!... Teehee~!”</p>
+<p>“Oh!!!... Teehee!”</p>
 <p>“Don't play cute, act your age already!”</p>
 <p>“This is discrimination. I am eternally young and cute.”</p>
 <p>Chloe felt like she was about to go mad from humiliation and embarrassment.</p>
@@ -39,7 +39,7 @@ chapter = 795
 <p>“You are the Supreme Daughter for goddess’ sake. What if something happens to the kingdom?”</p>
 <p>“Slothein is strong, you know? We even have dimensional barriers, you know? Not even Tiamat could infiltrate Slothein.”</p>
 <p>She stopped herself for a second as if in deep thought.</p>
-<p>“Well, she could smash our barrier. But that is different from infiltration, right? So, I am not wrong~”</p>
+<p>“Well, she could smash our barrier. But that is different from infiltration, right? So, I am not wrong”</p>
 <p>Chloe was starting to wonder if she was actually the one lacking common sense in this crazy conversation.</p>
 <p>Massaging her forehead because of the growing headache, she continued.</p>
 <p>“You do know that a foreign powerhouse sneaking into another territory is grounds for war, right?</p>

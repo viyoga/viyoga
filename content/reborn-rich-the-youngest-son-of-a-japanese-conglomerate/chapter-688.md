@@ -12,7 +12,7 @@ chapter = 688
 <p>"It's a spaceship-shaped building, but with Christmas decorations, it looks a little strange."</p>
 <p>"I think it looks fine?" We entered the spaceship-shaped building and headed to a Store that dealt with Animation, Comic, and their merchandise from the 2000s to the 2030s.</p>
 <p>"Wow...!" As soon as we entered the Store and went to the ○-Punch Man section, Minamoto Risa's Eyes sparkled like the Milky Way. Indeed, befitting an Otaku holy land, there was a lot. Even for an old Comic and Animation, there were quite a lot of Items.</p>
-<p>"Look at this, you~! It's a Borus spaceship Figure...!" She grabbed my Hand and pulled me, pointing at the space Battleship in the Glass display case. But not only Borus, even the Borus spaceship is made into a Figure? Its Size was large, and its Design was quite precise, so the Price was considerable, around 230,000 yen.</p>
+<p>"Look at this, you! It's a Borus spaceship Figure...!" She grabbed my Hand and pulled me, pointing at the space Battleship in the Glass display case. But not only Borus, even the Borus spaceship is made into a Figure? Its Size was large, and its Design was quite precise, so the Price was considerable, around 230,000 yen.</p>
 <p>"Lisa, calm down for a Moment."</p>
 <p>"No, how can I calm down after seeing these?!" In fact, from a connoisseur's perspective, one couldn't help but be dazzled. I also stopped trying to calm Minamoto Risa down, and we decided to look around the Store separately.</p>
 <p>Before Possession, I was a light fan who only read Comic books, but now that I was in a Store full of merchandise, I saw a few things I wanted to buy.</p>
@@ -41,7 +41,7 @@ chapter = 688
 <p>EVE: "Lara is incredibly intrigued. I'll assign Lara and some Agents to be dispatched."</p>
 <p>Indeed, since Lara Sinclair's purpose was to make the Energy Weapon originating from her Father into a US military Drill Weapon, she would clearly be very intrigued if a new Energy Weapon appeared. The more the Weapon was developed, the higher the Probability of it becoming a US military Drill Weapon.</p>
 <p>Ryuta: "I'll bring this Glove to the Tokyo Branch later."</p>
-<p>EVE: "Yes~! I'm incredibly excited~!😘😘😘😘"</p>
+<p>EVE: "Yes! I'm incredibly excited!😘😘😘😘"</p>
 <p>Ryuta: "And...."</p>
 <p>After adding one more Request, I ended the chat with Eve. As I put the merchandise I had checked while walking around earlier into my basket (excluding a few in case my Luggage became too much), I returned to where Minamoto Risa was likely to be, and she was still sparkling-eyed, happily worrying.</p>
 <p>"Haven't you finished choosing yet?"</p>

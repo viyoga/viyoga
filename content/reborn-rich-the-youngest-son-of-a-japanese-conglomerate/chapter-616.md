@@ -46,7 +46,7 @@ chapter = 616
 <p>Minamoto Risa-ssi is the heiress of the Minamoto family, so bodyguards follow her wherever she goes. She usually wore another school's uniform and somehow managed to shake them off, but I asked her because she wasn't wearing a uniform today. It's Sunday today, and it seemed that she had completely taken control of the mansion's servants while her father, Minamoto Ushin-ssi, was unable to pay attention. By the way, if Minamoto Ushin-ssi can't even pay attention to his daughter, something else must be happening or about to happen. I'll have to look into this separately.</p>
 <p>In fact, even without the bodyguards, she didn't seem to have any fear of kidnapping or attacks because I was there. She had seen my abilities in Shinnamgyeong, and Minamoto Risa-ssi knew about my telekinetic powers.</p>
 <p>Today's date course was a net cafe date as before. After that, we would have dinner, and then I was planning to have a special date that I had thought of. It wasn't a very complicated schedule. Net cafe → Dinner → Special date → Home.</p>
-<p>"Welcome~!"</p>
+<p>"Welcome!"</p>
 <p>I entered the net cafe, greeted by the clerk. It wasn't the same clerk I had seen before, probably because it was the weekend and not a weekday.</p>
 <p>"Please give me a VIP couple seat. For five hours. Please also pay for the drink bar for two people."</p>
 <p>"Yes, the drink bar for two people, VIP couple seat for five hours, is 6,780 yen."</p>

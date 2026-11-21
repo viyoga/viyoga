@@ -7,7 +7,7 @@ chapter = 1080
 
 <p>"What's going on? And why the maid outfits...?"</p>
 <p>I asked the Kiyona Hori Mari sisters, who had suddenly appeared wearing maid outfits, with a puzzled Expression.</p>
-<p>"Hmph~! I didn't wear it for you, you know!?"</p>
+<p>"Hmph! I didn't wear it for you, you know!?"</p>
 <p>"We developed a new menu item after a long time, so we wore maid outfits to get into the mood. Here's our new menu item. Try it once."</p>
 <p>Kiyona Mari, with her face flushed, acted like an obvious tsundere, while Kiyona Hori explained to me the reason they came here and offered me a red Drink in a tall cup placed on a tray.</p>
 <p>Ah, they said earlier that they were developing a new menu item, and it seemed they had made something this time. As I was thirsty, I immediately took the red Drink and drank it, and it was a quite palatable Drink with a sweet and sour taste.</p>
@@ -65,7 +65,7 @@ chapter = 1080
 <p>Even while her Pussy was being sucked, she seemed to want to maintain her tsundere Concept, but with more Moaning than tsundere lines, it felt cute.</p>
 <p>Curious how long she would keep that up, I began to move my Tongue even more dazzlingly. As I alternately licked and thrust my Tongue into her Clitoris and Vaginal opening, I felt her thighs tremble, instinctively trying to close her Legs.</p>
 <p>Naturally, since I was holding her thighs, Kiyona Mari couldn't close her Legs and had no choice but to continue enduring the Pleasure Attack.</p>
-<p>"Haaht! It feels good, haaang...! Heung! Because of Ryuta's Tongue, haa-eueu-heung~! My down there is tingling, heung! I, heueut! I'm going crazyyy♥"</p>
+<p>"Haaht! It feels good, haaang...! Heung! Because of Ryuta's Tongue, haa-eueu-heung! My down there is tingling, heung! I, heueut! I'm going crazyyy♥"</p>
 <p>As expected, after teasing her a little, she quickly abandoned her tsundere Concept, and Kiyona Mari was Moaning, saying it felt good.</p>
 <p>So good did it feel that every time I licked with my Tongue, pussy fluid gushed out, almost enough to quench a Craving.</p>
 <p>"Haaht, now, heung! I can't, I can't, haaht! I can't take it anymore, haaang♥ I'm coming, heueut! I'm coooming...! Heueut! I'm cumminggg!"</p>
@@ -76,8 +76,8 @@ chapter = 1080
 <p>"Hee-eueu-eut!"</p>
 <p>As I pinched her trembling nipple, which was at Climax, Kiyona Mari again squirted climax fluid from her Pussy. Whether it was because her breasts were small, or because they had been developed by daily breast Massages, they were incredibly Sensitive breasts.</p>
 <p>Since Sensitive breasts are more enjoyable for the Person touching them, I continued to touch Kiyona Mari's breasts, not caring whether she kept climaxing or not.</p>
-<p>Kiyona Mari B-cut~!</p>
-<p>Requested by Gojoy-nim: Chapter 47 Kirie watching unknowingly, Shinoe Misano seeing a cock Scene~!</p>
-<p>Kirie~!</p>
+<p>Kiyona Mari B-cut!</p>
+<p>Requested by Gojoy-nim: Chapter 47 Kirie watching unknowingly, Shinoe Misano seeing a cock Scene!</p>
+<p>Kirie!</p>
 <p>The first illustration best expressed the feeling of peeking, hehe.</p>
-<p>Shinoe Misano~!</p>
+<p>Shinoe Misano!</p>

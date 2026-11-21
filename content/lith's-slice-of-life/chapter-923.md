@@ -95,7 +95,7 @@ At this point, the little girl's hazel brown eyes opened up and she saw a gentle
 
 "Mum…ma?"
 
-The lady smiled softly. "If you continue to sleep, you'll miss watching papa fail at catching fish, fufu!~"
+The lady smiled softly. "If you continue to sleep, you'll miss watching papa fail at catching fish, fufu!"
 
 With that being said, the little girl was woken up by her mother.
 
@@ -119,7 +119,7 @@ The lady smiled and walked towards the man, handing the little girl to him.
 
 "No way you just woke her up to use her for labor!" The man hugged Miwa in his embrace and exclaimed.
 
-"Tee-hee!~" The lady made a cute playful face and then took the fishing rod from the man.
+"Tee-hee!" The lady made a cute playful face and then took the fishing rod from the man.
 
 "Let me try my hands at fishing today."
 

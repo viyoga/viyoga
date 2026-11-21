@@ -14,12 +14,12 @@ chapter = 528
 <p>Sakagami Rena stepped onto the shooting range with a calm expression. She didn't seem nervous at all.</p>
 <p>Sakagami Rena drew and released her bow just like before. However, her movements were so fast that all three arrows hit the target almost simultaneously. It wasn't the *tung! tung! tung!* feeling of the archery club president's shots, but more like *tututung!* - a rapid-fire barrage of incredible speed. And all of those quick shots hit the 10-point mark.</p>
 <p>A moment of silence. The archery club president stared at Sakagami Rena with a dumbfounded expression. Sakagami Rena looked at the archery club president and gave a faint smile.</p>
-<p>,Waa~! We won!</p>
+<p>,Waa! We won!</p>
 <p>Uenozono Karen's excited face appeared on the screen, and everyone cheered, congratulating us on our victory.</p>
 <p>,Now it's my turn, huh? I'll do my best, Ryuta-cchi!</p>
 <p>After archery was the lacrosse match, which was a Red vs. White team competition instead of class-based. Seizawa Shii participated for our class. The truth was, no one in our class was particularly good at lacrosse, so Seizawa Shii, who had only played a few times, stepped up.</p>
 <p>Contrary to Seizawa Shii's confident cheering and participation, the Red team, which we were on, was utterly defeated by the White team. The White team had a bunch of regulars from the lacrosse club.</p>
-<p>,Hueeng~! We lost, Ryuta-cchi!</p>
+<p>,Hueeng! We lost, Ryuta-cchi!</p>
 <p>Seizawa Shii returned to the class with tears welling up in her eyes, upset about losing the game. After the lacrosse match, the last event before lunch started. It was the horseback riding competition, another Red vs. White event that would be over quickly with just one race.</p>
 <p>,I'll dedicate this victory to you, Sensei!</p>
 <p>Konoe Akina decided to participate in the horseback riding competition. While the lacrosse match was going on, the staff members were leveling the ground outside the field, which seemed to be for the horseback riding event.</p>
@@ -44,14 +44,14 @@ chapter = 528
 <p>The captain and vice-captain of the equestrian club, Nakanoin Rina, and Muko Neika came in one after another. When the scores were calculated, the Red team had won by a small margin, probably because they had taken both 1st and 2nd place.</p>
 <p>However, even though they were on the same Red team, they needed to confirm who had come in first place for the record, so a replay was slowly being shown on the screen. At the end, Taira Kanna's white horse had tried to make a comeback with a final burst of speed, but Konoe Akina's Ryutaro had taken first place by a narrow margin.</p>
 <p>Maybe it was because it was named Ryutaro, but I felt pretty good about it taking first place. It felt like I had won first place myself.</p>
-<p>,Waa, Ryuta-cchi won~!!</p>
+<p>,Waa, Ryuta-cchi won!!</p>
 <p>,Why is that horse Ryuta-cchi!</p>
 <p>Seizawa Shii, who was watching the race, jumped up and down excitedly and hugged me. I peeled Seizawa Shii off of me, scolding her because there were a lot of eyes watching.</p>
 <p>,Sensei, we won!</p>
 <p>,Good job.</p>
-<p>When Konoe Akina, who had returned Ryutaro, told me excitedly, I stroked Konoe Akina's head. Seizawa Shii, who had been pushed away when she tried to hug me, seemed a little jealous that I was stroking Konoe Akina's head, and glared at me, saying, ,Chii~!. So I stroked Seizawa Shii's head as well. Her expression immediately softened. I really don't know if she has a good personality or if she's just very jealous.</p>
-<p>,It's lunchtime now, right? Go have lunch with your families~!</p>
-<p>,Yes~!!</p>
+<p>When Konoe Akina, who had returned Ryutaro, told me excitedly, I stroked Konoe Akina's head. Seizawa Shii, who had been pushed away when she tried to hug me, seemed a little jealous that I was stroking Konoe Akina's head, and glared at me, saying, ,Chii!. So I stroked Seizawa Shii's head as well. Her expression immediately softened. I really don't know if she has a good personality or if she's just very jealous.</p>
+<p>,It's lunchtime now, right? Go have lunch with your families!</p>
+<p>,Yes!!</p>
 <p>,I wonder if my dad's here...?</p>
 <p>Lunchtime was longer than usual because there were guests. They gave us a generous hour and a half, so there was no need to rush.</p>
 <p>Of course, I didn't have any family here, so I was planning to eat alone. I was going to eat with Kijimoto Jurie, but Kijimoto Jurie said that she had been invited by the Naruse family because she usually takes care of Naruse Shiyo.</p>

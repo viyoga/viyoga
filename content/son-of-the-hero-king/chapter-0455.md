@@ -58,15 +58,15 @@ chapter = 455
 <p>“Hah….This was…”</p>
 <p>Sol smirked as he felt her vaginal folds clench around his fingers at his words. Clearly, his words had made her imagination more active.</p>
 <p>He ignored her and began to accelerate the movement of his fingers. Like a motor that was warming up, her inside became hotter, and a wet stain formed on the floor because of all her liquid.</p>
-<p>“Nh~!”</p>
+<p>“Nh!”</p>
 <p>Each time his finger scratched her inside, Milia would tremble and spread her legs more vulgarly. She knew she looked nothing like the usual dignified maid she portrayed herself as but she had no desire to care for her unsightly appearance at this moment.</p>
 <p>At the threshold of her climax, Milia swung her waist as if she had lost all reason but no matter what she did, the final release did not come to her.</p>
 <p>At least this was the case until,</p>
 <p>“Cum for me.”</p>
 <p>His words were like permission granted by heaven.</p>
-<p>“Ahhh~!”</p>
+<p>“Ahhh!”</p>
 <p>Milia moaned loudly as she looked up at the ceiling. Her body trembled like it was being electrocuted and her juice flew like there was no tomorrow.</p>
-<p>“Nooo~”</p>
+<p>“Nooo”</p>
 <p>She was squirting, she was covering the entire room with her smell and her juice. She wanted to stop but the pleasure was like a never-ending wave that was constantly hitting her mind.</p>
 <p>When the climax finally stopped, Milia would have plopped to the ground had Sol not caught her. Her legs were so weak that she was like a newborn calf that could not stand strong.</p>
 <p>“This was beautiful.”</p>

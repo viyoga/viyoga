@@ -5,7 +5,7 @@ weight = 203
 chapter = 203
 +++
 
-<p>Aurelius had taken to the skies. Whether aiming to avoid the Bullcroc’s attacks or to gain an aerial advantage (probably both), he was now being supported by the two footholds of light of his ~Freya’s Footsteps~ spell.</p>
+<p>Aurelius had taken to the skies. Whether aiming to avoid the Bullcroc’s attacks or to gain an aerial advantage (probably both), he was now being supported by the two footholds of light of his Freya’s Footsteps spell.</p>
 <p>He had a hand thrust out and he cast a brilliant spell circle of Golden light that conjured a gigantic pillar of light that burst into smaller lances that all rained down and uselessly glanced off the Beast’s scales.</p>
 <p>Almost at the same time, Delia was taken up by an updraft of wind that she had conjured, and, with her stormy grey eyes sparking with attacking intent, she cast a large spell circle right above the Bullcroc to rain down lightning. A petty person—her sister perhaps—may have pointed out that she was implementing ten traditional mage ways here and attacking from a distance rather than charging in and getting closer like a Mage Knight. Delia could just hear her sister in her head but she shut that out and focused.</p>
 <p>Alas, her focus didn’t quite mean anything because, just as it had been with Aurelius’s spell, her attack was useless against the Bullcroc’s scales.</p>

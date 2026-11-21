@@ -12,13 +12,13 @@ chapter = 933
 <p>Deureureuk!</p>
 <p>"Sabu, Shimokawabe seonsaengnim."</p>
 <p>Opening the Hospital Room door and entering, Fujigasaki Rinka was doing push-ups while in a handstand, and Shimokawabe Airen seemed to be Meditating, sitting cross-legged with her Eyes closed.</p>
-<p>"Yo~! Disciple, you're here?!"</p>
+<p>"Yo! Disciple, you're here?!"</p>
 <p>Raising her Head while in a handstand, it was Fujigasaki Rinka greeting me. Shimokawabe Airen also slowly opened her Eyes and looked at us standing at the Entrance.</p>
-<p>"Sabu-uu~!"</p>
+<p>"Sabu-uu!"</p>
 <p>"Moka Sabu...!"</p>
 <p>Naruse Shiyo and Alik ran pattering and hugged Shimokawabe Airen. I watched that scene and smiled, looking at Fujigasaki Rinka.</p>
 <p>"Should I also hug Sabu?"</p>
-<p>"This guy, don't Prank me~!"</p>
+<p>"This guy, don't Prank me!"</p>
 <p>Although I asked Fujigasaki Rinka if I should hug her, Fujigasaki Rinka chuckled and struck my Head with the edge of her Hand.</p>
 <p>Kung!</p>
 <p>Ugh...! It must have been a Prank, but as expected of Fujigasaki Rinka's strike, it hurt quite a bit. Still, seeing her so lively, it seemed she could be discharged soon.</p>
@@ -26,7 +26,7 @@ chapter = 933
 <p>"Didn't you just see me exercising? What Gengo did to me was to my Abyss, so my Body is fine. I was a bit weak yesterday, but... today, I'm itching to move right away, you know?"</p>
 <p>To my question of whether she was alright, it was Fujigasaki Rinka, pulling up her patient gown to show her biceps and saying she was fine. Certainly, in this battle with Takakusaki Gengo, Fujigasaki Rinka's harm was to her Abyss rather than her Body. It could be said there was nothing the Hospital could do.</p>
 <p>"If you get examined on Monday and they say there are no problems, I'll tell them so you can be discharged."</p>
-<p>"As expected, my Disciple is the best~!"</p>
+<p>"As expected, my Disciple is the best!"</p>
 <p>Even though she had overtly sent me the message "Discharge me!" with her Gaze, when I said she could be discharged on Monday, Fujigasaki Rinka was very happy.</p>
 <p>"What will you do after you're discharged? Since Anyaji has also been dealt with, will you return to UMC?"</p>
 <p>Actually, I wanted Fujigasaki Rinka to help me with my Work, but it felt a bit awkward to ask my Sabu to kill or beat someone, so I just asked what she would do. In fact, because Anyaji's activities had become vigorous, Fujigasaki Rinka had abandoned her UMC indiscriminate class Champion title and returned to Japan, so I thought she would probably return to UMC.</p>
@@ -70,7 +70,7 @@ chapter = 933
 <p>Seizawa Shii reacted with a typical Japanese Person's "Eh?", and I requested an Explanation from Fujigasaki Rinka about what was happening.</p>
 <p>"As you said, I'm not planning to return to UMC. There's someone I need to find in the USA. That friend is quite an excellent Fixer, isn't she? I'm going to hire that friend and in return, I'm going to give her some Training."</p>
 <p>Ah.... I wondered what was going on when she suddenly said she was taking Seizawa Shii to the USA, but it seemed she was going to hire Seizawa Shii and train her in return.</p>
-<p>"I like it~!!"</p>
+<p>"I like it!!"</p>
 <p>Naturally, Seizawa Shii wouldn't find Fujigasaki Rinka's Proposal, from the world's best Fist Technique practitioner, bad. It was even better than Shimokawabe Airen, who was a Swordsman. Since Fujigasaki Rinka was a Fist Technique practitioner like Seizawa Shii, she would be even more helpful.</p>
 <p>"Since she also says it's good, don't you Worry."</p>
 <p>When Seizawa Shii excitedly said she liked it, Fujigasaki Rinka spoke as if telling me not to Worry.</p>
@@ -83,11 +83,11 @@ chapter = 933
 <p>"Hmph..... My Sabu, which means your Sajo (Grandmaster), I found out she's somewhere in the USA. I have to go find her."</p>
 <p>If it's my Sajo, it was Soda Haruto, who went missing when Fujigasaki Rinka was a Middle School Student. I thought she had died since it was so long ago, but she's alive?</p>
 <p>As Fujigasaki Rinka said, it wasn't unrelated to me. After all, it's a matter of the martial arts school I belong to.</p>
-<p>Requested by TheDreaming-nim: 1. Shido Tsubaki being interviewed while stuck in a wall. 2. Shido Tsubaki being interviewed in belly dancer attire~!</p>
+<p>Requested by TheDreaming-nim: 1. Shido Tsubaki being interviewed while stuck in a wall. 2. Shido Tsubaki being interviewed in belly dancer attire!</p>
 <p>1. Perhaps because I switched to a new Program, unlike the previous Program, the Expressions feel excessively activated(?) haha.</p>
-<p>2. Requested by MidNightSKY-nim: Rena using Fire Release and Alik using a Chidori-like 'Jjirit-jjirit'~!</p>
-<p>Rena first~! I wanted a more intense Flame, but it's a pity haha.</p>
-<p>Alik~! Requested by Neosblue-nim: Airen doing 'Yeolpacham~!'~!</p>
+<p>2. Requested by MidNightSKY-nim: Rena using Fire Release and Alik using a Chidori-like 'Jjirit-jjirit'!</p>
+<p>Rena first! I wanted a more intense Flame, but it's a pity haha.</p>
+<p>Alik! Requested by Neosblue-nim: Airen doing 'Yeolpacham!'!</p>
 <p>I wasn't sure how to do it, so I just made it a scene of her swinging a Sword haha.</p>
 <p>Requested by JungChucky-nim: Matakku SD Alik and Matakku Home Teacher....</p>
-<p>Alik first Home Teacher~! Actually, I don't know much about the Matakku meme haha, so I tried to make it work by searching, but I'm not sure if it's right haha.</p>
+<p>Alik first Home Teacher! Actually, I don't know much about the Matakku meme haha, so I tried to make it work by searching, but I'm not sure if it's right haha.</p>

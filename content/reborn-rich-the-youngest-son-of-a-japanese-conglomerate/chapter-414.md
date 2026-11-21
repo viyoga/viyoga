@@ -57,4 +57,4 @@ chapter = 414
 <p>Of course, the treasure to be found in the treasure hunt was already determined. That treasure would be the teacher's real name. Rena Sakagami was confident that she would obtain that treasure.</p>
 <p>----</p>
 <p>Miso Kirie Kurayamada.</p>
-<p>Hoe-e, despise me~!</p>
+<p>Hoe-e, despise me!</p>

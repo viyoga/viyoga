@@ -5,7 +5,7 @@ weight = 696
 chapter = 696
 +++
 
-<p>“Ah… have you learned your lesson? Fufufu~~♡”</p>
+<p>“Ah… have you learned your lesson? Fufufu♡”</p>
 
 <p>Ruxue’s sweet voice echoed through the room, the sides of her huge pale breasts slightly reddened from the recent session of ‘boob face slapping’. Her pink nipples were still hard and sensitive, a thin layer of sweat glistening on her porcelain skin.</p>
 
@@ -51,7 +51,7 @@ chapter = 696
 
 <p>His hands didn’t hesitate for a second, wrapping around their delicate waists before sliding up to cup their ample breasts from below, the heavy flesh filling his palms with warmth.</p>
 
-<p>“Nghnn~~ nyan! hubby! We’re just watching big sis Khaedryss show off a little!” Linyue let out a soft little moan, promptly echoed by Xueyao, who nodded firmly in agreement.</p>
+<p>“Nghnn nyan! hubby! We’re just watching big sis Khaedryss show off a little!” Linyue let out a soft little moan, promptly echoed by Xueyao, who nodded firmly in agreement.</p>
 
 <p>“She’s really strong, isn’t she? When hubby finally stops tricking us and fill our wombs with little babies, I’m going to train them to be just as powerful as big sis Khaedryss!” Xueyao declared, her words making Qingyi’s heart flutter.</p>
 
@@ -91,7 +91,7 @@ chapter = 696
 
 <p>From the obscene tightness of that single piece of skimpy armor against her voluptuous body, to the heavy sway of her large milk jugs with every move, and the soft sheen of sweat that clung to her obsidian skin.</p>
 
-<p>“Nghnn~~ Does it work, hubby?” Xueyao asked with a muffled moan, drawing a heavy sigh from Qingyi.</p>
+<p>“Nghnn Does it work, hubby?” Xueyao asked with a muffled moan, drawing a heavy sigh from Qingyi.</p>
 
 <p>“Yes, it works.” He smiled bitterly.</p>
 

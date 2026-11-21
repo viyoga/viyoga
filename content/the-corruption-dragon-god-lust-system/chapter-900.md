@@ -35,7 +35,7 @@ chapter = 900
 
 <p>A thin thread of saliva stretched between them for a brief moment before snapping, trickling down the corner of her lips.</p>
 
-<p>"Nghnn~~ love... you need to warn me before you come at me like that..." Meilin murmured, lifting her face to look at him.</p>
+<p>"Nghnn love... you need to warn me before you come at me like that..." Meilin murmured, lifting her face to look at him.</p>
 
 <p>Her porcelain cheeks were tinged with a soft pink, and that doll-like face wore an expression full of love and tenderness.</p>
 
@@ -77,7 +77,7 @@ chapter = 900
 
 <p>She saw Qingyi standing there, watching her with a huge smile and eyes brimming with love.</p>
 
-<p>"Ah~ hubby!" Feiyan set down the cauldron without hesitating for even a second.</p>
+<p>"Ah hubby!" Feiyan set down the cauldron without hesitating for even a second.</p>
 
 <p>She threw herself into Qingyi’s arms.</p>
 
@@ -91,7 +91,7 @@ chapter = 900
 
 <p>Feeling the sweet taste of those lips and the generous weight of her tanned tits pressing into his chest, Qingyi let his body relax completely, a low sigh slipping from the corner of his mouth as he returned the kiss with equal fervor.</p>
 
-<p>"Mghnn~~ Is hubby ready? I’ve already mastered that recipe completely; I’m so eager to start working on the pill hubby wants..." Feiyan whispered, her lips pulling away from his just enough for the words to escape.</p>
+<p>"Mghnn Is hubby ready? I’ve already mastered that recipe completely; I’m so eager to start working on the pill hubby wants..." Feiyan whispered, her lips pulling away from his just enough for the words to escape.</p>
 
 <p>"Yes," he nodded, letting Feiyan slowly slip out of his arms.</p>
 

@@ -5,7 +5,7 @@ weight = 84
 chapter = 84
 +++
 
-<p>"Mmmhn~..." Elena didn’t answer right away, her hazel eyes scanning the surroundings with a pensive expression.</p>
+<p>"Mmmhn..." Elena didn’t answer right away, her hazel eyes scanning the surroundings with a pensive expression.</p>
 <p>There wasn’t much to see in Goldenveil, honestly.</p>
 <p>Few streets, a small population.</p>
 <p>The only thing that caught her attention was the barracks, where guards practiced on the open training ground, moving through forms she recognized immediately.</p>
@@ -45,13 +45,13 @@ chapter = 84
 <p>Ethan’s lips parted to reply, then he froze.</p>
 <p>His eyes widened as a system notification arrived.</p>
 <p>[Warning! The Goblin attack on Goldenveil will begin at any moment; organize your defenses and prepare!]</p>
-<p>"Hey, what are you..." Elena’s words dissolved into a soft, surprised moan as she felt his hands reach out. "Nghnn~"</p>
+<p>"Hey, what are you..." Elena’s words dissolved into a soft, surprised moan as she felt his hands reach out. "Nghnn"</p>
 <p>His right forearm pressed firmly against her back, his hand closing around one of her huge, dark, juicy tits, fingers sinking deep into the yielding flesh.</p>
 <p>His free arm slid under her legs, and when he straightened, Elena was already in his arms, carried like a princess, her large breasts jiggling with the sudden lift.</p>
 <p>"I’m sorry, Miss Elena, but we need to get out of here quickly, and your tight dress isn’t suitable for running." His voice was calm but serious.</p>
 <p>Elena’s hands moved with an unhurried elegance over his shoulders, her long, delicate fingers lacing together behind his neck.</p>
 <p>Without hesitation, Ethan burst into a sprint.</p>
-<p>"Hm... My lord is quite a cheeky young man, fufufu~~" Elena laughed, her voice low, mature and entirely unbothered.</p>
+<p>"Hm... My lord is quite a cheeky young man, fufufu" Elena laughed, her voice low, mature and entirely unbothered.</p>
 <p>It was difficult to believe that his grip on her enormous breasts had been anything but intentional.</p>
 <p>She turned her face slightly toward his, and despite the anxious tension plain on his expression, not a shred of her grace faltered.</p>
 <p>"If you weren’t so handsome, I could bite you for touching me this way..."</p>

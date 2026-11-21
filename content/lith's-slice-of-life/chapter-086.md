@@ -31,7 +31,7 @@ Arya said seriously and took another sip of her drink. She continued
 
 Arya got up and kissed Emilia on her cheeks and walked away while waving her hand and yelling
 
-“SEE YA~”
+“SEE YA”
 
 Emilia stood there, embarrassed. She cursed
 

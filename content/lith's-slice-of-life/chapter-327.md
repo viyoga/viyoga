@@ -75,7 +75,7 @@ The sky wasn't visible anymore and everywhere around, there were just six shades
 
 The colors in the surroundings appeared like shades of blue. Where Arya was, it was pitch black and as one ventured away from that point, it started become brighter shade of blue and at end, that is, a hundred thousand kilometres away, it there was the edge present where the colors vanished and the surroundings appeared normal.
 
-Arya got up from her meditative position and stretched. "Yaaa~ Who knew it would go like this." Arya said to herself and laughed.
+Arya got up from her meditative position and stretched. "Yaaa Who knew it would go like this." Arya said to herself and laughed.
 
 She was in blue daoist robes and after she was done stretching, she was about to take her blindfold out and wear it when she felt two figures close in on her.
 

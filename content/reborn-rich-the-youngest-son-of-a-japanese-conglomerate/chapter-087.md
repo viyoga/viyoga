@@ -44,7 +44,7 @@ chapter = 87
 <p>"Shit.... Let's just drink."</p>
 <p>"I loved you, Yu-gyeong-a...!"</p>
 <p>Perhaps because they heard that their crush had a boyfriend, the male students poured alcohol as if venting their anger. Park Sang-beom wasn't in a great mood either, but he wasn't too disappointed because he thought he could exclude Han Yu-gyeong's current boyfriend with his wealth and power.</p>
-<p>Park Sang-beom stayed for about an hour and a half, then gave the student body president the money for the second round of drinks and got up. Some female students clung to him, saying, "Oppa (Older brother), where are you going~? Let's play more," but he didn't feel like playing with women today. Park Sang-beom shook his head and got up from his seat.</p>
+<p>Park Sang-beom stayed for about an hour and a half, then gave the student body president the money for the second round of drinks and got up. Some female students clung to him, saying, "Oppa (Older brother), where are you going? Let's play more," but he didn't feel like playing with women today. Park Sang-beom shook his head and got up from his seat.</p>
 <p>As he was leaving the bar, he received a call from the secretary his father had assigned to investigate Jin Yong-tae.</p>
 <p>"Secretary Kim, how is it going? Did you find out what that Jin Yong-tae guy does? Who are his parents?"</p>
 <p>-Judging from the lack of information in Korea, it seems likely that he is active in Japan, as you mentioned, Doryeonnim (Young master).</p>

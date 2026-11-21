@@ -18,7 +18,7 @@ chapter = 380
 <p>Ansel smiled without comment, while the scene on the screen shifted to Breeze City, located within Hydral's territory and formerly part of the Spirity Lake domain.</p>
 <p>There, the plot between Laurel and Reginald did not take place, but the atmosphere of excitement and joy throughout the city was unmistakably similar.</p>
 <p>"It seems the first week has been quite effective."</p>
-<p>Ansel, leaning back on the couch, spoke leisurely, "Setting aside the matter of those two farmers in Watson's domain, the food situation in Pelican City should be resolved within a few days. Just a week, and every household will be able to enjoy soft, fragrant bread, and by then, the second batch of crops will also be ready. Truly~ it is remarkable."</p>
+<p>Ansel, leaning back on the couch, spoke leisurely, "Setting aside the matter of those two farmers in Watson's domain, the food situation in Pelican City should be resolved within a few days. Just a week, and every household will be able to enjoy soft, fragrant bread, and by then, the second batch of crops will also be ready. Truly it is remarkable."</p>
 <p>He tilted his head towards Ravenna, his face alight with amusement, "As the creator of this masterpiece, do you have any thoughts, Helen?"</p>
 <p>"... The creator is not I, but you... Father."</p>
 <p>Ravenna bowed her head slightly, "The concept of the soil enhancer was your proposal."</p>

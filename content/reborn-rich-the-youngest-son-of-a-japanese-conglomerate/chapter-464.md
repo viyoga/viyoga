@@ -59,7 +59,7 @@ chapter = 464
 <p>When I pointed to the beige liquid and asked, Tang So-hwa smiled slightly and explained. Ah, it was soy milk. It seems thicker than regular products, perhaps because it's soy milk that she boiled and ground herself.</p>
 <p>,You dip this bread in the soy milk and eat it. They eat breakfast like this a lot in China.</p>
 <p>Ah, so this is Chinese-style breakfast. I dipped the fried bread in the soy milk and ate it. Hmm, the warm, savory soy milk permeated the spaces between the bread, making it quite palatable.</p>
-<p>,Mmm~ It's delicious.</p>
+<p>,Mmm It's delicious.</p>
 <p>,You can add sugar to it, or you can eat it as is.</p>
 <p>Following Yang Seol-hui's advice, I added a little sugar and it tasted even better. As expected, it tastes better when the calories go up. Tang So-hwa was looking at me eating with a pleased expression.</p>
 <p>,It tastes good with sugar, doesn't it?</p>

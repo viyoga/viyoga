@@ -13,18 +13,18 @@ chapter = 111
 <p>The Death Knight, who had been smiling with absolute certainty, suddenly froze.</p>
 <p>Ethan shouldn’t be able to speak. No, he shouldn’t even be breathing!</p>
 <p>She hadn’t even used her terrifying advanced techniques, merely pouring her death aura directly into his organs, but that should have been more than enough!</p>
-<p>"How? You aghnn~~"</p>
+<p>"How? You aghnn"</p>
 <p>Her words were cut off as Ethan’s hands found their targets.</p>
 <p>His left hand fell upon her ass, fingers sinking deep into the succulent purple flesh. The plump cheek compressed under his possessive grip, soft and heavy, the fat spilling around his fingers as he squeezed harder.</p>
 <p>His right hand rose to the exposed tops of her enormous purple tits, grabbing the creamy flesh and squeezing hard. The massive mounds overflowed his grip, warm and impossibly soft, bulging between his fingers with every squeeze.</p>
-<p>"mhngnnn~~ you damn pervert! How dare you profane royalty with your filthy hands?" she roared, unleashing all her power at once. "I’ll kill you a thousand times and then wipe the Darkwall family off the face of the Earth!"</p>
+<p>"mhngnnn you damn pervert! How dare you profane royalty with your filthy hands?" she roared, unleashing all her power at once. "I’ll kill you a thousand times and then wipe the Darkwall family off the face of the Earth!"</p>
 <p>Her back arched violently, smashing those enormous breasts against his chest. The heavy purple flesh flattened under the pressure, trembling in thick, obscene waves of softness that rippled across every inch of exposed cleavage.</p>
 <p>Unfortunately for her, it was already too late.</p>
 <p>Ethan gave her voluminous breasts one final squeeze, his fingers digging deep into the fat purple flesh, feeling it reshape around his grip before releasing with a soft bounce.</p>
 <p>He moved his hand, reaching for the pendant resting on her chest.</p>
 <p>It hurt like hell, even with the Blood Emperor’s ring active, but that was the most efficient way to take the artifact.</p>
 <p>With a big smile, Ethan removed his helmet, while yanking the pendant from her slender neck.</p>
-<p>"N-no, nghnn~~ don’t you dare! I wouldn’t be your servant—"</p>
+<p>"N-no, nghnn don’t you dare! I wouldn’t be your servant—"</p>
 <p>Mireya pulled away abruptly. Her boobs bounced wildly with the sudden movement, the heavy purple flesh colliding against each other before slowly settling, still jiggling with residual tremors.</p>
 <p>She looked down and saw her own body vanish into tiny fragments of light, which flew toward the blood-red pendant in Ethan’s hand.</p>
 <p>"Ah..." He let out a long sigh, feeling the Blood Emperor’s ring begin to heal his wounds.</p>

@@ -11,7 +11,7 @@ chapter = 168
 
 <p>“Answer me first and then I’ll give it to you. What does the demon cult want in this place? Just the bloodline?”</p>
 
-<p>“Nghnn~~ The husband is so cruel…” Ruyan moaned, even though she was prevented from taking Qingyi’s cock in her lips, her hands still began to move rhythmically over the large, thick member.</p>
+<p>“Nghnn The husband is so cruel…” Ruyan moaned, even though she was prevented from taking Qingyi’s cock in her lips, her hands still began to move rhythmically over the large, thick member.</p>
 
 <p>“Yes, I only wanted this lineage to stand out above my brothers and sisters. Killing all of you was a mere bonus.”</p>
 
@@ -25,11 +25,11 @@ chapter = 168
 
 <p>He pressed the tip of his cock against the plump red lips, which slowly opened to house the huge girth.</p>
 
-<p>“Gulk~~ Aghn~~” Ruyan choked as she felt Qingyi’s member reach the depths of her throat, a visible bulge going down the delicate skin of her neck as he advanced further and further.</p>
+<p>“Gulk Aghn” Ruyan choked as she felt Qingyi’s member reach the depths of her throat, a visible bulge going down the delicate skin of her neck as he advanced further and further.</p>
 
 <p>The moment the base of his cock hit her chin, he pulled back, pulling his drenched member out of the half-demon’s mouth.</p>
 
-<p>“Ah~~” Ruyan exhaled, her eyes watering.</p>
+<p>“Ah” Ruyan exhaled, her eyes watering.</p>
 
 <p>“Husband really has no pity for me, huh?” she said, but despite her words, her face was still smiling and filled with pleasure.</p>
 
@@ -43,7 +43,7 @@ chapter = 168
 
 <p>“Uh?” Ruyan’s eyes widened.</p>
 
-<p>“H-husband, that’s the wrong hole- Nghnn~~ Fuck!” She bit her lower lip as Qingyi’s cock penetrated her asshole, using her own saliva as lubricant.</p>
+<p>“H-husband, that’s the wrong hole- Nghnn Fuck!” She bit her lower lip as Qingyi’s cock penetrated her asshole, using her own saliva as lubricant.</p>
 
 <p>Qingyi grabbed the two orbs of plump, perfect flesh of her butt, using them as support to push his cock into the hole that seemed to suck him in like a vacuum, trying to crush him inside.</p>
 
@@ -65,7 +65,7 @@ chapter = 168
 
 <p>It wasn’t long before Ruyan’s obscene words turned into muffled babbles from the pleasure that dominated her mind.</p>
 
-<p>“Hnngh~ Fuck~ Yesss~” A final moan that sounded more like an scream escaped her lips as her pussy squirted non-stop.</p>
+<p>“Hnngh Fuck Yesss” A final moan that sounded more like an scream escaped her lips as her pussy squirted non-stop.</p>
 
 <p>At the same time, Qingyi came, his cock spurting an explosion of hot, viscous liquid inside her, filling her until his balls were almost completely empty.</p>
 

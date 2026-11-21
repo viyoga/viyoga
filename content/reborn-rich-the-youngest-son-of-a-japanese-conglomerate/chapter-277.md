@@ -26,7 +26,7 @@ chapter = 277
 <p>"He did an incredibly dangerous jit." Yes. Takakusaki Gengo, who created Mumatsu Anya by combining Shinkai Yatsude and Tetsue Shintoryu, eventually went insane. The problem was that he didn’t go completely insane. He lost his humanity and became a monster who killed people indiscriminately based on his mood. Sabu also went to punish Takakusaki Gengo and went missing. Although it’s referred to as missing, he probably died. If even Fujigasaki Rinka's Sabu was defeated, he was a very terrifying Enemy.</p>
 <p>There was a Reason why Fujigasaki Rinka was so obsessed with Training. She must be trying to get Revenge on Takakusaki Gengo.</p>
 <p>"Then these wounds...?" I glanced at Fujigasaki Rinka's Body, whose front was completely torn open, and spoke. Fujigasaki Rinka's Face flushed slightly at my Gaze, and she covered her Body with her Arms.</p>
-<p>"Where are you looking~!? Are you just staring at Sabu's Body? These wounds are from fighting one of Takakusaki Gengo's four Disciples."</p>
+<p>"Where are you looking!? Are you just staring at Sabu's Body? These wounds are from fighting one of Takakusaki Gengo's four Disciples."</p>
 <p>"Four Disciples.... Are they like the Four Heavenly Kings or something?"</p>
 <p>"Oh? You knew? Takakusaki Gengo created an organization called Anyaji and is secretly active in East Asia, calling his four disciples the Four Heavenly Kings."</p>
 <p>I just said it as a joke, but he really calls them the Four Heavenly Kings.... It seems that as Takakusaki Gengo went mad and lost his humanity, he also lost his naming sense.</p>

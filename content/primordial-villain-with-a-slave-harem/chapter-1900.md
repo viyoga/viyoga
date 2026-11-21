@@ -8,7 +8,7 @@ chapter = 1900
 <p>The study door had barely stopped shuddering from Morgana’s exit when Jasmine slid the next decree in front of Quinlan, folded open to the right line.</p>
 <p>"Sign here, my love."</p>
 <p>Quinlan signed.</p>
-<p>"We’re through the worst of it. Hang in there~" she purred, kissing his cheek lovingly.</p>
+<p>"We’re through the worst of it. Hang in there" she purred, kissing his cheek lovingly.</p>
 <p>The pile under her arm had stopped looking infinite somewhere around the stable fees; what remained was the stubborn tail of a kingdom changing hands.</p>
 <p>Across the room, Alexios’s stamp kept its even rhythm over the crown’s half. Ayame had never left her window seat, chin back on her knee.</p>
 <p>Halfway down the next page, a chime started up from inside his pocket ring. He fished out a fist-sized communication crystal, glanced at it, and answered without breaking his signature.</p>

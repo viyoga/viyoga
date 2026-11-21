@@ -31,7 +31,7 @@ chapter = 143
 <p>[What I can say is that they aren’t your enemies, but you should be careful when accepting the blessing of the God of War, and even more careful with the God of Light.</p>
 <p>They aren’t the rulers of this world, but merely its representatives. When the time comes, you’ll understand everything.]</p>
 <p>’Ah... let me see, the only deities you have a good opinion of are the triad of life, death, and beauty? The three women among the nine?’</p>
-<p>[Hehehe... the host knows me, and I know the host too~]</p>
+<p>[Hehehe... the host knows me, and I know the host too]</p>
 <p>Ethan couldn’t argue with that logic.</p>
 <p>The Great Pervert’s SSS-Rank Summoning System was, indeed, worthy of its name, a true simp.</p>
 <p>Well, he was cut from the same cloth, so there was no point in playing the hypocrite.</p>

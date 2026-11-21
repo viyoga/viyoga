@@ -23,7 +23,7 @@ chapter = 202
 <p>It also seemed to have caught the attention of the Bullcroc who shook its head once and then turned its threatening eyes at her before charging.</p>
 <p>For something with such a massive size, the Bullcroc was quick on its feet, and in seconds, it was within reach to swing its tail at Eloise.</p>
 <p>Before the tail made contact however, Caius was there, his hands thrust forward and a spell circle appeared. The spell circle transformed into a Dark Magic defensive spell.</p>
-<p>~Galleon’s Gate~</p>
+<p>Galleon’s Gate</p>
 <p>The spell absorbed the impact of the tail attack. Or so it should have done. Except it broke past the defense of the spell and slammed into Caius’s stomach, sending him tumbling away with a sickening whipping sound.</p>
 <p>The situation felt so grave that Baler Khione couldn’t even enjoy seeing Caius get struck. Also, Caius’s move spurred the others to action. Everyone took the opportunity to put as much distance as they possibly could between themselves and the Magical Beast but they didn’t run.</p>
 <p>Despite the feeling of self-preservation, they were all from Prominent Mage Families or at least wished to go on and establish one of their own (as was the case with Doran) so, with some distance and hopefully safe from attack, they all began casting attacking spells that they struck toward the Bullcroc as one.</p>

@@ -7,7 +7,7 @@ chapter = 133
 
 <p>The moment he opened the door to the Training Arena, the first thing Ethan saw was a huge pair of snow-white breasts flying toward his face at a terrifying speed.</p>
 <p>His arms wrapped around a waist far too delicate to support such weight. His face was engulfed by soft, perfect mountains while long, shapely legs coiled around his hips.</p>
-<p>"Ah~~ why did you take so long?" Alice asked.</p>
+<p>"Ah why did you take so long?" Alice asked.</p>
 <p>Ethan tried to answer, but with his face buried between those pillowy mounds, all that came out was muffled gibberish pressed into her cleavage.</p>
 <p>Alice giggled at the ticklish sensation of his hot breath washing over the sensitive skin between her breasts. She leaned gently on his shoulders and pulled back, freeing his face with a soft bounce of her chest.</p>
 <p>"I went to visit Doran and Roderik first. Sorry for making you wait, love." He smiled, giving her a firm pat on the butt.</p>
@@ -39,12 +39,12 @@ chapter = 133
 <p>Ethan sat down on a bench in the corner of the arena. Elena stopped in front of him, standing with her weight shifted forward, her generous bust straining against the fabric of her dress as she leaned slightly toward him.</p>
 <p>"Hm... aren’t you going to grace your husband’s lap with that hot ass?" he asked, his hands rising to her breasts.</p>
 <p>Without hesitation, he squeezed. His fingers sank deep into the soft, plump flesh, the heavy mounds overflowing between his digits as the supple skin molded around his grip. A sweet, breathy moan escaped Elena’s lips.</p>
-<p>"Hm~~ yes, but first, take off the rest of that armor... it’s still covered in blood, and the metal hurts my skin." Elena smiled, savoring the sensation of Ethan’s strong fingers kneading into her creamy, silky skin.</p>
+<p>"Hm yes, but first, take off the rest of that armor... it’s still covered in blood, and the metal hurts my skin." Elena smiled, savoring the sensation of Ethan’s strong fingers kneading into her creamy, silky skin.</p>
 <p>Hearing that, Ethan nodded. He stood and picked Elena up, lifting the weight of that voluptuous, perfect body with ease.</p>
 <p>What she had in abundance in her chest and butt was balanced by the delicacy of her waist, so she wasn’t that heavy for him.</p>
 <p>"So... looks like it’s just going to be you and me for now. Think you can handle it?" he asked, leaning over the beauty in his arms.</p>
 <p>It could take the girls many days to catch up, and he’d end up alone with Elena until then.</p>
-<p>"Ah... I can handle it, but I’m not so sure about my dear little husband... shouldn’t you advance to the third stage first to compete with me on this? Fufufu~~ ♡"</p>
+<p>"Ah... I can handle it, but I’m not so sure about my dear little husband... shouldn’t you advance to the third stage first to compete with me on this? Fufufu ♡"</p>
 <p>The provocative giggle made Ethan’s blood boil. He carried her to the bedroom and tossed her onto the bed without ceremony.</p>
 <p>Elena’s body hit the soft mattress and bounced. Her enormous breasts surged upward with the impact, the heavy mounds rippling wildly before gravity pulled them back down.</p>
 <p>The movement was too much for her dress. The dark, creamy flesh spilled free, two massive dark orbs spreading across her delicate torso with a soft, lazy bounce.</p>
@@ -52,7 +52,7 @@ chapter = 133
 <p>The dark, puffy nipples hardened in the open air, the areolae contracting as her tits continued their hypnotic, diminishing oscillation.</p>
 <p>Immediately, she cupped them.</p>
 <p>Her arms sank into the abundant flesh, pressing into the softness as she covered the darkened nipples, squishing the heavy orbs together until they bulged around her forearms.</p>
-<p>"Nghnnn~ sweetheart, are you that excited by my plump, tight little pussy? Fufufu~~ shower first, then fun!♡"</p>
+<p>"Nghnnn sweetheart, are you that excited by my plump, tight little pussy? Fufufu shower first, then fun!♡"</p>
 <p>She squeezed her thighs together, the thick flesh of her inner thighs pressing as she teased him.</p>
 <p>Ethan merely shook his head and walked to the bathroom.</p>
 <p>He didn’t want to lie down on the bed while filthy like that.</p>

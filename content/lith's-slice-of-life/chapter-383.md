@@ -93,7 +93,7 @@ Luna soon broke the kiss and started bouncing voluntarily on Lith's dick. Her bi
 
 Lith held Luna's big jugs and squeezed them as she rode him. He pinched and pulled her nipples for a while and then moved his hands down and pinched her clit.
 
-"Ahhhh~" Luna couldn't help but exclaim. Her clit was her weak spot. Lith could tell and he continued to do it and even pulled it lightly.
+"Ahhhh" Luna couldn't help but exclaim. Her clit was her weak spot. Lith could tell and he continued to do it and even pulled it lightly.
 
 Luna couldn't take it anymore and she lowered herself back onto Lith's body.
 
@@ -101,7 +101,7 @@ Lith moved his hips and increased the pace of his pounding.
 
 Soon…
 
-"Ahhh~ I am cumming…"
+"Ahhh I am cumming…"
 
 "Me too…"
 

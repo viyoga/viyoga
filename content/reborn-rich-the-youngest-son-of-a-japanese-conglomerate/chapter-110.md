@@ -43,7 +43,7 @@ chapter = 110
 <p>"Dispose of the body."</p>
 <p>"Y, yes!"</p>
 <p>At my command, the Mumentai began to move busily with a lot of energy. Mimata Chieri approached me with a bright expression.</p>
-<p>"Ryuta-kun~! Amazing. As expected of Fujigasaki Rinka-nim's disciple! To take down a Tateryari squad with your bare hands!!"</p>
+<p>"Ryuta-kun! Amazing. As expected of Fujigasaki Rinka-nim's disciple! To take down a Tateryari squad with your bare hands!!"</p>
 <p>Mimata Chieri, as expected of an assassination agent, didn't seem to care that twelve people had died in front of her eyes. Rather, she seemed more impressed with my martial arts skills.</p>
 <p>She must have been really impressed, because she kept chattering next to me, and I thought Mimata Chieri was amazing. She really seemed to be well-suited for this agent job. It's a good thing for Mimata Chieri that she enjoys her work because it suits her aptitude.</p>
 <p>The two of us headed to the villa while the Mumentai disposed of the bodies. I put my helmet back on and entered the villa, where Sawasu Amika and Murakata Keiji were still naked and stuck together. Usually, when an erection subsides, it comes out even with vaginal spasms, right? Why is he still erect?</p>

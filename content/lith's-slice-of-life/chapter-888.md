@@ -29,7 +29,7 @@ Lith opened the door and found the room to be really dim. He had a general idea 
 
 Being fully inside the room, the first thing Lith saw was a pair of smooth, perky ass cheeks, showcasing themselves proudly.
 
-"Mhm~"
+"Mhm"
 
 He then heard soft moans and walked close to the couch from where it came from.
 
@@ -45,7 +45,7 @@ It was well lubricated already and had no problems having Lith's shaft slide in.
 
 PAH!
 
-"Ahhh~"
+"Ahhh"
 
 Spanking Lucifer's ass once, Lith asked, "What will your daughters think if they barge in?"
 

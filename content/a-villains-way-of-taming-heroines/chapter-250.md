@@ -27,7 +27,7 @@ chapter = 250
 <p>"Little Marlina." After her son left the table, the somewhat bored Lady Hydral blinked, "Is it hard to work under Ansel?"</p>
 <p>"Uh, ah?"</p>
 <p>This question caught the increasingly quiet Marlina off guard. She quickly put down her knife and fork and wiped her mouth, saying very seriously: "No, ma'am, Mr. Ansel is very good to me. Being able to dedicate my power to him also makes me feel... very happy."</p>
-<p>"Oh~"</p>
+<p>"Oh"</p>
 <p>The woman's face showed a teasing smile: "Very happy, is it?"</p>
 <p>Marlina's face turned slightly red, but she didn't deny it, instead she nodded lightly: "Yes, very happy... Ah! Ma'am, please rest assured, I don't have any presumptuous thoughts, just being able to accompany Mr. Ansel like this, I'm already satisfied."</p>
 <p>Annelisa didn't seem particularly satisfied or impressed with Marlina's answer, obviously she had seen too many girls who were "extremely satisfied just to be with Ansel".</p>

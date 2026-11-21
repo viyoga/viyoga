@@ -86,7 +86,7 @@ chapter = 1386
 <p>Quinlan tilted his head. "Are you poor?"</p>
 <p>Myrasyn had to hide her mouth to cover an unladylike sound from escaping.</p>
 <p>Ragnar made a growl that alarmed several advisors.</p>
-<p>Myrasyn, with great theatrics, blinked, slowly closing both eyes to ensure he saw it. "A blink already passed, though~?"</p>
+<p>Myrasyn, with great theatrics, blinked, slowly closing both eyes to ensure he saw it. "A blink already passed, though?"</p>
 <p>Quinlan smiled at the elf. "Queen Myrasyn, I must ask that you keep your mesmerizing eyes open for a few seconds longer before your second blink. Would you do that for me?"</p>
 <p>The queen's smile turned sly. "Hmmm… I'll consider it."</p>
 <p>"Stop flirting!" Ragnar screamed.</p>

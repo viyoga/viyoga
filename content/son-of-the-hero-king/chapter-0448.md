@@ -50,7 +50,7 @@ chapter = 448
 <p>There was no heavy pressure accompanying his presence. No powerful aura emanated from his body. But simply being in the same place as the changed Prince made him feel breathless. As though even the mere act of breathing without his explicit orders would be the greatest blasphemy he could ever commit.</p>
 <p>He wasn’t the only one. The more Sol approached them, the more jittery the knights became. They felt as if they were standing in front of a large monster that was threatening to swallow them whole at even the slightest grievance.</p>
 <p>A sea of blood covered their eyes and the pained roar of monsters being killed filled their ears with the nearing of the Prince.</p>
-<p>Cough~</p>
+<p>Cough</p>
 <p>One of the knights could hold on no longer. His eyes rolled into the back of his skull and he fainted after a coughing fit.</p>
 <p>This seemed to set a domino effect as more and more knights fainted and finally…When Sol stood on the podium… Only a third of the Knights were still standing, albeit with great difficulty.</p>
 <p>There was a difficult and disappointed expression on his face as he looked down on everyone in silence.</p>

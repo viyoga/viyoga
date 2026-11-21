@@ -67,7 +67,7 @@ chapter = 531
 
 <p>Yunfeng’s lips parted, but she couldn’t find the words. Her eyes closed, opened, and then she stood up.</p>
 
-<p>“Come to the bedroom, I’ll be waiting for you there~” Her voice echoed, sweet and soft, leaving the Gold King behind.</p>
+<p>“Come to the bedroom, I’ll be waiting for you there” Her voice echoed, sweet and soft, leaving the Gold King behind.</p>
 
 <p>Jin Hao remained there in silence, pouring himself a glass of liquor. Beside him, he sensed a disturbance in the Qi as a figure appeared.</p>
 

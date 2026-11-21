@@ -95,7 +95,7 @@ chapter = 252
 
 <p>His hands traveled up her voluptuous body and fell on one of her huge breasts, grabbing the pale, soft flesh that threatened to spill out of her tight cleavage.</p>
 
-<p>“Nghnn~~ Not even close…” Ruxue groaned, wiping away the smile on Qingyi’s face.</p>
+<p>“Nghnn Not even close…” Ruxue groaned, wiping away the smile on Qingyi’s face.</p>
 
 <p>Her words were answered with a powerful slap to her ass, shockwaves spreading through the plump, shapely flesh whose sway was soon brought under control by Qingyi’s possessive grip.</p>
 
@@ -103,7 +103,7 @@ chapter = 252
 
 <p>She liked to joke like that, but he knew that even if he wasn’t at the level of the most powerful, like the leader of the demon cult, he could still hold his own against many transcendents.</p>
 
-<p>“Little heart? Mghnn~~” Ruxue put her finger over her full, juicy lips “it’s not like any little heart could withstand so many women… womanizing scoundrel.”</p>
+<p>“Little heart? Mghnn” Ruxue put her finger over her full, juicy lips “it’s not like any little heart could withstand so many women… womanizing scoundrel.”</p>
 
 <p>“Well… he’s a bit of a glutton, hahaha” Qingyi laughed, his hands going up to Ruxue’s huge twin mountains, grabbing her cleavage and pulling it down.</p>
 
@@ -115,7 +115,7 @@ chapter = 252
 
 <p>Without hesitation, he opened his mouth and took both nipples in at the same time, sucking gently, soon feeling the flood of warm, creamy sweet liquid invading his mouth, filling him with Qi.</p>
 
-<p>“Aghnn~~” Ruxue could do little more than try to suppress the soft moans that escaped her lips as Qingyi milked her huge breasts.</p>
+<p>“Aghnn” Ruxue could do little more than try to suppress the soft moans that escaped her lips as Qingyi milked her huge breasts.</p>
 
 <p>Sometimes she wondered how she had fallen so far; from a proud spirit of the celestial heavens to the wife of such a degenerate man.</p>
 

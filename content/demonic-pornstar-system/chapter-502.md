@@ -42,7 +42,7 @@ chapter = 502
 <p>She pouted. "You didn’t even let me finish."</p>
 <p>"I didn’t need to."</p>
 <p>Alice giggled, releasing a tiny, mischievous sound.</p>
-<p>"I’m just messing with you~"</p>
+<p>"I’m just messing with you"</p>
 <p>She sank deeper under the sheets, getting ridiculously cozy, yawning so cutely it should’ve been illegal.</p>
 <p>"I can tell that I’ll have a lot of fun in the future," she whispered, then gave a grin.</p>
 <p>A gremlin grin.</p>

@@ -48,10 +48,10 @@ chapter = 693
 <p>"Eugh...!"</p>
 <p>Korea was definitely much colder than Japan. Moreover, it was snowing quite a bit in Korea, so it felt even colder, and I unconsciously groaned.</p>
 <p>After walking a bit, I saw Dickson, a large white bodyguard, and Han Yu-gyeong waving her hand after spotting me near the parking lot entrance. It seemed like she had come out a little so I wouldn't have trouble finding her.</p>
-<p>"Yong-tae-yaaaa~!"</p>
+<p>"Yong-tae-yaaaa!"</p>
 <p>Han Yu-gyeong was wearing a beige coat and a turtleneck sweater, and despite it being winter, she was wearing a short black skirt as if she wasn't cold at all. Her legs were bare without stockings, so she looked very cold, but she was jumping up and down as if she was very happy to see me.</p>
 <p>Seeing her nose turn red as she greeted me, as if she had been waiting for me for quite a while, it felt like a dog seeing its owner after a long time.</p>
-<p>"Yu-gyeong-a~! Aren't you cold? It's cold, wait inside the car."</p>
+<p>"Yu-gyeong-a! Aren't you cold? It's cold, wait inside the car."</p>
 <p>When I took Han Yu-gyeong's cold hands and blew on them, Han Yu-gyeong said she was okay and hugged me, sniffing me as if she was going to absorb my essence. Then we headed towards where Han Yu-gyeong's car was parked.</p>
 <p>"It's been a while, Mr. Jin."</p>
 <p>"Yes. Dickson, have you been well too?"</p>

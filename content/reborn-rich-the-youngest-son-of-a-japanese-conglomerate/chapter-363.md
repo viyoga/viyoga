@@ -60,7 +60,7 @@ chapter = 363
 <p>"Wait, we only came because we received a tip...! Please forgive us just this once! We didn't know it was a place like this...!"</p>
 <p>A tip? What does that mean? I should hear what they have to say. I turned to the surprised students and opened my mouth.</p>
 <p>"Everyone was surprised, right? I'll go see if things are being resolved well, so eat the dessert I ordered for you over there."</p>
-<p>"Waa, Ryuta-chi is the best! Lisa-tan, Shiyo-ppi, Konoka-chan, let's go~!"</p>
+<p>"Waa, Ryuta-chi is the best! Lisa-tan, Shiyo-ppi, Konoka-chan, let's go!"</p>
 <p>As Seizawa Shii dragged the other three members away, I followed the security guards. Sasabe, the department store manager, who was walking with the security guards, noticed me following and asked me.</p>
 <p>"Why are you following...?"</p>
 <p>"I'm their homeroom teacher, so I'm going to check if things are being resolved well."</p>

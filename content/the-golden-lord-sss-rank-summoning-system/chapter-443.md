@@ -53,7 +53,7 @@ chapter = 443
 <p>He stepped closer and wrapped both hands around her delicate waist, the narrow dip of it fitting neatly into his palms.</p>
 <p>Then he pulled her toward him and pressed a kiss to her lips.</p>
 <p>The two remained like that for a brief moment, her soft body molding against his, the plush weight of her tits flattening against his chest, before their lips slowly parted.</p>
-<p>"Hmmm~ nice... my love..." Faelith hugged him tightly, pressing her face against his chest and taking a deep breath.</p>
+<p>"Hmmm nice... my love..." Faelith hugged him tightly, pressing her face against his chest and taking a deep breath.</p>
 <p>"When do you plan to give me a child? When it comes, I just want to hand the responsibilities of ruling Greenleaf over to it and go live by your side..."</p>
 <p>"Hm... can’t you give that responsibility to other members of your family?" Ethan ran his hand slowly down her back, the warmth of her skin seeping through the thin fabric.</p>
 <p>"No... they’re too greedy, and, well..." She lifted her face to look at him, her cheeks taking on a slight pink hue. "I want a child..."</p>

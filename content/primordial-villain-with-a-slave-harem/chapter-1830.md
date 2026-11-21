@@ -21,17 +21,17 @@ chapter = 1830
 <p>"Mhm."</p>
 <p>"Alright, Kaeli, stop pouting at me like that, you’re way too adorable." The cheeky elf flowed up out of her lounging, shedding her dress along the way with a shrug the garment simply agreed to, and settled in at Kaelira’s side, warm skin against warm skin. She cracked her knuckles with theatrical ceremony. "Hearing isn’t the same as knowing. Which means it’s time for big sis to give you the practical portion, before you hurt yourself with enthusiasm. Watch closely."</p>
 <p>While the gals were having their adorable little pouting warfare, Quinlan leaned back, hands behind his head, manhood ready, and just watched, far too content with his life right now.</p>
-<p>"Look at the smugness~" Sera giggled.</p>
+<p>"Look at the smugness" Sera giggled.</p>
 <p>"...He’s very happy," Kaelira replied, half looking at his grin, half at the eagerly waiting entity between his legs.</p>
 <p>"Of course he is. Do you know why?" The question was theatrical, but its recipient answered nonetheless, ears twitching.</p>
 <p>"The two of us are about to pamper him..."</p>
-<p>"Right on~" Sera purred as she wrapped her fingers around the base of his cock with the easy confidence of long practice, and her lecture voice was a purring, tilde-laced disgrace from the first syllable.</p>
-<p>"Foundations first. I’ll be honest with you, Kaeli, I’m no Lucille. Nobody is Lucille. That woman is a natural phenomenon when it comes to the art of pleasing Quin with her mouth and the rest of us have made peace with it~ But I am very, very far from a rookie. So. Pressure at the base, like this, patience at the top. He pretends he’s above all of it, but the underside, just below the crown, right here..."</p>
+<p>"Right on" Sera purred as she wrapped her fingers around the base of his cock with the easy confidence of long practice, and her lecture voice was a purring, tilde-laced disgrace from the first syllable.</p>
+<p>"Foundations first. I’ll be honest with you, Kaeli, I’m no Lucille. Nobody is Lucille. That woman is a natural phenomenon when it comes to the art of pleasing Quin with her mouth and the rest of us have made peace with it But I am very, very far from a rookie. So. Pressure at the base, like this, patience at the top. He pretends he’s above all of it, but the underside, just below the crown, right here..."</p>
 <p>She demonstrated. Her lips closed over the crown, her tongue found the exact spot she’d just lectured about, and she sank down his length by slow, practiced degrees until her nose brushed his stomach, held there, humming, and drew back up slow.</p>
 <p>*Pop.*</p>
 <p>Her eyebrows arched at Kaelira in silent lecture.</p>
 <p>Quinlan, the big bad Primordial Villain, terror of powerful rulers all across the continent, exhaled hard through his nose, betrayed by his own body, and both elves noted the sound with identical satisfaction, a theory just confirmed.</p>
-<p>"See~?" Sera came back up looking unbearable. "Eye contact is optional but devastating."</p>
+<p>"See?" Sera came back up looking unbearable. "Eye contact is optional but devastating."</p>
 <p>"So it’s not optional," Kaelira noted, prompting Seraphiel to smile brightly.</p>
 <p>"Indeed. If you’re competitive about it, then it’s not."</p>
 <p>Seeing the determination on her friend’s face, she knew she was looking at a future great of the art of blowing. This girl would not rest until she mastered the technique.</p>

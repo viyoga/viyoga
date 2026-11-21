@@ -23,7 +23,7 @@ chapter = 327
 <p>The fate's hand almost pushed Ravenna into consigning the Tower of Babel to the abyss, but what caused Evora to abandon such a thought?</p>
 <p>Ansel caressed Evora's delicate and smooth instep, her toes slender and the bones at the junction with her instep slightly pronounced, giving her entire foot a distinct and elegant outline.</p>
 <p>"But you refrained from doing so, why?"</p>
-<p>The fiery woman let out a contented purr, "Because, well~ I'm curious to see what your prized puppet is truly capable of. Consider it... a favor in your regard, sparing them."</p>
+<p>The fiery woman let out a contented purr, "Because, well I'm curious to see what your prized puppet is truly capable of. Consider it... a favor in your regard, sparing them."</p>
 <p>Ansel chuckled, "Should I be grateful to you then?"</p>
 <p>Evora, lying on her side and propping her cheek, glanced over with a narrow and seductive gaze, reminiscent of a fox looking back, yet her allure was not one of subservience but rather a commanding blaze.</p>
 <p>"Then you may... continue touching," her red lips curved into a smile that did not conceal her desire, "I find it quite pleasurable."</p>

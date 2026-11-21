@@ -57,7 +57,7 @@ chapter = 130
 <p>I moved my hips rhythmically. When a foreign object called a dick entered the ghost's virgin pussy, it moved tightly to push the dick out, and that movement inside the pussy excited me.</p>
 <p>-I'll kill you hng! I'll kill you ahng...! Ahheut! I'll kill you ahang.... Ahheut!</p>
 <p>Now the ghost couldn't even say "I'll kill you" properly and was hugging me. Hmm, it's a bit awkward, but should I try kissing it?</p>
-<p>When the ghost says "I'll kill you, I'll kill you," the way it pronounces "kill" is similar to the shape of its mouth when it says "chu~," so what can I do if I want to kiss it? Then I have to do it.</p>
+<p>When the ghost says "I'll kill you, I'll kill you," the way it pronounces "kill" is similar to the shape of its mouth when it says "chu," so what can I do if I want to kiss it? Then I have to do it.</p>
 <p>I moaned and observed the ghost's lips as it struggled to say "I'll kill you, I'll kill you," and then I kissed it when it said "kill."</p>
 <p>-Kill...! Euheuheum!!</p>
 <p>The virgin ghost turned its face from side to side as if resisting, but when I strongly shook my hips back and forth, it opened its mouth while saying "Aah♥." In the gap where the ghost opened its mouth, my tongue quickly penetrated and began to ravage the virgin ghost's mouth.</p>

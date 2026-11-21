@@ -25,7 +25,7 @@ chapter = 63
 
 <p>Arielle slowly licked the shaft, as her tongue was barely out and her eyes were closed.</p>
 
-<p>’Ohh, a virgin when it comes to blowjobs, not bad, mom~’ Owen’s mind went into overhaul, as her way of licking was like an amateur. Still, he couldn’t miss the tinge of feelings surging into his cock as her tongue moved like a snake. Even an egg of a dragon is still a dragon. So, it’s better not to underestimate a mom who is a pent-up MILF.</p>
+<p>’Ohh, a virgin when it comes to blowjobs, not bad, mom’ Owen’s mind went into overhaul, as her way of licking was like an amateur. Still, he couldn’t miss the tinge of feelings surging into his cock as her tongue moved like a snake. Even an egg of a dragon is still a dragon. So, it’s better not to underestimate a mom who is a pent-up MILF.</p>
 
 <p>Ring... ring... ring...</p>
 
@@ -33,17 +33,17 @@ chapter = 63
 
 <p>&quot;Lick them harder, mom... it will take you an hour if you move like that,&quot; Owen said as he answered the phone call without her knowing. She was so focused on the job in front of her that she didn’t hear the sound of the phone ringing.</p>
 
-<p>Husband: GOOD MORNING, DARLING~</p>
+<p>Husband: GOOD MORNING, DARLING</p>
 
 <p>The voice of the man echoed as Owen tapped the loudspeaker mode... forcing Arielle to open her eyes wide.</p>
 
 <p>&quot;Lick... lick... Is it your father, my dear Wen?&quot; she asked, her eyes showing a panicked expression.</p>
 
-<p>&quot;Yes, Mom, but don’t distract yourself and work harder. I will answer Father in your stead, Mom ~&quot; Owen smiled innocently, which even made her eyes turn to absolute stupor.</p>
+<p>&quot;Yes, Mom, but don’t distract yourself and work harder. I will answer Father in your stead, Mom &quot; Owen smiled innocently, which even made her eyes turn to absolute stupor.</p>
 
 <p>&quot;I-it’s bad, my dear Wen... what if your father knows...?&quot; Her expression showed that she was pleading. Sucking your son’s cock while calling your husband is truly out of this world. How could that be possible?</p>
 
-<p>&quot;Don’t worry, Mom. You just need to play your own part, okay~?&quot; Owen paused as he slowly removed his fingers from the mic.</p>
+<p>&quot;Don’t worry, Mom. You just need to play your own part, okay?&quot; Owen paused as he slowly removed his fingers from the mic.</p>
 
 <p>’Keke... not even fighting back, ohh... how far you’ve fallen to my glorious divine rod, mom...’ He didn’t expect to hear the response of Arielle.</p>
 
@@ -53,7 +53,7 @@ chapter = 63
 
 <p>The pause really took longer this time as her husband spoke again.</p>
 
-<p>&quot;Now continue, Mom. Father will never know~.</p>
+<p>&quot;Now continue, Mom. Father will never know.</p>
 
 <p>&quot;O-okay...&quot; She didn’t hesitate anymore and trusted her son! There was no turning back anymore, as she had already entered the forbidden place...</p>
 
@@ -61,7 +61,7 @@ chapter = 63
 
 <p>&quot;Oh, good morning, Owen. Where is your mom?&quot; the man asked, as he was happy that he heard the voice of his son again. Nothing really beats the sound of your joyful son... It’s truly refreshing to hear your boy’s voice.</p>
 
-<p>&quot;Mom is doing her best again today, Dad~&quot; He then looked down and smiled as Arielle was now licking his pink head with gentle care.</p>
+<p>&quot;Mom is doing her best again today, Dad&quot; He then looked down and smiled as Arielle was now licking his pink head with gentle care.</p>
 
 <p>Lick... lick... lick...</p>
 
@@ -75,11 +75,11 @@ chapter = 63
 
 <p>The man knew that he had really messed up, as he forgot to call Arielle when he promised to call her back.</p>
 
-<p>’Keke... I don’t know if I’m going to laugh or cry. Your lovely wife is truly in a bad mood today, dad~’ He almost dropped the phone at the display of her desperate sucking.</p>
+<p>’Keke... I don’t know if I’m going to laugh or cry. Your lovely wife is truly in a bad mood today, dad’ He almost dropped the phone at the display of her desperate sucking.</p>
 
 <p>Arielle already sucked the head slowly... making her cheeks hollow out as though they were so big. Its thickness was too much for a MILF who doesn’t know blowjobs!</p>
 
-<p>&quot;Okay, Dad... I don’t know if Mom can answer your call, though. She’s working using her mouth now~&quot; Owen said as he put the phone near Arielle’s ear... as the squelching sound could now be heard clearly.</p>
+<p>&quot;Okay, Dad... I don’t know if Mom can answer your call, though. She’s working using her mouth now&quot; Owen said as he put the phone near Arielle’s ear... as the squelching sound could now be heard clearly.</p>
 
 <p>That man is a loser, and he will never know, even if he fucked Arielle’s brains out, because he is far away!</p>
 

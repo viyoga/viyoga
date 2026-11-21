@@ -36,7 +36,7 @@ chapter = 405
 <p>"Trust me, you'll want to be at your best."</p>
 <p>That sent chills all over Caius's body. His heart beat in worry and then he gritted his teeth and grinned. His fingers tightened around his sword handle and he found himself very locked into the impending duel.</p>
 <p>"And… begin!" Alexia announced.</p>
-<p>~Hellsong Stomp!~</p>
+<p>Hellsong Stomp!</p>
 <p>Caius stamped his foot against the ground and spell circles appeared around his ankles, before powerful beams of fire flared from his feet to send him charging toward Alexia.</p>
 <p>Before he was even within two feet of her, he was already swinging his sword. It collided with Alexia's, causing a ringing sound of metal striking metal.</p>
 <p>Alexia pushed him and Caius vanished from in front of her so he could go after her from behind. Her back was open. Just one perfectly placed thrust would send the tip of his sharp blade through her cape and into her back.</p>
@@ -48,8 +48,8 @@ chapter = 405
 <p>That attack was magic. It wasn't a martial move. It was a magical one and he could have sworn it was at the Fifth circle. His cousin wasn't lying when she said he was going to need to go all out.</p>
 <p>What other choice did he have when he was facing someone who wasn't deliberately lowering their strength and magic to his level to make for a fair fight!</p>
 <p>Alexia's sword moved. It was the barest of movement but it summoned a slashing attack so great that the hairs on Caius's body stood on end.</p>
-<p>~Galleon's Gate!~</p>
-<p>As he cast the defensive spell to absorb some of the power of the attack—because it couldn't possibly defend against all of it—Caius kickstarted the ~Hellsong Dash~ spell once again and to put as much distance between himself and the afterwave as he could.</p>
+<p>Galleon's Gate!</p>
+<p>As he cast the defensive spell to absorb some of the power of the attack—because it couldn't possibly defend against all of it—Caius kickstarted the Hellsong Dash spell once again and to put as much distance between himself and the afterwave as he could.</p>
 <p>Alas, it was far too fast and far too strong for him to completely outrun and it sent him off his feet and flying a good couple of feet away where he hit the ground and almost rolled completely off the concrete stage.</p>
 <p>He got up to one knee quickly and saw as Alexia took two steps, causing her blue-black hair to sway gently before the very next second, slashes were descending. More than ten of them. Each was as powerful as the one Caius just barely managed block and still got blown away by.</p>
 <p>He couldn't possibly face them head-on. So he ran. Only ever avoiding them by an inch and always getting struck by the forceful wave of air they generated upon striking the ground.</p>
@@ -58,5 +58,5 @@ chapter = 405
 <p>Caius realized that once this barrage was over, Alexia would just unleash another. So he decided to use this moment to plan his counterattack which he would launch without giving her a chance to follow up on this series of attacks.</p>
 <p>By the Eighth slash, he didn't just use the force to propel himself to safety from the next slash, he used it to propel himself toward Alexia. He did the same with the Ninth slash.</p>
 <p>Alexia's eyes narrowed and she wore a curious smile as she watched Caius get closer.</p>
-<p>And then, at the tenth slash, he didn't just get propelled forward, he directed the momentum upward, casting ~Hellsong Stomp~ to get a few more inches in the air where he made a wide swing with his sword, while forming seals with his free hand.</p>
+<p>And then, at the tenth slash, he didn't just get propelled forward, he directed the momentum upward, casting Hellsong Stomp to get a few more inches in the air where he made a wide swing with his sword, while forming seals with his free hand.</p>
 <p>Conjuring two Massive spell circles.</p>

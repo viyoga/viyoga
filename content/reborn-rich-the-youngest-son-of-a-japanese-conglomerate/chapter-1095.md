@@ -78,9 +78,9 @@ chapter = 1095
 <p>"I don't know who it is yet, but I will make them feel the same pain as I felt, no, even greater pain. Tateyama, Tracking them as quickly as possible."</p>
 <p>"Understood! I will definitely find the Assassin who made the Young Master like that."</p>
 <p>At Taira Jiro's Words, Tateyama Genta, with a firm Expression, nodded his Head and answered. His Expression showed a Determination to make the one who committed this Incident taste pain without fail.</p>
-<p>Requested by Gojoy-nim: Shinoe Misano seen from the passenger seat, Suzuki Chisami talking about Work~!</p>
-<p>Shinoe Misano~!</p>
-<p>Suzuki Chisami~!</p>
-<p>Requested by TheDreaming-nim: Eve in prison 1. Zero Two 2. Sitting and covering her groin~!</p>
+<p>Requested by Gojoy-nim: Shinoe Misano seen from the passenger seat, Suzuki Chisami talking about Work!</p>
+<p>Shinoe Misano!</p>
+<p>Suzuki Chisami!</p>
+<p>Requested by TheDreaming-nim: Eve in prison 1. Zero Two 2. Sitting and covering her groin!</p>
 <p>1.</p>
 <p>2.</p>

@@ -39,7 +39,7 @@ chapter = 262
 
 <p>“Right,” Feiyan walked over to Xueyao’s back, wrapping the bikini around the voluptuous fox’s torso, lining up the small, white cups with her pink nipples.</p>
 
-<p>“Nghnn~~” Xueyao moaned as Feiyan pulled, tightening the bikini around her huge tits, squeezing them against her delicate torso.</p>
+<p>“Nghnn” Xueyao moaned as Feiyan pulled, tightening the bikini around her huge tits, squeezing them against her delicate torso.</p>
 
 <p>The fine lines and cups sank into her pale, jade-perfect skin, forcing it to overflow on all sides.</p>
 
@@ -49,9 +49,9 @@ chapter = 262
 
 <p>The thin thong sank into the deep valley of her big bubble butt and between the fat lips of her pussy, creating a vision of endless obscenity.</p>
 
-<p>“What, you don’t like it? Fufufu~~” Feiyan giggled provocatively, observing the uncomfortable expression on Xueyao’s beautiful face.</p>
+<p>“What, you don’t like it? Fufufu” Feiyan giggled provocatively, observing the uncomfortable expression on Xueyao’s beautiful face.</p>
 
-<p>“N-no, I’m fine, mghnn~~” Xueyao spoke, using all the concentration of a cultivator at the peak of the Transcendence Realm to ignore the discomfort in her boobs and pussy.</p>
+<p>“N-no, I’m fine, mghnn” Xueyao spoke, using all the concentration of a cultivator at the peak of the Transcendence Realm to ignore the discomfort in her boobs and pussy.</p>
 
 <p>Focusing her eyes on Qingyi, she ran over to him. “Husband, what do you think? Do you want to make puppies with Xueyao like this?” she asked, showing off her voluptuous body.</p>
 

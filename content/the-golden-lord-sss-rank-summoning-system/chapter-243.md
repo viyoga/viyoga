@@ -53,7 +53,7 @@ chapter = 243
 <p>Eyes like a blood-red moon shone beneath long lashes. A crimson dress of the same hue enveloped her voluptuous body, while long, slightly wavy golden hair spilled delicately over her shoulders.</p>
 <p>The paladin glanced at her status screen and, to his horror, saw nothing but red skulls lining up endlessly.</p>
 <p>That could only mean one thing: there was a difference of at least a hundred levels between him and the enemy.</p>
-<p>"Oh... look what we have here, fufufu~" The woman laughed, her voice so sweet it seemed bathed in honey, echoing through the room like an intoxicating purr.</p>
+<p>"Oh... look what we have here, fufufu" The woman laughed, her voice so sweet it seemed bathed in honey, echoing through the room like an intoxicating purr.</p>
 <p>Despite her sweet voice, a slight flick of her index finger was enough for them all to freeze at the same moment.</p>
 <p>Their heads plummeted to the floor with wet, heavy thuds, decapitated before they could even comprehend what had happened.</p>
 <p>Their bodies remained upright for a brief heartbeat before crumpling lifelessly onto the marble.</p>

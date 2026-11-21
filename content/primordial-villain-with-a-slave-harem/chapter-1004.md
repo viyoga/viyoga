@@ -14,12 +14,12 @@ chapter = 1004
 <p>Blossom reached for his hand needily and planted her nose into his shoulders, wishing to overwrite the horrible smell with the one that was emitted by her beloved master.</p>
 <p>&lt;Master... Blossom smells an aging woman trying to do her utmost to appear youthful there. Blossom thinks she’s really desperate because she doesn’t even smell human one bit. Her race has been changed to ’cosmetics.’&gt;</p>
 <p>&lt;Focus on something else for a bit,&gt; Quinlan replied, though feeling a bit worried about how his dog-girl lover would take being in a banquet full of women like these two. He hoped she’d get used to it sooner rather than later.</p>
-<p>"Am I being ignored, I wonder~?"</p>
+<p>"Am I being ignored, I wonder?"</p>
 <p>Selendra mused with a polite smile, though any such sentiment didn’t reach her eyes. She clearly hated being ignored, even if for but a single second.</p>
 <p>"I must apologize; ignoring you wasn’t my intention, my lady. I was merely stunned for a moment by your beauty. The portraits don’t do you justice."</p>
 <p>Quinlan took her gloved hand with graceful motions and placed a chaste kiss upon it. It was the proper gesture, the kind nobles adored.</p>
 <p>A gleeful giggle escaped Selendra’s lips. It was light and full of feminine delight. A real smile, one not forged for social manipulation, briefly graced her painted face. Her eyes, once flat and sharp like polished glass, shone with real warmth for the first time.</p>
-<p>"My, my~ You have a good eye for beauty, I see," she said, letting her gaze wander across the women behind him. "It’s clear you know how to appreciate the finer things in life... judging by the company you keep."</p>
+<p>"My, my You have a good eye for beauty, I see," she said, letting her gaze wander across the women behind him. "It’s clear you know how to appreciate the finer things in life... judging by the company you keep."</p>
 <p>Her eyes narrowed as she studied Quinlan again. "I don’t recall meeting you before, though. I’m sure I’d remember such an imposing-looking man among the sea of wimpy noble men..." Her gaze lingered on his firm biceps, specifically, the one currently occupied by a dogkin, who was still pressing her face into him so that she wouldn’t have to smell the foul stench Selendra and her mother emitted. "Yes... definitely something I’d remember."</p>
 <p>Then she paused, squinting up as if she noticed something odd, something she somehow missed when he leaned down to kiss her hand.</p>
 <p>"Is that... a cat on your head?"</p>
@@ -38,5 +38,5 @@ chapter = 1004
 <p>A moment of silence followed. Then came the bored reply: "You do. Now get lost, stop wasting my time."</p>
 <p>Quinlan’s expression didn’t even twitch, though the same couldn’t be said for some of his women. Feng especially didn’t appreciate the tone of the woman.</p>
 <p>Selendra, meanwhile, burst into another amused giggle, utterly delighted by how her mother dismissed him like a beggar at a feast. She clutched her parasol and turned to Quinlan with mischief in her eyes, clearly proud of the example her mother set.</p>
-<p>"She’s the golden standard I aspire to follow~ Isn’t she such a perfect role model?"</p>
-<p>"She is. No wonder you turned into such a fine young lady, Miss Selendra~" Vex spoke up with a giggle of her own. If anyone knew the woman, they’d instantly be able to tell she thought of the pair as beyond trash. A pile of stinking shit she unfortunately encountered while out on a stroll with her hubby.</p>
+<p>"She’s the golden standard I aspire to follow Isn’t she such a perfect role model?"</p>
+<p>"She is. No wonder you turned into such a fine young lady, Miss Selendra" Vex spoke up with a giggle of her own. If anyone knew the woman, they’d instantly be able to tell she thought of the pair as beyond trash. A pile of stinking shit she unfortunately encountered while out on a stroll with her hubby.</p>

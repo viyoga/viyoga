@@ -7,22 +7,22 @@ chapter = 39
 
 <p>After the match, the Kazuhiro and Umi couple and Arisu and I had dinner. Dinner was at a luxurious Steakhouse. Kazuhiro-nyeoseok scored a goal and became MVP, so he deserved at least this much.</p>
 <p>Even when watching Soccer, Umi and Arisu were together, but perhaps because they couldn't talk much due to watching Soccer, I asked Arisu many questions.</p>
-<p>"As I said earlier, Arisu-ssi is so pretty~. What kind of Work do you do?"</p>
+<p>"As I said earlier, Arisu-ssi is so pretty. What kind of Work do you do?"</p>
 <p>"I work as a model."</p>
 <p>"Wow! A model! This is my first time seeing a model in real life."</p>
 <p>Leaving the Women to talk, I started to tease Kazuhiro.</p>
 <p>"You couldn't even get the Ball for 37 minutes in the second half. You should go to a good Place to receive the Ball."</p>
-<p>"Aoh~! What do you know about Soccer, Hyung-nim? I scored a goal, isn't that enough?"</p>
+<p>"Aoh! What do you know about Soccer, Hyung-nim? I scored a goal, isn't that enough?"</p>
 <p>As if getting angry at my unsolicited advice, Kazuhiro kept grumbling, "Aoh!" I looked at Kazuhiro, chuckled, and opened my mouth.</p>
 <p>"Congratulations on your Debut, you bastard."</p>
 <p>"This is all thanks to Hyung-nim."</p>
 <p>It was a slightly embarrassing Scene. Kazuhiro seemed truly grateful to me for hitting him and setting him straight when he was lost. Mealtime passed, and it was time to say goodbye.</p>
-<p>Kazuhiro-nyeoseok, saying he would completely burn up tonight, wrapped his arm around Kagawa Umi's Waist and disappeared. Seeing Kagawa Umi also lean into him with an "Aing~" sound, it seemed she was also quite looking forward to night work with Kazuhiro. They're quite a well-matched Couple, aren't they?</p>
+<p>Kazuhiro-nyeoseok, saying he would completely burn up tonight, wrapped his arm around Kagawa Umi's Waist and disappeared. Seeing Kagawa Umi also lean into him with an "Aing" sound, it seemed she was also quite looking forward to night work with Kazuhiro. They're quite a well-matched Couple, aren't they?</p>
 <p>I rode in the car Arisu drove, and returned to the Talent Development Center. Arisu, seemingly quite Regrettable, couldn't leave, and kept caressing my Cheek.</p>
 <p>"We won't be able to see each other for a month now, will we?"</p>
 <p>"Indeed.... Come here."</p>
 <p>I hugged Arisu tightly once. Arisu said she was going to Milan, Italy for her modeling Work, and wouldn't be in Japan for a month. It was a bit Regrettable not seeing her for a month, but if I focused on Work for about a month, it would pass quickly.</p>
-<p>"I'll buy you a gift, so look forward to it~!"</p>
+<p>"I'll buy you a gift, so look forward to it!"</p>
 <p>"Okay, take care of yourself, and since Public Order in Italy is worse than in Japan, always take your Manager or bodyguard with you."</p>
 <p>"Okay!"</p>
 <p>After Arisu left, I returned to the Talent Development Center. Tomorrow, another week will begin.</p>
@@ -81,7 +81,7 @@ chapter = 39
 <p>Thinking of Shinoe Misano, who had taken Medicine beforehand because she wanted to do it raw, I became even more aroused and thrust hard.</p>
 <p>"Haaang! I love the Feeling of this pussy widening...! Heueut!"</p>
 <p>"By the time your Nampyeon returns, I'll make you into a complete Slutty Pussy."</p>
-<p>"Nooo, my Nampyeon will notice~!"</p>
+<p>"Nooo, my Nampyeon will notice!"</p>
 <p>Saying "no," Shinoe Misano hugged me. Crossing her Legs in an X-shape and wrapping them around my Waist, she urged for semen.</p>
 <p>"Hwaaang! I'm going to come! Together, let's go together! Feed my long-starved pussy your semen!"</p>
 <p>"Just a little more, endure it if we're going to come together!"</p>

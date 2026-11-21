@@ -22,7 +22,7 @@ chapter = 1896
 <p>The Slutty Foxy and nerdy alchemist reached a compromise.</p>
 <p>Down in the torchlight, Blossom was helpfully carrying a limp countess to her coach under one arm, tail wagging, radiating civic virtue. She decided she’d increase her beloved Master’s reputation among his harshest critics by being the most lovable ball of fluff to have ever existed.</p>
 <p>"Look at her go," Lucille cooed. "Truly the best girl."</p>
-<p>"Hehe~" Kitsara giggled. "If she hears that, she’ll combust on the spot."</p>
+<p>"Hehe" Kitsara giggled. "If she hears that, she’ll combust on the spot."</p>
 <p>"...Best girl," Vex repeated, flat.</p>
 <p>"Jealous?" Aurora grinned. "You could compete, you know. Go down, help a few nobles into their carriages just so they think better of Quinlan. Prime best-girl behavior."</p>
 <p>Vex raised both hands and crossed her index fingers into a firm X.</p>
@@ -35,7 +35,7 @@ chapter = 1896
 <p>Lucille took the bottle on its next orbit and looked down at the emptying court, at banners she used to cross streets to avoid.</p>
 <p>"Can you blame them? These houses have been hunting us for some time. Especially poor Vexie."</p>
 <p>"You seem awfully happy, Miss Harem Head," Serika smiled, though she already knew the answer.</p>
-<p>"Tonight my father knelt because I told him to." Lucille grinned down at the courtyard, warm all the way through. "The wine helps too~"</p>
+<p>"Tonight my father knelt because I told him to." Lucille grinned down at the courtyard, warm all the way through. "The wine helps too"</p>
 <p>"To the misery of every bastard who ever chased us." Serika reclaimed the bottle and raised it at Lucille before drinking.</p>
 <p>"Does Quinlan count?" Kitsara asked. "He’s been chasing our booty for a long time..."</p>
 <p>"..." Silence and wry expressions welcomed her words.</p>
@@ -58,7 +58,7 @@ chapter = 1896
 <p>"And?" Lucille prompted, grinning.</p>
 <p>"And tonight I watched a young miss I adore so much hand him an entire kingdom." Serika shook her head slowly. "I taught that man his first proper stance. Somewhere along the way, the student got greedy."</p>
 <p>"You conquer by punching. He conquers by headpats." Kitsara nodded sagely into Lucille’s breasts. "Frankly, I prefer his method. It transfers to the bedroom a lot better."</p>
-<p>"Ask Ayame which she prefers~" Aurora mused.</p>
+<p>"Ask Ayame which she prefers" Aurora mused.</p>
 <p>"...Let’s not go there," Kitsara shook her head. "You call me slutty, but Miss Second in Command? Now that’s a proper depraved woman I say."</p>
 <p>"Hey now..." Lucille spoke up, gently, motherly. "Ayame might enjoy a bit of choking and other questionable acts, but even she doesn’t like being punched."</p>
 <p>"Yeah, aside from getting her butt slapped like there’s no tomorrow," Serika snorted, finding that girl’s interests quite amusing to say the least.</p>

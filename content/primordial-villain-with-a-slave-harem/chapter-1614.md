@@ -15,7 +15,7 @@ chapter = 1614
 <p>'That naive little hypocrite...'</p>
 <p>When this matter was concluded, the Goddess and he were going to have a very long conversation about the importance of accuracy. Luminara was probably going to join him in berating the Goddess, he thought.</p>
 <p>A purr unspooled in his soul.</p>
-<p>&lt;So virginal in her sensibilities~ Perhaps you ought to take her, my adorable Ruin. Show her what womanhood actually contains. I do believe she is overdue for a proper education, because this cannot stand.&gt;</p>
+<p>&lt;So virginal in her sensibilities Perhaps you ought to take her, my adorable Ruin. Show her what womanhood actually contains. I do believe she is overdue for a proper education, because this cannot stand.&gt;</p>
 <p>Nyxara and Luminara at best had a hostile relationship, their mindsets completely incompatible with one another, and even she found this unacceptable… That told Quinlan all he needed to know.</p>
 <p>He ignored her and looked up at the man on the throne.</p>
 <p>"You want me to drink it?"</p>

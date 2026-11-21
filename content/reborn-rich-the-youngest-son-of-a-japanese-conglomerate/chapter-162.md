@@ -16,22 +16,22 @@ chapter = 162
 <p>Before I knew it, the appointment time was approaching, and I received a call from Ha Ju-yoon.</p>
 <p>-Hello? Is this Yong-tae-gun?</p>
 <p>"Hello, Mother?"</p>
-<p>-Oh my, Mother~! If you call me that outside, people will misunderstand~.</p>
+<p>-Oh my, Mother! If you call me that outside, people will misunderstand.</p>
 <p>I guess so. If I call Ha Ju-yoon 'Mother,' it would reveal that I'm the boyfriend of Han Yu-gyeong, the daughter of a chaebol family, so it seemed like her mom didn't like it.</p>
 <p>-Just... um, what would be good? Okay, from now on, just call me 'Noona.'</p>
 <p>Huh? Mother-in-law, you want me to call you 'Noona'? Well, she looks so young that it wouldn't be out of place if I called her 'Noona'.... But since she's asking me to call her that, I can't say no, so I have to call her that, I guess.</p>
 <p>"Okay, Noona."</p>
-<p>-Kyaa~! He called me Noona, Noona!</p>
+<p>-Kyaa! He called me Noona, Noona!</p>
 <p>Aren't you getting too excited after telling me to call you 'Noona'?</p>
 <p>"Um.... When should I go out?"</p>
 <p>She kept making a fuss, saying, "Oh my, oh my, what should I do?" so I couldn't stand it anymore and asked. I thought I would be late if this continued.</p>
 <p>-Ah, right! Come down to the parking lot now.</p>
 <p>"Okay. I'll go down right away, Noona."</p>
-<p>-Kyaa~♥</p>
+<p>-Kyaa♥</p>
 <p>After saying "Kyaa," the call ended, so I quickly got ready and went outside. I had already showered and prepared earlier, so there was nothing new to prepare. I just needed to grab my shoes, phone, and wallet and go out.</p>
 <p>When I went down to the parking lot in front of the apartment, there was a large black van that looked like something an entertainer would ride in.</p>
 <p>As I went down and stood in front of it, the van door opened, and I heard Ha Ju-yoon's voice. Ha Ju-yoon, who was sitting inside, was patting the seat next to her.</p>
-<p>"Yong-tae~. Come here, sit down."</p>
+<p>"Yong-tae. Come here, sit down."</p>
 <p>"Hello, Noona."</p>
 <p>As I sat next to Ha Ju-yoon, I smelled a sweet and alluring fragrance that seemed to seduce reason. What kind of perfume is she using? As expected of an entertainer, she seemed to be using a perfume that perfectly matched her image. It was a truly addictive scent.</p>
 <p>"Hello. As Noona said, you're very handsome."</p>
@@ -44,7 +44,7 @@ chapter = 162
 <p>"I think I'm about 187? 8? centimeters."</p>
 <p>"Oh, really? That's very tall?"</p>
 <p>Ha Ju-yoon was also quite tall for a woman, about 171 cm. Han Yu-gyeong was shorter than her mother, in the late 160s.</p>
-<p>"Your body is amazing~. What kind of exercise did you do?"</p>
+<p>"Your body is amazing. What kind of exercise did you do?"</p>
 <p>"I did a little martial arts."</p>
 <p>"Oh my, really? Can you flex for me?"</p>
 <p>As Ha Ju-yoon said, I flexed my arm. Ha Ju-yoon started touching my arm, saying, "Oh my, oh my." My body, which had been trained through exercise and practice, was so firm that it could easily deflect Ha Ju-yoon's poking fingers.</p>
@@ -54,7 +54,7 @@ chapter = 162
 <p>"Ah, yes. Please take good care of me."</p>
 <p>The director asked for a handshake, so I awkwardly accepted it. I had searched for Jun, the idol from JBS who was caught doing drugs before going to bed yesterday, and he definitely had a different image from me. He was a slender, pretty boy style, and I was tall and bulky, so it was inevitable that it would be different from what the director had in mind.</p>
 <p>After that, I was dragged to the makeup room, got my makeup done, and changed my clothes. The clothes were a slightly old-fashioned school uniform, and according to the script, it seemed like I was playing a country student from the past. It was a music video, so there weren't many lines, and I just had to glance at Ha Ju-yoon, who was playing the teacher, or lower my head shyly, showing the image of a shy country high school student.</p>
-<p>"Okay~! Let's move to this side."</p>
+<p>"Okay! Let's move to this side."</p>
 <p>"Ha Ju-yoon-ssi's makeup is almost done!"</p>
 <p>"We'll be on standby in 3 minutes."</p>
 <p>The first set was a classroom, but Ha Ju-yoon hadn't arrived yet, as her makeup wasn't finished. I was called by the director and received coaching one by one. It wasn't anything difficult, and it was more like encouragement to be confident because editing has improved a lot these days.</p>
@@ -62,17 +62,17 @@ chapter = 162
 <p>Also, it was different in that I wasn't a nerdy engineering virgin, but a shy virgin high school student. Well, there wasn't a setting that he was a virgin, but for this forbidden love story between a teacher and a student to look beautiful, it would be better if both roles were pure. So, I added the setting that he was a virgin.</p>
 <p>"You came quickly?"</p>
 <p>"Yes, I didn't put on much makeup and just changed my clothes."</p>
-<p>"Yong-tae is so handsome that there's not much to put makeup on~."</p>
+<p>"Yong-tae is so handsome that there's not much to put makeup on."</p>
 <p>Ha Ju-yoon appeared and asked. As expected, she looked much more innocent and younger because she had makeup on and was wearing a cardigan. Of course, she was also pretty.</p>
 <p>"How do I look?"</p>
 <p>"You're pretty, Noona."</p>
-<p>"Oh my~! This guy...! He's good with words, huh?"</p>
+<p>"Oh my! This guy...! He's good with words, huh?"</p>
 <p>We chatted for a while and then started filming. The scene we were filming now was in a small country school, in a classroom with only about ten students, where a young female teacher was passionately teaching and writing something on the blackboard with chalk, and a male student who admired the female teacher was glancing at her.</p>
 <p>Tak! Tak! Tak!</p>
 <p>The sound of chalk hitting the blackboard and the rustling sound of students turning pages could be heard, and I glanced at Ha Ju-yoon. As expected, an actress is an actress, and the previous image had disappeared, and Ha Ju-yoon was expressing the image of an innocent teacher. Then, our eyes met, and Ha Ju-yoon smiled slightly, and I showed a shy expression and quickly lowered my head.</p>
 <p>"Okay, cut! Yong-tae-gun, was it? It's your first time, but you're doing very well. Keep doing it like this."</p>
 <p>"Yes, thank you."</p>
-<p>"Hahaha, I scouted him~!"</p>
+<p>"Hahaha, I scouted him!"</p>
 <p>It's awkward to be praised too much.... Actually, there wasn't anything particularly difficult about this scene. It's easy if you just think about stealing glances at Ha Ju-yoon's pretty face.</p>
 <p>"Now, the next scene is...."</p>
 <p>Since we were at the classroom set, it seemed like we were filming all the classroom scenes first. Ha Ju-yoon went to another set to film other individual scenes, and I filmed scenes of taking notes in a notebook, resting my chin on my hand and falling into thought, talking with extras playing friends, and erasing the writing on the blackboard that Ha Ju-yoon teacher had written.</p>
@@ -84,7 +84,7 @@ chapter = 162
 <p>"Um, Noona."</p>
 <p>"Huh? Yong-tae, you don't have to do it if you don't want to. I'll talk to them."</p>
 <p>"I'm okay. The martial arts I mentioned earlier are real, so I'm confident in action too."</p>
-<p>"Really? If Yong-tae is okay, then we have to do it. Let's start quickly, Director~!"</p>
+<p>"Really? If Yong-tae is okay, then we have to do it. Let's start quickly, Director!"</p>
 <p>Ha Ju-yoon shouted at the director to start filming quickly, as if she had never been angry. The director looked at Ha Ju-yoon with a dumbfounded expression at her sudden change of attitude, but Ha Ju-yoon was not someone that a mere music video director could say anything to. She debuted as a child actor and has a long career, and the Shinkang Group was behind her, so if he fought with her, he wouldn't get anything out of it.</p>
 <p>"Then we'll just do a rehearsal and go in right away."</p>
 <p>As it was an action scene, there was a rehearsal. I greeted the opposing actors and coordinated the movements. They were very jealous that I, an unknown, had suddenly become the male lead in a music video with Ha Ju-yoon as the female lead, but I felt wronged. I didn't want to do it, but my girlfriend's mom asked me to do it.</p>

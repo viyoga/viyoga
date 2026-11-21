@@ -5,8 +5,8 @@ weight = 101
 chapter = 101
 +++
 
-<p>,Mentor-nim, thank you~! I made money thanks to you."</p>
-<p>,Me too~!!"</p>
+<p>,Mentor-nim, thank you! I made money thanks to you."</p>
+<p>,Me too!!"</p>
 <p>Today, I met with a few members from the 74th class of the Human Resources Development Institute. Since many of them work at companies far away, only five members from the 74th class who work at subsidiaries near Tokyo gathered.</p>
 <p>During the mock stock investment we did during the new employee training period, the 74th class members invested anywhere from 200,000 yen to a million yen, so everyone had a happy expression.</p>
 <p>Even the one who invested the smallest amount, 200,000 yen, invested when it was in the early to mid $1 range, and I told them to pull out when it reached $1,000, so after taxes and everything, they probably made around 150 million won. The one who invested the most, 1 million yen, made five times that. So, they couldn't help but be happy.</p>
@@ -16,16 +16,16 @@ chapter = 101
 <p>Of course, even $300 was a huge profit compared to when they invested at around $1, but if someone around me hadn't sold when it was at $1,000 and then sold at $300 after the crash, the sense of loss would have been enormous.</p>
 <p>,It's my mom's birthday tomorrow, and I'm trying to buy her a gift. Can you give me some recommendations?"</p>
 <p>,I'll give you a recommendation."</p>
-<p>,Me too~!"</p>
+<p>,Me too!"</p>
 <p>I and the five kids from the 74th class wandered around Tokyo for a long time to buy a gift for Jinmija Yeosa.</p>
 <p>In the end, we bought a luxury bag. I was dragged around by the five of them, looking for a bag that didn't feel too young or too old, and I was as exhausted as if I had sex 10 times in a row. Still, I should thank the kids from the 74th class for helping me choose a gift. Of course, that thank you will be with my dick.</p>
 <p>Since it's my mom's birthday tomorrow anyway, and I won't be able to have sex, I should do it a lot today.</p>
-<p>,Mentor-nim~! My legs hurt from walking around so much."</p>
+<p>,Mentor-nim! My legs hurt from walking around so much."</p>
 <p>,I wish we could rest somewhere."</p>
 <p>,I'd rather relax comfortably in a room and order room service than go to a restaurant."</p>
 <p>The sexy ladies of the 74th class must have coordinated, because they started urging me to go somewhere where we could rest and order room service. I was planning to have dinner at a decent restaurant and then go to the hotel, but it didn't seem like a bad idea to go straight to the hotel.</p>
 <p>,I have a place reserved anyway. Let's go there."</p>
-<p>,Wow~! Great, Mentor-nim!"</p>
+<p>,Wow! Great, Mentor-nim!"</p>
 <p>They were already getting excited and rushing at me. But the five of them gathered now didn't realize something. Last time, there were more than ten of us, so I could endure it, but now there were only five. Could just five of them satisfy my endless sexual desire?</p>
 <p>###</p>
 <p>,Heeuueung...♥"</p>
@@ -35,7 +35,7 @@ chapter = 101
 <p>I showered alone and came out to tell the women who were naked, dripping white semen from their pussies, making cream pies. I left the hotel with a satisfied expression, watching the 74th class members who couldn't escape the afterglow of pleasure even after I had showered and gotten dressed. Then I drove out of the center of Tokyo and headed to Edogawa-gu, where I grew up.</p>
 <p>I was supposed to meet Kazuhiro and Kiyohira from lunchtime. We didn't set a meeting place. Our meeting place was always the old family restaurant in the neighborhood. Sitting there at the unlimited refill drink bar was our daily routine, so we always just said let's meet and met at the family restaurant without setting a place.</p>
 <p>I parked in the parking lot in front of the family restaurant and went inside, and Kazuhiro and Kiyohira were already there.</p>
-<p>,Yo~! Tata!"</p>
+<p>,Yo! Tata!"</p>
 <p>Kiyohira raised his hand and called me as soon as I entered the store. His tanned skin, bleached hair, and rebellious features made him a perfect fit for the expression "White Sun." He had the same style even in middle school, so it was a style he had been consistently doing for almost 6 years, which made it somehow endearing to me.</p>
 <p>Tata was my nickname in high school, formed by repeating the "ta" from Hata Ryuta twice. Now that I think about it, it's Taira Ryuta now, but I'm still Tata.</p>
 <p>,It's been a while since I heard the nickname Tata."</p>

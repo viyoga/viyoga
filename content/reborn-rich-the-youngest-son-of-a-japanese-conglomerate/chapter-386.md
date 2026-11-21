@@ -51,7 +51,7 @@ chapter = 386
 <p>As befitting the name Sura Sang set, which refers to the king's meal, an enormous variety of Korean dishes came out. Both Han Yu-gyeong and I consumed a lot of calories yesterday, so we were hungry and ate as if we were inhaling the food.</p>
 <p>,Come to think of it... You used a lot of energy this morning, so your chest must have gotten a little smaller?"</p>
 <p>Han Yu-gyeong had the characteristic of storing star energy, which meant that she stored energy in her chest and her chest grew, but she must have used a lot of energy fighting the mutated stray dogs and test-firing the guns yesterday, so her chest must have shrunk.</p>
-<p>,Aish... You can't say anything right~!"</p>
+<p>,Aish... You can't say anything right!"</p>
 <p>,No, it feels like the old days and after eating... How about it?"</p>
 <p>Han Yu-gyeong's chest wasn't small even before she acquired the star energy storage characteristic, so even if she consumes energy, her chest won't become completely flat. Even if she uses it all, it will shrink to its original size.</p>
 <p>,That's what you meant...?"</p>

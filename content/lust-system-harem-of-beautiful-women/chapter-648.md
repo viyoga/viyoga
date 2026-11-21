@@ -5,7 +5,7 @@ weight = 648
 chapter = 648
 +++
 
-<p>&quot;Okay, baby, let&#x27;s find a time to have a proper date~&quot;</p>
+<p>&quot;Okay, baby, let&#x27;s find a time to have a proper date&quot;</p>
 
 <p>&quot;Ah…&quot;</p>
 
@@ -23,9 +23,9 @@ chapter = 648
 
 <p>&quot;Baby, let me know when you&#x27;re on vacation.&quot;</p>
 
-<p>&quot;And make sure to calculate your days, so there&#x27;s no &#x27;cleaning the silver spear with blood&#x27;~ Otherwise, if it&#x27;s &#x27;the back garden blooming,&#x27; you&#x27;ll be in for some suffering~&quot;</p>
+<p>&quot;And make sure to calculate your days, so there&#x27;s no &#x27;cleaning the silver spear with blood&#x27; Otherwise, if it&#x27;s &#x27;the back garden blooming,&#x27; you&#x27;ll be in for some suffering&quot;</p>
 
-<p>&quot;Mmm, you devil, always thinking about that kind of thing~&quot;</p>
+<p>&quot;Mmm, you devil, always thinking about that kind of thing&quot;</p>
 
 <p>Finally, they had that sticky, lovey-dovey quality of a dirty pair. Luis smiled with complete satisfaction.</p>
 
@@ -69,7 +69,7 @@ chapter = 648
 
 <p>That afternoon, Luis wasn&#x27;t idle. He contacted Snow, the saleswoman from the Benz 4S Store, who was also Nancy and the others&#x27; classmate.</p>
 
-<p>&quot;Oh~ The big boss still remembers me!!&quot;</p>
+<p>&quot;Oh The big boss still remembers me!!&quot;</p>
 
 <p>He drove the Benz C-Class to the entrance of the Store, and Snow, dressed in her professional attire, got into the car.</p>
 
@@ -89,11 +89,11 @@ chapter = 648
 
 <p>&quot;I thought you&#x27;d had your fun and dumped Nancy. Back then, I was honestly pretty jealous.&quot;</p>
 
-<p>Luis joked, &quot;What&#x27;s there to be jealous about? You just said I dumped her~&quot;</p>
+<p>Luis joked, &quot;What&#x27;s there to be jealous about? You just said I dumped her&quot;</p>
 
 <p>Snow laughed coquettishly, her face full of allure, and said, &quot;Who wouldn&#x27;t be jealous? Getting a fully paid-off Mercedes big G in such a short time. Now, in all our trashy little group chats, who isn&#x27;t jealous of Nancy&#x27;s life these days?&quot;</p>
 
-<p>&quot;Besides, you&#x27;re so handsome. Tons of women would gladly throw themselves at you for free, let alone someone willing to spend money~&quot;</p>
+<p>&quot;Besides, you&#x27;re so handsome. Tons of women would gladly throw themselves at you for free, let alone someone willing to spend money&quot;</p>
 
 <p>She made absolutely no effort to hide her materialism. And after the last car pickup, she had gotten Luis&#x27;s contact info. Actually, she hadn&#x27;t contacted him sparingly.</p>
 
@@ -101,17 +101,17 @@ chapter = 648
 
 <p>Now that they were face to face, she didn&#x27;t give up at all and continued her attempts. It just showed how much impact Nancy&#x27;s Mercedes big G had in their social circle.</p>
 
-<p>Luis continued driving and said jokingly, &quot;Is that so? But I&#x27;ve never had anyone throw themselves at me~&quot;</p>
+<p>Luis continued driving and said jokingly, &quot;Is that so? But I&#x27;ve never had anyone throw themselves at me&quot;</p>
 
 <p>&quot;Then what if I throw myself at you? Would you want me?&quot;</p>
 
 <p>Snow was practically seducing him outright, her eyes full of expectation.</p>
 
-<p>Luis smiled and said, &quot;Stop messing around. I&#x27;m a total womanizer. Don&#x27;t talk big now and regret it immediately~&quot;</p>
+<p>Luis smiled and said, &quot;Stop messing around. I&#x27;m a total womanizer. Don&#x27;t talk big now and regret it immediately&quot;</p>
 
-<p>&quot;Tch~ How many guys these days are actually decent? Who still believes in love anyway?&quot;</p>
+<p>&quot;Tch How many guys these days are actually decent? Who still believes in love anyway?&quot;</p>
 
-<p>Snow chuckled. &quot;Compared to those smooth-talkers who are all talk, you&#x27;re plenty good enough. So, really, won&#x27;t you give me a chance~&quot;</p>
+<p>Snow chuckled. &quot;Compared to those smooth-talkers who are all talk, you&#x27;re plenty good enough. So, really, won&#x27;t you give me a chance&quot;</p>
 
 <p>Once a gold digger&#x27;s &#x27;green tea&#x27; tactics fail, she immediately shows her true colors. Honestly, her bluntness caught Luis off guard, leaving him unsure how to respond.</p>
 

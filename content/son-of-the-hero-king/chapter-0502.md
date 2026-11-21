@@ -53,11 +53,11 @@ chapter = 502
 <p>Every time she did so, she would call out his name in a low voice while closing her eyes, focusing on the immense pleasure that was filling her brain.</p>
 <p>She moaned loudly and her breasts shook. Her cheeks flushed, and her beautiful face was dyed by obscene pleasure. Her entire body gave off oppressively-strong sex appeal.</p>
 <p>Sol watched those beautiful breasts move like he was being hypnotized and finally could not help himself but reach for them and grab them.</p>
-<p>“Nn~!”</p>
+<p>“Nn!”</p>
 <p>Lilin bent down at the sudden sensation, giving Sol even better access to her beautiful twin.</p>
 <p>Her moans grew even louder when he started to bite and nimble on them while hugging her. This made the movements of her upper body more restricted but this did not stop her hips from moving and in fact, made her feel even better.</p>
 <p>The feelings of her body close to him like this while he was inside her gave Lilin the impression that they were fusing and becoming truly one.</p>
-<p>“Sol~!”</p>
+<p>“Sol!”</p>
 <p>In the end, she was not the only one moving. No matter how he liked giving the initiative, it was impossible for Sol to truly stay passive all the way. His body betrayed him and his hips began to move on their own. When he thrust up from below, Lilin’s body gave a large jump</p>
 <p>With both their hips moving, their union rubbed together all the more intensely. Her vagina was already a flood of love juices, so his crotch was quickly soaked.</p>
 <p>“I can’t hold back any longer either…”</p>

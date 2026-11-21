@@ -16,7 +16,7 @@ chapter = 305
 <p>As such, Mage-Knights only cast spells as necessities. Over time, this grew into a culture that made Mage-Knights the most skilled at shortening spell cast-time because they do it the most.</p>
 <p>Still, it’s always for simple spells. Never for the large and complicated spells to avoid backfiring and burning away from the inside.</p>
 <p>In the past few weeks and in his preparation for today, Caius had given spell Condensation a try and that was what he made use of just now.</p>
-<p>He was going to try it with his upgraded version of ~Galleon’s Gate~ but the complication, mostly stemming from the Unique Element nature of the spell itself made that unwise so he rethought his plans.</p>
+<p>He was going to try it with his upgraded version of Galleon’s Gate but the complication, mostly stemming from the Unique Element nature of the spell itself made that unwise so he rethought his plans.</p>
 <p>Instead, he created an Earth Magic spell. Creating the spell with the plans of condensing it made the process a lot more straightforward. Caius picked out what he considered ’fluff’ to make the cast more compact. Of course, there was a lot of trial and error. But eventually, he succeeded.</p>
 <p>Now despite being in an awkward position because he had his hands gripping his sword handle, all Caius needed to do was release a few fingers and in two moves, a spell circle had spawned to conjure a thick Earthen wall to protect him.</p>
 <p>Or so he hoped.</p>
@@ -24,15 +24,15 @@ chapter = 305
 <p>But Caius refused to get too far.</p>
 <p>The Earthen wall was not the only condensed spell Caius had in his arsenal.</p>
 <p>He kept one hand on his sword and held his other hand close to his chest to cast three simple seals that spawned a light-blue spell circle that only appeared for a second before vanishing.</p>
-<p>~Davy Jones’ Hold!~</p>
+<p>Davy Jones’ Hold!</p>
 <p>Watery tentacles spawned out of Caius’s sides. There were six in total and they struck out before Caius had even gotten more than three feet away from the Centipede after the slam. The tentacles wrapped around the Centipede and used it as an anchor to pull Caius back to it.</p>
 <p>Because his father’s basic Elemental Affinities were Lightning, Fire, and Wind—whose spells he had been taught—it was somewhat easy for Caius to ignore his two other Basic Elemental affinities in which he also had High Affinity.</p>
-<p>He had only created a few Earth Magic spells, all for defense, and the creation of ~Davy Jones’ Hold</p>
-<p>~ was the first time he had acknowledged his Water affinity. Making use of its fluidity to his advantage here.</p>
+<p>He had only created a few Earth Magic spells, all for defense, and the creation of Davy Jones’ Hold</p>
+<p> was the first time he had acknowledged his Water affinity. Making use of its fluidity to his advantage here.</p>
 <p>Once again close to the Centipede, Caius called as many muscles as he could and parried a pincer strike.</p>
 <p>The beast shrieked and recoiled but the tentacles, which Caius kept up with his concentration, pulled it back. This time though, Caius was aiming his sword at a spot close to its mouth. A part that would have been its throat had it been a normal beast whose anatomy he knew for certain.</p>
-<p>Caius took one hand off his sword to create seals that spawned the spell circle for ~Erratic Fireball~ and he forced the energy of the spell into his sword.</p>
-<p>If there was one argument for keeping ~Erratic Fireball~ at the level it was before Caius advanced to the Fourth Circle, it was this. The sword could conduct the magic better than it would if the spell were breaking the barrier of the Fourth Circle into the Fifth Circle. Which is exactly what would happen if Caius had upgraded it at his current level of Magical Excellence.</p>
+<p>Caius took one hand off his sword to create seals that spawned the spell circle for Erratic Fireball and he forced the energy of the spell into his sword.</p>
+<p>If there was one argument for keeping Erratic Fireball at the level it was before Caius advanced to the Fourth Circle, it was this. The sword could conduct the magic better than it would if the spell were breaking the barrier of the Fourth Circle into the Fifth Circle. Which is exactly what would happen if Caius had upgraded it at his current level of Magical Excellence.</p>
 <p>In any case, the erratic flames caused by the deliberate instability of the spell, caused Caius’s sword to get past the Aura of protection around the Beast’s body so he could sink the blade into the Beast’s body, causing its shriek to ring even louder.</p>
 <p>There was a crackle of lightning overhead then as Delia arrived.</p>
 <p>Less than a minute had passed since the Beast had escaped her attack. All that happened after—the beast’s emergence and its battle with Caius—had been a matter of seconds. Seconds that Delia had spent letting her frustration stew, using it to fuel her anger.</p>

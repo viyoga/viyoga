@@ -75,13 +75,13 @@ chapter = 1104
 <p>"Nephew-nim, I missed you."</p>
 <p>And it was Taira Kanna, hugging me tightly and whispering. Seeing her lightly hug Nae, Arisu, and Yukiko, then tightly hug me, I knew she had formally hugged the others just to get to me.</p>
 <p>To those around us, it appeared to be a light greeting among family, but to me, as she hugged me so tightly that her Voluptuous Breasts were pressed against me, it felt like she was sending some kind of Sexual signal, which was far from normal.</p>
-<p>"For now, the greetings are done, and I'll go express my condolences~!"</p>
+<p>"For now, the greetings are done, and I'll go express my condolences!"</p>
 <p>I had thought Shinonome Mio was not normal earlier, but she felt a step below Taira Kanna. To calmly plan to hug me in such a crowded place, indeed.</p>
-<p>The Appearance of Shinonome Mio when she was Taira Saburo's chief of staff, as mentioned by the protagonist~~!</p>
+<p>The Appearance of Shinonome Mio when she was Taira Saburo's chief of staff, as mentioned by the protagonist!</p>
 <p>I kept the drawing style, just changed her Hairstyle and removed the Dark Circles, and her Image completely changed hehe.</p>
-<p>Requested by Gojoy-nim: Taira Camilla with her Hair down, wearing red underwear. 1. Standing pose 2. Lying on her Side pose~!</p>
+<p>Requested by Gojoy-nim: Taira Camilla with her Hair down, wearing red underwear. 1. Standing pose 2. Lying on her Side pose!</p>
 <p>1.</p>
 <p>2.</p>
-<p>Requested by TheDreaming-nim: Shinonome Mio 1. Stuck in a Wall 2. Groin covering~!</p>
+<p>Requested by TheDreaming-nim: Shinonome Mio 1. Stuck in a Wall 2. Groin covering!</p>
 <p>1.</p>
 <p>2.</p>

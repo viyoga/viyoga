@@ -13,14 +13,14 @@ chapter = 302
 <p>I put most of the seeds I saw into my shopping cart and bought them. I chose to pick up the delivery directly from the dark web Tokyo branch. Now, I just need to meet Sawayanagi Seari and show it to her.</p>
 <p>After making the purchase on the dark web app, I headed to the dark web Tokyo branch before meeting Sawayanagi Seari. I suddenly had this thought, so time is a bit tight. I should contact her in advance that I might be a little late.</p>
 <p>Taira Ryuta: Seari-ssi, the traffic is heavy, so I might be a little late.</p>
-<p>Sawayanagi Seari: Okay! Take your time~!</p>
+<p>Sawayanagi Seari: Okay! Take your time!</p>
 <p>I told her in advance, so it should be okay if I'm a little late. Fortunately, the dark web Tokyo branch is on the way from the airport to the Seryu Military Company building, so I don't have to go back.</p>
 <p>I parked in my usual parking spot and went into the office that the dark web was disguising, and went straight down. Huh? There's one more person? A tall, slender woman in a motorcycle suit was standing there.</p>
 <p>A beautiful woman with light brown hair and blue eyes, and a great figure. But that body shape... I feel like I've seen it somewhere. Where did I see her?</p>
 <p>"Ryuta-ssi! I knew you'd come quickly since you suddenly ordered the items for pickup."</p>
 <p>Eve greeted me with her usual cheerful attitude. I bowed slightly and looked at the woman in the motorcycle suit and opened my mouth.</p>
 <p>"But who is this?"</p>
-<p>"Ah! Can't you recognize her? It's Lara Sinclair-ssi~!"</p>
+<p>"Ah! Can't you recognize her? It's Lara Sinclair-ssi!"</p>
 <p>Ah. It was Lara Sinclair. I didn't recognize her because she was wearing a helmet when I met her before. She must have had her face redone with the technology Eve gave me. It definitely turned out natural and pretty.</p>
 <p>"Ah, it was Lara-ssi. I didn't recognize you because you were wearing a helmet before."</p>
 <p>"Positive. I recently changed my facial design, so you wouldn't have recognized me even if I wasn't wearing a helmet."</p>
@@ -46,7 +46,7 @@ chapter = 302
 <p>Looking at the data in the factories of the Energy-Link Industrial Company that we acquired, it seemed that they were trying to create weapons to supply to the U.S. military. Each piece of equipment they made had a flaw, so they didn't succeed in the end...</p>
 <p>"I didn't expect you to supply to the U.S. military, but the bigger the dream, the better. Then I'll discuss it with Han Yu-gyeong and have Lara Sinclair-ssi take charge of the technology research and development team."</p>
 <p>I have to discuss it with Han Yu-gyeong, but Han Yu-gyeong will probably allow it. TG Tech was a pretty good company with capital and current technology, but it was a completely unknown new company, so it couldn't recruit top-notch researchers, so it would be better to leave the development to Lara Sinclair.</p>
-<p>"I have an appointment, so I'll go now. I have an appointment...! I welcome Lara Sinclair-ssi to officially join our company, not just as an advisor~! Thank you for taking care of me, Eve!"</p>
+<p>"I have an appointment, so I'll go now. I have an appointment...! I welcome Lara Sinclair-ssi to officially join our company, not just as an advisor! Thank you for taking care of me, Eve!"</p>
 <p>Because I was already late for my appointment, I said goodbye to the two of them, took the black shopping bag full of seeds, and left the dark web Tokyo branch.</p>
 <p>###</p>
 <p>Shortly after Taira Ryuta hurriedly left the branch, Lara Sinclair looked at Eve and opened her mouth.</p>
@@ -86,7 +86,7 @@ chapter = 302
 <p>"I'm going with Seari-ssi, so don't follow me."</p>
 <p>"Yes, Nehet♥"</p>
 <p>"I'll be waiting, Honey♡"</p>
-<p>"Have a fun date~!"</p>
+<p>"Have a fun date!"</p>
 <p>Compared to Sawayanagi Mikiyo, who greeted me plainly, the two of them had quite cute reactions. I waved my hand once and grabbed Sawayanagi Seari's hand and left the Seryu Military Company building.</p>
 <p>-----</p>
 <p>Lara Sinclair</p>

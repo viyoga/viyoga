@@ -5,7 +5,7 @@ weight = 10
 chapter = 10
 +++
 
-<p>&quot;Ohh... then I won’t reject such an offer. Now, open your mouth and say ’ahh’~&quot; Arielle scooped a spoonful of food, then she slowly made it fly like an airplane... truly the work of a MILF feeding her son.</p>
+<p>&quot;Ohh... then I won’t reject such an offer. Now, open your mouth and say ’ahh’&quot; Arielle scooped a spoonful of food, then she slowly made it fly like an airplane... truly the work of a MILF feeding her son.</p>
 
 <p>’Ohoho! How could she make that so erotic!’ Owen roared internally. What Arielle did was way beyond his expectations.</p>
 
@@ -19,7 +19,7 @@ chapter = 10
 
 <p>The combination of her superb cooking and her way of feeding him was absolutely peerless, unmatched, and unrivaled!</p>
 
-<p>&quot;Oh my, oh my... you are really cute, my dear Owen~&quot; She was thoroughly satisfied that Owen liked her spoon-feeding.</p>
+<p>&quot;Oh my, oh my... you are really cute, my dear Owen&quot; She was thoroughly satisfied that Owen liked her spoon-feeding.</p>
 
 <p>Seeing her son with such an expression completely melted her heart, like a rock melting into a pool of magma deep within a volcano.</p>
 
@@ -35,7 +35,7 @@ chapter = 10
 
 <p>She even had half a mind to spread her legs, not caring that he was her son. Unfortunately, that would always remain a fleeting thought and nothing more.</p>
 
-<p>&quot;Hehe... now let me teach you about the ass, Mom~&quot; Owen whispered into her ear, sending a jolt through her entire body.</p>
+<p>&quot;Hehe... now let me teach you about the ass, Mom&quot; Owen whispered into her ear, sending a jolt through her entire body.</p>
 
 <p>Arielle hadn’t expected her attention to get completely swept away by his teasing... she even gulped hard, making Owen smile.</p>
 
@@ -49,7 +49,7 @@ chapter = 10
 
 <p>Still playing along wasn’t bad, and he wanted to keep doing things as they were.</p>
 
-<p>&quot;Oh my... then what is the difference between hips and an ass, Teacher Owen~?&quot;</p>
+<p>&quot;Oh my... then what is the difference between hips and an ass, Teacher Owen?&quot;</p>
 
 <p>She leaned her body closer and whispered back to him, her tits pressing right against his chest, which made him strike a triumphant posture internally.</p>
 
@@ -57,7 +57,7 @@ chapter = 10
 
 <p>The way she behaved felt like pure seduction at some point... was it even possible for a family member to do such things?!</p>
 
-<p>&quot;You are bold for a student who wants to learn bad things, student Arielle~&quot; Owen shamelessly spoke her name out loud. It was just acting, so it wasn’t a crime, right?...right?!</p>
+<p>&quot;You are bold for a student who wants to learn bad things, student Arielle&quot; Owen shamelessly spoke her name out loud. It was just acting, so it wasn’t a crime, right?...right?!</p>
 
 <p>&quot;Oh...&quot; Her mind stopped functioning... a total power shutdown after hearing what Owen had just said.</p>
 

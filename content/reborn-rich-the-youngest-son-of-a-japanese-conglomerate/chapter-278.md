@@ -36,7 +36,7 @@ chapter = 278
 <p>Mimata Chieri approached the dazed Alik and whispered something in her ear, and she soon came to her senses and applauded the winning team.</p>
 <p>,The futsal winning team can choose between a meeting or 100,000 yen as promised and tell me... The volleyball winning team can take this cosmetics set. I'll check the MVP votes now and announce it.</p>
 <p>I grabbed the microphone and told them to take their rewards, and then I read the votes that the winning team had written on the slips of paper one by one. Most were divided between Sawayanagi Azuma and Sawayanagi Seari, but Sawayanagi Seari became the MVP by one vote.</p>
-<p>,The volleyball MVP is Sawayanagi Seari~!</p>
+<p>,The volleyball MVP is Sawayanagi Seari!</p>
 <p>,Eh, eh... Me?</p>
 <p>Sawayanagi Seari approached me with a slightly embarrassed expression. She had a cute appearance like Alik, but their vibes were different.</p>
 <p>Alik felt like a cat silently rubbing its head against its owner's leg, while Sawayanagi Seari felt a bit more cheerful. A curious but slightly shy puppy feeling? Even though she was older than me....</p>
@@ -46,7 +46,7 @@ chapter = 278
 <p>,Okay, you've warmed up your bodies enough with exercise, so it's free time until dinner after you shower in the hot springs.</p>
 <p>After shouting "free time," I put down the microphone. Should I go to the hot springs too? It was a short sparring match, but I worked hard to get one over on Fujigasaki Rinka, so I sweated a little.</p>
 <p>I went to my room to get a change of clothes and then headed to the hot springs. I went into the entrance marked "Men's Bath," took off my clothes, put them in a basket, and then entered the hot springs. There were already a few people inside. When I checked their faces, I saw Sawayanagi Tobe, Lee Doo-young, and Kim Young-chan were inside.</p>
-<p>,Yongtae-hyung~! Oh, you're huge....</p>
+<p>,Yongtae-hyung! Oh, you're huge....</p>
 <p>,Are you a black guy with that size?</p>
 <p>,Hmm, Ryuta-gong.... Impressive.</p>
 <p>Everyone said something after looking at my dick, so I smiled slightly and took a shower before entering the hot springs.</p>

@@ -5,7 +5,7 @@ weight = 570
 chapter = 570
 +++
 
-"Hmm mhm hmMh~ mmh~"
+"Hmm mhm hmMh mmh"
 
 A beautiful blonde-haired, emerald green-eyed young girl with pointy ears, wearing white robes with golden edges, hummed a song while moving through a forest.
 

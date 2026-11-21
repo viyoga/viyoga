@@ -8,7 +8,7 @@ chapter = 700
 <p>It was past lunchtime when Lara Sinclair's group arrived in China. The airport they landed at was Datong Yungang International Airport in Datong City, Shanxi Province.</p>
 <p>Datong City wasn't a very large city by Chinese standards, so the facilities weren't great, but Lara Sinclair and her group didn't really care. They weren't there for fun anyway.</p>
 <p>Their goal was to investigate the research facility of the now-bankrupt military company Jeonlang and retrieve data, so there was no need to think about the airport facilities.</p>
-<p>"Ah~! Over here! Over here!"</p>
+<p>"Ah! Over here! Over here!"</p>
 <p>The Chinese guide, who spotted Lara Sinclair's group, waved his hand wildly. Seeing the guide speaking fluent Korean, Lara Sinclair's group approached him.</p>
 <p>"You're the ones who purchased the package from Geumseong Travel Agency, right?"</p>
 <p>Lara Sinclair nodded at the guide's words. In fact, there was no such place as Geumseong Travel Agency that the guide mentioned. The guide was also a pathfinder belonging to Amsang, so he was just speaking in a pre-arranged code.</p>
@@ -76,11 +76,11 @@ chapter = 700
 <p>"We've arrived."</p>
 <p>"Okay, thanks for your trouble."</p>
 <p>I got out of the taxi and naturally went to Ha Ju-yoon's house. I remembered the password because I had been there several times, so it was as natural as if it were my own house.</p>
-<p>"Nuna, Nae's aunt~! I'm here."</p>
-<p>I took off my shoes and announced that I had arrived. Then, from the bedroom, I heard Ha Ju-yoon's voice saying, "Yongtae-ni? Come in~!"</p>
+<p>"Nuna, Nae's aunt! I'm here."</p>
+<p>I took off my shoes and announced that I had arrived. Then, from the bedroom, I heard Ha Ju-yoon's voice saying, "Yongtae-ni? Come in!"</p>
 <p>Isn't Nae Fitzgerald here? I tilted my head slightly and passed through the entrance, heading towards the bedroom where I heard Ha Ju-yoon's voice. The door was closed.</p>
 <p>Clank!</p>
 <p>When I opened the door, Ha Ju-yoon was standing in front of the bed with a smile. And she was wearing the uniform of St. Francis Girls' High School.</p>
 <p>No.... How can a mother and daughter think the same thing? Han Yu-gyeong also told me to wait and showed me the uniform of St. Francis Girls' High School.</p>
 <p>_____</p>
-<p>Ha Ju-yoon St. Francis Girls' High School Uniform B-cut~!</p>
+<p>Ha Ju-yoon St. Francis Girls' High School Uniform B-cut!</p>

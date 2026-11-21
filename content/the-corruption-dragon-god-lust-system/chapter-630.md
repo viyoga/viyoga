@@ -9,7 +9,7 @@ chapter = 630
 
 <p>The impact left a red mark blooming across the perfect cheeks of that divine ass, the flesh rippling.</p>
 
-<p>“Nghnn~~ naughty, sinful husband, fufufu~~♡” Auranys giggled, her cheeks flushing, unable to hide the arousal already trickling down to her pussy.</p>
+<p>“Nghnn naughty, sinful husband, fufufu♡” Auranys giggled, her cheeks flushing, unable to hide the arousal already trickling down to her pussy.</p>
 
 <p>To put even a goddess and a draconic beauty of incomparable lineage in that position… Wasn’t he going a bit too far?</p>
 
@@ -31,15 +31,15 @@ chapter = 630
 
 <p>Clap</p>
 
-<p>“Nghnn~~”</p>
+<p>“Nghnn”</p>
 
 <p>Clap</p>
 
-<p>“Aghnn~~”</p>
+<p>“Aghnn”</p>
 
 <p>Clap</p>
 
-<p>“Oghnn~~ Q-Qingyi, your-naughty delicious cock~~♡”</p>
+<p>“Oghnn Q-Qingyi, your-naughty delicious cock♡”</p>
 
 <p>While Auranys moaned low and sensually, Khaedryss was completely overwhelmed, her lips parted and teeth clenched, saliva trailing from her chin as her nails dug into the sheets beneath her.</p>
 
@@ -47,11 +47,11 @@ chapter = 630
 
 <p>He always came much harder when he went more than a day without seeing them.</p>
 
-<p>“Nghnn~~ come on, give me your burning seed, fill me and get me pregnant, I’ll give you a powerful draconic offspring, husband!♡” Khaedryss moaned, her voice breaking at the edges, almost begging. With one final thrust, Qingyi obliged.</p>
+<p>“Nghnn come on, give me your burning seed, fill me and get me pregnant, I’ll give you a powerful draconic offspring, husband!♡” Khaedryss moaned, her voice breaking at the edges, almost begging. With one final thrust, Qingyi obliged.</p>
 
 <p>His hips sank deep into those large obsidian cheeks, the flesh compressing under the impact before bouncing back in a slow, heavy sway, his cock throbbing painfully deep inside that tight pussy, so big and so deep that it formed a long, visible bulge along the dragon woman’s slender belly.</p>
 
-<p>He held there for a single second before releasing, a thick, hot rush of cum flooding Khaedryss’s womb in a heavy, burning soak. One gush followed another, and then another, filling her until cum leaked endlessly from their connection, spilling past the thick lips of her vulva where they clung around his cock in a tight, slick seal. “Ah… so full, fufufu~~♡” Khaedryss let out a sensual, satisfied laugh. Her black hair was a mess, her eyes glassy and teary with pleasure, her body still trembling in soft, rolling waves.</p>
+<p>He held there for a single second before releasing, a thick, hot rush of cum flooding Khaedryss’s womb in a heavy, burning soak. One gush followed another, and then another, filling her until cum leaked endlessly from their connection, spilling past the thick lips of her vulva where they clung around his cock in a tight, slick seal. “Ah… so full, fufufu♡” Khaedryss let out a sensual, satisfied laugh. Her black hair was a mess, her eyes glassy and teary with pleasure, her body still trembling in soft, rolling waves.</p>
 
 <p>She was glad to have taken human form, to be able to feel every inch of that huge cock inside her.</p>
 

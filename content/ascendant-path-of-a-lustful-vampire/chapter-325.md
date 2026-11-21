@@ -43,13 +43,13 @@ chapter = 325
 <p>It clicked its fingers in Delia’s direction and a spell circle appeared, priming a beam of Demonic energy that cracked with hellish Lightning and sizzled with infernal heat.</p>
 <p>But just then, a purple spell circle appeared.</p>
 <p>Belron recognized it but it was definitely different this time. This time, it had a Divine backing.</p>
-<p>The Upgraded ~Galleon’s Gate~ appeared and its demonic maw opened to accept the beam which was unable to simply nullify and tear through it.</p>
+<p>The Upgraded Galleon’s Gate appeared and its demonic maw opened to accept the beam which was unable to simply nullify and tear through it.</p>
 <p>The Demonic beam reacted violently with the defensive spell and with a *BANG!*, they exploded as one, unleashing a cloud of smoke.</p>
 <p>Delia broke through the smoke a split second later. All of that had been to clear the way for her attack which she landed against Belron’s face, sending the Fiend slamming into the ground.</p>
 <p>*BANG!*</p>
 <p>The Fiend hit the ground, created a crater, and was almost instantly back in the air, its expression was one of fuming. Delia flew at it, swinging her Warhammer once again. When she missed her attack, a spell circle appeared and she unleashed the might of a storm against it.</p>
 <p>As Belron moved to either evade the attack or block/deflect it, Caius raised his hands, calling Mana and Divine energy, summoning a Spell circle.</p>
-<p>~Dark Missiles~</p>
+<p>Dark Missiles</p>
 <p>It was yet another Third Circle spell that Caius had given an upgrade to make it worth casting as a Fourth Circle Mage. But it no longer only sought to strike and sink into the bodies of its targets. Now, every conjured dart packed an extra punch.</p>
 <p>Belron discovered this when a barrage of Darts came flying at it right after it avoided Delia’s storm attack. It thrust out a spell circle but every single dart avoided the shielding attempt, moving with purpose to hit the Fiend. Belron parried the first two with its hands and they exploded with Forceful Magic that forced its arms to swing widely.</p>
 <p>"What?" Belron let out but then Delia landed yet another Warhammer hit, taking advantage of the Fiend’s distraction.</p>
@@ -58,8 +58,8 @@ chapter = 325
 <p>On the ground, Caius leaned back like a baseball pitcher readying for a throw. And then he followed through with a ’throwing’ motion.</p>
 <p>*Sprrittttzzzz— BANG!!!*</p>
 <p>From Caius’s outstretched ’throwing hand’, a spell circle was conjured, unleashing Lightning that was molded into a Spear and launched at the Cube wall.</p>
-<p>It was as though he had known where the Fiend would end up after the collection of forceful Darts from ~Dark Missiles~ because Belron struck the part of the wall Caius had aimed at a second before the ~Lightning Spear~ struck. ’Pinning’ the Fiend to the wall.</p>
-<p>But then the energy of the ~Lightning Spear~ spell went erratic and it broke apart, wrapping around Belron’s upper body. Everywhere the Lightning touched, Belron felt like it was being pierced.</p>
+<p>It was as though he had known where the Fiend would end up after the collection of forceful Darts from Dark Missiles because Belron struck the part of the wall Caius had aimed at a second before the Lightning Spear struck. ’Pinning’ the Fiend to the wall.</p>
+<p>But then the energy of the Lightning Spear spell went erratic and it broke apart, wrapping around Belron’s upper body. Everywhere the Lightning touched, Belron felt like it was being pierced.</p>
 <p>Also, it discovered the darts that had hit it were capable of more than just forceful attacks. Their energy spread all over its insides, corroding its Demonic energy.</p>
 <p>Compounding the parasitic nature of Darkness and Divine energy’s ’righteous’ desire to get rid of Demonic energy, Belron could tell it would be down to half its reserves in seconds.</p>
 <p>In response to this threat, the Fiend tapped its feet against the air and from that point, red sizzling lines appeared, creating a pentagram that seemed to open a reservoir with which Belron was imbued with the required excess to purge itself of the Dark magic corroding it. As well as break apart the Lightning’s hold on its upper body.</p>

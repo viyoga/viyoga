@@ -35,6 +35,6 @@ chapter = 77
 <p>"The news is about to start. Let’s watch it. Maybe Kai will be featured!" Aria shouted excitedly once she felt their bathroom-shushed talking had come to a satisfactory end.</p>
 <p>"Sure."</p>
 <p>His room was well equipped. It was the awakened hospital, after all. Only the most luxurious private hospitals could compare to the treatment the government afforded its awakened people. Therefore, a big TV hung on the wall facing his bed, but there was a second one in front of the lush sofa as well. They quickly got seated and turned it on.</p>
-<p>The first was about a new S-tier awakened being born in China. Due to their large populace, they got the most out of the indiscriminate way the mana apocalypse functioned, namely the ~15% chance each human had to awaken.</p>
+<p>The first was about a new S-tier awakened being born in China. Due to their large populace, they got the most out of the indiscriminate way the mana apocalypse functioned, namely the 15% chance each human had to awaken.</p>
 <p>"For the second story of the day, the United States welcomes its third A-tier awakened of the year, but there was a truly fascinating story that went with it. An F-tier-" Just as the news reporter was about to say it, the screen flashed, and a new reporter’s recording was shown.</p>
 <p>"What the fuck?!" Luna cursed.</p>

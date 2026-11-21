@@ -37,7 +37,7 @@ Alea sighed. "Aunty is right…"
 
 Lith could feel her mood dip. To cheer her up, he turned to her side again and bit on her clit, they gave it a gentle tug.
 
-"Ahhh~"
+"Ahhh"
 
 Alea moaned and leaned forward, having her breasts fall on Lith's face. Gugghh… gugghh… glugghh…
 

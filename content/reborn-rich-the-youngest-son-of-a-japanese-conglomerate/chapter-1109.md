@@ -78,6 +78,6 @@ chapter = 1109
 <p>"Good. Proceed well. Even if I can't go to Japan, I need to show everyone that I can still grow, so I can't end it with just this Place. Bring up the plans that were put on hold again, Lucas."</p>
 <p>Taira Gensuke, who had been banned from returning to Japan by Taira Ichiro, began to move more boldly for his Survival and future power.</p>
 <p>He keenly felt that if he didn't want to fall behind Taira Ryuta, Taira Yuuichi, or his half-brother Taira Tabenobu, who mocked him, he had no choice but to work even harder in Brazil.</p>
-<p>Yukiko Remake for Chapter 62 requested by Gojoy-nim~!</p>
+<p>Yukiko Remake for Chapter 62 requested by Gojoy-nim!</p>
 <p>1.</p>
 <p>2.</p>

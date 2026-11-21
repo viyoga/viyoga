@@ -39,7 +39,7 @@ chapter = 353
 
 <p>He caught her wrists and pulled them down. “Don’t wipe it, Grandma,” he murmured, his voice low and commanding. “Let it stay there.”</p>
 
-<p>“Mmh~ ,” she gasped, a shaky moan slipping out as his words sank in. The cum clung to her skin, warm and wet, like a mark she couldn’t erase. Her face burned hotter, his scent overwhelming her senses, her thighs clenching tight.</p>
+<p>“Mmh ,” she gasped, a shaky moan slipping out as his words sank in. The cum clung to her skin, warm and wet, like a mark she couldn’t erase. Her face burned hotter, his scent overwhelming her senses, her thighs clenching tight.</p>
 
 <p>She didn’t fight his grip, didn’t pull away—just stared.</p>
 

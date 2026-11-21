@@ -10,7 +10,7 @@ chapter = 1009
 <p>She said that mabeopsa criminals with evil Tendencies, like the Black Sage, were under surveillance or wanted in many Nations, so AmSang was essential for them to buy necessary items, and she had the conviction that they wouldn't do anything to make an enemy of AmSang.</p>
 <p>Even the famous Famine, they say, tries not to make an enemy of AmSang.</p>
 <p>For that Reason, Eve was expecting a struggle to break out after the auction, but she showed the Attitude that the battle happening after the auction was none of AmSang's business. She said that the Moment the item was sold, it became the buyer's Responsibility.</p>
-<p>-EVE: Thank you for worrying~! Just in case, I should pay more attention to security for the auction. And since there's such a risk, I should charge a higher commission to the exhibitor who put up the item.</p>
+<p>-EVE: Thank you for worrying! Just in case, I should pay more attention to security for the auction. And since there's such a risk, I should charge a higher commission to the exhibitor who put up the item.</p>
 <p>I don't know how expensively it will sell, but the more expensively it sells, the more Eve will profit. Because she receives a commission by percentage, not a fixed Amount, you see.</p>
 <p>-Ryuta: By the way, who is the Person who exhibited that Shard of Omniscience?</p>
 <p>At Eve's Words that she would charge a higher commission to the exhibitor, I asked, curious about who had put the Shard of Omniscience up for auction. In fact, the Person who put the Shard of Omniscience up for auction could be said to be the one who caused all of this Work.</p>
@@ -24,7 +24,7 @@ chapter = 1009
 <p>Anyway, I didn't have the thought of taking everyone to the auction. My plan was to have only a few people, including myself, who could observe The Situation of the auction inside the auction house, and the rest would be outside, prepared for when a situation arose.</p>
 <p>Well, for the details, I'll have to hold a Meeting with everyone once again.</p>
 <p>-Ryuta: We don't need many Seats. Anyway, as Eve said, if the entire Party/Group is inside the auction house at the Moment something happens after the auction, it would be inconvenient to move. It's better to have them watching The Situation from the Surroundings, so about 3 or 4 Seats should be enough.</p>
-<p>-EVE: Understood. I'll tell you first of all once the Position is decided so you can plan in advance~!</p>
+<p>-EVE: Understood. I'll tell you first of all once the Position is decided so you can plan in advance!</p>
 <p>Still, as a Business partner, she's paying a little attention. She even said she'd tell me the auction house Position first. After finishing the chat with Eve, I informed Naruse Shiyo, who was waiting next to me, of the Information I had heard from Eve.</p>
 <p>"Eve thinks a fight will happen after the auction, huh."</p>
 <p>"Yeah. Hearing this auction Story, it's Fortunate that we caught the Black Sage's Geomi and the VR Diver first."</p>
@@ -65,16 +65,16 @@ chapter = 1009
 <p>It was an attack aimed directly at Taira Ryuta.</p>
 <p>"I should inform Jo Seodang about this first."</p>
 <p>If Athena Mannerheim's prediction was correct, this Matter was something that could never be solved alone.</p>
-<p>MidNightSKY-nim requested Ryuta and Liz on a Motorcycle date~!</p>
-<p>Ryuta~!</p>
-<p>Liz~!</p>
-<p>Gojoy-nim requested Yukiko wearing a funeral Kimono and doing a Greeting, and Yukiko lying disheveled~!</p>
+<p>MidNightSKY-nim requested Ryuta and Liz on a Motorcycle date!</p>
+<p>Ryuta!</p>
+<p>Liz!</p>
+<p>Gojoy-nim requested Yukiko wearing a funeral Kimono and doing a Greeting, and Yukiko lying disheveled!</p>
 <p>Greeting</p>
 <p>The Greeting doesn't work as well as I thought, haha.</p>
 <p>Lying down</p>
-<p>Chomisaemeonji-nim requested Liz in a Coat + sweater, and naked body Apron Liz~!</p>
-<p>Coat sweater~!</p>
-<p>Apron~!</p>
+<p>Chomisaemeonji-nim requested Liz in a Coat + sweater, and naked body Apron Liz!</p>
+<p>Coat sweater!</p>
+<p>Apron!</p>
 <p>TheDreaming-nim requested Alik Atelier Undressing of upper garment 1. Breast gathering 2. Zero Two</p>
 <p>1.</p>
 <p>It seems the Atelier hasn't done its Learning dd</p>

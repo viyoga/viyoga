@@ -12,7 +12,7 @@ chapter = 54
 <p>Nnyaah... hnnn...</p>
 <p>Halfway down she met a faint resistance, but she didn’t stop. She pushed through it and dropped the rest of the way in one hard motion. Her soft flesh jiggled as her plump ass slammed against his pelvis.</p>
 <p>A soft, sweet, cute moan escaped her while her wet walls clenched tightly around him.</p>
-<p>Mmmnya~... nyaah...</p>
+<p>Mmmnya... nyaah...</p>
 <p>With the tip of his cock pressed against the entrance of her womb, Felicia began to rock—slow, deliberate grinds that dragged her pussy back and forth along his buried length. She never lifted off him; she simply worked her hips in an obscene, rolling motion that made it feel like he was already fucking her.</p>
 <p>Nnh... nyaa... ahhn...</p>
 <p>Xavier’s hands settled on her slim waist and took control, pushing her ass harder and faster until the surge of pleasure snapped her out of her trance.</p>
@@ -27,7 +27,7 @@ chapter = 54
 <p>Purrrrrrrrrrr...</p>
 <p>Nnyaahhh...!</p>
 <p>Her eyes rolled back. Her wet tongue hung from her open lips. *Is this how Mom used to feel?* The thought flickered through her mind while small orgasms kept rolling through her every few seconds from the relentless pounding.</p>
-<p>Ahhnya... nyaa... hnnnya~...</p>
+<p>Ahhnya... nyaa... hnnnya...</p>
 <p>The arch of her back pushed her heavy tits forward, right into Xavier’s face. He closed his lips around one puffy nipple and sucked hard while his cock continued to slam into her tight stretched hole.</p>
 <p>The little orgasms stopped. Something much larger began to build—something she couldn’t predict. A second later an electric jolt tore through her body. The fur on her tail stood on end. Her mind went blank. She shuddered and twitched violently on top of him, then went soft and limp as her pussy squirted in hot, uncontrolled gushes all over his lower half.</p>
 <p>Nyaaahhh—! Nyaah... nyaaaahn—!!</p>
@@ -47,7 +47,7 @@ chapter = 54
 <p>Nyaah—!</p>
 <p>"Let me tell you one thing, even if I fuck another catgirl, that doesn’t mean she’s better than you. None of my women stand above the rest. I love them all equally—including you."</p>
 <p>"Well then I don’t have any problem no matter how many women you decide to add later, Nyan." She kissed him harder, sucking on his tongue. His cock was still fully hard inside her, the earlier load slowly leaking out around the base.</p>
-<p>Mmmnya~...</p>
+<p>Mmmnya...</p>
 <p>Xavier rolled over. Felicia sank into the soft mattress, her full, round tits swaying and bouncing sideways before coming back in place.</p>
 <p>"You ready for another round?"</p>
 <p>Xavier spent the entire night in Thornveil, fucking Felicia without rest, burying his cock deep in her dripping pussy over and over. When he woke the next morning to sunlight spilling through the window, he found her soft body wrapped around his in a gentle embrace, her face close to his, heavy breasts pressed against his chest, puffy nipples brushing against his muscles with every breath. The silky sheets beneath them were tangled and soaked with their mixed fluids—her slick pussy juice and his thick loads leaking from her tiny hole.</p>

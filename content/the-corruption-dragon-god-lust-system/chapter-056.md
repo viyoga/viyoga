@@ -75,7 +75,7 @@ chapter = 56
 
 <p>Yueli’s face filled with shock when she saw the powerful flaming Qi surrounding Hei Lang’s sword.</p>
 
-<p>“Ghn~~” A pained groan escaped her plump lips.</p>
+<p>“Ghn” A pained groan escaped her plump lips.</p>
 
 <p>She was able to raise her own sword in time, but was still no match for Hei Lang’s strength.</p>
 

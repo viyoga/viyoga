@@ -58,12 +58,12 @@ chapter = 67
 <p>"First, I have to ask for a Movement spell," Caius said then as he let out a groan while getting to his feet.</p>
 <p>Lucian looked surprised.</p>
 <p>"A movement spell?" he said, "Do you not have one already?"</p>
-<p>"Yeah, I do. ~Wispy Feet~," Caius said and his father’s eyes widened in realization.</p>
+<p>"Yeah, I do. Wispy Feet," Caius said and his father’s eyes widened in realization.</p>
 <p>"Oh, that’s right," he said, "I taught you that when—"</p>
 <p>"When I was nine, yes," Caius completed.</p>
 <p>Every spell he knew, besides Dark Magic spells, he had learnt from his father. Spells are usually passed down like that. Or they are bought. Or found. They can also be created but it usually takes an extreme situation for that to be needed. Either due to a lack of money to buy or just having an Affinity that is not common enough for you to learn from someone.</p>
 <p>Lucian laughed.</p>
-<p>"~Wispy Feet~! You have to have outgrown that by now," he said.</p>
+<p>"Wispy Feet! You have to have outgrown that by now," he said.</p>
 <p>"Only by one Circle," Caius said with a smile, "But I would like an upgrade."</p>
 <p>Lucian placed a hand on his son’s shoulder.</p>
 <p>"And you will get one son," he said, and then stepped back before he said energetically,</p>

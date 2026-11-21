@@ -35,4 +35,4 @@ chapter = 1110
 <p>Jason spoke in a low voice that sent a shiver down Agiel’s spine.</p>
 <p>"You don’t need to ask, Agiel."</p>
 <p>Agiel swallowed as she felt the desire in her body growing until it almost consumed her, and Agiel immediately leaned forward and captured Jason’s lips with her own!</p>
-<p>"Mmh~!"</p>
+<p>"Mmh!"</p>

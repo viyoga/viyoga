@@ -35,7 +35,7 @@ chapter = 19
 
 <p>&quot;That was before the task was generated...&quot;</p>
 
-<p>The System was all about gradual progression. How pure love~ Luis had just sarcastically thought this when the System immediately chimed in:</p>
+<p>The System was all about gradual progression. How pure love Luis had just sarcastically thought this when the System immediately chimed in:</p>
 
 <p>&quot;Task condition: You must ejaculate inside her while in the same room!!!&quot;</p>
 
@@ -107,13 +107,13 @@ chapter = 19
 
 <p>&quot;Huh??&quot;</p>
 
-<p>Luis was baffled, but he successfully helped her get leave after registering his details. Once they stepped out of the school gates, Leah stretched and cheered, &quot;Freedom~ I’ve been so bored these past few days!&quot;</p>
+<p>Luis was baffled, but he successfully helped her get leave after registering his details. Once they stepped out of the school gates, Leah stretched and cheered, &quot;Freedom I’ve been so bored these past few days!&quot;</p>
 
 <p>Just moments ago, she’d been acting obedient, but now she was back to her lively self. Luis asked in confusion, &quot;Leah, why did you list me as your contact?&quot;</p>
 
 <p>He glanced at his sister-in-law and noticed she didn’t have a favorability display above her head, which puzzled him. Even though Nancy didn’t have an active task, her favorability was visible. Why wasn’t it working here?</p>
 
-<p>Leah stuck out her tongue playfully and giggled. &quot;Mom’s too strict, Big Sister loves to scold me, and Second Sister nags all the time. So I figured, why not list you as my guardian? That way, I can sneak out whenever I want~&quot;</p>
+<p>Leah stuck out her tongue playfully and giggled. &quot;Mom’s too strict, Big Sister loves to scold me, and Second Sister nags all the time. So I figured, why not list you as my guardian? That way, I can sneak out whenever I want&quot;</p>
 
 <p>As she spoke, she skipped along, humming a tune. Even in her loose camouflage uniform, her chest bounced enticingly.</p>
 

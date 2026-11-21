@@ -74,15 +74,15 @@ chapter = 891
 <p>Konoe Akina possessed a Maan that could even temporarily stop an Incarnation of an Outer God, and having even obtained equipment called a 'Gaze Amplifier' from Taira Ryuta, she could stop Hojo Otoji without difficulty.</p>
 <p>"First, I will make my Report, and then formally express my gratitude."</p>
 <p>Kinui Tachio picked up the Phone Call and called the general Situation room overseeing this battle.</p>
-<p>Requested by DoubleBarrelShotgun-nim: Korean School Uniform Yukiko~! Since there were no specific instructions, I made it in her usual version, not Succubus Mode hehe.</p>
+<p>Requested by DoubleBarrelShotgun-nim: Korean School Uniform Yukiko! Since there were no specific instructions, I made it in her usual version, not Succubus Mode hehe.</p>
 <p>On the rooftop hehe.</p>
 <p>At the school gate hehe.</p>
 <p>On the playground hehe.</p>
 <p>Actually, Korean School Uniforms aren't something that's been Learned or has a LORA, so I tried making them directly with prompts, and it was quite fun hehehe.</p>
-<p>Requested by Gojoy-nim: Taira Kokoro's casual attire and underwear attire~!</p>
-<p>Kkiyot~!</p>
-<p>Underwear~!</p>
-<p>Requested by TheDreaming-nim: Jung Darim in a greenhouse 1. Wrapped in tentacles, covering her groin~! 2. Wrapped in tentacles, whimpering~!</p>
+<p>Requested by Gojoy-nim: Taira Kokoro's casual attire and underwear attire!</p>
+<p>Kkiyot!</p>
+<p>Underwear!</p>
+<p>Requested by TheDreaming-nim: Jung Darim in a greenhouse 1. Wrapped in tentacles, covering her groin! 2. Wrapped in tentacles, whimpering!</p>
 <p>1.</p>
 <p>2.</p>
 <p>The writer's Situation...!</p>

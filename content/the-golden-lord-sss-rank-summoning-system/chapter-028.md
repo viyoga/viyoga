@@ -20,7 +20,7 @@ chapter = 28
 <p>"At least, I don’t always like a caring man." She relaxed, grabbing the edges of Ethan’s pants.</p>
 <p>Naturally, every woman needed affection from time to time.</p>
 <p>She was about to pull his pants down when Ethan moved.</p>
-<p>"What are you doin- ah~♡!" Evelyn barely had time to finish her sentence, a sweet, high-pitched squeal escaping her lips.</p>
+<p>"What are you doin- ah♡!" Evelyn barely had time to finish her sentence, a sweet, high-pitched squeal escaping her lips.</p>
 <p>When she realized it, she was on all fours.</p>
 <p>Face down, back arched, knees bent, and her ass raised majestically.</p>
 <p>"You look good in that position..." Ethan smiled, watching Evelyn’s form.</p>
@@ -30,15 +30,15 @@ chapter = 28
 <p>Fortunately, Alice was taking care of some minor things in her own home, and at that very moment, the lord’s entire mansion was empty.</p>
 <p>Ethan’s belt fell to the floor, and with it, his pants.</p>
 <p>His cock, finally free, already hard , proudly reaching eight inches, sprang out of his garments, aligning itself with the valley between Evelyn’s buttocks.</p>
-<p>"Uh~~" The beauty gasped as she felt the large, heavy member land on her ass with a wet smack.</p>
+<p>"Uh" The beauty gasped as she felt the large, heavy member land on her ass with a wet smack.</p>
 <p>Slowly, it sank between her perfect, soft buttocks, swallowed in a moist, tight, warm embrace.</p>
-<p>"Are you going to fuck me already, or are you just going to stand there admiring me? You... you perverted, damn Lord~~♡..." Evelyn moaned, her eyes closing in anticipation.</p>
+<p>"Are you going to fuck me already, or are you just going to stand there admiring me? You... you perverted, damn Lord♡..." Evelyn moaned, her eyes closing in anticipation.</p>
 <p>Her words contained curses, but in that position, feeling the love juices forming a puddle on the stone floor beneath her legs, she didn’t have much room to judge him.</p>
 <p>With a big smile, Ethan moved his hips.</p>
 <p>His cock slid across the fat, juicy cheeks of Evelyn’s ass, the tip passing her pink anus and finally aligning with her pussy.</p>
 <p>He pressed gently, feeling the fat, pale, soft lips of her vulva embrace his glans, revealing the pink, untouched interior of that tight, virgin pussy.</p>
 <p>He applied a little force, his glans completely swallowed by Evelyn, brushing against her purity.</p>
-<p>"Aghn~~ will this thing even fit?" Evelyn looked back, panting, feeling a twinge of pain as the huge member pushed its way into her pussy.</p>
+<p>"Aghn will this thing even fit?" Evelyn looked back, panting, feeling a twinge of pain as the huge member pushed its way into her pussy.</p>
 <p>Her heart was racing and her mouth was salivating nonstop.</p>
 <p>There was a little fear in losing her virginity, but above the fear, there was a terrible anticipation.</p>
 <p>Ethan didn’t respond, taking a moment to enjoy that tight embrace before finally moving his hips forward.</p>

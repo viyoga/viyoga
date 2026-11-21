@@ -37,7 +37,7 @@ chapter = 446
 <p>Of course, the temporary Chairman Ishidera Kosuke, who trusted Kurayamada Kirie implicitly, immediately approved my vacation as soon as I requested it.</p>
 <p>Unlike Daigo Terue, who I can talk to directly, it's a bit easier to go through Kurayamada Kirie with the temporary Chairman. In exchange for granting my request, Kurayamada Kirie asked me for another favor, and although that promise was a bit burdensome, what could it be? She'll probably ask me for another sex situation.</p>
 <p>Before I knew it, the Thursday dismissal time to leave for the United States arrived, and the students once again complained when I said I was taking a day off.</p>
-<p>,Uu~! We're in the middle of exams! Ryuta-jji is going to play!"</p>
+<p>,Uu! We're in the middle of exams! Ryuta-jji is going to play!"</p>
 <p>"That's right! The homeroom teacher should be responsible for us!"</p>
 <p>"Ryutta, idiot...!"</p>
 <p>I could tolerate the jeers of the other students, but even Alik calling me an idiot was quite shocking to me.</p>
@@ -52,11 +52,11 @@ chapter = 446
 <p>As someone who uses the airport more often than the average person, being able to reduce the round trip by 2 hours was quite significant. Unless I have business in Tokyo, I'll probably continue to use Shizuoka Airport in the future. I felt a bit foolish for continuing to use Tokyo International Airport without knowing this.</p>
 <p>After dismissal, I went straight home to pack my bags, drove to Shizuoka Airport, went through various procedures, and laid down in first class. After comfortably eating in-flight meals and sleeping repeatedly during the seven-hour flight, I arrived at Los Angeles International Airport before I knew it.</p>
 <p>After putting on a real-time translator that looked like earphones and going through immigration, Arisu was waiting. Perhaps because it was America, there were many blonde Caucasians, but there was no blonde beauty as beautiful and shapely as Arisu at the airport, so I was able to find her quickly. Arisu was wearing black jeans, a white shirt-style jacket, and a black t-shirt, and she looked good in them, perhaps because she was a model.</p>
-<p>"Ryuta~!"</p>
+<p>"Ryuta!"</p>
 <p>"Arisu!"</p>
 <p>Arisu ran towards me with a bright smile, her arms open, and I hugged her tightly. Perhaps because it had been a while, Arisu's scent, which I had missed, filled my nose.</p>
 <p>"How have you been?"</p>
-<p>"Good~! You must be tired from the flight? Let's go to the car first."</p>
+<p>"Good! You must be tired from the flight? Let's go to the car first."</p>
 <p>Arisu linked her arm with mine and led me to her car parked at the airport. As we approached the car Arisu had parked, I felt something strange. Arisu, perhaps sensing something as Phantom Thief Francois, was looking around.</p>
 <p>"I feel like someone's watching us?"</p>
 <p>"Ryuta felt it too?"</p>

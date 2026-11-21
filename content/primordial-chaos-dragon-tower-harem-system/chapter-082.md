@@ -15,7 +15,7 @@ chapter = 82
 <p>[This question cannot be answered as there are many towers to choose from. But since the master asked, I can say that if you meet the requirements, you will be able to unlock hundreds of towers. After all, you are the Master of the Towers.]</p>
 <p>"That makes me happy to hear. It would be great, though, if I could bestow towers on my women and help them grow," Kent sighed.</p>
 <p>"Alright, let’s dig in." Kent wasn’t about to focus on things he couldn’t access at the moment. Once he becomes a Tower Master by reaching the level of Root Grandmaster, he will be able to focus on that.</p>
-<p>~[{Status Page}]~</p>
+<p>[{Status Page}]</p>
 <p>Name: Kent</p>
 <p>Age: 18</p>
 <p>Bloodline: Primordial Chaos Dragon</p>

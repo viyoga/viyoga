@@ -48,7 +48,7 @@ chapter = 990
 <p>The NFL Season starts in early September every year, so he must be struggling to show his Skill at the beginning of the Season now.</p>
 <p>Since I hadn't met either of them much and wasn't very close to them, as Arisu said, it was indeed better if only Nae Fitzgerald and Arisu came to Japan.</p>
 <p>-Ryuta: Understood. I'm worried, so keep in Contact.</p>
-<p>-Arisu: Okay~! \(♡-♡)/ I'll be careful not to make you worry~!</p>
+<p>-Arisu: Okay! \(♡-♡)/ I'll be careful not to make you worry!</p>
 <p>Finishing my chat with Arisu, I looked out the window. Outside the window, a large Building was visible. It was Taira Food's Neo Tokyo branch office; unlike other companies, Taira Food, being a community-oriented company, couldn't move its Headquarters to Neo Tokyo, so it had built a branch Building there.</p>
 <p>Not long after the grand Meeting ended, Nagumo Sian was still staying at the branch Building. Since Taira Food distribution had recently signed Contracts with several companies, I was heading to Taira Food's branch office to discuss those matters with Nagumo Sian.</p>
 <p>Ultimately, if Taira Food distribution signed a Contract to distribute goods to a company, Taira Food would have to supply additional goods, so Taira Food and Taira Food distribution were very closely related companies. As they were originally one company, the two companies had a friendly Relationship. Because it was a Structure where if Taira Food distribution made Money, Taira Food also made Money. Conversely, if Taira Food separately contracted for Foodstuff supply, Taira Food distribution would send those goods, so it was a win-win for both.</p>
@@ -60,10 +60,10 @@ chapter = 990
 <p>Actually, Tsukiyo also had regenerative Abilities, and with the body of an Outer God mixed in, her physical Abilities were second to none. Once, I tried to check Tsukiyo's Abilities with the Ruins' Glasses, but only unknown Text appeared, and the Ruins' Glasses, which still had quite a few uses left, broke, so I couldn't properly confirm her Abilities. Of course, this was something I already knew.</p>
 <p>If you check a Transcendent over Level 20 with the Ruins' Glasses, a similar thing happens in games, so I thought it might be a Bug? But looking at Tsukiyo's Situation, it wasn't a Bug, but rather the Ruins' Glasses themselves seemed to have a Limit in checking the Abilities of people below a Transcendent.</p>
 <p>"How may I help you?"</p>
-<p>"It's the visit of the Taira Food distribution Boss-nim~!"</p>
+<p>"It's the visit of the Taira Food distribution Boss-nim!"</p>
 <p>While talking with Tsukiyo, we had already arrived at the main gate of Taira Food, and the Security Guard asked the purpose of our visit. Tsukiyo cheerfully announced my visit, and the Security Guard, who had been informed in advance, quickly removed the main gate's barricade and allowed our vehicle to pass.</p>
-<p>Tsukiyo's casual Clothes and underwear, requested by Gojoy-nim~!</p>
-<p>Casual Clothes~!</p>
+<p>Tsukiyo's casual Clothes and underwear, requested by Gojoy-nim!</p>
+<p>Casual Clothes!</p>
 <p>Recently, she's been wearing a driver's hat and a Suit ㅎㅎ</p>
 <p>When not working, she wanders around in Clothes she likes ㅎㅎ</p>
-<p>Underwear~!</p>
+<p>Underwear!</p>

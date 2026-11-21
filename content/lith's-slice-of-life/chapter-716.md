@@ -109,7 +109,7 @@ While pounding them, Lith asked Qingyue to come closer. 
 
 As she did, he put his hand inside her panties and touched her folds. 
 
-"Mhm~…" Qingyue's legs shivered and she let out soft moan which wasn't heard due to Lilith and Lucy's louder ones.
+"Mhm…" Qingyue's legs shivered and she let out soft moan which wasn't heard due to Lilith and Lucy's louder ones.
 
 Her juices dripped out of her pussy after a few touches and soaked Lith's fingers.
 
@@ -139,7 +139,7 @@ While Lith was at it, Lucy and Lilith's pussies were starting to tighten up, ind
 
 Lith stopped kissing Qingyue and focused fully on his two wives.
 
-"Ahh~ Ahh~ deeper!~" Lucy said in between her moans while Lilith just moaned without any requests.
+"Ahh Ahh deeper!" Lucy said in between her moans while Lilith just moaned without any requests.
 
 PAH!
 

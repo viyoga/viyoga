@@ -22,11 +22,11 @@ chapter = 1669
 <p>She spun in a full circle trying to get a better look at it, and all five tails fanned out behind her like a peacock having an identity crisis, the newest one still catching the light with the soft sheen of fur that had never seen a single hour of sun.</p>
 <p>"When did that happen?!"</p>
 <p>A warm giggle sounded from Quinlan's side, and Lucille leaned against her axe with a grin that had clearly been incubating a theory for some time.</p>
-<p>"I had a theory about this, actually~" The Bloodmonger's green eyes sparkled. "Your second tail grew in right after you and Quin consummated in a very fetishistic way, if I remember correctly..."</p>
+<p>"I had a theory about this, actually" The Bloodmonger's green eyes sparkled. "Your second tail grew in right after you and Quin consummated in a very fetishistic way, if I remember correctly..."</p>
 <p>Kitsara's ears twitched. "No..."</p>
 <p>"Khm! You got your brains blown out in the skies, your fluids dropping on your own citizens. Khm!" Aurora seemed to have a coughing fit.</p>
 <p>"Noooo..." Kitsara shook her head, trying to deny a well-known fact with all her might. "Father might hear... Shush!" she then hissed.</p>
-<p>"And you haven't grown a new one in quite a long time," Lucille continued, tapping her chin. "So I was starting to think the requirement escalates each time, and I was about to suggest some very... extreme measures to Quin on your behalf~"</p>
+<p>"And you haven't grown a new one in quite a long time," Lucille continued, tapping her chin. "So I was starting to think the requirement escalates each time, and I was about to suggest some very... extreme measures to Quin on your behalf"</p>
 <p>The foxkin's face went through three colors in rapid succession.</p>
 <p>"L-Lady Kitsara is NOT like that!" She drew herself up to full height, pushed her chest forward, and planted her fists on her hips in a pose that would have been regal if five tails weren't still bristling from the Blossom Incident. "I am a renowned lady of the dogkin people! A graceful princess! I carry myself with dignity and poise at all times!"</p>
 <p>Every woman in earshot looked at her with the exact same dry expression, save for Blossom who was busy pouting.</p>

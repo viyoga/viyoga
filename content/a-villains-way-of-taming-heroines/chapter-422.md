@@ -39,7 +39,7 @@ chapter = 422
 <p>"I was not!"</p>
 <p>Miss Wolf's face turned red as she screamed loudly, "I didn't... I wasn't that exaggerated! At least I struggled a bit! Not like her, so... so..."</p>
 <p>"Miss Helen's feelings for Mr. Ansel were frozen and sealed away for three years. Now that she's been reborn, that hatred has turned into guilt and passion, making the backlash so fierce is not surprising."</p>
-<p>Marlina analyzed rationally, blinking, "Be careful she doesn't take your place, Seraphina~"</p>
+<p>Marlina analyzed rationally, blinking, "Be careful she doesn't take your place, Seraphina"</p>
 <p>"Hmph! Absolutely impossible! How could Ansel possibly care for that dwarf, that kind of... that kind of..."</p>
 <p>Seraphina's voice grew fainter, her confidence waning.</p>
 <p>Because she remembered, Ansel never had specific preferences—he was always open to anyone good looking!</p>

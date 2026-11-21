@@ -5,7 +5,7 @@ weight = 836
 chapter = 836
 +++
 
-"Aahmm~… What… What is this…" A brown-haired lady moaned out loud.
+"Aahmm… What… What is this…" A brown-haired lady moaned out loud.
 
 The reactions of the rest were pretty much the same in regards to their newfound pleasure. They were really confused as to what this feeling was, but upon being hit by one wave after another of this holy sensation, they stopped questioning things and just accepted it wholeheartedly.
 

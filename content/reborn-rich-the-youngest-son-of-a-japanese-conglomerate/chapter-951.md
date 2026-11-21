@@ -70,4 +70,4 @@ chapter = 951
 <p>"If you wish for it so much...." "I will grant it."</p>
 <p>I nodded my Head at Asada Ei's Confession. Asada Ei smiled, took my Hand, and led me to the Bedroom.</p>
 <p>Then she lay down on the bed, looked at me with a slightly Taut Tension, expressionless Face, and opened her Mouth. "Ryuta-nim, please take the Virginity of this 30-something old maid."</p>
-<p>Asada Ei B-cuts~! Asada Ei ice skating, requested by TheDreaming-nim: 1. Skating with breasts covered 2. Rear view emphasized pose 1. The skating Scene didn't appear, so it came out when I increased the weight haha. 2.</p>
+<p>Asada Ei B-cuts! Asada Ei ice skating, requested by TheDreaming-nim: 1. Skating with breasts covered 2. Rear view emphasized pose 1. The skating Scene didn't appear, so it came out when I increased the weight haha. 2.</p>

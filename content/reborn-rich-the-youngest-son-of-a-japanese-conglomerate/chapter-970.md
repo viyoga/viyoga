@@ -26,7 +26,7 @@ chapter = 970
 <p>Taira Yukiko approached with her Arms open as if asking for a hug, and I hugged Taira Yukiko tightly. With the hug, as I deeply inhaled Yukiko's unique scent, I felt as if I had returned to my hometown. Of course, it wasn't the first time seeing her in a very long time. She had come to Miyashi a few times under the name Takinogawa, Sakagami Rena's Illusion Magic teacher, so it wasn't truly six months since I'd seen her, unlike Shinoe Misano or Suzuki Chisami whom I had just met. Still, it had been several months, so I was very glad and hugged Yukiko tightly.</p>
 <p>"Hmph...♥ But Ryuta."</p>
 <p>"Yes?"</p>
-<p>"Why does Ryuta reek of another female animal smell~?"</p>
+<p>"Why does Ryuta reek of another female animal smell?"</p>
 <p>Ah...! I clearly showered, but... could Shinoe Misano's or Suzuki Chisami's smell still be lingering...? Yukiko is a Succubus, so she might be sensing something humans cannot, and is convinced that I came from meeting other Women. Taira Yukiko, who was asking me a Question, was smiling, but the Blood Vessels on her forehead were bulging, indicating she was quite angry despite her Appearance. And the intensity of her hug around me grew stronger and stronger, to the point of being somewhat painful.</p>
 <p>"Well, Yukiko-ssi, I won't make Excuses, I'm Sorry...."</p>
 <p>There was no particular Excuse to make. I couldn't say that I wouldn't have Time to meet them if I met Taira Yukiko first, so I had no choice but to apologize without making Excuses.</p>
@@ -34,7 +34,7 @@ chapter = 970
 <p>Taira Yukiko's Words weren't wrong either. Taira Yukiko is the most important Woman at the Talent Development Institute, and seeking out Shinoe Misano or Suzuki Chisami first would certainly be enough to make Taira Yukiko feel disappointed.</p>
 <p>"I'm Sorry, Yukiko. Instead...."</p>
 <p>I took out a Gift Box from my pocket. I had just bought it because there was an Item suitable for Taira Yukiko while ordering for those going to the USA, but I didn't expect it to be used as a gift to appease Taira Yukiko.</p>
-<p>"Oh my...! Ryuta~♥ Is it a gift?"</p>
+<p>"Oh my...! Ryuta♥ Is it a gift?"</p>
 <p>Taira Yukiko, seeing the Gift Box I offered, accepted the box as if she had never been angry. In fact, as Taira Yukiko had just said, she was incredibly lenient about such matters, so she probably wasn't that angry. She was probably just being flirtatious, wanting me to pay more attention to her in the future.</p>
 <p>"It's so beautiful, Ryuta...!"</p>
 <p>Inside the box I gave her was an accessory about the Size of a Bracelet, adorned with various Gems, making it look quite splendid. Yet, it wasn't so overly flashy as to appear Vulgar; it was an accessory that conveyed a sense of appropriate splendor.</p>

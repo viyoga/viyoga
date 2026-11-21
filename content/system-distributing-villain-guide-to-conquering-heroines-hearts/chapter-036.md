@@ -66,5 +66,5 @@ chapter = 36
 <p>Once they were gone, Petra leaned back in her chair and stared at the ceiling.</p>
 <p>’If I can get my hands on those toys, maybe I can finally make my dream come true...’ She thought, pressing the rim of the glass against her lips as a smile that had nothing to do with weapons slowly spread across her face.</p>
 <p>She crossed her legs and took a long sip.</p>
-<p>’Mm... I can’t wait~!’</p>
+<p>’Mm... I can’t wait!’</p>
 <p>Share to your friends</p>

@@ -19,7 +19,7 @@ chapter = 3
 <p>She had been so focused on healing him as quickly as possible that she hadn’t even noticed the contact between their bodies, not until now.</p>
 <p>She took another step back, blushing even more.</p>
 <p>"Ah... Yes, thank you for saving me, Miss..." Ethan replied after a moment of hesitation, hiding the long, thick, throbbing bulge in his pants.</p>
-<p>"Mmhm... you can call me Alice~~"</p>
+<p>"Mmhm... you can call me Alice"</p>
 <p>"It’s a pleasure to meet you, Miss Alice." Ethan stood up and bowed elegantly, taking her hand and kissing it delicately.</p>
 <p>In response, Alice laughed softly, covering her mouth with the fingers of her newly kissed hand, the blush on her face becoming even more intense.</p>
 <p>’A commoner?’ Ethan considered, but quickly dismissed the idea.</p>
@@ -40,7 +40,7 @@ chapter = 3
 <p>"Careful!" Alice promptly caught him as he staggered, not caring when his face returned to the soft, warm embrace of her large twin peaks.</p>
 <p>In his fall, Ethan instinctively sought support.</p>
 <p>His hands found Alice’s slim waist before sliding a little lower than they should have, passing beyond her hips and sinking into a pair of fleshy, round, ample orbs.</p>
-<p>"Your nghnn~~ injuries are not yet fully healed, young... master... you must not move too abruptly..." Alice said, struggling to maintain her composure as she felt his hands grab the soft flesh of her bubbly ass.</p>
+<p>"Your nghnn injuries are not yet fully healed, young... master... you must not move too abruptly..." Alice said, struggling to maintain her composure as she felt his hands grab the soft flesh of her bubbly ass.</p>
 <p>"It’s okay... I’m fine," Ethan said, gritting his teeth as he pulled his face away from Alice’s breasts.</p>
 <p>"Uh... young master Ethan..." Alice called out, her face flushed red as she looked away.</p>
 <p>"Uh?"</p>

@@ -29,7 +29,7 @@ chapter = 780
 <p>"Uh...? What? Is it really a snowstorm?!"</p>
 <p>At my words, Seizawa Shii, opening her Eyes slightly, was surprised and got off the bed, looking Outside the window. As she came to look at the window, her breasts bounced, a quite pleasing Scene to behold so early in the Morning.</p>
 <p>"Ryuta-cchi is right, we can't go Outside today. Then I guess I'll go back to my room and sleep again."</p>
-<p>Seizawa Shii, having seen the weather Outside, yawned, put on her Clothes, and then, saying "Bye-bye, Ryuta-cchi~!", went Outside.</p>
+<p>Seizawa Shii, having seen the weather Outside, yawned, put on her Clothes, and then, saying "Bye-bye, Ryuta-cchi!", went Outside.</p>
 <p>"Should I try to sleep again...?"</p>
 <p>Seeing Seizawa Shii go back to her room to sleep, I, too, threw myself onto the bed. Perhaps because Seizawa Shii had been lying there just moments before, the bed was warm.</p>
 <p>Kwang kwang kwang!</p>
@@ -88,7 +88,7 @@ chapter = 780
 <p>I paused the Story for a moment and took a few special class Students who were confident in cooking into the restaurant's Kitchen. It was originally a place where customers shouldn't enter, but since there were no employees and we were hungry, we had to make something to eat with the ingredients Inside the restaurant. Opening the refrigerator, there were plenty of ingredients. There was enough meat, Fish, and Vegetables, as well as Bread, cereal, and such to be provided at the breakfast buffet. Even if the snowstorm lasted longer, if we ate sparingly, there was enough for a week.</p>
 <p>"Since it's Morning, let's make egg toast and have Milk and cereal for a simple Meal."</p>
 <p>"Ryuta, go back to your Seat and sit down. Alik will make it for you."</p>
-<p>"That's right, Teacher-nim, please sit down~!"</p>
+<p>"That's right, Teacher-nim, please sit down!"</p>
 <p>They insisted I wait Outside while they made breakfast for me, so I went Outside.</p>
 <p>"The Kids are preparing egg toast and cereal, so let's talk while we eat that."</p>
 <p>"Ah, we'll help too!"</p>
@@ -99,9 +99,9 @@ chapter = 780
 <p>I asked, looking around at the special class Students, and they all shook their Heads. They hadn't seen him. In fact, since the special class Students had played late in my room yesterday and then immediately went back to their rooms to sleep, it was natural that they hadn't seen the missing male student if he wasn't loitering in our Passage.</p>
 <p>"What's going on?"</p>
 <p>As we were talking, a Voice was heard from the restaurant Entrance. Ah, there was one more person I had forgotten. Takakusaki Athena, a Western Beauty with Silver hair, was entering the restaurant with a Curious Expression.</p>
-<p>Requested by Gojoy-nim! Kijimoto Jurie's Casual Clothes, Underwear, Belly Dancer, naked body~!</p>
-<p>Casual Clothes~!</p>
-<p>Underwear~!</p>
-<p>Belly Dancer~!</p>
-<p>Naked body~!</p>
-<p>Kkiyoot~!</p>
+<p>Requested by Gojoy-nim! Kijimoto Jurie's Casual Clothes, Underwear, Belly Dancer, naked body!</p>
+<p>Casual Clothes!</p>
+<p>Underwear!</p>
+<p>Belly Dancer!</p>
+<p>Naked body!</p>
+<p>Kkiyoot!</p>

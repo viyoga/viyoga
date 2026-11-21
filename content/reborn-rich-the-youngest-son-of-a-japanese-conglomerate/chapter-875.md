@@ -93,10 +93,10 @@ chapter = 875
 <p>At Shido Tsubaki's sincere Apology, Seiwa Rieko stood up from her Seat. And she approached Shido Tsubaki and patted her Shoulder. Since she was no longer human, she intended to let go of what she had experienced as a human.</p>
 <p>"I Forgive you."</p>
 <p>Shido Tsubaki, having received Forgiveness from Seiwa Rieko, shed the Tears she had held back until now.</p>
-<p>Requested by Gojoy-nim: Seiwa Rieko's breast-covering and belly dancer~!</p>
-<p>breast-covering~!</p>
-<p>Belly dancer~!</p>
+<p>Requested by Gojoy-nim: Seiwa Rieko's breast-covering and belly dancer!</p>
+<p>breast-covering!</p>
+<p>Belly dancer!</p>
 <p>Requested by TheDreaming-nim: Asada Ei with her Eyes closed in a water tank and Asada Ei with her Eyes open</p>
-<p>Ei with her Eyes closed~!</p>
+<p>Ei with her Eyes closed!</p>
 <p>Ei with her Eyes open</p>
 <p>'frightened Rhythm of Passion' is a prompt that doesn't work, hehe.</p>

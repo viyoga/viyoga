@@ -46,7 +46,7 @@ chapter = 261
 <p>Taira Shizuku, who was called grandmother, looked young, so it wasn't time to talk about her health yet, but I just said it out of courtesy. Grandmothers like this kind of thing.</p>
 <p>"I brought some wagashi that Ryuta likes, so eat it with tea."</p>
 <p>I don't really like wagashi... It's just that my grandmother fed me a lot. But I don't particularly dislike it, so I sat across from Taira Shizuku and ate wagashi with tea. Taira Shizuku really seemed to think I liked wagashi, so she brought out almost 2 kilograms of wagashi. If I eat all of this, I'll really get diabetes?</p>
-<p>"Oh~! I enjoyed the music video that Ryuta came out in."</p>
+<p>"Oh! I enjoyed the music video that Ryuta came out in."</p>
 <p>Ah...! Grandmother also saw it? My name didn't even come out and it was a music video that came out in Korea, so I thought she wouldn't know. That means Taira Danjo grandpa also knows, so I'll get an earful later.</p>
 <p>Taira Shizuku clapped her hands and ordered the servants to bring a large screen and held a music video viewing session with me. I felt it once before while watching it with the Seryutai people, but it was a very embarrassing experience.</p>
 <p>"Our grandson definitely looks better in person than on screen."</p>

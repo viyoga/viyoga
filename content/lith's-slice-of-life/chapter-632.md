@@ -101,7 +101,7 @@ Lucifer smiled widely. "Good. Good. I hope you don't break."
 
 "What—"
 
-"Bye~"
+"Bye"
 
 BOOM!
 

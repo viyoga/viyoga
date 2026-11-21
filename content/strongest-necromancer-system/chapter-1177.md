@@ -26,11 +26,11 @@ chapter = 1177
 <p>Jason slowly started to pick up the pace, and Stella’s entire body shook with each thrust. Stella was breathing heavily, and she could already feel another orgasm coming from deep inside her, but Stella did her best to push the orgasm down! What sort of servant would she be if she came three times before her master saw his next release? Stella refused to finish until she brought Jason to the end as well!</p>
 <p>Slap! Slap! Slap! Slap! Slap! Slap!</p>
 <p>The sound of skin slapping against skin echoed through the bedroom, and Stella’s moans were bouncing off the walls in a sensual rhythm that would tell anyone outside what was happening in there. Jason was pounding into Stella like an animal, and his tattooed body was tense as he gripped Stella’s waist tightly. After a while, Stella also began to move back to try and meet Jason’s thrusts, and Jason fell forward and covered Stella’s smaller body with his own. Jason’s hot breath mixed with Stella’s moans as Jason kept pounding into her, and Stella reached up and gripped Jason’s hair tightly as she begged him not to stop.</p>
-<p>"I’m close, master! I’m almost there! Please fill me up~!"</p>
+<p>"I’m close, master! I’m almost there! Please fill me up!"</p>
 <p>Jason was pounding so hard into Stella that the bed was shaking from the force, and Jason could feel Stella beginning to shake under him. It was obvious that she was trying hard not to reach her orgasm until he finished, and just the thought was able to drive Jason right to the edge!</p>
 <p>"Fuck."</p>
 <p>Jason cursed as he felt his own orgasm hit him hard, and Jason slammed into Stella one last time and came hard! Stella’s mouth opened in shock as she felt a warmth filling her stomach, and her eyes immediately rolled back in her head as her orgasm washed over her like a tsunami.</p>
-<p>"Uuuughhhh~!"</p>
+<p>"Uuuughhhh!"</p>
 <p>Stella’s legs shook, and she saw stars at the edge of her vision as she sprayed her wetness over the bed. Jason pressed his head into Stella’s hair and placed soft kisses on her head and neck as he waited for her to finish, and once she was done, Jason pulled out and lay down beside her on his back. Stella didn’t waste any time as she immediately moved towards Jason’s member and took it in her mouth. Stella sucked Jason off softly and cleaned his member before she swung her leg over his body and gently began to lower herself on him.</p>
 <p>Jason put his hands on Stella’s waist, and he could feel her body shaking under his touch. Goosebumps travelled all the way down Stella’s body, and Stella bit her bottom lip and let out a low moan as she continued to sit down gently.</p>
 <p>Slap!</p>

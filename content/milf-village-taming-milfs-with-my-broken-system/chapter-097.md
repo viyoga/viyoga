@@ -21,7 +21,7 @@ chapter = 97
 
 <p>Owen wanted to groan out loud, but he refrained himself... it tickled, but he needed to control himself. As the savior, he must not crumble to simple stimulation from his own mom.</p>
 
-<p>&quot;Hehe, stay silent, my dear Savior~? I think I need to show off my skills a bit more.&quot; Arielle stroked the shaft with all her might while leaning in to kiss the tip of the head.</p>
+<p>&quot;Hehe, stay silent, my dear Savior? I think I need to show off my skills a bit more.&quot; Arielle stroked the shaft with all her might while leaning in to kiss the tip of the head.</p>
 
 <p>’Argh! Shit, I want to shove my cock right into your pussy, Mom... this wall, I want to destroy it!’ Owen had the sudden urge to barge into the next room and fuck her brains out.</p>
 

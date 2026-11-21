@@ -25,7 +25,7 @@ chapter = 853
 <p>-Ryuta: To prepare for this Battle, I'm thinking of making Cyber Suits for the Friends in this Room. If you each have a desired Design or function, let's hear it.</p>
 <p>As soon as I posted the Text on Line, the Chat started to appear.</p>
 <p>-Seizawa Shii: I want a flashy Style, like the one I'm wearing today!</p>
-<p>-Saionji Diana: I'd like it to be compatible with my Cyber Implants~!</p>
+<p>-Saionji Diana: I'd like it to be compatible with my Cyber Implants!</p>
 <p>-Sakagami Rena: It would be great if there were many storage spaces!!</p>
 <p>-Alik: Alik likes pretty things.</p>
 <p>They were the special class Students, each stating their desired Design or functions. Since there were quite good Ideas among the conditions desired by the actual Users, I conveyed all the Demands to TG Tech.</p>
@@ -54,14 +54,14 @@ chapter = 853
 <p>"A Gift?"</p>
 <p>Konoe Akina seemed not to have heard the part about 'Battle-related' and was extremely happy at the mention of a Gift. Urabe Konoka was also very happy, so I guess I should give the Kids Gifts occasionally.</p>
 <p>I briefly reflected, wondering if the Kids were so happy because I didn't give Gifts often enough. I should give them more often in the future, and with that small self-reflection, I ended the counseling with Konoe Akina.</p>
-<p>Requested by Hwanbuljeoldae-bulga-nim: Rina and Home Ec Teacher's Tank Top Belly button + Dolphin Shorts + armpit image~!</p>
-<p>Starting with Lisa-ttang~!</p>
+<p>Requested by Hwanbuljeoldae-bulga-nim: Rina and Home Ec Teacher's Tank Top Belly button + Dolphin Shorts + armpit image!</p>
+<p>Starting with Lisa-ttang!</p>
 <p>Home Ec Teacher</p>
 <p>I chose ones with as consistent a Size as possible hehe.</p>
 <p>Requested by Hogamyudonggolbaengi-nim: Urabe Konoka's oriental-patterned Swimsuit images. Since four were requested, I arbitrarily chose two: a Management Swimsuit and a bikini hehe.</p>
-<p>Management Swimsuit~!</p>
-<p>Bikini~!</p>
-<p>Requested by TheDreaming-nim: Seizawa Shii captured, with an IF Story feel, and an illustration of Alik, the IF Story mid-Boss, trapped~!</p>
-<p>Starting with Seizawa Shii~!</p>
-<p>Mid-Boss Alik~!</p>
+<p>Management Swimsuit!</p>
+<p>Bikini!</p>
+<p>Requested by TheDreaming-nim: Seizawa Shii captured, with an IF Story feel, and an illustration of Alik, the IF Story mid-Boss, trapped!</p>
+<p>Starting with Seizawa Shii!</p>
+<p>Mid-Boss Alik!</p>
 <p>Alik became too Dark while being made hehe.</p>

@@ -5,7 +5,7 @@ weight = 847
 chapter = 847
 +++
 
-<p>"Oooooouuu~!"</p>
+<p>"Oooooouuu!"</p>
 <p>The girls all made teasing noises at Gina, and Gina’s blush grew larger as she quickly moved to help someone else with organising the rest of the picnic! Jason just chuckled at Gina’s shyness, and the older men around laughed at the interaction! This was the first time in a while that Jason would be able to say he felt like just any regular human, and even though Jason had already gotten used to the superhuman lifestyle, he couldn’t deny that he missed the feeling of just doing regular things with the family. The laughter of the children running around, the music playing in the yard, and the smell of grilled meat and good food spreading across the air made this moment absolutely perfect!</p>
 <p>"BIG BROTHER!!!"</p>
 <p>A loud voice echoed through the yard as Maya arrived from the shadows along with one of Jason’s subordinates, and Maya immediately blurred into motion and raced towards Jason! Jason turned around and caught Maya before she could slam into the grill!</p>
@@ -36,7 +36,7 @@ chapter = 847
 <p>"With how strong I’ve heard he is, it’s definitely possible."</p>
 <p>"Those arms can fold me in half anytime."</p>
 <p>"Hey, shut up, you horny animals! What do you think you’re talking about when there’s kids around!?"</p>
-<p>"Sigh~ I wish I had someone like that."</p>
+<p>"Sigh I wish I had someone like that."</p>
 <p>"Keep dreaming. Gina’s perfect, so it’s only natural that she has the perfect man as well! Hehehe!"</p>
 <p>The last person who spoke was Fio, and Fio folded her hands pompously and nodded like she had just unveiled one of the secrets of the universe! The other girls just rolled their eyes! All the girls already knew how much Fio admired Gina, so they ignored Fio’s regular hero-worship as they went back to admiring Jason!</p>
 <p>Jason and Gina moved towards one of the tables close to the house that was overlooking the yard, and Gina smiled as Jason handed her a beer and asked her if she was ready.</p>

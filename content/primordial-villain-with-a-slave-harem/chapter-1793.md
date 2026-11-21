@@ -71,7 +71,7 @@ chapter = 1793
 <p>Quinlan’s mouth curved, and he answered her in a language older than words.</p>
 <p>He kissed her.</p>
 <p>Nyxara melted into him instantly, her fingers sliding from his chest to the back of his neck, pulling him deeper.</p>
-<p>"Mmmm~" The sounds she made against his mouth were shameless and entirely, devastatingly her.</p>
+<p>"Mmmm" The sounds she made against his mouth were shameless and entirely, devastatingly her.</p>
 <p>The bond between them blazed wide open, and through it Nyxara released what they’d caught, pushing the reassembled consciousness down through the connection, through his vessel, through the palm still pressed between them, and into the blade resting in her other grip.</p>
 <p>The relic shuddered.</p>
 <p>The obsidian edge lost its black. Color bled out of the metal in a slow, exhausted drain until the blade hung grey and dull in Nyxara’s grip, and a faint, wretched pulse of awareness throbbed inside it like a heartbeat that didn’t want to exist.</p>

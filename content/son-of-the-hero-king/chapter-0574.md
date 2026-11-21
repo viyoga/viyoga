@@ -41,7 +41,7 @@ chapter = 574
 <p>The rules existed to protect the weak and restrict the strong.</p>
 <p>But once one became strong enough, it was possible to disregard the so-called Rule.</p>
 <p>—No…It was possible to establish his own rules and make others respect them.</p>
-<p>Whoosh~!</p>
+<p>Whoosh!</p>
 <p>The moment Sol realized this, he felt like his mind was becoming lighter, and freer. As if some restrictions were slowly being broken.</p>
 <p>Deus Ex Machina allowed him to control Fate itself and change the direction as he wished. Why would he be tied down by mortal rule when he could break rules that feathered even the gods?</p>
 <p>Light shone and unbeknownst to him — one of his blue eyes slowly started to become golden.</p>
@@ -78,7 +78,7 @@ chapter = 574
 <p>“Think about it…”</p>
 <p>Medea blushed a little but soon squinted as she observed the catalog in front of her. After turning many pages, she looked at Freya speechlessly,</p>
 <p>“All of them are pink.”</p>
-<p>“Tsk~Tsk~Tsk. Dear sister. They may be all pink. But everything is in the nuance. Like this one here. This is not pink. This is Fushia. I think this color will be very good for the decorations. This one is neon pink. My favorite shade. But we can also with a softer Dark Pink or Bright Pink.”</p>
+<p>“TskTskTsk. Dear sister. They may be all pink. But everything is in the nuance. Like this one here. This is not pink. This is Fushia. I think this color will be very good for the decorations. This one is neon pink. My favorite shade. But we can also with a softer Dark Pink or Bright Pink.”</p>
 <p>The more she spoke, the more excited she became, “I can create a small realm, Flamingo color for the herbs, Pastel Pink for the Sky, Coral for the family, and some tree with cherry pinks leave.”</p>
 <p>She laughed and talked as if she was in a trance, already imagining the best world possible.</p>
 <p>Medea’s lips simply twitched.</p>

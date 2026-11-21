@@ -335,7 +335,7 @@ Meng Yuexin put her guard up and carefully looked around. She had quite a cautio
 
 
 
-Fuuuuuuuu~
+Fuuuuuuuu
 
 
 

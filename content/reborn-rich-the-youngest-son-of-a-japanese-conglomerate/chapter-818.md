@@ -23,7 +23,7 @@ chapter = 818
 <p>I looked at the clock. It was already past 10 o'clock. Then I should contact the Kids taking the University Entrance Common Test tomorrow and tell them to do well, and then I should lie down too.</p>
 <p>Minamoto Risa went to bed a little earlier than usual to wake up in the best Condition for tomorrow's test.</p>
 <p>But because it was a Time she didn't usually sleep, she couldn't fall asleep. She also felt like something was missing.</p>
-<p>Wiiing~!</p>
+<p>Wiiing!</p>
 <p>The phone placed by her bedside rang, and when she checked, it was her class Teacher, Taira Ryuta. Considering what he had hidden from her so far, she hated him very much, but he was a man she couldn't hate.</p>
 <p>He was an illegitimate child like herself, and a pitiful man who had lived without even knowing the existence of his Father, but also a man with great ambition to take the Taira Group into his hands in the future.</p>
 <p>A Taira, yet a man who doesn't let go of Minamoto, herself. Taira Ryuta was such a man.</p>
@@ -33,7 +33,7 @@ chapter = 818
 <p>Is he even thinking about my schedule for tomorrow morning? Minamoto Risa realized why she couldn't fall asleep until just now, and why she felt like something was missing.</p>
 <p>It was because she lacked the ingredients of this blonde, tanned man. This week, she was supervising the exams, so she couldn't even see Taira Ryuta's Face properly except for the morning assembly and the closing assembly, so she couldn't help but feel empty.</p>
 <p>'So how are you going to cheer me on?'</p>
-<p>-Huh? I'm just going to say good luck~! I can't wear a cheerleader outfit and dance here.</p>
+<p>-Huh? I'm just going to say good luck! I can't wear a cheerleader outfit and dance here.</p>
 <p>Taira Ryuta answered Minamoto Risa's question with a bewildered Voice. Minamoto Risa laughed, imagining even that Expression naturally.</p>
 <p>'Then cheer me on quickly.'</p>
 <p>-Risa, good luck. You've done well so far, so you'll be able to do well on both tests tomorrow and the day after.</p>
@@ -42,7 +42,7 @@ chapter = 818
 <p>-Okay, you have to prepare early tomorrow, so go to sleep quickly. Then do well on the test and let's meet on Monday.</p>
 <p>'Uh-huh, thank you.... Bogosipeo, you.'</p>
 <p>Minamoto Risa hung up the phone. What did I say at the end? It was a test cheering phone call, but suddenly I miss you.... I guess the words in my heart came out because I was sleepy.</p>
-<p>Wiiing~!</p>
+<p>Wiiing!</p>
 <p>The phone rang again. It was Taira Ryuta's Line. Minamoto Risa turned on Line and checked Taira Ryuta's message.</p>
 <p>-Teacher: Photo</p>
 <p>-Teacher: If you wanted to see me, why didn't you say so? WW</p>
@@ -59,7 +59,7 @@ chapter = 818
 <p>"Alik, 43 points...!"</p>
 <p>Alik handed over the Japanese classics test paper with his unique expressionless Face. 43 points was not a high score, but it was an excellent(?) score that exceeded the retest cut-off of 40 points.</p>
 <p>The home Teacher Shimokawabe Airen, who could be said to be a Sabu, personally liked Japanese classics, so he picked up a few things while training, and it seemed that it had an effect.</p>
-<p>"Kyaaak~! Congratulations, Alik!"</p>
+<p>"Kyaaak! Congratulations, Alik!"</p>
 <p>Naruse Shiyo hugged Alik tightly and congratulated him on avoiding the retest. But there was still the math subject, which could be said to be the final Boss.</p>
 <p>Math was a subject that could be more difficult than Japanese classics. Alik was constantly getting used to Japanese itself by constantly interacting with his Friends, so it was okay, but math was so lacking in basics that there was no sign of improvement.</p>
 <p>In addition, the scope of this math test was only a collection of units that Alik had particularly difficulty with, so I was even more afraid of the result.</p>
@@ -89,18 +89,18 @@ chapter = 818
 <p>But Alik, who had already lost a lot of Confidence, thought that he would be repeating a year anyway, and was even more frustrated by the fact that he would have to go to academy without Taira Ryuta.</p>
 <p>"H-Hang in there. Alik...! I'll gather all the Friends who are good at studying and help you, so you can do it!"</p>
 <p>"Alik, can I do it...?"</p>
-<p>"Of course~!"</p>
+<p>"Of course!"</p>
 <p>In fact, the Friends who are really good at studying will be going to take the Japanese university entrance exam, the University Entrance Common Test, during the weekend, but I was thinking of asking Konoe Akina and a few others who have the best grades for help.</p>
 <p>"Thank you, Shiyo. Alik, I'll try hard...!"</p>
 <p>Naruse Shiyo stroked Alik's Head as if she was relieved when Alik clenched his fists with both hands and regained his Will. And she opened her Mouth with an Expression full of Will.</p>
 <p>"Alik, I'll definitely make you pass."</p>
 <p>Naruse Shiyo was willing to plot something with her class Teacher, Taira Ryuta, if studying didn't work out. She was determined to help Alik graduate even if she stole the test paper in advance.</p>
-<p>Today's B-cut SD Alik~!</p>
-<p>A version of the additional point Teacher Geomhu, requested by seungj050-nim, holding a Sword arrogantly~!</p>
-<p>Kujo Kina's casual clothes and underwear, requested by Gojoy-nim~!</p>
+<p>Today's B-cut SD Alik!</p>
+<p>A version of the additional point Teacher Geomhu, requested by seungj050-nim, holding a Sword arrogantly!</p>
+<p>Kujo Kina's casual clothes and underwear, requested by Gojoy-nim!</p>
 <p>She usually wears leggings and a white T-shirt ㅎㅎ</p>
 <p>A cut of her school uniform too!</p>
-<p>Underwear~!</p>
+<p>Underwear!</p>
 <p>You know why Kotowazuki is scared, right? ㅎㅎ</p>
 <p>Ram쥐Thunder Alik, requested by Rascul-nim.</p>
 <p>It's cute ㅎㅎ</p>

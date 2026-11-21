@@ -15,7 +15,7 @@ chapter = 810
 
 <p>Clothes scattered across the floor, their breathing ragged.</p>
 
-<p>&quot;Brother-in-law~...&quot;</p>
+<p>&quot;Brother-in-law...&quot;</p>
 
 <p>Ariana’s face was flushed as she straddled him, riding him with a cowgirl position, her young body moving seductively.</p>
 
@@ -23,7 +23,7 @@ chapter = 810
 
 <p>She lay on top of him, kissing and caressing him, gentle yet dripping with desire.</p>
 
-<p>&quot;I can’t take it~...&quot;</p>
+<p>&quot;I can’t take it...&quot;</p>
 
 <p>Soon, she let out a sob-like moan. Her first orgasm came so beautifully.</p>
 
@@ -45,7 +45,7 @@ chapter = 810
 
 <p>Hearing the chime, Luis checked his inventory, seven blind boxes left.</p>
 
-<p>&quot;Brother-in-law, I love you~!!&quot;</p>
+<p>&quot;Brother-in-law, I love you!!&quot;</p>
 
 <p>He held his cute little cousin for a nap. By the time they woke, it was past three. They showered together before leaving the room.</p>
 

@@ -44,14 +44,14 @@ chapter = 400
 <p>,VR-dive game??</p>
 <p>,You can play tennis... You can dance with each other, and there are games developed exclusively for VR-dive....</p>
 <p>Oofuchi Erika explained VR-dive games one by one to her curious classmates. After Oofuchi Erika's brief explanation, several people raised their hands saying they wanted to do it, and Seizawa Shii, Otagi Yuka, Sakagami Rena, and Oofuchi Erika decided to attend.</p>
-<p>,Ryuta-jji~! You're excited to play a game with me, right?</p>
+<p>,Ryuta-jji! You're excited to play a game with me, right?</p>
 <p>,Are you okay with scary things?</p>
 <p>Seizawa Shii chose a short horror game that experiences a haunted house with VR-dive. A haunted house was a game that couples could play. Because women would scream and cling to me.</p>
 <p>,I've never been to a haunted house, but I'm good at riding roller coasters, so I'll be fine.</p>
 <p>Seizawa Shii was confident. But aren't those two different kinds of fear? Seizawa Shii is saying it so confidently that I'm a little worried. Since she said she's okay, we put on VR-dive goggles. After a brief darkening of the vision, when I opened my eyes, I saw the VR-dive haunted house that Oofuchi Erika had turned on in front of me.</p>
-<p>,Wow~! It's so real.</p>
+<p>,Wow! It's so real.</p>
 <p>I can see Seizawa Shii looking at it curiously from the side. Because I did a simple scan before putting on the VR-dive goggles, Seizawa Shii wearing a school uniform looked quite real.</p>
-<p>,Ryuta-jji...☆ Where...! There's a touch? It doesn't feel real. Ahaha~! So funny!</p>
+<p>,Ryuta-jji...☆ Where...! There's a touch? It doesn't feel real. Ahaha! So funny!</p>
 <p>Seizawa Shii ran to me, touched my body, and laughed a lot by herself. It was definitely a little awkward to the touch. The technology still needs to be developed more in this area.</p>
 <p>,Well, shall we go in now?</p>
 <p>,Then Ryuta-jji is my boyfriend now, so hold my hand.</p>
@@ -83,7 +83,7 @@ chapter = 400
 <p>Everyone was watching our appearance on the 100-inch TV screen mounted on the wall, so they were laughing a lot. Of course, Minamoto Risa, Seizawa Shii's best friend, laughed the loudest.</p>
 <p>Due to time constraints, Seizawa Shii was the last one for today's club activities. While everyone was preparing to leave, Seizawa Shii approached Shido Tsubaki and told her her impressions, and when I listened carefully, she left a comment that it was very realistic and very scary, but it was pretty good.</p>
 <p>,Everyone worked hard today too. Go home carefully and contact me if anything happens.</p>
-<p>,Yes, goodbye, Teacher~!</p>
+<p>,Yes, goodbye, Teacher!</p>
 <p>,Ryu, Ryuta-jji, goodbye...!</p>
 <p>After saying goodbye to the students, I took two milk puddings and went down to the education preparation room. First, before I forget, I offered one milk pudding to Simyeonui ttal.</p>
 <p>The milk pudding disappeared and soon a note was attached and a transparent bottle of about 500 milliliters filled with white liquid was summoned in front of me.</p>

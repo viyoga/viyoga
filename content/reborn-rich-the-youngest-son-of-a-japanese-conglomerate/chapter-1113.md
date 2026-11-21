@@ -41,7 +41,7 @@ chapter = 1113
 <p>"Of course, Skilled individuals who joined from outside, not from the Obsidian Syndicate, are not entangled in the Drug Business, so we are targeting them for recruitment. It seems they weren't trusted because they weren't from the Obsidian Syndicate."</p>
 <p>So, the strategy is to target alchemists who purely joined the pharmaceutical company from outside. Then....</p>
 <p>"Then, let's do this. Recruit the external Skilled individuals, and among the innocent alchemists who are said to lack Skill, also additionally recruit the Kids recommended by that Woman named Miyazaki Kirara."</p>
-<p>"Understood. I'll proceed with that~!"</p>
+<p>"Understood. I'll proceed with that!"</p>
 <p>At my Words, Linling nodded her Head as if she understood. She probably sent an email or Text Message to the Negotiation team the moment she nodded her Head. Since the Work was finished for now, I decided to ask what I was curious about.</p>
 <p>"But why was Miyazaki Kirara demoted?"</p>
 <p>Although there was the disadvantage that the Frequency increased once a day, An-yaji was so sincere about kidnapping children with high potential, given her Rare Ability to discern potential, so why was she demoted from Headquarters to a Branch?</p>
@@ -60,7 +60,7 @@ chapter = 1113
 <p>"That one isn't an Ability.... Ufufu, I'll tell you about this Person after the verification is complete. I don't want to make Yong-tae-nim worry unnecessarily."</p>
 <p>At my Question, Linling replied with a slightly mischievous Expression, laughing. I found such a Linling annoying, so I approached her and tickled her Armpit, saying.</p>
 <p>"No, if you don't tell me, I'll worry even more, you know?"</p>
-<p>"Hee-heet, I'll tell you right away~!"</p>
+<p>"Hee-heet, I'll tell you right away!"</p>
 <p>Of course, I wouldn't tickle her, but Linling giggled as if she were truly ticklish.</p>
 <p>"This one isn't an Ability User, but a Person who was in finance when she was at An-yaji Headquarters. Although she came to the Branch after being pushed out in a factional fight, she holds quite important Information. When An-yaji was brought down, An-yaji's property wasn't as much as we thought, was it?"</p>
 <p>An-yaji was a group that was over a decade old. They were involved in various evil deeds and engaged in activities through force, so I thought they didn't have much when An-yaji was brought down, but the Person Linling mentioned seemed to be related to that.</p>
@@ -69,9 +69,9 @@ chapter = 1113
 <p>"Try to persuade her well, or... tell her you'll listen to her Words."</p>
 <p>"Ufufu.... Understood."</p>
 <p>At my Words, Linling replied with a Villain-like laugh. She probably roughly guessed my Intention. Unlike Miyazaki Kirara, who defied evil deeds, this one is merely the losing side in a factional fight. There would be no need to necessarily keep a Promise to such a Person.</p>
-<p>"Then the Report is finished~! You must be fatigued from staying up all night for the Tsuya, so get some Sleep~!"</p>
+<p>"Then the Report is finished! You must be fatigued from staying up all night for the Tsuya, so get some Sleep!"</p>
 <p>At Linling's Words, I nodded my Head. Although it was only a one-day funeral, considerable mental fatigue had accumulated, so I felt I needed to take a Rest.</p>
 <p>Since the funeral was over, Taira Jiro would begin to move in earnest, and if I didn't take a Rest now, I didn't know when I would be able to rest, so I immediately headed to the Bedroom.</p>
-<p>Gojoy-nim requested Chapter 62 Han Yu-gyeong, Hanasaki Sayaka~!</p>
-<p>Han Yu-gyeong~!</p>
-<p>Hanasaki Sayaka~!</p>
+<p>Gojoy-nim requested Chapter 62 Han Yu-gyeong, Hanasaki Sayaka!</p>
+<p>Han Yu-gyeong!</p>
+<p>Hanasaki Sayaka!</p>

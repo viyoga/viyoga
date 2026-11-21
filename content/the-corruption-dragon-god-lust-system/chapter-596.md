@@ -5,13 +5,13 @@ weight = 596
 chapter = 596
 +++
 
-<p>“Ik~~” A high-pitched, sweet squeal escaped Ruxue’s lips as Qingyi’s long, thick cock landed on her ass.</p>
+<p>“Ik” A high-pitched, sweet squeal escaped Ruxue’s lips as Qingyi’s long, thick cock landed on her ass.</p>
 
 <p>*Pop*</p>
 
 <p>A wet slap echoed with the impact of his member, which immediately sank into the tight, hot, soft valley formed by those perfect buttocks. “Ah…” He gasped, gripping her ass firmly, his fingers closing around a mound of soft, plump flesh, covered in creamy, milk-white skin.</p>
 
-<p>“Nghnn~~ what are you waiting for? Just shove it all in already… you don’t want to kill me with anticipation, do you?♡” Ruxue purred, her voice sweet and drawling, filled with nothing but the deepest desire. Between her legs, her pussy was already soaking wet, thin streams of love juice trickling down the plump lips of her pale, full vulva.</p>
+<p>“Nghnn what are you waiting for? Just shove it all in already… you don’t want to kill me with anticipation, do you?♡” Ruxue purred, her voice sweet and drawling, filled with nothing but the deepest desire. Between her legs, her pussy was already soaking wet, thin streams of love juice trickling down the plump lips of her pale, full vulva.</p>
 
 <p>“Hm… I was just admiring you.” Qingyi laughed, gripping the base of his own cock and aligning it with Ruxue’s sweet, tight entrance.</p>
 
@@ -19,7 +19,7 @@ chapter = 596
 
 <p>The plump lips of her vulva resisted for a moment, enveloping the glans in a tight, wet embrace before giving way, like flowers blooming and revealing her pink interior.</p>
 
-<p>“Aghnn~~” Ruxue shuddered as the first few centimeters of that massive member penetrated her.</p>
+<p>“Aghnn” Ruxue shuddered as the first few centimeters of that massive member penetrated her.</p>
 
 <p>She just couldn’t get used to it.</p>
 
@@ -37,7 +37,7 @@ chapter = 596
 
 <p>Soon after, he established a rhythm, his hips slapping against her ass with increasingly loud and powerful smacks.</p>
 
-<p>“Nghnn~~ fuck fuck~~♡ is your dick~~ covered in honey?~~” Ruxue moaned with pleasure, her eyes rolling back as her legs began to lose their strength.</p>
+<p>“Nghnn fuck fuck♡ is your dick covered in honey?” Ruxue moaned with pleasure, her eyes rolling back as her legs began to lose their strength.</p>
 
 <p>Getting fucked by Qingyi was always the best experience she could have, but today, strangely, it felt much better than ever before.</p>
 
@@ -49,7 +49,7 @@ chapter = 596
 
 <p>She was getting close, and so was he.</p>
 
-<p>“Ah…. come on, you naughty, shameless husband nghnn~~ cum inside me~~ fill this little pussy with your hot cum!” Ruxue screamed obscene words she was sure she would regret, shame washing over her face the next moment.</p>
+<p>“Ah…. come on, you naughty, shameless husband nghnn cum inside me fill this little pussy with your hot cum!” Ruxue screamed obscene words she was sure she would regret, shame washing over her face the next moment.</p>
 
 <p>Qingyi, naturally, could do little but obey.</p>
 
@@ -57,7 +57,7 @@ chapter = 596
 
 <p>At the same time, he released himself, a thick gush of cum invading her vaginal walls in a violent stream, followed by a second and then a third, each larger than the last.</p>
 
-<p>“Aghn~~ so full…” Ruxue’s legs lost their strength and she collapsed onto him, panting.</p>
+<p>“Aghn so full…” Ruxue’s legs lost their strength and she collapsed onto him, panting.</p>
 
 <p>Shortly after this brief interlude, the two finished their baths, wrapped themselves in woolen robes, and then left the bathroom.</p>
 

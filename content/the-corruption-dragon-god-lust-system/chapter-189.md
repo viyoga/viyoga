@@ -73,7 +73,7 @@ chapter = 189
 
 <p>Qingyi pulled her on top of him, sinking his face between the huge, soft twin mountains, taking one of her nipples and sucking voraciously while using his right hand to massage them as if he were milking her.</p>
 
-<p>“Nghnn~~” Ruxue moaned, grabbing Qingyi’s head and pulling him even harder against her incomparable tits.</p>
+<p>“Nghnn” Ruxue moaned, grabbing Qingyi’s head and pulling him even harder against her incomparable tits.</p>
 
 <p>Her provocative gaze fell on Qingxue.</p>
 
@@ -87,7 +87,7 @@ chapter = 189
 
 <p>Her full, rosy lips placed a soft kiss on the tip before widening around the large circumference, struggling to take it all in before assuming a rhythmic movement.</p>
 
-<p>“Mmhn~~ Good girl…” Ruxue praised, as if the shame taking hold of Qingxue now wasn’t already great enough.</p>
+<p>“Mmhn Good girl…” Ruxue praised, as if the shame taking hold of Qingxue now wasn’t already great enough.</p>
 
 <p>But in the end, there was little to be done.</p>
 
@@ -95,7 +95,7 @@ chapter = 189
 
 <p>All she could do was surrender to the pleasure, feeling Qingyi’s cock explode in her mouth and swallowing every last drop before kneeling over it, lining it up with the entrance to her fat, tight pussy.</p>
 
-<p>“ogghnn~~!” An obscene moan escaped her lips as she sat up, her buttocks hitting his lap as her pussy was filled to the brim.</p>
+<p>“ogghnn!” An obscene moan escaped her lips as she sat up, her buttocks hitting his lap as her pussy was filled to the brim.</p>
 
 <p>“Ah…” Ruxue’s nipple escaped Qingyi’s lips, bouncing off her huge breasts and spreading its creamy milk across her pale skin.</p>
 

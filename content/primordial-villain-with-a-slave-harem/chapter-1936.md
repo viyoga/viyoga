@@ -14,7 +14,7 @@ chapter = 1936
 <p>On the throne, the Primordial Demon of Lust had already arranged herself.</p>
 <p>Nyxara sat with one leg crossed over the other and her chin on her hand, pink eyes half-lidded, and she had clearly been sitting exactly like that since the moment his knee touched Jasmine’s floor.</p>
 <p>The crimson brand on her abdomen glowed through the dark.</p>
-<p>"My Ruin~" she purred. "Congratulations. Many great men fumble what you just did."</p>
+<p>"My Ruin" she purred. "Congratulations. Many great men fumble what you just did."</p>
 <p>"You watched."</p>
 <p>"Of course. I watch everything." She uncrossed her legs and crossed them the other way. "Your little samurai petted you like the most precious thing to have ever existed. I’m happy for you, my love. Truly."</p>
 <p>He came up the steps of the throne. For once, she stayed in her chair.</p>

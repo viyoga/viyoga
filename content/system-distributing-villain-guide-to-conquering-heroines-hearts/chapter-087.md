@@ -70,5 +70,5 @@ chapter = 87
 <p>Dante had a speechless look on his face as he sat down. ’This woman... if I’m not careful, she’ll take more advantage of me than I do of her.’</p>
 <p>And he was absolutely right about that.</p>
 <p>Behind him, Natasha buried her face into the shirt and took a long, deep breath of his scent. Her eyes closed on their own and a dumb smile spread across her face before she could stop it.</p>
-<p>’I swear I’m not a pervert~’</p>
+<p>’I swear I’m not a pervert’</p>
 <p>Share to your friends</p>

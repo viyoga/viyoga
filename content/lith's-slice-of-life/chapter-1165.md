@@ -189,6 +189,6 @@ Elara lifted her skirt up and pulled Yam inside, stuffing his face on her bare, 
 
 "B-b-babe!?"
 
-"Fufu… I didn't wear panties specifically for this! Enjoy your meal~~!"
+"Fufu… I didn't wear panties specifically for this! Enjoy your meal!"
 
 And with that, a pure man was taken another step down the abyss, inching closer to the point of no-return each day.

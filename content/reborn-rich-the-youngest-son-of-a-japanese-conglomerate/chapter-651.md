@@ -9,24 +9,24 @@ chapter = 651
 <p>To watch the Fireworks starting at 9:30, the Date Experience Club Students, as well as Alik, came to the Special Class building after finishing their roles as mascots for the Cheongsim Hall. Of course, Kijimoto Jurie, who had worked hard as the Cafe manager today, was also with them.</p>
 <p>"Shall we all go to the Rooftop?" In fact, the Rooftops of all St. Francisco Girls' Academy buildings were locked. The same was true for the Special Class building, which was only two floors high; there had been several suicide-by-jumping incidents in the past, so since then, no Rooftops, no matter how low the building, were opened.</p>
 <p>But today was a special day, and even if someone were to jump in front of me, I could save them anytime, so I obtained permission from Headmaster Daigo Terue and was able to open the Rooftop of the Special Class building. Of course, there were a few instances of service(?) as a Price, but since I was a service-oriented human who enjoyed such service, it wasn't a Problem.</p>
-<p>"It's my first time on a Rooftop~!"</p>
+<p>"It's my first time on a Rooftop!"</p>
 <p>"Now that you mention it, I've never been up to a Rooftop before, have I?" When I opened the door to the Rooftop, everyone looked amazed and went up to the Rooftop. In fact, since it was just the Rooftop of a two-story building, there was nothing particularly special.</p>
 <p>"Oh! Ryuta-jji prepared this?"</p>
 <p>"Yes, if you want to watch lying down, lie on a sunbed." Seizawa Shii asked me when she saw a few sunbeds, typically found by a pool, laid out, and I nodded my Head. I thought about what I could do for the Students who had worked hard during the festival, besides just opening the Rooftop, and it seemed like watching Fireworks while lying down would be a novel Experience, so I prepared sunbeds.</p>
-<p>"Wow~! It's my first time watching Fireworks while lying down!"</p>
+<p>"Wow! It's my first time watching Fireworks while lying down!"</p>
 <p>"I want to watch too!"</p>
 <p>"I prepared plenty, so don't fight and lie down." Just in case, I had prepared quite a few, so there were still Seats left. The Students each lay on a sunbed and gazed at the darkened Night sky. I also lay down in a remaining Seat, and beside me, Konoe Akina was looking at the Sky. For reference, Alik was lying on the opposite side.</p>
 <p>"Konoe, you worked hard as the Club President."</p>
 <p>"No, it's what I naturally had to do." Pung! While I was telling Konoe Akina that she had worked hard, the Sky suddenly brightened. I turned my Head to the Sky. Perhaps a lot of Money was spent, as incredibly colorful Fireworks adorned the Sky.</p>
 <p>"Lying down and watching, it feels like the Fireworks are going to pour down...!"</p>
-<p>"Ryuta, the Sky... is beautiful." Pung, Peopung! Pung! Fireworks exploded one after another, illuminating the black Sky with orange, yellow, green, and other Colors. For thirty minutes, as the Fireworks adorned the Sky, everyone quietly lay down and gazed at the Sky. After the festival ended, I sent all the Students down and was locking the Rooftop door. Woong~! A Vibration rang out, so I finished locking the Rooftop door and checked my phone; Eve had sent a Text Message via the Am-sang app.</p>
-<p>-EVE: After the festival, please stop by the Am-sang Branch~! What was it? Was it urgent? I sent the Students Home and, instead of going straight Home, headed to Miyashi's love hotel district. Entering the basement of a familiar love hotel, I found Eve and a few others waiting.</p>
-<p>"Junior-nim~!"</p>
+<p>"Ryuta, the Sky... is beautiful." Pung, Peopung! Pung! Fireworks exploded one after another, illuminating the black Sky with orange, yellow, green, and other Colors. For thirty minutes, as the Fireworks adorned the Sky, everyone quietly lay down and gazed at the Sky. After the festival ended, I sent all the Students down and was locking the Rooftop door. Woong! A Vibration rang out, so I finished locking the Rooftop door and checked my phone; Eve had sent a Text Message via the Am-sang app.</p>
+<p>-EVE: After the festival, please stop by the Am-sang Branch! What was it? Was it urgent? I sent the Students Home and, instead of going straight Home, headed to Miyashi's love hotel district. Entering the basement of a familiar love hotel, I found Eve and a few others waiting.</p>
+<p>"Junior-nim!"</p>
 <p>"Investor-nim!"</p>
-<p>"Ryuta~!"</p>
-<p>"Honey~!" The people waiting for me with Eve were Mimata Chieri and the Seryu Military Company staff. It seemed they waited for me at the Am-sang Branch because if they came to my Home, it would be too conspicuous.</p>
+<p>"Ryuta!"</p>
+<p>"Honey!" The people waiting for me with Eve were Mimata Chieri and the Seryu Military Company staff. It seemed they waited for me at the Am-sang Branch because if they came to my Home, it would be too conspicuous.</p>
 <p>"Since we're already in Miyashi, we shouldn't hold back."</p>
-<p>"That's right! Seeing Honey doing his Teacher Work made me so Aroused I couldn't hold back~!" Mimata Chieri and Rihanna Holden stated their Reason for being there.</p>
+<p>"That's right! Seeing Honey doing his Teacher Work made me so Aroused I couldn't hold back!" Mimata Chieri and Rihanna Holden stated their Reason for being there.</p>
 <p>"I want to see how Sensitive Nerves are activated during group Sexual Intercourse, Ryuta-nim!" What Eve said ultimately meant taking Mimata Chieri and the Seryu Thai Women to her love hotel and having a wild group Sex session.</p>
 <p>"I was surprised, thinking it was urgent, Eve."</p>
 <p>"Hehehe.... So, you're not going to do it?" Eve, smiling and asking back, completely unfazed by my chiding. Of course I have to. Why are you even asking that?</p>
@@ -54,4 +54,4 @@ chapter = 651
 <p>"Hohoho, alright. I'll give you all the Time you need." Minamoto Toyomi rose from her Seat, laughing with a triumphant Expression.</p>
 <p>"Tell me before the Year ends." Now that the first week of December had passed, there were three weeks left. The sound of the sliding door opening and closing was heard, and then the sound of Minamoto Toyomi leaving the Room. Minamoto Risa, who had been biting her Lips, raised her Head as if she had made a Resolve.</p>
 <p>"You'll Regret giving me three weeks.... Mother." Minamoto Risa muttered softly.</p>
-<p>Alik SD~!! Kkawaiiㅠㅠㅠ</p>
+<p>Alik SD!! Kkawaiiㅠㅠㅠ</p>

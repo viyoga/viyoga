@@ -76,7 +76,7 @@ chapter = 1961
 <p>Narethi rolled up the chart as Vex moved to the stern rail. "I’m so hungry!! Is there anyone who can fish here?"</p>
 <p>Many sailors flexed their biceps in response as if personally insulted and got to work.</p>
 <p>Kitsara approached the first mate beside the steps to the helm.</p>
-<p>"Could you show us how you steer with that? It looks fun~"</p>
+<p>"Could you show us how you steer with that? It looks fun"</p>
 <p>The man looked toward Narethi, who gave him permission to demonstrate. Kitsara leaned over the mechanism with an interest that soon had him pointing out its parts.</p>
 <p>Blossom meanwhile squatted and jumped straight into the spotter’s basket. She asked for tips on how to spot things better while pointedly aiming in the opposite direction from which Black Fang was approaching.</p>
 <p>The Soul Reaper carried Black Fang over the rail behind the distracted sailors.</p>

@@ -6,7 +6,7 @@ chapter = 874
 +++
 
 <p>After having a Showdown with the old man Danjo and leaving the restaurant, I met Taira Kokoro and Taira Kanna in the restaurant Lobby.</p>
-<p>"Orabeoni~!"</p>
+<p>"Orabeoni!"</p>
 <p>"Ryuta, did your conversation with Father end well? And Kanna, calling your Nephew 'Orabeoni'... what is this, 'Orabeoni'...."</p>
 <p>Taira Kanna waved her Hand at me and called me 'Orabeoni', while Taira Kokoro questioned me and, at the same time, scolded Taira Kanna about the Address issue.</p>
 <p>"Even though he's my Nephew, he's older than me, so he's my Orabeoni. Please just let it slide until Father arrives."</p>
@@ -23,7 +23,7 @@ chapter = 874
 <p>"Hmm.... Ryuta, as your Aunt, I'll just say this: be careful of your two Uncles. Those men stop at nothing. We're not very close, but still, I don't want my Nephew to get hurt like Saburo, do I?"</p>
 <p>Was this Advice for me, or a Warning not to side with Ichiro and Jiro? Judging by her Expression, it seemed to be a Worry that her insignificant Nephew shouldn't get caught in a whale fight. I suppose I should just accept it as Advice then.</p>
 <p>"Yes, thank you for the Advice, Aunt. Well, since I'm still Yamashiro Ryuta, it would be a bit awkward to be seen with Grandfather, so I'll be going. Goodbye, Aunt Kanna."</p>
-<p>I didn't know when Taira Danjo would come out, so I cut the conversation short and said my goodbyes. Taira Kokoro nodded her Head as if she understood and waved her Hand, telling me to go, and Taira Kanna chirped, "Orabeoni, see you later~!"</p>
+<p>I didn't know when Taira Danjo would come out, so I cut the conversation short and said my goodbyes. Taira Kokoro nodded her Head as if she understood and waved her Hand, telling me to go, and Taira Kanna chirped, "Orabeoni, see you later!"</p>
 <p>I got into the vehicle I had arrived in at the restaurant Parking Lot and headed to the cafe where Saionji Diana and Otagi Yuka were waiting. There was a Parking space in front of the cafe, so I parked the car and went inside to find them sitting and talking.</p>
 <p>"I'm here."</p>
 <p>"Did the conversation go well?"</p>
@@ -38,11 +38,11 @@ chapter = 874
 <p>"What are you going to do now?"</p>
 <p>"Me? I have a lot of Work tomorrow, so I was planning to send you two home, let you rest, and then prepare for tomorrow's Work."</p>
 <p>"Right now...?"</p>
-<p>"There's no one at my Home~!"</p>
+<p>"There's no one at my Home!"</p>
 <p>Both of them were incredibly disappointed when I said I'd send them home. Thinking that all their other Friends would be celebrating Graduation with their families, they seemed to dislike being alone.</p>
 <p>"Then, why don't you stay at Our Home until Evening?"</p>
-<p>"We should, Teacher-ssi~!"</p>
-<p>"As expected, Teacher-nim is the best~!"</p>
+<p>"We should, Teacher-ssi!"</p>
+<p>"As expected, Teacher-nim is the best!"</p>
 <p>I took the two noisy girls Outside, put them in the car, and drove home. In fact, there was nothing specific to prepare for tomorrow's Battle. I also have a PMC certification Test starting tomorrow morning, but since I already passed it once under Yamashiro Ryuta's name a few months ago, I wasn't nervous at all.</p>
 <p>In the end, Otagi Yuka and Saionji Diana tormented me until almost Dawn before returning to their respective homes. I woke up in the early Morning before Dawn had ended, had coffee and toast, showered, and prepared my electric bike.</p>
 <p>Since I had charged it yesterday, I would be able to go back and forth from Kofu to Miyashi. After completing all preparations, I packed my writing tools and Identification Card needed for the Test into the bike's Trunk and started the engine.</p>
@@ -89,8 +89,8 @@ chapter = 874
 <p>Requested by Gojoy-nim: Seiwa Rieko's usual attire and underwear attire.</p>
 <p>Her usual attire is actually the oversized fashion mentioned in the main text, which she only wears at home lol.</p>
 <p>To add a slightly more dressed-up Illustration:</p>
-<p>Underwear~!</p>
-<p>Requested by Nelpia8-nim: Jiraikei Karen~!</p>
+<p>Underwear!</p>
+<p>Requested by Nelpia8-nim: Jiraikei Karen!</p>
 <p>I thought a chin Mask wouldn't work, but it does, hehe.</p>
 <p>Requested by TheDreaming-nim: 1. Naked body wheelchair Saionji Diana in a Hospital. 2. Diana with a gloomy Expression in the same background.</p>
 <p>1.</p>

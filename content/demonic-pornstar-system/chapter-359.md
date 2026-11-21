@@ -20,7 +20,7 @@ chapter = 359
 <p>"In times of need, we must support each other! You’re being a very unsupportive person right now!"</p>
 <p>"Yeah, yeah. You can support me by sparing me from hearing you kiss your phone for the 500th time, loser."</p>
 <p>Leia then sighed dramatically as if she were being tortured by the universe, "Do you see what I have to deal with? Meanwhile, you’re getting saved like a real princess by Kaiden of all people!"</p>
-<p>"Hehehe~ yeah~" Sarah’s laugh carried so much pride and joy in it that it was nearly unbearable for the two recipients of her voice. "I was just freaking out with my mom when *bam!* my walls literally broke down! And in came my knight in shining armor! He was so badass and handsome!" Her voice rose higher and higher as her excitement overflowed. "I know the cameras they use for the broadcasts are frighteningly real, but trust me; seeing Kai in person shows that the cameras do him no justice!"</p>
+<p>"Hehehe yeah" Sarah’s laugh carried so much pride and joy in it that it was nearly unbearable for the two recipients of her voice. "I was just freaking out with my mom when *bam!* my walls literally broke down! And in came my knight in shining armor! He was so badass and handsome!" Her voice rose higher and higher as her excitement overflowed. "I know the cameras they use for the broadcasts are frighteningly real, but trust me; seeing Kai in person shows that the cameras do him no justice!"</p>
 <p>"Stop boasting or you’re going to suffer from bad karma!" Emilia scoffed with a lethal amount of irritation in her voice.</p>
 <p>Leia sighed. "Fine, fine, you won the lottery, I get it. So tell me this: how were the others?"</p>
 <p>Sarah’s laugh rang again, full of uncontainable joy. "Awesome! They were awesome! Luna was the same chaos girl we all know and love, spouting obscenities left and right as if it were her true language."</p>
@@ -46,7 +46,7 @@ chapter = 359
 <p>Both Emilia and Sarah let out a synchronized, world-weary sigh.</p>
 <p>"Hopeless... Utterly hopeless!" Emilia decreed flatly.</p>
 <p>"This is what becomes of a pervert who repressed her nasty fetishes for too long," Sarah agreed, though she was covering her grin with the back of her hand.</p>
-<p>But Leia just cackled unrepentantly, breathless and delirious. "Lock me up all you want, but don’t forget: he’d be the one holding the keys to my cage, too! Oh, Kai~ break me, claim me, ruin me, rebuild me, use me until I’m nothing but yours! Ahahaha!"</p>
+<p>But Leia just cackled unrepentantly, breathless and delirious. "Lock me up all you want, but don’t forget: he’d be the one holding the keys to my cage, too! Oh, Kai break me, claim me, ruin me, rebuild me, use me until I’m nothing but yours! Ahahaha!"</p>
 <p>"Shut up, you lunatic!" Leia’s brother’s voice came, making both women increase the intensity of their laughter.</p>
 <p>"You shut up! Keep whining to your bitch about being her savior, I’m busy raving about a real hero! A real man you can never mount to, loser!"</p>
 <p>"Alright, I’m done. Get over here."</p>

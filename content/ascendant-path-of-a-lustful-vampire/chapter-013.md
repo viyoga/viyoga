@@ -37,12 +37,12 @@ chapter = 13
 <p>Arlette ignored him and flicked her finger at him. Caius saw a small purple spell circle appear for a split second before everything went dark.</p>
 <p>He pulled away from Arlette’s desk with his eyes wide,</p>
 <p>"What—?"</p>
-<p>"~Blindness~" Arlette said before he devolved into an agitated state,</p>
+<p>"Blindness" Arlette said before he devolved into an agitated state,</p>
 <p>"A Third Circle Dark Magic Spell."</p>
 <p>As the Mana in his body rose to his eyes to counter the effect of the spell, Caius frowned. He didn’t remember ever reading about a ’Blindness’ spell.</p>
 <p>He felt Arlette’s finger tap his forehead and every information of the spell entered his mind and even after the Blindness effect was gone, it was like he still couldn’t see as every facet of his attention was directed to deciphering the spell circle.</p>
 <p>Spells are formulaic. Think Mathematical diagrams except with spell circles inlaid with Arcane Symbols. There’s a sort of science to it and Caius knew it would not have made sense to him as ’Kevin’. It would have been a bunch of nonsense if he weren’t Caius Von Helsing. If his entire being had not become a part of this world and a part of the nonsensical but fantastical aspects of it.</p>
-<p>Anyway, learning the ~Blindness~ spell was not at all difficult. Caius had memories of learning spells just as easily but again, having memories of doing something is never really quite the same as doing it in real time.</p>
+<p>Anyway, learning the Blindness spell was not at all difficult. Caius had memories of learning spells just as easily but again, having memories of doing something is never really quite the same as doing it in real time.</p>
 <p>"You got it?" Arlette asked.</p>
 <p>"Yeah," Caius answered and she nodded like she wasn’t surprised.</p>
 <p>"Cast it on me," she said.</p>

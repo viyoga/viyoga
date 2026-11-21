@@ -49,7 +49,7 @@ chapter = 465
 <p>“Well… It’s hard to say who seduced who.”</p>
 <p>Camelia blushed slightly when she remembered her first night with Sol. She had been ready to take the lead back then, thinking that he would not have the experience to lead but she indeed up being dominated quite fast.</p>
 <p>Her butt tingled ever so slightly just at the thought of the night.</p>
-<p>“Also, this is rich coming from someone who told him he should Fu… Ahem~ lay down with as many women as possible.”</p>
+<p>“Also, this is rich coming from someone who told him he should Fu… Ahem lay down with as many women as possible.”</p>
 <p>“You wanted to say, Fuck, right?”</p>
 <p>“I did not.”</p>
 <p>“Heh, no need to be shy. Using crude words is fun sometimes, you know?”</p>

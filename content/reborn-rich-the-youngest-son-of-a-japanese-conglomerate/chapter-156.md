@@ -47,7 +47,7 @@ chapter = 156
 <p>"Hyaeut! Haa♥"</p>
 <p>Jjwak, jjwak!</p>
 <p>I put my lips on the back of Mimata Chieri-ssi's neck and sucked, leaving a kiss mark. It's the back of the neck where the hair comes down, so even if there is a kiss mark, it won't be noticed unless Mimata Chieri-ssi deliberately reveals it.</p>
-<p>"Hyaang~! If you make that kind of mark, it'll be revealed that I'm Sunbae-nim's♥"</p>
+<p>"Hyaang! If you make that kind of mark, it'll be revealed that I'm Sunbae-nim's♥"</p>
 <p>"So you don't like it?"</p>
 <p>"Heueut! I like it, I like it...!"</p>
 <p>Mimata Chieri-ssi couldn't come to her senses with the three-point caress of her breasts, pussy, and neck. Then she turned her head back and sucked on my lips that were sucking on her neck.</p>
@@ -67,7 +67,7 @@ chapter = 156
 <p>I didn't try to hold back and started cumming into Mimata Chieri-ssi's throat. Mimata Chieri-ssi's underwater fellatio felt good, but I was also worried that she would be in the water for too long and wouldn't be able to breathe, so I consciously cummed quickly.</p>
 <p>Cheombeong!</p>
 <p>Mimata Chieri-ssi, who raised her head from the water, opened her mouth with a wet face.</p>
-<p>"Bee~!"</p>
+<p>"Bee!"</p>
 <p>Because the amount of semen was so large, a considerable amount of semen remained in her mouth even though I cummed in her throat. Mimata Chieri-ssi was showing it. She rolled the semen around with her tongue, then closed her mouth and showed the performance of swallowing it.</p>
 <p>This was quite a sight, so my dick didn't lose its strength and continued to stand stiffly like a peak rising from the water.</p>
 <p>"Stand up again."</p>

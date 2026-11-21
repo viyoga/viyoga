@@ -10,7 +10,7 @@ chapter = 785
 <p>Because I kept waking up due to the semen thieves who secretly came to my room all night, I knew that no one had passed through the passage towards the elevator during the Time the Murder occurred.</p>
 <p>Still, I couldn't reveal that here, so I remained silent.</p>
 <p>,By the way, Shii, Kujo, and Diana, did you guys deliberately show off your strength? To keep the Killer away from us.,</p>
-<p>,Of course~! Do I look like a Woman who would get angry over something as trivial as not being able to go to a pizza place?,</p>
+<p>,Of course! Do I look like a Woman who would get angry over something as trivial as not being able to go to a pizza place?,</p>
 <p>She looked genuinely angry to me. If Seizawa Shii's Words were true, she seemed to have surprisingly good Acting skills.</p>
 <p>The rest of Kujo Kina and Saionji Diana nodded as if that was right, and some Students seemed moved.</p>
 <p>,What do you think about the culprit?,</p>
@@ -27,7 +27,7 @@ chapter = 785
 <p>That certainly made sense. The reason I was conscious of the presence outside while mingling with the Students who came to my room at Dawn was because I thought Takakusaki Athena might attack or call Anyaji.</p>
 <p>If I couldn't feel their presence even though I was so careful, it meant the Killer was that capable. Then I should be careful of ambushes rather than a head-on fight.</p>
 <p>,Now that we know that ability, we'll just have to be more careful. And can we narrow down the culprit with the photos and conversation we just investigated?,</p>
-<p>,I have one~!,</p>
+<p>,I have one!,</p>
 <p>Oofuchi Erika raised her Hand at my question. When I nodded as if to tell her to speak, Oofuchi Erika began to say what she had thought.</p>
 <p>,In fact, the only evidence revealed is the bloodstains, so we can't say who the culprit is. But there's only one person among the dead who has a different Affiliation.,</p>
 <p>A person with a different Affiliation...?</p>
@@ -78,9 +78,9 @@ chapter = 785
 <p>,It's definitely wider than the room I use because it's a 3-4 person room.,</p>
 <p>,Sit here. I have something to tell you.,</p>
 <p>In fact, I had more important business with Takakusaki Athena than the Murder case. I thought this was an opportunity to talk when we were alone, so I pointed to the dining table opposite where I was sitting and said.</p>
-<p>Eve Belly Dancer requested by Gojoy-nim~!</p>
+<p>Eve Belly Dancer requested by Gojoy-nim!</p>
 <p>St. Francis's Girls' Academy uniform</p>
 <p>Eve, is it a little scary to look at?</p>
-<p>Succubus Yukiko Amta + Double Peace Ahegao requested by MidNightSKY-nim~!</p>
+<p>Succubus Yukiko Amta + Double Peace Ahegao requested by MidNightSKY-nim!</p>
 <p>After making it, I realized it was the 1.0 version model, not the 1.3 version model that I usually make ㅎㅎ Still, the quality was decent, so I'm uploading it ㅎㅎ</p>
 <p>The illustration requested by Hwanbuljeoldae-bulga-nim will be a little late, so I'll upload it in tomorrow's chapter ㅎㅎ</p>

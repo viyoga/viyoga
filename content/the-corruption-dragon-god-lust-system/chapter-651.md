@@ -103,6 +103,6 @@ chapter = 651
 
 <p>“Big brother Qingyi, aren’t you going to tell me your perverted plans?</p>
 
-<p>You’re not going to leave anything for that cuckold Guo, are you? Steal every last drop from him! Hehehe~~♡” Rou’er laughed cheerfully, rubbing her face against his chest.</p>
+<p>You’re not going to leave anything for that cuckold Guo, are you? Steal every last drop from him! Hehehe♡” Rou’er laughed cheerfully, rubbing her face against his chest.</p>
 
 <p>She had plenty of contempt for the Guo family, and every bit of suffering their children endured was like a delight to her heart.</p>

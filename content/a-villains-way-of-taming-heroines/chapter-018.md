@@ -8,7 +8,7 @@ chapter = 18
 <p>"Is this the place?" Although Ansel was doubtful, he would respect all of Eula's choices since she was the one desiring to purchase clothes.</p>
 <p>They had been strolling the streets for a substantial period, and Eula had finally decided to conclude her reward time by buying clothes.</p>
 <p>Leaning into Ansel's arm, the woman whispered into his ear, "Master, I have heard from my sisters at his manor that… the dressing room of this store…"</p>
-<p>"has~exceptional ~soundproofing~"</p>
+<p>"hasexceptional soundproofing"</p>
 <p>"... I am not yet so desperate," Ansel replied, looking somewhat helplessly into her seductive, black eyes. "Cherish your well-deserved reward time, Eula."</p>
 <p>"But this is the reward I desire, Master... the most meaningful reward."</p>
 <p>Her nimble, piano-playing fingers subtly crept under Ansel's clothing, lightly scratching his abdomen like a kitten. Along with the warm breath fluttering at Ansel's neck, her touch was fanning his desire.</p>
@@ -45,7 +45,7 @@ chapter = 18
 <p>"Ah...that should be enough. Where are the fitting rooms? I wish to try these on."</p>
 <p>Seraphina, holding a pile of clothes nearly taller than herself, asked with a tilted head.</p>
 <p>The attendant pointed the way with a twitching smile, "Over there."</p>
-<p>"♪♪♪~" The girl hummed a peculiar tune as she strode towards the fitting rooms.</p>
+<p>"♪♪♪" The girl hummed a peculiar tune as she strode towards the fitting rooms.</p>
 <p>She first attempted to open the first door, but it was locked. She quickly realized, "Eula, are you changing?"</p>
 <p>"Yes...I'm still changing," came the faint response. Had it not been for Seraphina's keen hearing, she would have failed to discern it.</p>
 <p>"I didn't see you earlier, why is it taking so long?"</p>
@@ -75,7 +75,7 @@ chapter = 18
 <p>Having changed into another dress, Seraphina was stunned for a moment before she muttered, "That seems right, he is in fact quite respectable in that regard, he has never laid those dirty lewd eyes upon me and my sister."</p>
 <p>Even when she was completely unclothed, his gaze was never particularly lewd—this was something Seraphina would never admit.</p>
 <p>After saying that, it seemed like Seraphina could hear Eula's mirthful chuckle from her side.</p>
-<p>"That's right, the master is a very~ respectable individual, indeed, ah, mmph."</p>
+<p>"That's right, the master is a very respectable individual, indeed, ah, mmph."</p>
 <p>"You've truly had it tough, Eula," Seraphina stood in front of the mirror, hands on her hips, then twirling around, trying to look girlish. But after looking at herself, she wanted to destroy the mirror with a punch, saying disheartedly, "That guy is so annoying, why do you seem to like him so much?"</p>
 <p>"Because the master saved me, Miss Seraphina. He granted me a new life, he showed me—ahh!!"</p>
 <p>A sudden rise in voice from the other side of the wall startled Seraphina, "Are you alright? How can dressing be this difficult?"</p>
@@ -91,7 +91,7 @@ chapter = 18
 <p>"Hy...dr…al!" Seraphina, who was bracing herself against the wall, gritted her teeth, "You pervert, are you peeping at me?!"</p>
 <p>"Miss Seraphina? What's the matter?"</p>
 <p>"That maniac is shocking me again! Ugh, ah, ah—!"</p>
-<p>"Hehe… the master is very sensitive to malice, even if he's sitting outside, he can sense you badmouthing him~"</p>
+<p>"Hehe… the master is very sensitive to malice, even if he's sitting outside, he can sense you badmouthing him"</p>
 <p>"I didn't—ugh, oh!"</p>
 <p>Seraphina discovered that the bastard Hydral had withheld information about the collar, he could control not only the magnitude of the current but also its direction. Hence, the shock never harmed her organs, the current simply roamed her muscles, sometimes... sometimes it would dart towards some strange places!</p>
 <p>This time, it darted to a very strange place.</p>

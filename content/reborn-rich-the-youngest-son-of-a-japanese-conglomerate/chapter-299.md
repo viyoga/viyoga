@@ -43,7 +43,7 @@ chapter = 299
 <p>Alik, who was excited, decided on the destination before I asked where to go next. The fact that he specifically mentioned the name of the cafe made me think that it was a place that Alik liked, not just any cafe.</p>
 <p>Café Louis.</p>
 <p>I feel like I've heard this cafe name somewhere.... I couldn't remember. Alik took my hand and opened the cafe door.</p>
-<p>,Welcome, Master~! This is Gothic Maid Cafe Louis!,</p>
+<p>,Welcome, Master! This is Gothic Maid Cafe Louis!,</p>
 <p>What greeted us were red-haired sisters wearing gothic lolita outfits.</p>
 <p>I didn't remember because I didn't pay attention, but when I solved Se Ryutai's debt and bought all the shares, the Kiyona Hori Mari sisters, who received a considerable amount of money, said that they opened a maid cafe called Cafe Louis. I remembered now when I saw them.</p>
 <p>,What's going on with you two? O-of course, it's not like I'm curious!,</p>
@@ -56,21 +56,21 @@ chapter = 299
 <p>As expected, she's older than Kiyona Mari, so she doesn't get agitated much and asks me with a smiling face.</p>
 <p>,Omelet rice and strawberry smoothie.... What do you want to eat, Alik?,</p>
 <p>,Alik wants to eat cookies and a chocolate shake.,</p>
-<p>,Yes~! Please wait a moment! Mari, come with me.,</p>
+<p>,Yes! Please wait a moment! Mari, come with me.,</p>
 <p>Kiyona Hori took the order and grabbed Kiyona Mari by the neck and followed her. Because it's a Gothic Mate Cafe, most of them were wearing clothes that were more like gothic lolita clothes with white aprons than traditional maid outfits.</p>
 <p>,Did you come to see Hori-ssi and Mari?,</p>
 <p>,Yeah, they're both fun. They're friends.,</p>
 <p>They were both nice to Alik because they thought he was cute, so it seemed like Alik felt comfortable with them too. As we talked about this and that, the menu we ordered came out. As expected, it was the Kiyona sisters who brought the plates.</p>
 <p>,Here, Alik's favorite white chocolate cookies and chocolate shake...!,</p>
 <p>Kiyona Mari placed the plate in front of Alik, and Kiyona Hori placed the plate in front of me with a smiling but slightly scary expression.</p>
-<p>,This is the omelet rice and strawberry smoothie that Master ordered~! It's usually paid, but I'll write something on it because you're an acquaintance.,</p>
+<p>,This is the omelet rice and strawberry smoothie that Master ordered! It's usually paid, but I'll write something on it because you're an acquaintance.,</p>
 <p>Kiyona Hori took out the ketchup bottle and started writing something on the omelet rice.</p>
-<p>,Become delicious~! Become delicious~!,</p>
+<p>,Become delicious! Become delicious!,</p>
 <p>-If you touch a minor, I'll fucking kill you.^^</p>
 <p>No, what do you think of me? I've become someone who can't touch minors because of my memories before possession.</p>
-<p>By the way, it's really scary to say "Become delicious~! Become delicious~!" cheerfully and write "I'll fucking kill you" in red with ketchup.</p>
+<p>By the way, it's really scary to say "Become delicious! Become delicious!" cheerfully and write "I'll fucking kill you" in red with ketchup.</p>
 <p>,Write something for me too, Mari.,</p>
-<p>,Okay, I'll write it for you~!,</p>
+<p>,Okay, I'll write it for you!,</p>
 <p>Mari was writing "I love Alik so much!" on the cookie with chocolate syrup at Alik's request. But why aren't you being tsundere to Alik?</p>
 <p>,Alik, I'll go to East Weapon later, so.... You have to tell me all about today's date?,</p>
 <p>,Okay.,</p>
@@ -84,7 +84,7 @@ chapter = 299
 <p>,Because we took six pictures.... Hehe.,</p>
 <p>No, I didn't even ask you to take them. Besides, you took the pictures you took with me!</p>
 <p>Still, 20,000 yen wasn't that expensive for me, so I hid my bitter expression and paid.</p>
-<p>,Come again next time~!,</p>
+<p>,Come again next time!,</p>
 <p>,Everything I have is not waiting for you!,</p>
 <p>,I'm not coming again!,</p>
 <p>We came outside while being seen off by the two sisters. The last course was the game center. This was also Alik's pick. The building right next to Cafe Louis was a game center, so it seemed like Alik had been thinking about going there while passing by.</p>

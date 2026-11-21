@@ -51,21 +51,21 @@ chapter = 529
 <p>,Yes.</p>
 <p>Taira Kokoro smiled and nodded as if satisfied with my answer. I didn't know what she had gained from my answer. I didn't intend to finish with one plate at the buffet, so I went to get more food again.</p>
 <p>When I came back to my seat with my plate full of food again, Taira Kokoro was gone. Instead, Uenozono Karen came to my seat with the members of Seriph to greet me.</p>
-<p>,Hello~!</p>
-<p>,It's been a while, sensei~!</p>
+<p>,Hello!</p>
+<p>,It's been a while, sensei!</p>
 <p>,Yes, hello.</p>
 <p>I had met Seriph on the previous cruise trip and had acquaintances with them, so I greeted them without awkwardness.</p>
 <p>,What were you talking about with the president just now?</p>
 <p>,She asked if I had any intention of joining her company and becoming a model or actress.</p>
-<p>,Wow, sensei, do it~! You'd be popular if you were sensei!</p>
+<p>,Wow, sensei, do it! You'd be popular if you were sensei!</p>
 <p>When I answered Seriph's leader Seyun's question, Uenozono Karen said with a smile as if telling me to do it.</p>
 <p>,I'm going to think about it after I graduate this kid first.</p>
 <p>,Haha, that's right. Because you're a teacher.</p>
 <p>Everyone laughs kyaruru when I stroke Uenozono Karen's hair. They're refreshing because they're idols after all.</p>
-<p>,Eit~! I'm a teacher now, but... If sensei debuts, I'll be your Sunbae, so be prepared!</p>
+<p>,Eit! I'm a teacher now, but... If sensei debuts, I'll be your Sunbae, so be prepared!</p>
 <p>Uenozono Karen declared that she would be treated as a Sunbae if she debuted, as if she didn't like being treated like a child. By the way, Sunbae... It's a word that reminds me of Mimata Chieri. I contacted her recently, but I should call her once today.</p>
 <p>###</p>
-<p>,Yahoo~☆ Ushin-ojichan! Danjo-ojichan!</p>
+<p>,Yahoo☆ Ushin-ojichan! Danjo-ojichan!</p>
 <p>,I'm sorry.</p>
 <p>Seizawa Shii greets them and Seizawa Ei apologizes. Minamoto Ushin and Taira Danjo, who are the parties involved, didn't have a particularly unpleasant expression. They liked Seizawa Shii, who was affectionate from a young age, because their own children and grandchildren didn't have any kids who were as bright and affectionate as Seizawa Shii.</p>
 <p>,Hello?</p>
@@ -74,9 +74,9 @@ chapter = 529
 <p>Taira Danjo got up from his seat to eat because Taira Kanna had come. After Taira Danjo and Taira Kanna left, Minamoto Ushin smiled and took out his wallet.</p>
 <p>,Hehe, should I give Shii some pocket money?</p>
 <p>Minamoto Ushin opened his wallet with a smiling expression because he cherished Seizawa Shii, who was Minamoto Risa's best friend. When he handed Seizawa Shii pocket money that was almost a month's salary for an ordinary person, Seizawa Shii smiled brightly and hugged Minamoto Ushin.</p>
-<p>,As expected, it's Ushin-ojichan~! I don't have to work part-time this month☆</p>
+<p>,As expected, it's Ushin-ojichan! I don't have to work part-time this month☆</p>
 <p>,Doesn't your family give you money?</p>
-<p>,Our family has to give back as much as we receive, so I'm working part-time~!</p>
+<p>,Our family has to give back as much as we receive, so I'm working part-time!</p>
 <p>Pocket money and family support were family traditions, so Minamoto Ushin didn't say anything to Seizawa Ei.</p>
 <p>,Risa, I want to give you pocket money too, but if I, a politician, give you pocket money, it could be considered a bribe.</p>
 <p>Seizawa Ei said to Minamoto Risa with a troubled expression as he watched Seizawa Shii receive pocket money. Minamoto Risa smiled softly and said it was okay.</p>
@@ -84,7 +84,7 @@ chapter = 529
 <p>Minamoto Ushin was kind to Seizawa Shii but merciless to Seizawa Ei.</p>
 <p>,I'm sorry for being such a father, Ushin-ojichan!</p>
 <p>,You don't have anything to be sorry about. We're going to eat and come back, so see you in a bit.</p>
-<p>,Nee~!</p>
+<p>,Nee!</p>
 <p>After Seizawa Shii and Seizawa Ei disappeared, Minamoto Ushin and Minamoto Risa headed to the prepared dining area. The two took a seat in a high-class reception room in the school and began to eat sushi made by a first-class sushi chef.</p>
 <p>,Risa, you're doing well this semester. Your grades are good, and you're going to school well without skipping...</p>
 <p>,I'm working hard.</p>
@@ -101,6 +101,6 @@ chapter = 529
 <p>,She's thinking more about the teacher's position in front of me...! I really don't like it!</p>
 <p>Taira Ryuta's favorability was decreasing without Minamoto Ushin even knowing it.</p>
 <p>---------------</p>
-<p>Konoe Akina, who was active in horseback riding yesterday~!</p>
+<p>Konoe Akina, who was active in horseback riding yesterday!</p>
 <p>Taira Kokoro practicing with the new model.</p>
-<p>It's practice~!</p>
+<p>It's practice!</p>

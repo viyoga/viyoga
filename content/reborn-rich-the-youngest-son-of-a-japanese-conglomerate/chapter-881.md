@@ -73,13 +73,13 @@ chapter = 881
 <p>"Krrr-rrr-rrr!"</p>
 <p>'They said he learned some kind of divine possession magic from Kamishirato Manzo, so only his Face is human, the rest is no longer human.'</p>
 <p>Saionji Diana, predicting a difficult Match from Bernardo's animalistic Appearance, lowered her hand to her thigh and drew her pistol.</p>
-<p>TheDreaming-nim requested milking of Simyeonui ttal and Lisa~!</p>
-<p>Lisa~!</p>
+<p>TheDreaming-nim requested milking of Simyeonui ttal and Lisa!</p>
+<p>Lisa!</p>
 <p>The prompt you mentioned about putting Breast Milk in a container doesn't seem to work due to insufficient learning data hehe.</p>
-<p>Gojoy-nim requested Seizawa Shii belly dancer, Tape attire~!</p>
-<p>Belly dancer~!</p>
-<p>Tape~!</p>
+<p>Gojoy-nim requested Seizawa Shii belly dancer, Tape attire!</p>
+<p>Belly dancer!</p>
+<p>Tape!</p>
 <p>Neosblue-nim requested Alik Gunvolt's Unlimited Volt? The appearance of using a buff skill like that... didn't come out exactly, so I'll upload what I made in my own way hehe.</p>
 <p>In the case of skills from games, anime, or comics, unless they are incredibly famous (like an Energy Wave? Even the Shoryuken someone requested before wasn't learned ㅠㅠ), they are not learned hehe.</p>
-<p>Hwanbuljeoldaebulga-nim requested Home Teacher, Lisa-chan cheongsam~!</p>
-<p>Home Teacher~!</p>
+<p>Hwanbuljeoldaebulga-nim requested Home Teacher, Lisa-chan cheongsam!</p>
+<p>Home Teacher!</p>

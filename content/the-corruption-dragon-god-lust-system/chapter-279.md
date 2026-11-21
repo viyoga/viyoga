@@ -83,7 +83,7 @@ chapter = 279
 
 <p>Her eyes suddenly caught sight of something, a male figure of transcendental beauty breaking through the skies, falling towards her.</p>
 
-<p>“Nghnn~~” a high-pitched moan escaped Isabel’s lips, her body being thrown backwards as the face of that male figure hit her boobs, sinking into her huge mountains, using them to absorb the impact of her fall.</p>
+<p>“Nghnn” a high-pitched moan escaped Isabel’s lips, her body being thrown backwards as the face of that male figure hit her boobs, sinking into her huge mountains, using them to absorb the impact of her fall.</p>
 
 <p>“Your Highness, stay away from this man, he could be dangerous and-…” The knight turned her face away, noticing the young man’s nakedness, avoiding his figure as much as possible.</p>
 

@@ -25,7 +25,7 @@ chapter = 779
 
 <p>The sweet taste of Yunxi’s nectar flooded his tongue—a delicate, addictive flavor.</p>
 
-<p>"Ah~!" Yunxi’s eyes flew open, a sharp moan scaping from her throat as her delicate fingers shot through the air, desperately clutching at the bedsheets, grasping at anything within reach.</p>
+<p>"Ah!" Yunxi’s eyes flew open, a sharp moan scaping from her throat as her delicate fingers shot through the air, desperately clutching at the bedsheets, grasping at anything within reach.</p>
 
 <p>Her back arched violently, and her bare breasts heaved upward with the sudden movement, the heavy globes quivering for several seconds before finally settling back against her chest.</p>
 
@@ -73,7 +73,7 @@ chapter = 779
 
 <p>Without further delay, his palm came down firmly on Yunxi’s generous buttocks, the meaty smack echoing through the room.</p>
 
-<p>"Ahn~~" Yunxi let out a sweet squeal as the plump flesh of her cheek flattened beneath his palm, only to spring back the moment he lifted his hand, rippling outward in slow, weighty waves, the tremor spreading across her white, striped skin and traveling all the way to the other cheek before slowly dissipating, a reddish handprint blooming on that porcelain-like surface.</p>
+<p>"Ahn" Yunxi let out a sweet squeal as the plump flesh of her cheek flattened beneath his palm, only to spring back the moment he lifted his hand, rippling outward in slow, weighty waves, the tremor spreading across her white, striped skin and traveling all the way to the other cheek before slowly dissipating, a reddish handprint blooming on that porcelain-like surface.</p>
 
 <p>Qingyi didn’t hesitate any longer.</p>
 

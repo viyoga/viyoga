@@ -1,5 +1,5 @@
 +++
-title = "Chapter 13: You Are Craving It, Though~"
+title = "Chapter 13: You Are Craving It, Though"
 weight = 13
 [extra]
 chapter = 13
@@ -9,7 +9,7 @@ chapter = 13
 
 <p>Pleasuring herself seemed like the only solution she could think of after this whole ordeal, but first, she needed to follow her script, the play is not done yet...</p>
 
-<p>&quot;You are craving it, though~&quot; Owen slid his fingers down, almost touching her private fruit!</p>
+<p>&quot;You are craving it, though&quot; Owen slid his fingers down, almost touching her private fruit!</p>
 
 <p>Her toes even curled because it was so sudden. She might actually squirt right in front of him if she didn’t control herself!</p>
 
@@ -27,7 +27,7 @@ chapter = 13
 
 <p>Its’s just a mother and son deep relationship.</p>
 
-<p>&quot;Oh... so you want to be teased slowly down here~?&quot; Owen slowly moved his fingers like a soldier.</p>
+<p>&quot;Oh... so you want to be teased slowly down here?&quot; Owen slowly moved his fingers like a soldier.</p>
 
 <p>A good soldier who was ready to take the risk to locate and defuse the bomb.</p>
 
@@ -37,11 +37,11 @@ chapter = 13
 
 <p>She loved her son more than anything else... but she refused to squirt right in front of him.</p>
 
-<p>&quot;Ohoho... it’s just the beginning of the lecture, my student Arielle~&quot; Owen provoked as he was quite surprised that his mom would act this way.</p>
+<p>&quot;Ohoho... it’s just the beginning of the lecture, my student Arielle&quot; Owen provoked as he was quite surprised that his mom would act this way.</p>
 
 <p>&quot;Hah... ha... I need to use the restroom, Teacher. hah..hann&quot; Arielle was completely crimson now, from her ears to her face... even her neck was tomato red.</p>
 
-<p>’Hehe... I know that you are already extremely sensitive down there mom~’ Owen thought wickedly.</p>
+<p>’Hehe... I know that you are already extremely sensitive down there mom’ Owen thought wickedly.</p>
 
 <p>Looking at the helpless display of a busty MILF on top of his lap was truly exhilarating!</p>
 

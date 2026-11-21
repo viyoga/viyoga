@@ -45,7 +45,7 @@ chapter = 324
 <p>“Ah, ahh, what are you doing? Stop teasing me like this!”</p>
 <p>Love juices flowed endlessly from her.</p>
 <p>Finally,</p>
-<p>“Ah~!”</p>
+<p>“Ah!”</p>
 <p>He dropped her hips down, skewering her on his massive rod.</p>
 <p>Thanks to the extensive teasing, it penetrated her with ease, and felt like it was several times deeper than usual.</p>
 <p>Kiyohime’s eyes rolled a little while she climaxed hard just from the act of penetration alone. She had already been on the brink of her release while giving him a blowjob and this had just been the last straw.</p>

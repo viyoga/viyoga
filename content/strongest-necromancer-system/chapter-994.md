@@ -38,7 +38,7 @@ chapter = 994
 <p>"Mmpph! Mmph! Mmph! Mmph!"</p>
 <p>Jason could feel his member travelling into Riyala’s throat, and Riyala’s warm tongue caressed the base of the member every time it sank into her mouth!</p>
 <p>Gina wrapped her hand around Jason’s shoulder, and she tilted his head back before she kissed him deeply! Jason reached back to grab Gina’s hair and deepened the kiss even more, and Gina’s moans mixed in with the sound of Riyala sucking him off!</p>
-<p>Slurp~! Slurp~! Slurp~! Slurp~!</p>
+<p>Slurp! Slurp! Slurp! Slurp!</p>
 <p>Riyala continued to suck Jason off for more than two minutes, and Jason enjoyed her warm mouth wrapping around him so perfectly! Riyala had been really bad at this the first time she did it, but right now, she was practically a professional! Jason guided Riyala to take even more of his member every time she went down, and Riyala sped up some more as she felt Jason’s member bulging in her mouth! Jason pulled back from Gina’s lips as he felt his orgasm getting closer, and Jason grunted as he put both hands on Riyala’s head and pressed her down with a curse!</p>
 <p>"Fuck!"</p>
 <p>Jason came hard, and Riyala’s eyes widened in shock as she felt Jason’s seed shoot down her throat!</p>

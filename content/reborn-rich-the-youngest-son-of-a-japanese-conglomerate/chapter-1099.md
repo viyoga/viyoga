@@ -61,10 +61,10 @@ chapter = 1099
 <p>The recorded magic itself only contained grotesque things, making it seem like a grimoire difficult to use anywhere. A lot of magic is recorded, but.... What the hell is a Pancreas Wedge?</p>
 <p>"This can't be used. Having experienced it myself, the magic power is strong, but it didn't seem useful."</p>
 <p>Having heard my explanation, Otagi Yuka shook her head and said. It's said to shoot internal organs from that mouth; just thinking about it was disgusting.</p>
-<p>"Older Brother~! If you don't need it, give it to me!"</p>
+<p>"Older Brother! If you don't need it, give it to me!"</p>
 <p>Everyone gave a verdict that it was unusable, but only Tsukiyo raised her hand. If it's Tsukiyo, a half-Outer God, could she use this eerie forbidden book? Like Lizhael, she might be able to steal the grimoire's power or transform and use the grimoire.</p>
-<p>"Are you sure? I don't have to get human internal organs for you once a week, do I?" "I'm Tsukiyo~! I can ignore such restrictions, so it's fine."</p>
-<p>Since she was so confident it was fine, it seemed I could hand it over. As I nodded my head, Tsukiyo exclaimed, "Older Brother is the best, as expected~!" and took the Internal Organ Praise.</p>
+<p>"Are you sure? I don't have to get human internal organs for you once a week, do I?" "I'm Tsukiyo! I can ignore such restrictions, so it's fine."</p>
+<p>Since she was so confident it was fine, it seemed I could hand it over. As I nodded my head, Tsukiyo exclaimed, "Older Brother is the best, as expected!" and took the Internal Organ Praise.</p>
 <p>Now it was the turn of the last piece of loot obtained from Herta Vogel: a grimoire burning with purple flames. Uniquely, it was clearly on fire, but the book showed no damage at all; it looked perfectly fine.</p>
 <p>◆Testament of Purple Flame (Purple Flame's Will) "Legacy Magic Tool/Grimoire"</p>
 <p>A grimoire that sprang from the flames of a burning pyre one day. According to the stories passed down, it was discovered at a witch's cremation ground.</p>
@@ -76,7 +76,7 @@ chapter = 1099
 <p>Of course, the act of cursing an opponent itself is a wicked deed. But this world now is a cyberpunk megacorp world where cursing an opponent is almost aegyo. There's not much difference between shooting an opponent or cursing them. This Testament of Purple Flame seemed like it could be used quite usefully.</p>
 <p>"...."</p>
 <p>But as it was a grimoire primarily focused on curses, no one rashly stepped forward to say they would use it. I'll keep it for now and give it to someone who seems to need it.</p>
-<p>Herta Vogel wearing all the items that appeared in this chapter hehe Requested by MidNightSKY-nim, Ryuta using Fire Release, and Lisa touching her own nipples~! Ryuta~! Lisa~! The last one is decorated with Baek Lisa hehe Requested by TheDreaming-nim, Liz in the park, Tsukiyo~! Liz~! Tsukiyo~! Requested by seungj050-nim, Ryuta's current Status Window~!</p>
+<p>Herta Vogel wearing all the items that appeared in this chapter hehe Requested by MidNightSKY-nim, Ryuta using Fire Release, and Lisa touching her own nipples! Ryuta! Lisa! The last one is decorated with Baek Lisa hehe Requested by TheDreaming-nim, Liz in the park, Tsukiyo! Liz! Tsukiyo! Requested by seungj050-nim, Ryuta's current Status Window!</p>
 <p>◆Name: Jin Yong-tae/■■■/Taira Ryuta/Yamashiro Ryuta: Lv16</p>
 <p>Stats</p>
 <p>Physical Body Power:16 Agility:13 Stamina:16 Resistance:21 Recovery:12 Sensitive Nerves:12 Appearance:17</p>

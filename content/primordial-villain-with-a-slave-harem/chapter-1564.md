@@ -62,6 +62,6 @@ chapter = 1564
 <p>Nine centuries on a throne had not dulled him. The golden longsword in his two-handed grip hummed with power as he closed on Quinlan's position, and the fury rolling off him bent the air.</p>
 <p>Myrasyn's barrier flickered into his path.</p>
 <p>"Out of my way, elf," he growled.</p>
-<p>"I refuse~" Myrasyn's voice was full of playfulness. Just like how the soul soldiers loved the situation, so did the queen of the elven people.</p>
+<p>"I refuse" Myrasyn's voice was full of playfulness. Just like how the soul soldiers loved the situation, so did the queen of the elven people.</p>
 <p>Alexios wasn't a man who'd cry in outrage and demand justice. His longsword was already moving.</p>
 <p>"[Severance]!"</p>

@@ -13,7 +13,7 @@ It was good that there were no children in the inner circle of the castle, other
 
 Pah! Pah! Pah!
 
-"Mhhm… yes… ahh… ohhh~…"
+"Mhhm… yes… ahh… ohhh…"
 
 Flesh slapped onto each other and juices sprayed around as Lith rammed his cock deep into Lilith's tight pussy.
 
@@ -43,7 +43,7 @@ Letting out a satisfied groan and loving this hot and tight feeling around his s
 
 Increasing his intensity of pounding, Lith felt his shaft bulge and at last, with a grunt, he exploded.
 
-"Ohhhh~!"
+"Ohhhh!"
 
 Lilith's body shivered as she went through a big orgasm. The hot sensation that spread everywhere inside her was a feeling she would never get tired of.
 

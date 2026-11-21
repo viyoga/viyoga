@@ -27,7 +27,7 @@ chapter = 67
 <p>'I need to search deeper into her background.'</p>
 <p>Even now, even though she knew it wasn't her fault, she could never forgive herself for letting her previous master die because of something as stupid as a betrayal. She would never let any traitorous bastard come close to Sol. Even if it was at the price of her life.</p>
 <p>Thinking about traitors, she remembered one particular old man that set her suspicion ablaze. She needed to do a new round of spying soon to refresh her information.</p>
-<p>'Once I have enough proof to validate my theory, I will immediately inform his highness. Fufufu~ it seems like I will have to become active again after all those years. I hope I am not too rusty.'</p>
+<p>'Once I have enough proof to validate my theory, I will immediately inform his highness. Fufufu it seems like I will have to become active again after all those years. I hope I am not too rusty.'</p>
 <p>Sol, after giving his apology to Clara, patted Lilin on the head before turning to face Lilith. His fist was slightly clenched in anticipation.</p>
 <p>"So, how was it?"</p>
 <p>Silence fell as all eyes gathered on Lilith who stayed silent. Sol couldn't help but feel a little nervous but this nervousness provided to be useless as a small smile formed on Lilith's face before long.</p>

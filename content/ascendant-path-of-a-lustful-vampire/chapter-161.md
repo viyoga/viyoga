@@ -37,7 +37,7 @@ chapter = 161
 <p>His presence and his very indicative smiles were always enough to tease her about the event without ever talking about it. Delia decided that if Kaya and Eloise knew about it then Caius must have talked about it behind her back. And for some reason, she felt betrayed.</p>
 <p>She didn’t give Caius the time to answer the question because it hadn’t really been a question. How else would Kaya and Eloise know about what happened with them if he hadn’t told them?</p>
 <p>So she fired her lightning.</p>
-<p>Caius thrust his hand toward and a purple spell circle appeared to conjure the ~Galleon’s Gate~ spell that opened its maw wide and swallowed the lightning in its entirety.</p>
+<p>Caius thrust his hand toward and a purple spell circle appeared to conjure the Galleon’s Gate spell that opened its maw wide and swallowed the lightning in its entirety.</p>
 <p>This had happened so many times since that day and that kiss that this hardly caused either Kaya or Eloise to have all that big of a reaction. Eloise was especially focused on getting as much food as she could on her plate.</p>
 <p>"I didn’t tell them anything," Caius said.</p>
 <p>He was being honest. He didn’t go around regaling his lovers with details about his other lovers. That seemed crass and was usually just never something natural to bring up while he was with them.</p>

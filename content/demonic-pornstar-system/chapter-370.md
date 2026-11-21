@@ -5,11 +5,11 @@ weight = 370
 chapter = 370
 +++
 
-<p>"Come, Blondie Bestie~" Nyx sing-songed as she looped her arm around Alexandra’s and began dragging her toward the hall.</p>
+<p>"Come, Blondie Bestie" Nyx sing-songed as she looped her arm around Alexandra’s and began dragging her toward the hall.</p>
 <p>"H-Hm? Where are you taking me?" Alexandra gasped with her heels digging against the floor as if that would stop the space Valkyrie’s relentless pull.</p>
 <p>"This bunker has four bedrooms and a basement with two rooms," Nyx began her explanation casually, ignoring her friend’s panic. "One basement room is occupied by Riven, our resident clanker maniac. She’s still in the hospital with her sister right now; you’ll meet her later. The other basement room is where we shoot most of our variety streams. That leaves us with four bedrooms. One is the gremlin’s den of sin—namely her gamer girl cave."</p>
 <p>"Den of sin?!" Luna scoffed from the side, earning a smirk from Nyx.</p>
-<p>"The other is the harem bedroom where the magic~ happens if you catch my drift..." Nyx continued, her tone sly. Alexandra nearly tripped over her own feet at that.</p>
+<p>"The other is the harem bedroom where the magic happens if you catch my drift..." Nyx continued, her tone sly. Alexandra nearly tripped over her own feet at that.</p>
 <p>The poor blond had somehow forgotten how lively and straightforward her best friend could be.</p>
 <p>"That leaves us with two spare rooms. Aria, Kai, I, and, well, Bastet, though she has almost nothing, just use them for storage, since we sleep in the giant harem bed together. So I’m taking you to one of those. We’ll catch up, clean it, reorganize it, and then boom: it’s yours."</p>
 <p>Alexandra’s eyes widened immediately. She twisted around like a fish on a hook, tugging desperately to escape Nyx’s grasp. "I-I can’t! I won’t take one of your rooms! I didn’t even plan to stay, I just came to thank you for the help, for pushing me to finally take revenge and change my life!" Her voice shuddered as she yanked at Nyx’s grip, looking frantic.</p>
@@ -30,7 +30,7 @@ chapter = 370
 <p>Meanwhile, Alexandra stood in Nyx’s grip with red cheeks, trembling lips, utterly out of her element. She didn’t know whether to laugh, cry, or collapse from the warmth and chaos that seemed determined to swallow her whole, refusing to let her escape into the cold night.</p>
 <p>For the first time in a long time, she wasn’t just surviving; she was being pulled into something that felt a whole lot like the home she hazily remembered from back before she turned ten years old and met Maximilian.</p>
 <p>Kaiden smiled. "Have fun, my space babe."</p>
-<p>"Oh, I will, my sin babe~" Nyx sang back while tugging Alexandra along with her as the blond’s protests dissolved into squeals of exasperation.</p>
+<p>"Oh, I will, my sin babe" Nyx sang back while tugging Alexandra along with her as the blond’s protests dissolved into squeals of exasperation.</p>
 <p>Luna grimaced and made a pistol out of her hand, with which she theatrically shot herself right in the head. It was her ’I’m dying of cringe’ display.</p>
 <p>The moment of chaos and warmth slowly faded as they all eventually gathered in the main room of the bunker. The television came to life, and the news anchor’s face greeted them.</p>
 <p>The reports were devastating. Simultaneous dungeon breaks erupted across the globe a week ago, and while some of the best-organized nations, like the United States, managed to contain most of the chaos, in no small part to highly trained awakened forces, smaller states, particularly in parts of Africa and Asia, were overrun.</p>

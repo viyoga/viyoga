@@ -58,14 +58,14 @@ chapter = 799
 <p>"Let's go to the Bedroom."</p>
 <p>"Hmph...! Who said I'd... with you?"</p>
 <p>No, who was it that grabbed my Arm and stood up first... Of course, I knew her current grumbling was just unnecessary pouting.</p>
-<p>"Kyaak~!"</p>
+<p>"Kyaak!"</p>
 <p>I lifted the grumbling Minamoto Risa in a Princess carry and headed for the Bedroom. I needed to completely apologize with my Body and turn Minamoto Risa back into 'love-love mode.'</p>
-<p>JeongChucky-nim requested Polar Bear Alik~!</p>
+<p>JeongChucky-nim requested Polar Bear Alik!</p>
 <p>Alik: I haven't ridden a polar bear.</p>
-<p>Gojoy-nim requested Lianna Holden's Belly Dancer, Breast-covering~!</p>
-<p>Belly Dancer first~!</p>
+<p>Gojoy-nim requested Lianna Holden's Belly Dancer, Breast-covering!</p>
+<p>Belly Dancer first!</p>
 <p>Breast-covering</p>
 <p>Today, it's not listening to me and not covering the groin area ㄷㄷ</p>
 <p>seungj050-nim requested Liz's Jeans, Underwear Rear View</p>
-<p>Jeans~!</p>
-<p>Underwear~!</p>
+<p>Jeans!</p>
+<p>Underwear!</p>

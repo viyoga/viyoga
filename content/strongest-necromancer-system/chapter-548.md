@@ -10,7 +10,7 @@ chapter = 548
 <p>The people in the restaurant could sense the tension in Mira’s tone, and they could tell that this was something serious, so even though some of them murmured and grumbled about the situation, they all stood and left the restaurant one after the other. And once they were all gone, the man in black put his hand to his ear and told the rest of his team that the restaurant was clear. Mira was using a cloth to clean her hands as she waited for the person who had come to see her, and anyone who saw Mira at that moment would be able to tell just how anxious she was. The truth was that Mira had been trying her best not to break down for the past month.</p>
 <p>Ever since Jason left Earth for his meeting with the Machina, Mira hadn’t heard anything from him. Jason told Mira that the meeting was only going to take a few days and he would be back before she knew it, but it had already been over a month now, and Mira could only imagine what Jason was going through out there. The only thing that assured Mira that Jason was still alive were the many Legion subordinates that she could see hanging around her house and shop. If not for those subordinates, then Mira would have thought that Jason was dead! And honestly, Mira didn’t know if she would survive if Jason died. It would break her in a way that she knew she might never recover from.</p>
 <p>And that was one of the reasons why Mira decided to open up the restaurant again. Even though the Marc family already made enough money to last them for the rest of their lives from all the deals that Jason made, Mira just didn’t feel right sitting at home all day and worrying about Jason, so she decided it would be better to open up the shop and distract herself for most of the day while she waited! But right now, Mira could feel the anxiety that had always been lurking at the edge of her heart coming in full force! The man in black had told Mira that someone was here to talk to her about Jason’s disappearance, and Mira just hoped that she could get some news about where Jason might be and how he was doing.</p>
-<p>Ding~</p>
+<p>Ding</p>
 <p>The bell above the door chimed as someone entered the restaurant, and Maya exclaimed from her side and pointed up at Riyala!</p>
 <p>"It’s the dragon lady!"</p>
 <p>"Maya, please leave us for now."</p>
@@ -32,6 +32,6 @@ chapter = 548
 <p>Mira guided her towards a table and this time Riyala didn’t even bother to protest as she followed after her. Mira smiled as she sat Riyala down and Mira took the seat opposite her before she called out to Maya.</p>
 <p>"Maya, put some burgers on the grill and get some drinks."</p>
 <p>Maya’s angry voice rang through the restaurant as she came out and spoke with a heavy pout!</p>
-<p>"But moooom~! I want to hear about oni-chan as well!"</p>
+<p>"But moooom! I want to hear about oni-chan as well!"</p>
 <p>Maya was glaring at her mother with tears in her eyes and Mira sighed as she finally decided to extend a small olive branch.</p>
 <p>"I’ll tell you all about it tonight, Maya, I promise. Now go do as I say."</p>

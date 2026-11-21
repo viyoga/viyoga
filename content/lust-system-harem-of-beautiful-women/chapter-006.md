@@ -19,7 +19,7 @@ chapter = 6
 
 <p>Now, the plain wife in his arms had transformed into a stunning beauty. Regardless of whether there was a newbie mission or not, Luis wanted to make it up to her a little.</p>
 
-<p>&quot;So corny~!&quot;</p>
+<p>&quot;So corny!&quot;</p>
 
 <p>Lily, who was only being kissed lightly, seemed a little uncomfortable at first, but soon her eyes softened with tenderness as she closed them and parted her lips slightly, allowing her husband’s tongue to invade.</p>
 
@@ -29,7 +29,7 @@ chapter = 6
 
 <p>Even through the bra, he could feel the fullness of what had to be at least a D-cup. His former wife’s pitiful A+ breasts had been as flat as pancakes with no sensation to speak of. Comparing them now, everything about her gave Luis an overwhelming sense of novelty.</p>
 
-<p>&quot;Husband, let’s go upstairs~!&quot;</p>
+<p>&quot;Husband, let’s go upstairs!&quot;</p>
 
 <p>When Luis tried to undress her, Lily shyly grabbed his hand.</p>
 
@@ -43,7 +43,7 @@ chapter = 6
 
 <p>It wasn’t just that it had been a long time since they’d kissed. At the beginning, Lily had been the one pursuing Luis, while he had always been lukewarm toward her, rarely showing affection. He had never sweet-talked her or said anything romantic.</p>
 
-<p>&quot;Husband~!!&quot;</p>
+<p>&quot;Husband!!&quot;</p>
 
 <p>Lily’s eyes welled up with tears of happiness as her delicate little tongue responded eagerly.</p>
 
@@ -51,7 +51,7 @@ chapter = 6
 
 <p>Right now, Luis didn’t want to dwell on that. His cock was already rock-hard, so he simply scooped Lily up in a princess carry.</p>
 
-<p>&quot;Ah~!&quot;</p>
+<p>&quot;Ah!&quot;</p>
 
 <p>Lily let out a surprised cry before blushing deeply and wrapping her arms around her husband’s neck, her lips curling into a blissful smile.</p>
 
@@ -61,21 +61,21 @@ chapter = 6
 
 <p>Once they were back upstairs, Lily said shyly, &quot;Husband, wait a moment. I’m all sweaty and smell like cooking oil. I need to wash up first.&quot;</p>
 
-<p>&quot;But I can’t wait. What should I do~?&quot;</p>
+<p>&quot;But I can’t wait. What should I do?&quot;</p>
 
 <p>Luis teased her.</p>
 
-<p>Lily coquettishly pleaded, &quot;It’s still early, husband. Just wait a little longer~.&quot;</p>
+<p>Lily coquettishly pleaded, &quot;It’s still early, husband. Just wait a little longer.&quot;</p>
 
 <p>The number of times they’d bathed together could be counted on one hand, mainly because her body used to be so scrawny, and the poor conditions of their rented place had killed Luis’s interest.</p>
 
-<p>&quot;Let’s shower together~!&quot;</p>
+<p>&quot;Let’s shower together!&quot;</p>
 
 <p>Luis wrapped his arms around her waist and licked her ear. &quot;It’s been so long since we’ve done that.&quot;</p>
 
 <p>For a couple alone together, there shouldn’t have been any reason to be shy, but perhaps because Luis had neglected her for so long, Lily seemed a little flustered by the sudden intimacy.</p>
 
-<p>&quot;N-no, not now. You’ve already showered~!&quot;</p>
+<p>&quot;N-no, not now. You’ve already showered!&quot;</p>
 
 <p>Seeing his wife’s nervousness, Luis knew his sudden change was too much for her to process. Given her timid nature, he didn’t push it.</p>
 
@@ -97,9 +97,9 @@ chapter = 6
 
 <p>Calm down... calm down... attribute point, attribute point.</p>
 
-<p>Lily was startled when she stepped out. Blushing, she pouted, &quot;I took so long~. Husband, do you need to use the toilet?&quot;</p>
+<p>Lily was startled when she stepped out. Blushing, she pouted, &quot;I took so long. Husband, do you need to use the toilet?&quot;</p>
 
-<p>&quot;No~!&quot;</p>
+<p>&quot;No!&quot;</p>
 
 <p>Luis grabbed her hand. Just that small gesture made Lily beam with happiness.</p>
 
@@ -117,7 +117,7 @@ chapter = 6
 
 <p>Picking up Nancy’s high-end hair dryer, he fumbled with the settings a bit. Lily instinctively reached out to take it.</p>
 
-<p>&quot;Let me do it. Be good~.&quot;</p>
+<p>&quot;Let me do it. Be good.&quot;</p>
 
 <p>Luis said as he began blow-drying her hair for her. Lily froze in place, her face filled with disbelief.</p>
 

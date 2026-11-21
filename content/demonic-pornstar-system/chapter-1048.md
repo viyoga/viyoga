@@ -28,7 +28,7 @@ chapter = 1048
 <p>Kaiden caught her hand and kissed her knuckles, then drew Bastet close with his other arm.</p>
 <p>"I’m truly lucky to have you two."</p>
 <p>Bastet kissed his cheek.</p>
-<p>"We know~"</p>
+<p>"We know"</p>
 <p>A knock reached them before Calypso could answer. Kaiden released them gently and went to open the door.</p>
 <p>Yunohana stood in the corridor with her hair loose over the pale blue dress. Aria had one hand at her back, while Luna peered around Nyx behind them. Alexandra held the little bag Yunohana had apparently forgotten to take from her.</p>
 <p>Kaiden’s gaze followed the dark hair down to her bare neck, then farther, to where the neckline curved over her full breasts. The dress drew close at her waist before falling over her hips, and he found himself staring at a figure her loose robes had been far too good at hiding.</p>

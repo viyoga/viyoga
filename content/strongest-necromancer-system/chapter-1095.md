@@ -8,7 +8,7 @@ chapter = 1095
 <p>The pressure in the garden suddenly rose to an unbelievable level, and Agiel immediately fell to her knees. Jason felt his entire body straining from the pressure, and Jason immediately raised his hand and spoke up!</p>
 <p>"Wait! We’re not here to trick you! What others are you talking about? I just want to talk."</p>
 <p>Jason knew that he had to calm the boy down somehow, and Jason was willing to talk to the Celestial to avoid getting killed here. The pressure from the Celestial finally began to reduce once Jason said this, and the boy spoke up with an annoyed tone.</p>
-<p>’I’ve been looking for somebody to play with me~ The last time, someone put me to sleep because they didn’t want to play. That wasn’t very nice. If you try to put me to sleep, I’ll kill you.’</p>
+<p>’I’ve been looking for somebody to play with me The last time, someone put me to sleep because they didn’t want to play. That wasn’t very nice. If you try to put me to sleep, I’ll kill you.’</p>
 <p>Jason blinked in shock, and Jason seemed to realise immediately that the boy was actually serious! This wasn’t right! There was no way this was right! Did this mean that the Celestial of Death feared by everyone across the Primordial Expanse was really just a little boy who was going around looking for someone to play with? Did he not know the sheer amount of damage that his mere presence had done to the world around him!? And if he was telling the truth, then didn’t that mean the people who put him to sleep were the people who carried out the Celestial Hunt from before? That had to be it! Everyone thought that the Celestial Hunt was some grand battle against evil, but the boy saw it as people tricking him and putting him to sleep! He didn’t even think he was doing anything wrong!</p>
 <p>Jason let out a calm breath as he tried his best to relax, and he held Agiel close as he spoke to the Celestial.</p>
 <p>"Do you know what you are?"</p>
@@ -20,7 +20,7 @@ chapter = 1095
 <p>Once Agiel accepted their new mission, Jason finally turned to the Celestial of Death, and he nodded to him with a forced smile.</p>
 <p>"Alright, what game do you want to play?"</p>
 <p>The boy smiled wider than ever before, and he let out a joyous cry as he floated around!</p>
-<p>’Yay~ You’re gonna play with me~!’</p>
+<p>’Yay You’re gonna play with me!’</p>
 <p>Jason watched the boy celebrating with a small frown on his face, and at the back of Jason’s mind, Jason recorded everything he could about this creature so he would eventually be able to use [Erasure of Origin].</p>
 <p>....</p>
 <p>[The World of Voltax]</p>

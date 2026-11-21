@@ -5,7 +5,7 @@ weight = 364
 chapter = 364
 +++
 
-<p>“N-nyan~~ nghn~~ oghnn~~ aghnn~~” Linyue’s ragged moans echoed through the luxurious bedroom, accompanied by the wet claps of Qingyi’s hips hitting her ass.</p>
+<p>“N-nyan nghn oghnn aghnn” Linyue’s ragged moans echoed through the luxurious bedroom, accompanied by the wet claps of Qingyi’s hips hitting her ass.</p>
 
 <p>She was on all fours, her face buried in the pillow, her entire body being pushed forward with each impact against her soft flesh, powerful shockwaves spreading across the plump, shapely cheeks of her ass.</p>
 
@@ -15,7 +15,7 @@ chapter = 364
 
 <p>“Who is… my favorite kitty pussy?” Qingyi asked, leaning in even closer and grabbing Linyue’s chin, forcing her to turn her face toward him and look deep into his eyes.</p>
 
-<p>“I-I… nghn~~ Nyan! i’m” Linyue replied breathlessly, her lips soon sealed by Qingyi’s kiss, his hip movements reaching maximum speed.</p>
+<p>“I-I… nghn Nyan! i’m” Linyue replied breathlessly, her lips soon sealed by Qingyi’s kiss, his hip movements reaching maximum speed.</p>
 
 <p>Suddenly, she shuddered. A moan that sounded more like a shrill scream escaped her lips, every bit of her being trembling as she reached orgasm.</p>
 
@@ -33,7 +33,7 @@ chapter = 364
 
 <p>“Uh? Are you not saying that she is yet another poor, pure damsel, victim of this shameless villain here?” Qingyi chuckled, opening Ruxue’s neckline and revealing her huge, pale tits, crowned by puffy purple nipples.</p>
 
-<p>“Nghnn~~ Y-yes, she is… but-” Ruxue moaned as she felt Qingyi’s lips take one of her nipples.</p>
+<p>“Nghnn Y-yes, she is… but-” Ruxue moaned as she felt Qingyi’s lips take one of her nipples.</p>
 
 <p>Her long, delicate fingers grabbed his head, pulling him against her, her full, purple lips slowly parting.</p>
 

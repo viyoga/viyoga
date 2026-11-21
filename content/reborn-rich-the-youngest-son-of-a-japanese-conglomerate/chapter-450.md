@@ -8,7 +8,7 @@ chapter = 450
 <p>Swaaaaaa...!</p>
 <p>Warm water pours from the showerhead. Arisu was turned around, facing the warm water pouring from the showerhead to wash away the milky white fluid on her face and hair.</p>
 <p>Arisu had a slender model figure, but like most Westerners, her pelvis and butt were well-developed. So, just looking at her from behind was like admiring a great work of art that you could never get tired of.</p>
-<p>"Aww~! What are you looking at like that?"</p>
+<p>"Aww! What are you looking at like that?"</p>
 <p>As if sensing my gaze, Arisu tilted her head slightly and asked me. The way she smiled with a coy look on her face, it seemed she didn't dislike me staring at her.</p>
 <p>"Just, your backside is pretty too."</p>
 <p>"Ehehe, really?"</p>
@@ -52,7 +52,7 @@ chapter = 450
 <p>In fact, no one knew what Thousand Mouse looked like yet. I don't know exactly what kind of superpowers he has, but one thing is certain: he had the ability to destroy everything that observes him.</p>
 <p>Even if Thousand Mouse just moved, the nearby CCTV would be destroyed and become inoperable, so the place where the CCTV was sending a black screen was exactly where Thousand Mouse was.</p>
 <p>Seeing that all the CCTV around were still fine, it seemed that Thousand Mouse had not appeared yet.</p>
-<p>-Haaahng! Hnnng! Ryutaah♥ Arisu's pussy is weirddd~!</p>
+<p>-Haaahng! Hnnng! Ryutaah♥ Arisu's pussy is weirddd!</p>
 <p>Unless Thousand Mouse appeared, the two in the SUV command and control room had no choice but to continue listening to the moans and skin-to-skin sounds of the two men and women.</p>
 <p>###</p>
 <p>Jaheem Collins was having a nightmare.</p>

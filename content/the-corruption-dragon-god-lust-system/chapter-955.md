@@ -15,7 +15,7 @@ chapter = 955
 
 <p>"You’re not helping..." Mingzhu murmured softly, casting a sidelong glance at her friend.</p>
 
-<p>"Well... if you can’t help, at least disrupt! The important thing is to participate! Hehehe~" Rou’er gave a soft, mischievous chuckle, swaying her body from side to side without letting go of her friend.</p>
+<p>"Well... if you can’t help, at least disrupt! The important thing is to participate! Hehehe" Rou’er gave a soft, mischievous chuckle, swaying her body from side to side without letting go of her friend.</p>
 
 <p>Qingyi sighed.</p>
 
@@ -29,7 +29,7 @@ chapter = 955
 
 <p>A pink mark began to slowly appear on her fair skin.</p>
 
-<p>"Hyaa~!" Rou’er let out a little squeal, standing on tiptoe and pressing herself against his chest.</p>
+<p>"Hyaa!" Rou’er let out a little squeal, standing on tiptoe and pressing herself against his chest.</p>
 
 <p>Before the shiver subsided, Qingyi’s fingers clamped tightly around that same buttock, grabbing a generous handful.</p>
 

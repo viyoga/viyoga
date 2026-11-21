@@ -91,7 +91,7 @@ chapter = 399
 
 <p>His hands wrapped around her slim, delicate waist, going straight to her buttocks, hitting the plump, perfectly round cheeks of her ass with a thud.</p>
 
-<p>“Nghnn~~ G-gentler, husband…” Meilin moaned, clinging to Qingyi’s robes, her noble and delicate face flushed a vibrant red.</p>
+<p>“Nghnn G-gentler, husband…” Meilin moaned, clinging to Qingyi’s robes, her noble and delicate face flushed a vibrant red.</p>
 
 <p>“You didn’t seem very interested in your gentle husband last night…</p>
 

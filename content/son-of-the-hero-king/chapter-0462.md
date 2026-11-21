@@ -38,7 +38,7 @@ chapter = 462
 <p>After all, if they died on the job, the family would accuse the guild to take responsibility for the matter. This had happened enough times by now that they had taken precautions against it.</p>
 <p>“Well. Let’s chase them away fast.”</p>
 <p>At least, this was what he thought before reaching the waiting room.</p>
-<p>Gulp~</p>
+<p>Gulp</p>
 <p>Standing in front of the door, Thoma began to hesitate.</p>
 <p>‘What is this feeling of pressure?’</p>
 <p>He was a very experienced adventurer in the past and though he had retired, he had once reached the threshold of the legendary Duke realm.</p>
@@ -49,7 +49,7 @@ chapter = 462
 <p>He answered immediately and opened the door, only to remember that he was supposed to be the host in this situation.</p>
 <p>Such consideration vanished entirely from his mind when he set foot in the room.</p>
 <p>Five masked faces turned in his direction simultaneously and while he could not see their eyes, he felt like a mouse suddenly being stared at by five lions.</p>
-<p>“Ahem~ Ahem~ Good morning.”</p>
+<p>“Ahem Ahem Good morning.”</p>
 <p>He squeezed those words out with extreme difficulty and took a seat with nervousness and tension running through his body.</p>
 <p>“Well, A good morning to you too. So, I was told we need to wait for the verification process. Are we supposed to pass a test?”</p>
 <p>“A test?”</p>

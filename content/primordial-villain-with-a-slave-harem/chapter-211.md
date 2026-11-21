@@ -22,7 +22,7 @@ chapter = 211
 <p>Aurora snaps her head away from resting it on my chest to look around the room, and when she sees Lucille's kneeling form she reddens; "I just said something stupid again, didn't I?"</p>
 <p>Holy. I have to reevaluate the value of a high tier potion. She seems to have been injected with a high dose of energy straight into her veins and all her physical ailments are fading rapidly. She's not back at full health at all, but she's most likely no longer in any serious danger.</p>
 <p>Lucille smiles warmly up at Aurora as she ladles another spoonful of porridge and brings it to her mouth. "Don't worry about it, sweetheart. You were really sick, we're just glad to see such a rapid change in you. Here, open wide."</p>
-<p>"Aaa" Aurora listens with much more childlike obedience than a ~25 year old woman like her has any right to. "Thank you… It's very tasty."</p>
+<p>"Aaa" Aurora listens with much more childlike obedience than a 25 year old woman like her has any right to. "Thank you… It's very tasty."</p>
 <p>"You're welcome." Lucille beams.</p>
 <p>Aurora, seemingly realizing something, snaps her head back to me. "Wait, you didn't spend a high tier potion on me, right?!"</p>
 <p>"What's with this reaction? We did, but don't worry about it." I state with a bit of puzzlement in my tone.</p>

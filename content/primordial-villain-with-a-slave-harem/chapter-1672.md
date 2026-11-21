@@ -53,7 +53,7 @@ chapter = 1672
 <p>Void lifted both hands.</p>
 <p>Two thumbs up. The grin beneath them was so smug it bordered on criminal. "You're welcome."</p>
 <p>"Void..." Lilith managed, her voice thin.</p>
-<p>"Not interested~"</p>
+<p>"Not interested"</p>
 <p>But before the rest of the captain's words came, the mage was already gone.</p>
 <p>She blinked across the dozen meters between herself and Scar's retreating back and landed on the assassin like a cat dropping from a high shelf, her arms looping around Scar's neck and her legs hooking around the smaller woman's waist.</p>
 <p>"!!" Scar staggered. The assassin was the smallest of the Scarlet Lilies by a comfortable margin, and the sudden addition of an adult woman to her back drove her forward two lurching steps before her balance caught up with the insult.</p>

@@ -23,11 +23,11 @@ chapter = 925
 <p>’A meeting for a deal? Why would someone need to hire an Eternal Wanderer just to have a meeting with me?’</p>
 <p>Jason frowned as this thought crossed his mind, and he felt his curiosity rising as he wondered what this was all about. From what Jason remembered about the Eternal Wanderers, they always acted as middlemen for any situation, and they do not lie, so there was no way this was some sort of trap. Jason decided that he was far too curious about this, and he turned to the dragon that was still lying beside him.</p>
 <p>"You wanna go for a ride?"</p>
-<p>Grumble~!</p>
-<p>HUFF~!</p>
+<p>Grumble!</p>
+<p>HUFF!</p>
 <p>The dragon huffed in Jason’s face with a low grumble while turning away, and Jason rolled his eyes. The dragon’s job was to protect the females and children from enemies, so the dragon refused to go anywhere! Even after Jason gave it so many pats, it still refused to take him! What a traitor!</p>
 <p>"No more pats for you."</p>
-<p>Grumble~!</p>
+<p>Grumble!</p>
 <p>The dragon grumbled apologetically before it whipped its tail at Jason playfully, but Jason just pushed it away.</p>
 <p>"Hey, babe. What’s going on?"</p>
 <p>Jason turned around to see Riyala walking out from her cave with a blanket wrapped around her shoulder. Riyala was completely naked under the blanket, and Jason smiled as he walked over and kissed her gently. Riyala hummed into the kiss, and she let out a pleased sigh once they separated.</p>

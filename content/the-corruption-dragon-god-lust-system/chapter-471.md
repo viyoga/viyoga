@@ -59,7 +59,7 @@ chapter = 471
 
 <p>Her head hit a firm, protective chest, powerful arms wrapping around her waist.</p>
 
-<p>“Hm… did hubby miss me? Hehehe~~” Elize giggled, feeling Qingyi’s hands sink into her breasts, squeezing gently.</p>
+<p>“Hm… did hubby miss me? Hehehe” Elize giggled, feeling Qingyi’s hands sink into her breasts, squeezing gently.</p>
 
 <p>“I never stopped missing you. Qingyi laughed, depositing a kiss on her lips and sitting down on the bench, placing her on his lap.</p>
 

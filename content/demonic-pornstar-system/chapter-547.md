@@ -18,7 +18,7 @@ chapter = 547
 <p>"My poor butt isn’t ready for that..." Bastet murmured while squirming at the thought and massaging her cheeks as if it were her straddling Kaiden right now. Her ears flattened as she watched the sheer depth of Nyx’s descent.</p>
 <p>"This isn’t just from ’lubrication...’" Luna then murmured. "You’re a proper anal slut."</p>
 <p>Indeed, even letting Kaiden into their lady places was a big feat in itself... Taking his length inside their back door? Now that was just something else.</p>
-<p>"Yeah, whatever~" Nyx purred, uncaring for her perceived image.</p>
+<p>"Yeah, whatever" Nyx purred, uncaring for her perceived image.</p>
 <p>Calypso leaned in close, and her glowing eyes began studying the mechanics of the act with clinical, demonic curiosity. "Isn’t your womb lonely like this...? What do you feel right now?" she asked innocently.</p>
 <p>Nyx let out a sharp, jagged laugh that quickly melted into a guttural moan as she quickened the pace of her up and down movements. Her body constantly shivered from the taboo pleasure.</p>
 <p>"This is something... ah!... You need to try to understand," she managed to breathe out between two heavy moans of satisfaction. "It’s not about... the womb... it’s about the stretch..."</p>

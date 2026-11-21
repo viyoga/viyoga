@@ -42,7 +42,7 @@ chapter = 414
 <p>"Two groups," Caius realized, "Two opposing groups of Vampires. Two covens?"</p>
 <p>One of the covens had to be the ones responsible for all of this. So who was the other?</p>
 <p>Caius was just asking this in his head when a spell came flying at him. He stretched his hand out and let loose a quick-cast spell he had prepared for exactly this kind of situation.</p>
-<p>The spell erected an earthen wall. It was fairly weaker than ~Galleon's Gate~, which required a bit more cast time, but it did the job of intercepting the attack so Caius could leap to the side.</p>
+<p>The spell erected an earthen wall. It was fairly weaker than Galleon's Gate, which required a bit more cast time, but it did the job of intercepting the attack so Caius could leap to the side.</p>
 <p>The Vampire that had attacked him became clear when it stepped out from the ongoing battle to nail him with its bright red eyes.</p>
 <p>Caius thought that any of these vampires focusing on him when they had a more serious concern (Alexia) to worry about was silly but this was fine.</p>
 <p>With a focused swing of its wand, the vampire conjured spell circles. All purple and teeming with Sixth Circle Magic.</p>
@@ -53,11 +53,11 @@ chapter = 414
 <p>Caius couldn't guess the affinity of this Vampire from these spell but if they were willing to use it while in a situation as serious as this, it had to be at least Mid.</p>
 <p>Sure, they may have underestimated him because the defensive spell he just cast was at the Fourth Circle but again, now would hardly be the time to dilly dally. It would be far wiser to go as hard as they possibly can and do away with him and reduce the number of additional enemies they have.</p>
 <p>Then again, the vampire had an Arcane tool (a wand) to help it cast the spell, so who knows?</p>
-<p>Feeling the aura coming off the spell being prepared, and knowing Alexia was likely not to turn in his direction, Caius prepared to take care of the situation on his own. With a deep frown, he cast ~Hellsong Stomp~.</p>
+<p>Feeling the aura coming off the spell being prepared, and knowing Alexia was likely not to turn in his direction, Caius prepared to take care of the situation on his own. With a deep frown, he cast Hellsong Stomp.</p>
 <p>The spell was his best movement spell and was well past what a fourth-circle spell should be capable of because of its instability. However, to a Vampire at the Sixth Circle, he might as well have been moving in slow motion.</p>
 <p>"I see you," the Vampire said and primed their spell to activate. Once it did, Caius had no doubt he would get hit faster than he could dodge.</p>
 <p>Which was why he didn't dodge. In fact, he went right toward the Vampire and once he was close enough, he shifted. His Red eyes struck fear into the heart of his target.</p>
 <p>"Stay right there," Caius ordered.</p>
 <p>The smile slipped off the vampire's face. Replaced with horror as it was held in place by Vampiric Noble authority just as Caius leaped, casting a spell circle that sparked his entire arm with electricity that formed into a Lance.</p>
-<p>~Lightning Spear!~</p>
+<p>Lightning Spear!</p>
 <p>Against a stationary enemy with no defense, the lightning spear tore right through its target's head, instantly robbing it of life.</p>

@@ -33,7 +33,7 @@ chapter = 121
 
 <p>“I was just thinking. You can go back to sleep if you want.” He placed a kiss on Elize’s forehead, his heart warming at the sight of the red flush and that sweet smile taking over her face.</p>
 
-<p>“Mmmnh~~ I’ll go to sleep when you do…” she whispered, her hand falling against Qingyi’s chest as she squirmed even more against him.</p>
+<p>“Mmmnh I’ll go to sleep when you do…” she whispered, her hand falling against Qingyi’s chest as she squirmed even more against him.</p>
 
 <p>The handsome young man didn’t hold back a soft smile, his hands running through her silky purple hair, stroking it until she fell asleep again.</p>
 

@@ -22,7 +22,7 @@ chapter = 710
 <p>Now slightly hesitant and fidgeting was none other than the Queen, Satella Superbia. Of course, as Sol mentioned, she was not the only one present in the region. Her partner, the owner of that tanned hand, had not shown herself yet.</p>
 <p>“What about you, Supreme Daughter? Do you plan to stay hidden behind the tree for the rest of the night?”</p>
 <p>If you find this story on Amazon, be aware that it has been stolen. Please report the infringement.</p>
-<p>“My, my~ What do you mean? I had no plans to hide in the first place.” Chuckling, Jasmine walked out from behind the same tree that was hiding Satella and spoke in a coquettish tone. She behaved as though she had never even hidden herself in the first place.</p>
+<p>“My, my What do you mean? I had no plans to hide in the first place.” Chuckling, Jasmine walked out from behind the same tree that was hiding Satella and spoke in a coquettish tone. She behaved as though she had never even hidden herself in the first place.</p>
 <p>“As you can see, your lordship. We never had any intentions to spy on you.” She said with the utmost confidence.</p>
 <p>On the shameless elve’s side, Satella could not help but blush at her blatant display of shamelessness. Clearing her throat, while ignoring the snickering smile on her friend’s face, she exclaimed herself.</p>
 <p>“I wish to challenge you.” She finally uttered the words she had been holding in all this time.</p>

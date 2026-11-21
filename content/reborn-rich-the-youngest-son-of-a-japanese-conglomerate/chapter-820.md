@@ -58,14 +58,14 @@ chapter = 820
 <p>'Thank you for the Information for now. If you wait a little, someone will come to check if you have a Jusul on you.'</p>
 <p>'Yes. I'll wait a little.'</p>
 <p>No sooner had Athena Mannerheim finished speaking than footsteps were heard. And the door opened. Urabe Konoka wasn't a saint either, and appeared as soon as I talked about her.</p>
-<p>Illustration of Shinoe Misano and Taira Kokoro wearing pantyhose and covering their breasts, requested by I세이브I-nim~!</p>
-<p>Starting with Shinoe Misano~!</p>
-<p>Taira Kokoro~!</p>
-<p>Naruse Shiyo's usual Attire and Underwear, requested by Gojoy-nim~!</p>
-<p>Starting with her usual Attire~!</p>
+<p>Illustration of Shinoe Misano and Taira Kokoro wearing pantyhose and covering their breasts, requested by I세이브I-nim!</p>
+<p>Starting with Shinoe Misano!</p>
+<p>Taira Kokoro!</p>
+<p>Naruse Shiyo's usual Attire and Underwear, requested by Gojoy-nim!</p>
+<p>Starting with her usual Attire!</p>
 <p>Shiyo-ttang's usual Attire is her school uniform ㅎㅎ</p>
-<p>Underwear~!</p>
-<p>Liz cosplaying as Shiranui Mai, requested by MidNightSKY-nim~!</p>
+<p>Underwear!</p>
+<p>Liz cosplaying as Shiranui Mai, requested by MidNightSKY-nim!</p>
 <p>Bonus 2P Costume ㅎㅎ</p>
-<p>Rinka Sabu Footjob pose requested by seungj050-nim~!</p>
-<p>Kkiyoot~!</p>
+<p>Rinka Sabu Footjob pose requested by seungj050-nim!</p>
+<p>Kkiyoot!</p>

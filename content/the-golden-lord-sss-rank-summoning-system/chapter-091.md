@@ -27,9 +27,9 @@ chapter = 91
 <p>Roderik would soon have to find an apprentice.</p>
 <p>Upon entering the mansion, Ethan found Evelyn and Alice in the kitchen, resting.</p>
 <p>"Don’t cook anything today, just rest. I’ll take care of everything." Ethan said, hugging Alice from behind and planting a kiss on her delicate neck.</p>
-<p>"Nghnn~~ Stop it~ I’m dirty~" A sweet moan escaped Alice’s lips as a sharp slap landed on her ass.</p>
+<p>"Nghnn Stop it I’m dirty" A sweet moan escaped Alice’s lips as a sharp slap landed on her ass.</p>
 <p>She shuddered, panting.</p>
-<p>"Fufufu~ You killed it today, it’s obvious our man is going to give you a special reward!" Evelyn laughed at the sight, taking a sip of green fairy wine.</p>
+<p>"Fufufu You killed it today, it’s obvious our man is going to give you a special reward!" Evelyn laughed at the sight, taking a sip of green fairy wine.</p>
 <p>There were only two bottles left, so she savored that flavor on her tongue.</p>
 <p>Alice blushed even more.</p>
 <p>Yes, she had killed it.</p>

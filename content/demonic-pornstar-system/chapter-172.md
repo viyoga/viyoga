@@ -29,7 +29,7 @@ chapter = 172
 <p>The entire room went quiet.</p>
 <p>Riven finally paused her tinkering, looking up at him with unreadable eyes.</p>
 <p>Rae’s smile widened with a mischievous glint flashing in her bright eyes as she leaned forward and rested her elbows on her knees.</p>
-<p>"Oooh~" she purred, voice playful yet laced with anticipation. "Now that’s a spicy question..."</p>
+<p>"Oooh" she purred, voice playful yet laced with anticipation. "Now that’s a spicy question..."</p>
 <p>She chuckled low in her throat, the sound more like a devil’s drumroll than a laugh. "You know, I might enjoy lounging on a comfy couch in such fun company, but I still much prefer getting some outdoors action."</p>
 <p>She kicked one up, flexing her toned leg with zero shame.</p>
 <p>"So instead of boring you with even more mundane chatting of words and numbers..." she added with a smirk, "how about a showcase instead-"</p>

@@ -17,7 +17,7 @@ chapter = 539
 <p>I aimed the shooting gun and fired. With a ttak sound, the bullet hit the doll, but the doll didn't fall. This.... They're determined to take people's money. How much did they weaken the power of the bullets?</p>
 <p>I have no choice. The bullets given for 1000 yen are 10, and to receive the ○-Punch Man character doll prize that Minamoto Lisa wants, I have to hit 9 bullets. Since I just failed, I have 9 bullets left, and now I can't afford to make a single mistake.</p>
 <p>I carefully aim and hit the doll. As long as I hit it somehow, it didn't matter. I can make it teeter and fall to the ground with telekinesis. Of course, since telekinesis is an intangible power, it wasn't very obvious that I was using telekinesis.</p>
-<p>,9 hits! It's a Tats○ki doll! Congratulations~!"</p>
+<p>,9 hits! It's a Tats○ki doll! Congratulations!"</p>
 <p>,Here's your present!"</p>
 <p>The part-timers handed me a pretty big Tats○ki doll and congratulated me. I gave the Tats○ki doll to Minamoto Lisa. Minamoto Lisa hugged the doll, which was half her size, tightly and then looked at me.</p>
 <p>,I'm sorry, but the 10-bullet prize too...."</p>
@@ -30,13 +30,13 @@ chapter = 539
 <p>,Fath, no, Sensei-niim!"</p>
 <p>I was aiming again when I heard a voice calling me from behind. I hit one bullet and turned around to see Sakagami Rena, Shido Tsubaki, and Oofuchi Erika, who had been walking around with me, finding me and coming towards me.</p>
 <p>,Are you having fun?"</p>
-<p>,Yes~!"</p>
+<p>,Yes!"</p>
 <p>,It was quite fun."</p>
 <p>,Sakagami-ssi wasn't scared of the roller coaster at all, so it wasn't fun to watch."</p>
 <p>Everyone seemed to be having fun. It's just that Sakagami Rena didn't seem to feel any fear on the roller coaster, just like the roller coaster members I rode with earlier. Is it natural since she's a ninja who does a lot of harsh training? I talked with the students who came up to me for a while and then focused on the doll shooting again, and this time I was able to hit all 10 bullets with the help of subtle telekinesis.</p>
-<p>,Congratulations! 10 bullets! The highest score! Here's the giant Bald Cape doll~!"</p>
+<p>,Congratulations! 10 bullets! The highest score! Here's the giant Bald Cape doll!"</p>
 <p>It's almost the size of a person, so I don't know how she's going to carry it around, but I handed the giant Bald Cape doll to Minamoto Lisa. Minamoto Lisa hugged the giant Bald Cape doll tightly as if she were treating it like a treasure.</p>
-<p>,Wow~! Ryuta-chi! Get me one too, a doll~!"</p>
+<p>,Wow! Ryuta-chi! Get me one too, a doll!"</p>
 <p>,Ryuta...! Alik wants you to get one too."</p>
 <p>It seemed like all the kids in our class had gathered and were watching me shoot. They were all clamoring for me to get them dolls too. It seemed like it would take a lot of time to get dolls for all twelve of them, so I pointed to the souvenir shop next to the doll shooting range.</p>
 <p>,Let's choose at the souvenir shop. There might be something that suits your taste other than dolls."</p>
@@ -44,7 +44,7 @@ chapter = 539
 <p>,Shii, let's put this in the car together."</p>
 <p>,Shall we? By the way, it's huge, isn't it?"</p>
 <p>Minamoto Lisa seemed to have a hard time holding the two big dolls, so she suggested to Seizawa Shii that they go to the parking lot together, and Seizawa Shii nodded happily. Then she looked at me and shouted.</p>
-<p>,Ryuta-chi~! I'm going to the parking lot, so pick out something that suits me~!"</p>
+<p>,Ryuta-chi! I'm going to the parking lot, so pick out something that suits me!"</p>
 <p>If it suits me, does she mean something to wear among the souvenirs? I didn't have time to think any more and was grabbed by the special class students and went to the souvenir shop.</p>
 <p>Fuji-Q Highland has a lot of souvenirs that resemble Mount Fuji, as the name Fuji of Mount Fuji is attached to the name. There were dolls that resembled Mount Fuji with white snow on top and blue below, and there were also Fuji-shaped foods with white chocolate on top and cookies below, and there were also many cat ear headbands and balloons that could be used at the amusement park, which had nothing to do with Mount Fuji, and of course, there were also collaboration products that Minamoto Lisa would go crazy for.</p>
 <p>The students scattered to choose their own souvenirs, and I, as a teacher who participated together, chose souvenirs that would suit Shimokawabe Airen and Kijimoto Jurie, who didn't choose their own souvenirs.</p>
@@ -57,9 +57,9 @@ chapter = 539
 <p>,But it's a souvenir for coming to play."</p>
 <p>,Thank you, Yamashiro-sensei."</p>
 <p>As expected of an inspector, Shimokawabe Airen seemed satisfied with my gift. Then, shall I choose mine now...? I looked around to see if there was anything delicious, and there was a special product corner that gathered local specialties from the Mount Fuji area, so I went there.</p>
-<p>,Ryuta-chi~! Did you pick out mine?"</p>
+<p>,Ryuta-chi! Did you pick out mine?"</p>
 <p>I was busy choosing various ingredients when I heard Seizawa Shii's voice. Ah.... I forgot. I gave Seizawa Shii a packaged wasabi root that I happened to be holding.</p>
-<p>,What is this, Ryuta-chi? So funny~☆ Did you just pick it out and give it to me?"</p>
+<p>,What is this, Ryuta-chi? So funny☆ Did you just pick it out and give it to me?"</p>
 <p>Seizawa Shii, like a generous gyaru, forgave me for forgetting. Instead, she took me around and showed me what shopping hell is.</p>
 <p>###</p>
 <p>-Look at that figure. No one is looking for you.</p>
@@ -91,9 +91,9 @@ chapter = 539
 <p>-It's a failure today. But you will gradually not be able to reject me.</p>
 <p>The black Naruse Shiyo stepped back and soon disappeared into the darkness.</p>
 <p>__________</p>
-<p>Shido Tsubaki Amusement Park Fashion~!</p>
-<p>The suspenders and brown pants are the point~!</p>
-<p>Urabe Konoka~!!</p>
+<p>Shido Tsubaki Amusement Park Fashion!</p>
+<p>The suspenders and brown pants are the point!</p>
+<p>Urabe Konoka!!</p>
 <p>It's a light and airy style, hehe.</p>
 <p>Black Naruse Shiyo.</p>
 <p>Black hair suits her too, hehe.</p>

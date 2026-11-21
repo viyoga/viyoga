@@ -19,7 +19,7 @@ chapter = 322
 <p>"Hey, don’t go around stealing other people’s kids! You’ve been alone for so many centuries and you already want to take my Ethan?" Amelia complained, her tone clearly playful.</p>
 <p>Without hesitating for even a second, she claimed Ethan’s right side, grabbing her son’s arm and pulling him into her own cleavage as well—which was far larger than Ysara’s.</p>
 <p>Those enormous Y-cup milk jugs completely engulfed his rigid bicep, the massive globes spilling and folding around it like heavy, tender pillows of warm flesh, the silky skin sinking against every inch until barely a hint of muscle remained visible between the two colossal breasts.</p>
-<p>"Come on, my love! You have so much to tell the two of us, fufufu~" Amelia let out a soft giggle, squeezing his arm even deeper between her tits.</p>
+<p>"Come on, my love! You have so much to tell the two of us, fufufu" Amelia let out a soft giggle, squeezing his arm even deeper between her tits.</p>
 <p>All the tension she’d been carrying in her shoulders had already dissipated, leaving her much lighter than she’d felt in weeks.</p>
 <p>Honestly, when she’d first found out what had happened to Ethan, a pang of pure fear had gripped her.</p>
 <p>Her five apprentices were in seclusion, trying to reach the fourth stage, and couldn’t be disturbed under any circumstances. To make matters worse, she herself was going through a critical moment in her advancement to the fifth stage.</p>

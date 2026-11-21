@@ -50,7 +50,7 @@ chapter = 560
 <p>She seemed to completely ignore the strength of the bloodthirst that was being infused in the air.</p>
 <p>Ten, twenty, thirty. The numbers slowly increased but there was no tension in her eyes, only boredom and a desire to eat.</p>
 <p>"I am hungry."</p>
-<p>Clang~!</p>
+<p>Clang!</p>
 <p>She yawned as an arrow flew and hit her temple before falling, not even leaving a shallow wound on her beautiful face.</p>
 <p>Holding her hammer, she simply swung it in the direction where the arrow came from and the resulting shockwave caused the earth to tremble as everything in that direction was destroyed.</p>
 <p>"Monster!"</p>

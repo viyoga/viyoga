@@ -95,7 +95,7 @@ chapter = 191
 
 <p>“Relax, big head.” Xiaoyu grabbed Tianjie’s arm, who blushed deeply as she pressed herself against him.</p>
 
-<p>“If we succeed, I promise to reward you well~~”</p>
+<p>“If we succeed, I promise to reward you well”</p>
 
 <p>Qingyi and Zhenyu just ignored Xiaoyu’s flirting as they entered the cave.</p>
 

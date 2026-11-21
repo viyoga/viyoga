@@ -1,5 +1,5 @@
 +++
-title = "Chapter 814: See You Tonight~~~"
+title = "Chapter 814: See You Tonight"
 weight = 814
 [extra]
 chapter = 814
@@ -57,7 +57,7 @@ chapter = 814
 
 <p>They had likely bought promotional boosts, so the viewership kept climbing, soon surpassing a hundred live viewers.</p>
 
-<p>&quot;Please, everyone, click follow! Thank you so much~&quot;</p>
+<p>&quot;Please, everyone, click follow! Thank you so much&quot;</p>
 
 <p>The way Deewa acted all coy and flirtatious would, under normal circumstances, be too much for most men to handle.</p>
 

@@ -50,7 +50,7 @@ chapter = 1866
 <p>"...Back to work," the king said, and the hall resumed at double diligence, powered by hope.</p>
 <p>Ayame leaned into Quinlan’s shoulder, delighted. "You’re going to get your bounty raised again."</p>
 <p>"It’s basically infinite already," Quinlan said. "They stopped offering money for me a while back. It’s a royal boon now. Ask the crown for anything."</p>
-<p>Her grin widened. "It can always go to two royal boons~"</p>
+<p>Her grin widened. "It can always go to two royal boons"</p>
 <p>Quinlan decided this was the right time to move on, so he turned to Alexios and asked, "How loud is the howling?"</p>
 <p>"Half my court believes I’ve lost my mind. No king has ever audited a great house," Alexios replied after signing a document. "The other half is quietly measuring Ravenshade’s furniture."</p>
 <p>"So you’re in control."</p>

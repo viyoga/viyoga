@@ -44,8 +44,8 @@ chapter = 533
 <p>,No, it's nothing. Congratulations on winning the relay race!"</p>
 <p>,Right? I created a half-lap difference, you know!"</p>
 <p>Whether my acting worked or not, Seizawa Shii said with a smug grin. I unintentionally said, "Yeah, good job," but Seizawa Shii pounced on me with a "Gotcha!" expression.</p>
-<p>,You didn't watch the match, did you!? You should have watched when it was my turn to run~☆"</p>
-<p>,Sensei~! You didn't watch the match? Isn't that too much?"</p>
+<p>,You didn't watch the match, did you!? You should have watched when it was my turn to run☆"</p>
+<p>,Sensei! You didn't watch the match? Isn't that too much?"</p>
 <p>,Sensei-ssi, that's too much! I can't even defend you on this one."</p>
 <p>,Ahahaha...! Sorry, I was busy planning the next match."</p>
 <p>As Seizawa Shii scolded and yelled at me, the other students also added a word each with disappointed expressions. Even though I made excuses, it didn't seem like they were going to let it go. Minamoto Risa, unable to watch the students' nagging any longer, made an excuse for me instead.</p>
@@ -69,7 +69,7 @@ chapter = 533
 <p>Of course, the White Team, which strangely included most of the Public Morals Committee members, also fought quite well, but the Red Team was able to win thanks to the strength of Kujo Kina and Alik's team, Naruse Shiyo's overpowered horse team, and the iron wall-like Captain Taira Kanna's team.</p>
 <p>Fortunately, despite the quite intense equestrian battle, no students were injured, and finally, all the events of the athletic meet were over.</p>
 <p>_________________</p>
-<p>Naruse Shiyo's athletic meet outfit~!</p>
+<p>Naruse Shiyo's athletic meet outfit!</p>
 <p>I don't know what the greasy-eyed dolphin next to her is ㅋㅋㅋㅋ</p>
 <p>Why is she glaring from the window ㅋㅋㅋㅋ</p>
 <p>Naruse Shiyo wearing an equestrian battle hat.</p>

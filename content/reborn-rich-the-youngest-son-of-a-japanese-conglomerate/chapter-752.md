@@ -29,7 +29,7 @@ chapter = 752
 <p>"Sensei-ssi...!"</p>
 <p>Otagi Yuka's gaze was already deeply clouded. It seemed like the madness caused by her blood craving was about to activate, as her satiety was dropping. The students knew this and had cleared the room beforehand.</p>
 <p>"Are you okay?"</p>
-<p>Otagi Yuka didn't answer my question. She staggered towards me and burrowed her head beneath my skirt. Naturally, since I was naked and wearing the Princess Peach dress without underwear, Otagi Yuka beneath my skirt immediately buried her nose into my cock and, with a "Seuheup-ha~!", greedily inhaled the scent (?) of my cock.</p>
+<p>Otagi Yuka didn't answer my question. She staggered towards me and burrowed her head beneath my skirt. Naturally, since I was naked and wearing the Princess Peach dress without underwear, Otagi Yuka beneath my skirt immediately buried her nose into my cock and, with a "Seuheup-ha!", greedily inhaled the scent (?) of my cock.</p>
 <p>Since it was my first time wearing a skirt, the sensation of a person's head entering inside my skirt was quite peculiar. It's a bit hard to explain in words.</p>
 <p>After sniffing the scent of my cock inside my skirt for a long time, Otagi Yuka now began to lick my balls with her tongue.</p>
 <p>My fading reason was slowly disappearing, and it felt like she instinctively knew that the semen she needed to ingest was pooling in my balls.</p>
@@ -97,4 +97,4 @@ chapter = 752
 <p>Breast support</p>
 <p>While making these, I thought, 'Oh? Since it's a swimsuit anyway, what if I made her a bit wet?' So I added the WET prompt, hehe.</p>
 <p>Perhaps because she's wet, Kkan-Yuka isn't coming out well ㅠㅠ</p>
-<p>But if I keep making them until she appears, she eventually does, hehe Kkiyot~!</p>
+<p>But if I keep making them until she appears, she eventually does, hehe Kkiyot!</p>

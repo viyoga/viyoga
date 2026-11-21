@@ -28,9 +28,9 @@ chapter = 822
 <p>"We were at the chokehold with Scarlet and five fighters," she muttered, scrubbing slower, "and this guy went into the Mire with two people."</p>
 <p>Her words might’ve been harsh, but her actions were anything but. She treated him with extreme and uncharacteristic tenderness.</p>
 <p>Where soap revealed wounds, softness gave way to hands.</p>
-<p>"That’s right~ Darling is a real man among men. The best of the best!" Calypso declared proudly, and found the bruising along his spine and worked salve into the tissue with firm, careful fingers.</p>
+<p>"That’s right Darling is a real man among men. The best of the best!" Calypso declared proudly, and found the bruising along his spine and worked salve into the tissue with firm, careful fingers.</p>
 <p>"We need to get strong quick..." Bastet alternated between her warm body gliding along his side and her tanned palms pressing medicine into the deep damage at his hip.</p>
-<p>"Working on it~" Nyx rubbed ointment into his wrist burns with her thumbs while the rest of her stayed against his torso, her curves doing the cleaning her hands were too busy for.</p>
+<p>"Working on it" Nyx rubbed ointment into his wrist burns with her thumbs while the rest of her stayed against his torso, her curves doing the cleaning her hands were too busy for.</p>
 <p>"Stop yapping and let him relax!" Luna found the gash on his ribs, peeled the last crust from the wound’s edge, gripped the embedded chitin shard between two fingers and pulled.</p>
 <p>The wet sound made Bastet’s ears flatten. Luna packed the wound and spread salve with her fingertips while the rest of her stayed warm at his side.</p>
 <p>Heavenly softness for the surface, precise hands where the medicine needed to go.</p>

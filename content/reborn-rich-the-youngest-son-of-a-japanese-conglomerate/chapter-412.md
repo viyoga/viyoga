@@ -35,9 +35,9 @@ chapter = 412
 <p>"This is Kurayamada Kirie-sensei, who will be our class's vice homeroom teacher as a student teacher starting today."</p>
 <p>"Hello, I'm Kurayamada Kirie. My subject is Japanese Classics. Please take care of me."</p>
 <p>Kurayamada Kirie introduced herself and bowed, just like she did to me. The students clapped, feeling a bit dazed by the sudden appearance of the vice homeroom teacher.</p>
-<p>"Wow~ a new teacher!"</p>
+<p>"Wow a new teacher!"</p>
 <p>"Nice to meet you!"</p>
-<p>"Hello~!!"</p>
+<p>"Hello!!"</p>
 <p>Despite the sudden meeting, all the female students in the Special Class welcomed Kurayamada Kirie. My class is full of good kids after all. I watched with a slightly pleased expression as the students introduced each other to Kurayamada Kirie.</p>
 <p>Kurayamada Kirie was quite taciturn, but my class had already honed their communication skills with the taciturn Alik, the cynical Minamoto Risa, and Oofuchi Erika, who was awkward at conversation due to being a former hikikomori with hardly any words, so they didn't mind at all.</p>
 <p>After talking for a while, Seizawa Shii raised her hand as if she had remembered something and asked me.</p>
@@ -45,10 +45,10 @@ chapter = 412
 <p>"Kijimoto-sensei wasn't originally the vice homeroom teacher, she's just been looking after the Special Class, so she'll just have a little less work to do."</p>
 <p>Seizawa Shii asked about Kijimoto Jurie, who had been acting as the vice homeroom teacher, so I told her that Kijimoto Jurie wasn't the official vice homeroom teacher.</p>
 <p>"Since the second period is Japanese Classics, ask the vice homeroom teacher any additional questions you have then, and I'll end the morning assembly here."</p>
-<p>"Yes~!!"</p>
+<p>"Yes!!"</p>
 <p>"Bye Ryuta-cchi!"</p>
 <p>After the morning assembly, I took Kurayamada Kirie to the nurse's office. It was to introduce Kurayamada Kirie to Kijimoto Jurie. I knocked on the nurse's office, and soon Kijimoto Jurie's voice was heard, saying, "Come in."</p>
-<p>"Ah, Yamashiro-sensei~! Good morning!"</p>
+<p>"Ah, Yamashiro-sensei! Good morning!"</p>
 <p>"Yes, Kijimoto-sensei. We have a student teacher joining our class today, so I wanted to introduce her to you."</p>
 <p>Kijimoto Jurie smiled brightly at me. She was slightly startled when she saw Kurayamada Kirie coming in behind me, but she didn't show it much.</p>
 <p>"Hello, I'm Kurayamada Kirie."</p>

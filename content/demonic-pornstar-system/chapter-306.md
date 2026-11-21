@@ -21,12 +21,12 @@ chapter = 306
 <p>A split-second later, a wave of bathwater smacked her full in the face.</p>
 <p>She gasped, blinking furiously, only to find Nyx’s slender hand raised lazily toward her. "Careful... Even I won’t tolerate such baseless slander."</p>
 <p>"Baseless?! You get off on watching your man lie with other women!"</p>
-<p>"Sharing is caring~ What can I say? I’m a selfless, magnanimous woman~" Nyx chirped while sending a second wave of water at Luna.</p>
+<p>"Sharing is caring What can I say? I’m a selfless, magnanimous woman" Nyx chirped while sending a second wave of water at Luna.</p>
 <p>"Alright, that’s it! You’re dead!" Luna sputtered, trying to get the water out of her eyes and nose. She lunged at Nyx, splashing water everywhere.</p>
 <p>The bath instantly erupted into chaos as two heavenly beauties clashed in a heated catfight.</p>
 <p>Luna tackled forward, hands latching onto Nyx’s shoulders, but the space-wielding woman didn’t so much as flinch. Invisible force shoved back against Luna, sending water spraying as if an unseen hand had caught her mid-pounce.</p>
 <p>"Telekinesis?!" Luna hissed, thrashing, droplets glittering across her flushed body. "Really?"</p>
-<p>"Mmhm, really~" Nyx purred, giving a lazy push that dunked Luna beneath the surface for just a second before letting her rise, gasping and snarling. "No storm tricks in here, chaos bestie... Unless you want to fry all of us."</p>
+<p>"Mmhm, really" Nyx purred, giving a lazy push that dunked Luna beneath the surface for just a second before letting her rise, gasping and snarling. "No storm tricks in here, chaos bestie... Unless you want to fry all of us."</p>
 <p>Her lips moved to form a giant, smug grin. "One could say you’re in my domain now."</p>
 <p>Luna’s cheeks burned with frustration as she tried to grapple with the immovable mage. She kicked water, clawed forward, splashed with feral vigor, but every strike was hampered by unseen force. Nyx still wasn’t powerful enough to outright overpower a girl of Luna’s strength with pure telekinesis, but now her power was a real annoyance to deal with as she used it smartly to bolster her own movements or impede Luna’s.</p>
 <p>In this manner, two beauties writhed in the water, breasts pressing, hair slick, droplets flying everywhere.</p>

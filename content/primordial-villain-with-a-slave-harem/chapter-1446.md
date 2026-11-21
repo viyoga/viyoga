@@ -93,7 +93,7 @@ chapter = 1446
 <p>"Guess we'll have to run some tests."</p>
 <p>"Okay… I'll help you…" she muttered bashfully, visibly full of excitement at the prospect. She just tried to retain decorum due to their large audience.</p>
 <p>"Me too…" Aurora nodded.</p>
-<p>"Guess I'll make the noble sacrifice of being the lab rat~" Seraphiel purred, showing much less bashfulness.</p>
+<p>"Guess I'll make the noble sacrifice of being the lab rat" Seraphiel purred, showing much less bashfulness.</p>
 <p>"Daughter!" Sylvaris hissed.</p>
 <p>"Shush, Mom."</p>
 <p>"Don't you dare shush me!"</p>

@@ -51,7 +51,7 @@ chapter = 136
 
 <p>“What happened? What are you doing in the sect?” He asked, separating his lips from hers.</p>
 
-<p>“Hmm~~ I was summoned, actually. Your sect leader offered me the position of honorary elder. I wanted to talk to you about it,” Yunfei said, sinking down next to Elize in the handsome young man’s arms.</p>
+<p>“Hmm I was summoned, actually. Your sect leader offered me the position of honorary elder. I wanted to talk to you about it,” Yunfei said, sinking down next to Elize in the handsome young man’s arms.</p>
 
 <p>“Ah… Shall we go in first?” Qingyi said, guiding the two of them to the large mansion on the horizon.</p>
 
@@ -63,7 +63,7 @@ chapter = 136
 
 <p>“Oh… I understand…” Yunfei bowed her head, a little disappointed.</p>
 
-<p>“Is she going to be our new big sister? Fufufu~~” Elize asked, clutching her husband’s sides.</p>
+<p>“Is she going to be our new big sister? Fufufu” Elize asked, clutching her husband’s sides.</p>
 
 <p>“Elize! She’s a sect elder, don’t be disrespectful,” Yunfei scolded her, but all Elize did was laugh excitedly, watching Qingyi’s face.</p>
 
@@ -79,11 +79,11 @@ chapter = 136
 
 <p>Qingyi listened to those words, thinking for a brief moment before replying. “You should accept. Despite the name, the position doesn’t really carry many responsibilities, it’s basically just a way of defining that you’re an ally of the sect.”</p>
 
-<p>“Mhmm~~ I understand,” Yunfei said, standing up.</p>
+<p>“Mhmm I understand,” Yunfei said, standing up.</p>
 
 <p>“Where do you think you’re going?” Qingyi laughed provocatively as he grabbed her hips and pulled her onto his lap.</p>
 
-<p>“Nghnn~~ I have to give my answer to your sect leader… I shouldn’t keep him waiting,” Yunfei moaned, but did nothing to push Qingyi away.</p>
+<p>“Nghnn I have to give my answer to your sect leader… I shouldn’t keep him waiting,” Yunfei moaned, but did nothing to push Qingyi away.</p>
 
 <p>“A few minutes won’t bother anyone,” Qingyi grabbed the two beauties, high-pitched, ardent squeals echoing as he threw them onto the bed.</p>
 

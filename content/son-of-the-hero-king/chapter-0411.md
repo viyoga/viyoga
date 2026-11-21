@@ -39,7 +39,7 @@ chapter = 411
 <p>He raised an eyebrow at this to which Camelia shook her head, “I will talk about this later.”</p>
 <p>“Hum…You do know that if you hide anything from me again I will have to punish you, right?”</p>
 <p>He smiled as he approached her and whispered this in her heart. Immediately Camelia felt her heartbeat accelerate greatly as she began to imagine what kind of punishment he would inflict on her.</p>
-<p>“Hah~”</p>
+<p>“Hah”</p>
 <p>She moaned a little when she felt Sol hug her waist but was soon brought to silence as his lips covered hers hungrily. Like a wolf devoured a defenseless sheep, all she could do was surrender in his embrace and let herself be devoured.</p>
 <p>When their lips finally separated, all Camelia could do was show a dazed expression, while Sol smirked as he licked his lips,</p>
 <p>“I missed you.”</p>

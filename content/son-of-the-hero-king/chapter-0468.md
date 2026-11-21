@@ -30,7 +30,7 @@ chapter = 468
 <p>“I won’t let you sleep today.”</p>
 <p>“Oh?”</p>
 <p>He rose an eyebrow at the sudden challenge and behind them, Persephone smiled as she put the ring to her finger.</p>
-<p>“Fufufu~ I always had to hold myself back in the past. So I guess I won’t let you sleep either.”</p>
+<p>“Fufufu I always had to hold myself back in the past. So I guess I won’t let you sleep either.”</p>
 <p>Though Sol only lost a small fraction of his life in the past, there was no way Persephone and Medea could completely enjoy and let go of all worry, knowing that they were stealing his life force.</p>
 <p>But now…Now she would show Sol what it means to be the witch of life.</p>
 <p>It was time for a world-shaking battle.</p>

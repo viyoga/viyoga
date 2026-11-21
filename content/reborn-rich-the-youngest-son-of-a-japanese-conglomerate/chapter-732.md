@@ -9,7 +9,7 @@ chapter = 732
 <p>As I spoke, looking around at the students, they each seemed to have many stories they had been saving up, raising their hands to speak. Of course, some, including Urabe Konoka, who had spent the New Year with me, didn't have any stories to tell me and sat with interesting expressions to listen to their friends' stories.</p>
 <p>"Everyone looks like they had a good time. Let's talk about the details after the opening ceremony."</p>
 <p>The opening ceremony was in a little while, and that would be the end of the school schedule for today. It seemed like I could talk to the special class girls after it was over.</p>
-<p>As we chatted about trivial things for a while, it was soon time for the opening ceremony to begin, so I turned on the TV screen, and Taira Kanna was standing on the platform. As Taira Kanna appeared on the screen, Seizawa Shii said, "It's Kanna-jjang~!" and Minamoto Risa clicked her tongue softly.</p>
+<p>As we chatted about trivial things for a while, it was soon time for the opening ceremony to begin, so I turned on the TV screen, and Taira Kanna was standing on the platform. As Taira Kanna appeared on the screen, Seizawa Shii said, "It's Kanna-jjang!" and Minamoto Risa clicked her tongue softly.</p>
 <p>"I am Taira Kanna, the student council Chairman of St. Francis Girls' Academy. Did you all have a good vacation?"</p>
 <p>Taira Kanna seemed quite happy, though she was as usual. She sent me a New Year's text saying she had become an adult and so on. Is she happy to be an adult?</p>
 <p>Taira Kanna had been taking courses from a prestigious British university since she was in the high school division of St. Francis Girls' Academy, and she went to England during vacations to take actual classes and earn credits.</p>
@@ -23,17 +23,17 @@ chapter = 732
 <p>-Han Yu-gyeong: My grandfather called me to go to the Shinkang Group headquarters. I think they'll be talking about the branch office I asked for before. If possible, I'll try to take on the insurance company I mentioned before.</p>
 <p>The story of entrusting a Shinkang Group branch office came up, and there was no word for a while, so I thought it was just going to pass, but it seemed like something was being decided today.</p>
 <p>-Jin Yong-tae: Don't be nervous. Even if you can't do the insurance company, we have Plan B or Plan C that we thought of, so it'll be okay.</p>
-<p>-Han Yu-gyeong: Okay~! Are you working now? Hang in there! I miss you, my Yong-tae♥</p>
-<p>"Ryuta-jji~! What are you doing not paying attention?"</p>
+<p>-Han Yu-gyeong: Okay! Are you working now? Hang in there! I miss you, my Yong-tae♥</p>
+<p>"Ryuta-jji! What are you doing not paying attention?"</p>
 <p>I was getting nagged for chatting instead of listening to the speech. It's a bit humiliating to be told off by Seizawa Shii, who failed a grade because she skipped class?</p>
 <p>"Sorry, sorry, I had a message, so I checked it for a moment."</p>
 <p>I quickly replied that I missed her too and put my phone in my pocket. It's Han Yu-gyeong's first time getting involved in Shinkang Group matters, so I'm a little worried, but I'm sure she'll do well on her own.</p>
 <p>Looking at the TV screen, the opening ceremony was already over. I saw the screen showing Daigo Terue finishing her speech with "That's all."</p>
 <p>"The opening ceremony is over.... Anyone going straight home?"</p>
-<p>"Me~!"</p>
+<p>"Me!"</p>
 <p>Uenozono Karen raised her hand. It seemed like she was going straight home because she could do something on a day like today when we finished early. I nodded and told her to have a good day.</p>
 <p>"Uenozono is going straight home.... It's been a while, so the teacher will treat you to something delicious. We can talk in the clubroom for a bit and then have lunch, right?"</p>
-<p>"Waa~!"</p>
+<p>"Waa!"</p>
 <p>"Ryuta-jji, you've become generous?"</p>
 <p>"I've always been generous. Everyone, go up first. I'll go up after doing some work for about ten minutes."</p>
 <p>Since there were a few things I had to do on the first day of the semester, I sent the students to the clubroom first, and I came to the education preparation room. I received the documents that came by fax, checked them, quickly processed the work, and sent the Korean exam that I had prepared during the vacation by email.</p>
@@ -48,7 +48,7 @@ chapter = 732
 <p>"Pervert...♥"</p>
 <p>Minamoto Risa, who had hugged me tightly, felt the great presence of my twitching dick in her abdomen and glared at me. She glared, but she didn't seem to dislike it at all.</p>
 <p>"Wouldn't it be weirder if I didn't react when Risa hugged me? My sexual desire would be twisted in a strange way."</p>
-<p>"Ahaha, what's that~!"</p>
+<p>"Ahaha, what's that!"</p>
 <p>Minamoto Risa laughed while hugging me, finding my words funny. Minamoto Risa, who had been hugging me for a while, let go of me, saying, "Okay, I'm charged up!" I couldn't hug her forever because there were special class students waiting.</p>
 <p>Minamoto Risa and I went up to the clubroom together. By the way, it's been a while since I've been in the clubroom.</p>
 <p>"Did you wait long? I had more work than I thought.... Uh, what's this?"</p>

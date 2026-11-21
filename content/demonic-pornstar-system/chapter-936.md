@@ -51,7 +51,7 @@ chapter = 936
 <p>"Nngh-!" She twisted again, hard. He didn’t move. She twisted the other way. He still didn’t move.</p>
 <p>"So." He looked down at her, amused. "Speed beats everything?"</p>
 <p>"Fuck you. You were shamelessly strategizing while I was occupied. That’s cheating."</p>
-<p>"Big mouth on a sore loser, that’s a deadly combo~"</p>
+<p>"Big mouth on a sore loser, that’s a deadly combo"</p>
 <p>"Wipe that smug smirk off your face!"</p>
 <p>She squirmed under him again, straining against his grip. Her breathing was ragged, her cheeks flushed, her tank top ridden up to her ribs from the thrashing. She wasn’t getting anywhere. He sat on top of her waist and watched, one eyebrow raised, while the fastest woman in the gang struggled against him with less and less conviction.</p>
 <p>"Let go of my hands and try that again," she hissed.</p>
@@ -70,7 +70,7 @@ chapter = 936
 <p>Her insult died in her throat. Her hips jerked against his hand entirely against her will, and her teeth clamped down on her lower lip so hard it went white.</p>
 <p>"You were saying?" He curled again, slow, firm, finding the spot he knew made her lose her words.</p>
 <p>"I- you- that’s not- hngh-" She was trying to rebuild the sentence and he wasn’t letting her. Every time her mouth opened to form a comeback his fingers moved and the comeback became a sound.</p>
-<p>"You were wet the whole time." He leaned down, mouth beside her ear. "The spar, the trash talk, the ’speed beats everything.’ You were dripping through all of it, weren’t you~?"</p>
+<p>"You were wet the whole time." He leaned down, mouth beside her ear. "The spar, the trash talk, the ’speed beats everything.’ You were dripping through all of it, weren’t you?"</p>
 <p>"I was NOT!"</p>
 <p>He pressed deeper and her denial turned into a gasp she had to muffle by biting her own arm.</p>
 <p>His arm flexed against her wrists as she thrashed, veins standing taut from the effort of holding her down, and her mind went blank.</p>

@@ -50,7 +50,7 @@ chapter = 566
 <p>###</p>
 <p>Because everyone knew that I was studying for the license, the Special Class kids, who had been careful until I took the test, were unsealed from the day I went to work on Tuesday, the day after the test.</p>
 <p>They came to me every break to ask me to play with them or eat snacks together, and after school, it became like we were naturally doing date experience club activities, so we went to various places and took pictures.</p>
-<p>"Okay, take this pose... Smile naturally~!"</p>
+<p>"Okay, take this pose... Smile naturally!"</p>
 <p>Minamoto Risa was looking at me and taking pictures, and that camera was quite unique. Six cameras made like a big hula hoop were surrounding me, and there were two cameras above and below. It was a hologram camera that cost a whopping 1,500 yen to print one, and she was taking pictures with it while changing the background.</p>
 <p>"Will this sell?"</p>
 <p>"I'll take responsibility for whether it sells or not, so don't worry about anything."</p>
@@ -61,7 +61,7 @@ chapter = 566
 <p>If I took pictures of things that would remain as memories like this, my favorability would increase while looking at the pictures, but Seizawa Shii stepped in as if she knew I was feeling sorry at that time.</p>
 <p>"Everyone else has taken pictures, so Risa-ttan should take a picture with Ryuta-zzi too. The scenery here is good, so it'll look good together!"</p>
 <p>Seizawa Shii was the best as expected. Minamoto Risa stood next to me as if she couldn't beat Seizawa Shii's words.</p>
-<p>"Aww~! Get a little more lovey-dovey~☆"</p>
+<p>"Aww! Get a little more lovey-dovey☆"</p>
 <p>Minamoto Risa, who was awkwardly standing a little apart, stuck to me a little as if she couldn't help it at Seizawa Shii's words. When Minamoto Risa got close, I smelled Minamoto Risa's unique scent like cherry blossoms.</p>
 <p>"Are you taking it? One, two, three!"</p>
 <p>With Seizawa Shii's words, the sound of click, click, click was heard and the picture was taken. As soon as the picture was taken, Minamoto Risa quickly got away from me, but her cheeks were slightly red, so it seemed like she was embarrassed.</p>
@@ -72,9 +72,9 @@ chapter = 566
 <p>"Ah! Let's take a group photo of us too, then! What do you think, Ryuta-zzi?"</p>
 <p>"We can take a lot of those on the school trip. There are some students who didn't come to the club today."</p>
 <p>It was the day before the graduation trip, so there were many kids who skipped club activities because they had things to buy. So it was impossible to take a class photo.</p>
-<p>"Still, let's take it today and finish it~! I'm going to take a picture with me, Risa-ttan, and Ryuta-zzi, so you can gather a few more people and take pictures."</p>
+<p>"Still, let's take it today and finish it! I'm going to take a picture with me, Risa-ttan, and Ryuta-zzi, so you can gather a few more people and take pictures."</p>
 <p>Seizawa Shii seemed to want to take a picture with Minamoto Risa and me. I nodded as if I couldn't help it. Otagi Yuka, Sakagami Rena, and Saionji Diana, who participated in the club activities today, also seemed to want to take pictures with me separately. For reference, these three don't have family support, so they decided to shop with me for the graduation trip, so they were waiting until the club was over.</p>
 <p>In the end, I became like a life-size standee for taking pictures with a few students and had to spend some time.</p>
 <p>________</p>
 <p>Seizawa Shii new model practice.</p>
-<p>Heuheung...! I like white gyaru~!!</p>
+<p>Heuheung...! I like white gyaru!!</p>

@@ -27,7 +27,7 @@ chapter = 1091
 <p>"My children are also in Japan, but please strengthen their Security."</p>
 <p>"Yes, Kokoro-nim. I will implement it immediately."</p>
 <p>Taira Kokoro was convinced that with Taira Kitsumasa's Death, the successor competition, which had been quiet since Taira Saburo's After Death, would truly begin again. Therefore, since her own children could die at any time, she asked her buha to strengthen their Security.</p>
-<p>"Sigh~! Children are Luggage...! Kanna must be comfortable without Luggage."</p>
+<p>"Sigh! Children are Luggage...! Kanna must be comfortable without Luggage."</p>
 <p>As her buha left the office, Taira Kokoro sighed and grumbled, envying Taira Kanna, who was unmarried and had no children. Regardless of loving her children, neither of her two children pleased Taira Kokoro's Mind.</p>
 <p>Her capable First Child, Taira Kisa, had left the Taira Group to pursue her own Business, so she was no Help to Taira Kokoro, and her second child, Taira Akio, was an Idler who just went around taking Photos with his Parents' Money. In the end, it meant neither was helpful.</p>
 <p>Taira Kokoro felt a little disappointed that her children seemed to have no particular thoughts while their Mother was fiercely waging a Successor War.</p>
@@ -44,7 +44,7 @@ chapter = 1091
 <p>"Oh, it was fun. Since we signed the contract today, when can we eat Mars Burgers in Japan?"</p>
 <p>Naruse Shiyo, who had become a Half-Dragon and gained a slight gluttonous Attribute, spoke with an Expression full of Expectation. Even though a rough contract was made today, there were still things to do among the working-level staff and Points to establish, so it would take quite some time for Mars Burgers to arrive in Japan. And since the first Mars Burger Point is in Pasadena, if she wanted to eat it, she shouldn't wait for it to appear in Japan, but eat it now.</p>
 <p>"Rather than waiting until then, shall we get some to go on the way back today?"</p>
-<p>"Sounds good~!"</p>
+<p>"Sounds good!"</p>
 <p>Naruse Shiyo was excited because her Work was done and she would get to eat the Mars Burger she wanted, while Maya Reed was quiet.</p>
 <p>Perhaps it was because of that Incident at Divinity Health Sports Park, among the stories Vivian Taylor and I shared today. Vivian Taylor survived, but all of Maya Reed's family died in that Accident, so her Mood seemed complicated. Hearing that Story so suddenly, without Preparation, must have made her feel unsettled.</p>
 <p>I couldn't possibly Guess how Maya Reed, who had lost her entire family, felt, so I thought it might be better to quietly observe rather than rashly offer Comfort with Words, and ended my Comfort by gently patting her Shoulder.</p>
@@ -54,7 +54,7 @@ chapter = 1091
 <p>"...Thank you, Boss."</p>
 <p>Accepting the milkshake I offered with a greeting of thanks, Maya Reed drank it with a straw, then murmured, "It's delicious," and gave a slight Smile.</p>
 <p>"What about me, Teacher-nim?!"</p>
-<p>"Here it is~!"</p>
+<p>"Here it is!"</p>
 <p>Of course, I also ordered milkshakes for Naruse Shiyo and myself. When I offered the milkshake, Naruse Shiyo quickly took it and Sucked it so hard that it made a jjok-jjok sound. If she ate that fast...</p>
 <p>"Ah! My Head hurts, Teacher-nim...."</p>
 <p>Of course her Head would hurt. Maya Reed and I both laughed at Naruse Shiyo, who was clutching her Temple. Naruse Shiyo must have done it on purpose, to make her new friend in America laugh.</p>
@@ -72,13 +72,13 @@ chapter = 1091
 <p>"Come in."</p>
 <p>Kkii-iik...!</p>
 <p>At my Words to come in, the Door opened, and I looked to see Maya Reed, wearing a sheer babydoll, gazing at me with a flushed Face.</p>
-<p>Kokoro B-cut~!</p>
+<p>Kokoro B-cut!</p>
 <p>At first, I used plain, basic Stockings, but then I suddenly wanted to add a pattern....</p>
 <p>I tried adding it a bit excessively, hehe.</p>
-<p>Maya Reed B-cut~!</p>
+<p>Maya Reed B-cut!</p>
 <p>Hmm... it's probably better if her breasts are sheer rather than not sheer, right?</p>
 <p>So I made a new one, hehe.</p>
 <p>Requested by TheDreaming-nim: Vivian Taylor 1. Walking topless, wearing only a Coat 2. Running naked body, wearing only a Coat</p>
 <p>1.</p>
 <p>2.</p>
-<p>Kkyut~!</p>
+<p>Kkyut!</p>

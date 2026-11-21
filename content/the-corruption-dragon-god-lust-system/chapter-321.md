@@ -5,9 +5,9 @@ weight = 321
 chapter = 321
 +++
 
-<p>“Oghnn~~ Heavens~~ G-ggentler, Hubby… g-gentler!- aghnn~~”</p>
+<p>“Oghnn Heavens G-ggentler, Hubby… g-gentler!- aghnn”</p>
 
-<p>“Oghnn~~ nghnn~~ N-no… faster~~ fuck! faster~~ Aghn~~”</p>
+<p>“Oghnn nghnn N-no… faster fuck! faster Aghn”</p>
 
 <p>Margaret and Meilin’s obscene moans echoed together, mixing with the loud slaps as Qingyi moved his hips, fucking both of those fat, tight pussies at the same time.</p>
 
@@ -21,7 +21,7 @@ chapter = 321
 
 <p>At the same time, he came, spilling his seed into the valley between their slim bellies, a spurt even reaching where their breasts were firmly pressed together.</p>
 
-<p>“Angh~~” Meilin gave a high-pitched squeal as Qingyi slapped her ass, gripping it tightly as he pulled back, taking one last spurt right into their pussies, the hot, viscous liquid slowly oozing out.</p>
+<p>“Angh” Meilin gave a high-pitched squeal as Qingyi slapped her ass, gripping it tightly as he pulled back, taking one last spurt right into their pussies, the hot, viscous liquid slowly oozing out.</p>
 
 <p>The beauties continued panting in that position for another brief moment before Meilin found the strength to turn around, still firmly embraced by Margareth, their curvaceous bodies intertwined.</p>
 

@@ -35,7 +35,7 @@ chapter = 545
 
 <p>The heavenly demon could come at will; he was sure he was ready to crush it like an ant.</p>
 
-<p>“Hm~~” Feiyan purred softly.</p>
+<p>“Hm” Feiyan purred softly.</p>
 
 <p>With a smooth movement, she turned to Qingyi’s front, nestling the plump, soft, perfect cheeks of her ass into his lap.</p>
 
@@ -49,7 +49,7 @@ chapter = 545
 
 <p>“Mm…” Feiyan seemed to think for a moment, her red lips curving into a big smile.</p>
 
-<p>“Hubby is truly the best, fufufu~~” She planted a kiss on Qingyi’s lips and then stood up, leaving the water.</p>
+<p>“Hubby is truly the best, fufufu” She planted a kiss on Qingyi’s lips and then stood up, leaving the water.</p>
 
 <p>“Also, I have some pills to show you tomorrow, I made some good discoveries.” With a giggle, she left, leaving Qingyi behind.</p>
 

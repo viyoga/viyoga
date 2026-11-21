@@ -27,7 +27,7 @@ chapter = 118
 
 <p>“That technique was really impressive…” Qingyi commented as he grabbed Yunfei’s hips, his hands going up to one of her huge breasts and squeezing firmly.</p>
 
-<p>“mmnhm~~ thank you husband… I’ve dedicated my whole life to training it, I’ll teach it to the girls once they reach the foundation realm,” Yunfei moaned softly, both their eyes focused on the beast’s decapitated body.</p>
+<p>“mmnhm thank you husband… I’ve dedicated my whole life to training it, I’ll teach it to the girls once they reach the foundation realm,” Yunfei moaned softly, both their eyes focused on the beast’s decapitated body.</p>
 
 <p>That corpse was probably worth a fortune, but they simply had no way of transporting it.</p>
 

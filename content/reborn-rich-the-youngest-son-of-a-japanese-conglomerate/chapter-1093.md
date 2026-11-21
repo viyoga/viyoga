@@ -44,7 +44,7 @@ chapter = 1093
 <p>"Now, I'm going to put it in."</p>
 <p>"Nehee...♥ Boss and I are becoming one now, aren't we?"</p>
 <p>"Becoming one," she said, with that strange gaze again. She seemed surprisingly dependent. Just by looking at her, I would have thought she'd become an independent and intellectual lawyer. Instead of answering, I nodded and slowly pushed my cock inside.</p>
-<p>"Eugeueuht...! Down there, heueut! Boss's haaueeut~! Big cock, ooh...! It's widening, ooht...! It's being stretched, eeeheong♥"</p>
+<p>"Eugeueuht...! Down there, heueut! Boss's haaueeut! Big cock, ooh...! It's widening, ooht...! It's being stretched, eeeheong♥"</p>
 <p>Maya Reed's virgin pussy was widening to its limit, accepting my cock. The pressure seemed considerable, as Maya Reed tried to close her legs, but I was holding her legs, so she couldn't achieve her purpose.</p>
 <p>Kkuuk...!</p>
 <p>My cock was blocked by something like a wall. It was her hymen. Earlier, she had become so skilled at fellatio so quickly that I wondered if she wasn't a virgin, but it seemed she was simply a sex genius who learned sex skills quickly.</p>
@@ -79,9 +79,9 @@ chapter = 1093
 <p>At my words, Maya Reed's eyes widened, and she began to panic. Ignoring Maya Reed's panicked expression, I began to thrust my hips.</p>
 <p>"Boss...! I'm already yours...! So! Stooooop! Haaaaaang♥"</p>
 <p>Maya Reed couldn't finish her sentence and could only moan. Thus, within hours of losing her virginity, Maya Reed's intimate experiences surpassed double digits.</p>
-<p>Today's B-cuts~!</p>
+<p>Today's B-cuts!</p>
 <p>Requested by Gojoy-nim: Chapter 53 Remake Chieri, Suzuki Chisami</p>
-<p>Worried Chieri~!</p>
+<p>Worried Chieri!</p>
 <p>Suzuki Chisami</p>
 <p>Requested by TheDreaming-nim: Lara Sinclair 1. See-Through Shirt 2. Bike Riding</p>
 <p>1.</p>

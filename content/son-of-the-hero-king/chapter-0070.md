@@ -5,7 +5,7 @@ weight = 70
 chapter = 70
 +++
 
-<p>"Heh~ So she said that? Well, it was about time."</p>
+<p>"Heh So she said that? Well, it was about time."</p>
 <p>Sol and Lilith were currently seated under the shade of a tree in the hanging garden.</p>
 <p>No matter how many times he observed this garden, Sol never ceased to be amazed by the beauty of it. From what he knew, it was Persephone, the witch of life who created it herself.</p>
 <p>It was incredibly ironic how most of the greatest and most beautiful things belonging to this kingdom were obtained thanks to the witches who were so hated.</p>
@@ -39,10 +39,10 @@ chapter = 70
 <p>Smiling at him, Edea took two steps before Sol immediately reached her and pulled her in a tight hug.</p>
 <p>Lilith, who was still seated, gave a frosty glare at Edea.</p>
 <p>"I am happy that you finally broke your binding. But what do you mean by that? Know that my respect for you does not mean I will allow being insulted."</p>
-<p>"Hehe~ She is angry."</p>
+<p>"Hehe She is angry."</p>
 <p>Freya floated a few centimeters before reclining in the air as if she was sitting on a chair.</p>
 <p>Meanwhile, Edea who had her hair ruffled and her breath out of order pushed Sol before facing Lilith.</p>
-<p>"Oh please~. I thought I was bad, but you take the whole cake. At least I didn't play the hypocrite."</p>
+<p>"Oh please. I thought I was bad, but you take the whole cake. At least I didn't play the hypocrite."</p>
 <p>"Hypocrite?"</p>
 <p>Lilith rose to her full height as she walked toward Edea. She was a head taller than her and her curves were undoubtedly way superior.</p>
 <p>Raising her head a little, Edea continued, "Indeed. I thought I was rather bad in terms of personality and was too negative, but you take the crown. Never saw anyone like that."</p>

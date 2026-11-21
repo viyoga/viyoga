@@ -55,7 +55,7 @@ chapter = 78
 <p>"Green Fairy Wine. That will be its name. Once you’ve finished bottling everything, bring it all to my warehouse at the Lord’s mansion. You may set aside a single bottle for yourself and your family."</p>
 <p>"As you wish, my lord." John nodded, turning his attention back to his work.</p>
 <p>Evelyn stood beside Ethan, momentarily confused by his reaction, but that confusion vanished the instant the wine touched her lips.</p>
-<p>"Ah~~"</p>
+<p>"Ah"</p>
 <p>She pulled the bottle away slowly, a single drop of green wine escaping the corner of her mouth and landing on her luscious tits, trickling down her tanned, creamy skin in a thin, glistening trail.</p>
 <p>"Did you like it?" Ethan smiled.</p>
 <p>Making sure John wasn’t looking, he leaned in close, his tongue tracing the path of that small drop, lips pressing lightly against the soft, warm mound of her breast as he lapped it clean.</p>

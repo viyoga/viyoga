@@ -51,7 +51,7 @@ chapter = 100
 <p>,I never washed them.</p>
 <p>-That's just a figure of speech. So where are we going to have dinner?</p>
 <p>,I'll take care of the restaurant reservation.</p>
-<p>-Okay, then see you on Sunday~.</p>
+<p>-Okay, then see you on Sunday.</p>
 <p>As expected, the phone call with Jinmija-ssi (Ms.) ends quickly. Maybe it was because of this dry coolness that my father, Taira Saburo, met and broke up with her for a while.</p>
 <p>I felt sorry for not being able to go often recently, and I also felt sorry for forgetting her birthday until Kiyohira mentioned it, so I decided to book a high-end restaurant. The guys who are coming as friends are both athletes, so I should go to a meat restaurant. It's been a while since they've missed the Korean food they used to eat at our house, so I decided on a high-end Korean BBQ restaurant. I called and reserved a room for four and sent the location to Kiyohira, Kazuhiro, and Jinmija Yeosa (Madam) via LINE.</p>
 <p>I'm meeting a few people from the 74th group in Tokyo on Saturday, so I'll buy a present then. I have something else to do now. I opened the door and went down the stairs. When I went down to the first floor, Yukiko was waiting for me naked on the sofa.</p>

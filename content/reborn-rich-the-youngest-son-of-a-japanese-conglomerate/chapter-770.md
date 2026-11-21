@@ -16,7 +16,7 @@ chapter = 770
 <p>Perhaps because the Budō-ame was so delicious, she had eaten several, and it seemed she had already eaten over 1,000 yen worth. Takakusaki Athena crunched, breaking the hardened sugar coating, ate a grape, looked at the Shop Owner, and opened her mouth.</p>
 <p>"What are the Garapon prizes?"</p>
 <p>"Many. Among the Victory Prizes, there's even a car.... The most common one is just one more Budō-ame as a participation prize, but...."</p>
-<p>"I'll do it~!"</p>
+<p>"I'll do it!"</p>
 <p>At the mention that one more Budō-ame was the most common prize, Takakusaki Athena raised her Hand, saying she'd do it. Because she had eaten it quite deliciously, even if she got one more Budō-ame, which could be considered a dud, it was still quite a gain. The Shop Owner smiled at Takakusaki Athena's proactive Attitude and began to turn the Garapon's Handle.</p>
 <p>Deureureuk Deureureuk.</p>
 <p>With the sound of the orb rolling, an orb popped out of the Garapon. It was a silver orb, and the Shop Owner's Expression upon seeing it was peculiar. It was quite a surprised Expression.</p>
@@ -24,14 +24,14 @@ chapter = 770
 <p>"Second place?"</p>
 <p>At the Shop Owner's Words, Takakusaki Athena looked at the Garapon prize list on one side of the Shop. First place was a light car from Minamoto Motors, and second place was a 2-night Accommodation Voucher for the Shiga Kogen VIP Ski Villa Resort.</p>
 <p>"Oh...!"</p>
-<p>"This Agassi here won second place in our Shop's Garapon~!"</p>
+<p>"This Agassi here won second place in our Shop's Garapon!"</p>
 <p>Perhaps intending to heavily promote it to the surrounding Tourists now that Takakusaki Athena had won second place, he began to loudly announce Takakusaki Athena's second-place win.</p>
 <p>Naturally, Tourists flocked at the Shop Owner's shout, and Takakusaki Athena was a little flustered, but still smiled and received the 2-night Accommodation Voucher for the Shiga Kogen VIP Ski Villa Resort.</p>
 <p>As Takakusaki Athena received the Accommodation Voucher, feeling like an award ceremony, the surrounding people clapped loudly, Jjakjjakjjak!</p>
 <p>"There's a Ski Resort, and hot springs nearby, so you'll be able to enjoy it quite a bit."</p>
-<p>"Congratulations~!"</p>
+<p>"Congratulations!"</p>
 <p>"I'm jealous!"</p>
-<p>Receiving the Shop Owner's words of blessing and the congratulations of the surrounding Tourists, Takakusaki Athena, in a daze, put the Accommodation Voucher in her pocket and left the spot. When the Shop Owner shouted from behind, "First prize hasn't come out yet~!", the gathered Tourists began to buy various snacks displayed on the counter and grape Products inside the Shop.</p>
+<p>Receiving the Shop Owner's words of blessing and the congratulations of the surrounding Tourists, Takakusaki Athena, in a daze, put the Accommodation Voucher in her pocket and left the spot. When the Shop Owner shouted from behind, "First prize hasn't come out yet!", the gathered Tourists began to buy various snacks displayed on the counter and grape Products inside the Shop.</p>
 <p>"That mister is good at business...."</p>
 <p>Takakusaki Athena muttered, looking at the Shop that had suddenly become bustling with Tourists. Then she took out the Accommodation Voucher from her pocket again.</p>
 <p>It was a rather flashy name, Shiga Kogen VIP Ski Villa Resort, but Takakusaki Athena didn't have much Expectation. She thought that an Accommodation Voucher obtained from a Shop like this wouldn't be particularly high-class. Still, since she had gotten it as a prize, she was thinking of staying there once.</p>
@@ -65,14 +65,14 @@ chapter = 770
 <p>"Hmph...! Do you think I would lose to Takakusaki Gengo's adopted Daughter? You, who lost the Abyss, don't need to protect me."</p>
 <p>I had also told Fujigasaki Rinka about Takakusaki Athena's white Aura, which was the antithesis of an Abyss owner, but perhaps because Sabu was so strong, she seemed to have let my Words go in one Sensitive Ear and out the other.</p>
 <p>"Losing the Abyss doesn't mean losing everything; I've gained the Ability to use other powers."</p>
-<p>"You Guy! You've finally revealed your True Identity~! Have you become a traitor to the school?"</p>
+<p>"You Guy! You've finally revealed your True Identity! Have you become a traitor to the school?"</p>
 <p>Actually, Shinkaiyatsude had no restrictions on learning other Martial Arts, so I was not a traitor to the school. Shinkaiyatsude's rule was just one: single-heir transmission. Without complicated rules, the only rule was to pass it on to only one person per generation.</p>
 <p>Of course, although I, who received Shinkaiyatsude in this generation, lost the Abyss, it doesn't mean I violated the school's Law.</p>
 <p>"I also regret the Martial Arts I trained in for so long...."</p>
 <p>"Alright. I'll pick a date and come to Test your new Fist Technique, so don't lose your focus."</p>
 <p>Fujigasaki Rinka is coming to Test me.... I'll have to train hard. Given Fujigasaki Rinka's Personality, if she wasn't satisfied, she would clearly go all the way to Lizhael to Protest.</p>
 <p>"And don't be too careless. I told you, she just stood next to me without even fighting, and I coughed up Blood."</p>
-<p>"Yeah~ that's because you're weak. I'm not Takakusaki Gengo, and I have no Intention of losing to a mere girl who's only trained in Martial Arts for 10 years."</p>
+<p>"Yeah that's because you're weak. I'm not Takakusaki Gengo, and I have no Intention of losing to a mere girl who's only trained in Martial Arts for 10 years."</p>
 <p>Even if she says this, I've emphasized it several times, so she won't be careless. Because Sabu knows she's strong, but also knows how to escape if things are unfavorable.</p>
 <p>"Before I hang up, I'll say one Word: I have no Intention of Expulsion you and taking on a new Disciple."</p>
 <p>Even if she took on a new Disciple, to uphold the principle of single-heir transmission, she would eventually have to Expulsion me, but judging by Fujigasaki Rinka's resolute Way of Speaking, she seemed to have no such thought at all.</p>
@@ -103,13 +103,13 @@ chapter = 770
 <p>From Minamoto Risa, who said, "I'll take care of everything, so don't worry about trivial things and just enjoy yourself," I felt the aura of a true Woman. How cool....</p>
 <p>Then, as Minamoto Risa said, from today, the departure day, until we return on Sunday, I should just enjoy myself without worrying about anything else.</p>
 <p>"As I said yesterday, did you pack your Luggage in advance?"</p>
-<p>"Of course, Ryuta-jji~!"</p>
-<p>"I brought it, Teacher-nim~!"</p>
+<p>"Of course, Ryuta-jji!"</p>
+<p>"I brought it, Teacher-nim!"</p>
 <p>Yesterday, during the closing assembly, we were told to pack our Luggage in advance, and this morning, during the morning assembly time, students who hadn't brought their Luggage were told to contact Home and bring it, so no Student had forgotten their Luggage.</p>
 <p>I also packed quite a bit of Luggage, including a change of Clothes and meat I had bought in advance for the barbecue schedule on the second day, and put them in the refrigerators of the Education Preparation Room and the club room.</p>
 <p>"Then, everyone, pack your own Luggage, and Teacher-nim will pack the meat from the refrigerator and go, so wait in front of the special class building."</p>
 <p>"I'll help too!"</p>
-<p>"I'll help too, Teacher-nim~!"</p>
+<p>"I'll help too, Teacher-nim!"</p>
 <p>"Ryuta, I can carry meat too...!"</p>
 <p>I took the Students who offered to help to the Education Preparation Room and had them take out the meat from the refrigerator and put it into a rechargeable ice box. In the meantime, I quickly went up to the club room and brought down two vacuum-packed 5-kilogram blocks of raw pork belly. This much should be enough for everyone to enjoy deliciously.</p>
 <p>"Shall we go now?"</p>
@@ -117,8 +117,8 @@ chapter = 770
 <p>"Since we borrowed the helipad within the school, we can go that way."</p>
 <p>At Minamoto Risa's Words, we headed to the helipad. The special class building was in a secluded place within St. Francis Girls' Academy, so unlike other buildings, the helipad was close. This was because a helipad had been built in the northern Forest of St. Francis Girls' Academy due to noise issues.</p>
 <p>Athena after a long time.</p>
-<p>Cheerleader Eve, Shii, Home Economics Teacher-nim requested by Albori-nim~!</p>
-<p>Starting with Eve~!</p>
-<p>Shii~!</p>
-<p>Home Economics Teacher-nim~!</p>
+<p>Cheerleader Eve, Shii, Home Economics Teacher-nim requested by Albori-nim!</p>
+<p>Starting with Eve!</p>
+<p>Shii!</p>
+<p>Home Economics Teacher-nim!</p>
 <p>The leather shirt + naked body requested by Hwanbuljeoldae-bulga-nim failed because the leather shirt didn't seem to be 'learned' (by the AI/model), so it didn't appear after several attempts ㅠㅠ Kkiyoot</p>

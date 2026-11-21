@@ -13,7 +13,7 @@ chapter = 1846
 <p>She settled into her stance, and the ceremony burned off her like morning mist.</p>
 <p>"And in case mister primordial has forgotten," she added, leveling the ironwood at him, "we agreed on pure swordsmanship, meaning we will cast no magic, use no items, or employ any other tricks. Just us and the blade."</p>
 <p>"I know," Quinlan nodded with a confident smile.</p>
-<p>"Good~"</p>
+<p>"Good"</p>
 <p>He answered the bow with one of his own, his eyes never leaving her, and brought his blade up in the guard she had drilled into him a lifetime of levels ago.</p>
 <p>"I’m ready."</p>
 <p>For three full heartbeats, nobody moved. Snow ticked against the veranda. The brazier popped once.</p>
@@ -21,14 +21,14 @@ chapter = 1846
 <p>*CRACK!*</p>
 <p>Ironwood met ironwood at the height of his throat, and the impact rang through the racks along the walls. He caught the second cut coming off the first, barely, and the third arrived from a direction the second had sworn was empty. He gave ground, once, twice, wood cracking against wood in bursts, and she flowed after him across the floor like water poured downhill.</p>
 <p>"Hoh." The corner of his mouth went up behind his guard. "You’ve become truly fast."</p>
-<p>"Flattery won’t help you now~"</p>
+<p>"Flattery won’t help you now"</p>
 <p>She was everywhere. She fought the way calligraphy looked, every line finished, every stroke already the start of the next one, and her bare feet made no sound at all on her ancestors’ floor. She spun inside his reach, cracked the ironwood across his ribs, and was gone before his counter finished forming, hair combs flashing in the firelight.</p>
 <p>The spin also showed him the whole line of her back, the tuck of her waist, and the flex of her bare ass as it drove the pivot, and his next block arrived a hair late for reasons that had nothing whatsoever to do with her footwork.</p>
-<p>"Focus, my hopeless student~"</p>
+<p>"Focus, my hopeless student"</p>
 <p>"I am. Extremely."</p>
 <p>"On the duel, or my body?"</p>
 <p>"Yes."</p>
-<p>"Hehe~"</p>
+<p>"Hehe"</p>
 <p>*Clack.* *Clack.* *CRACK!*</p>
 <p>He blocked what he could see. The problem was the rest of it.</p>
 <p>’She’s gotten better again,’ he noted, tracking her through a feint that split into two real cuts. He had watched her fight since the days her sword was the only thing standing between a level-one primordial and the labyrinth’s trashiest mobs, and he had believed, more than once, that he knew what to expect from her.</p>
@@ -59,7 +59,7 @@ chapter = 1846
 <p>"Two," Ayame reported, delighted with herself.</p>
 <p>The third she aimed at his hip, and it never landed, because the ironwood was already in the way, crude and exactly on time. He decided where the blade needed to be and put it there half a heartbeat before she needed it not to be, and the impact walked her arms back into her shoulders.</p>
 <p>Her eyes widened a fraction.</p>
-<p>"Hmm~?"</p>
+<p>"Hmm?"</p>
 <p>She reset, circled, and ran the same opening from the mirrored side. He answered it the same way. She tried it a third time with a feint buried in the middle, and he ate the feint and answered the real cut anyway.</p>
 <p>"Tch." Her lower lip pushed out.</p>
 <p>By then he was catching one in four, then one in three, adapting the way he adapted to everything, in the middle of it, without commentary. The guard she had once drilled into a level-one boy in a tunnel was holding together on her ancestors’ floor far past the point where any other guard on this continent would have collapsed into kindling.</p>

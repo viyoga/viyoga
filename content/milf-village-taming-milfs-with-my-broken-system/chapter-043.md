@@ -9,15 +9,15 @@ chapter = 43
 
 <p>&quot;I-it’s... because it’s hot...yes the heat coming from the stove..&quot; she’s lied like a total newbie, at least she tried.</p>
 
-<p>&quot;Is that so? Then I guess I need to stop now~&quot; Owen stopped and gave her a distance...but before he could Pamela bent her ass to trap the thing!</p>
+<p>&quot;Is that so? Then I guess I need to stop now&quot; Owen stopped and gave her a distance...but before he could Pamela bent her ass to trap the thing!</p>
 
 <p>&quot;D-don’t...let’s stay with this for a bit Wen..&quot; It’s finally her time to experience the thing so why would she let that opportunity pass!</p>
 
 <p>’Heh... dismay no jutsu never gets old. I can use it again and again to other MILFS hehe.’</p>
 
-<p>&quot;You are really slut Auntie Pam, saying that obscene thing while you can clearly see your husband’s back, it’s truly beyond the thing I could fantasize ~&quot; he whispered and he stopped his retreats and rubbed them again.</p>
+<p>&quot;You are really slut Auntie Pam, saying that obscene thing while you can clearly see your husband’s back, it’s truly beyond the thing I could fantasize &quot; he whispered and he stopped his retreats and rubbed them again.</p>
 
-<p>&quot;At least Aunt got a still reservation...but you? Hehe, you are a real slut Auntie Pam~&quot; Owen looked at her husband, and after seeing that he was focused on the news...he bit her ears.</p>
+<p>&quot;At least Aunt got a still reservation...but you? Hehe, you are a real slut Auntie Pam&quot; Owen looked at her husband, and after seeing that he was focused on the news...he bit her ears.</p>
 
 <p>Making the scene just over the top!</p>
 
@@ -37,7 +37,7 @@ chapter = 43
 
 <p>The smell of the tomato is already seeping into the kitchen.</p>
 
-<p>&quot;Pam~the water is boiling, it might turn bad if it’s overcooked..&quot; the man said, as he heard that the pot was making a noise, distracting when the last news is now in line.</p>
+<p>&quot;Pamthe water is boiling, it might turn bad if it’s overcooked..&quot; the man said, as he heard that the pot was making a noise, distracting when the last news is now in line.</p>
 
 <p>&quot;Y-yes...I already...ahnn... removed the lid.&quot; She didn’t expect that the pot would make a sound like that when she was covering her mouth.</p>
 
@@ -61,15 +61,15 @@ chapter = 43
 
 <p>&quot; A-ahnn... please stop Wen, I-i think we need to stop for now...&quot; She whispered to him, trying to recover her bearings as she almost squatted.</p>
 
-<p>&quot;Why Aunt~, it’s just the start and we are just cooking nothing more~&quot; he got a golden balls...so what act chicken.</p>
+<p>&quot;Why Aunt, it’s just the start and we are just cooking nothing more&quot; he got a golden balls...so what act chicken.</p>
 
 <p>&quot;I-it’s... getting dangerous..&quot;</p>
 
-<p>&quot;It’s not dangerous Auntie Pam~, we are just preparing to make the sauce... right?&quot;</p>
+<p>&quot;It’s not dangerous Auntie Pam, we are just preparing to make the sauce... right?&quot;</p>
 
 <p>&quot;Ahnn...r-right, still...&quot;</p>
 
-<p>&quot;Don’t say Auntie ~ anymore, we need to make haste now...or Uncle might discover that you are enjoying the dirty little secret while cooking with your daughter’s childhood friend~&quot; Owen grabbed the lid... doing as if nothing happened.</p>
+<p>&quot;Don’t say Auntie  anymore, we need to make haste now...or Uncle might discover that you are enjoying the dirty little secret while cooking with your daughter’s childhood friend&quot; Owen grabbed the lid... doing as if nothing happened.</p>
 
 <p>While Pamela was having a hard and a good decision in her life at the time</p>
 
@@ -79,7 +79,7 @@ chapter = 43
 
 <p>&quot;D-don’t bite me again.., I-i’m sensitive in ears.&quot;</p>
 
-<p>&quot;Hmm okay, just take them slowly and enjoy the feeling Auntie~&quot; Why would he stop when he planned to paint her back with his thick milky white cum.</p>
+<p>&quot;Hmm okay, just take them slowly and enjoy the feeling Auntie&quot; Why would he stop when he planned to paint her back with his thick milky white cum.</p>
 
 <p>Cumming inside her blue shorts is definitely a good heavenly choice.</p>
 
@@ -87,7 +87,7 @@ chapter = 43
 
 <p>Knowledge is a sword, so it’s better to listen...because he only got a twig!</p>
 
-<p>&quot; No buts Auntie, look how your ass is moving as if it wanted more...do you want me to stop when your body is screaming for it~?&quot; Owen rubbed his bulging cock beneath his pants again...</p>
+<p>&quot; No buts Auntie, look how your ass is moving as if it wanted more...do you want me to stop when your body is screaming for it?&quot; Owen rubbed his bulging cock beneath his pants again...</p>
 
 <p>&quot; O-okay...BUT, don’t ever bite me again...okay?&quot;</p>
 
@@ -95,7 +95,7 @@ chapter = 43
 
 <p>Pamela then continued her attempt to remove the outer layer of the tomato.</p>
 
-<p>&quot;Well said Auntie~, now let me help you down here.&quot; Owen moved his hands to her belly, sliding them upwards...to her tits!</p>
+<p>&quot;Well said Auntie, now let me help you down here.&quot; Owen moved his hands to her belly, sliding them upwards...to her tits!</p>
 
 <p>&quot; Ahnn...N-no, my husband is near, my voice might escape this t-time...&quot; She couldn’t take the load anymore.</p>
 

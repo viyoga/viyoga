@@ -20,29 +20,29 @@ chapter = 650
 <p>Caius pushed himself back and stumbled away right as Athenodora's claws went swiping at his neck.</p>
 <p>Instantly, Caius got to his feet to put even more distance between himself and Athenodora but he was slower than she was even though she came at him on all fours.</p>
 <p>Athenodora charged at Caius, a ravenous grin on her face and then she leaped at him, her mouth open wide and her fangs glinting with an intent to rip and tear.</p>
-<p>~Hellsong Stomp~</p>
+<p>Hellsong Stomp</p>
 <p>With a stamp of his foot against the ground, Caius conjured a propulsion of fire at his feet to send him dashing out of Athenodora's range. But he didn't get far as a chain of blood wrapped around his neck and yanked him toward Athenodora who struck her elbow into his chest with so much force that she cracked his sternum.</p>
 <p>*Bang!*</p>
 <p>The strike also sent Caius onto the ground. He winced in pain and then his eyes widened when he saw a spike of blood form above him and strike down toward his heart.</p>
-<p>With ~Hellsong Stomp~ still active, Caius propelled himself out of range of the blood spike. As he got on one knee, he felt his sternum knitting back together as the injury caused by Athenodora's elbow was healed by the Blood Matrix.</p>
+<p>With Hellsong Stomp still active, Caius propelled himself out of range of the blood spike. As he got on one knee, he felt his sternum knitting back together as the injury caused by Athenodora's elbow was healed by the Blood Matrix.</p>
 <p>Caius formed seals and slammed his hand against the ground, causing a spell circle that was crackling with lightning to appear. The spell took the form of a pyramid that sealed around Athenodora once she stepped within range of it.</p>
 <p>With a clenching of both of his hands, Caius caused every lightning streak that formed the pyramid to converge on Athenodora in a violent blast.</p>
-<p>~Shocking Retribution~. A fifth-circle lightning spell of Caius's own creation.</p>
+<p>Shocking Retribution. A fifth-circle lightning spell of Caius's own creation.</p>
 <p>But he didn't expect that to be enough to incapacitate Athenodora which was why he wasn't surprised to see Blood revolving around Athenodora, defending her from the lightning. What he didn't expect however was for the Lightning to not simply be fended off but rather collected to a point.</p>
 <p>It was as though the Blood Athenodora had conjured was conducting the electricity, turning Caius spell from an attack into Athenodora's own arsenal.</p>
-<p>"Fuck!" Caius cursed as he used ~Hellsong Stomp~ to dash to safety. Alas, the lightning struck faster than Caius's movement spell could take him.</p>
+<p>"Fuck!" Caius cursed as he used Hellsong Stomp to dash to safety. Alas, the lightning struck faster than Caius's movement spell could take him.</p>
 <p>*Crackle!* *BANG!*</p>
 <p>The explosion sent Caius flying but he had avoided getting singed. When he hit the ground, Caius rolled to get on one knee, a spell prepared but right before he cast it, Athenodora grabbed his wrist and forced his hands apart, interrupting his seal forming.</p>
 <p>Caius used her grip on his wrist to lift himself off the ground and kick at Athenodora's face. With her hand still around his wrist, Athenodora sidestepped the kick, wrenching Caius's arm until it broke out of its socket. Where Caius's arm should have been connected to his shoulder, there was just collapsed flesh.</p>
 <p>"Nghh," Caius groaned in pain and then used his hand still being held in Athenodora's grasp as leverage to swing his body so he was facing her and slammed his one still-working hand against her chest.</p>
-<p>~Leeching Touch!~</p>
+<p>Leeching Touch!</p>
 <p>A dark, sickly green spell circle appeared where Caius's hand touched Athenodora's chest, and there was a burst of dark magic in the form of death magic, in the form of necrosis that seeped through the thin material of Athenodora's gown and into her body.</p>
 <p>Athenodora let out a gasp as she felt a portion of her life-force get leeched out of her by Caius's spell. Had she been any weaker, she just might have dropped dead instantly. Even now, the spell seemed to make her curse worse and hastened her eventual death.</p>
 <p>"Impressive," she said and there was a momentary shift in her smile from predatory to amused, "Do you wish to kill me, Caius?"</p>
 <p>"For now, I'm just curious if I can," Caius answered and the sickly dark green spell circle reappeared.</p>
 <p>Athenodora coated her skin with Blood, creating a defense between herself and the spell.</p>
-<p>Alas, ~Leeching Touch~ sapped the life energy within the conjured blood, went through Athenodora's clothing again, and into her body where it leeched another piece of her life-force.</p>
-<p>"As Conscience said, blood is life," Caius said with a smile and cast ~Leeching Touch~ a Third time.</p>
+<p>Alas, Leeching Touch sapped the life energy within the conjured blood, went through Athenodora's clothing again, and into her body where it leeched another piece of her life-force.</p>
+<p>"As Conscience said, blood is life," Caius said with a smile and cast Leeching Touch a Third time.</p>
 <p>This time though, Athenodora smacked his hand off her chest. She also pushed him away, causing him to stumble. As Caius tried to regain his balance, a spike conjured with blood stabbed him in the midsection.</p>
 <p>The blood that made up the spike flaked into Caius's body, contaminating his own blood until…</p>
 <p>*BANG!*</p>
@@ -63,7 +63,7 @@ chapter = 650
 <p>"You're overconfident," Athenodora said, "Not once did you think to beg me to stop and see reason.</p>
 <p>All because of the Blood Matrix.</p>
 <p>You think as long as you can heal, you'll outlast me anyway."</p>
-<p>"Yes," Caius said calmly, "You're already drawing from your Blood reservoir. Eventually, you'll have nothing to draw on. A few more ~Leeching Touch~ attacks and you'll have even less."</p>
+<p>"Yes," Caius said calmly, "You're already drawing from your Blood reservoir. Eventually, you'll have nothing to draw on. A few more Leeching Touch attacks and you'll have even less."</p>
 <p>"But your blood can replenish me," Athenodora said.</p>
 <p>"But it won't cure you," Caius said, "Not unless I want to. We can fight for years, you ripping off body parts and me healing from it all. Eventually, that curse will kill you. And I'll live on."</p>
 <p>Athenodora smirked and twisted her hand in the hole, causing Caius to groan in pain.</p>

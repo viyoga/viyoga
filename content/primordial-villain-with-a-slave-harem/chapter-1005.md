@@ -5,13 +5,13 @@ weight = 1005
 chapter = 1005
 +++
 
-<p>"She is. No wonder you turned into such a fine young lady, Miss Selendra~" Vex spoke up with a sly smile. If anyone knew the woman, they’d instantly be able to tell she thought of the pair as beyond trash. A pile of stinking shit she unfortunately encountered while out on a stroll with her hubby.</p>
+<p>"She is. No wonder you turned into such a fine young lady, Miss Selendra" Vex spoke up with a sly smile. If anyone knew the woman, they’d instantly be able to tell she thought of the pair as beyond trash. A pile of stinking shit she unfortunately encountered while out on a stroll with her hubby.</p>
 <p>Selendra might’ve been many things, but being socially inept wasn’t one. She knew how to pick up on obvious clues when it came to social interactions. This was one of the only skills she properly polished in her life.</p>
 <p>As such, her bright smile grew cold hearing Vex’s statement.</p>
 <p>&lt;Oh. I made a mistake... Sorry, everyone...&gt;</p>
 <p>Vex muttered into everyone’s minds.</p>
 <p>&lt;To think it was going to be the wrinkly hag who can’t behave properly and not the literal teenage girl in our midst... Vexie’s no longer amongst her Consortium buddies, where she’s one of the big dogs who can say and do more or less whatever she wants. Hmph.&gt; Kitsara shook her head with a strong hint of disapproval. Then caught herself. Cold sweat instantly emerged all over her body as her single tail froze. &lt;W-wait, I think I accidentally included Vexie in the recipients of my words...&gt;</p>
-<p>&lt;You did~&gt; A sing-song voice came from the Hexwitch, though none of the usual playfulness could be heard this time around.</p>
+<p>&lt;You did&gt; A sing-song voice came from the Hexwitch, though none of the usual playfulness could be heard this time around.</p>
 <p>Kitsara immediately moved behind Quinlan and, as a result, Yoruha as well, placing the only two people who could possibly contain the woman if she were to decide to retaliate.</p>
 <p>&lt;... Running instead of owning your actions, huh?&gt; Vex sighed before deciding to have a lengthy talk with the foxkin at a later date. Now was not the time. However, she did add one more thing.</p>
 <p>&lt;And technically, I’m not the oldest in the harem anymore... Serika should have a couple of years on me.&gt;</p>

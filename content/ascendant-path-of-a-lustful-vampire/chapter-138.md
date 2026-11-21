@@ -21,7 +21,7 @@ chapter = 138
 <p>"It’ll be fine," Caius said and released her hand. Now that he had thrown the first blow, the duel had begun and she had to step aside.</p>
 <p>Arlette opened her mouth and then bit her lower lip as she walked away, standing a few feet away from the large U-shaped desk. She felt the eyes of the Vampire Coven Council follow her as she moved. Now that she was no longer in contact with Caius’s body, they could conceive the thoughts of attacking her again but the vow that had been made bound them not to touch her. At least until after the duel was over.</p>
 <p>Kerwin seethed that Caius had dared to have a conversation after striking at him and he thrust a hand forward to cast a spell but, try as he might, his brain could not comprehend the spell circle of the spell he wished to cast.</p>
-<p>~Hellsong Dash~</p>
+<p>Hellsong Dash</p>
 <p>A second after he released Arlette’s hand, a spell circle appeared around Caius’s ankles before fire blazed from his feet and boosted him forward so he could vault over the desk. He got about four feet in the air and came down at Kerwin from above.</p>
 <p>Momentarily giving up on his attempts at casting an attacking spell, Kerwin sidestepped so Caius’s fist missed. The fist would have struck the wall but Caius stopped just in time like he had expected the evasion and spun around to smack the Coven Head with a vicious backhand.</p>
 <p>So soon after a dodge, Kerwin couldn’t make another. He tried to cast a movement spell and once again found that he couldn’t. He soon realized the reason.</p>
@@ -29,12 +29,12 @@ chapter = 138
 <p>While he was facing this conundrum, Caius’s back fist struck his face.</p>
 <p>*BAM!*</p>
 <p>The sound was loud. The impact was just as powerful as Kerwin went spinning and when he stopped moving, he saw a spell circle in front of the hand Caius thrust out at his face.</p>
-<p>~Fireball ~</p>
+<p>Fireball </p>
 <p>A ball of flame blasted out.</p>
 <p>Looking almost panicked, Kerwin finally brought a spell to mind and the moment he confirmed it was something he could cast, he thrust his hand out and erected a shield.</p>
 <p>Caius barely even saw the element of the spell before his fireball was already breaking through it. The speed of the fireball was reduced though and Kerwin used the time his barely effective spell circle had bought him, to lean to the side and avoid the flames.</p>
 <p>But then, right as the fire blazed past the side of his face, Caius’s leg was swinging at him. A bright red spell circle was around Caius’s ankle as fire blazed from his feet.</p>
-<p>He had cast ~Hellsong Dash~ just to grant his leg a boost in speed and power.</p>
+<p>He had cast Hellsong Dash just to grant his leg a boost in speed and power.</p>
 <p>*BAM!*</p>
 <p>It was the most impactful strike yet as Kerwin’s head was turned hard to the side and spittle mixed with his blood spewed from his mouth. He was knocked for his feet and soared so far that he flew over the surface of the U-shaped desk and landed in the large space between it.</p>
 <p>The Council members all winced and some even twitched like they were on the verge of moving and acting to assist their creator. But bound by the vow, they could do nothing but watch.</p>
@@ -48,7 +48,7 @@ chapter = 138
 <p>Mages have impeccable memory. Vampires, even more so. But it’s hard to recollect all that when you’ve always been about looking ahead.</p>
 <p>All his life, Kerwin had been about looking forward. Every circle he broke through, he was ready to leave far behind. The third Circle was after all, a long way from his ultimate goal of the Twelfth Circle. A goal he had yet to achieve in centuries of Vampiric immortality.</p>
 <p>But we digress.</p>
-<p>For a moment, Kerwin’s ears heard nothing but the rushing of blood in his own head. He completely shut himself off from anything that could distract him. And that included an attack coming at him from above by Caius who had used ~Hellsong Dash~ to get high up in the air again.</p>
+<p>For a moment, Kerwin’s ears heard nothing but the rushing of blood in his own head. He completely shut himself off from anything that could distract him. And that included an attack coming at him from above by Caius who had used Hellsong Dash to get high up in the air again.</p>
 <p>’Alright then,’ Kerwin told himself.</p>
 <p>He finally had it. He disliked having to dip back into that time of his life but it came back to him as naturally as anything. He finally adjusted to his current Magical and Physical levels.</p>
 <p>He raised his head and a spell circle appeared. A circular shield made of water absorbed Caius’s attack and rather than burst into nothing, it changed shape. Becoming a tendril that wrapped around Caius’s arm to pull him close so Kerwin could deliver a clothesline to his jaw.</p>

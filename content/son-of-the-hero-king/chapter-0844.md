@@ -11,7 +11,7 @@ chapter = 844
 <p>This made her want to tear her hair out of frustration and scream at Fate.</p>
 <p>"Your face is full of grievance; I am sure you must think this is incredibly unfair to you, and I mean, I understand. I really do. It must feel shitty being so restrained while getting beaten up by a bunch of mortals that you think of even less than ants."</p>
 <p>She glared at him, wishing nothing more than to punch his smug face, cockily mocking him right now.</p>
-<p>"But you know what is funny? Limited you might be, but do not forget that you are facing nothing more than a Demigod, a False Demigod, and a King… and yet you are struggling? Complaining about unfairness? Pfft~! Hahaha!"</p>
+<p>"But you know what is funny? Limited you might be, but do not forget that you are facing nothing more than a Demigod, a False Demigod, and a King… and yet you are struggling? Complaining about unfairness? Pfft! Hahaha!"</p>
 <p>He gave her a look swimming with mockery and utter derision. "How pathetic."</p>
 <p>Euphoria felt something break inside her, collapse and vanish without a trace. For the first time, she truly felt genuine hatred for someone else. A burning hatred that bubbled from deep within her very core.</p>
 <p>"Fine! If you want to die so badly—"</p>

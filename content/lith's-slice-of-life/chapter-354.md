@@ -91,7 +91,7 @@ Lucy continued to spy on her own brother and said without looking at Alexandra, 
 
 "If you say so…" Alexandra said and got back to looking at Lith through her binoculars. Just as she did…
 
-"Oh my… Darling~..." Alexandra's mouth started drooling as she looked at the shirtless Lith through her binoculars.
+"Oh my… Darling..." Alexandra's mouth started drooling as she looked at the shirtless Lith through her binoculars.
 
 Alexandra ended up completely ignoring the half naked Emilia and her full focus was on Lith.
 

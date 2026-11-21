@@ -77,4 +77,4 @@ chapter = 420
 <p>"I submit..." she decreed with a tender smile adorning her lips. She reached for the fastenings of her infernal armor, letting the bright plating clatter to the earth around her.</p>
 <p>Once her skin was laid bare, Calypso, the Infernal Matriarch, glanced up toward the demon of her dreams, and her long eyelashes fluttered with a mixture of excitement and wonderment. "Claim me as yours..."</p>
 <p>Her pitch increased by a good few octaves as her tender smile transformed, turning shy, happy, and wistful all at once.</p>
-<p>"Husband~"</p>
+<p>"Husband"</p>

@@ -105,7 +105,7 @@ chapter = 945
 
 <p>The ship was amazing, yes, but it still fell short of a true Celestial Emperor. And he had stolen enough resources to finance the birth of dozens of Celestial Emperors.</p>
 
-<p>"Fufufu~, don’t worry about the price, dear." Ziyue covered her lips with her fingers, letting out a sweet, feminine, and elegant laugh. "I owe Tianjin and little Yuehan’s father many favors. I could never charge them for something like this."</p>
+<p>"Fufufu, don’t worry about the price, dear." Ziyue covered her lips with her fingers, letting out a sweet, feminine, and elegant laugh. "I owe Tianjin and little Yuehan’s father many favors. I could never charge them for something like this."</p>
 
 <p>She pushed away from the console and walked toward the pilot’s seat,.</p>
 

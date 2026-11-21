@@ -55,7 +55,7 @@ chapter = 802
 
 <p>The next moment, her expression filled with amusement, as if she’d just discovered a particularly good joke.</p>
 
-<p>"Oh... this is a memory! Fufufu~" She spoke as though realizing this was nothing more than a memory were the most natural thing in the world, covering her mouth with her hand in an elegant gesture.</p>
+<p>"Oh... this is a memory! Fufufu" She spoke as though realizing this was nothing more than a memory were the most natural thing in the world, covering her mouth with her hand in an elegant gesture.</p>
 
 <p>"Are you fragments of Yuelan and Wujin’s will? How can you have the ability to act even within a memory?" he asked, genuine curiosity coloring his voice.</p>
 

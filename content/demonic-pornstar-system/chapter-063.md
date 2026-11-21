@@ -5,7 +5,7 @@ weight = 63
 chapter = 63
 +++
 
-<p>"Nhhng~! So good!" Nyx moaned as the first mini-orgasm hit her body. Instead of resting, however, she began fervently bobbing her voluptuous butt up and down his length.</p>
+<p>"Nhhng! So good!" Nyx moaned as the first mini-orgasm hit her body. Instead of resting, however, she began fervently bobbing her voluptuous butt up and down his length.</p>
 <p>The lewd noises of her kitten's moist sliding, her loud, sensual moaning, and her strained grunting due to the effort her thighs had to exert to bounce on his cock created the most obscene symphony imaginable.</p>
 <p>The way Nyx's plump breasts jiggled even while they were quipped in his hands was a sight Kaiden never thought he would get to see or that such a wonderful image was possible to achieve in the first place.</p>
 <p>Kaiden loved every second of their intimate play, but he suddenly felt a very strong need to see her butt jiggling as well. "I wish to see thy alluring behind in its full glory as the fertile womb receives the seed."</p>

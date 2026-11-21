@@ -7,7 +7,7 @@ chapter = 192
 
 <p>There are illustrations of swimsuits. Please be mindful of your surroundings while viewing!</p>
 <p>After taking the Kurotsukido remnants as prisoners, I took off the pants of a fallen DTMS soldier and put them on. Hmm.... It's a bit tight in the middle. It was quite uncomfortable because it was a form-fitting combat suit.</p>
-<p>"Investor-nim~!"</p>
+<p>"Investor-nim!"</p>
 <p>Before I knew it, a Seryu Group transport vehicle was parked at the school entrance, and the Seryu Group people were running towards me. Well, Sawayanagi Azuma had already seen me naked, so she didn't care, but the women blushed when they saw me, and the men looked at me with a mixture of awe and jealousy at my size. Hmm, I'm getting a little cocky without realizing it.</p>
 <p>"Are you okay?"</p>
 <p>"Yes. My cyber suit completely melted, but I wasn't hurt."</p>

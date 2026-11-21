@@ -49,7 +49,7 @@ chapter = 1016
 <p>Yesterday she had been terrified that Envy would force her away from his side.</p>
 <p>Kaiden released the stance. The mineral feed stayed dead.</p>
 <p>"Good shot, my beautiful moon."</p>
-<p>"Thanks~" Aria sang, already forming another lance.</p>
+<p>"Thanks" Aria sang, already forming another lance.</p>
 <p>Kaiden returned to Lust, and the family hit the unarmored boss with his warmth behind them.</p>
 <p>Nyx set Luna beside Calypso. The gremlin sliced through the unarmored forelimb reaching for the demoness, and Calypso answered by hacking through the one coming from the opposite side.</p>
 <p>The last hook lunged between them at Kaiden. Alexandra sealed its point inside a shield, stopping it in front of his face while he severed the arm behind it.</p>

@@ -49,11 +49,11 @@ Lith didn’t join in on their conversation and got busy eating the bowl of biry
 
 Everyone present in the cafeteria paid the utmost attention to what the toppers were doing. Looking at the food they were having, some of them went ahead and ordered the same thing.
 
-“Nyaa~ can you believe it? Lord Ralph is drinking a milkshake hihihihi.” A girl from the Cat Tribe of the beastkins said excitedly and wagged her tail.
+“Nyaa can you believe it? Lord Ralph is drinking a milkshake hihihihi.” A girl from the Cat Tribe of the beastkins said excitedly and wagged her tail.
 
 “What’s there to believe? It’s normal. Can Lord Ralph not even have a milkshake now?” A werewolf girl replied nonchalantly to the catgirl.
 
-“Nyaa~ I wish I was the food on Lord Ralph’s table nyahahahaha.” The catgirl said happily.
+“Nyaa I wish I was the food on Lord Ralph’s table nyahahahaha.” The catgirl said happily.
 
 “You idiot cat. Watch your foul mouth.” The werewolf girl replied.
 
@@ -63,7 +63,7 @@ As for Dennis, he was once again foreshadowed due to the weaker and younger girl
 
 Meanwhile…
 
-At another table in the cafeteria, a human girl said to her human boyfriend present beside her, “look, look, how handsome and dashing Lord Ralph is. If only, if only I could spend a day and night with him, my life would be complete. Ahh~ how I wish I could be the one Lord Ralph is having in his mouth.”
+At another table in the cafeteria, a human girl said to her human boyfriend present beside her, “look, look, how handsome and dashing Lord Ralph is. If only, if only I could spend a day and night with him, my life would be complete. Ahh how I wish I could be the one Lord Ralph is having in his mouth.”
 
 The human boy gritted his teeth and slammed the table in anger, shocking his girlfriend. He couldn’t take it anymore. Ever since his girlfriend saw Ralph, she has been head over heels for him. Had it not been for Ralph being out of reach for her, she would’ve already broken up with him.
 

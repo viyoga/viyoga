@@ -7,7 +7,7 @@ chapter = 600
 
 <p>"Nyxara…" Luminara grumbled, she didn’t like this woman. No woman did, for she was Thalorind’s biggest slut and most successful homewrecker. Nyxara was entirely unapologetic about her wrongdoings to boot, further ruining her reputation among her fellow primordials.</p>
 <p>"Why are you here?" Mearie inquired with a hostile tone.</p>
-<p>"Hmm?" Nyxara cleared her teary eyes and nonchalantly stretched. Based on the loud snaps her body emanated, she’d been asleep for a very long time. "Agghh~! That felt soo gooood~"</p>
+<p>"Hmm?" Nyxara cleared her teary eyes and nonchalantly stretched. Based on the loud snaps her body emanated, she’d been asleep for a very long time. "Agghh! That felt soo gooood"</p>
 <p>"Why are you here?" the human primordial repeated, her patience was thinning.</p>
 <p>"Hmm…? Oh… I fell asleep after breaking my continuous squirting streak record, but then a flying dwarf landed on top of me… After murdering him a few thousand times, I decided to check what the ruckus was about."</p>
 <p>As Nyxara glanced around, something changed in her rapidly, from one moment to the next. "Wait!"</p>

@@ -20,7 +20,7 @@ chapter = 52
 <p>Aria had a few clients lined up at the gym for her training, so she left soon after the meal. They decided that it was best for now if she resumed working because if their ambitious plan failed, two kids would go hungry and homeless, which neither of them could accept.</p>
 <p>With that being said, Kaiden didn't like his lover having male trainees paying for her services, so she was asked to only accept female clients, which she happily did. Aria was even less fond of the idea of her working with men than Kaiden was, so the girl raised no issues upon hearing his request. She was not desperately strapped for cash for at least a little while, unlike when they first met. As a result, she could be more choosy with her clientele.</p>
 <p>Kaiden went with her and trained on his own for an hour and a half, after which he returned to his dorm. Nyx's moving would happen in the afternoon, so he had some time to spend with his mischievous Storm Valkyrie.</p>
-<p>"Harder! Yes, just like that! Ah~!"</p>
+<p>"Harder! Yes, just like that! Ah!"</p>
 <p>He had to stop in his tracks to collect his mind, which suddenly found itself in shambles. Feminine shrieks could be heard all across his room as soon as he turned the doorknob.</p>
 <p>However, Kaiden knew it was not Luna's voice.</p>
 <p>He opened the door fully to reveal his purple-haired lover sitting at his desk, intently watching an adult video while blasting it at full volume. Luna was not pleasuring herself at all; she was fully clothed.</p>

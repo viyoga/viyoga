@@ -19,7 +19,7 @@ chapter = 485
 
 <p>When they opened again, they were misty and full of desire.</p>
 
-<p>“You better nghnnn~~ not lie to me…” Seraphine gasped, clinging to Qingyi’s shoulders.</p>
+<p>“You better nghnnn not lie to me…” Seraphine gasped, clinging to Qingyi’s shoulders.</p>
 
 <p>Her sister did not intervene, just watching from afar and waiting for her turn.</p>
 
@@ -41,7 +41,7 @@ chapter = 485
 
 <p>Their bodies were close together and the huge rod of flesh came up aligned with her pussy, hitting the plump, soft lips with a sweet, wet pop, the reddish tip sinking slightly into the deep valley.</p>
 
-<p>“Aghnn~~ it’s… too big…” Seraphine leaned on Qingyi’s shoulders.</p>
+<p>“Aghnn it’s… too big…” Seraphine leaned on Qingyi’s shoulders.</p>
 
 <p>How could her sister take that huge thing inside her?</p>
 
@@ -53,7 +53,7 @@ chapter = 485
 
 <p>He brought his lips close to hers, feeling her sweet, hot, panting breath against his before finally claiming her first kiss.</p>
 
-<p>“Ughnn~~” Seraphine moaned against Qingyi’s lips, her nails digging into his shoulders as she sought support and responded awkwardly to the kiss.</p>
+<p>“Ughnn” Seraphine moaned against Qingyi’s lips, her nails digging into his shoulders as she sought support and responded awkwardly to the kiss.</p>
 
 <p>It felt… strangely good.</p>
 
@@ -63,7 +63,7 @@ chapter = 485
 
 <p>Her tongue followed his out, her face as red as a tomato.</p>
 
-<p>“Nghnn~~ in what way?” Seraphine asked, brushing a wild strand of hair from her beautiful face, her cheeks slightly puffed out.</p>
+<p>“Nghnn in what way?” Seraphine asked, brushing a wild strand of hair from her beautiful face, her cheeks slightly puffed out.</p>
 
 <p>“In every way.” Qingyi smiled.</p>
 
@@ -83,11 +83,11 @@ chapter = 485
 
 <p>Why couldn’t she stop?</p>
 
-<p>“Aghnnn~~”</p>
+<p>“Aghnnn”</p>
 
 <p>The first inch went inside, her tight, virgin pussy quickly swallowing the entire bulbous head.</p>
 
-<p>“Q-Qingyi… i-it won’t nghnn~~ fit~~ aghn~~!” Seraphine moaned, her eyes widening as more of Qingyi’s cock sank into her.</p>
+<p>“Q-Qingyi… i-it won’t nghnn fit aghn!” Seraphine moaned, her eyes widening as more of Qingyi’s cock sank into her.</p>
 
 <p>First, the huge cock broke through her virginity, and after that, it pushed forward, stopping only when it hit the walls of her womb, filling her completely.</p>
 
@@ -99,7 +99,7 @@ chapter = 485
 
 <p>“Call me husband.”</p>
 
-<p>The moment his voice fell, Seraphine’s body followed. His cock made its way back into her tight slit, her buttocks slapping loudly against his thighs and his cock hitting the walls of her womb again. “Nghnn~~ o-okay… aghnn~~ hubby… Seraphine spoke with some difficulty, repeating what she had heard her sister say so often.</p>
+<p>The moment his voice fell, Seraphine’s body followed. His cock made its way back into her tight slit, her buttocks slapping loudly against his thighs and his cock hitting the walls of her womb again. “Nghnn o-okay… aghnn hubby… Seraphine spoke with some difficulty, repeating what she had heard her sister say so often.</p>
 
 <p>The heat in her chest grew even more intense, and her eyes dropped to the floor, searching for a place to hide her face.</p>
 
@@ -115,4 +115,4 @@ chapter = 485
 
 <p>She just wanted to be overwhelmed by that feeling for all eternity.</p>
 
-<p>“H-husband~~ nghnn~~ aghnn~~ something… oh… gods….. something’s coming~~” Seraphine moaned, feeling an even more intense sensation take over her groin, incomparable to the lonely nights when she touched herself.</p>
+<p>“H-husband nghnn aghnn something… oh… gods….. something’s coming” Seraphine moaned, feeling an even more intense sensation take over her groin, incomparable to the lonely nights when she touched herself.</p>

@@ -8,7 +8,7 @@ chapter = 405
 <p>The last day of the Date Experience Club's first task, experiencing a home date, was approaching. It wasn't as annoying or complicated as the past two days. The experience was simply me sitting still while the female students next to me kept changing for a Ratflix viewing.</p>
 <p>Originally, the plan was to have me and a female student watch on the sofa in the club room, and then have the female students waiting at the table behind us switch places, but it changed to the method I suggested to Konoe Akina.</p>
 <p>The method I suggested was to watch a Ratflix movie alone with a female student in the small room used by the faculty advisor in the club room. The other female students would watch movies outside and then come into the faculty advisor's room when it was their turn to switch places with the female student inside.</p>
-<p>If it's just the two of us, I can somehow cover up an erection. If there are several people, they might shout, "Everyone~! Look at this Bastard's boner!" and gather everyone, but if it's just the two of us, it won't be possible to do that as a joke.</p>
+<p>If it's just the two of us, I can somehow cover up an erection. If there are several people, they might shout, "Everyone! Look at this Bastard's boner!" and gather everyone, but if it's just the two of us, it won't be possible to do that as a joke.</p>
 <p>Of course, it's best not to get an erection with a female student next to me, but the snake in my center is a guy who raises his head all the time. He wasn't someone I could kill or revive at my will.</p>
 <p>The movie we're watching today is Delicious Love (LOVE).</p>
 <p>The club president, Konoe Akina, says, looking around at the students. Delicious Love was a Japanese romantic comedy movie that had recently been uploaded to Ratflix. It seemed like she chose it because it was said to be easy to watch. Many students pushed for other genres, but they couldn't help but choose the romantic comedy genre at the words, "But still, it's a home date...."</p>
@@ -34,7 +34,7 @@ chapter = 405
 <p>Naruse Shiyo's touch felt somewhat like a perverted old man, but the erotic touch and rough breathing quickly created an erotic atmosphere inside the faculty advisor's office.</p>
 <p>Of course, Naruse Shiyo, who was a virgin and innocent, didn't do anything more than caress my muscles, so 10 minutes passed with her just arousing me.</p>
 <p>Next was Seizawa Shii. The ever-playful expression of the white gyaru sat on my lap like Alik.</p>
-<p>"Ah~☆ Did I mistake the seat?"</p>
+<p>"Ah☆ Did I mistake the seat?"</p>
 <p>"There's a seat next to me. Don't stimulate me and sit down, okay?"</p>
 <p>Seizawa Shii says she mistook the seat but doesn't move. My dick, who was already slightly erect due to Naruse Shiyo's clumsy caresses(?), fully regained his strength due to Seizawa Shii's playfully moving butt.</p>
 <p>"Ah...!"</p>
@@ -48,7 +48,7 @@ chapter = 405
 <p>"Huh?"</p>
 <p>"Hold my hand. It's an experience of watching Ratflix with a boyfriend, so we should at least hold hands and watch a movie."</p>
 <p>So we held hands and watched the movie. In between, Seizawa Shii tickled my palm with her index finger, so I returned the favor.</p>
-<p>"Ahaha! It's ticklish, Ryuta-chii~!!"</p>
+<p>"Ahaha! It's ticklish, Ryuta-chii!!"</p>
 <p>The ten minutes with Seizawa Shii ended with us tickling each other's hands.</p>
 <p>"Let's do something more fun next time♥"</p>
 <p>Seizawa Shii whispered in my ear, blowing air before leaving. You vixen...! Next was Minamoto Risa, the black gyaru of the two major gyarus of St. Francisco Girls' Academy.</p>
@@ -76,4 +76,4 @@ chapter = 405
 <p>As if in a dream, all ten minutes had passed while we were kissing. Konoe Akina smiled with a dazed expression and got up from her seat, looking at me.</p>
 <p>-----</p>
 <p>Happy New Year's commemorative homeroom teacher in Hanbok!!</p>
-<p>Homeroom teacher looks good in both Kimono and Hanbok~!!</p>
+<p>Homeroom teacher looks good in both Kimono and Hanbok!!</p>

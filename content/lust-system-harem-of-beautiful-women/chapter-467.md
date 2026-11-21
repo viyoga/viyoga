@@ -33,7 +33,7 @@ chapter = 467
 
 <p>Luis got up, stretched lazily, and started putting his clothes back on. He chuckled, &quot;Tell Chena to send me a copy of the materials later. I want to take a good look too.&quot;</p>
 
-<p>Deewa stretched as well, giggling, &quot;Okay. What a letdown today, but I’m tired anyway. Next time, I’ll make sure to take very good care of you, oh~.&quot;</p>
+<p>Deewa stretched as well, giggling, &quot;Okay. What a letdown today, but I’m tired anyway. Next time, I’ll make sure to take very good care of you, oh.&quot;</p>
 
 <p>On the way home, he made a call. The younger sister-in-law, Leah, was clamoring to eat skewers from the street stall downstairs, and naturally, it was safer for her brother-in-law to accompany her.</p>
 

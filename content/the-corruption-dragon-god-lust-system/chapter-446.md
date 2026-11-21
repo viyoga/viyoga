@@ -61,7 +61,7 @@ chapter = 446
 
 <p>His hands flowed down to Celestia’s buttocks, meeting them with a loud smack, causing all that soft, perfect flesh to be taken by a powerful jiggle.</p>
 
-<p>“Nghnn~~” Celestia trembled slightly, her eyes shining softly.</p>
+<p>“Nghnn” Celestia trembled slightly, her eyes shining softly.</p>
 
 <p>They had been traveling for a few days to get there, and during that time, they hadn’t had much time to give love to each other.</p>
 
@@ -77,7 +77,7 @@ chapter = 446
 
 <p>“Husband… What should I do?” She asked, placing her index finger on her lips, while a confused expression appeared on her beautiful, sweet face.</p>
 
-<p>“mmhm~~ I’ll help you, dear…” A voice emerged; sweet, mature, and sensual, contrasting heavily with Celestia’s.</p>
+<p>“mmhm I’ll help you, dear…” A voice emerged; sweet, mature, and sensual, contrasting heavily with Celestia’s.</p>
 
 <p>Behind her, a figure emerged.</p>
 
@@ -87,7 +87,7 @@ chapter = 446
 
 <p>The golden-haired beauty trembled, her entire body stiffening.</p>
 
-<p>“Don’t be afraid, I’m one of your sisters too… fufufu~~” Ruxue said, letting a suppressed giggle escape her lips. “Another victim of that shameless womanizing scoundrel.”</p>
+<p>“Don’t be afraid, I’m one of your sisters too… fufufu” Ruxue said, letting a suppressed giggle escape her lips. “Another victim of that shameless womanizing scoundrel.”</p>
 
 <p>“Hm… hubby isn’t a scoundrel! He may be shameless and a womanizer, but he is the hero chosen by the goddess Auranys!” Celestia exclaimed.</p>
 
@@ -113,7 +113,7 @@ chapter = 446
 
 <p>She pulled back, grabbed the base of Qingyi’s cock with both hands, and swallowed it twice more. Her lips slid along the length of the huge cock, while her tongue circled the sensitive, yellowish tip.</p>
 
-<p>“Ah~~ nghnn~~” Ruxue finally released Qingyi’s cock, grabbing it and masturbating it vigorously.</p>
+<p>“Ah nghnn” Ruxue finally released Qingyi’s cock, grabbing it and masturbating it vigorously.</p>
 
 <p>She turned her face to the side, watching the impressed look on Celestia’s face.</p>
 

@@ -30,7 +30,7 @@ chapter = 826
 <p>In fact, since he was still a Teacher at St. Francis Girls' Academy, he could enter without any particular hindrance.</p>
 <p>Kasaoka Koki diligently moved his Feet and headed to the French Classroom, the only place where his Seat remained. Then, he placed a Chair by the window and turned on the App to check Matsunaga Yuzuki's GPS Position.</p>
 <p>Matsunaga Yuzuki was still at school. It was natural since it wasn't yet Time to leave for Going to Work. But since he had arrived on Time, the Bell would ring.</p>
-<p>Ding-dong-daeng-dong~♪</p>
+<p>Ding-dong-daeng-dong♪</p>
 <p>The bell sound announcing the end of today's schedule rang, and Students came Outside. Not all Students came out. Since they were Students who had finished their Test and were awaiting Graduation or Promotion, there were no classes, only Club activities.</p>
 <p>Many Students stayed late because they had to prepare for recruiting club members for the next semester. Kasaoka Koki, as an advisor for the French Culture Club, knew this well.</p>
 <p>Of course, after choosing the wrong side in the Daigo Successor War, another Teacher took over as advisor.</p>
@@ -66,7 +66,7 @@ chapter = 826
 <p>Recently, she had been a Married woman, so we couldn't openly go around together, and after Matsunaga Yuzuki's divorce, there was vacation, and after vacation, the resort mountain lodge Incident, and then the test period, so we didn't have Time to meet each other.</p>
 <p>Today would probably be my first date with Matsunaga Yuzuki. After all, when we met, we mostly just had sex instead of dates.</p>
 <p>I parked my car in the park Parking Lot and entered the park. Looking at the park map in front of the Parking Lot, the Restroom wasn't far. It was lunchtime, so there were quite a few people, but the Restroom Matsunaga Yuzuki mentioned was quite in a Corner.</p>
-<p>As I walked, I saw Matsunaga Yuzuki in the distance. Matsunaga Yuzuki also seemed to have spotted me, calling out, "Yamashiro-sensei~!" and waving her hand to greet me.</p>
+<p>As I walked, I saw Matsunaga Yuzuki in the distance. Matsunaga Yuzuki also seemed to have spotted me, calling out, "Yamashiro-sensei!" and waving her hand to greet me.</p>
 <p>I also waved my hand and approached Matsunaga Yuzuki. Today, for our date, her attire was different from her usual Suit; it was a coat-like Dress that reached mid-thigh. Moreover, she boldly revealed her Cleavage, making her Appearance incredibly Erotic.</p>
 <p>"I didn't think I'd see you here."</p>
 <p>"This place is good for changing Clothes."</p>
@@ -79,12 +79,12 @@ chapter = 826
 <p>Naturally, there were panties under her skirt, and perhaps because it was a date, a rather Erotic black pair of panties was visible down there.</p>
 <p>"It took me quite a while to choose. Do you like them...?"</p>
 <p>Matsunaga Yuzuki asked me with a sensual Smile. Of course, no man would dislike them. I smiled and nodded my Head.</p>
-<p>Yuzuki Date Attire B-cut~!</p>
-<p>Requested by I세이브I-nim: Jinmija Yeosa and Alik in dinosaur pajamas~!</p>
-<p>Starting with Jinmija Yeosa~!!</p>
-<p>Alik~!</p>
-<p>Alik Kawaii~!</p>
-<p>Requested by Gojoy-nim: Hangari Muneo and Matsunaga Yuzuki with their hair down in date attire~!</p>
-<p>Starting with Hangari Muneo~!</p>
-<p>Matsunaga Yuzuki~!</p>
-<p>Kkiyot~!!</p>
+<p>Yuzuki Date Attire B-cut!</p>
+<p>Requested by I세이브I-nim: Jinmija Yeosa and Alik in dinosaur pajamas!</p>
+<p>Starting with Jinmija Yeosa!!</p>
+<p>Alik!</p>
+<p>Alik Kawaii!</p>
+<p>Requested by Gojoy-nim: Hangari Muneo and Matsunaga Yuzuki with their hair down in date attire!</p>
+<p>Starting with Hangari Muneo!</p>
+<p>Matsunaga Yuzuki!</p>
+<p>Kkiyot!!</p>

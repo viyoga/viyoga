@@ -29,7 +29,7 @@ chapter = 383
 <p>"Shall we go for a night walk?"</p>
 <p>"Okay."</p>
 <p>At my suggestion, Han Yu-gyeong nodded and got out of bed. She stood up so quickly that her breasts jiggled, which was a very pleasing sight.</p>
-<p>"Aww~! Don't look at my pussy...!"</p>
+<p>"Aww! Don't look at my pussy...!"</p>
 <p>"I'm looking because you're pretty. Because you're pretty."</p>
 <p>When I stared intently at her breasts, Han Yu-gyeong covered them with both hands, but when I said she was pretty, she subtly lowered her hands and showed her breasts. Soon, she put on underwear, and her breasts immediately disappeared into her clothes...</p>
 <p>I watched Han Yu-gyeong get dressed and put on comfortable clothes as well. Han Yu-gyeong was also wearing clothes that were easy to move in, as she guessed the reason why I suggested going out.</p>

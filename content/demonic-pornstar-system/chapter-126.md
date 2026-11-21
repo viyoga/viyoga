@@ -55,7 +55,7 @@ chapter = 126
 <p>His system’s three unique stats, namely views, fangirls, and income didn’t see much increase because Kaiden didn’t upload any adult content for two days. He had spent yesterday fighting thugs to free Julia, and today was dungeon day. He didn’t mind, though. Some downtime was perfect to let the audience’s eagerness increase for their next release… alongside the fattening of their wallets.</p>
 <p>And yes, in a single day, he went from level 3 to 7. It was an incredibly successful day. The four of them worked in tandem as they continuously polished their teamwork.</p>
 <p>However, the issue with this dungeon was beginning to bear its ugly fangs at Kaiden and co. He gained 36 stat points, which meant he averaged a little more than 8 per level—which he spread evenly across the four physical stats, thinking them to be equally important to him right now.</p>
-<p>While ~8 stat points/level were admirable gains, Kaiden couldn’t help but be a bit disappointed after getting 10 for his first level-up. The reason for his lower gains could be chalked up to the dungeon and its simplicity.</p>
+<p>While 8 stat points/level were admirable gains, Kaiden couldn’t help but be a bit disappointed after getting 10 for his first level-up. The reason for his lower gains could be chalked up to the dungeon and its simplicity.</p>
 <p>This was the perfect beginner dungeon because the monsters were all rather simple beasts. The mushroom creepers were the rare minority of more complicated monsters one could meet here, most were just evolved animals.</p>
 <p>This meant that their simplicity lowered their difficulty, which in turn lowered the gains he got for slaying them.</p>
 <p>Then why not just go deeper into the dungeon to meet stronger monsters?</p>

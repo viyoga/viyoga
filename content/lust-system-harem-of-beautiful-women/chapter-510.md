@@ -127,4 +127,4 @@ chapter = 510
 
 <p>Dominic immediately chimed in agreement.</p>
 
-<p>Bella was doing it on purpose, winking seductively and saying, &quot;My room is upstairs. I&#x27;ll take you for a visit later~.&quot;</p>
+<p>Bella was doing it on purpose, winking seductively and saying, &quot;My room is upstairs. I&#x27;ll take you for a visit later.&quot;</p>

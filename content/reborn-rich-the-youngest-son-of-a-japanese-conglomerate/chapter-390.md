@@ -22,10 +22,10 @@ chapter = 390
 <p>I showed the packaged box slightly and asked Lee Yeon-ju, and Lee Yeon-ju showed me a box packaged in black. Her clothes are all black, she really likes black. Today is Han Yu-gyeong's birthday party, so she wasn't wearing sunglasses, but she was wearing all black, from black shorts to a black t-shirt, black jacket, and black shoes. It was a bit gloomy, but it suited her well in its own way.</p>
 <p>,My gift is a throwing knife set.</p>
 <p>Throwing knives as a birthday present... Even if Han Yu-gyeong has the throwing master trait, I wonder if she'll like receiving a knife as a birthday present.</p>
-<p>,Hello~!</p>
+<p>,Hello!</p>
 <p>While we were busy decorating the party room, Son Na-ri, a close friend of Han Yu-gyeong, and several female students came into the hotel room, greeting us. It's comfortable because there are no male friends. With Han Yu-gyeong's appearance, there would be platonic lovers who claim to be her friends, but it seemed that Han Yu-gyeong was handling it well on her own.</p>
 <p>,Hello.</p>
-<p>,Ah! Yu-gyeong's boyfriend~!</p>
+<p>,Ah! Yu-gyeong's boyfriend!</p>
 <p>Since Son Na-ri and I had seen each other's faces, we greeted each other and were introduced to the rest of the friends. Most of them were very curious to meet Han Yu-gyeong's boyfriend, whom they had only heard rumors about, and they also greeted Lee Yeon-ju.</p>
 <p>,You're the president's friend. How do you do?</p>
 <p>It was not uncommon for students to start businesses while attending Korea University, the best university in Korea, but it was rare for someone like Han Yu-gyeong to become the president of a large company from her freshman year, so attention was focused on Lee Yeon-ju as well.</p>
@@ -42,20 +42,20 @@ chapter = 390
 <p>,T, Thank you...!</p>
 <p>Perhaps because all her close friends came, Han Yu-gyeong seemed quite touched. Han Yu-gyeong, who received the cake with slightly teary eyes, smiled bashfully, so I smiled a little mischievously, put the whipped cream from the cake on my index finger, and then applied it to Han Yu-gyeong's cheek. Han Yu-gyeong also smiled and applied the cream from the cake to my nose.</p>
 <p>Soon after, a catering buffet and alcohol came in, creating a party atmosphere. Before we started the party, we made a call to have a video call with Ha Ju-yoon. Ha Ju-yoon must have been waiting for the call, as she answered right away, wearing a slightly low-cut dress and jeans.</p>
-<p>,Ah, Mom~! It's too low-cut!</p>
-<p>Han Yu-gyeong nagged, but Han Yu-gyeong's friends behind her took her side, saying, ,You're pretty, Mother~!</p>
-<p>,Oh my, this is nothing in America~! Yong-tae also came to the birthday party? Then I should have gone too~♥</p>
+<p>,Ah, Mom! It's too low-cut!</p>
+<p>Han Yu-gyeong nagged, but Han Yu-gyeong's friends behind her took her side, saying, ,You're pretty, Mother!</p>
+<p>,Oh my, this is nothing in America! Yong-tae also came to the birthday party? Then I should have gone too♥</p>
 <p>,I know, right? It's a shame I can't see you, Noona.</p>
 <p>When I called Ha Ju-yoon,Noona, as I usually do, Han Yu-gyeong glared at me, but everyone laughed at my title, so she couldn't get angry.</p>
-<p>,I always feel good when I hear the word,Noona,? Yu-gyeong-a, don't get too angry~! You know I told Yong-tae to call me,Noona.?</p>
+<p>,I always feel good when I hear the word,Noona,? Yu-gyeong-a, don't get too angry! You know I told Yong-tae to call me,Noona.?</p>
 <p>,Sigh.... I understand. I won't say anything. How's life in America, Mom?</p>
 <p>The two mothers and daughters talked for quite a long time, as if they had so much to say. Just as we were getting bored, Ha Ju-yoon finished the conversation with a sense of humor.</p>
-<p>,The kids will be bored waiting for us to finish our call. I'll just give the gifts and hang up~!</p>
+<p>,The kids will be bored waiting for us to finish our call. I'll just give the gifts and hang up!</p>
 <p>As soon as Ha Ju-yoon finished speaking, Lee Yeon-ju gave Han Yu-gyeong a gift. It seemed that Ha Ju-yoon had sent the gift to Lee Yeon-ju in advance. Inside the box was a wallet from Legion, a luxury brand that is Nae Fitzgerald's company and for which Ha Ju-yoon is the East Asia ambassador.</p>
 <p>,Thank you, Mom!</p>
 <p>,I've filled it with some money, so use it well.</p>
 <p>A wallet + money gift is quite something, huh? Having given the gift, Ha Ju-yoon winked at me and flirted with me before finally ending the call, as if to say that was enough.</p>
-<p>,Yong-tae! Call me when you come to America. Let's go on a date with Noona~!</p>
+<p>,Yong-tae! Call me when you come to America. Let's go on a date with Noona!</p>
 <p>,Mom!!</p>
 <p>Han Yu-gyeong screamed, but the call had already ended. Everyone laughed at the sitcom-like situation, but no one would know that I actually had a relationship with Ha Ju-yoon.</p>
 <p>After hanging up, we first had a meal and talked. Whitey was also eating the feed that Han Yu-gyeong poured for him in one corner, and he was getting a lot of love from the female college students.</p>

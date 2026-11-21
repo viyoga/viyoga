@@ -56,7 +56,7 @@ chapter = 1627
 <p>"I'm here because I want to fight alongside you four. I really hate having to face you all the time."</p>
 <p>The tent went quiet enough to hear the cot ropes.</p>
 <p>"That's-" Jallen's mouth worked.</p>
-<p>"I'm in~"</p>
+<p>"I'm in"</p>
 <p>Void's cheek stayed on Lilith's shoulder, her eyes shut.</p>
 <p>"Void…" Lilith grumbled.</p>
 <p>"It'd be a lot more fun."</p>

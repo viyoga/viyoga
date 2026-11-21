@@ -32,7 +32,7 @@ chapter = 970
 <p>&lt;She sees us.&gt;</p>
 <p>That thought was universal. And terrifying.</p>
 <p>With a mental flick, Quinlan activated [Master’s Link]. &lt;Vex.&gt;</p>
-<p>&lt;Yes? Did you find Mother Dearest? Sorry, I’m not available for a second celebratory orgy right after the first ended~&gt; came the voice of his amazing yandere queen, light, teasing, syrupy as ever. ṙαΝ𝐎BЕŞ</p>
+<p>&lt;Yes? Did you find Mother Dearest? Sorry, I’m not available for a second celebratory orgy right after the first ended&gt; came the voice of his amazing yandere queen, light, teasing, syrupy as ever. ṙαΝ𝐎BЕŞ</p>
 <p>But the moment he continued...</p>
 <p>&lt;Emerald eyes. Braided green hair. Giant halberd. Giving me Orianna vibes, strength-wise. Guarding the prison door. Ring any bells?&gt;</p>
 <p>There was a beat of utter silence. Then Vex’s voice changed. The seduction, the sass, all of it was gone.</p>

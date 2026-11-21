@@ -43,7 +43,7 @@ chapter = 76
 
 <p>While Owen was still frozen, dazed by what he saw, it felt as if the world had turned into a blinding light. Her smile radiated into his whole being.</p>
 
-<p>&quot;Do you want your mom to wait, hmm, my dear Wen~?&quot; Arielle spoke. She felt like her life was finally becoming perfect, and she just needed to bridge a gap... that very small gap, to finally complete everything.</p>
+<p>&quot;Do you want your mom to wait, hmm, my dear Wen?&quot; Arielle spoke. She felt like her life was finally becoming perfect, and she just needed to bridge a gap... that very small gap, to finally complete everything.</p>
 
 <p>’Fuck it... I will marry you, Mom!’ Owen roared internally as he leaned his face down to hers.</p>
 
@@ -107,7 +107,7 @@ chapter = 76
 
 <p>&quot;S-so hot... It’s so hot, my dear Wen... slurp... slurp...&quot; Arielle could feel the bulging, hot cock rubbing against her entrance. It felt like a burning pipe that would devour her completely.</p>
 
-<p>&quot;It’s because of you, Mom~. It’s only natural because you are so lewd, Mom.&quot; Owen’s cock was already dripping with precum; the intense teasing had made him want to release his load right then and there!</p>
+<p>&quot;It’s because of you, Mom. It’s only natural because you are so lewd, Mom.&quot; Owen’s cock was already dripping with precum; the intense teasing had made him want to release his load right then and there!</p>
 
 <p>Even his shorts had been drenched, as his desire had been building after their lovely embrace.</p>
 

@@ -32,10 +32,10 @@ chapter = 438
 <p>Ethan held still. Then her eyes went wide.</p>
 <p>"Oh... you’ve already put a child in my older sister’s womb???" she asked, way too loudly.</p>
 <p>"Not yet, you idiot!" Arwen nearly choked, delivering a quick smack to the back of her sister’s neck. The sharp crack echoed through the hall.</p>
-<p>"Ugh~ Then why does he smell like you?" Auryndra rubbed the back of her neck, her voice pained. She didn’t even bother to straighten up, so her huge tits kept hanging forward in her neckline, swinging gently with every rub of her hand. "And what do you mean by ’not yet’?"</p>
+<p>"Ugh Then why does he smell like you?" Auryndra rubbed the back of her neck, her voice pained. She didn’t even bother to straighten up, so her huge tits kept hanging forward in her neckline, swinging gently with every rub of her hand. "And what do you mean by ’not yet’?"</p>
 <p>Arwen shook her head. "When you go to the palace, you’ll understand..."</p>
 <p>Her mature, beautiful voice took on a cheeky tone, and she ran a hand slowly down her own waist, letting her fingers trail over the swell of her hip as she glanced at Ethan out of the corner of her eye.</p>
-<p>"That is, if your husband doesn’t break you too quickly, fufufu~"</p>
+<p>"That is, if your husband doesn’t break you too quickly, fufufu"</p>
 <p>"You... you naughty big sister!" Auryndra sputtered, her beautiful face flushing a deep red that spread down her neck and all the way to the top of her cleavage.</p>
 <p>She spun toward Arwen and lunged, her massive tits lagging a beat behind the turn, lurching to one side before swinging back heavily to slam into each other.</p>
 <p>Arwen sprang to the side, twisting her body out of the way just in time. The rush of air from the lunge tugged at her hair.</p>

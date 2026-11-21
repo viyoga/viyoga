@@ -73,7 +73,7 @@ chapter = 625
 
 <p>How long had it been since a woman had made him feel this way?</p>
 
-<p>“Rou’er,” she declared, puffing out her chest with pride. “You can call me Rou’er, big brother Qingyi! Hehehe~~”</p>
+<p>“Rou’er,” she declared, puffing out her chest with pride. “You can call me Rou’er, big brother Qingyi! Hehehe”</p>
 
 <p>A cheerful giggle escaped her lips, and then, to his complete surprise, she leaped into the air and let herself fall backward without the slightest hesitation.</p>
 
@@ -95,7 +95,7 @@ chapter = 625
 
 <p>That was a veritable gold mine.</p>
 
-<p>“Ah~~” A soft sigh parted Rou’er’s pink lips, her bright eyes fixed on his. “I knew you were going to catch me! Hehehe~~ You really are Daddy’s heir, aren’t you? ♡”</p>
+<p>“Ah” A soft sigh parted Rou’er’s pink lips, her bright eyes fixed on his. “I knew you were going to catch me! Hehehe You really are Daddy’s heir, aren’t you? ♡”</p>
 
 <p>Qingyi went still, studying her beautiful face for a long moment.</p>
 
@@ -123,7 +123,7 @@ chapter = 625
 
 <p>“You had a feeling, and based solely on that feeling, you chose me to be your representative in the cosmic void sect?” He couldn’t help but laugh at the sheer absurdity of it.</p>
 
-<p>“Yes… and I was right, wasn’t I? Hehehe~~” Rou’er forced a thread of cheerfulness into her pained voice.</p>
+<p>“Yes… and I was right, wasn’t I? Hehehe” Rou’er forced a thread of cheerfulness into her pained voice.</p>
 
 <p>“Ah… hahaha, yes, you were.” Qingyi gave her a gentle pat on the head.</p>
 

@@ -140,7 +140,7 @@ chapter = 585
 <p>Sol gazed at the paperwork that was different from the usual ones he received. After all, this time those were documents and letters with the sigils of different Kingdoms.</p>
 <p>“Threats, negotiation, small inquiries, proposals, etc. I have been receiving more than ten letters every day since the mecha —”</p>
 <p>“The Rangers.”</p>
-<p>“....Sigh~ Since the rangers made their grand entrance on the battlefield. I think the dwarves are already prepared to sue me for theft of important historical knowledge.”</p>
+<p>“....Sigh Since the rangers made their grand entrance on the battlefield. I think the dwarves are already prepared to sue me for theft of important historical knowledge.”</p>
 <p>“Heh… How ridiculous. I thought the dwarves would be silent since our fight at their border between me, Freya, and Medea.”</p>
 <p>Sol gave a soft smile, remembering a time that seemed so far away when in reality it was still extremely close, all things considered.</p>
 <p>Back then, the fight between the three witches ended up wiping out a few mountains in the surroundings.</p>

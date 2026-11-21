@@ -117,7 +117,7 @@ chapter = 102
 
 <p>Qingyi ignored the beauty’s words. Raising his eyes, he grabbed her hips, pulling her onto his lap.</p>
 
-<p>“What are you- mmhm~~” Ruxue moaned as her huge breasts burst out of the confines of her tight cleavage.</p>
+<p>“What are you- mmhm” Ruxue moaned as her huge breasts burst out of the confines of her tight cleavage.</p>
 
 <p>Qingyi’s lips immediately seized one of her purple nipples, sucking it hard and feeling the Qi-rich liquid spread through his body.</p>
 

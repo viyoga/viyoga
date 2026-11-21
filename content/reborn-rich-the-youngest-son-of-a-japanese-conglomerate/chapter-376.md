@@ -73,7 +73,7 @@ chapter = 376
 <p>"Huh? W-Who is it...?"</p>
 <p>"It's Sakagami-ssi. It looks like she was taking a shower."</p>
 <p>Kujo Kina and Urabe Konoka ran into Sakagami Rena, who had come out of the shower room. The two didn't seem to care much that Sakagami Rena was taking off her mask.</p>
-<p>"Ah~! Sakagami...! I didn't recognize you because you always wear a mask. You have a pretty face, so show it off a little!"</p>
+<p>"Ah! Sakagami...! I didn't recognize you because you always wear a mask. You have a pretty face, so show it off a little!"</p>
 <p>Kujo Kina said, taking off her clothes while looking at Sakagami Rena. Sakagami Rena stepped aside from the shower room door and nodded slightly. As expected, this person is saying the same thing as Sensei.</p>
 <p>'Tattoo?'</p>
 <p>Sakagami Rena thought, looking at the black mark about the size of two finger joints on Kujo Kina's large butt. It was a tattoo that looked ominous for some reason. It seemed to be a tattoo that symbolized distorted flames, and seeing it, Sakagami Rena thought that the Kujo family was free and allowed tattoos.</p>

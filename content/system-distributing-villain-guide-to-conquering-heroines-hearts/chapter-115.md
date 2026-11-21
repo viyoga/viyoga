@@ -50,5 +50,5 @@ chapter = 115
 <p>'Right. Nothing weird about a little bonding between master and student. Hehe.'</p>
 <p>"If you say so, Master." He put on the face of a man who had lost all his courage but was too weak to refuse. His shoulders dropped, his eyes stayed glued to the floor, and he sat on the edge of the bed like a lamb walking into a lion's den.</p>
 <p>He used Golden Hands and placed both palms on her bare shoulders.</p>
-<p>"Ahn~" A soft moan came straight out of her mouth the second he touched her. Her whole body went stiff and then melted flat into the mattress like her bones had dissolved.</p>
+<p>"Ahn" A soft moan came straight out of her mouth the second he touched her. Her whole body went stiff and then melted flat into the mattress like her bones had dissolved.</p>
 <p>Share to your friends</p>

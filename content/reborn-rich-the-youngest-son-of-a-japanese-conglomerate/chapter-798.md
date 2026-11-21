@@ -10,7 +10,7 @@ chapter = 798
 <p>I got up in the Morning, made the bed (in case Minamoto Risa smelled something again, I laid out the Sheets and Entwined Sheets that I had washed at the coin laundry yesterday), took a Shower, and chose pizza from the delivery Food I had brought from the club room yesterday and put in the refrigerator, and warmed it up to eat.</p>
 <p>Pizza is also quite good as a substitute for toast. It's a bit heavy to eat in the Morning, though.</p>
 <p>After finishing my meal, I exercised for a while in the private Gym prepared in the Empty room, and then took a Shower. Even though I exercised, I woke up during Commute Time, so I had quite a bit of Leisure.</p>
-<p>I was drying my Hair and making snacks to eat with Minamoto Risa when she came, when I heard the sound of the Door opening with a tta-llang~♪.</p>
+<p>I was drying my Hair and making snacks to eat with Minamoto Risa when she came, when I heard the sound of the Door opening with a tta-llang♪.</p>
 <p>'Did you open the Door for me to come in?'</p>
 <p>'Yeah. I was preparing to eat matcha affogato together.'</p>
 <p>I was making matcha affogato, one of Minamoto Risa's favorite matcha-flavored snacks, and she came at just the right time. I was mixing the high-quality matcha I had received as a gift, and now that Minamoto Risa had come, it seemed I could take out the ice cream from the refrigerator and eat it.</p>
@@ -45,7 +45,7 @@ chapter = 798
 <p>'How can a Teacher have more than half of the class?! Seriously...! Playboy! Byeontae!'</p>
 <p>Her Hand hitting my Forearm was quite painful, as if her Emotions were really involved.</p>
 <p>'St, still, Lisa is the only Woman who spent Christmas with me....'</p>
-<p>Minamoto Risa stopped her Hand for a Moment at my Words. She had an Expression of, 'Is that so...?' for a Moment, but soon said, 'Eesh~! What are you bragging about!' and hit my Forearm again with a thud.</p>
+<p>Minamoto Risa stopped her Hand for a Moment at my Words. She had an Expression of, 'Is that so...?' for a Moment, but soon said, 'Eesh! What are you bragging about!' and hit my Forearm again with a thud.</p>
 <p>'Huk...! Huk...!'</p>
 <p>Minamoto Risa was panting, perhaps tired from hitting me for a long time. But it seemed her Anger had subsided a bit from hitting me.</p>
 <p>'What do the other Kids say?'</p>
@@ -68,7 +68,7 @@ chapter = 798
 <p>'You....'</p>
 <p>Seeing her glaring at me with glaring Eyes even at a Playful Jest, it seemed she had come here today with the intention of stripping me of everything.</p>
 <p>'Um.... I'm actually Black Knight.'</p>
-<p>'Don't Lie~!'</p>
+<p>'Don't Lie!'</p>
 <p>Minamoto Risa said not to Lie at my Words. Why doesn't she believe me? It seemed hard to believe that the super Hero on TV was me. I smiled slightly and brought my Mouth to Minamoto Risa's Whispering Ear.</p>
 <p>'I am Black knight.'</p>
 <p>When I said a line from a certain Metal Hero in Minamoto Risa's Whispering Ear, Minamoto Risa looked at me with an Expression of, 'Really? Really?'</p>
@@ -97,16 +97,16 @@ chapter = 798
 <p>'There's more? It's not a more shocking Secret than Black Knight, is it?'</p>
 <p>It might be more shocking to others that I'm Black Knight, but the Secret I'm revealing now will be even more shocking to Minamoto Risa.</p>
 <p>'I'm actually Taira Ryuta.'</p>
-<p>B-cut of Fox Alik Cover commemorating March 1st~!</p>
-<p>Kkawai~!</p>
-<p>Lisa-ttang Home Teacher in black Stockings + Tank Top + Hotpants requested by Hwanbuljeoldae-bulga-nim~!</p>
+<p>B-cut of Fox Alik Cover commemorating March 1st!</p>
+<p>Kkawai!</p>
+<p>Lisa-ttang Home Teacher in black Stockings + Tank Top + Hotpants requested by Hwanbuljeoldae-bulga-nim!</p>
 <p>Lisa-ttang</p>
 <p>Home Teacher</p>
-<p>Rianna Holden's usual Attire + Underwear requested by Gojoy-nim~!</p>
+<p>Rianna Holden's usual Attire + Underwear requested by Gojoy-nim!</p>
 <p>Usual Attire</p>
 <p>The cowboy hat is her trademark haha</p>
-<p>Underwear~!</p>
-<p>Liz breast Covering requested by seungj050-nim~!</p>
+<p>Underwear!</p>
+<p>Liz breast Covering requested by seungj050-nim!</p>
 <p>She has big breasts, so I can't cover them ㅠㅠ</p>
-<p>Liz looking down with a Queen-nim Feeling, requested by MidNightSKY-nim~!</p>
+<p>Liz looking down with a Queen-nim Feeling, requested by MidNightSKY-nim!</p>
 <p>I tried to dress her in fancy Clothes like a Queen-nim ㅎㅎㅎ</p>

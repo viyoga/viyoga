@@ -49,7 +49,7 @@ chapter = 441
 
 <p>Her voice was already naturally soft, sweet, and lovely. However, taken over by moans, each little sound was like a massage to Qingyi’s ears.</p>
 
-<p>“B-brother… Qingyi, are you sure that- Agh~~”</p>
+<p>“B-brother… Qingyi, are you sure that- Agh”</p>
 
 <p>Before she could even finish her sentence, Celestia interrupted her own words, feeling Qingyi’s hands rising and sinking into her calves.</p>
 
@@ -133,7 +133,7 @@ chapter = 441
 
 <p>The bulge in his pants, squeezed by Celestia’s feet, throbbed harder than ever before, finally breaking free from its confinement, snapping the button on his pants.</p>
 
-<p>“Ah!?- oghnn~~”</p>
+<p>“Ah!?- oghnn”</p>
 
 <p>A long, confused moan escaped Celestia’s lips, a rod of flesh immediately falling into the valley between her small, delicate feet.</p>
 

@@ -15,13 +15,13 @@ chapter = 379
 <p>"Perhaps that sensei isn't Sakagami-ssi's target, is he?"</p>
 <p>Sakagami Rena felt a murderous aura from Eve's words, something an AI shouldn't be able to feel. Eve's black pupils turned red, and with a click, gun barrels from several Am-sang branches were pointed at Sakagami Rena.</p>
 <p>"No, I'm not talking about that target... I'm watching to see if sensei would be a good lord candidate."</p>
-<p>"Ah~! You're talking about that target."</p>
+<p>"Ah! You're talking about that target."</p>
 <p>Eve quickly erased her murderous intent and smiled brightly at Sakagami Rena's explanation. Eve, who knows a lot of information, could understand the meaning of a lord in a ninja family.</p>
 <p>For a ninja family, finding a lord meant independence in a word.</p>
 <p>Since ancient times, ninja groups whose main business was espionage and assassination have often had their families destroyed or their groups disappear by powerful people. However, there were quite a few cases where the lineage was maintained by ninjas who wandered outside the group under the pretext of finding a lord, and this became a tradition.</p>
 <p>"Sakagami-ssi probably doesn't know much about Ryuta-nim yet, right?"</p>
 <p>"Yeah. I only thought about making sensei my lord yesterday..."</p>
-<p>"Making someone your lord isn't a small decision. You should find out more~!"</p>
+<p>"Making someone your lord isn't a small decision. You should find out more!"</p>
 <p>Sakagami Rena seemed to feel something at Eve's words to find out more. Eve gave Sakagami Rena a hint. It seemed that Yamashiro Ryuta was not a typical teacher.</p>
 <p>"It's okay to make him your lord, but I can't forgive anyone who harms Ryuta-nim. Ryuta-nim is my business partner."</p>
 <p>"Why would I harm sensei?"</p>
@@ -30,9 +30,9 @@ chapter = 379
 <p>"Yes, deciding on a lord is an important decision!"</p>
 <p>At Eve's words, Sakagami Rena decided to find out more about Yamashiro Ryuta.</p>
 <p>###</p>
-<p>EVE: I'm sure you're happy to have a girl calling you lord~!</p>
+<p>EVE: I'm sure you're happy to have a girl calling you lord!</p>
 <p>Ryuta: Huh?</p>
-<p>EVE: Never mind~! Hehet.</p>
+<p>EVE: Never mind! Hehet.</p>
 <p>I felt puzzled looking at the unidentified message Eve sent from the airport, but I couldn't think deeply about Eve's message because it was almost time to board the plane.</p>
 <p>Sitting in my seat, I thought about what I would do in Seoul. Seoul was probably in a chaotic state by now. The BS Group's fierce succession war had not ended and was continuing, and politicians of the hard-line faction, including Choi Seok-hoon, were being assassinated by superhumans, and rumors were circulating about monsters that had suddenly begun to appear.</p>
 <p>I was planning to resolve this monster situation from today, Thursday, until Monday night when I would return. Of course, I would also celebrate Han Yu-gyeong's birthday.</p>
@@ -52,7 +52,7 @@ chapter = 379
 <p>Ah, she was embarrassed, so she didn't tell me on purpose. From Arisu's point of view, it seemed that she might be embarrassed because it was a minor role and there weren't that many scenes she was in.</p>
 <p>After finishing the Line conversation, I got off the plane, packed my luggage, and was about to leave when someone tapped me on the shoulder. When I turned around, Han Yu-gyeong was standing there. She was wearing simple casual clothes, jeans and a white polo shirt, but her beauty that men glanced at was still the same. If she were an ordinary person, she would receive a lot of hunting, but most people just passed by because Dickson, a bodyguard, was standing firmly next to her.</p>
 <p>"Huh?"</p>
-<p>"Ehehe~! Yong-tae-yaa♥"</p>
+<p>"Ehehe! Yong-tae-yaa♥"</p>
 <p>How did she know I was coming and was waiting? When I glanced at Dickson, Dickson was scratching the back of his head as if he was in trouble. Surely Dickson didn't tell Han Yu-gyeong everything, did he?</p>
 <p>"Don't say anything to Dickson. Our company won the airport security bid this time. So, I was trying to check Yong-tae's plane coming on Saturday because I could access the airport's information, but Yong-tae's name was on Thursday, right? Dickson, who was watching next to me, asked me about it, so Dickson had no choice but to answer."</p>
 <p>Ah, I see. The company Han Yu-gyeong mentioned, "our company," seemed to refer to the security company Vanguard, which Han Yu-gyeong acquired first. Well, if Han Yu-gyeong had already seen my list, Dickson wouldn't have been able to deceive his employer, Han Yu-gyeong.</p>

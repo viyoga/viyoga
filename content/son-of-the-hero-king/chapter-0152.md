@@ -46,7 +46,7 @@ chapter = 152
 <p>Contrary to what many seemed to think she was not in love with him. Though she admits that he was attractive.</p>
 <p>She was simply attracted by the beauty of his story.</p>
 <p>Even though it changed from a comedy to a tragedy, the unexpected change made it even more entertaining.</p>
-<p>“Fufufu~! I wonder, should I also try to participate in the prince's story?”</p>
+<p>“Fufufu! I wonder, should I also try to participate in the prince's story?”</p>
 <p>She murmured to herself as she watched the blonde-haired boy enter the wards in great hurry.</p>
 <p>It was rare for her to see such an entertaining Sequel.</p>
 <p>“Hello, Miss Persephone. How are they? I was told they woke up.”</p>

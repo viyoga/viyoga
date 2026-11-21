@@ -47,11 +47,11 @@ chapter = 508
 <p>Bastet’s eye twitched.</p>
 <p>She gave a low warning hiss.</p>
 <p>Calypso pretended not to notice at all, humming thoughtfully as the apes barked in pain below.</p>
-<p>"Mmm~ Nothing beats the screams of the dying in the morning. Don’t you agree, kitten?"</p>
+<p>"Mmm Nothing beats the screams of the dying in the morning. Don’t you agree, kitten?"</p>
 <p>*Hsss!!!* Another hiss came, longer and sharper.</p>
 <p>"Move," Bastet growled.</p>
 <p>Calypso turned her head just enough to make eye contact before displaying a smile full of sharp teeth.</p>
-<p>"Oh? Am I in the way~?"</p>
+<p>"Oh? Am I in the way?"</p>
 <p>Kaiden pressed two fingers to his temple.</p>
 <p>"Alright, you two. Let’s go."</p>
 <p>Both girls snapped their heads toward him.</p>

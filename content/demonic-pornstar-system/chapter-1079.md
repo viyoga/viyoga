@@ -7,7 +7,7 @@ chapter = 1079
 
 <p>*Schlk.*</p>
 <p>The slow drag of his cock made her body cling to every inch he withdrew. Then he pressed forward again, filling the tender ache with warm pressure.</p>
-<p>"Ahn~!"</p>
+<p>"Ahn!"</p>
 <p>Yunohana’s fingers moved across his back as Kaiden found a gentle rhythm. He withdrew with the same care he used to press inside her, stretching her body while his chest brushed her breasts and his mouth remained close enough to catch every sound.</p>
 <p>*Schlk... Schlk...*</p>
 <p>"That feels..."</p>
@@ -26,7 +26,7 @@ chapter = 1079
 <p>"It is your duty as a man!" She nodded with grave sincerity. "Don’t question my motives. What I say is the truth, the only truth, and you’re not to read deeper into anything!"</p>
 <p>"I don’t know about that one. But tonight, I shall play along."</p>
 <p>Her laugh dissolved into a moan when he slid one arm beneath her lower back and tilted her hips. The next thrust reached a sensitive spot inside her, making her toes curl against the sheets.</p>
-<p>"Ahn~! There..."</p>
+<p>"Ahn! There..."</p>
 <p>Kaiden kept her at that angle. His hips moved faster, still deep and smooth, while Yunohana held him with both arms and gave herself to the rhythm.</p>
 <p>*Pap. Pap. Pap.*</p>
 <p>Her breasts bounced against his chest. Kaiden lowered his mouth to one, sucking her nipple between his lips while his cock continued stroking the sensitive place inside her.</p>

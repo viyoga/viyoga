@@ -11,7 +11,7 @@ chapter = 166
 <p>I smiled and asked back at Ha Ju-yoon's words. It was getting late, so I was putting on my clothes, leaving Ha Ju-yoon-ssi, who was lying naked on the bed. Ha Ju-yoon-ssi, with a languid expression from the orgasm, smiled and spoke to me.</p>
 <p>"Yeah, actually, my alcohol tolerance is five bottles."</p>
 <p>"Wow, I really thought you were drunk, your acting is amazing, Nuna?"</p>
-<p>"Hehet, I'm this good~."</p>
+<p>"Hehet, I'm this good."</p>
 <p>To be honest, I was a little suspicious because she wasn't staggering when she walked, but her actions themselves were those of a drunk person. Amazing? An actress is an actress, I guess. Ha Ju-yoon-ssi, who was very pleased with my compliment on her acting, was quite cute.</p>
 <p>"I won't be able to see you anymore? Because there's no reason to meet like a stand-in for acting today...."</p>
 <p>Ha Ju-yoon-ssi seemed very disappointed. I came to Korea to meet Han Yu-gyeong, so it would be strange to keep meeting her mother, Ha Ju-yoon-ssi.</p>
@@ -28,14 +28,14 @@ chapter = 166
 <p>Jin Yong-tae: I'll buy it and wait. Let's eat together😘</p>
 <p>Han Yu-gyeong: Okay okay! 😍 It looks like it'll be over soon today. But I think they're going to keep bothering us. They said the stolen items are about 20 billion won worth of data, and they want us to compensate 150 percent as stated in the contract? 30 billion won isn't just some dog's name....</p>
 <p>Jin Yong-tae: Let's talk about that when we meet. I'll wait until you come.</p>
-<p>Han Yu-gyeong: Okay~! I'll KakaoTalk you when I leave after I'm done😍</p>
+<p>Han Yu-gyeong: Okay! I'll KakaoTalk you when I leave after I'm done😍</p>
 <p>I packed a large portion of spicy pork feet from the pork feet restaurant and also packed a chicken from a nearby chicken restaurant. I was going to eat the chicken while waiting for Han Yu-gyeong. I'm hungry now, and if I wait for Han Yu-gyeong, who I don't know when she'll be done, I'll have to hold my rumbling stomach, so I'll soothe it a little with a chicken.</p>
 <p>"Ah, right! She said she wanted to drink beer too?"</p>
 <p>I stopped by a convenience store and bought beer and ice cream. Ah, now that I think about it, I should have eaten the Häagen-Dazs at Ha Ju-yoon's house. I remembered giving offerings to the Daughter of the Abyss for the first time at the convenience store in this neighborhood, so I bought quite a lot, even for the Daughter of the Abyss. I went back to Han Yu-gyeong's house with a slightly heavy bag.</p>
 <p>I put the ice cream and beer, except for the offerings, in the refrigerator as they were, created a magic circle, and sent the ice cream and desserts to the Daughter of the Abyss. What came back with the offering was a piece of paper with a short message written on it.</p>
 <p>I will continue to accumulate merits. I miss the eternal time with you.</p>
 <p>Until now, she gave rewards right away when I gave offerings, but it seemed like she was accumulating merit points to give a bigger reward. Ooh, I was wondering what she would give as a reward later. She'll definitely give something pretty good, right?</p>
-<p>I put the note in my pocket and opened the chicken box. Mmm~! The smell of chicken was always good.</p>
+<p>I put the note in my pocket and opened the chicken box. Mmm! The smell of chicken was always good.</p>
 <p>And I turned on the big TV in the living room and connected it to my smartphone to turn on MiTube. There was a video uploaded on the sports information channel I subscribed to, and it was a breaking news about Kazuhiro.</p>
 <p>Breaking News! Kazuhiro Smith transfers to FC Los Angeles! Does he choose the US national team instead of the troubled Japanese national team?</p>
 <p>Ah, he finally decided to go to FCLA in the city where Kiyohira lives after thinking about it. Fujigasaki Rinka said she was in LA too, so I could meet them all at once when I go to the US later. The public sentiment in the comments that Kazuhiro might choose the US national team was half and half, but since he's American anyway and can't be selected for the current Japanese national team, the public opinion was evenly divided between those who said it's better to go to the US and those who cursed him as a traitor.</p>
@@ -64,8 +64,8 @@ chapter = 166
 <p>"Oh my♥ Was I that sexy?"</p>
 <p>Han Yu-gyeong giggled, kissed me on the cheek, and sat down on the dining table chair. Han Yu-gyeong sat down and immediately headed towards the refrigerator.</p>
 <p>"I need to take a sip of beer first."</p>
-<p>Han Yu-gyeong took out a beer from the refrigerator, gulping it down as if she was thirsty, and made a "Kheu~! " sound before sitting back down. I unpacked the spicy pork feet in the meantime.</p>
-<p>"Cheers~!"</p>
+<p>Han Yu-gyeong took out a beer from the refrigerator, gulping it down as if she was thirsty, and made a "Kheu! " sound before sitting back down. I unpacked the spicy pork feet in the meantime.</p>
+<p>"Cheers!"</p>
 <p>Han Yu-gyeong took out a beer for me too, so we toasted each other and drank the beer. After eating spicy pork feet and beer for a while, Han Yu-gyeong started talking about work.</p>
 <p>"Clearly, the contract stated that we would not be in charge of Area A, which is an important area, for security reasons, right? They said we shouldn't see the data in Area A. But the thief clearly passed through Area A to steal. But they're saying that it was our fault and trying to blame us. It's annoying."</p>
 <p>No matter how intelligent Han Yu-gyeong is, it was difficult to deal with them if they came out like that. Even though it was clearly the other party's fault, they said, "No, it's your fault." If they said that, there was no way to respond with logic, so it was understandable that Han Yu-gyeong was annoyed.</p>
@@ -87,5 +87,5 @@ chapter = 166
 <p>Before that, I have to figure out what to do with Base Technology first. I started giving Han Yu-gyeong information about the attack on Base Technology.</p>
 <p>-----</p>
 <p>Mother and daughter illustration requested by Munyeom-nim!</p>
-<p>They're a good mother and daughter~!</p>
-<p>Other requested illustrations will be uploaded in tonight's continuous updates~!</p>
+<p>They're a good mother and daughter!</p>
+<p>Other requested illustrations will be uploaded in tonight's continuous updates!</p>

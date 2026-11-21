@@ -77,7 +77,7 @@ chapter = 843
 <p>"Is that so...."</p>
 <p>Takakusaki Gengo, who had been familiar until she regained her memory, now felt like a stranger. Takakusaki Athena, not wanting to show her Expression, bowed her Head deeply and answered, pretending to agree.</p>
 <p>seungj050-nim requested Liz and Kanna in Dragon robes.... Since the Dragon robes didn't come out, I just arbitrarily changed them to Dragon-patterned China Dresses and tried making them, hehe.</p>
-<p>Kanna~!</p>
-<p>Liz~!</p>
+<p>Kanna!</p>
+<p>Liz!</p>
 <p>Nakanoin Rina's new model Illustration that the Writer forgot after making it.... Actually, I should have uploaded it during the Ichimonji blacksmith's workshop tour, but I forgot, hehe.</p>
 <p>The Atmosphere changed a lot from the original Illustration, hehe.</p>

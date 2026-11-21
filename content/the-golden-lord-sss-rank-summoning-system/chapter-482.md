@@ -27,7 +27,7 @@ chapter = 482
 <p>Of course, it was expensive, and its uses were limited.</p>
 <p>She’d been expecting to burn through two hundred, maybe three hundred uses, so just fifty-seven made her very happy.</p>
 <p>Unfortunately, there was something she had forgotten.</p>
-<p>“Little Sister Snowbreeze… hehehe~”</p>
+<p>“Little Sister Snowbreeze… hehehe”</p>
 <p>Seo-ah heard the laughter right behind her, as sweet as it was venomous.</p>
 <p>She shuddered from head to toe, her exhaustion forgotten in an instant, and slowly turned around.</p>
 <p>It was, of course, BustyViper, whose eyes gleamed with a dangerous intensity as she threw herself at Seo-ah without the slightest ceremony, knocking them both back onto the dirty floor of the cave.</p>
@@ -38,7 +38,7 @@ chapter = 482
 <p>Meanwhile, in Goldenveil.</p>
 <p>Ethan woke up feeling relaxed, a little later than usual.</p>
 <p>Morning light streamed in through the window, warming the sheets, and wrapped around him, still completely naked, was Hilda.</p>
-<p>“Mhmm~~ hehehe~~ nice pillow…” she murmured, rubbing her face against his chest, and he gave a soft chuckle.</p>
+<p>“Mhmm hehehe nice pillow…” she murmured, rubbing her face against his chest, and he gave a soft chuckle.</p>
 <p>He took the opportunity to admire her body.</p>
 <p>Those huge breasts pressed against his chest, warm and so soft they seemed to melt over him.</p>
 <p>The delicate curve of her back, which he could see over her shoulder, sloping down to her slim waist. And that ass—juicy, perfect, lifted in a way that made her waist seem even smaller—one of her thick thighs draped over his legs.</p>

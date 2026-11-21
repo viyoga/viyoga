@@ -49,7 +49,7 @@ chapter = 325
 <p>He gently massaged the soft flesh and forced love juices out of her honeypot with wet and sloppy sounds. Even his balls grew wet with her juices as they rhythmically slapped against her soft butt.</p>
 <p>Sol moved his arms around her, placing them at her front, and grabbed her small breasts in his large palms. They were the perfect size to fit in his hands. Neither too big nor too small.</p>
 <p>He teased them with his experienced movements and stroked the erect nipples with the pads of his thumbs, taking note to not put too much pressure.</p>
-<p>“Ah~… That feels great.”</p>
+<p>“Ah… That feels great.”</p>
 <p>Her intoxicated voice suggested she was drowning in the masochism of being teased by a boy so much younger than her.</p>
 <p>She was normally a dignified warrior and queen, but it was clear that she had a secret masochistic side to her.</p>
 <p>Sol found it interesting as it was something she shared with Nent. Though to a different degree. It was information worth pondering later on. Now he needed to focus more on Kiyohime— his masochistic dragon queen.</p>
@@ -75,7 +75,7 @@ chapter = 325
 <p>Kiyohime was the first one to reach the peak. She let out a wild sound as her entire body convulsed with such great intensity that it almost scared Sol.</p>
 <p>The crazed wave-like motion of her body repeated again and again and her vagina tightened seductively around his bulging and throbbing penis.</p>
 <p>This was the last straw for Sol.</p>
-<p>“Kuh~!”</p>
+<p>“Kuh!”</p>
 <p>He sprayed his cum straight into the deepest point of her vagina while continuing his piston-like movements, not stopping throughout the point of her orgasm.</p>
 <p>“Ah, ahh, ahh…”</p>
 <p>Kiyohime wordlessly trembled as her vagina continued contracting again and again until she was done sucking out every last drop out of him.</p>

@@ -64,10 +64,10 @@ chapter = 1024
 <p>"Ah.... So that's what it was?"</p>
 <p>If I were alone, I was confident I could be safe, but seeing the crazed Gaze of those who had come up onto the Deck, from the Position of having to take care of the other comrades, I judged that I should observe The Situation for a while.</p>
 <p>"Did you buy anything at the auction?"</p>
-<p>"Perhaps because of that book called the Fragment of Omniscience, the auction wasn't as fierce as expected, so I managed to snag a few things~!"</p>
+<p>"Perhaps because of that book called the Fragment of Omniscience, the auction wasn't as fierce as expected, so I managed to snag a few things!"</p>
 <p>Thinking we might as well talk while waiting, I asked Kujo Kina if she had bought anything, and Kujo Kina showed me a V-sign and said.</p>
 <p>"What did you buy?"</p>
-<p>"Rieko and I got matching Friendship rings~!"</p>
+<p>"Rieko and I got matching Friendship rings!"</p>
 <p>Kujo Kina said, holding Sei and Rieko's Hands and showing them. Golden rings were worn on Kujo Kina's, Sei's, and Rieko's Fingers. Even if they bought them cheaply, as AmSang auction items, they would be at least 100,000 Dollars, so I wondered if they were really Friendship rings.</p>
 <p>Sei and Rieko also wore quite expensive auction items as Friendship rings, so they made slightly burdened Expressions.</p>
 <p>It was then. With a Kwaaaang roar, the wall of the special room where we were burst open, and several People began to fly away on something. Looking closely, they were men wearing turbans, flying towards the land on carpets.</p>
@@ -94,15 +94,15 @@ chapter = 1024
 <p>1.</p>
 <p>2.</p>
 <p>The handstand is a bit awkward, but it's tolerable, so I'm uploading it haha.</p>
-<p>Chomisaemeonji-nim requested Liz showering, Liz tying her Hair in a Ponytail~!</p>
-<p>Shower~!</p>
-<p>Hair tying~!</p>
+<p>Chomisaemeonji-nim requested Liz showering, Liz tying her Hair in a Ponytail!</p>
+<p>Shower!</p>
+<p>Hair tying!</p>
 <p>The Ponytail suits Liz quite well haha.</p>
-<p>MidNightSKY-nim requested Alik Liz breast Size up~!</p>
+<p>MidNightSKY-nim requested Alik Liz breast Size up!</p>
 <p>The breast Size I've made so far was HUGE at maximum, but actually, there was still a prompt called 'Gigantic Breast'.</p>
 <p>Alik</p>
 <p>One Size up -&gt; HUGE</p>
 <p>Gigantic....</p>
-<p>Liz~!</p>
+<p>Liz!</p>
 <p>Liz was originally HUGE, so I tried making them all with 'Gigantic Breast'. The writer is also more of a Big Tits fan than a Flat-chested fan, but this big, it's a bit grotesque ㄷㄷㄷ.</p>
 <p>Reflecting the writer's personal Preference, I will not accept requests to increase breast Size to 'Gigantic Breast' from now on haha.</p>

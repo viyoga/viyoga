@@ -107,6 +107,6 @@ chapter = 456
 <p>Then she stopped.</p>
 <p>Her eyes took in the city rising before her, the enormous wall stretching as far as the eye could see. Her blood-red lips curved slowly, revealing a pair of sharp, delicate fangs.</p>
 <p>"Hmm... so this is my Emperor’s home?" She felt the ring between her slender, pale fingers tremble faintly.</p>
-<p>"Fufufu~ this is going to be interesting." Her smile widened, and she continued on her way.</p>
+<p>"Fufufu this is going to be interesting." Her smile widened, and she continued on her way.</p>
 <p>No guard stopped her. No one on the streets so much as glanced her way.</p>
 <p>It was as if she didn’t even exist—nothing but the loud clicks of her heels echoing off the basalt.</p>

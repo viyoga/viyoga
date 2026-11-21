@@ -24,7 +24,7 @@ chapter = 1851
 <p>She timed her hips against his tempo instead of surrendering to it, clenched on the withdrawal the way Lucille had taught the whole family, arched her spine to steal the angle he wanted for himself, and put every drop of her remaining discipline into one sustained counter-offensive.</p>
 <p>Quinlan’s breath caught, and a low groan rolled out of him, short and involuntary and real.</p>
 <p>The effect on Ayame was instantaneous and deranged. Her whole body lit like a lantern.</p>
-<p>"Heard that~?" she gasped at her sister, eyes shining with unholy triumph even as he punished the insurrection with interest. "That sound... hah... four hundred years... won’t be enough... for you to earn... one of those~"</p>
+<p>"Heard that?" she gasped at her sister, eyes shining with unholy triumph even as he punished the insurrection with interest. "That sound... hah... four hundred years... won’t be enough... for you to earn... one of those"</p>
 <p>Black Fang said nothing.</p>
 <p>But she looked, for a long, level moment, at the man in question, and the ledger gained another line.</p>
 <p>The insurrection was answered as insurrections are. Quinlan pulled her up off the floor entirely, back against his chest, knees hooked over his forearms, wide open and helpless with her whole weight riding gravity down onto him, and a sound rolled out of his chest against her spine, low and long, the growl of the man who had decided to stop being polite.</p>
@@ -72,7 +72,7 @@ chapter = 1851
 <p>’Ah,’ reported the last sober piece of Ayame’s mind. ’I overdid it.’</p>
 <p>A small black vial appeared in Black Fang’s hand out of nowhere.</p>
 <p>Ayame saw it and grinned through her gasping, hubris arriving right on schedule.</p>
-<p>"Hah... I already know... I can take those..." She tossed her sweat-dark hair. "I bathed in your poison, remember... your blend was like... warm milk~"</p>
+<p>"Hah... I already know... I can take those..." She tossed her sweat-dark hair. "I bathed in your poison, remember... your blend was like... warm milk"</p>
 <p>Black Fang’s eyes began shining with the promise of pure terror.</p>
 <p>"This..." she twirled the vial between her fingers. "Is not the rookie blend."</p>
 <p>"...Mercy." The bratty cockiness left the girl as if such things had never existed in her to begin with.</p>

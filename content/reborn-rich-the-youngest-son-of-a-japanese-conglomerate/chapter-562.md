@@ -30,13 +30,13 @@ chapter = 562
 <p>,Hehe, my lord... I like being alone with you.</p>
 <p>Sakagami Rena was acting a bit more spoiled now that her two friends had left and she was alone with me. As I walked, stroking Sakagami Rena's head and pinching her cheeks, I arrived at the love hotel where the Dark Merchant branch was located.</p>
 <p>There, Naruse Shiyo, unable to bring herself to enter the love hotel, was standing anxiously in a corner. She greeted us happily, but paused for a moment when she saw Sakagami Rena clinging to me.</p>
-<p>,Se-, Sensei-nim~! What's that clinging to you?!</p>
+<p>,Se-, Sensei-nim! What's that clinging to you?!</p>
 <p>,It's me, as you can see, Shiyo.</p>
 <p>,Let's go in for now.</p>
 <p>,I-, I'm going to cling too, yap!</p>
 <p>Naruse Shiyo even clung to me as we entered the love hotel, making me feel like a gold-digging gigolo surrounded by women. I do have the looks of a gold-digger and I do sleep with a lot of women, but it felt a bit unfair since I haven't done anything with Naruse Shiyo yet. I have an iron rule against touching minors.</p>
 <p>After entering the love hotel, we found a staircase that was just wide enough for two people to pass. The two started bickering over who would hold my hand as we went down, so, for the sake of Eve and Asada Ei who were waiting, I left them behind and went down the stairs first.</p>
-<p>I could hear them calling out, ,My loooord~! or Sensei-niim!, but I told them to hurry up and entered the Dark Merchant Miyashi branch.</p>
+<p>I could hear them calling out, ,My loooord! or Sensei-niim!, but I told them to hurry up and entered the Dark Merchant Miyashi branch.</p>
 <p>,Ryuta-nim, you're not late?</p>
 <p>,Yes. Information is important.</p>
 <p>I could have continued to buy information from Eve without creating an information organization, but the Dark Merchant is actually more like a union of dark merchants around the world, so Eve couldn't freely control the information, and there were many times when I couldn't get the information I wanted, so I just created an information organization.</p>

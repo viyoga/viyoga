@@ -63,11 +63,11 @@ chapter = 83
 
 <p>Her pussy was already dripping wet... but Owen refrained from making another sneaky attack. Let her do the work, let her cook!</p>
 
-<p>&quot;Why should I close my eyes, Mom, ~?&quot;</p>
+<p>&quot;Why should I close my eyes, Mom, ?&quot;</p>
 
 <p>&quot;J-just close them... you dummy, Wen...&quot;</p>
 
-<p>&quot;Hoho, okay, Mom~.&quot; Owen wouldn’t let the opportunity to tease her pass. Then he closed his eyes.</p>
+<p>&quot;Hoho, okay, Mom.&quot; Owen wouldn’t let the opportunity to tease her pass. Then he closed his eyes.</p>
 
 <p>Squelch... squelch... squelch...</p>
 
@@ -105,7 +105,7 @@ chapter = 83
 
 <p>&quot;Ahnn... n-no, but you are being disciplined today. You will follow me... got it? Ahnn... ahnn...&quot;</p>
 
-<p>&quot;Oh, okay, Mom~. But can I open my eyes now?&quot; Owen’s pleading voice echoed straight to her ears, making her move faster.</p>
+<p>&quot;Oh, okay, Mom. But can I open my eyes now?&quot; Owen’s pleading voice echoed straight to her ears, making her move faster.</p>
 
 <p>Her son sees her do a titty fuck? Damn... that would be an ultra-big thumbs up.</p>
 

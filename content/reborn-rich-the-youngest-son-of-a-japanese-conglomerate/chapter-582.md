@@ -18,15 +18,15 @@ chapter = 582
 <p>They combined Suzhou, Wuxi, and Changzhou, which are located between the northern part of Taihu Lake and the southern part of the lower reaches of the Yangtze River, to create the New Nanjing Special Economic Zone. Nanjing was a little further northwest than New Nanjing, so there wasn't much basis for calling it New Nanjing. Neo Tokyo is also being built in Chiba, not Tokyo, so it felt similar to New Nanjing.</p>
 <p>Another TMI is that, as it combines three cities in China, it's almost the size of Gyeonggi Province in Korea and holds the record for the largest technology city in the world.</p>
 <p>New Nanjing lost the record for the world's first technology city to Pyongyang, but instead increased its size to have its own record. Of course, it became famous because of this new record, but it also had the disadvantage of poor security and high costs due to its large size. I was thinking about New Nanjing for a moment when I heard a cheerful voice from the window seat next to me.</p>
-<p>"Next to my seat is... Sensei-nim sitting here~!"</p>
+<p>"Next to my seat is... Sensei-nim sitting here!"</p>
 <p>"Hello."</p>
 <p>Uenozono Karen-ssi, who was explaining this and that, turned the camera towards me this time and explained that the teacher was here. I smiled slightly at the camera and greeted her, and Uenozono Karen-ssi turned the camera to show her face and me together. Looking at the camera angle, it seemed like Kijimoto Jurie-ssi, who was dozing off next to me, was also being filmed, so I reached out and gently shook her shoulder.</p>
 <p>"Euhung? I can't do it anymore...♥"</p>
 <p>What kind of sleep talk is that? Anyone who hears it will misunderstand. Of course, that misunderstanding isn't a misunderstanding, it's something that actually happened last night, but I was planning to insist that it was a misunderstanding if anyone asked.</p>
 <p>"Nurse teacher, what kind of dream were you having?"</p>
 <p>"Ah, yeah... I had a dream about exercising, but they kept making me do it, so I said I couldn't."</p>
-<p>"Ah... Is that so? Say hello to the camera, Sensei-nim~!"</p>
-<p>"Hello~! I'm nurse teacher Kijimoto Jurie-ssi."</p>
+<p>"Ah... Is that so? Say hello to the camera, Sensei-nim!"</p>
+<p>"Hello! I'm nurse teacher Kijimoto Jurie-ssi."</p>
 <p>As Kijimoto Jurie-ssi bowed her head and greeted, the in-flight meal soon came out. I always go for meat, so I ordered beef steak, and everyone else received their food as well, and we started eating. Uenozono Karen-ssi was filming a mukbang while showing the in-flight meal, and Kijimoto Jurie-ssi seemed tired, so she didn't eat much, returned her plate, and fell back asleep.</p>
 <p>I couldn't sleep either, so should I try to sleep...? I quickly stuffed the steak into my mouth and took out an eye mask from my pocket.</p>
 <p>"Shall I take your plate?"</p>
@@ -35,14 +35,14 @@ chapter = 582
 <p>###</p>
 <p>When Uenozono Karen-ssi boarded the plane, Uenozono Karen-ssi's graduation trip vlog was uploaded to Seriph's MiTube. If it was uploaded while she was in Korea, there was a possibility that fans would chase her around and tire out not only Uenozono Karen-ssi but also the young ladies of St. Francis Girls' Academy, so the video of her departing on her graduation trip was uploaded when she left Korea to prevent problems during the graduation trip.</p>
 <p>The title was Karen's Graduation Trip DAY-1 (1), and it was a video that divided the vlog of one day into two parts.</p>
-<p>"On the way to the airport~! Next to me is my friend Naruse Shiyo-ssi."</p>
-<p>"Hello~!"</p>
+<p>"On the way to the airport! Next to me is my friend Naruse Shiyo-ssi."</p>
+<p>"Hello!"</p>
 <p>The vlog, which started with a scene of Uenozono Karen-ssi and Naruse Shiyo-ssi appearing on the same screen inside the bus, showed a calm video of the first day, and the scene of her being excited while showing the view outside the window on the plane made the fans laugh.</p>
 <p>"Everyone, can you see it? I'm going to Korea."</p>
 <p>As soon as the plane scene ended, the screen showed the hotel room where Uenozono Karen-ssi was staying, which was a triple room, so Uenozono Karen-ssi's introduction of her friends continued again. Her roommates were Konoe Akina-ssi and Naruse Shiyo-ssi, who was sitting next to her on the bus just now.</p>
 <p>After the accommodation introduction scene, the next scene was the meal scene. They had a meal at the hotel's Chinese restaurant, and there was a scene where their homeroom teacher, Yamashiro Ryuta-gun, briefly recommended Korean-style Chinese food and a mukbang scene.</p>
 <p>After that, there was a scene like a preview of the Lute World episode, where all the special class students were shown wearing Korean school uniforms once, and the first episode of the graduation trip vlog ended. KPOP was still enjoying worldwide popularity, so many comments were posted in an instant after the video was uploaded.</p>
-<p>-As expected, KAREN is so cute~!😍 I hope you have a fun trip~!</p>
+<p>-As expected, KAREN is so cute!😍 I hope you have a fun trip!</p>
 <p>-Why are all of Karen's classmates so pretty? Do you have to be pretty to be Karen's friend? ㅠㅠ I can't be friends😭😭</p>
 <p>-Japanese high school girls wearing Korean school uniforms... I enjoyed the meal lol</p>
 <p>-Mr. Kim Gu, are you watching? Korean school uniforms have won...!</p>

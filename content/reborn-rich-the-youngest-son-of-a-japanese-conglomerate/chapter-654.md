@@ -26,9 +26,9 @@ chapter = 654
 <p>Ah, is it because of the one-day vacation pass I got from the sports day? They're having meetings every break, how much do they like to play?</p>
 <p>"So, where are you planning to go?"</p>
 <p>"Don't talk like we're going without you, Ryuta-jji! We're going together."</p>
-<p>"That's right~! We have to go together and have fun~."</p>
+<p>"That's right! We have to go together and have fun."</p>
 <p>Of course, I understand that I'm going with them, but I don't know why they're so excited. When I kept looking at them with an expression that said, "Tell me more," Seizawa Shii stood up from her seat with a triumphant expression.</p>
-<p>"The vacation spot we're going to this time is a ski resort~!"</p>
+<p>"The vacation spot we're going to this time is a ski resort!"</p>
 <p>Ah, since it's winter, a ski resort is perfect. I was watching to see if there was anything else, but it seemed like they had only decided where to go, and Seizawa Shii was sitting back down.</p>
 <p>"So, when are we going?"</p>
 <p>For reference, the second semester was until the third week of December. There were roughly two weeks of winter vacation, and the third semester started on the second Monday of January. If we were going during vacation, the vacation pass would be meaningless, so we had to decide whether to go during the remaining two weeks of December or as soon as the third semester started.</p>
@@ -50,7 +50,7 @@ chapter = 654
 <p>"Oh, about inviting you to our dojo during the festival."</p>
 <p>"Ah, that's right. Wasn't it more of a... sparring request than an invitation?"</p>
 <p>I remember that a guy named Li Xin, who was Kujo Kina's disciple, had asked me for a match.</p>
-<p>"Sparring is an invitation~! I'm trying to set a date for it."</p>
+<p>"Sparring is an invitation! I'm trying to set a date for it."</p>
 <p>Sparring is an invitation... Kujo Kina seemed to have been influenced a lot by Old Man Yoda. She already had a reckless side, but it felt like it had gotten worse since she became Old Man Yoda's disciple.</p>
 <p>"Alik?"</p>
 <p>"I told Alik to stay for a bit. Alik and Alik's master were going to come together, right?"</p>
@@ -58,7 +58,7 @@ chapter = 654
 <p>"Alik, did you hear anything from Shimokawabe seonsaengnim?"</p>
 <p>"Moka-sabu didn't say anything."</p>
 <p>"Then I'll have to go ask."</p>
-<p>"If we're going to set a date anyway, we should decide on a day that works for both of us, so let's go to Cheongsim Hall together~!"</p>
+<p>"If we're going to set a date anyway, we should decide on a day that works for both of us, so let's go to Cheongsim Hall together!"</p>
 <p>Ah, so that's why Kujo Kina left Alik behind. To go to Cheongsim Hall together. I nodded, took Alik's hand, and headed to Cheongsim Hall.</p>
 <p>"Old Man Yoda on your side must have days when he's available and days when he's not, right?"</p>
 <p>"Well, we live in the dojo all the time, so there are hardly any days when we're not available. The kids aren't going to school yet either, so they're always at the dojo..."</p>
@@ -73,7 +73,7 @@ chapter = 654
 <p>Since I'm planning to recruit Shimokawabe Airen unconditionally when her teacher job ends this time, the sales of Cheongsim Hall's food stall will be slightly affected starting next year.</p>
 <p>When I went inside Cheongsim Hall, some Cheongsim Hall members approached us. No, they approached me.</p>
 <p>"Yamashiro seonsaengnim, I collected all 100 photo card sets!"</p>
-<p>"Me too~!"</p>
+<p>"Me too!"</p>
 <p>"I keep getting the same cards, so I couldn't collect them all..."</p>
 <p>Seriously, why are they showing me their photo card certifications so embarrassingly? In the end, the girls gathered to get autographs on the photo cards. To increase the rarity(?) even more? I was surrounded by Cheongsim Hall members for a while, signing autographs, before I could meet Shimokawabe Airen.</p>
 <p>"I heard that you're giving away seonsaengnim's photo card sets to acquaintances."</p>

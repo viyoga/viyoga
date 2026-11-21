@@ -37,9 +37,9 @@ Arya had no other choice but to hold her tightly in her arms as they watched the
 
 "Big sis, let me go!" Alexandra shouted as she wriggled her body to escape from Arya's grasp.
 
-"Let me go?" Arya repeated. She smiled and said in a singsong voice, "let me go~"
+"Let me go?" Arya repeated. She smiled and said in a singsong voice, "let me go"
 
-Then she outright began to sing, "let me gooo~ let me gooo~ can't hold it back anymore~ let me go–"
+Then she outright began to sing, "let me gooo let me gooo can't hold it back anymore let me go–"
 
 "The lyrics are 'Let it go'." Alexandra couldn't help but stop her and say.
 
@@ -49,7 +49,7 @@ Arya was singing the wrong lyrics and it sounded really bad.
 
 "Yes." Alexandra said and struggled again.
 
-"Alright. Let it gooo~ let it go–"
+"Alright. Let it gooo let it go–"
 
 "Please stop. You're hurting my ears." Alexandra protested.
 

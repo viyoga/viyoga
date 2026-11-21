@@ -45,7 +45,7 @@ chapter = 105
 
 <p>A soft, feminine squeal echoed as he slapped her plump, juicy ass, gripping hard and feeling the skin tremble between his fingers.</p>
 
-<p>“Ahhn~~… damned bastard…” Ruxue bit her lips, trying to suppress the muffled moan that escaped her mouth.</p>
+<p>“Ahhn… damned bastard…” Ruxue bit her lips, trying to suppress the muffled moan that escaped her mouth.</p>
 
 <p>” As long as you love that damned bastard’s cock, he’s pretty happy.” He kissed her, watching her beautiful face distort, her cheeks flushing a deep red.</p>
 

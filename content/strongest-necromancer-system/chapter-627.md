@@ -27,7 +27,7 @@ chapter = 627
 <p>"Yeah, it’s like she has a skill for everything. But your subordinates were better."</p>
 <p>"I suppose, but they couldn’t talk, so it was difficult to have conversations with them."</p>
 <p>"That’s why they were better. At least they didn’t talk our ears off -"</p>
-<p>"Master! I found a good place~!"</p>
+<p>"Master! I found a good place!"</p>
 <p>Both Jason and Gina were shocked when they saw Stella coming back already! It had only been about two minutes since she left, so how in the world did she find something so quickly? Stella waved them over, and they took off into the sky and followed Stella towards a cave on the other side of the forest. The cave was carved out from the side of a mountain, and when they got close, Jason saw that there was already a fire as well as a bed made from straw and covered in large blankets for them. How in the world did Stella do all this in two minutes?</p>
 <p>Jason asked this question, and Stella answered proudly.</p>
 <p>"It’s a trade secret, master. Just be assured that anything you wish for will be accomplished in record time."</p>

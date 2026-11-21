@@ -70,7 +70,7 @@ chapter = 608
 <p>Suddenly, if the director of the Taira Human Resources Development Institute and the president of Taira Foods, who have no connection, come to the festival, it will be a huge topic.</p>
 <p>"If I say I came to see Kanna, no one will doubt it. I took care of her often when she was young."</p>
 <p>Nagumo Sian replied. Actually, for some reason, Taira Kanna didn't seem to like Yukiko very much, but she seemed to like Nagumo Sian, who she had met since she was young.</p>
-<p>"I can transform into Rena's teacher like before~!"</p>
+<p>"I can transform into Rena's teacher like before!"</p>
 <p>Ah, that's right. Yukiko was Sakagami Rena's illusion magic teacher. I received quite a bit of help from Yukiko during the Naruse Shiyo rescue as well.</p>
 <p>"But Yukiko-ssi, how did you learn illusion magic so well that you can teach others in such a short time?"</p>
 <p>No matter how much of a succubus she is, skills require proficiency, so I was always curious about how she uses illusion magic so skillfully. Besides, I was quite surprised that she was proficient in other spells besides illusion magic during the Naruse Shiyo rescue. Since the story of being Sakagami Rena's teacher came up, I decided to ask.</p>

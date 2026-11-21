@@ -13,7 +13,7 @@ Lilith moaned as her pussy got slapped by Lith's shaft repeatedly. She started f
 
 PAH!
 
-"Ohhh~!"
+"Ohhh!"
 
 Lith tormented the innocent peaches and said, "Trying to defy my orders? That too in front of me? Haven't you gotten quite bold, wifey?"
 
@@ -35,7 +35,7 @@ Five minutes passed in the blink of an eye. "Your Highness, it's done," said Lun
 
 "Is it?" Lith asked back and took out his shaft from Lilith's pussy. "Hey, wait. I'm so close to cumming." Lilith protested. "Insert it in her ass, Luna." Lith ignored her and said. Luna held the long, slippery shaft of Lith and pointed it at Lilith's backdoor. Lith pushed it in, and…
 
-Felt resistance.  It did not get in and slipped, going right inside Luna's mouth that was close to Lilith's ass hole. "Mhff~" Luna raised her eyebrows and tasted the lewd juices on her Prince's cock. "Tsk." Lith clicked his tongue. "I expected better from you, Luna. It seems that you really need to be punished."
+Felt resistance.  It did not get in and slipped, going right inside Luna's mouth that was close to Lilith's ass hole. "Mhff" Luna raised her eyebrows and tasted the lewd juices on her Prince's cock. "Tsk." Lith clicked his tongue. "I expected better from you, Luna. It seems that you really need to be punished."
 
 "Afologwez yorf hyfness…" Luna said and sucked on Lith's shaft, taking it deep inside her throat.
 
@@ -87,7 +87,7 @@ Luna panicked. She didn't want more punishment as they genuinely sounded harsh. 
 
 Lilith found it hard to breathe as she was moaning continuously. Her lewd gasps sounded like a sweet melody to Lith, who felt invigorated and pounded her hard.
 
-As he had said, a minute later, his shaft bulged and twitched inside Lilith, then exploded instantly. "Ohhhhhhh~!"
+As he had said, a minute later, his shaft bulged and twitched inside Lilith, then exploded instantly. "Ohhhhhhh!"
 
 Squirt… Squirt…
 

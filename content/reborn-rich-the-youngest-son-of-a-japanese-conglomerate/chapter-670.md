@@ -22,21 +22,21 @@ chapter = 670
 <p>"Ah, you're here? Shimokawabe-seonsaengnim?"</p>
 <p>It seems like Shimokawabe Airen came with her. I could also see Naruse Shiyo coming from behind, carrying a large icebox.</p>
 <p>It seems like Naruse Shiyo is also being treated as a disciple, as the three of them seem to be together these days.</p>
-<p>"Seonsaengnim~! I brought a lot of delicious things."</p>
+<p>"Seonsaengnim! I brought a lot of delicious things."</p>
 <p>"Really? What did you bring?"</p>
 <p>Naruse Shiyo asked confidently, so I asked, and instead of answering, she opened the icebox to show me. Oysters and shrimp, which are in season in December, were piled on top of ice packs. That's quite a lot. This alone would be enough for at least seven people.</p>
-<p>"I've prepared everything, so you can just grill it right away~!"</p>
+<p>"I've prepared everything, so you can just grill it right away!"</p>
 <p>"Sounds delicious. Can you put it on that table over there?"</p>
-<p>"Yes~!"</p>
+<p>"Yes!"</p>
 <p>As I said, Naruse Shiyo put the icebox next to the meat on the ingredient table next to her, and she looked at me with curious eyes as I lit the charcoal.</p>
 <p>"When I wasn't feeling well, I really wanted to go camping like this."</p>
 <p>"Really? We should go together sometime."</p>
 <p>"Ryuta, Alik go together too."</p>
 <p>"Yeah, let's all go together."</p>
-<p>"Alik, what the heck~ I wanted to go alone with seonsaengnim!"</p>
+<p>"Alik, what the heck I wanted to go alone with seonsaengnim!"</p>
 <p>"Alik go together too."</p>
 <p>While we were talking about the camping trip we were going to take, the other students arrived one after another. Otagi Yuka and Saionji Diana, who came after the home ec teacher and her disciples, brought drinks. The liquid drinks were heavy, but both of them were strong, so they carried them without any trouble.</p>
-<p>"Ryuta-cchi~!"</p>
+<p>"Ryuta-cchi!"</p>
 <p>"Sensei!"</p>
 <p>Surprisingly, Seizawa Shii and Kujo Kina came together. It seems like Seizawa Shii stopped by the Kujo's mansion this morning to apologize to Old Man Yoda.</p>
 <p>"I don't have any money to compensate for the light truck, so I don't have anything. Instead, Kinacchi brought a lot."</p>
@@ -72,7 +72,7 @@ chapter = 670
 <p>"Yeah. I had a lot of trouble because of you troublemakers."</p>
 <p>The special class students burst out laughing even though they were calling themselves troublemakers. It seemed like it was funny that I was saying that I had a hard time.</p>
 <p>And everyone started eating lunch as the ingredients they had put on were cooked. Hmm, it's already expensive meat, but it tastes even better grilled over charcoal.</p>
-<p>"Ryuta, ah~."</p>
+<p>"Ryuta, ah."</p>
 <p>As expected, Alik cut a frankfurter she had grilled in half and put it in my mouth.</p>
 <p>"Ah.... The frankfurter is delicious."</p>
 <p>"Is it delicious?"</p>
@@ -99,7 +99,7 @@ chapter = 670
 <p>For dinner, we decided to cook with the remaining ingredients instead of grilling. Since we had Shimokawabe Airen, the home ec teacher, and many students who were good at cooking, the dishes were completed quickly.</p>
 <p>We made seafood pasta with king crab innards as the sauce and topped with plenty of shrimp and shellfish, and fried the remaining meat to make fried meat. The soup was miso soup made with high-quality white miso in a refreshing shellfish broth.</p>
 <p>Even after doing that, there were still a lot of ingredients left, so we put the remaining ingredients in the club refrigerator for now.</p>
-<p>"Oh~! It's delicious. I thought it would be a bit fishy because there's a lot of crab innards in it, but it's not fishy at all?"</p>
+<p>"Oh! It's delicious. I thought it would be a bit fishy because there's a lot of crab innards in it, but it's not fishy at all?"</p>
 <p>"That's because the crab is fresh. I also added a little pepper."</p>
 <p>As expected, everyone was skilled, so all the dishes that came out were delicious. Everyone enjoyed the meal and did the dishes, and then today's party ended.</p>
 <p>"I had fun today. See you all on Monday."</p>

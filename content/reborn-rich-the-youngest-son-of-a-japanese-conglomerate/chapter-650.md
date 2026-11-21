@@ -38,9 +38,9 @@ chapter = 650
 <p>Participate no matter what, that's quite coercive. Minamoto Lisa nodded with a determined expression at my question of "No matter what?" After that, Seizawa Shii was making a sad face, saying, "Ryuta-zzi, you weren't planning on coming to the reunion, were you?" The others had similar reactions, so I said, "Okay, I'll go, so stop making that face," and everyone laughed wahaha.</p>
 <p>,Then you also get only 500,000 yen like the club members. It's very little compared to what you've done, but since you said to use the money you would receive for the reunion fees, I'll divert the originally allocated amount to that.</p>
 <p>Divert it to the reunion fees... I wonder how much she was planning to give me. I glanced at the tablet and saw the words "10 million yen" crossed out. She wasn't planning to give me 10 million yen, was she? Minamoto Lisa is quite generous.</p>
-<p>,Everyone has received their money, so you are free to enjoy the festival. But we're planning to watch the fireworks together, so everyone gather at the special class building by 9:20 PM~!</p>
+<p>,Everyone has received their money, so you are free to enjoy the festival. But we're planning to watch the fireworks together, so everyone gather at the special class building by 9:20 PM!</p>
 <p>,Okay, Ryuta-zzi!</p>
-<p>,Yes~!</p>
+<p>,Yes!</p>
 <p>In fact, the St. Francisco Girls' Academy Festival was until 10 PM. The festival ended after watching the fireworks for 30 minutes from 9:30, but most clubs were open until before the fireworks. The Date Experience Club finishing this early was a bit unusual.</p>
 <p>,My master and disciples are waiting for me, so I'm going to go there!</p>
 <p>,I have customers too.</p>
@@ -64,7 +64,7 @@ chapter = 650
 <p>,Woman? Another woman?</p>
 <p>,As expected of a hero, Master!</p>
 <p>,My dragon heart is pounding because Sensei-nim is meeting another woman...!</p>
-<p>Otagi Yuka looked at me with an expression that said, "You're amazing!" and Sakagami Rena had an expression that said, "I knew it~!"</p>
+<p>Otagi Yuka looked at me with an expression that said, "You're amazing!" and Sakagami Rena had an expression that said, "I knew it!"</p>
 <p>Naruse Shiyo looked at me with slightly empty eyes, and that look was quite scary. Besides, her dragon heart is pounding...! You don't have some kind of King Engine, so why is it pounding?</p>
 <p>The others just had expressions that said, "He's always like this." Hmm, when did my image become a Casanova? I haven't really taken the initiative to seduce anyone.</p>
 <p>,No, it's not what you guys are thinking... Listen.</p>

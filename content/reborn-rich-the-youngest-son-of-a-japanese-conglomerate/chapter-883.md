@@ -90,8 +90,8 @@ chapter = 883
 <p>●Damage amplification on critical hit.</p>
 <p>●Increased critical hit Probability on first Impact after concealment.</p>
 <p>Requested by TheDreaming-nim: Karen naked performance, naked Interview</p>
-<p>Naked performance~!</p>
-<p>Interview~!</p>
-<p>Requested by Gojoy-nim: Cheon Harin belly dancer Tape attire~!</p>
-<p>Belly dancer~!</p>
-<p>Tape~!</p>
+<p>Naked performance!</p>
+<p>Interview!</p>
+<p>Requested by Gojoy-nim: Cheon Harin belly dancer Tape attire!</p>
+<p>Belly dancer!</p>
+<p>Tape!</p>

@@ -62,7 +62,7 @@ chapter = 954
 <p>Ayame moved next, silent as a shadow, precise as a sword. She didnt even bother with words. Her deft hands slid to the silk waistband of his formal trousers. *Slide. Tug. Yank.* In one brutal, efficient pull honed from years of swordsmanship, they were around his knees.</p>
 <p>Her eyes flashed as she pulled them lower. "Armor off before bed battle..."</p>
 <p>Two arms circled him from behind.</p>
-<p>"Gotcha Master~ Meow~" came Blossoms sweet, mischievous laughter. Her fingers immediately dug into the waistband at the back, helping Ayame finish the job from the rear. But not without mischief: her nose nuzzled against his back, sniffing deeply. "Mmm... Blossom missed Masters scent... missed it so much."</p>
+<p>"Gotcha Master Meow" came Blossoms sweet, mischievous laughter. Her fingers immediately dug into the waistband at the back, helping Ayame finish the job from the rear. But not without mischief: her nose nuzzled against his back, sniffing deeply. "Mmm... Blossom missed Masters scent... missed it so much."</p>
 <p>Her tail wagged uncontrollably even as she giggled, fingers trailing along his spine before slipping lowerway lower. She was already busy massaging his behind, even if it wasnt bare just yet.</p>
 <p>"Oi, arent you supposed to be a needy catgirl?" Lucilles playful voice came as she swooped in, her caramel hair bouncing.</p>
 <p>"M-meow!" Blossom yelped, but was ignored by the Bloodmonger, far too invested in her target, his belt. Her deft fingers worked the buckle with a confidence only a motherand a professional throat goatcould wield. "This... is coming off." *Clink.* "This... too." *Flick.*</p>

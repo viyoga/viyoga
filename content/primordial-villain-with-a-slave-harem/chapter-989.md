@@ -52,7 +52,7 @@ chapter = 989
 <p>For the first time in months.</p>
 <p>His eyes were calm, yet shone with the intensity of someone who had been submerged in truth far beyond normal comprehension.</p>
 <p>At the exact same moment, Rosie released a sharp puff of breath and let her hands fall to her sides. She flopped backward into a sitting position on her branch with a little squeak.</p>
-<p>"Whew~!" she huffed, wiping her forehead dramatically with her wrist. "That took soooo long."</p>
+<p>"Whew!" she huffed, wiping her forehead dramatically with her wrist. "That took soooo long."</p>
 <p>Then her senses spotted him.</p>
 <p>Her entire body lit up like springtime sunlight. With a joyful squeal, she kicked off the branch and dove. In a blink, she was at Quinlan’s location, latching onto his face with her full body.</p>
 <p>"Papa!" she chirped, rubbing her cheek against his like a nuzzling squirrel. "I’m done!"</p>

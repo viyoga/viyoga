@@ -61,7 +61,7 @@ chapter = 271
 
 <p>“So, shall we?” Qingyi smiled, his palm falling on Biyue’s ass with a dry slap, the voluptuous flesh swaying violently before being controlled by his possessive grip.</p>
 
-<p>“Nghn~~yes… husband,” Biyue blushed, holding onto Qingyi’s robes, casting one last burning glance at him before joining the other girls in the world of the mind.</p>
+<p>“Nghnyes… husband,” Biyue blushed, holding onto Qingyi’s robes, casting one last burning glance at him before joining the other girls in the world of the mind.</p>
 
 <p>With a sigh, Qingyi waved his hands and a huge figure with black scales and purple eyes appeared, roaring angrily at him.</p>
 

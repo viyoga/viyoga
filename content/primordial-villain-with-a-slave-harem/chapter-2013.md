@@ -50,7 +50,7 @@ chapter = 2013
 <p>"Ahem."</p>
 <p>The three of them looked toward Vex.</p>
 <p>The witch was smiling. Her red eyes followed Tavi’s hands until the freckled adventurer stopped pulling.</p>
-<p>"Hands where I can see them, ladies~"</p>
+<p>"Hands where I can see them, ladies"</p>
 <p>"You can see mine," Tavi offered hopefully.</p>
 <p>"I can also see where you’re taking his."</p>
 <p>"Ah."</p>

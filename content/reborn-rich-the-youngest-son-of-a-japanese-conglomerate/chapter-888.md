@@ -65,15 +65,15 @@ chapter = 888
 <p>Funayama Seigo, as if he had just remembered, Commanded the Anyaji monks who had appeared with the Esoteric Monks. Five Anyaji monks, after bowing in response to Funayama Seigo's Command, ran towards the Entrance of the abandoned orphanage.</p>
 <p>Kwaaang!</p>
 <p>The five monks who were running were caught in the explosion that occurred at the Entrance of the abandoned orphanage and died. Because it was a considerably large explosion that would be difficult for an ordinary Person to withstand, even the highly trained Anyaji monks could not stop the Touch of Death.</p>
-<p>Requested by DoubleBarrelShotgun-nim: Wedding Dress Liz~!</p>
-<p>Kkiyoooot~!!</p>
-<p>Requested by Gojoy-nim: Succubus Yukiko Belly Dancer and Tape Attire~!</p>
-<p>Belly Dancer~!</p>
-<p>Tape~!</p>
-<p>Requested by ISaveI-nim: Angewomon Cosplay Konoka~! Naruto Ninja Attire Lena~!`</p>
-<p>Konoka first~!</p>
-<p>Lena~!</p>
+<p>Requested by DoubleBarrelShotgun-nim: Wedding Dress Liz!</p>
+<p>Kkiyoooot!!</p>
+<p>Requested by Gojoy-nim: Succubus Yukiko Belly Dancer and Tape Attire!</p>
+<p>Belly Dancer!</p>
+<p>Tape!</p>
+<p>Requested by ISaveI-nim: Angewomon Cosplay Konoka! Naruto Ninja Attire Lena!`</p>
+<p>Konoka first!</p>
+<p>Lena!</p>
 <p>I wondered if this fit the Naruto vibe, so I tried a different Style hehe.</p>
-<p>Kkiyot~!!</p>
-<p>Requested by MidNightSKY-nim: Child Linling looking at the night sky~!!</p>
+<p>Kkiyot!!</p>
+<p>Requested by MidNightSKY-nim: Child Linling looking at the night sky!!</p>
 <p>Her Expression is blank, but she's floating because she's in a good Mood hehe.</p>

@@ -37,7 +37,7 @@ chapter = 2043
 <p>"Nessa will keep us entertained," Feng added.</p>
 <p>Quinlan looked between them.</p>
 <p>"What did Nessa do?"</p>
-<p>"Nothing~" Felicity sang.</p>
+<p>"Nothing" Felicity sang.</p>
 <p>"She’s just very fun to tease," Feng explained, her earlier indignation giving way to a grin. "We’ll be helping her get used to the family."</p>
 <p>Nessa came through the kitchen doorway with a fresh pot of tea. Both girls turned toward her at once, their smiles so bright that the maid stopped beside the table.</p>
 <p>"My ladies?"</p>

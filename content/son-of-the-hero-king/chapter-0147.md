@@ -31,7 +31,7 @@ chapter = 147
 <p>"You taste like wine."</p>
 <p>Medea felt her blush burning through her cheeks. He changed his position and locked lips once more. Their tongues wrestled while their saliva mixed.</p>
 <p>He was focused on exploring the inside of her mouth through kissing. His tongue twisted and sucked on, then let go of her.</p>
-<p>"Ah~ !.."</p>
+<p>"Ah !.."</p>
 <p>A low moan escaped from deep within her throat. The soft kiss gradually heated up.</p>
 <p>Their kiss continued that way for many more rounds. Medea's shoulders, which had been stiff from nerves, gradually relaxed. His kisses were sweet and soothing.</p>
 <p>When he parted from a particularly long kiss, Medea lightly gasped for breath. With only this much, it felt like they had done more than enough already.</p>
@@ -47,7 +47,7 @@ chapter = 147
 <p>She was quietly laying down in bed while grasping onto the sheets, but her body would tremble while her hips jolted up from time to time. Gradually, he felt his lower half starting to grow hot.</p>
 <p>He let go of her breast, which was now wet with his saliva and moved to caress the other one. He licked, sometimes lightly bit, swallowed, and from time to time sucked with great force. Whenever his tongue moved, a tingling sensation would travel up her spine, and she couldn't help but moan in pleasure.</p>
 <p>After he teased her breasts to his content, his kisses traveled down to her abdomen. Medea wondered where his lips would advance next. She was gripping onto the sheets so hard, the tips of her fingers turned pale white.</p>
-<p>"Ah~…"</p>
+<p>"Ah…"</p>
 <p>His lips proceeded down to her lower abdomen and then to her inner thighs. His lips brushed against the deep portions of her inner thighs and began sucking. She felt a little sting. After all, it hadn't been long since her first time.</p>
 <p>Meanwhile, Sol raised back up before he took her breast in his hand and brought his other hand to her abdomen.</p>
 <p>He slowly let his hand brush down her abdomen and naturally slid it down to her inner thigh, pressing his fingers toward her crotch.</p>

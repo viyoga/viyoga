@@ -15,7 +15,7 @@ chapter = 396
 
 <p>Purity: 85%]</p>
 
-<p>“What do you think of that, hubby? Fufufu~~ your cute little wives are amazing, aren’t they? Don’t we deserve a reward?” Feiyan asked. Her beautiful face was flushed, taken over by a lewd expression. Without even waiting for Qingyi’s response, Feiyan pushed him against an armchair beside them and bent her knees, crouching between his spread legs.</p>
+<p>“What do you think of that, hubby? Fufufu your cute little wives are amazing, aren’t they? Don’t we deserve a reward?” Feiyan asked. Her beautiful face was flushed, taken over by a lewd expression. Without even waiting for Qingyi’s response, Feiyan pushed him against an armchair beside them and bent her knees, crouching between his spread legs.</p>
 
 <p>Her plump, perfectly round buttocks squeezed against her heels as she balanced on her tiptoes and her long, delicate fingers flowed to his pants, grabbing the fabric and pulling.</p>
 
@@ -49,7 +49,7 @@ chapter = 396
 
 <p>Meanwhile, his face sank into her huge pair of pale tits, his lips capturing one of her pink nipples.</p>
 
-<p>“Nghnn~~ I-uh… aghn~~” Biyue gasped. Her fingers grabbed Qingyi’s black hair as a sweet moan escaped her lips.</p>
+<p>“Nghnn I-uh… aghn” Biyue gasped. Her fingers grabbed Qingyi’s black hair as a sweet moan escaped her lips.</p>
 
 <p>Struggling to control her breathing, she continued, “It’s not that expensive… the temple’s spirit plantations should already produce enough for a few hundred pills a week…”</p>
 
@@ -63,17 +63,17 @@ chapter = 396
 
 <p>Her fingers sank into the fair lips, untouched by the sun that tanned her skin, massaging her clit as she felt her husband’s cock throb against her lips.</p>
 
-<p>Suddenly, she froze. A muffled moan escaped her throat, and then the first spurt of hot, sticky cum came, hitting the roof of her mouth. “Nghnn~~ Gulp~~” Feiyan swallowed the first mouthful, only to have her mouth instantly filled again.</p>
+<p>Suddenly, she froze. A muffled moan escaped her throat, and then the first spurt of hot, sticky cum came, hitting the roof of her mouth. “Nghnn Gulp” Feiyan swallowed the first mouthful, only to have her mouth instantly filled again.</p>
 
 <p>Each greedy gulp down her throat was accompanied by another thick spurt of cum.</p>
 
 <p>Her eyes were watery, her makeup smudged, and her throat tired, but she didn’t back down. She kept Qingyi’s cock in her lips until the last drop went down.</p>
 
-<p>“Nghn~~ ah… hubby was so full today…” She purred, looking up at Biyue.</p>
+<p>“Nghn ah… hubby was so full today…” She purred, looking up at Biyue.</p>
 
 <p>Biyue’s pussy was being worked on by Qingyi; two fingers pressed against her fat, pale vulva, massaging her pink clit and eliciting louder and louder moans until, finally, orgasm came.</p>
 
-<p>“Aghn~~ H-husband!” Biyue’s pink lips parted in a shrill moan, her body quickly losing strength.</p>
+<p>“Aghn H-husband!” Biyue’s pink lips parted in a shrill moan, her body quickly losing strength.</p>
 
 <p>“Ah… good girls…” Qingyi laughed, settling the two on his lap, making the armchair tremble with their weight.</p>
 

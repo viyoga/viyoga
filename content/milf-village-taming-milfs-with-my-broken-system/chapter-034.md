@@ -59,13 +59,13 @@ chapter = 34
 
 <p>A single spurt was nowhere near enough to satisfy and quench his unyielding cock, so she needed to exert herself even more.</p>
 
-<p>&quot;Okay~ slurp... slurp...&quot; Morenne finished cleaning his balls and slowly licked upward, tracking along the cock until her lips met the tip... the very head of the divine member.</p>
+<p>&quot;Okay slurp... slurp...&quot; Morenne finished cleaning his balls and slowly licked upward, tracking along the cock until her lips met the tip... the very head of the divine member.</p>
 
 <p>Morenne swirled her tongue gently against the sensitive pink head, causing Owen to rise on his tiptoes for a brief second from the sheer intensity of the ticklish attack.</p>
 
 <p>Right after an ejaculation, being licked directly on the head felt otherworldly; the hypersensitivity made his member swell even further, reinforcing his erection for an immediate second round.</p>
 
-<p>&quot;I’m not overly experienced, Little Wen, but I hope this is to your liking~ chomp... slurp... slurp...&quot; She enveloped the head completely, swirling her tongue like a tornado, causing great havoc...</p>
+<p>&quot;I’m not overly experienced, Little Wen, but I hope this is to your liking chomp... slurp... slurp...&quot; She enveloped the head completely, swirling her tongue like a tornado, causing great havoc...</p>
 
 <p>No, calling it havoc is a sin. It was a deep cleansing.</p>
 
@@ -73,7 +73,7 @@ chapter = 34
 
 <p>&quot;I’m on the verge of cumming again, Aunt. Swallow everything, just like you did with the first load!&quot;</p>
 
-<p>&quot;Yeshh... give me every single drop, Little Wen~ suck...&quot; She didn’t display a hint of bashfulness, immediately bracing herself to receive another heavy delivery.</p>
+<p>&quot;Yeshh... give me every single drop, Little Wen suck...&quot; She didn’t display a hint of bashfulness, immediately bracing herself to receive another heavy delivery.</p>
 
 <p>Spurt... spurt... spurt!!</p>
 

@@ -89,7 +89,7 @@ chapter = 242
 
 <p>She’d never heard of it.</p>
 
-<p>“Come on, sister Xueyao, you’ll like it! Fufufu~~” Feiyan grabbed Xueyao’s hands, pulling her towards the large purple palace that towered above the temple.</p>
+<p>“Come on, sister Xueyao, you’ll like it! Fufufu” Feiyan grabbed Xueyao’s hands, pulling her towards the large purple palace that towered above the temple.</p>
 
 <p>The voluptuous fox only had a few minutes to memorize the basic text of the dual cultivation technique before she was thrown against the huge imperial bed, her face blushing deeply as she watched the other girls drop their clothes on the floor.</p>
 

@@ -97,7 +97,7 @@ chapter = 73
 
 <p>’NO! It’s not... that’s just a relationship with a big sis, but... m-maybe.’</p>
 
-<p>&quot;Hehe... It’s a date, Big Sis~.&quot; Owen slowly got closer, trying to whisper into her ear...</p>
+<p>&quot;Hehe... It’s a date, Big Sis.&quot; Owen slowly got closer, trying to whisper into her ear...</p>
 
 <p>&quot;I have to go, Wen!!!&quot;</p>
 

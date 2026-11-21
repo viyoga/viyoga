@@ -30,7 +30,7 @@ chapter = 124
 <p>[What!?]</p>
 <p>Juliet exclaimed in shock on the other side of the phone, and Jason grinned at her reaction before his eyes trailed down to Gina once again.</p>
 <p>Gina was now lying on her stomach as she reached into his trousers and pulled out his member. Jason was already rock hard after everything that Gina had been doing to him all this time, and Gina looked up at him with a coy smile as she stroked him slowly. Jason put his hand on Gina’s head as he watched her in a daze, and he let out a small grunt as Gina finally leaned forward and engulfed him!</p>
-<p>Slurp~ Slurp~ Slurp~</p>
+<p>Slurp Slurp Slurp</p>
 <p>"Fuck."</p>
 <p>Gina wrapped her hand around the base of Jason’s member and focused all her skill on the tip as she sucked Jason expertly. Jason leaned his head back and cursed! She had gotten fucking good at this!</p>
 <p>[Sorry for the outburst, Mr. Jason! Are you still there?]</p>

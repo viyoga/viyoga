@@ -6,7 +6,7 @@ chapter = 958
 +++
 
 <p>Her moans rose higher, becoming sharp gasps that soon turned into broken cries. Her entire body trembled as she ground against him faster, tighter.</p>
-<p>"I- ah! ah~! Im... Im!!"</p>
+<p>"I- ah! ah! Im... Im!!"</p>
 <p>Vexs head snapped back, her voice shattering into a scream of pleasure as her orgasm hit the woman like a thunderclap. Her legs locked around him, her fingers raking down his back.</p>
 <p>Quinlan joined her, painting her wombs walls white with his [Blessed Seed], giving the woman what she had been craving for months. As soon as his seed entered Vex, her cries turned into overdrive as she shrieked without a care in the world. Then, something snapped in the woman as she lost her voice and her eyes rolled backward into their sockets.</p>
 <p>He held her through it with a satisfied grin plastered across his face. "Round one is done for my sexy Hexwitch..." he murmured, before giving her forehead a loving kiss, then he set her down slowly, carefully, as though placing something precious back into a velvet box.</p>

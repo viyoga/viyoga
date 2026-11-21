@@ -7,7 +7,7 @@ chapter = 1072
 
 <p>Nae Fitzgerald and I went to the restaurant, where Arisu and Uncle Oliver Fitzgerald were waiting. Arisu had said she was changing out of her work clothes, but she had already changed into a white sundress-like outfit, waving her hand and welcoming me.</p>
 <p>"It's been a while, Arisu."</p>
-<p>"Ryuta~~! Ahahaang~! What's with your Head? Did you fall asleep or something?"</p>
+<p>"Ryuta! Ahahaang! What's with your Head? Did you fall asleep or something?"</p>
 <p>When I greeted her, it was Arisu laughing at my Head. At Arisu's Words, I touched my Head and found one side of my Hair was sticking up. If my Head was like this, it seemed I had slept incredibly deeply without realizing it. Perhaps treating Rinka Sabu's Internal Injury had consumed a lot more stamina than I thought.</p>
 <p>"I fell asleep waiting to have dinner with you."</p>
 <p>"Ahahaang...! Is that so? We're a bit late, aren't we?"</p>
@@ -54,11 +54,11 @@ chapter = 1072
 <p>"Gensuke."</p>
 <p>At my Words, both of them had an "of course" Expression. Taira Gensuke was Nae Fitzgerald's Nephew and Arisu's Cousin, so they naturally knew Gensuke.</p>
 <p>Knowing here meant not just knowing a Person named Taira Gensuke, but also knowing Taira Gensuke's fiery Personality and rough Way of handling Work.</p>
-<p>"Ugh...! I don't like Gensuke. Before, he just kept staring at my Mommae~! That Sly Expression... ugh!"</p>
+<p>"Ugh...! I don't like Gensuke. Before, he just kept staring at my Mommae! That Sly Expression... ugh!"</p>
 <p>"Well, he's just one of my Nephews. Actually, I don't have the same kind of close Relationship with him as with Ryuta♥"</p>
 <p>Arisu shivered with a disgusted "Ugh!" and Aunt Nae had a slightly indifferent Attitude, saying she had no particular close Relationship with him. By the way, if you had a close Relationship like mine with every Nephew, wouldn't that be a Problem, Aunt?</p>
 <p>"It seems he couldn't stand that I surpassed him and became the Affiliate Company Boss."</p>
-<p>"Tsk~! Our Ryuta became Boss because he's good. Shouldn't he just do better himself?!"</p>
+<p>"Tsk! Our Ryuta became Boss because he's good. Shouldn't he just do better himself?!"</p>
 <p>"Even with Gensuke's Personality, he has a certain drive, so he must have attacked a rather troublesome Place, but where exactly did he attack?"</p>
 <p>Arisu got even angrier than I did, and Aunt Nae, curious about the Situation, asked me where Taira Gensuke had attacked.</p>
 <p>"The Mithril warehouse in Akita, and our new Home in Neo Tokyo."</p>
@@ -74,9 +74,9 @@ chapter = 1072
 <p>"Gensuke attacked you, didn't he? Then isn't that warehouse yours?"</p>
 <p>"That's why I said we knew about the Attack in advance...."</p>
 <p>To the two who asked me again as if they couldn't understand my Words, I told them my Operation.</p>
-<p>Arisu B-cut~!</p>
+<p>Arisu B-cut!</p>
 <p>I liked this Illustration more, but it was disqualified because the viewpoint was looking up haha</p>
-<p>Chieri requested by Gojoy-nim: 1. The Appearance of being surprised by the protagonist's Erection after waking up and looking elsewhere~! And 2. The Appearance of liking it and slapping him when praised~!</p>
+<p>Chieri requested by Gojoy-nim: 1. The Appearance of being surprised by the protagonist's Erection after waking up and looking elsewhere! And 2. The Appearance of liking it and slapping him when praised!</p>
 <p>1.</p>
 <p>It only shows the Palm and that's it ㄷㄷ</p>
 <p>Tsukiyo beach Exposure requested by TheDreaming-nim: 1. Smile 2. Embarrassment</p>

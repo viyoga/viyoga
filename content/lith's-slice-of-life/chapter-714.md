@@ -45,7 +45,7 @@ While hugging Lucy, Lith parted her hair to the side, revealing her smooth neck.
 
 He extended his fangs out and softly bit onto her neck, drawing out blood and drinking it.
 
-"Mhm~" Lucy let out a satisfied moan and followed it by biting Lith back.
+"Mhm" Lucy let out a satisfied moan and followed it by biting Lith back.
 
 As the two sucked each other's blood, they both felt a warm sense of belonging to each other. It was a very comfortable feeling that only vampires could feel.
 

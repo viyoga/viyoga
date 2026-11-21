@@ -75,7 +75,7 @@ chapter = 482
 <p>No one could shoot or stab properly without hitting their own men.</p>
 <p>And just like this, the hallway became a meat grinder.</p>
 <p>Calypso sucked in a slow breath, the kind that trembled with excitement. Her eyes darkened, pupils sharpening as she admired the carnage with something between nostalgia, admiration, and pure, all-encompassing hunger.</p>
-<p>"Darling~" she murmured with her hand drifting toward Kaiden’s crotch. The demoness became far too agitated, seeing the clever destruction her lover had wrought. "This is the kind of dominant display that makes any proper woman-"</p>
+<p>"Darling" she murmured with her hand drifting toward Kaiden’s crotch. The demoness became far too agitated, seeing the clever destruction her lover had wrought. "This is the kind of dominant display that makes any proper woman-"</p>
 <p>Kaiden caught her hand before it reached its target.</p>
 <p>She blinked, startled.</p>
 <p>He inclined his head toward Alice.</p>

@@ -46,7 +46,7 @@ chapter = 25
 <p>The sound of the snow being stepped on allowed her to pinpoint the direction from where the person was coming.</p>
 <p>It was a woman. A woman so beautiful it was simply impossible to describe her, and even if someone used the most eloquent of words to try and narrate her ethereal beauty, they would find it to be in vain as no words could do such a beauty justice.</p>
 <p>Even though that woman had the appearance of a little girl even younger than her, she had no doubt.</p>
-<p>'Ah~! This is a superior being.'</p>
+<p>'Ah! This is a superior being.'</p>
 <p>She did not try to run, nor did she try to fight. Instinctively she knew... this woman did not harbor any ill will toward her.</p>
 <p>"W–what. Is. A. Witch?"</p>
 <p>Her voice was hoarse for she rarely talked and rarely had anyone to talk to.</p>

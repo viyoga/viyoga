@@ -23,7 +23,7 @@ Fei could see clear wrinkles on the standing maids' clothes. Luna, Qingyue, and 
 
 Lith smiled and patted her face gently. "There's some pending work, let's get that done first and then we can leave. How about you assist me in that?"
 
-"Okay~" Alexandra agreed without even thinking. She was too weak to say no to anything Lith asked her to do. Lith then looked around and asked, "What's going on, ladies? It seems like I've intervened in some serious discussion."
+"Okay" Alexandra agreed without even thinking. She was too weak to say no to anything Lith asked her to do. Lith then looked around and asked, "What's going on, ladies? It seems like I've intervened in some serious discussion."
 
 Alea nodded her head. "Little cousin, we were discussing Lizbeth's purity."
 

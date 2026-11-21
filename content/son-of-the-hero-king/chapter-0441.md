@@ -7,7 +7,7 @@ chapter = 441
 
 <p>[Wratharis — Royal Palace]</p>
 <p>Sol’s speech was not only contained in the confines of the Lustburg kingdom. All kingdoms had spies mixed in with the populace of the other kingdoms and this was all the more so for Wratharis who was currently in midst of war preparation against the kingdom of Lustburg.</p>
-<p>Bang~!</p>
+<p>Bang!</p>
 <p>“He dares!?”</p>
 <p>A roar filled the palace room as thunder crackled in the sky as a man shouted at the top of his lungs.</p>
 <p>Unlike Sol’s situation where he showed respect to his dukes and nobles of his kingdom and received respect in return, the current situation inside the palace room could only be considered to be a complete suppression as fear flashed in the eyes of the trembling retainers who had given the message to the king of Wratharis.</p>

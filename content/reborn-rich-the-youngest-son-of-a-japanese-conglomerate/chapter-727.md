@@ -25,7 +25,7 @@ chapter = 727
 <p>She wanted to be helpful in other ways, not just with information.</p>
 <p>Shiyo-Shiyo, do you want to eat New Year's Eve noodles (Toshikoshi Soba)?</p>
 <p>Alik's voice came from the dining room. Toshikoshi Soba was a traditional Japanese dish eaten at the moment the year changes.</p>
-<p>"Yes~! I want to eat!"</p>
+<p>"Yes! I want to eat!"</p>
 <p>'That Russian kid takes good care of these things.'</p>
 <p>Naruse Shiyo answered that she would eat and got up from her seat. The butterfly-shaped paper shikigami that had been flying around had already entered Naruse Shiyo's arms.</p>
 <p>When she went to the dining room, three bowls of soba topped with herring simmered in a sweet Kyoto style were there, and Alik and Shimokawabe Airen were sitting there.</p>
@@ -33,7 +33,7 @@ chapter = 727
 <p>When Naruse Shiyo arrived at the dining room, Shimokawabe Airen said as if she couldn't help it. When she was training under Shimokawabe Airen, she wasn't even allowed to dream of late-night snacks, so this Toshikoshi Soba was a very rare late-night snack.</p>
 <p>"Moka-Sabu, Shiyo-Shiyo, enjoy your meal."</p>
 <p>"Yes. I'll enjoy it, Alik."</p>
-<p>"It's been a while since I've had Kyoto-style soba. Looks delicious, Alik~!"</p>
+<p>"It's been a while since I've had Kyoto-style soba. Looks delicious, Alik!"</p>
 <p>Alik made the food, so everyone said they would enjoy it to Alik and then started eating.</p>
 <p>She ate the soba with a slurping sound. It was soba made by a Russian girl, but it tasted as good as any master craftsman in Kyoto. As she ate the soba, she looked at the time and realized that 2053 was ending and 2054 was approaching.</p>
 <p>"Wait! The new year is coming. Ten, nine, eight...."</p>
@@ -43,7 +43,7 @@ chapter = 727
 <p>"Hehe, Happy New Year to my two disciples too."</p>
 <p>When 2054 arrived, they exchanged New Year's greetings with each other. Then, Shimokawabe Airen finished eating the remaining soba and got up from her seat. Shimokawabe Airen didn't really enjoy late-night snacks in the first place, so she had put a small amount of soba on her plate.</p>
 <p>"I'm going to bed now, so you guys finish your soba and go to bed early."</p>
-<p>"Yes~!"</p>
+<p>"Yes!"</p>
 <p>"Okay, Moka-Sabu...!"</p>
 <p>When Shimokawabe Airen picked up her bowl, put it in the sink, and left the dining room, Naruse Shiyo opened her mouth.</p>
 <p>"Alik, should we send a New Year's greeting text to Ryuta-sensei?"</p>

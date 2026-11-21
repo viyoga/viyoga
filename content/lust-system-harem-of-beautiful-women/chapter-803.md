@@ -15,7 +15,7 @@ chapter = 803
 
 <p>And then, someone dropped a bomb into the volcano.</p>
 
-<p>&quot;Brother-in-law, go easy on her, she’s not your enemy. No need to fuck her so hard~&quot;</p>
+<p>&quot;Brother-in-law, go easy on her, she’s not your enemy. No need to fuck her so hard&quot;</p>
 
 <p>Daniel said with a casual grin as he put on his shoes by the door, as if it were the most ordinary joke.</p>
 

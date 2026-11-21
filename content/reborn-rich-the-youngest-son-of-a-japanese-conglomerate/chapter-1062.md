@@ -85,8 +85,8 @@ chapter = 1062
 <p>Sabu looked at me and asked. In truth, due to the Size of my cock, it wasn't all the way in, but I nodded my Head.</p>
 <p>"Now I'll start moving, Sabu."</p>
 <p>I looked down at Sabu and began to thrust my waist.</p>
-<p>Rinka-tan B-cut~!</p>
-<p>chea yun-nim requested Sabu in a Bikini~!</p>
+<p>Rinka-tan B-cut!</p>
+<p>chea yun-nim requested Sabu in a Bikini!</p>
 <p>TheDreaming-nim requested Tsukiyo at an amusement park 1. Carousel 2. Interview</p>
 <p>1.</p>
 <p>Surprisingly, the carousel roller or carousel didn't appear immediately, so I had to do some prompt farming, hehe.</p>

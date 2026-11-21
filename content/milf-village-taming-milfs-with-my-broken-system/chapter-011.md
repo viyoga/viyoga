@@ -1,5 +1,5 @@
 +++
-title = "Chapter 11: Hoho... You Are Thinking Bad Things, My Student Arielle~"
+title = "Chapter 11: Hoho... You Are Thinking Bad Things, My Student Arielle"
 weight = 11
 [extra]
 chapter = 11
@@ -19,11 +19,11 @@ chapter = 11
 
 <p>&quot;S-sorry... Teacher Owen. My attention got swayed for a moment,&quot; Arielle said, acting like a true student... even her signature maternal aura had briefly vanished.</p>
 
-<p>&quot;What a bad student. How are you going to compensate for the wasted time and effort I lent you, student Arielle~?&quot; Owen poked her plump, voluptuous waist.</p>
+<p>&quot;What a bad student. How are you going to compensate for the wasted time and effort I lent you, student Arielle?&quot; Owen poked her plump, voluptuous waist.</p>
 
 <p>To his surprise, he had hit a highly sensitive spot; her eyes opened wide as she quickly covered her mouth with her left hand. For goodness’ sake, she had almost moaned out loud.</p>
 
-<p>&quot;Ohoho... so you like being poked in this area? How slutty of you to react like this~&quot; Owen wasn’t about to stop now, as he had finally found a weakness and wasn’t going to let the opportunity slip away.</p>
+<p>&quot;Ohoho... so you like being poked in this area? How slutty of you to react like this&quot; Owen wasn’t about to stop now, as he had finally found a weakness and wasn’t going to let the opportunity slip away.</p>
 
 <p>&quot;S-slutty?... That is something you shouldn’t just use with your—uhm, Teacher...&quot; Arielle felt it was a bit too much to be called slutty by her own son.</p>
 
@@ -31,7 +31,7 @@ chapter = 11
 
 <p>Though it wasn’t a terrible feeling... it was already far beyond the normal boundaries of a mother and son catching up, yet for some unknown reason, she was being swayed by it as if it were completely natural.</p>
 
-<p>&quot;I’m just teaching you the lewd slang used in the city, so you don’t have to worry, my dear student~&quot; As shameless as he was, he was going to act like a total professional in his field.</p>
+<p>&quot;I’m just teaching you the lewd slang used in the city, so you don’t have to worry, my dear student&quot; As shameless as he was, he was going to act like a total professional in his field.</p>
 
 <p>The bomb had already been planted; all that was missing was the proper execution.</p>
 
@@ -55,15 +55,15 @@ chapter = 11
 
 <p>’Keke... now you are learning, Mom. You still need some teaching, but it’s already not too shabby.’</p>
 
-<p>&quot;Now you’re learning fast, my student Arielle~&quot; Owen agreed as he enjoyed the pure ecstasy.</p>
+<p>&quot;Now you’re learning fast, my student Arielle&quot; Owen agreed as he enjoyed the pure ecstasy.</p>
 
 <p>&quot;T-thank you, Teacher... but how is that gonna help me... graduate?&quot; Arielle looked down at his hands; they were about to reach her wet, soaked panties... and that was definitely not a good thing.</p>
 
-<p>&quot;You are still green, my student~. You just need to follow me and say the words I’m going to teach you~&quot; Owen shifted his body, making her feel his cock right between her fruit.</p>
+<p>&quot;You are still green, my student. You just need to follow me and say the words I’m going to teach you&quot; Owen shifted his body, making her feel his cock right between her fruit.</p>
 
 <p>&quot;I-is there... no other way, Teacher...?&quot;</p>
 
-<p>&quot;I’m glad you asked that, my dear student...&quot; Owen closed the distance as he whispered into her ear. &quot;Hehe... I can give you a live demonstration, my dear student, like those kinds of things~&quot;</p>
+<p>&quot;I’m glad you asked that, my dear student...&quot; Owen closed the distance as he whispered into her ear. &quot;Hehe... I can give you a live demonstration, my dear student, like those kinds of things&quot;</p>
 
 <p>&quot;N-nevermind... whatever you say, Teacher, I will learn things slowly!&quot; She gently backed away as her face turned completely tomato red.</p>
 
@@ -73,8 +73,8 @@ chapter = 11
 
 <p>&quot;Hehe... of course I do!&quot; Owen moved closer to her ear.</p>
 
-<p>&quot;Like I said... I even do live demonstrations to make my students learn faster~&quot; he whispered in a wicked tone, clearly hinting at something much wilder!</p>
+<p>&quot;Like I said... I even do live demonstrations to make my students learn faster&quot; he whispered in a wicked tone, clearly hinting at something much wilder!</p>
 
 <p>&quot;Oh my... w-what is that, Teacher..?&quot; Arielle played along. She was already this deep in, so why take it back now?!</p>
 
-<p>&quot;Hoho... you are thinking bad things, my student Arielle~&quot;</p>
+<p>&quot;Hoho... you are thinking bad things, my student Arielle&quot;</p>

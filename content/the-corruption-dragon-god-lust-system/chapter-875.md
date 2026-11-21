@@ -51,7 +51,7 @@ chapter = 875
 
 <p>"Isabel, Xueyao... is everything all right?" Rouxi asked with a gentle smile, turning her face toward the two of them.</p>
 
-<p>"More than fine, fufufu~" Isabel gave a sweet little laugh, sliding her hand toward Xueyao’s belly. The fox blushed deeply as she stood in front of Rouxi. "Lingxi is going to get a little sister!" Isabel declared, her eyes sparkling with excitement.</p>
+<p>"More than fine, fufufu" Isabel gave a sweet little laugh, sliding her hand toward Xueyao’s belly. The fox blushed deeply as she stood in front of Rouxi. "Lingxi is going to get a little sister!" Isabel declared, her eyes sparkling with excitement.</p>
 
 <p>Rouxi’s eyes widened at once, her hands moving instinctively toward Xueyao’s belly.</p>
 

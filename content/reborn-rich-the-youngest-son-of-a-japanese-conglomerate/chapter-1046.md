@@ -16,7 +16,7 @@ chapter = 1046
 <p>"It was all because of Sawayanagi Azuma-ssi's precognition. Ah, she's coming over there now." "Hm?"</p>
 <p>At my question, Kurayamada Kirie spoke of Sawayanagi Azuma. Looking where Kurayamada Kirie pointed, Sawayanagi Azuma, with various Guns including a shotgun slung over her, was seen coming towards us.</p>
 <p>Since Sawayanagi Azuma had parted ways before Kurayamada Kirie, it made sense chronologically to meet her after Kurayamada Kirie. The story of precognition Kurayamada Kirie mentioned, I thought I could hear it from Sawayanagi Azuma, the precognitive Ability User herself.</p>
-<p>"Investor-nim~! You won after all...!" "You too, Azuma-ssi."</p>
+<p>"Investor-nim! You won after all...!" "You too, Azuma-ssi."</p>
 <p>Sawayanagi Azuma had told us to go first, saying she would deal with the giant thorny vine Monster. Aside from a bit of soot on her cyber Suit, seeing that she was unharmed, it seemed she had won without much difficulty.</p>
 <p>"First, I'd like you to explain about the precognition." "As Investor-nim knows, I precognize in the form of prophetic dreams. Normally, I just precognize scene by scene of the future, but in battle missions, at critical junctures concerning my Safety or my comrades' Safety, I sometimes dream one single dream for several days."</p>
 <p>Up to this point, this was the story of Sawayanagi Azuma's precognition that I roughly knew. While doing PMC work where lives hung in the balance, the fact that none of the Seryu Military Company Members had died could all be attributed to Sawayanagi Azuma's precognition.</p>
@@ -54,4 +54,4 @@ chapter = 1046
 <p>Because she didn't have to wander through Buildings and Buildings, alleys and alleys. As she ran, looking around the Surroundings, she saw those fighting over the All-Knowing Fragment at the center.</p>
 <p>"It's certainly Fortunate I didn't send my Disciple here...!"</p>
 <p>A Vampire profusely spraying immense Blood, a Vampire Hunter in thick Armor wielding a greatsword, unusual Magicians in robes and hoods wildly casting magic, a Lizardman wielding a Spear adorned with flashy Gold ornaments, and even a werewolf with a flowing silver Mane.... Each one was a Strong Person with whom Fujigasaki Rinka, who prided herself on being the best, would find it difficult to guarantee Victory.</p>
-<p>Chomisaemeonji-nim requested Liz sniper Shot, Magician Liz~! Magician Liz~! She feels like a Black Wizard hehe. Sniper Shot Bonus~! Liz suddenly appeared as two people, so I'm uploading it as a bonus hehe</p>
+<p>Chomisaemeonji-nim requested Liz sniper Shot, Magician Liz! Magician Liz! She feels like a Black Wizard hehe. Sniper Shot Bonus! Liz suddenly appeared as two people, so I'm uploading it as a bonus hehe</p>

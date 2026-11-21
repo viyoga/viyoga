@@ -51,7 +51,7 @@ chapter = 318
 <p>The warm breath in her ear sent a shiver through the girl, and Ansel's subtly hoarse voice played upon her heartstrings, replacing her current restlessness with a tantalizing itch of unfulfilled desire.</p>
 <p>"Then.. then, it's settled!"</p>
 <p>Seraphina declared with a tender and delicate voice, clutching the gift box as if it were the world's most precious treasure. She glanced at the smiling Hydral couple, her cheeks blushing a deeper shade of pink, yet she mustered the courage to whisper into Ansel's ear, "When it's-its, just the two of us... Ansel, you open it for me, and also, um..."</p>
-<p>Chu~</p>
+<p>Chu</p>
 <p>She planted a gentle kiss on Ansel's cheek in front of everyone.</p>
 <p>"Thank you... Ansel," the girl's voice quivered slightly, yet it was filled with the sweet bliss of happiness. "Thank you for the gift you've given me. Although I don't yet know what it is... I am truly happy, super happy!"</p>
 <p>Annelisa leaned her head against Flamelle's shoulder, her smile so sweet it seemed to melt away; Flamelle, embracing his wife's shoulders, shared in the pure love the young girl displayed, feeling joy for his son. Marlina quietly observed Seraphina's profile, the pure happiness evident on her face bringing a comforting smile to her own.</p>

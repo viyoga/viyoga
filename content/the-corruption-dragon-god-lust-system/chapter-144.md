@@ -9,7 +9,7 @@ chapter = 144
 
 <p>He smiled softly as he let his hands fall on her plump, juicy ass with a loud clap, delighting in the cute squeal that escaped the woman’s lips as her soft buttocks jiggled with the impact.</p>
 
-<p>“Ughn~~ you damn womanizer… if you love my ass so much, kiss it instead of spanking it!”</p>
+<p>“Ughn you damn womanizer… if you love my ass so much, kiss it instead of spanking it!”</p>
 
 <p>Ruxue stood up with a long, pained moan, caressing her burning ass.</p>
 

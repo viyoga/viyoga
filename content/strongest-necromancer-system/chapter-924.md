@@ -11,7 +11,7 @@ chapter = 924
 <p>Jason pulled out of Riyala with a wet sound before he leaned forward and kissed Riyala deeply! Riyala ran her hand through Jason’s hair as she pulled him in closer, and she savoured the kiss until Jason pulled back a few seconds later. Jason then spoke in a commanding voice.</p>
 <p>"Turn around."</p>
 <p>Riyala’s entire body shivered as Jason’s deep voice echoed through her ear, and she was almost in a trance as she shifted and turned to get on her hands and knees! Riyala was still wearing the mini skirt that she had on earlier, and Jason felt heat pooling in his member as he saw the way the skirt hugged her ass tightly! Jason pushed the skirt up slightly so it only covered half her ass before he positioned himself at her entrance and began to slide in!</p>
-<p>"Uuuuuhhhhh~!"</p>
+<p>"Uuuuuhhhhh!"</p>
 <p>Riyala’s sexy voice echoed through the cave as she felt Jason splitting her open! Riyala threw her head back, and Jason reached forward and wrapped his hand around her neck so that she was almost folded in half backwards!</p>
 <p>BAM!</p>
 <p>The first thrust from Jason was so intense that Riyala almost flew forward from the force! But Jason’s hand around her neck prevented Riyala from going anywhere, and he continued to thrust into her with intensity!</p>
@@ -23,11 +23,11 @@ chapter = 924
 <p>"I’m close, baby! Please don’t stop! Harder! Harder!"</p>
 <p>Bam! Bam! Bam! Bam! Bam!</p>
 <p>Jason grunted as he felt Riyala’s walls tightening around him, and he immediately sped up his thrusts! Riyala’s soft ass slapped into Jason’s thighs with each thrust, and Jason could feel Riyala’s entire body tensing up as her orgasm finally reached its peak! And it was in this moment that Jason leaned forward and sank his elongated canine into Riyala’s neck!</p>
-<p>"OHHHHHH~!"</p>
+<p>"OHHHHHH!"</p>
 <p>The feeling that shot through Riyala’s body at that moment was as if she had just taken a straight shot of cocaine! Riyala let out a deep moan as her entire body began to shake! Riyala’s eyes rolled to the back of her head as she actually lost consciousness from the intense orgasm, and Jason grunted as he felt Riyala’s walls tightening around his member like a vice! The combination of Jason taking her blood and her orgasm was far too much for Riyala to handle, and Jason immediately felt his own orgasm shoot through him as Riyala’s soft, breathy moan echoed through his ear! Jason pulled back from Riyala’s neck and cursed as he slammed into Riyala one last time and came hard!</p>
 <p>"Shit!"</p>
 <p>Jason closed his eyes as he released everything into Riyala’s core. He continued to move slowly as he rode out his orgasm, and he waited until he was sure Riyala was done before he finally let her go. Riyala fell to the bed in exhaustion, and her legs twitched a few times like a corpse. Jason fell forward on top of her while breathing heavily, and Jason gently shifted Riyala’s hair out of the way before placing a soft kiss on Riyala’s nape.</p>
-<p>"Mmh~"</p>
+<p>"Mmh"</p>
 <p>Riyala hummed lovingly when she felt Jason’s lips, and she smiled. Jason turned to lie on his back, and Riyala immediately shifted over, and put her head on Jason’s chest while releasing a content sigh.</p>
 <p>"That was amazing."</p>
 <p>Jason smiled when he heard this, and he leaned down to place a kiss on top of Riyala’s head. Riyala immediately leaned up and gave Jason a deeper kiss! Riyala poured all her appreciation and love into that one kiss to make sure Jason understood how much he meant to her, and when she separated, Jason grinned as he caressed her cheek.</p>
@@ -37,7 +37,7 @@ chapter = 924
 <p>Riyala shook her head.</p>
 <p>’It’s nothing. I just... I’m really glad I fell in love with you."</p>
 <p>Jason’s lips stretched into an excited grin, and Riyala yelped as Jason suddenly turned them over so he was on top of her! Jason leaned down and kissed Riyala deeply, and Riyala laughed as she kissed him back! But Riyala’s eyes widened as she felt Jason align himself with her again, and she quickly spoke.</p>
-<p>"Wait, Jason! I just came – Oooooh~!"</p>
+<p>"Wait, Jason! I just came – Oooooh!"</p>
 <p>Riyala’s moan echoed through the entire cave!</p>
 <p>....</p>
 <p>[The Next Day]</p>
@@ -46,7 +46,7 @@ chapter = 924
 <p>BOOM!</p>
 <p>ROARR!</p>
 <p>A series of loud roars echoed through the flaming forests before a massive impact shook the forest floor. Jason’s eyes snapped open as he heard the sounds, and he rubbed his hand over his face as another massive roar echoed through the cave from outside.</p>
-<p>"Mmh~"</p>
+<p>"Mmh"</p>
 <p>A moan came from beside Jason as Riyala turned around and shifted her behind into Jason’s front, and Jason smiled as he looked at her sleeping face. After a few more rounds the previous night, Jason and Riyala had spoken about random things before Riyala had gone to sleep, and Jason felt happy that he was finally able to spend time with his youngest wife.</p>
 <p>Boom!</p>
 <p>ROARR!</p>

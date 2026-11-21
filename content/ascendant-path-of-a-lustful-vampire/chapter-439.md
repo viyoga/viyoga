@@ -10,7 +10,7 @@ chapter = 439
 <p>The drops of water began to converge, trying to stitch the destroyed monsters back together again when Arlette slammed her palms together, separating them to create a dark purple spell circle that conjured a barrage of needles that stabbed into each water droplet with ridiculous precision, injecting them with the Dark element's parasitic destruction and breaking them apart at a microscopic level from which they could not recover.</p>
 <p>Arlette's action called more of the water monsters to herself but she was already mumbling a spell that surrounded her with a dark aura and lifted her off the ground just in time to avoid their attacks. In the air, she raised her hand, conjuring dark lances that came down and ripped her attackers apart.</p>
 <p>Before they could come back together, Alexia returned Arlette's favor as a lotus flower appeared, announcing a brief activation of the Von Helsing Arts.</p>
-<p>~A Thousand Cuts~</p>
+<p>A Thousand Cuts</p>
 <p>Sword swings so fast that they could only be felt and not seen ripped the torn monsters apart to the smallest piece and destroyed their ability to reconnect and regenerate.</p>
 <p>"Ha ha!" Gareth laughed like he had been vindicated and then yelled once again to bolster the forces,</p>
 <p>"CHARGE!"</p>

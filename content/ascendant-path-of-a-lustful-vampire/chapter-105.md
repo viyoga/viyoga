@@ -22,7 +22,7 @@ chapter = 105
 <p>He closed the book that contained the Von Helsing Interpretation of the Arcane Codex and sent it into his Storage Ring. He did the same to his Grimoire after documenting his newly created spell.</p>
 <p>He got out of his chair then and left his room, hurrying down the corridor and down a flight of stairs into the Arena he had spent most of the past weekend working on his muscles. The place was built for Magic and Physical practice and was just right for this.</p>
 <p>"Alright," Caius said as he stood with his feet planted apart and formed the seals associated with his new spell and infused Mana into them to create a spell circle that revolved in accordance with his will.</p>
-<p>~Black Hand!~</p>
+<p>Black Hand!</p>
 <p>A spell circle identical to the one Caius had cast but about 20 times larger, appeared in the air two feet away from him, and from it, Black smoke billowed before it took the shape of a massive hand.</p>
 <p>The energy that came from that Black Hand was oppressive and tyrannical. When it descended, it did so with the intent to crush all that was beneath it to dust.</p>
 <p>*BANG!!!*</p>

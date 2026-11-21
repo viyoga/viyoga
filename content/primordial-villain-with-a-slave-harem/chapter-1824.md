@@ -13,7 +13,7 @@ chapter = 1824
 <p>"Charging up," Quinlan replied, not moving an inch. "It’s part of the process."</p>
 <p>"..." The First Hammer of the royal smithy opened her mouth, found nothing in the entire dwarven language up to the task, and closed it.</p>
 <p>Up on the rails, an apprentice whispered the word "degenerate" with an awe usually reserved for scripture, and the hall’s assessment of the Villain quietly rearranged itself once more: monster, war-ender, flue-listener, and now, apparently, a pervert.</p>
-<p>"How are you feeling~?" Seraphiel purred, petting Elowen’s lush hair with the most amused of grins. As someone who personally snuck close many times to witness this exact ’smithing style,’ she was not one bit surprised.</p>
+<p>"How are you feeling?" Seraphiel purred, petting Elowen’s lush hair with the most amused of grins. As someone who personally snuck close many times to witness this exact ’smithing style,’ she was not one bit surprised.</p>
 <p>Elowen was speechless, her big, expressive eyes closed and opened on repeat, but a healthy color soon reached her cheeks.</p>
 <p>Then Kaelira reached the lamination.</p>
 <p>Three metals, three tempers, one weld. The fool’s errand.</p>

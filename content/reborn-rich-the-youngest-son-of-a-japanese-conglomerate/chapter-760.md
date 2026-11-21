@@ -78,7 +78,7 @@ chapter = 760
 <p>___________</p>
 <p>I made a Kimono, requested by Mirmar2-nim, instead of a Shrine Maiden outfit or Kimono, because I've made Shrine Maiden outfits before, hehe.</p>
 <p>Zero Two Slingshot Bikini Lizhael and Belly Dancer Lizhael, requested by MidNightSKY-nim!</p>
-<p>Starting with the Slingshot Bikini~!</p>
+<p>Starting with the Slingshot Bikini!</p>
 <p>Belly Dancer Lizhael</p>
 <p>Kkiyot!</p>
 <p>The Round Girl requested by Hwanbuljeoldaebulga-nim.... The AI didn't seem to have learned it, so it didn't come out well, ㅠㅠ</p>

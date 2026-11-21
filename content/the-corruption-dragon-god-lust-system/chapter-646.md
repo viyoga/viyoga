@@ -23,7 +23,7 @@ chapter = 646
 
 <p>“I’m sorry, young miss. I was busy calming my foundation after my last breakthrough. I couldn’t embarrass you in front of all those people by being too weak, could I?” He gave a faint smile, admiring her beautiful, adorable face.</p>
 
-<p>“Hm… call me Rou’er, not ‘young miss! We’re getting married soon, aren’t we? I know it won’t be long before you get rid of that annoying bastard!” She gave a cheerful giggle, clinging to his shoulders a little tighter before pressing her lips to his in a short, inexperienced kiss. “Ah~~ now… you should satisfy your wife, shouldn’t you? That hard thing is poking me too much…” A deep blush colored her cheeks as the bulge in Qingyi’s pants pressed against her panties, sinking between the plump, virgin lips of her vulva.</p>
+<p>“Hm… call me Rou’er, not ‘young miss! We’re getting married soon, aren’t we? I know it won’t be long before you get rid of that annoying bastard!” She gave a cheerful giggle, clinging to his shoulders a little tighter before pressing her lips to his in a short, inexperienced kiss. “Ah now… you should satisfy your wife, shouldn’t you? That hard thing is poking me too much…” A deep blush colored her cheeks as the bulge in Qingyi’s pants pressed against her panties, sinking between the plump, virgin lips of her vulva.</p>
 
 <p>Qingyi, of course, didn’t refuse.</p>
 
@@ -41,7 +41,7 @@ chapter = 646
 
 <p>Petite women had their own beauty, even in their flat curves.</p>
 
-<p>Not that Rou’er was flat. Her hips couldn’t compare to Feiyan’s, but her waist was even slimmer, creating an elegant hourglass figure. “Hehehe~~ “She gave a sweet, mischievous giggle, grabbing the hem of her skirt and lifting it.</p>
+<p>Not that Rou’er was flat. Her hips couldn’t compare to Feiyan’s, but her waist was even slimmer, creating an elegant hourglass figure. “Hehehe “She gave a sweet, mischievous giggle, grabbing the hem of her skirt and lifting it.</p>
 
 <p>Her soaked white panties came into view, the plump lips of her puffy pussy pressed against the thin fabric, the outline of her cleft of venus clearly visible through the drenched material.</p>
 
@@ -49,7 +49,7 @@ chapter = 646
 
 <p>A sharp, lewd squeal burst from her lips and her body shuddered, her small breasts trembling beneath her top from the sudden jolt.</p>
 
-<p>“So this is sex? Nghnn~~♡” Rou’er moaned, her fingers clenching his horns as he leaned forward, pulling her panties aside and sinking his tongue into that tight pussy. “Aghnn~~ me likey~♡”</p>
+<p>“So this is sex? Nghnn♡” Rou’er moaned, her fingers clenching his horns as he leaned forward, pulling her panties aside and sinking his tongue into that tight pussy. “Aghnn me likey♡”</p>
 
 <p>The damp heat of his tongue against her sensitive flesh made her legs tremble.</p>
 
@@ -67,13 +67,13 @@ chapter = 646
 
 <p>“Ah…” He paused for a moment, flicking the tip of his tongue against her clitoris. Again. And again.</p>
 
-<p>“Mghnn~~ Q-Qingyi… s-slow down… s-slowly agghnnn~~ Q-Qingyi, heavens… fuck~~♡” She melted into moans, her hips bucking against his mouth, her soft rear jiggling with every desperate twitch. Every little squeal made his lust points explode, and along with them, his excitement.</p>
+<p>“Mghnn Q-Qingyi… s-slow down… s-slowly agghnnn Q-Qingyi, heavens… fuck♡” She melted into moans, her hips bucking against his mouth, her soft rear jiggling with every desperate twitch. Every little squeal made his lust points explode, and along with them, his excitement.</p>
 
 <p>His hands closed around her waist, so thin his fingers could almost touch, remaining no more than a few centimeters apart.</p>
 
 <p>Slowly, he massaged the area before sliding up to her breasts. Small and soft, they filled his palms perfectly. He kneaded them gently, the tender mounds molding to the shape of his fingers, her stiff nipples pressing into the center of each palm.</p>
 
-<p>“Ah~ Qingyi… something’s coming… I can ahh~~ feel it.” She leaned into his strong arms pressed against her chest, her pussy overcome by a sensation she’d never felt in her entire life.</p>
+<p>“Ah Qingyi… something’s coming… I can ahh feel it.” She leaned into his strong arms pressed against her chest, her pussy overcome by a sensation she’d never felt in her entire life.</p>
 
 <p>She shuddered. Her eyes widened.</p>
 
@@ -81,7 +81,7 @@ chapter = 646
 
 <p>All strength left her body. She slipped from Qingyi’s grip, her knees buckling, her tight pussy squirting nonstop.</p>
 
-<p>Qingyi stood just as Rou’er sank down, her eyes glazed with pleasure. “Aghnn~~” She pressed her index finger against her own pussy, the digit long and delicate. It rested there for a moment, the plump lips resisting before parting to let her reach her own pink interior. A smile crossed her flushed face, and she looked up at Qingyi. Her fingers moved upward, reaching the waistband of his pants. “Now it’s my turn, hehehehe~~” she said with a giggle, grabbing his pants and pulling them down, freeing the hard dragon.</p>
+<p>Qingyi stood just as Rou’er sank down, her eyes glazed with pleasure. “Aghnn” She pressed her index finger against her own pussy, the digit long and delicate. It rested there for a moment, the plump lips resisting before parting to let her reach her own pink interior. A smile crossed her flushed face, and she looked up at Qingyi. Her fingers moved upward, reaching the waistband of his pants. “Now it’s my turn, hehehehe” she said with a giggle, grabbing his pants and pulling them down, freeing the hard dragon.</p>
 
 <p>She couldn’t help but stare. It was right in front of her face now. Long, thick, and throbbing.</p>
 

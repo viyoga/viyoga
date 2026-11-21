@@ -75,5 +75,5 @@ chapter = 790
 <p>"Huuu..... Alright, let's do this. Just let me go. Then I'll return that guy Itsu safely."</p>
 <p>Because Hiragami Noyu's shout confirmed that he had a Hostage, Suzuki Soki opened his mouth with a sly expression. His expression seemed to say, "If you kill or catch me, Itsu Tomohiko's life will also be gone." I couldn't tell if the words of this serial killer, Kotowazuki, were true or false. His gaze was filled with Madness, making it impossible to know what the Truth was. Whether Itsu Tomohiko was already dead or if he was keeping him alive.</p>
 <p>Oofuchi Erika had brilliantly exposed the culprit, but as a tender-hearted high school girl, she didn't know what to do in this Situation.</p>
-<p>Jjirit jjirit Fist-throwing Alik requested by MidNightSKY-nim~!</p>
+<p>Jjirit jjirit Fist-throwing Alik requested by MidNightSKY-nim!</p>
 <p>Kkiyoooot!</p>

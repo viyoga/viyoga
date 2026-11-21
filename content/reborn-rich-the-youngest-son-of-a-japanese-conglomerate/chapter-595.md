@@ -29,7 +29,7 @@ chapter = 595
 <p>,How did you bring him all the way to a foreign country? You didn't do any paperwork or anything."</p>
 <p>,That's... Hamtaro follows me on his own. He finds gaps and sneaks in on his own even during inspections. If it's not possible, he hides in the cargo hold of the aircraft and comes."</p>
 <p>He hides and comes on his own... Is he a ninja weasel too? Amazing.</p>
-<p>,Kyaa! Cute~!"</p>
+<p>,Kyaa! Cute!"</p>
 <p>The reaction was quite good when Hamtaro revealed himself. Minamoto Risa, who said she liked small animals like flying squirrels, seemed to find Hamtaro cute, and her eyes were dripping with honey. That's a new expression.</p>
 <p>,Let me touch him once."</p>
 <p>,But... I have to look at the map."</p>
@@ -52,7 +52,7 @@ chapter = 595
 <p>,I didn't do it alone, everyone did it together."</p>
 <p>Uenozono Karen was a non-combatant, so she was assigned to cooking. Maybe one of the sandwiches I was eating was Uenozono Karen's.</p>
 <p>,It feels even more delicious because you said you made it, Karen?"</p>
-<p>,Ehehe...! Enjoy your meal~!"</p>
+<p>,Ehehe...! Enjoy your meal!"</p>
 <p>Uenozono Karen blushed slightly as if she was embarrassed, smiled 'hehe' and went to another place with the GoPro camera. She seemed to be doing short interviews with everyone except for a few students who didn't welcome filming.</p>
 <p>,Everyone, if you're done eating, take care of things like going to the bathroom here. You'll have to spend a few more hours on the bus and you won't be able to go to the bathroom in the middle."</p>
 <p>Taira Kanna said as the meal was coming to an end. She was definitely right. Although we were going on the road we cleared of zombies yesterday, it wasn't safe enough to come out in the middle to take care of business. We had to take care of things here where there were public restrooms so that we wouldn't have any embarrassing situations later.</p>

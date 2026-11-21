@@ -14,7 +14,7 @@ chapter = 145
 <p>A couple of hours after the strangers vanished, the center of the waiting room began to shift, looking less solid and more liquid. The Guards standing by knew this meant someone was exiting. It might happen rarely but, at the very least, when they had seen the two strangers vanish, this had been how the ground looked.</p>
 <p>Sure enough, rising like there was a platform lifting them, Caius and Arlette returned to the surface. Caius had an arm around her waist, and she had a hand on his chest as she pressed herself against him, almost in the exact position they had been in when they descended.</p>
 <p>The Guards were so focused on setting right what had been caused by their oversight, that they unleashed their Auras and also struck out with restraining spells.</p>
-<p>Arlette was ready and with a raise of her hand, she conjured up a defense. It looked like the ~Galleon’s Gate~ spell she had given Caius but several Circles stronger. The gigantic maw of the defensive spell opened and swallowed up every single restraining spell and left the Guards frowning as they prepared to cast even more.</p>
+<p>Arlette was ready and with a raise of her hand, she conjured up a defense. It looked like the Galleon’s Gate spell she had given Caius but several Circles stronger. The gigantic maw of the defensive spell opened and swallowed up every single restraining spell and left the Guards frowning as they prepared to cast even more.</p>
 <p>But just then, a voice called out from Caius’s side.</p>
 <p>"Stand down."</p>
 <p>Only now did the Guards notice Caius and Arlette had not exited alone. By their side was a tall man with bleached white hair and amber-colored eyes. The eyes of a Leopold.</p>

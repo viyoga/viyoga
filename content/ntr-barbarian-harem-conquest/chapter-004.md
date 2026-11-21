@@ -73,11 +73,11 @@ chapter = 4
 
 <p>Kane drove two thick fingers deep inside her, curling them roughly against that sensitive spot while adding a third, stretching her open.</p>
 
-<p>&quot;Ahn~~! Haa... nngh!!&quot;</p>
+<p>&quot;Ahn! Haa... nngh!!&quot;</p>
 
 <p>As her legs began to tremble, he slapped her firm ass hard, the crack echoing through the camp.</p>
 
-<p>&quot;Kyaaahn~~!!&quot;</p>
+<p>&quot;Kyaaahn!!&quot;</p>
 
 <p>Then he shoved her down toward Thora.</p>
 
@@ -85,7 +85,7 @@ chapter = 4
 
 <p>Their lips crashed together, hesitant at first, then growing hungry and desperate.</p>
 
-<p>&quot;Mmm~~ chu... haa... nghnn~~&quot;</p>
+<p>&quot;Mmm chu... haa... nghnn&quot;</p>
 
 <p>Thora’s tongue pushed into Sira’s mouth, sharing the messy taste of Kane’s cock as Sira moaned helplessly into the kiss, her defiance rapidly crumbling.</p>
 
@@ -105,7 +105,7 @@ chapter = 4
 
 <p>Kane grabbed her auburn hair, yanking her head back until her spine arched like a bow, and he drove into her with long strokes that made her tits swing, and her breath catch in ragged gasps.</p>
 
-<p>&quot;Oh gods— right there— ahn~~! Ahn~~! Please don’t stop— nghnnn~~!!&quot;</p>
+<p>&quot;Oh gods— right there— ahn! Ahn! Please don’t stop— nghnnn!!&quot;</p>
 
 <p>She begged, her voice breaking as he hit that spot deep inside her again and again.</p>
 
@@ -153,6 +153,6 @@ chapter = 4
 
 <p>Kane lowered his head and sucked one of her jiggling tits.</p>
 
-<p>&quot;Eung~~!!&quot; Thora whimpered cutely when he sucked hard on her sensitive nipple.</p>
+<p>&quot;Eung!!&quot; Thora whimpered cutely when he sucked hard on her sensitive nipple.</p>
 
 <p>&quot;Look at you,&quot; Kane growled, gripping her neck with one hand while the other slapped her tits, watching them jiggle and sway.</p>

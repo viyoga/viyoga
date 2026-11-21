@@ -21,9 +21,9 @@ chapter = 227
 
 <p>Her ass rose majestically, her large bubble butt forming the perfect outline of a heart.</p>
 
-<p>“Nghnnn~~” Ruyan moaned as the first slap hit her buttocks, Qingyi’s hands gripping the creamy skin for a brief moment before pulling back, leaving a reddish mark behind.</p>
+<p>“Nghnnn” Ruyan moaned as the first slap hit her buttocks, Qingyi’s hands gripping the creamy skin for a brief moment before pulling back, leaving a reddish mark behind.</p>
 
-<p>“Oghnnn~~ harder daddy! Harder hubby! Harder!” The little demon begged, her body shuddering with pleasure with each slap, her skin swaying gently before returning to shape.</p>
+<p>“Oghnnn harder daddy! Harder hubby! Harder!” The little demon begged, her body shuddering with pleasure with each slap, her skin swaying gently before returning to shape.</p>
 
 <p>“Ah… that woman,” Qingyi sighed in defeat and continued what he was doing.</p>
 

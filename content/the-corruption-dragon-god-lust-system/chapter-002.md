@@ -119,7 +119,7 @@ chapter = 2
 
 <p>Luckily, Qingyi was already below her, arms outstretched to catch the little beauty.</p>
 
-<p>“Mm~~” a muffled moan escaped the young girl’s delicate lips as she was wrapped in his arms, landing comfortably against his chest.</p>
+<p>“Mm” a muffled moan escaped the young girl’s delicate lips as she was wrapped in his arms, landing comfortably against his chest.</p>
 
 <p>She was a youthful beauty, with long red hair, her skin was white, as pure white as jade, with a round, graceful face.</p>
 

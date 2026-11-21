@@ -31,7 +31,7 @@ chapter = 345
 
 <p>Julian groaned, his hips moving in response to her touch. “Teasing me now?” he murmured, pressing her against the shower wall more strongly.</p>
 
-<p>“What ~” She gasped as he grabbed her thighs, lifting her easily.</p>
+<p>“What ” She gasped as he grabbed her thighs, lifting her easily.</p>
 
 <p>Her legs wrapped around his waist, and she felt his cock pressing against her wet folds, the heat of him sending a shudder through her.</p>
 

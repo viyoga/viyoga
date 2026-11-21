@@ -57,7 +57,7 @@ chapter = 1635
 <p>The Abyssal Genesis Physique inside him stretched, slow and enormous, like something that had been waiting to be asked. Quinlan felt the system reach for him.</p>
 <p>&lt;Nyxara, can you hold this off until I am finished here?&gt;</p>
 <p>The reply came back on a current that smelled distinctly of lounging.</p>
-<p>&lt;Mmmm... yes, Master~&gt;</p>
+<p>&lt;Mmmm... yes, Master&gt;</p>
 <p>...</p>
 <p>Quinlan stepped fully into the command room and looked at the grandmaster.</p>
 <p>"Subjugation or Eternal Damnation?" he asked.</p>

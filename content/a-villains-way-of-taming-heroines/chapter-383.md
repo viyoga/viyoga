@@ -47,5 +47,5 @@ chapter = 383
 <p>Do Androids Dream of Electric Sheep? by hilip K. Dick</p>
 <p>Market Forces by Richard K. Morgan</p>
 <p>Full Metal Alchemist (anime)</p>
-<p>** I checked the above msg won't raise chapter price, dont worry~</p>
+<p>** I checked the above msg won't raise chapter price, dont worry</p>
 <p>Share to your friends</p>

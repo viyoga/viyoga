@@ -33,7 +33,7 @@ chapter = 359
 
 <p>“I wonder how much stronger than Tai’Ren he is…” Qingyi sighed before focusing his gaze on Linyue again, grabbing her and pushing her against the bed.</p>
 
-<p>“Nyan? What are you doing? N-nyan!~~” A confused moan escaped Linyue’s lips as Qingyi sank down between her breasts, pulling off her clothes and revealing the twin, heavy mountains crowned by pink nipples.</p>
+<p>“Nyan? What are you doing? N-nyan!” A confused moan escaped Linyue’s lips as Qingyi sank down between her breasts, pulling off her clothes and revealing the twin, heavy mountains crowned by pink nipples.</p>
 
 <p>Without hesitation, he enveloped the nipples with his lips, sucking voraciously, feeling his mouth fill with that sweet, warm, creamy liquid.</p>
 
@@ -43,7 +43,7 @@ chapter = 359
 
 <p>Raising his face, he grabbed her breasts with both hands, moving his hips even harder, watching milk squirt out with every little squeeze, bathing her breasts in the warm, sweet liquid.</p>
 
-<p>“Nghn~~ Nyan~~ Nyan~~ Q-qingyi~~ H hubby- Nyan~~” Linyue’s panting moans were all he heard for the rest of that night.</p>
+<p>“Nghn Nyan Nyan Q-qingyi H hubby- Nyan” Linyue’s panting moans were all he heard for the rest of that night.</p>
 
 <p>The next morning, Qingyi rose with the sunrise, carefully preparing himself before finally setting off towards the great central courtyard of the golden palace.</p>
 

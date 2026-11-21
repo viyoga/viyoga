@@ -69,7 +69,7 @@ chapter = 755
 
 <p>The two pale cheeks closed around the shaft as if they wanted to trap it there forever, the plump globes pillowing his length in a soft, slick grip.</p>
 
-<p>"Oghnn~~ s-stop... it’s too big... it won’t fit, nghnn~. Q-Qingyi... I’m your adoptive mother, you shouldn’t—" Rouxi’s words were cut off abruptly.</p>
+<p>"Oghnn s-stop... it’s too big... it won’t fit, nghnn. Q-Qingyi... I’m your adoptive mother, you shouldn’t—" Rouxi’s words were cut off abruptly.</p>
 
 <p>Qingyi aligned his cock, the reddish head pressing against that puffy, soft anus, already drenched in lubricant.</p>
 
@@ -89,7 +89,7 @@ chapter = 755
 
 <p>Her mind was overtaken by a thick fog of pleasure, her eyes rolling back as her anus clenched around Qingyi’s cock with an almost desperate force, the inner walls pulsing and contracting involuntarily, milking him with every tremor.</p>
 
-<p>"nghnn~~ q-qingyi... sweetheart. . . so big inside mommy’s ass~"</p>
+<p>"nghnn q-qingyi... sweetheart. . . so big inside mommy’s ass"</p>
 
 <p>She could barely control the dirty words escaping her lips.</p>
 

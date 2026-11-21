@@ -1,5 +1,5 @@
 +++
-title = "Chapter 447: Nancy~~~"
+title = "Chapter 447: Nancy"
 weight = 447
 [extra]
 chapter = 447
@@ -9,7 +9,7 @@ chapter = 447
 
 <p>Every time she held it, every time she took it into her mouth, every time she clamped it between her breasts, she couldn’t help but imagine how wonderfully intoxicating it would feel to have this massive thing inside her.</p>
 
-<p>&quot;Big sister, yes, that’s exactly it~!&quot;</p>
+<p>&quot;Big sister, yes, that’s exactly it!&quot;</p>
 
 <p>Luis sat comfortably in her husband’s office chair, let out a contented hum, leaned forward, and wrapped his arms around her slender waist. The height was just perfect for him to bury his face against her chest.</p>
 
@@ -97,6 +97,6 @@ chapter = 447
 
 <p>The moment the door opened, before she could even process it, Blanche looked inside and her whole body went numb.</p>
 
-<p>&quot;Ah... so good, go faster~!&quot;</p>
+<p>&quot;Ah... so good, go faster!&quot;</p>
 
 <p>Nancy sat on the desk, clothes in disarray, her breasts exposed and covered in hickies, her face dazed as she teased the man’s meat rod with her black-stockinged feet.</p>

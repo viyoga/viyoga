@@ -111,7 +111,7 @@ chapter = 303
 
 <p>“Even richer than your father?” The handsome young man smiled, slapping Meilin’s plump, shapely ass, feeling the voluptuous flesh ripple with shock.</p>
 
-<p>“Nghn~~ second richest…” Meilin blushed.</p>
+<p>“Nghn second richest…” Meilin blushed.</p>
 
 <p>“Hahaha!” Qingyi laughed, the bidding for his item stopping just short of forty million, being snapped up by the King again.</p>
 

@@ -32,7 +32,7 @@ chapter = 819
 <p>"You’re back already?"</p>
 <p>"Intermission of sorts," Kaiden said. "But it’s not the time to relax."</p>
 <p>The blonde maid’s gaze tracked from him to the five women behind him in varying states of flushed composure, then to Scarlet, who was being led by the hand by a pink-haired beauty whose smile could have sold anything to anyone.</p>
-<p>"Indeed~" Nyx giggled, fingers laced through Scarlet’s. "This is going to be hard work."</p>
+<p>"Indeed" Nyx giggled, fingers laced through Scarlet’s. "This is going to be hard work."</p>
 <p>Alexandra blinked. The surprise lasted about a second before her composure returned. Months in this household had cured her of follow-up questions.</p>
 <p>Her friends were going to fuck. Clear as day.</p>
 <p>"Alright, I’ll make some refreshments..." she went to work. But then Scarlet leaned over the counter. "Yo, please get me a bottle of your hardest wine, sweetheart. Please. Or any alcohol, really. I’m begging."</p>
@@ -40,7 +40,7 @@ chapter = 819
 <p>"I’ll take it!" Scarlet latched onto the offering.</p>
 <p>Alexandra produced one from the rack behind her with a grin. "Thanks for helping keep my friends and home safe, Lady Scarlet!" she beamed.</p>
 <p>"...Sure," Scarlet sighed, accepting the bottle. She straightened up and murmured to herself, "How did I get here... My mouth. My big, loud, stupid mouth. Wait, was this Vespera’s plan all along...? That woman... You can never know with her..."</p>
-<p>Nyx patted her hand. "You’re going to love it~"</p>
+<p>Nyx patted her hand. "You’re going to love it"</p>
 <p>"I have my doubts," Scarlet sighed again.</p>
 <p>They continued toward the bedroom wing, and the procession had barely cleared the kitchen when an eighth set of footsteps joined the formation.</p>
 <p>Alice, no longer latched onto Kaiden, walked at the back of the group with the quiet conviction of someone on a stealth mission and the subtlety of a marching band, tucked behind Bastet’s taller frame as if the cat-eared beauty could shield her from detection.</p>

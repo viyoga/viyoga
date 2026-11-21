@@ -60,7 +60,7 @@ chapter = 25
 <p>"Stop overthinking in front of an opponent, Alaric would have already decapitated you if he were in my place!" Evelyn smiled, trying to retract her leg only to realize it was stuck.</p>
 <p>"Yes... you’re right!" Ethan smiled, his hands closing over her heels.</p>
 <p>With a quick movement, he rested Evelyn’s calf on his shoulder before pushing forward.</p>
-<p>"Nghnn~~" her lips parted in a moan as her back hit the tree in the center of the garden.</p>
+<p>"Nghnn" her lips parted in a moan as her back hit the tree in the center of the garden.</p>
 <p>Evelyn froze for a moment, feeling Ethan’s body press against hers.</p>
 <p>One of his hands fell on the protruding curve of her raised leg’s upper thigh, grabbing the soft, warm, silky flesh.</p>
 <p>"You... What do you think you’re doing, huh?" Evelyn questioned, a wild smile taking over her beautiful face as Ethan’s hand moved a little further up.</p>

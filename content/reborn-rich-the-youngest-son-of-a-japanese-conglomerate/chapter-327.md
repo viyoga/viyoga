@@ -33,7 +33,7 @@ chapter = 327
 <p>Ryuta: I was so busy talking about the superpower-compatible cyber arm 40F-5044 that I forgot to mention that she needs cyber implants for her legs too.</p>
 <p>Eve: Does it matter if the legs are superpower-compatible? If that's the case, there are a lot of models, so don't worry about that.</p>
 <p>Ryuta: It doesn't matter if the legs are superpower-compatible. But she does swordsmanship, so I'd like a model with high agility.</p>
-<p>Eve: Yes~! Please bring your student after school tomorrow. I'll measure her skin color and body size, and we'll operate on Wednesday.</p>
+<p>Eve: Yes! Please bring your student after school tomorrow. I'll measure her skin color and body size, and we'll operate on Wednesday.</p>
 <p>The story progressed quite quickly. I said I understood and that I would visit the Amseong branch tomorrow. I didn't know there was a branch in Miyashi. If there is a branch in Miyashi, it would be nice to visit Eve from time to time and discuss business.</p>
 <p>When I checked the map on the Amseong app, the Amseong Miyashi branch was located in the downtown area of Miyashi. The distance was about a ten-minute walk from my house, and it would take only a few minutes by car. Should I send Saionji Diana a Line message to let her know that I'm going to measure this and that tomorrow?</p>
 <p>###</p>

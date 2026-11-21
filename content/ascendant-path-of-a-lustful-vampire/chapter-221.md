@@ -18,12 +18,12 @@ chapter = 221
 <p>"Well, yes," Caius said.</p>
 <p>"Huh," Aurelius let out.</p>
 <p>The look on his face was actually quite stupid. He looked dumbfounded and like his brain was not quite comprehending Caius’s words.</p>
-<p>"Cast the ~Heindyll</p>
-<p>~ symbol," Caius said then to speed things along.</p>
+<p>"Cast the Heindyll</p>
+<p> symbol," Caius said then to speed things along.</p>
 <p>"The what?" Aurelius answered looking dumb.</p>
 <p>’Oh right,’ Caius thought, ’He doesn’t know that yet.’</p>
 <p>Fortunately, Caius had planned for this possible eventuality. With a flick of his wrist, he had his self-composed Grimoire in his hands and turned it to a page he had etched a seal for this demonstration.</p>
-<p>"Cast this," he said pointing at the page, "It’s the ~Heindyll~ symbol."</p>
+<p>"Cast this," he said pointing at the page, "It’s the Heindyll symbol."</p>
 <p>Aurelius looked at it curiously.</p>
 <p>"That’s not a Light Magic Arcane symbol," he said.</p>
 <p>"Technically, it’s not," Caius admitted, "But you can cast it. Give it a go."</p>
@@ -32,7 +32,7 @@ chapter = 221
 <p>What this means in essence, is that, when a Mage tries a seal whose element they’re not sure they have an affinity with, their uncertainty can create a mental block that, even if they do have some affinity with it, their Mana will not resonate.</p>
 <p>Fortunately, that is only ever really a problem with a Mage who isn’t very Mana sensitive because there are always signs—tiny and easily overlooked—that will always guide one’s Mana.</p>
 <p>It was what happened with Aurelius.</p>
-<p>Even though the ~Heindyll~ symbol didn’t exactly resonate with any of his Elemental Affinities, he was able to feel his way with the signs. The thing was, he didn’t even have to do it consciously. It just... worked for him.</p>
+<p>Even though the Heindyll symbol didn’t exactly resonate with any of his Elemental Affinities, he was able to feel his way with the signs. The thing was, he didn’t even have to do it consciously. It just... worked for him.</p>
 <p>The Seal flickered into appearance above his palm. Not quite the bright golden colored seal he usually produced for Light Magic, but pretty nice all the same.</p>
 <p>’Fucking Genius,’ Caius said in his head, and while he sort of meant it as a compliment, it came off as a bit derogatory.</p>
 <p>Now, one might say; ’Caius, you’re a genius too!’ And one would be right...</p>
@@ -48,8 +48,8 @@ chapter = 221
 <p>Aurelius was more inclined to listen to Caius now and truly paid attention to the seal above his palm, studying it for something to feel.</p>
 <p>"There’s light in it," He said and then rolled his eyes at himself, "But of course, there is. It’s why I can cast it at all."</p>
 <p>"What else do you sense?" Caius prompted.</p>
-<p>Aurelius took some time now and then his eyes grew wide. The ~Hiendyll</p>
-<p>~ symbol reflected in his blue orbs and seemed to burst with even more glow within his pupils.</p>
+<p>Aurelius took some time now and then his eyes grew wide. The Hiendyll</p>
+<p> symbol reflected in his blue orbs and seemed to burst with even more glow within his pupils.</p>
 <p>"Something pulsing. Almost like a heart but not quite. It feels... alive. It feels... smells like..." Aurelius said taking a whiff of the seal almost mesmerized by it even if he couldn’t actually think of what to complete his words with.</p>
 <p>And here, Caius came in with the assist.</p>
 <p>"... Like Nature," he said.</p>

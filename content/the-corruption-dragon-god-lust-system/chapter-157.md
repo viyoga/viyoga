@@ -33,7 +33,7 @@ chapter = 157
 
 <p>“I wouldn’t be able to advance this far if it weren’t for you spoiling me with your pills. It’s me who doesn’t deserve such a dutiful wife.” He smiled as he brought his face close to hers.</p>
 
-<p>“Fufufu~~ husband’s pretty good with words today, huh?” Feiyan snuggled into Qingyi’s arms, her full, red lips curving subtly.</p>
+<p>“Fufufu husband’s pretty good with words today, huh?” Feiyan snuggled into Qingyi’s arms, her full, red lips curving subtly.</p>
 
 <p>It wasn’t long before the sect’s flying ship set sail.</p>
 

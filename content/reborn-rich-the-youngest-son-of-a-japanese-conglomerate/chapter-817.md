@@ -54,8 +54,8 @@ chapter = 817
 <p>'Hoo.... I already did it once, so I can't help it. I'll be waiting. Yamashiro-sensei.'</p>
 <p>'Yes. Whatever the Story is, please resolve it well.... Erika, do well on the exam tomorrow.'</p>
 <p>I greeted Daigo Terue and stroked Oofuchi Erika's Head, cheering her on for the exam tomorrow.</p>
-<p>'Yes~! Dad is the best♥'</p>
-<p>It felt like I really had a young daughter. What kind of high school senior would say 'Dad is the best~!'? Only Oofuchi Erika, who lost her father in her childhood, could show this Attitude.</p>
+<p>'Yes! Dad is the best♥'</p>
+<p>It felt like I really had a young daughter. What kind of high school senior would say 'Dad is the best!'? Only Oofuchi Erika, who lost her father in her childhood, could show this Attitude.</p>
 <p>I smiled bitterly, waved my Hand at the two of them, and returned Home. I put the food that Daigo Terue had packed in the refrigerator, and I collapsed on the sofa and turned on the TV. I was mentally exhausted, so I needed to relax a bit by watching TV without thinking.</p>
 <p>-The one who advanced to this Primera....</p>
 <p>They're doing sports News. I blankly watched the sports News and came to my senses. A familiar name came up.</p>
@@ -115,9 +115,9 @@ chapter = 817
 <p>Casual clothes</p>
 <p>Casual clothes are still school uniforms ㅎㅎ</p>
 <p>At Home, she wears loose t-shirts and Dolphin Shorts ㅎㅎ</p>
-<p>Belly dancer~!</p>
-<p>Lisa, the Home Economics Teacher, in an off-shoulder dress with braided Hair + Abdominal Muscles, requested by AbsolutelyNonRefundable-nim~!</p>
-<p>Starting with Lisa-ttang~!</p>
+<p>Belly dancer!</p>
+<p>Lisa, the Home Economics Teacher, in an off-shoulder dress with braided Hair + Abdominal Muscles, requested by AbsolutelyNonRefundable-nim!</p>
+<p>Starting with Lisa-ttang!</p>
 <p>Lisa-ttang only does Mommae maintenance exercises, so her Abdominal Muscles don't show up well ㅎㅎ</p>
 <p>Home Economics Teacher</p>
 <p>The Home Economics Teacher's Abdominal Muscles are scary...!</p>

@@ -29,7 +29,7 @@ chapter = 819
 
 <p>&quot;I just wrapped up and am taking a break. Don’t stay up too late either.&quot;</p>
 
-<p>&quot;Got it, hubby~&quot;</p>
+<p>&quot;Got it, hubby&quot;</p>
 
 <p>Chloe smiled sweetly and obediently. Even as a mother, she still radiated a pure, moonlight-like allure.</p>
 

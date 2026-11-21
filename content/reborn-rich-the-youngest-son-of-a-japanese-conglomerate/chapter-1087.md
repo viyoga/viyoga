@@ -62,12 +62,12 @@ chapter = 1087
 <p>If it was the Taira Successor side, I could unknowingly be swept away by that flow, so I had to be careful, and if it was an Act committed by the Minamoto side, since a Taira Direct Lineage member had died at the hands of Minamoto, Taira Danjo would step forward instead of Taira Jiro, so everyone with the Taira name would have to Attack the Minamoto side.</p>
 <p>I, who am connected to Minamoto Risa, also, while attacking Minamoto, would have to watch someone attacking Minamoto Risa and give Help to Minamoto Risa, making The Situation quite complicated.</p>
 <p>Of course, as The Situation becomes more complicated, it does create an opportunity for my side, which is not yet recognized as a Successor Group, but the Head-ache was unavoidable.</p>
-<p>"Ryuta-jji~! Come out quickly! You said we wouldn't have time after today!"</p>
+<p>"Ryuta-jji! Come out quickly! You said we wouldn't have time after today!"</p>
 <p>As I lay there, suffering from a Head-ache alone, Seizawa Shii's Voice came from Outside the window. Ah, that's right. We were supposed to go surfing together today, weren't we?</p>
 <p>Since I don't know what will happen after I finish my schedule with Mother Mars tomorrow, this was the only time I had to surf and play in the Sea with Seizawa Shii and the other Kids.</p>
 <p>"I'm coming down now."</p>
 <p>I got up from my Seat and said, waving my Hand Outside the window. It seemed I needed to wash away the complicated thoughts in my Mind, caused by Taira Kitsumasa's sudden Death, by surfing.</p>
-<p>Kanna B-cut~!</p>
+<p>Kanna B-cut!</p>
 <p>Requested by TheDreaming-nim: Kanzaki Saya at an amusement park, 1. Translucent attire and Gun-shooting posture 2. Kneeling and Gun-shooting posture</p>
 <p>1.</p>
 <p>I entered 'men's Trunk', but Dolphin Shorts came out ㄷㄷ Dual pistols and dual Smartphones kkeuk kkeuk kkeuk</p>
@@ -75,8 +75,8 @@ chapter = 1087
 <p>Requested by Gojoy-nim for Chapter 50: 1. Yukiko holding Hands with the protagonist 2. Kanna at the funeral</p>
 <p>1.</p>
 <p>2.</p>
-<p>Requested by MidNightSKY-nim: Alik emitting jolts~! Sakagami Rena using Explosion Release~!</p>
-<p>Alik~!</p>
-<p>Rena~!</p>
-<p>Requested by NeosBlue-nim: Saya using a Gatling Gun~!</p>
+<p>Requested by MidNightSKY-nim: Alik emitting jolts! Sakagami Rena using Explosion Release!</p>
+<p>Alik!</p>
+<p>Rena!</p>
+<p>Requested by NeosBlue-nim: Saya using a Gatling Gun!</p>
 <p>Super Strength to hold a Gatling Gun with one Hand ㄷㄷㄷ</p>

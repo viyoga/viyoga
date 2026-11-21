@@ -12,10 +12,10 @@ chapter = 367
 <p>The remaining female students were Konoe Akina, the head of her family, Otagi Yuka, who could kill a thousand MCN streamers who hit on her, Alik, who could protect herself, and Saionji Diana, who received no support from her family.</p>
 <p>Coincidentally, all the remaining students knew my true identity. It felt wrong to just send them away, and since it was getting late, I thought about having dinner together. So, I asked everyone.</p>
 <p>,Shall we have dinner together?</p>
-<p>,Yes, seonsaengnim~!</p>
+<p>,Yes, seonsaengnim!</p>
 <p>,Alik, I want to have dinner with Ryuta after a long time....</p>
 <p>,If seonsaengnim wishes....</p>
-<p>,If seonsaeng-ssi wants to eat, we should eat~!</p>
+<p>,If seonsaeng-ssi wants to eat, we should eat!</p>
 <p>Konoe Akina, Alik, Saionji Diana, and Otagi Yuka answered my suggestion in turn. Alik and Saionji Diana were completely on my side, and Konoe Akina and Otagi Yuka were friendly forces, so we should get together like this sometimes.</p>
 <p>When I asked what they wanted to eat, most of them said meat, so we came to a nearby steakhouse. Since Alik and Saionji Diana were there, I sent a Line message to Shimokawabe Airen, who was close to them, but it didn't show as read. She wouldn't be sleeping at this hour, so she must be practicing swordsmanship.</p>
 <p>,Since Saionji will be working with me for a few years after graduation, there's no need to hide anything in this setting.</p>
@@ -33,7 +33,7 @@ chapter = 367
 <p>I explained about Alik, but I was a little taken aback because I heard about Saionji Diana's firm determination for the first time today.</p>
 <p>,If I had continued to be confined to a wheelchair like before, I would have given up on life before long. I regained my life thanks to seonsaengnim's help, so it's only natural to repay that.</p>
 <p>Fortunately, Saionji Diana explained the reason as if to clear up the misunderstanding, so I was able to escape the strange gazes of Konoe Akina and Otagi Yuka.</p>
-<p>,Ahaha! What's with you, seonsaeng-ssi! I almost misunderstood you as a pervert who makes kids wear maid outfits~!</p>
+<p>,Ahaha! What's with you, seonsaeng-ssi! I almost misunderstood you as a pervert who makes kids wear maid outfits!</p>
 <p>,I trusted seonsaengnim!</p>
 <p>Honestly, Otagi Yuka said she almost misunderstood, and Konoe Akina said she trusted me. To be honest, Konoe Akina's expression also seemed to see me as a strange guy. Since she says she trusted me, I have no choice but to believe her.</p>
 <p>,It's a shame. If I weren't the head of the Konoe family, I would have joined the company that seonsaengnim is building to repay your kindness.</p>
@@ -61,7 +61,7 @@ chapter = 367
 <p>Hmm, I should contact Mask Delivery after a long time and enjoy Kasaoka Yuzuki's body. Since we're going on a picnic for two nights and three days from tomorrow, and I won't be able to release the Semen that's been building up, I should release some in advance.</p>
 <p>###</p>
 <p>,Good morning.</p>
-<p>,Good morning~!</p>
+<p>,Good morning!</p>
 <p>When I entered the classroom, everyone was excited from the morning, as students are before going on a picnic. Actually, I didn't know the schedule for today very well. It felt like Minamoto Lisa was hosting the field trip, so the schedule hadn't come to me yet.</p>
 <p>,Class president, what's the schedule after school?</p>
 <p>,Here's the schedule.</p>

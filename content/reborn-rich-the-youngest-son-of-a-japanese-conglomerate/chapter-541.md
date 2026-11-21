@@ -5,7 +5,7 @@ weight = 541
 chapter = 541
 +++
 
-<p>There are explicit contents and illustrations, so please check your surroundings before viewing~!!</p>
+<p>There are explicit contents and illustrations, so please check your surroundings before viewing!!</p>
 <p>After taking the students and Shimokawabe Airen-ssi home, I came into my house with Kijimoto Jurie. Before I knew it, we had thrown off our clothes, and Kijimoto Jurie knelt in front of me without hesitation and took off my panties.</p>
 <p>"Haaheueung...♥ Ryuta-nim's dick, it's been so long...!"</p>
 <p>Kijimoto Jurie, wearing the cat ear headband I gave her as a gift, started licking my dick. I hadn't been able to give Kijimoto Jurie much attention for the past week because of the athletic meet practice, so she must have been quite pent up, as she greedily sucked on my dick. It was like a person who hadn't eaten for three days eating a banana.</p>
@@ -20,7 +20,7 @@ chapter = 541
 <p>Byuut! Beut! Beut!</p>
 <p>I pulled Kijimoto Jurie's face all the way to the base of my dick and started ejaculating. Kijimoto Jurie's eyes widened, and I could hear the gulping sound of her swallowing the semen.</p>
 <p>Jjoop...! Jjoop...!</p>
-<p>Kijimoto Jurie, who had sucked out even the remaining semen in my urethra, spat out my dick with a "buha~!" sound.</p>
+<p>Kijimoto Jurie, who had sucked out even the remaining semen in my urethra, spat out my dick with a "buha!" sound.</p>
 <p>"Master-nim came so much in my neck, I came too...♥"</p>
 <p>It seemed that Kijimoto Jurie's masochistic instincts were revived after tasting the semen. Kijimoto Jurie went up to the bed, lay down, spread her legs, and showed me her gaping pussy with her hands, as if seducing me.</p>
 <p>At that sight, my dick regained its strength, so much so that it was hard to believe it had just ejaculated. I grabbed Kijimoto Jurie's spread legs and inserted my erect dick.</p>
@@ -41,7 +41,7 @@ chapter = 541
 <p>When the door opened, a beautiful woman with white and pink hair mixed in a bridge style, wearing a white doctor's gown, was standing there. She was a very seductive female doctor, wearing a tight black mini dress inside her gown.</p>
 <p>"You're awake, Asada-ssi. How is your body?"</p>
 <p>"Yes, yes? I think I'm a little better. But are you a doctor?"</p>
-<p>"Hmm... You can call me a doctor, but just call me Eve~!"</p>
+<p>"Hmm... You can call me a doctor, but just call me Eve!"</p>
 <p>Eve... She wasn't interested in the doctor in front of her. She was just curious if her body was healed.</p>
 <p>"Is my body... healed?"</p>
 <p>"First of all, to tell you the conclusion, it's not healed yet."</p>
@@ -72,7 +72,7 @@ chapter = 541
 <p>"I'm okay, so go home and rest now, Father. It's too cold here."</p>
 <p>"Okay... I'll come with your mother tomorrow."</p>
 <p>He wanted to be with his daughter a little longer, but his daughter had just woken up. If she gets a little better, they can be together longer. Asada Fukushi left the freezer with heavy steps.</p>
-<p>"It's time for cryotherapy~!"</p>
+<p>"It's time for cryotherapy!"</p>
 <p>Eve came in shortly after Asada Fukushi left. Eve wasn't cold, and she was just wearing the same casual clothes and a thin doctor's gown as before. Asada Ei followed Eve's instructions to follow her. All she had to do was follow her to the room next door, which had a capsule-like thing taller than a person standing in it. When Eve operated the capsule, the capsule opened.</p>
 <p>"Go in here. It's a cryogenic cooling device, so you don't have to worry about anything!"</p>
 <p>"Yes."</p>

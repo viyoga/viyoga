@@ -145,13 +145,13 @@ Nothing more had to be said. Lith began moving his hips and pounded the sect mas
 
 The view of the city was amazing, but her velvety lips getting spread apart were even better to look at.
 
-"Ahhh~ Ahhh~ Ahhh~"
+"Ahhh Ahhh Ahhh"
 
 Squelch… Squelch… Squelch…
 
 Qingyue already had a light orgasm and moistened the whole area. She was really sensitive down there and Lith kept ramming into her, taking her to greater heights of pleasure.
 
-"Ohhhh~!"
+"Ohhhh!"
 
 "Stop, Master! Stop… nnnghhhh!"
 

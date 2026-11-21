@@ -83,7 +83,7 @@ chapter = 640
 
 <p>Luis chuckled and said, &quot;You little minx. You didn&#x27;t get to take advantage of her before, and you&#x27;re still not satisfied?&quot;</p>
 
-<p>&quot;What do you mean? I wasn&#x27;t forcing anything~&quot;</p>
+<p>&quot;What do you mean? I wasn&#x27;t forcing anything&quot;</p>
 
 <p>Lily giggled playfully, saying, &quot;After dinner tonight, I&#x27;ll send Maria off, and you&#x27;ll have some alone time with Aunt Yana.&quot;</p>
 

@@ -13,7 +13,7 @@ chapter = 392
 <p>His tongue smoothly ravaged the inside of her mouth. He slowly made his way around her teeth and the sides of her cheeks.</p>
 <p>Medea felt a jolting pleasure when his tongue met hers. Their tongues wrestled while their saliva mixed.</p>
 <p>He was focused on exploring the inside of her mouth through kissing. His tongue twisted and sucked on, then let go of her.</p>
-<p>“Ah~ !..”</p>
+<p>“Ah !..”</p>
 <p>A low moan escaped from deep within her throat. The soft kiss gradually heated up and article after article of her clothes were discarded on the ground.</p>
 <p>When he parted from a particularly long kiss, Medea lightly gasped for breath. With only this much, it felt like they had done more than enough already.</p>
 <p>“I really missed you.”</p>
@@ -27,7 +27,7 @@ chapter = 392
 <p>“Ah!”</p>
 <p>A jolting pleasure from her breasts forced Medea to let out a short moan. He took a mouthful and sucked on it, eliciting even more moan from her. Like a fine, he gently and slowly savored her.</p>
 <p>He lightly bit her nipple and tickled it with his tongue. Medea got breathless as he licked around the areola before sucking on it once more.</p>
-<p>“Ah~…”</p>
+<p>“Ah…”</p>
 <p>His lips proceeded down to her lower abdomen and then to her inner thighs. A sweet scent filled the air and Sol gulped as he felt his desire to eat her out overflow. His lips brushed against the deep portions of her inner thighs and began sucking.</p>
 <p>“Huh!”</p>
 <p>As soon as Sol’s red hot tongue reached her enlarged clit, Medea’s spine curved back, round. Her whole body instantly trembled. At the same time, a lot of slippery fluid poured over Sol’s face.</p>

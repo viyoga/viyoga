@@ -9,12 +9,12 @@ chapter = 433
 <p>—------------------------</p>
 <p class="scene-break">· · ·</p>
 <p>『 Mana Burst 』</p>
-<p>BOOOMM!!!~</p>
+<p>BOOOMM!!!</p>
 <p>With that chant, the golden blade of mana descended from above. Everything that shining blade of mana collided with turned into nothingness as the pure blast of mana decimated everything and anything in its path.</p>
 <p>The kaleidoscopic blade shot through the air and collided with Lilith’s own. A pure shockwave of unadulterated and concentrated power hit everything in its radius as a pillar of ominous light shot out from the collision point. A deafening roar shook the very foundation of the dimension they occupied.</p>
 <p>Sol was right… Before overwhelming power, everything was meaningless. The current change in the landscape was proof of that statement.</p>
 <p>But, there was one thing that was to be noted in that statement. In the first place, Sol was not the one with overwhelming power in this fight.</p>
-<p>Shooosh~</p>
+<p>Shooosh</p>
 <p>An all-encompassing line of sword light. For an instant, it felt like the entire world had been cleanly severed into two equal parts.</p>
 <p>All it took was just a single slash. Following the vertical flash of light, the attack created by the Mana Burst Sol launched at Lilith was completely divided and disintegrated with so much ease that it was utterly ridiculous.</p>
 <p>When the dust slowly scattered, all the people occupying the space could only glance at the great divide that had completely split the ground and the edges of the realm into two, distorting the fabric of space that this place was standing upon.</p>
@@ -30,7 +30,7 @@ chapter = 433
 <p>“I would be quite disappointed if this is all you can show.”</p>
 <p>Lilith spoke gently while hiding the trembling of her hand and the few cracks that were already spreading along it.</p>
 <p>“Very well, far from us to disappoint you. Lilin, let’s continue.”</p>
-<p>Whoosh~</p>
+<p>Whoosh</p>
 <p>The two appeared next to Lilith in an instant as though they had teleported from their previous spot. Sol by using the properties of his dimension and Lilin by moving through space with the use of her Boundless zone.</p>
 <p>The two attacked at the same time, but two floating swords manifested in the air and blocked those attacks for Lilith without her even having to will it.</p>
 <p>What followed after was a true battle between monsters, that went beyond the limits of anything that the Mortal Realm could hold…</p>
@@ -56,7 +56,7 @@ chapter = 433
 <p>Finally when Sol reached the descending blade with the heaviness and sharpness to even ostensibly split the world in half…</p>
 <p>『 Ignition: Overdrive 』</p>
 <p>Sol immediately went all out and delivered a punch with all the power he could gather in a short instant.</p>
-<p>Crack~</p>
+<p>Crack</p>
 <p>The sound of something breaking resonated in the air as the gigantic sword was surprisingly more fragile than he had intuited it to be.</p>
 <p>“See, Sol, my dear, you are certainly powerful. But see, overwhelming power simply bred habits that can be easily exploited.”</p>
 <p>The sword shattered in an instant— creating thousands of shards that were all under Lilith's control as they pounced on Sol like starved beasts ready to tear their prey asunder at any moment.</p>
@@ -66,7 +66,7 @@ chapter = 433
 <p>‘What will you do now?’</p>
 <p>The answer was more surprising than she thought it to be.</p>
 <p>Even standing beneath her, far from the distant sky she now stood on, Lilin simply swung her sword.</p>
-<p>Clang~</p>
+<p>Clang</p>
 <p>Lilith instinctively moved and blocked the blow and the metallic sound of the sword clashing made her eyes widen in disbelief.</p>
 <p>She had felt no mana or intent coming at her at that moment. If she had not acted by following her years of experience, then this sword might have been the decisive move that would’ve beheaded her at this moment.</p>
 <p>“I don’t need to move.”</p>
@@ -108,14 +108,14 @@ chapter = 433
 <p>With that one word, thousands upon thousands of swords manifested into reality, in all shapes and sizes, and surrounded the duo. What followed after was a realm-shaking clash in the air as Lilith moved with thousands upon thousands of her manifested swords following her command and attacking Sol continuously from all directions while he chased after her.</p>
 <p>“Hahaha!”</p>
 <p>Sol's cackling loud laughter filled Medea’s world as the blaze covering him simply grew brighter with each breath he took. Like an incandescent inextinguishable star ready to burn everything into ashes. Sol simply smashed everything that was on his way using his strength and decimated the rest using his flames until finally…</p>
-<p>Clang~</p>
+<p>Clang</p>
 <p>…Finally, his sword reached hers.</p>
 <p>“I got you.”</p>
 <p>Lilith stayed silent as she looked in the eye of the boy— nay, the now grown-up man in front of her.</p>
 <p>She still remembered how not long ago, Sol was not even able to bring a percentile of her true power out while they trained. She remembered those days when she had to be careful with each swing and slash just not to cut her nephew apart with her power. Those days were no more.</p>
 <p>From her perspective, not much time had passed by since then, but the current Sol was simply so different that they could not be compared.</p>
 <p>Sol could already be said to be an absolute powerhouse of the highest order. His current power could even pose some threat to the King-rank beings and she knew that he was going all out at this instant against her.</p>
-<p>Crack~ Crack~</p>
+<p>Crack Crack</p>
 <p>Fine cracks formed around Lilith’s arms, shoulders, and face. She knew that her limit was fast approaching but she gave no heed to the destruction she was causing her body to go through.</p>
 <p>“You have grown.”</p>
 <p>“I have.”</p>
@@ -177,13 +177,13 @@ chapter = 433
 <p>Now, a still silent Lilith was left to look down into her Immortal Slaying Sword with myriads of complicated emotions flooding her eyes. Her mind was so complicated right now that she herself didn’t know how to word what she was feeling.</p>
 <p>The words of her daughter had made her remember the memory of her past once again.</p>
 <p>“Well. Shall we continue then?”</p>
-<p>Crack~</p>
+<p>Crack</p>
 <p>A fissure appeared on Lilith's face, marring her once beautiful visage, it showed that she was slowly reaching her limit but Sol paid no attention to it.</p>
 <p>“Will you continue to use a sword?”</p>
 <p>Sol shrugged at her question. “I don’t really need a sword, right? But see, I guess watching the two of you fight gave me some enlightenment about the way to use a certain power of mine.”</p>
 <p>Sol grinned, “Since your sword is Limitless while Lilin’s is Boundless. Then I guess I need to do something myself, right?”</p>
 <p>Lilith felt goosebumps run down her skin at the end of his words and instinctively took a step back but—</p>
-<p>Swoosh~</p>
+<p>Swoosh</p>
 <p>She looked in disbelief as strands of her hair were cut before she was even able to tell what happened.</p>
 <p>‘Wha–’</p>
 <p>“What did you do?”</p>
@@ -199,7 +199,7 @@ chapter = 433
 <p>The more this went on the more precise Sol became with his sword strikes.</p>
 <p>When she attacked, he would take a simple step back and that was all it would take to nullify her attack— the most optimal way to avoid her attacks was executed with each of his movements. Furthermore, when he attacked, she could barely block it and could only helplessly watch as the attack landed on her body.</p>
 <p>In the end, she was finally unable to stop his sword from slashing her body.</p>
-<p>Drip~</p>
+<p>Drip</p>
 <p>Blood slowly trailed down from a wound on her forehead. It was a small wound. But it was the first true wound she had received in this fight between them. Perhaps this was the only wound she had ever received from a Duke after advancing into the King realm.</p>
 <p>‘I was wounded?’</p>
 <p>Lilith could not believe it. During all this fight she held the upper hand with no problem whatsoever. She wished to share her experience with Sol and Lilith using this fight and in no way was she thinking of taking this fight seriously.</p>
@@ -216,7 +216,7 @@ chapter = 433
 <p>“I honestly don’t know what the supreme state you are talking about is… This technique doesn’t even need the use of a sword… I am just using it to piss you off in all honesty. After all, wouldn’t it be funny if the best sword user in the universe lost a sword fight against someone who isn’t even a swordsman?”</p>
 <p>With those taunting words, the fight between the two of them resumed once more.</p>
 <p>Unlike earlier, there were no big explosions. No powerful sword intent that could reach the heavens and tear down the earth. It was just a clash between two swords.</p>
-<p>Clang~</p>
+<p>Clang</p>
 <p>Swords clashed.</p>
 <p>Blood flowed.</p>
 <p>—And Lilith was gradually getting cornered.</p>
@@ -256,7 +256,7 @@ chapter = 433
 <p>She knew Sol was taunting her. But…</p>
 <p>No one. Absolutely no one could mock her sword.</p>
 <p>『 Avatar — Tyrfing 』</p>
-<p>Crack~</p>
+<p>Crack</p>
 <p>Her body broke further, almost shattering into pieces then and there. Unable to support the devastating power flowing through her after the activation of her True Name.</p>
 <p>Tyrfing…</p>
 <p>Sol’s lips finally relaxed to form a peaceful smile.</p>
@@ -274,11 +274,11 @@ chapter = 433
 <p>A sword that could destroy anything in its path.</p>
 <p>A sword that would even destroy its user to slay the one that it was used against.</p>
 <p>To such a sword, even the limits of dimensions were as flimsy as paper. Easily cut and destroyed.</p>
-<p>Crack~</p>
+<p>Crack</p>
 <p>Standing in the monochrome Inverse World, Sol smiled as he observed the long ominous gash of kaleidoscopic light forming and breaking apart the gap between dimensions…</p>
 <p>The void between the gap of dimensions was torn open into a horizontal gash as the sword strike of kaleidoscopic light swiftly approached his destination with the full intention of erasing him from reality.</p>
 <p>The horizontal sword approached to tear him apart, but before it could touch him…</p>
-<p>Shriek~</p>
+<p>Shriek</p>
 <p>Another dimensional wall was erected between them as Sol literally erected another whole dimension between them using the power of mirrors of his Inverse World. The sword violently cut through the might of a whole dimension. It shrieked and screeched and finally… It dissipated into nothingness and he was left intact…</p>
 <p>Sol heaved a strained sigh, his body was covered in blood and sweat and his mind was a little faint. Had he received this sword head-on, he would have died.</p>
 <p>No ifs. No buts.</p>

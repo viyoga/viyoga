@@ -40,7 +40,7 @@ chapter = 1021
 <p>"Yes, originally, the first auction usually has quite good items. But today, because of the fragment of truth, I didn't think many People would spend Money on the first auction, so I bought it. Kirie too, and the others too, if there's anything you want, tell me. I'll buy one for each of you."</p>
 <p>When Kurayamada Kirie asked, I explained the Reason, and when I said I would even buy an item for each of them, the Atmosphere became heated.</p>
 <p>The first auction was a Grimoire, which was outside their Interest, so they were just looking around the Room or ordering drinks via Room Service, but now that I said I would buy for them, they were intently watching the Screen.</p>
-<p>-The second item is precisely this~!</p>
+<p>-The second item is precisely this!</p>
 <p>The second item was a necklace. It was a necklace from a Victorian-era Noble family, and in this auction, a minority of general collectors competitively participated and it was sold at a quite high Price.</p>
 <p>As the third and fourth items passed, and the sixth item appeared, Sawayanagi Azuma raised her Hand.</p>
 <p>"I like that item, Investor-nim!"</p>
@@ -74,10 +74,10 @@ chapter = 1021
 <p>As time and space Abilities are precious Abilities often bound together, it wasn't strange that two items from the same Ruins appeared together in the auction.</p>
 <p>As expected, like the necklace, the options were few, but its Ability was quite good. The first option, 0.5 Stage enhancement, meant, for example, raising a Narrative Ability to a Narrative+ Ability. In Kurayamada Kirie's case, since she has Subspace Ability, if that Ability were enhanced, the Size of the Subspace would increase, or additional Effects would be attached to that space.</p>
 <p>The second option was a very useful option for Survival: Space Refraction was an Ability that made hitting attacks miss. As an option that allowed one to evade a potentially fatal blow at least once a week, it could be said to be a very good option for Kurayamada Kirie, whose Specialty was Melee Combat.</p>
-<p>Lianna Holden Auction Attendance Dress B-cut~! Originally, I made it with a Concept similar to Rabbit Jessica, but since the Dress Design was similar to other Characters, I rather changed it to a Dress without Exposure haha.</p>
-<p>Chomisaemeonji-nim requested Egyptian Queen Liz, Liz wearing Armor~!</p>
-<p>Egypt~!</p>
-<p>Armor~!</p>
+<p>Lianna Holden Auction Attendance Dress B-cut! Originally, I made it with a Concept similar to Rabbit Jessica, but since the Dress Design was similar to other Characters, I rather changed it to a Dress without Exposure haha.</p>
+<p>Chomisaemeonji-nim requested Egyptian Queen Liz, Liz wearing Armor!</p>
+<p>Egypt!</p>
+<p>Armor!</p>
 <p>Gojoy-nim requested in Chapter 23 flashback: 1. Arisu delighted after hearing Praise, and 2. Arisu grinning with the Imagination of giving birth to a Child.</p>
 <p>1.</p>
 <p>2.</p>

@@ -18,7 +18,7 @@ chapter = 1076
 <p>He looked up at her and smiled.</p>
 <p>"Bon appétit."</p>
 <p>He closed his lips around her nipple and sucked.</p>
-<p>"That is not what I meant...! Ahn~!"</p>
+<p>"That is not what I meant...! Ahn!"</p>
 <p>Her back arched, pressing more of that generous softness into his mouth. His tongue circled her nipple, and each pull of his lips drew another sound from her, quieter at first, then helplessly clear when he gave it a gentle bite.</p>
 <p>Yunohana had meant to scold him. With her fingers buried in his hair and her thoughts coming apart whenever he used his tongue, she was having considerable difficulty remembering the complaint.</p>
 <p>"Kaiden... There is something I would like to try."</p>
@@ -50,7 +50,7 @@ chapter = 1076
 <p>"Kaiden... Do you hate-"</p>
 <p>Kaiden bent and kissed the neatly trimmed hair before she could finish. A second kiss landed lower, his lips lingering against her mound, and then his thumbs spread her wet folds.</p>
 <p>His first broad lick ran from her dripping entrance to her clit, gathering the arousal already shining between her folds. Yunohana’s hips lifted straight off the bed as her warm, slick flavor coated his tongue. Beneath the salt of her arousal, she tasted faintly sweet, and he wanted another taste at once.</p>
-<p>"Ahn~!"</p>
+<p>"Ahn!"</p>
 <p>Her unfinished question dissolved beneath the eagerness of his tongue. He liked her exactly as she was, and relief made that first burst of pleasure burn even sweeter through her belly.</p>
 <p>Kaiden held her down with an arm across her lower stomach and licked her again, slower this time. The rough warmth of his tongue spread through every wet inch, leaving her thighs trembling around his shoulders.</p>
 <p>*Slurp.*</p>
@@ -71,7 +71,7 @@ chapter = 1076
 <p>Another roll of her hips brought her toward him again, and Kaiden kept his mouth on her clit as he slipped one finger through her wetness and eased it inside.</p>
 <p>"Kaiden!"</p>
 <p>Her body tightened around his finger, and Kaiden worked only its tip until the tension eased from her thighs. As she began rocking against him again, he let his finger slide deeper, curling it upward to find the place that made her cry out.</p>
-<p>"Ahn~! If it is not too much trouble... would you keep doing that for just a little longer? Or is your tongue tired?"</p>
+<p>"Ahn! If it is not too much trouble... would you keep doing that for just a little longer? Or is your tongue tired?"</p>
 <p>"Yunohana Tsukikage."</p>
 <p>Her full name rumbled against her wet flesh. The vibration alone made her pussy squeeze around his finger.</p>
 <p>Kaiden withdrew it slowly and rose between her thighs, his mouth glistening with her nectar. He leaned over her until she lay beneath him with his face close to hers, then held her gaze without saying another word.</p>

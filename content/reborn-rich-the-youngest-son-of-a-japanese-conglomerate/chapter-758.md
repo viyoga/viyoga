@@ -84,15 +84,15 @@ chapter = 758
 <p>It was a date where we decided to grant each other's wishes, and Minamoto Lisa naturally asked for a superpower experience, and I made Minamoto Lisa do several embarrassing things, so Minamoto Lisa can't hate it or like it like this now. But it was fun overall, so that's good.</p>
 <p>,The taxi's here...! I, I'll go now!</p>
 <p>We decided to separate in Miyashi in advance to avoid the eyes of the Minamoto family, so Minamoto Lisa decided to take a taxi home. She's going so quickly now because she's embarrassed.</p>
-<p>,Bye~!</p>
+<p>,Bye!</p>
 <p>I said goodbye to Minamoto Lisa and was about to walk back when my phone vibrated and rang. Who is it? When I checked, it was Urabe Konoka.</p>
 <p>,Yeah, Urabe. What's wrong?</p>
 <p>-It seems like Simyeonui ttal is about to return. Please come to the shrine quickly.</p>
 <p>,I'll go right away.</p>
 <p>I immediately hung up the phone and headed to a dark alley. I looked around and there was no one there, so I floated my body with psychokinetic flight and flew up. It was a calculation that flying with psychokinetic flight would be much faster than waiting for a taxi.</p>
 <p>_________</p>
-<p>Diana and the home teacher's sexy nurse outfit requested by RefundAbsolutelyImpossible~!</p>
+<p>Diana and the home teacher's sexy nurse outfit requested by RefundAbsolutelyImpossible!</p>
 <p>The sexy suit will be uploaded tomorrow because I don't have enough time to practice designing the newly born Simyeonui ttal haha</p>
-<p>Starting with Saionji Diana~!</p>
-<p>Home teacher~! I didn't have time to change the model, so I made a new model haha</p>
-<p>Kkiyoot~!</p>
+<p>Starting with Saionji Diana!</p>
+<p>Home teacher! I didn't have time to change the model, so I made a new model haha</p>
+<p>Kkiyoot!</p>

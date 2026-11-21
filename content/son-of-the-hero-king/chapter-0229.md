@@ -43,7 +43,7 @@ chapter = 229
 <p>For one, the chaos spawn had very powerful bodies, making it hard to kill them.</p>
 <p>As if it wasn't enough, there were hundreds, if not thousands of them. Every time he killed one, the other would attack him crazily.</p>
 <p>Once he finished eating, Kiyohime began to mercilessly mock him.</p>
-<p>"Heh, so in the end, it took you one week. Hahaha~! I thought you would finish it in a jiffy? I have been waiting for you since one week ago."</p>
+<p>"Heh, so in the end, it took you one week. Hahaha! I thought you would finish it in a jiffy? I have been waiting for you since one week ago."</p>
 <p>Sol coughed to hide his embarrassment. He has really been a little arrogant earlier. When he heard that there was no Duke level in the first three circles, he was sure that he could sweep through everything.</p>
 <p>How wrong he had been…</p>
 <p>After mocking him for a while, Kiyohime wiped off any amusement from her face, her tone becoming serious.</p>

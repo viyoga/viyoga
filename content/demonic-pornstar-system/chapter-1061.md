@@ -77,7 +77,7 @@ chapter = 1061
 <p>Kaiden waited until she had set her own cup safely on the table. As she turned toward the unoccupied end of Vespera’s sofa, he caught her hand.</p>
 <p>She looked back at him.</p>
 <p>"Hm?"</p>
-<p>"Got you~"</p>
+<p>"Got you"</p>
 <p>His other arm curved around her waist, drawing her toward his knees.</p>
 <p>"Hya! Kaiden!"</p>
 <p>Yunohana landed sideways across his lap, catching his shoulders while he supported her back. For an instant she could only stare at the man smiling at her.</p>

@@ -55,7 +55,7 @@ chapter = 295
 <p>I decided to find out about Nagumo Sian later, and I activated the Black Maitreya Art to the fullest and kissed Yukiko. And I started stimulating the sensitive areas of her chest as much as possible by playing with my hands.</p>
 <p>"Chuuup, Heu-hyat! Tssu-op, A-hyat★ Chuu-beu-chup, chup, Haa-eu-ut! Feels so good!!"</p>
 <p>As expected, my best effort had an effect, and Yukiko's moans became sweeter and sweeter. Kissing and making reactions with moans in between, she seemed like a Succubus through and through.</p>
-<p>"You can't do that~! I'm going to make you feel good★☆"</p>
+<p>"You can't do that! I'm going to make you feel good★☆"</p>
 <p>"We can feel good together."</p>
 <p>I had a feeling that something bad would happen if I just let go and left it to Yukiko's hands, so I kept touching her chest while saying that we should feel good together. She had turned into a Succubus, but her breasts were still great to touch.</p>
 <p>It was the best kind of breasts that changed shape as I touched them and quickly returned to their original state. Since Yukiko's breasts were already top-notch, they didn't seem to have changed that much even after turning into a Succubus.</p>

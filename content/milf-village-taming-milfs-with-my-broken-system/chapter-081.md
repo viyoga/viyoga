@@ -15,7 +15,7 @@ chapter = 81
 
 <p>Anything a man could ask for in a perfect wife and mother fit his fits him perfectly. And yet, now she was a huge simp for her son.</p>
 
-<p>&quot;Then embrace me more... ehehe, I’m greedy, you know~?&quot; Arielle poked his chest; at least her hands could move now, though they were shaking.</p>
+<p>&quot;Then embrace me more... ehehe, I’m greedy, you know?&quot; Arielle poked his chest; at least her hands could move now, though they were shaking.</p>
 
 <p>The intense session in the dining room had left her body weak, and Arielle was barely holding herself up from slumping. With one final push, she would be out for the night... and she couldn’t let that opportunity pass like that.</p>
 
@@ -61,7 +61,7 @@ chapter = 81
 
 <p>&quot;Ahnn... please don’t suck them like that, and I know that I’m the best... ahnn...&quot;</p>
 
-<p>&quot;Hoh... then why are you moaning so loud? Not to mention your hands are moving faster, Mom~.&quot;</p>
+<p>&quot;Hoh... then why are you moaning so loud? Not to mention your hands are moving faster, Mom.&quot;</p>
 
 <p>&quot;It’s... because...&quot;</p>
 
@@ -69,7 +69,7 @@ chapter = 81
 
 <p>Owen then lifted her... the scrubbing was now complete. His cock was already screaming to start round two!</p>
 
-<p>&quot;Turn your body, Mom... let me see the most beautiful mom in the world~.&quot; Owen guided her body because she was still sensitive and weak after the intense session in the dining room.</p>
+<p>&quot;Turn your body, Mom... let me see the most beautiful mom in the world.&quot; Owen guided her body because she was still sensitive and weak after the intense session in the dining room.</p>
 
 <p>Arielle then turned around... her lower body leaning into his, while her hands held his nape. Round two was genuine lovemaking between a mother and her son!</p>
 

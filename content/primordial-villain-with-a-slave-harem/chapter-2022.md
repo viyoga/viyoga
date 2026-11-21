@@ -101,7 +101,7 @@ chapter = 2022
 <p>"How far?" Serika asked.</p>
 <p>Blossom pointed uphill. "Just beyond those trees. Lots of greenskins too."</p>
 <p>Kitsara moved beside her and caught the wagging tail, keeping her hand screened behind her own white tails.</p>
-<p>"Good job as always~"</p>
+<p>"Good job as always"</p>
 <p>The dogkin glanced back at her, then faced the trail with renewed seriousness. Her tail continued trying to escape the foxkin’s hand.</p>
 <p>Black passed Della on the outside of the bend, his women spreading out behind him. She hurried after them with Brena and Tavi close at her heels.</p>
 <p>The first scream reached them before they cleared the trees.</p>

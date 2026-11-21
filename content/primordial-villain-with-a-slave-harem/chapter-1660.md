@@ -48,7 +48,7 @@ chapter = 1660
 <p>His right hand rose, and the air at the center of the chamber split along a vertical seam. [Warp Gate] bloomed wide, its edges churning with violet light that threw new shadows across the carnage of the room.</p>
 <p>The armored man stepped through without a word.</p>
 <p>Lucille moved quickly. She crossed the two steps to the brunette and wrapped both arms around her in a hug so sudden the other woman barely had time to catch it, and the embrace was warm and fierce and lasted exactly three seconds.</p>
-<p>"You're playing the love game brilliantly~" Lucille whispered against the brunette's ear, pure and conspiratorial. "If you had asked him for something crude like sex, it would have been unladylike. But just asking him to talk to you more? How romantic. How elegant."</p>
+<p>"You're playing the love game brilliantly" Lucille whispered against the brunette's ear, pure and conspiratorial. "If you had asked him for something crude like sex, it would have been unladylike. But just asking him to talk to you more? How romantic. How elegant."</p>
 <p>The brunette's face went scarlet.</p>
 <p>"You're completely wrong," she managed, her composure cracking for the first time all evening, the blush climbing to the roots of her ponytail. "I just... that's not... I should really get to work. And you should get going."</p>
 <p>Lucille giggled, released her, and turned toward the gate.</p>

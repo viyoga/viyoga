@@ -27,17 +27,17 @@ chapter = 62
 
 <p>....</p>
 
-<p>&quot;Oh my... good morning, my dear Wen~&quot; Arielle turned her head as she looked at the approaching Owen. She wasn’t even shy anymore, as she had already accepted a higher level of connection than just being family to her son... her dear Owen.</p>
+<p>&quot;Oh my... good morning, my dear Wen&quot; Arielle turned her head as she looked at the approaching Owen. She wasn’t even shy anymore, as she had already accepted a higher level of connection than just being family to her son... her dear Owen.</p>
 
-<p>&quot;Good morning to Mom... I hope you slept well after you made a mess~&quot; Owen hugged her fondling her ass, not caring that she was cooking.</p>
+<p>&quot;Good morning to Mom... I hope you slept well after you made a mess&quot; Owen hugged her fondling her ass, not caring that she was cooking.</p>
 
 <p>&quot;Ahnn... D-don’t... go too hard... I’m still sensitive...&quot; She covered her mouth, her stifled voice coming out.</p>
 
-<p>&quot;Heh, you are really something, Mom~&quot;</p>
+<p>&quot;Heh, you are really something, Mom&quot;</p>
 
 <p>&quot;N-no, I’m not.&quot;</p>
 
-<p>&quot;Then why are you saying such lewd stuff, Mom~?&quot;</p>
+<p>&quot;Then why are you saying such lewd stuff, Mom?&quot;</p>
 
 <p>&quot;My mouth slipped. Now, don’t tease me anymore... ahn.&quot;</p>
 
@@ -49,7 +49,7 @@ chapter = 62
 
 <p>&quot;Ahnn... don’t be a bad boy... ahnn.&quot;</p>
 
-<p>&quot;I’m not a bad boy, though. How about we do something today, Mom~?&quot; Owen whispered into her ear, sending a jolt through her entire body. Owen then gave her neck a passionate kiss.</p>
+<p>&quot;I’m not a bad boy, though. How about we do something today, Mom?&quot; Owen whispered into her ear, sending a jolt through her entire body. Owen then gave her neck a passionate kiss.</p>
 
 <p>&quot;N-no... I have to go outside for now...&quot; She was hesitant, but it was important because it was about the festival that would happen in two days.</p>
 
@@ -57,11 +57,11 @@ chapter = 62
 
 <p>&quot;....&quot;</p>
 
-<p>&quot;Then it’s a yes, right, my lovely Mom~?&quot;</p>
+<p>&quot;Then it’s a yes, right, my lovely Mom?&quot;</p>
 
 <p>&quot;Ahnn... It’s still early in the morning...&quot; she said, wanting to flee.</p>
 
-<p>&quot;Morning is best for doing the deed, and it’s best to become more productive, Mom~&quot;</p>
+<p>&quot;Morning is best for doing the deed, and it’s best to become more productive, Mom&quot;</p>
 
 <p>&quot;I-I still have work to do, silly...&quot;</p>
 
@@ -69,7 +69,7 @@ chapter = 62
 
 <p>She was greedy for her son’s attention... much more than just some blessings.</p>
 
-<p>&quot;Ohh... that’s too sad, Mom. How about you help me out before going out~?&quot; Owen left a deep red hickey on her neck... At least it wasn’t visible, as she could cover it with her hair.</p>
+<p>&quot;Ohh... that’s too sad, Mom. How about you help me out before going out?&quot; Owen left a deep red hickey on her neck... At least it wasn’t visible, as she could cover it with her hair.</p>
 
 <p>&quot;I-I really need to go now... my dear Wen...&quot; What could she do? All the women were already there, waiting for her with those hungry eyes.</p>
 
@@ -77,15 +77,15 @@ chapter = 62
 
 <p>She couldn’t lose the opportunity of getting the best holy water... especially when she had the upper hand.</p>
 
-<p>&quot;Just... five minutes, Mom. You can already feel that I’m so hard, Mom~&quot; Owen rubbed his divine rod against her ass.</p>
+<p>&quot;Just... five minutes, Mom. You can already feel that I’m so hard, Mom&quot; Owen rubbed his divine rod against her ass.</p>
 
 <p>&quot;I-I need... those holy waters...&quot; she said, shifting her ass cheeks to lock the rod rubbing between them...</p>
 
-<p>&quot;Still acting clueless, Mom? You know that I’m the one, right~?&quot; Owen was not dumb... He was still clueless about what kind of plans the grandma was plotting, but it was related to those pent-up MILFs. And what they wanted to do in the coming days was to solve their deep, hidden feelings which would happen during the festival or something...</p>
+<p>&quot;Still acting clueless, Mom? You know that I’m the one, right?&quot; Owen was not dumb... He was still clueless about what kind of plans the grandma was plotting, but it was related to those pent-up MILFs. And what they wanted to do in the coming days was to solve their deep, hidden feelings which would happen during the festival or something...</p>
 
 <p>&quot;B-but...&quot;</p>
 
-<p>&quot;No buts, Mom... just for a few minutes, okay~? And you have already lost to me two times in a row.&quot; Owen locked his arms around her, licking her neck. &quot;And don’t you think you need to play your part, Mom?&quot;</p>
+<p>&quot;No buts, Mom... just for a few minutes, okay? And you have already lost to me two times in a row.&quot; Owen locked his arms around her, licking her neck. &quot;And don’t you think you need to play your part, Mom?&quot;</p>
 
 <p>He delivered the finishing blow, and she finally crumbled...</p>
 
@@ -93,10 +93,10 @@ chapter = 62
 
 <p>Unfortunately, the grandma had already prepared something... So she was forced to stop for now.</p>
 
-<p>&quot;Of course, Mom... so how about you give me a blowjob? You know a blowjob is the best when it’s morning~&quot; Owen had already pulled down his underpants, vigorously rubbing against her behind even more fiercely.</p>
+<p>&quot;Of course, Mom... so how about you give me a blowjob? You know a blowjob is the best when it’s morning&quot; Owen had already pulled down his underpants, vigorously rubbing against her behind even more fiercely.</p>
 
 <p>&quot;I-I don’t know how to do it...&quot; She was ashamed to say it, but she had never given her husband a blowjob until today. That twig had never received one.</p>
 
-<p>&quot;Then... isn’t that the best thing? You will learn as you experience it, Mom~&quot; Owen nudged her body... as he wanted to make her kneel, just like what Morenne did back at the barn.</p>
+<p>&quot;Then... isn’t that the best thing? You will learn as you experience it, Mom&quot; Owen nudged her body... as he wanted to make her kneel, just like what Morenne did back at the barn.</p>
 
 <p>&quot;O-okay... but only for a few minutes.&quot; She turned her body and looked at the divine rod. Seeing it for the second time was really something.</p>

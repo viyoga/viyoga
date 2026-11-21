@@ -49,7 +49,7 @@ Lilith nodded. "She needs some combat training at times too."
 
 Lith nodded and didn't ask further. "I'll get going then. There's a lot of things left to do."
 
-Lilith smiled and waved. "Have fun~."
+Lilith smiled and waved. "Have fun."
 
 …..
 

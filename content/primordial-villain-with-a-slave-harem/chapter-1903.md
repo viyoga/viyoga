@@ -23,14 +23,14 @@ chapter = 1903
 <p>He was humming.</p>
 <p>"Monster!" dwarves screamed and wailed as he approached them at his own pace.</p>
 <p>The Villain’s family spread across the terrace behind him, each woman picking her hunting ground on sight.</p>
-<p>"Everyone!" Kitsara’s voice sang over the battlefield from a balcony rail, twin daggers already dark with poison. "This noble lady proposes a game! We’ll count our kills until the mountain runs out of idiots! Loser draws the winner’s bath for a week~!"</p>
+<p>"Everyone!" Kitsara’s voice sang over the battlefield from a balcony rail, twin daggers already dark with poison. "This noble lady proposes a game! We’ll count our kills until the mountain runs out of idiots! Loser draws the winner’s bath for a week!"</p>
 <p>"Deal!" answered the deadliest women alive, from every corner of the terrace at once.</p>
 <p>The household soldiers who heard the exchange needed a heartbeat to understand that these delicate-looking, tall women were dividing up their deaths like party favors.</p>
 <p>Serika helped them understand.</p>
 <p>She landed on the western shield-wall fist-first, and the wall stopped being one. Solar force erupted from the impact and folded the formation against the terrace wall in a single wave of heat. "[Solar Eruption]!" arrived a heartbeat late, announced mostly for fun.</p>
 <p>"Nine!" Kitsara sang from her rail, while a second Kitsara waved cheerfully from the opposite one. The crossbowmen caught between the two smiles swung their weapons from one to the other with shaking hands, unable to tell which of them was death.</p>
 <p>"Eight," Vex corrected from inside a crumbling crossbow line. Her pentagram eyes tracked a soldier crawling for the stairwell, and her hex closed around his heart like a fist. "The one by the brazier was mine. My hex reached his heart before your blade did."</p>
-<p>"Finders keepers~"</p>
+<p>"Finders keepers"</p>
 <p>"Split him," Aurora offered. She was walking the stair’s edge below, staff in hand and untouched, [Dreamveil] running like a second skin over the rebel wounded being dragged clear. Every bolt aimed at the wounded sparked off thin air and quit.</p>
 <p>"Split?!" both women scoffed together, equally offended.</p>
 <p>"Since when do you make the rules?!" Kitsara demanded.</p>
@@ -45,7 +45,7 @@ chapter = 1903
 <p>"Sweethearts," she offered them kindly, "drop the crossbows and kneel. You don’t have to die today. A wonderful tomorrow awaits you."</p>
 <p>The mom-voice rolled across a terrace of dwarves, warmer than any hearth, and it frightened the survivors worse than the lightning had. Veterans of the household companies knelt in the gore with shaking shoulders, and one of them wept outright.</p>
 <p>The crossbows hit the floor before she finished the sentence.</p>
-<p>"Wonderful~ Do surrenders score?"</p>
+<p>"Wonderful Do surrenders score?"</p>
 <p>"Yes," said Aurora.</p>
 <p>"Yay!" The terrible Bloodmonger beamed like a schoolgirl.</p>
 <p>"She’s smiling," a kneeling veteran whispered, unable to look away from her. "Stone save us, why is she smiling...?"</p>
@@ -59,9 +59,9 @@ chapter = 1903
 <p>He was pure terror itself.</p>
 <p>Pride filled the Solar Fist’s chest, fierce and simple, the teacher’s kind.</p>
 <p>"Hey, Lucille!" Serika put a straggler down with a lazy backhand and called across the wreckage. "Remember what I said on the roof? That my student got greedy?"</p>
-<p>"I remember the bottle in your hand~" Lucille called back, herding her kneeling prisoners into a neater row.</p>
+<p>"I remember the bottle in your hand" Lucille called back, herding her kneeling prisoners into a neater row.</p>
 <p>"I’m taking it back." Serika watched the far sally-doors sag into slag, grinning wide and bright. "Greedy doesn’t cover that anymore. I taught a martial artist. That over there is a walking natural calamity no soul on Iskaris can hope to contain any longer."</p>
-<p>"Mm." Ayame’s voice arrived from their man’s flank, deeply fond. "Our terrible calamity~"</p>
+<p>"Mm." Ayame’s voice arrived from their man’s flank, deeply fond. "Our terrible calamity"</p>
 <p>"Damn right!" Serika laughed and waded back in.</p>
 <p>...</p>
 <p>The processional stair ended at the lords’ tiers, and Quinlan Elysiar climbed its last stretch alone.</p>
@@ -94,7 +94,7 @@ chapter = 1903
 <p>Boots came up the last of the stair behind him. His girls had left the scorekeeping to itself the moment the arch brought their man to a halt.</p>
 <p>A wry glint appeared in his crimson eyes. "They thought I’m just a mage, huh?"</p>
 <p>"A one-trick pony!" Kitsara giggled.</p>
-<p>"Well, you’ve not given them much of a reason to doubt~" Lucille purred.</p>
+<p>"Well, you’ve not given them much of a reason to doubt" Lucille purred.</p>
 <p>"Ego checked. Quin must show off now." Serika grinned, already knowing her lover more than well enough to see where this was going.</p>
 <p>Quinlan flexed his fingers, and the Soul Reaper began brimming in his fist.</p>
 <p>"Time to show them the error of their ways."</p>

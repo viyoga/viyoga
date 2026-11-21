@@ -7,7 +7,7 @@ chapter = 327
 
 <p>Belron burned and froze at the same time. The opposite feeling merged to create an all-new sensation of pain. Light and Dark fought within the Fiend’s body, as though turning its insides into a stage for two Divine sisters to work out their issues.</p>
 <p>Belron felt like it was being ripped from the inside.</p>
-<p>It roused its Demonic energy to combat the effects but the spell still vibrated within it so the Demonic energy couldn’t grab a hold of it to purge it. Plus, the ~Warding~ spell was repelling the ’evil energy’ that was Demonic Energy.</p>
+<p>It roused its Demonic energy to combat the effects but the spell still vibrated within it so the Demonic energy couldn’t grab a hold of it to purge it. Plus, the Warding spell was repelling the ’evil energy’ that was Demonic Energy.</p>
 <p>Hell, the Divine energy within both the Dark and Light Elements was wreaking havoc on the Fiend’s insides.</p>
 <p>Belron re-cast the pentagram from earlier but what came from the reservoir was wispy at best.</p>
 <p>That was because there was a limit to Belron’s supply.</p>
@@ -17,7 +17,7 @@ chapter = 327
 <p>To get the best window, he needed to use his erratic concoction at the right time. Too early and they’d leave Belron with enough reserves to call on.</p>
 <p>But the reservoir wasn’t going to remain empty for long. This only gave them a chance to end this.</p>
 <p>Caius stomped his feet against the dark cloud beneath him.</p>
-<p>~Hellsong Dash~</p>
+<p>Hellsong Dash</p>
 <p>Fire blazed boosting his speed.</p>
 <p>Belron raised its head as it felt a rageful attack coming and just then, Caius swiped with his claws at the Fiend’s jaw, drawing its sizzling blood.</p>
 <p>It would have been a worse injury had Belron not floated backward.</p>
@@ -30,11 +30,11 @@ chapter = 327
 <p>Not anymore.</p>
 <p>The spear stabbed through the Fiend’s chest and searing Light burned it from within.</p>
 <p>This time, Aurelius didn’t pull out his Spear. He let it remain where it was and clamped his hands together as the Spear became the center of a spell formation.</p>
-<p>~Exorcism~</p>
+<p>Exorcism</p>
 <p>Yet another spell Aurelius had tried many times already while he and Belron fought. This time though, the result was different.</p>
 <p>"Aether, Goddess of Divine Light, Matron of Everlasting Splendor..."</p>
 <p>Aurelius launched into what sounded like a prayer but was chanted like a spell. And a spell circle appeared on Belron’s chest.</p>
-<p>It connected with the ~Warding~ spell still inside it and together, they began to break the Fiend apart on a fundamental level.</p>
+<p>It connected with the Warding spell still inside it and together, they began to break the Fiend apart on a fundamental level.</p>
 <p>"N- No—!" Belron yelled and it looked like it struggled. But then its swirling black eyes got darker. More purposeful. More insistent.</p>
 <p>"NO! I REFUSE THIS!!!" It said like it had a choice.</p>
 <p>Caius stepped closer to the Fiend with another cloud of darkness at his feet, keeping him in the air after he left the other one behind him while charging over here earlier.</p>
@@ -56,7 +56,7 @@ chapter = 327
 <p>Soon, the canister was filled. Caius pulled the syringe out of the Demon and sent the device into his storage ring while he and the others just watched Belron let out hoarse sounds and reach out like it was trying to make one last attack.</p>
 <p>It was too late though.</p>
 <p>And a few minutes later, the final black piece of its tailcoat evaporated and the Fiend was gone.</p>
-<p>~Exorcism~ got rid of it entirely. Casting its essence into an abyss. Never to return.</p>
+<p>Exorcism got rid of it entirely. Casting its essence into an abyss. Never to return.</p>
 <p>Caius and Delia returned to the ground then. Aurelius joined them a second later. The Divine Spear he had summoned hit the ground but didn’t clatter. It just vanished into nothing.</p>
 <p>The halo on Aurelius’s head faded as well and he raised his hand to stare at it as it shook. His skin turned pale immediately as every injury he had sustained and how much he had pushed himself battling Belron caught up with him.</p>
 <p>He coughed a few times, spat blood on the ground, and fell to his knees.</p>

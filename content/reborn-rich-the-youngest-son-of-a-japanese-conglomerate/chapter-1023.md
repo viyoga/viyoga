@@ -74,12 +74,12 @@ chapter = 1023
 <p>At Sawayanagi Azuma's Words, I grabbed the fixed Table, then embraced Lianna Holden, who was physically the weakest.</p>
 <p>Kwaaaang!</p>
 <p>And with a tremendous roar, the ship began to shake.</p>
-<p>Requested by Chomisaemeonji-nim: Pilates Liz, Nun Liz~!</p>
-<p>Nun~!</p>
-<p>Requested by chea yun-nim: Shy Ha Ju-yoon~!</p>
-<p>Requested by Titan-nim: Slender Eve~!</p>
-<p>Requested by Gojoy-nim: Chapter 26 Shinoe Misano's first meeting, and Mimata Chieri's first meeting~!</p>
+<p>Requested by Chomisaemeonji-nim: Pilates Liz, Nun Liz!</p>
+<p>Nun!</p>
+<p>Requested by chea yun-nim: Shy Ha Ju-yoon!</p>
+<p>Requested by Titan-nim: Slender Eve!</p>
+<p>Requested by Gojoy-nim: Chapter 26 Shinoe Misano's first meeting, and Mimata Chieri's first meeting!</p>
 <p>Shinoe Misano</p>
-<p>Chieri~!</p>
+<p>Chieri!</p>
 <p>Requested by JungChucky-nim: Teacher Gajeong's Thunderclap Flash</p>
 <p>Since Thunderclap Flash was not learned, I added a little Lightning to the sword drawing technique haha.</p>

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 807: I’m Coming~!!! [18+]"
+title = "Chapter 807: I’m Coming!!! [18+]"
 weight = 807
 [extra]
 chapter = 807
@@ -9,17 +9,17 @@ chapter = 807
 
 <p>That kind of bliss, few men could truly provide. The tenderness after the act was almost a mythically rare luxury.</p>
 
-<p>&quot;Godfather, you’re going too deep~...&quot;</p>
+<p>&quot;Godfather, you’re going too deep...&quot;</p>
 
 <p>&quot;Sweetie, I’ll go lighter then.&quot;</p>
 
-<p>&quot;In a bit, go deeper, right now this feels so good~...&quot;</p>
+<p>&quot;In a bit, go deeper, right now this feels so good...&quot;</p>
 
-<p>&quot;Alright, baby. You tell your man whatever feels best, okay~...&quot;</p>
+<p>&quot;Alright, baby. You tell your man whatever feels best, okay...&quot;</p>
 
-<p>&quot;You’re Mommy’s husband, and my godfather~...&quot;</p>
+<p>&quot;You’re Mommy’s husband, and my godfather...&quot;</p>
 
-<p>&quot;Later, I’m going to play with your mommy too~!&quot;</p>
+<p>&quot;Later, I’m going to play with your mommy too!&quot;</p>
 
 <p>Her daughter’s slender, pink little legs wrapped around the man’s waist, so tender and intimate.</p>
 
@@ -45,7 +45,7 @@ chapter = 807
 
 <p>At least it was him... better than some greasy-haired kid or a fat, disgusting middle-aged man.</p>
 
-<p>&quot;Ahhh~...&quot;</p>
+<p>&quot;Ahhh...&quot;</p>
 
 <p>Her daughter’s moan snapped Blanche back to reality.</p>
 
@@ -85,7 +85,7 @@ chapter = 807
 
 <p>But Luis grabbed her hand and said lecherously, &quot;Sister Lei, don’t be shy, you’re so hot you couldn’t even keep your clothes on!!!&quot;</p>
 
-<p>&quot;You’re beautiful~!!&quot;</p>
+<p>&quot;You’re beautiful!!&quot;</p>
 
 <p>With that, he pulled her into a deep kiss, holding her tight. His hands slid down to grab her plump ass, kneading it, savoring the water-balloon softness so different from her daughter’s.</p>
 
@@ -115,7 +115,7 @@ chapter = 807
 
 <p>Blanche thought in a daze... How many times had she done this? Why did it seem so familiar?</p>
 
-<p>&quot;Such a good girl, Avery. Your godfather will keep loving you in a moment~!!!&quot;</p>
+<p>&quot;Such a good girl, Avery. Your godfather will keep loving you in a moment!!!&quot;</p>
 
 <p>The mother and daughter’s alluring bodies each had their own charm, one was tender and plump with youthful innocence, the other mature and voluptuous with irresistible sex appeal. Having them both beneath him was pure ecstasy.</p>
 
@@ -127,7 +127,7 @@ chapter = 807
 
 <p>Since it was their first time sharing a bed together, Luis didn’t push too hard. The fact that they’d both silently accepted this was already a perfect start.</p>
 
-<p>&quot;So tight, Sister Lei! Why are you squeezing me so hard~!!&quot;</p>
+<p>&quot;So tight, Sister Lei! Why are you squeezing me so hard!!&quot;</p>
 
 <p>Luis grasped one of Blanche’s breasts and began thrusting, his thick cock sliding rapidly in and out of her juicy, pink pussy.</p>
 
@@ -155,7 +155,7 @@ chapter = 807
 
 <p>Watching the two beauties lying side by side, their bodies so close and inviting, Luis’s eyes were bloodshot with excitement.</p>
 
-<p>&quot;I’m coming~!!!&quot;</p>
+<p>&quot;I’m coming!!!&quot;</p>
 
 <p>With a hoarse roar like a wild beast, he thrust deep a few more times, his cockhead slamming against Blanche’s spasming womb. Even biting the pillow couldn’t stifle her moan.</p>
 

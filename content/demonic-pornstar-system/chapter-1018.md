@@ -51,7 +51,7 @@ chapter = 1018
 <p>The boss was still collapsing when Kaiden wrenched his blade free and shattered the crystal behind it.</p>
 <p>On the way back, Aria helped Alexandra pick root fibers out of the frills on her sleeve.</p>
 <p>"How did it even get in there?" Alexandra wondered.</p>
-<p>"It wanted to leave with you, Lexi~"</p>
+<p>"It wanted to leave with you, Lexi"</p>
 <p>"Well, it can’t."</p>
 <p>They came back through the gate as the violet roots hanging over the loading yards dried and broke apart. A relief worker stood beside a supply truck with a stack of stretchers in his arms, staring at the dungeon’s empty doorway.</p>
 <p>He still had most of the truck to unload.</p>

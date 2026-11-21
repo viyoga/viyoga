@@ -11,7 +11,7 @@ Ralph tried to run away when he heard her shout like that but it was all in vain
 
 Avelyn caught Ralph and hugged him from behind. She touched her face with his and swayed side to side.
 
-“Ralph chan~ Mama missed you~” Avelyn said happily.
+“Ralph chan Mama missed you” Avelyn said happily.
 
 Ralph’s face was slightly red as he was caught in her embrace. He tried to hide his embarrassed feeling and said,
 

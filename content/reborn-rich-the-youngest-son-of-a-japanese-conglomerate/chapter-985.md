@@ -61,8 +61,8 @@ chapter = 985
 <p>"The official inauguration ceremony will be tomorrow, but for now, call the Talents we've already identified to the CEO's Office."</p>
 <p>Still, since I came to Taira Food distribution today, I should do a few things before leaving. The very first thing was to check the Talents investigated by Jo Seodang. Since the Talent Report recommended by Jo Seodang was uploaded to my work email, I showed that Report to the two and told them to bring the Talents. No matter how good the Report was, I had to see their Faces directly. I couldn't appoint them to important positions without even seeing them.</p>
 <p>Surprised Taira Kisa and Taira Camilla, requested by Gojoy-nim.</p>
-<p>Kisa~!</p>
-<p>I worked on a white background because I made the background, so they're sitting at a desk, not a Chair~!</p>
+<p>Kisa!</p>
+<p>I worked on a white background because I made the background, so they're sitting at a desk, not a Chair!</p>
 <p>Linxiang bikini 1, just 2, phone camera, requested by TheDreaming-nim.</p>
 <p>1.</p>
 <p>2.</p>

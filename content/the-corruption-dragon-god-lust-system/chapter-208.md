@@ -101,7 +101,7 @@ chapter = 208
 
 <p>Qingyi gave a teasing little smile as he pulled Rongyan into his embrace, pressing his lips against hers and grabbing her plump ass, squeezing hard.</p>
 
-<p>“Nghnn~~ if you touched any other woman of my level, she’d castrate you, you know?” Rongyan gritted her teeth, unable to suppress her moans.</p>
+<p>“Nghnn if you touched any other woman of my level, she’d castrate you, you know?” Rongyan gritted her teeth, unable to suppress her moans.</p>
 
 <p>“Well… thank god you’re not any other woman of your level, hahaha,” Qingyi laughed before wiping the smile off his face and assuming a serious expression.</p>
 

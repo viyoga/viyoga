@@ -31,7 +31,7 @@ chapter = 1424
 <p>Quinlan felt several pairs of eyes snap toward him at once.</p>
 <p>Nyxara drifted closer. She drew in a long breath through her nose, slow and deep, as if tasting the air itself. Her pupils widened. Her shoulders shuddered once, sharp and uncontrolled.</p>
 <p>"So… rich," she murmured. "So delish❤️❤️❤️"</p>
-<p>Her hands flew to her cheeks, and a wild look took hold of her face. "I must taste you~"</p>
+<p>Her hands flew to her cheeks, and a wild look took hold of her face. "I must taste you"</p>
 <p>Her thick, juicy thighs pressed together, rubbing against one another as something shiny and slimy materialized right between her legs. The heart-tipped tail behind her traced loose, restless loops, brushing along her legs as it coiled and uncoiled, moving dangerously close to the slit between her legs.</p>
 <p>Miri moved first.</p>
 <p>She stepped in front of Quinlan, spear raised, stance set. Lumi followed a heartbeat later.</p>

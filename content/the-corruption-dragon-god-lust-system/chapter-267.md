@@ -17,7 +17,7 @@ chapter = 267
 
 <p>“When will the landing begin?” Qingyi asked, hugging Biyue from behind, his groin pressing against her plump, juicy ass while his hands went up to her bountiful breasts, squeezing them tightly.</p>
 
-<p>“Nghnn~~ right now… the flying ships have to get back to the family as soon as possible…” Biyue gasped, melting into Qingyi’s embrace, her beautiful green eyes focused on the forest ahead, bathed in soft false moonlight.</p>
+<p>“Nghnn right now… the flying ships have to get back to the family as soon as possible…” Biyue gasped, melting into Qingyi’s embrace, her beautiful green eyes focused on the forest ahead, bathed in soft false moonlight.</p>
 
 <p>After a moment of silence, she spoke: “My older brother used to bring me here when I was a child. It was dangerous, but he always managed to convince his father.”</p>
 

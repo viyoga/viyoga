@@ -12,7 +12,7 @@ chapter = 861
 <p>With no leader to steer the pious bunch, the church should have been in chaos.</p>
 <p>Yet from his vantage point, Sol could see that the building was anything but empty. Light spilled from the windows, and he could hear voices. Many voices. Far more than what should be present at this hour.</p>
 <p>What is going on? He was briefly tempted to simply sweep through everything with his dimension. But he held back. Someone was coming to clue him in, and he did not wish to dampen the fun she was trying to have.</p>
-<p>“Fufufu~ I wondered when you would notice.”</p>
+<p>“Fufufu I wondered when you would notice.”</p>
 <p>Sol turned to find Nent floating beside him, her crimson hair flowing in the night breeze. The voluptuous woman wore a simple but elegant dress that did little to hide her generous curves. Her chocolate brown skin seemed to glow under the moonlight, and her eyes sparkled with amusement and the heat of her undying flames.</p>
 <p>“Nent.” Sol greeted her with a small smile, hugging her tightly as she came close, smothering her to his side. “What brings you here?”</p>
 <p>“The same that brings you here, I imagine.” She gestured toward the church below with a smile that was equal parts proud and mischievous. “Though I suspect you haven’t seen the full extent of what’s happening yet.”</p>

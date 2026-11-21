@@ -67,7 +67,7 @@ chapter = 795
 <p>Then her eye caught a strange curiosity in the feed.</p>
 <p>"Oh? And would you look at that..."</p>
 <p>Her voice took on a chirp that did not belong on this plain.</p>
-<p>"Kaiden and the rest of the gang just got even more powerful. Just randomly~"</p>
+<p>"Kaiden and the rest of the gang just got even more powerful. Just randomly"</p>
 <p>The Chairman’s eye did move this time, one slow lateral track to her, and the look he gave her was one he had handed hundreds of subordinates over the years for taking liberties with the register he expected on duty.</p>
 <p>"Stop messing around. We are not in a casual setting."</p>
 <p>Grace turned her face toward him with the deadest possible neutrality.</p>

@@ -59,7 +59,7 @@ Lucifer continued, "Lilith aside, me, Mayzin, and Agalea have many things on our
 
 Lucifer smiled like a villain and pulled Lith in her embrace, then snapped her finger.
 
-BA-DUM~!
+BA-DUM!
 
 Lith's entire being felt a great chill as a humongous aura descended down in the atmosphere.
 
@@ -95,7 +95,7 @@ The sky then suddenly turned dark and it seemed as if a storm was approaching.
 
 "Yo, what's up with the weather today? I wonder what—"
 
-BA-DUM~!
+BA-DUM!
 
 A humongous pressure descended down on all beings and froze everyone's heart for a split second.
 

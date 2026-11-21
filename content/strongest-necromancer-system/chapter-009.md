@@ -11,11 +11,11 @@ chapter = 9
 <p>There was a connection he could feel with the wolf, almost like he could read its thoughts and emotions through a mind link. Jason put his hand out for the wolf to shake it and it raised its paw and put it in his hand! The paw felt real and tangible, like the wolf was still alive, but its body warmth had gone and now it was cold to the touch!</p>
 <p>It was strange seeing a two-meter-tall wolf acting so subservient, but Jason couldn't help the small grin that appeared on his face when he saw the wolf's tail wagging excitedly!</p>
 <p>"Good boy."</p>
-<p>"Yip! Yip! Howl~!!"</p>
+<p>"Yip! Yip! Howl!!"</p>
 <p>The wolf suddenly howled loudly and Jason quickly put his hand on it's mouth and mentally told it to shut up! Did it want to tell all the other wolves where they were!?</p>
 <p>The wolf immediately deflated submissively as its ears dropped flat and Jason listened for any sign of movement around him.</p>
-<p>Crack~</p>
-<p>Crack~</p>
+<p>Crack</p>
+<p>Crack</p>
 <p>The sound of branches cracking underfoot reached Jason and he immediately knew that the other wolves had heard the howl.</p>
 <p>——</p>
 <p>New Mission: Defeat the Three [Moonlight Wolves]</p>

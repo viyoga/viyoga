@@ -13,11 +13,11 @@ chapter = 784
 
 <p>With a hoarse, guttural groan, his cockhead swelled, his urethral opening pulsed, and hot semen burst deep into his wife’s asshole.</p>
 
-<p>&quot;Ahhh~&quot;</p>
+<p>&quot;Ahhh&quot;</p>
 
 <p>Lily cried out from the heat, the creampie in her asshole being the most perfect outcome for her.</p>
 
-<p>&quot;Having you both is just wonderful~!!&quot;</p>
+<p>&quot;Having you both is just wonderful!!&quot;</p>
 
 <p>After perfect sex, the three exhausted lovers held each other, panting. Chloe, stimulated by the whole experience, had also reached her third orgasm from oral stimulation.</p>
 
@@ -51,7 +51,7 @@ chapter = 784
 
 <p>Though he still deeply loved his wife, the change in appearance brought a completely different kind of allure.</p>
 
-<p>&quot;Hubby, you should rest more. I’m worried you’ll tire yourself out~&quot;</p>
+<p>&quot;Hubby, you should rest more. I’m worried you’ll tire yourself out&quot;</p>
 
 <p>His wife Lily said softly.</p>
 

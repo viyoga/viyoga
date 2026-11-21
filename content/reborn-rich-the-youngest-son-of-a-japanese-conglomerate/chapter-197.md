@@ -60,7 +60,7 @@ chapter = 197
 <p>"Yes, I made a reservation at Akita Airport in the morning, so I'm going to sleep here tonight and go tomorrow."</p>
 <p>"Then Sawayanagi-yang and Ryuta-gun can rest here, and Mimata-yang and I will go to the company."</p>
 <p>Leaving only Sawayanagi Azuma-ssi and me, Mimata Chieri-ssi and Nagumo Sian-ssi went straight to Tairaga Foods headquarters. I changed into comfortable clothes in my room and was lying down looking at my smartphone when the door to my room opened and Sawayanagi Azuma-ssi, who was also wearing light clothes, came in.</p>
-<p>"Hehe, Investor-niim~!"</p>
+<p>"Hehe, Investor-niim!"</p>
 <p>Sawayanagi Azuma-ssi came in smiling cutely and hugged me. I smiled slightly and stroked Sawayanagi Azuma-ssi's hair.</p>
 <p>"Were you waiting for us to be alone?"</p>
 <p>"Yes, hehe♥"</p>

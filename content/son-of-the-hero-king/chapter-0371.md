@@ -11,7 +11,7 @@ chapter = 371
 <p>What he saw though, made all thoughts of sleeping vanish from his mind.</p>
 <p>“Skuld?”</p>
 <p>Standing in front of his house was the giddy pink-skinned Titaness. The way her eyes lit up as she watched him always showed how deeply she was in love with him.</p>
-<p>“Darling~!”</p>
+<p>“Darling!”</p>
 <p>Screaming in her usual bubbly voice, she ran up to him before jumping in his arms.</p>
 <p>“How was your day?”</p>
 <p>Sol gently asked as he opened his arms wide to catch her in a gentle hug. He had noticed that she had not mingled too much with the others, but still, participating in a few contests and having fun with Tiamat should have been interesting and fun for her, nonetheless.</p>
@@ -23,7 +23,7 @@ chapter = 371
 <p>“Bedroom?”</p>
 <p>Sol was puzzled as he fought his instinct to check out what she was talking about. It seemed like she had prepared quite the surprise for him and he did not wish to ruin it by getting a peak before the eventual reveal.</p>
 <p>Still, with the mention of bedroom being paired with Skuld, he didn’t need to be a seer to know that she was reserving a kinky surprise for him.</p>
-<p>“Hee~ hee~ hee~ I just know that you’ll love it!”</p>
+<p>“Hee hee hee I just know that you’ll love it!”</p>
 <p>He was truly intrigued now, wondering just what kind of play she had prepared for him this time.</p>
 <p>Perhaps some sort of cosplay? Or anything of the sort.</p>
 <p>At least this was what he thought until he entered the room and was left completely speechless by the vision registering in his senses.</p>

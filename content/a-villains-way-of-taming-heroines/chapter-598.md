@@ -16,7 +16,7 @@ chapter = 598
 <p>This news rapidly swept across the Western lands, even reaching the fiercest battlefields where Firmament and Bloodust clashed.</p>
 <p>Everyone was eagerly anticipating what kind of raging inferno this legendary adventurer would ignite in the already chaotic West.</p>
 <p>At this moment, however, the much-anticipated Mr. Legend was... uh, playing with a cat.</p>
-<p>"Meow~"</p>
+<p>"Meow"</p>
 <p>A patchy, rough-furred cat with a few scars lay on the ground, stretching its body like a noodle.</p>
 <p>The great legendary Faust squatted in front of the cat, dangling a specially made cat treat. The cat's head swayed left and right as it followed the treat.</p>
 <p>Initially cautious, it gradually relaxed, tentatively reaching out a paw to bat at the dangling treat. Its pink nose twitched incessantly, and finally, unable to resist the aroma at the tip of its nose, it pressed its forepaws to the ground and leaped, latching onto the treat with its entire body.</p>

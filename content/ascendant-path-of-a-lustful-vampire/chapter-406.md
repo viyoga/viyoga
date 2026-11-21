@@ -15,7 +15,7 @@ chapter = 406
 <p>The two massive spell circles Caius had conjured were unnamed Spells. He made them as large as he could to increase their potency and yet, even now, large as they were, If they could still be shrugged off by even a fourth Circle Mage/Mage-Knight. However, when combined...</p>
 <p>*CRACKLE!*</p>
 <p>... They created a spell circle that spread all over the entirety of the concrete stage, boasting strength somewhat past the Fourth Circle. And while the spells that made this massive combination were unnamed, Caius named their combined effect;</p>
-<p>~Discordant Rain~</p>
+<p>Discordant Rain</p>
 <p>From the casting of the two unnamed spells to their combination, hardly five seconds had passed. And while the spell primed to unleash its effects, Caius cast another set of the same two unnamed spells, combining them to create a second humongous spell circle.</p>
 <p>And then the first unleashed its attacks in the form of lightning streaks backed by the *whooshing* sounds of wind. Before the barrage of the first spell circle had even hit the ground, the second unleashed its own as well.</p>
 <p>Alexia had her head raised. At such a higher circle, despite how quick Caius’s actions were, she was able to follow them with ease. If she put more effort into it, he might have even been moving in slow motion as far as she was concerned.</p>

@@ -99,7 +99,7 @@ chapter = 391
 
 <p>The Queen continued smoothly, her voice seductive and sultry, “You must visit us late at night… and treat us just the way you do.”</p>
 
-<p>Emma giggled, her eyes glowing with heat, “I’ll keep the bed warm, master~”</p>
+<p>Emma giggled, her eyes glowing with heat, “I’ll keep the bed warm, master”</p>
 
 <p>Julian’s smirk widened. “That’s a promise.”</p>
 

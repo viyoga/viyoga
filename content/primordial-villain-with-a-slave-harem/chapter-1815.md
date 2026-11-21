@@ -13,7 +13,7 @@ chapter = 1815
 <p>"You wanted to leave. As a devout follower of the Goddess, would I dare-"</p>
 <p>"Don’t you dare make such terribly ill-mannered jokes, Villain!"</p>
 <p>Elisabeth scoffed and began moving toward the swirling doorway, accompanied by a lot of huffs and puffs.</p>
-<p>"Can I visit you sometime, Eli~?" Seraphiel waved from her seat.</p>
+<p>"Can I visit you sometime, Eli?" Seraphiel waved from her seat.</p>
 <p>"Do not call me that." A pause, one step from the seam. "...I will consider it."</p>
 <p>The gate winked shut on her exit, and the terrace felt briefly, strangely larger.</p>
 <p>Quinlan leaned back and took stock of his morning. Ayame and Black Fang were nowhere to be found, which likely meant one sister had dragged the other somewhere private again, reluctance and all. He smiled into his tea and left that door firmly alone. Some things went better without him.</p>
@@ -68,7 +68,7 @@ chapter = 1815
 <p>The Queen of Vraven said nothing further. Loudly. Then she walked through the reopened gate with her chin at an angle that dared anyone present to comment, and the villain’s garden was two Ravenshades lighter.</p>
 <p>"She’s warming up to you," Seraphiel decided.</p>
 <p>"Mm," Quinlan agreed. "Practically family."</p>
-<p>Lucille’s voice arrived on the family channel. "&gt; &lt;Baby~&gt; Lucille’s voice arrived on the family channel. &lt;We’re ready whenever you are. No rush. Whenever’s convenient. It’s really not a big deal.&gt;</p>
+<p>Lucille’s voice arrived on the family channel. "&gt; &lt;Baby&gt; Lucille’s voice arrived on the family channel. &lt;We’re ready whenever you are. No rush. Whenever’s convenient. It’s really not a big deal.&gt;</p>
 <p>Quinlan’s grin spread as he flicked the next gate open toward the inn. It was, by his count, the least convincing sentence his Bloodmonger had produced in her entire life.</p>
 <p>She couldn’t wait a single extra second, despite whatever nonsense her delicate lips spouted.</p>
 <p>Lucille’s request had gone out on the harem chat, also known as [Master’s Link], not too long ago, and the channel had rendered its verdict instantly.</p>

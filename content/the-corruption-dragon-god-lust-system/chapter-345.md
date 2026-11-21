@@ -103,7 +103,7 @@ chapter = 345
 
 <p>Ruxue immediately took his cock for herself, her plump lips closing around the reddish tip, slowly swallowing it, a soft bulge appearing in her neck as the long, thick rod of flesh slid down her throat.</p>
 
-<p>“Ghulp- ahn~~” She choked before pulling back, jerking Qingyi off eagerly, pressing his cock against her huge tits.</p>
+<p>“Ghulp- ahn” She choked before pulling back, jerking Qingyi off eagerly, pressing his cock against her huge tits.</p>
 
 <p>“What about that cat girl, aren’t you going to call her too?” Ruxue asked, planting a kiss on Qingyi’s cock before kneeling over it.</p>
 
@@ -113,7 +113,7 @@ chapter = 345
 
 <p>Qingyi laughed.</p>
 
-<p>“Nghnn~~ good…” Ruxue moaned, letting her hips drop, her ass hitting his thighs with a loud, wet slap, his cock reaching the depths of her fat, tight pussy, hitting the walls of her womb.</p>
+<p>“Nghnn good…” Ruxue moaned, letting her hips drop, her ass hitting his thighs with a loud, wet slap, his cock reaching the depths of her fat, tight pussy, hitting the walls of her womb.</p>
 
 <p>With a smile, Qingyi just went back to focusing on Elize and Isabel while Ruxue rode him, taking short moments to take care of his other wives, filling them with fat, hot spurts of cum.</p>
 

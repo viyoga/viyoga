@@ -5,7 +5,7 @@ weight = 119
 chapter = 119
 +++
 
-<p>"This will be our little secret~"</p>
+<p>"This will be our little secret"</p>
 <p>She pressed a finger gently against her lips, her eyes never leaving his.</p>
 <p>Dante felt his heart get hit by something he wasn’t prepared for. ’This is unfair. You can’t just do that to a man and expect him to keep acting....’</p>
 <p>Natasha felt his reaction through the shaft in her hand. A thick, violent throb that pulsed against her fingers so hard it made her grip tighten on instinct. Her cheeks reddened. ’Did it get even harder? Is it because I stopped stroking?’</p>
@@ -71,7 +71,7 @@ chapter = 119
 <p>’No bra in the world was built to hold these monsters.’ Dante cupped the bare flesh and squeezed. Heavy, warm, and so soft his fingers sank in and disappeared no matter how hard he gripped.</p>
 <p>Natasha’s strokes were getting sloppier by the second. Her breathing was ragged and her thighs kept squeezing together.</p>
 <p>Then without warning, Dante pinched her stiff nipple between his thumb and finger and pulled.</p>
-<p>"Hyaa~! Mhh—!" The sound that came out of her mouth was so loud even she didn’t recognize her own voice. Her back arched hard, her hand clamped down on his cock, and her eyes started fluttering as her mind went blank.</p>
+<p>"Hyaa! Mhh—!" The sound that came out of her mouth was so loud even she didn’t recognize her own voice. Her back arched hard, her hand clamped down on his cock, and her eyes started fluttering as her mind went blank.</p>
 <p>If there was a climax reach bar above her, it would look like this.</p>
 <p>[▰▰▰▰▰▰▰▰▰▱ 90%]</p>
 <p>Share to your friends</p>

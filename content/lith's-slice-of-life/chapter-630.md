@@ -7,7 +7,7 @@ chapter = 630
 
 Pah! Pah! Pah!
 
-"Ahh~ Ahh~ Ahh~"
+"Ahh Ahh Ahh"
 
 With each thrust, Lith made Lucifer let out a moan as he hit her deepest spots.
 
@@ -51,7 +51,7 @@ Lucifer breathed heavily as he took his hand away. She loosened her hold on his 
 
 After a few minutes, Lith did a final deep thrust and with a grunt, filled Lucifer's insides to the brim.
 
-"Mhmm~" Lucifer moaned again as she had someone cum inside her for the first time.
+"Mhmm" Lucifer moaned again as she had someone cum inside her for the first time.
 
 It felt warm and made Lucifer happy. It was an indescribable experience and without saying a word, she closed her eyes to enjoy it further.
 

@@ -27,7 +27,7 @@ chapter = 304
 <p>,Huh?"</p>
 <p>Of course, if someone had such big and pretty breasts, any man would want to touch them, but no one would say it out loud. However, Sawayanagi Seari seemed to know everything from my gaze, and with a benevolent smile, she led my hand and placed it on her breast.</p>
 <p>It was soft. Just placing my hand on her breast, my fingers sank deep into the soft flesh and disappeared. It was an exquisitely golden ratio, God-tier breast that was soft yet maintained its shape without spreading.</p>
-<p>,Ah-ha♥ It tickles, Ryuta-niim~!"</p>
+<p>,Ah-ha♥ It tickles, Ryuta-niim!"</p>
 <p>Sawayanagi Seari giggled and felt me fondling her breasts. It was a pure sight, innocently enjoying the pleasant new sensation.</p>
 <p>Sawayanagi Seari laughed, saying it tickled, but gradually her breath grew hotter and she began to squirm.</p>
 <p>,Heeung, me too...."</p>
@@ -76,7 +76,7 @@ chapter = 304
 <p>As I persistently licked her pussy, Sawayanagi Seari lifted her waist into the air and sprayed water. If she's reacting this much, she must have reached her climax. At this point, her pussy seemed loose enough.</p>
 <p>I pulled out the cock that Sawayanagi Seari was holding. Then I turned my body and matched my cock with her pussy.</p>
 <p>,I'm going to put it in."</p>
-<p>,Yeeehee.... Put Ryuta-nim's thing in~♥"</p>
+<p>,Yeeehee.... Put Ryuta-nim's thing in♥"</p>
 <p>Puwook!</p>
 <p>I tore her hymen as it was and instantly put my cock into her pussy. Sawayanagi Seari's eyes rolled upwards and she climaxed once more the moment I put my cock inside, as if the pleasure was greater than the pain.</p>
 <p>Sawayanagi Seari's pussy felt incredibly tight, just like when I first saw it. Like it was tightly gripping with her hand? Still, there was a lot of fluid, so it didn't feel uncomfortable, but rather a very pleasant pussy.</p>

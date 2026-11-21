@@ -71,5 +71,5 @@ chapter = 536
 <p>The woman hesitated at first, but be it because of the gentle smile on his face, his appearance or simply because she was extroverted by nature, she did not hesitate to speak.</p>
 <p>Sol listened attentively, always making sure to keep a smile, always talking to her softly, and making sure she knew he was listening, giving her a look here and here while sometimes asking some insightful questions.</p>
 <p>It didn’t take long for three, then five, and more than ten witches to surround him and while they were the ones talking, there was no doubt that it was Sol who was at the center of everything.</p>
-<p>‘Sigh~I must have been a Gigolo in another life.’</p>
+<p>‘SighI must have been a Gigolo in another life.’</p>
 <p>Sol laughed inwardly while still listening.</p>

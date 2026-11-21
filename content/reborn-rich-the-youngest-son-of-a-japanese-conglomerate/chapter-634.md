@@ -10,7 +10,7 @@ chapter = 634
 <p>But....</p>
 <p>No matter how rich the house, they don't have hot springs. Just as I was about to give up looking for accommodation and head towards the city, I saw a sign for an onsen ryokan (hot spring inn).</p>
 <p>I called on the way, and thankfully, same-day reservations were possible, and there were rooms available. I thought there might not be any rooms since it's Saturday today. Of course, there were no standard rooms, only luxury rooms with private open-air baths, but that wasn't a problem. It's even better.</p>
-<p>,Wow...! It reminds me of the old days~ The entrance is similar to our inn."</p>
+<p>,Wow...! It reminds me of the old days The entrance is similar to our inn."</p>
 <p>Urabe Konoka, who was the daughter of a hot spring inn like this one, sparkled as she looked at the inn. Seeing the inn seems to bring back memories. I parked the car in the parking lot, and an employee came out to greet us.</p>
 <p>,Are you Yamashiro-nim who just made the reservation?"</p>
 <p>,Yes."</p>
@@ -68,7 +68,7 @@ chapter = 634
 <p>,So, what do you want to do?"</p>
 <p>When I teasingly asked and gently shook my waist, Urabe Konoka arched her back like a bow with a Haeut. Because of the movements so far, the towel wrapped around Urabe Konoka's body came off, revealing Urabe Konoka's naked body.</p>
 <p>Her skin, dyed peach-colored with the warmth and excitement of the hot spring, her breasts that were neither too big nor too small, and her feminine body lines were quite beautiful.</p>
-<p>,P-Please put what's under my pussy... Heut! In me~♥"</p>
+<p>,P-Please put what's under my pussy... Heut! In me♥"</p>
 <p>,This?"</p>
 <p>I wondered if she didn't have the courage to say "dick" even though she said "pussy," so when I pretended not to understand by saying "this?", Urabe Konoka didn't answer my question and directly untied my towel with her own hands.</p>
 <p>The dick, whose seal called the towel was released, bounced up and hit Urabe Konoka's pussy with a chaek! Urabe Konoka was startled and reached orgasm once again, but she looked at me with an expression that she was missing something and moved her waist to put my glans on her vulva.</p>

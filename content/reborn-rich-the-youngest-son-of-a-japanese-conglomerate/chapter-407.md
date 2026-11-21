@@ -7,16 +7,16 @@ chapter = 407
 
 <p>On my way home from work, I contacted Eve in advance via the Dark Trade app to let her know I was coming. She'd welcome me even if I visited without notice, but it's polite to send a message before visiting.</p>
 <p>Ryuta: Eve, about going to hang out like we talked about, is it okay if I come over today?</p>
-<p>EVE: Yesss~! Ryuta-nim, you hadn't contacted me, so I thought you weren't coming this week like you promised!!</p>
+<p>EVE: Yesss! Ryuta-nim, you hadn't contacted me, so I thought you weren't coming this week like you promised!!</p>
 <p>Ryuta: Hey, I made a promise, so I have to keep it. It's not hard to go hang out with Eve.</p>
-<p>EVE: Then I'll be waiting~!!</p>
+<p>EVE: Then I'll be waiting!!</p>
 <p>Ryuta: Okay, I'm on my way home from work now, so I'll change clothes and head over.</p>
 <p>I contacted Eve in advance, and before I knew it, I was in front of my house. I went inside, changed my clothes, and put on a hat.</p>
 <p>Since the Miyashi Dark Trade branch where Eve is located is in a love hotel district, it was better to hide my identity with a hat in case someone recognized me. I needed to spread my senses as wide as possible and move when no one was watching.</p>
 <p>I watched a two-hour movie in the club room after class, so the time was close to the office workers' quitting time. As the sun slowly set and I came out towards the street with many offices, I began to see office workers in suits who had left work.</p>
 <p>Since it was almost dinner time, I wondered if I should buy something to eat, so I stopped by a beef bowl restaurant for the first time in a while and packed about three servings before heading to the love hotel district.</p>
 <p>As I walked with the beef bowl bag, I saw the love hotel district with the signs lit up. I could already see a few couples, horny men and women, entering the love hotels arm in arm. After confirming that there was no one else besides the love hotel customers in the vicinity, I entered the love hotel where the Dark Trade branch was located.</p>
-<p>"Welcome~! Ryuta-nim!!"</p>
+<p>"Welcome! Ryuta-nim!!"</p>
 <p>Eve, wearing a thin bikini that revealed her nipples, an outfit unsuitable for the underground Dark Trade branch, was waving her arms and welcoming me. She's still wearing provocative clothes. I was already super pent up because of the students' provocations today, and seeing Eve's appearance made my dick twitch without me even realizing it.</p>
 <p>No! Get a grip! She's an AI android!</p>
 <p>I shouted in my mind to dick, the third personality between my legs, but dick was like, "Isn't this great?" and made the snake even bigger.</p>
@@ -39,7 +39,7 @@ chapter = 407
 <p>"Since then, Ryuta-nim has been a specially treated person among humans to me. Even the best VR-Dive users have never given me such a shock. It was contact that went beyond the hologram and affected my very being."</p>
 <p>No wonder Eve has been fully cooperating with me since then. It seemed that my favorability had increased quite a bit due to the effectiveness of the Abyss and the characteristics of the Golden Pillar at the time. Eve probably didn't know exactly what it was, so she put me on the list of specially treated people.</p>
 <p>"Is that so? Am I still a specially treated person now?"</p>
-<p>"Now you're a close colleague, friend, and specially treated person~! So I prepared a meal, but you brought takeout to eat yourself."</p>
+<p>"Now you're a close colleague, friend, and specially treated person! So I prepared a meal, but you brought takeout to eat yourself."</p>
 <p>When I looked where Eve was pointing, there was a lavish spread of various dishes on a metal table. Well, I didn't expect her to even prepare a meal.</p>
 <p>"We can put the takeout in the fridge and heat it up later, so I should eat the food Eve prepared. Did Eve make the food herself?"</p>
 <p>"Ryuta-nim said you were coming, so I quickly went out and ordered takeout. I didn't have time to cook."</p>
@@ -48,9 +48,9 @@ chapter = 407
 <p>There were various genres of food on the table, and I tore off the leg of the most delicious-looking roast chicken and put it in my mouth. Hmm, it was a delicious chicken that was well roasted. I listened to Eve's story while chewing on the chicken. Eve asked about my recent trip to Korea.</p>
 <p>"Was your trip to Korea fun?"</p>
 <p>"Well, a lot of things happened. Eve, didn't you hear about it from Lara Sinclair too?"</p>
-<p>"Still, please tell me yourself~!"</p>
+<p>"Still, please tell me yourself!"</p>
 <p>At Eve's request, I told her about the deformed dog incident that occurred because of the Shinseong Group's secret laboratory, which was a representative story from Korea.</p>
-<p>"Ah~! So that's why you hired new people in the biological sciences?"</p>
+<p>"Ah! So that's why you hired new people in the biological sciences?"</p>
 <p>"Yes, I thought there would be a lot to gain from investigating the research results of the samples."</p>
 <p>After talking about what happened in Korea for a while, the topic came up about the incident where I got an erection today.</p>
 <p>"Why did Ryuta-nim's penis get an erection today, unlike usual? You seem different today."</p>
@@ -81,4 +81,4 @@ chapter = 407
 <p>"A favor? Don't tell me...."</p>
 <p>It was hard to refuse Eve's request. Eve had often granted my requests as well, so I had no justification to refuse.</p>
 <p>---</p>
-<p>Eve-jyang~!</p>
+<p>Eve-jyang!</p>

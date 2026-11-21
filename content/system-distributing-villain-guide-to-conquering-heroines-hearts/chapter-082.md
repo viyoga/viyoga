@@ -60,7 +60,7 @@ chapter = 82
 <p>Emma stepped out with an angry face. "He didn’t pick up my calls even once. I’ll see for myself what he’s been doing."</p>
 <p>She walked with brisk steps and entered the mansion.</p>
 <p>The moment she stepped inside, she heard some questionable sounds coming from the direction of the couch.</p>
-<p>"Ah~ Dante, why are you so good at this?"</p>
+<p>"Ah Dante, why are you so good at this?"</p>
 <p>"Should I go deeper, Master?"</p>
 <p>"No, just focus on that spot. That’s where it gets me the most."</p>
 <p>Emma stood there with a blank expression before her body started trembling. ’That’s... Dante and Master? Are they really...? On the couch...? Were my suspicions right all along?’</p>

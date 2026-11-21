@@ -19,7 +19,7 @@ chapter = 100
 <p>Gina’s blush increased in intensity, and Jason’s smile widened before he grabbed Gina! Jason’s hands went to Gina’s shoulder and thighs as he carried her up easily, and Gina instinctively wrapped her hands around his neck to support herself while wondering what he was planning.</p>
 <p>Jason slammed Gina back against the bathroom wall, and Gina grunted as Jason covered her body with his own. Gina’s breasts were pressing against Jason’s chest, and she felt heat pool in her stomach as his member prodded her entrance! Gina was practically being folded in half as Jason held her up, and she could feel Jason’s muscles rippling beneath his skin as he held her up!</p>
 <p>She buried her face into the crook of Jason’s neck as Jason positioned himself properly before he began to sink into her core!</p>
-<p>"Ohhh~!"</p>
+<p>"Ohhh!"</p>
 <p>Gina moaned against Jason’s neck, and her nails immediately sank into his back as she felt him going deeper and deeper! Gina just had sex with Jason this morning, but it was almost like he had somehow gotten bigger since then! It was impossible for her to take everything! Gina’s toes curled desperately, and she put her hand on Jason’s bicep to try and hold herself up!</p>
 <p>Jason grunted as he felt Gina’s warmth wrapping around his member! The feeling of her soft breasts pressing into his chest and her thigh in his hands made him feel like he was holding up an entire world! Gina’s hand tightened around his biceps, and her hot breath tickled his ear as she tried to accept all of him! Jason’s hands sank into her supple thigh as he pushed deeper inside her before he suddenly shot his hip up to meet her own!</p>
 <p>Slap!</p>
@@ -30,7 +30,7 @@ chapter = 100
 <p>Bam! Bam! Bam! Bam!</p>
 <p>"Yes! Yes! Yes! Fuuuck!"</p>
 <p>Gina cried out in ecstasy as her toes curled in pure pleasure! Jason felt Gina tightening up around him, and he grunted and increased his speed once he realized that she was close to her orgasm! Gina’s voice in his ear and her hand around his back made his arousal grow even more! There was just something about hearing her moan in pleasure that did unspeakable things to Jason!</p>
-<p>"Ngggghhh~!"</p>
+<p>"Ngggghhh!"</p>
 <p>Gina felt her entire body lock up as Jason suddenly hit a sensitive spot inside her, and it didn’t take long before she began to vibrate as an intense orgasm shot through her body! Gina slammed her lips against Jason’s as her entire body shook intensely! Jason continued to move even as he felt Gina squeezing his dick like a vice, and Gina silently begged for mercy as Jason continued hitting the same spot inside her to make her orgasm last even longer!</p>
 <p>Gina snaked her tongue into Jason’s mouth as she tried to make Jason swallow her screams, and Jason easily held her up and made sure that her orgasm lasted for as long as possible! It wasn’t until more than a minute later that Gina finally stopped screaming!</p>
 <p>Bam! Bam! Bam! Bam!</p>
@@ -38,5 +38,5 @@ chapter = 100
 <p>Gina put both hands on the wall as she felt the cold tile burn her cheek with its chill, and she turned around with a heavy blush on her face and watched Jason excitedly! Jason grabbed her thin waist, and his eyes traveled down from her arched back to her large, bubble-shaped ass. Jason felt his member twitch in raw desire as the fire in his eyes intensified!</p>
 <p>He positioned himself properly, and Gina’s mouth opened into a silent moan as she felt Jason slowly penetrate her from behind! Gina had to stand on her toes as she tried to accommodate Jason as much as possible, and it wasn’t long before Gina felt Jason’s dick slam against her womb as he finally entered her completely!</p>
 <p>Bam!</p>
-<p>"MOAN~!"</p>
+<p>"MOAN!"</p>
 <p>Gina pressed her hands against the wall even more to try and hold on for dear life! It felt like Jason was trying to impale her with his dick! Jason took a step back to get more room, and this made Gina’s back arch even more like a stretching cat! Jason held on tighter to her waist, and Gina let out a curse as Jason began to move!</p>

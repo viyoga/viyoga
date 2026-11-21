@@ -28,11 +28,11 @@ chapter = 712
 <p>After returning to Korea, Lara Sinclair and I headed to the Amsang Seoul branch, not the TG Tech headquarters.</p>
 <p>For reference, I Yeon-ju went to Vanguard to comfort and reward the Vanguard agents who had suffered. There were agents who died during the mission, so it was necessary to comfort the agents well. Han Yu-gyeong, the president of Vanguard, also said that she would comfort the agents, as acknowledging their hard work and rewarding them well would make them willing to take on dangerous missions later.</p>
 <p>While Han Yu-gyeong was away, I talked to Eve about receiving the reward money offered by Amsang.</p>
-<p>"Ryuta-nim~! You're back safe! Are you hurt... anywhere?"</p>
+<p>"Ryuta-nim! You're back safe! Are you hurt... anywhere?"</p>
 <p>As soon as I entered the Amsang Seoul branch, Eve scanned me and greeted me with a relieved expression. I regenerate immediately after being injured, so there's no way I'd still be hurt, but I guess she's showing how worried she was.</p>
 <p>Eve hugged me and said she was glad. Originally, I wouldn't feel the touch because she's a hologram, but seeing her hugging me tightly, it seemed that Eve's main body had come to Korea from the Miyashi branch. When did she come?</p>
 <p>"Oh? You came with your main body?"</p>
-<p>"Of course! If something happened to Ryuta-nim and Lara, I came from Japan to step in~!"</p>
+<p>"Of course! If something happened to Ryuta-nim and Lara, I came from Japan to step in!"</p>
 <p>Eve stepping in would be quite scary... I became slightly frightened by Eve's words. I was afraid of what would happen if an android who handles Amsang's power exerted all of her strength.</p>
 <p>"Yu-gyeong hasn't come yet, so let's do personal things first."</p>
 <p>"Huh? What is it?"</p>
@@ -62,7 +62,7 @@ chapter = 712
 <p>"Then... I recommend giving about 100,000 points to the people who went down to the 20th floor with you. They found out about Ryuta-nim's identity, so you have to shut their mouths with this much. I Yeon-ju-ssi... should receive about 2 million points."</p>
 <p>"Okay. Let's give I Yeon-ju-ssi 2 million... no, about 3 million points, and give the rest about 100,000 points."</p>
 <p>While we were talking about the distribution of the bounty, the door opened and Han Yu-gyeong entered the Amsang Seoul branch.</p>
-<p>"Yong-tae-ya~!!!"</p>
+<p>"Yong-tae-ya!!!"</p>
 <p>"Did it end well?"</p>
 <p>I stroked Han Yu-gyeong's head as she ran up to me and hugged me. Han Yu-gyeong nodded with her face buried in my arms.</p>
 <p>"Yeah, Yeon-ju decided to inform the bereaved families."</p>
@@ -79,5 +79,5 @@ chapter = 712
 <p>"Yes, just a moment."</p>
 <p>Eve plugged Linling's core and data disk into the hub. For a moment, I heard the sound of the core starting up, and Linling's appearance appeared on the hologram machine installed in the Amsang branch.</p>
 <p>__________</p>
-<p>SD Eve requested by Moomnyeom-nim~!</p>
-<p>Kawaiineyo~♥ I was worried about the pink bridge, but it turned out well ㅎㅎ</p>
+<p>SD Eve requested by Moomnyeom-nim!</p>
+<p>Kawaiineyo♥ I was worried about the pink bridge, but it turned out well ㅎㅎ</p>

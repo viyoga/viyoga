@@ -30,7 +30,7 @@ chapter = 634
 <p>"But you always tend to undermine your contributions, and that's not good."</p>
 <p>He tapped Ravenna's forehead playfully, his smile broadening. "Lacking confidence much?"</p>
 <p>"You think I'm not confident?" Ravenna retorted coldly, a hint of anger in her voice. "Do you need a reminder of what I just told you?"</p>
-<p>"Oh~" Ansel feigned a moment of realization. "That's just being insincere."</p>
+<p>"Oh" Ansel feigned a moment of realization. "That's just being insincere."</p>
 <p>"You! I am not—"</p>
 <p>Caught off guard, Ravenna was momentarily at a loss for words, her cheeks gradually reddening. As everyone knew, the insincere despised being called out on their lack of candor.</p>
 <p>Before the scholar could react further, Ansel gently caressed her cheek, laughing. "Just a joke, don't be angry, Venna."</p>

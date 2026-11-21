@@ -8,7 +8,7 @@ chapter = 1097
 <p>and chapter check contains erotic please surroundings this your</p>
 <p>"Are there any benefits we gained? Of course, the increased hostility between Ichiro and Jiro is a good thing for us, but...."</p>
 <p>At my question, Linling shook her Head as if there was more. My words, that there would be no benefits, must have been wrong.</p>
-<p>"First of all~! Among the captured Anyaji Branch people, there are quite a few useful individuals. So we decided to hire a few~!"</p>
+<p>"First of all! Among the captured Anyaji Branch people, there are quite a few useful individuals. So we decided to hire a few!"</p>
 <p>Ah...! It seems she's talking about the Anyaji Branch martial artists Taira Gensuke brought when he attacked our mansion. There was a reason why we were able to fend off Taira Gensuke's attack without much difficulty this time.</p>
 <p>We, who even defeated the martial artists of Anyaji Headquarters, of course had no trouble defeating lower-level Branch martial artists. I heard that their firearm usage and various tactical movements were a complete mess, as they had only been taught for a few days.</p>
 <p>Rather, if it had been a PMC unit composed of ex-criminals from the favelas that Taira Gensuke leads in Brazil, or a PMC unit gathered from former BOPE (Batalhão de Operações Policiais Especiais) members, our side's harm would have been greater.</p>
@@ -28,7 +28,7 @@ chapter = 1097
 <p>I heard that Taira Kitsumasa's corpse arrived in Japan a little after we did, but it seemed the funeral wouldn't start today.</p>
 <p>"He was shot in the face, so it seems some adjustment was needed."</p>
 <p>Since his face would be a mess, it means they have to perform the ritual washing and dressing of the body. I nodded my Head as if I understood. Since attending the funeral was a given anyway, it wasn't particularly meaningful information.</p>
-<p>"And here, congratulations on passing the PMC qualification test~!"</p>
+<p>"And here, congratulations on passing the PMC qualification test!"</p>
 <p>Linling said, holding out the certificate to me. As soon as the news that I passed the PMC qualification test was heard, Linling finished all the document processing, and it seemed the certificate came out quickly.</p>
 <p>"I passed before, so.... I shouldn't fail a second test."</p>
 <p>I said, looking at the plastic card with my photo embedded, which was written as a private military company establishment certificate. Last time, I passed under the name Yamashiro Ryuta, who infiltrated St. Francis Girls' Academy, so I had two of these certificates.</p>
@@ -60,17 +60,17 @@ chapter = 1097
 <p>Shinonome Mio (East Cloud Deep Cherry Blossom).</p>
 <p>The name of Taira Saburo's strategist and Taira Electronics' Boss, Shinonome Zen's granddaughter, was clearly written on the talent recommendation report. According to rumors, I heard she became a cripple, but was that not true? For now, I'll have to check this again.</p>
 <p>"Did you find out how all four of them are now?"</p>
-<p>"It hasn't been long since the email arrived, so I've already made a request to Josodang~!"</p>
+<p>"It hasn't been long since the email arrived, so I've already made a request to Josodang!"</p>
 <p>Hmm, I see. Let's make a decision on this later, while listening to Josodang's report.</p>
 <p>"Then, we'll talk later, and the report from Japan is over, right?"</p>
 <p>"Yes. There are no particularly important reports left."</p>
 <p>Now it's my turn. I needed to discuss with everyone what to do in the future, while talking about the situation in the USA and what I gained. And also distribute the loot obtained in the USA to those who need it.</p>
-<p>Requested by Gojoy-nim: Dark-skinned Suzuki Chisami, Chapter 56 Remake Chieri~!</p>
-<p>Suzuki~!</p>
-<p>Chieri Remake~!</p>
-<p>At first, I tried to create a scene saying, "The steak thickness is about this much~!", but only an 'okay' sign came out like the illustration above, so since it's a remake anyway, I thought I should change it a bit, so I changed it to a thumbs-up hehehe.</p>
-<p>While updating with the Chapter 56 Remake illustration, I also slightly modified the content, changing it to a thumbs-up gesture with a feeling of "The steak is delicious~!" hehe. You don't have to look again~!</p>
-<p>Requested by TheDreaming-nim: Alik and Tsukiyo at the construction site~!</p>
-<p>Alik~!</p>
-<p>Tsukiyo~!</p>
-<p>Kkyut~!</p>
+<p>Requested by Gojoy-nim: Dark-skinned Suzuki Chisami, Chapter 56 Remake Chieri!</p>
+<p>Suzuki!</p>
+<p>Chieri Remake!</p>
+<p>At first, I tried to create a scene saying, "The steak thickness is about this much!", but only an 'okay' sign came out like the illustration above, so since it's a remake anyway, I thought I should change it a bit, so I changed it to a thumbs-up hehehe.</p>
+<p>While updating with the Chapter 56 Remake illustration, I also slightly modified the content, changing it to a thumbs-up gesture with a feeling of "The steak is delicious!" hehe. You don't have to look again!</p>
+<p>Requested by TheDreaming-nim: Alik and Tsukiyo at the construction site!</p>
+<p>Alik!</p>
+<p>Tsukiyo!</p>
+<p>Kkyut!</p>

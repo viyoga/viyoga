@@ -23,7 +23,7 @@ chapter = 60
 
 <p>In the next moment, they both advanced, their swords meeting with a metallic clang.</p>
 
-<p>“Ngh~” a pained groan escaped Yueli’s lips, Qingyi’s sword forcing her back more than three steps.</p>
+<p>“Ngh” a pained groan escaped Yueli’s lips, Qingyi’s sword forcing her back more than three steps.</p>
 
 <p>Her beautiful blue eyes trembled, staring at Qingyi with a renewed light. How could he have such physical strength, even though he was injured?</p>
 
@@ -75,7 +75,7 @@ chapter = 60
 
 <p>At the same time, she felt something large and throbbing pressing against her moist pussy lips under the fabric of her dress.</p>
 
-<p>“Mgh…~” A depraved sound escaped her lips in a prolonged moan.</p>
+<p>“Mgh…” A depraved sound escaped her lips in a prolonged moan.</p>
 
 <p>Qingyi could feel the weight of Yueli’s breasts completely take over his face, they were only slightly smaller than Feiyan’s.</p>
 

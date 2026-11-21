@@ -53,7 +53,7 @@ chapter = 559
 
 <p>“So wet already,” Julian growled. His fingers pressed harder against her pussy, the thin fabric no match for the scorching heat and slickness soaking through, coating his fingertips. “My mother is dripping for me.”</p>
 
-<p>“Ahh….Ye~s,” Regina whimpered shamelessly, her hips rolling against his hand. “Ah—yes… yours… I’m yours, Julian”</p>
+<p>“Ahh….Yes,” Regina whimpered shamelessly, her hips rolling against his hand. “Ah—yes… yours… I’m yours, Julian”</p>
 
 <p>Julian’s free hand moved to the back of her neck, pulling her into another searing kiss. This time there was more urgency, more heat. Their tongues tangled together desperately as his fingers began moving between her thighs. He pushed the soaked fabric aside, his fingers slipping just inside her slick pussy.</p>
 

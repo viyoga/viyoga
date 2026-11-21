@@ -64,7 +64,7 @@ chapter = 290
 <p>She felt sorry for her daughter, but Ha Ju-yoon felt her heart racing for the first time in a long time. Jin Yong-tae's handsome face, big dick, and sex skills that didn't seem like those of a twenty-year-old... Jin Yong-tae would be able to completely soothe her tired body and mind.</p>
 <p>,Ah... I got wet just thinking about it.</p>
 <p>Ha Ju-yoon blushed and got up from her seat. It seemed she was under a lot of stress. Her phone vibrated with a wiiing sound, and when she checked, she had received a KakaoTalk message from Han Yu-gyeong.</p>
-<p>-Our Daughter❤️: Mom, don't worry about Korea and have a good rest!! I sent you some spending money~!</p>
+<p>-Our Daughter❤️: Mom, don't worry about Korea and have a good rest!! I sent you some spending money!</p>
 <p>,Yu-gyeong-a, Mom is sorry. Mom will just have a little taste and go back to Korea... Okay? Don't worry♥</p>
 <p>Ha Ju-yoon sent a reply thanking her daughter and muttered with a lustful expression.</p>
 <p>Thinking about Jin Yong-tae, Ha Ju-yoon felt the stress she had felt because of the ridiculous articles disappear.</p>

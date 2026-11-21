@@ -17,7 +17,7 @@ chapter = 36
 
 <p>He was just doing the quest given to him... yet the system was giving him countless bashings and thrashings. It was truly unfortunate that he had to deal with a hater, even in this fantasy world!</p>
 
-<p>’ Say whatever you want, System... hehe, I’m just completing the tasks so flawlessly that you won’t be able to give me those teasing punishments anymore~’ Owen countered.</p>
+<p>’ Say whatever you want, System... hehe, I’m just completing the tasks so flawlessly that you won’t be able to give me those teasing punishments anymore’ Owen countered.</p>
 
 <p>His system was genuinely unique because it combined a docile, playful, and mocking attitude all into one.</p>
 
@@ -35,9 +35,9 @@ chapter = 36
 
 <p>[ Hmph... ]</p>
 
-<p>’Now you’re acting like a tsundere... I’m starting to think you’re a tsundere MILF system~’ Owen gloated internally after a long silence.</p>
+<p>’Now you’re acting like a tsundere... I’m starting to think you’re a tsundere MILF system’ Owen gloated internally after a long silence.</p>
 
-<p>’ Heh... you really are a tsundere~’</p>
+<p>’ Heh... you really are a tsundere’</p>
 
 <p>He realized that he had won the tug-of-war since the system went completely silent after his last remark.</p>
 
@@ -101,9 +101,9 @@ chapter = 36
 
 <p>The successive loads tasted incredibly rich, and she found herself wanting to savor every last drop.</p>
 
-<p>&quot;L-let me clean it up, Little Wen... Darling will take at least a minute to walk around the corner~&quot; she whispered breathlessly, then immediately began cleaning the remaining cum from his shaft and head like someone enjoying ice cream in the middle of a scorching summer.</p>
+<p>&quot;L-let me clean it up, Little Wen... Darling will take at least a minute to walk around the corner&quot; she whispered breathlessly, then immediately began cleaning the remaining cum from his shaft and head like someone enjoying ice cream in the middle of a scorching summer.</p>
 
-<p>’Ahh... moving entirely on your own now, are we? You’re totally hooked after receiving three consecutive loads. This isn’t even about fulfilling my wish anymore, Aunt~’ Owen smirked.</p>
+<p>’Ahh... moving entirely on your own now, are we? You’re totally hooked after receiving three consecutive loads. This isn’t even about fulfilling my wish anymore, Aunt’ Owen smirked.</p>
 
 <p>He completely ignored the approaching sound of heavy boots, keeping his focus entirely locked on the delightful display before him.</p>
 

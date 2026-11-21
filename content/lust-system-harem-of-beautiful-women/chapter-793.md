@@ -1,5 +1,5 @@
 +++
-title = "Chapter 793: You’re Crushing Me~~ [18+]"
+title = "Chapter 793: You’re Crushing Me [18+]"
 weight = 793
 [extra]
 chapter = 793
@@ -27,9 +27,9 @@ chapter = 793
 
 <p>The little cousin’s hair was disheveled, her face flushed. She panted heavily, her delicate brows slightly furrowed.</p>
 
-<p>She let out a soft moan. &quot;It’s okay... feels really full. Brother-in-law’s is so big~&quot;</p>
+<p>She let out a soft moan. &quot;It’s okay... feels really full. Brother-in-law’s is so big&quot;</p>
 
-<p>&quot;But go ahead. They all said it would hurt for sure, and Ariana isn’t afraid of pain~&quot;</p>
+<p>&quot;But go ahead. They all said it would hurt for sure, and Ariana isn’t afraid of pain&quot;</p>
 
 <p>She was anything but coy, a total tomboy at heart, the kind who’d cause chaos in the village as a kid. She wasn’t one for sentimental hesitation.</p>
 
@@ -45,7 +45,7 @@ chapter = 793
 
 <p>Luis paused, lifted his head, and continued kissing the little cousin’s face.</p>
 
-<p>Ariana moaned in ecstasy. &quot;So this is what it feels like to be up against the hymen~&quot;</p>
+<p>Ariana moaned in ecstasy. &quot;So this is what it feels like to be up against the hymen&quot;</p>
 
 <p>She was breathing rapidly, taking deep breaths, adjusting herself without complaining. She’d clearly prepared herself mentally.</p>
 
@@ -77,9 +77,9 @@ chapter = 793
 
 <p>Her watery eyes were utterly pitiable. Luis quickly asked with concern, &quot;How is it??&quot;</p>
 
-<p>&quot;It’s okay... still hurts though~&quot;</p>
+<p>&quot;It’s okay... still hurts though&quot;</p>
 
-<p>Ariana panted and kissed Luis, looking touched. &quot;But... I finally gave myself to brother-in-law~&quot;</p>
+<p>Ariana panted and kissed Luis, looking touched. &quot;But... I finally gave myself to brother-in-law&quot;</p>
 
 <p>&quot;It hurts, dammit... I should have had a drink first like they said. It would’ve been better.&quot;</p>
 
@@ -91,7 +91,7 @@ chapter = 793
 
 <p>Under such intimacy, Ariana’s stiff body gradually relaxed. She moaned softly, her hands roaming over Luis’s body.</p>
 
-<p>&quot;Brother-in-law... try moving~!!&quot;</p>
+<p>&quot;Brother-in-law... try moving!!&quot;</p>
 
 <p>After patiently teasing her for a while, her body softened. Only then did she murmur shyly yet happily.</p>
 
@@ -115,7 +115,7 @@ chapter = 793
 
 <p>The little loli beneath him was like a finely carved piece of jade, tender as fresh tofu, he was genuinely afraid she might break if he pushed too hard.</p>
 
-<p>&quot;Brother-in-law~...&quot;</p>
+<p>&quot;Brother-in-law...&quot;</p>
 
 <p>The little cousin murmured passionately, holding Luis tightly. Her brow was first furrowed.</p>
 
@@ -129,7 +129,7 @@ chapter = 793
 
 <p>Every time his cockhead pressed against her young cervix, a jolt of electricity shot through her, subtle yet wondrous, an almost magical feeling.</p>
 
-<p>&quot;Brother-in-law... you can go a bit faster now... it feels so good~!!!&quot;</p>
+<p>&quot;Brother-in-law... you can go a bit faster now... it feels so good!!!&quot;</p>
 
 <p>The little cousin began to moan wantonly in her adorable baby voice, completely lost in the sensation.</p>
 
@@ -141,7 +141,7 @@ chapter = 793
 
 <p>While kissing, she let out muffled moans, her small body beginning to heat up and sweat, covered in a lovely flush of pink.</p>
 
-<p>&quot;Brother-in-law... brother-in-law~...&quot;</p>
+<p>&quot;Brother-in-law... brother-in-law...&quot;</p>
 
 <p>Amidst this passionate entanglement, she completely forgot the pain of defloration, fully adapting to the intense pleasure of sex.</p>
 
@@ -149,7 +149,7 @@ chapter = 793
 
 <p>Her hands seemed to roam restlessly over his body. Luis quickened his thrusting, driving his cockhead deeper each time, pressing against her nearly quivering cervix.</p>
 
-<p>&quot;I can’t take it anymore... Brother-in-law, I feel like I’m going to pee~...&quot;</p>
+<p>&quot;I can’t take it anymore... Brother-in-law, I feel like I’m going to pee...&quot;</p>
 
 <p>Finally, the little cousin furrowed her pink brows as if in pain, clinging desperately to Luis, her fingernails nearly leaving marks on his back.</p>
 
@@ -165,7 +165,7 @@ chapter = 793
 
 <p>His urethral opening burst open, and semen shot out like a fountain, powerfully flooding her spasming womb, completely defiling and claiming this virgin territory no man had ever touched.</p>
 
-<p>&quot;Ahhh~...&quot;</p>
+<p>&quot;Ahhh...&quot;</p>
 
 <p>The heat made the little cousin’s entire body convulse.</p>
 
@@ -175,7 +175,7 @@ chapter = 793
 
 <p>They panted heavily. After a long while, their breathing began to steady...</p>
 
-<p>Ariana murmured weakly, whining, &quot;Brother-in-law... you’re crushing me~...&quot;</p>
+<p>Ariana murmured weakly, whining, &quot;Brother-in-law... you’re crushing me...&quot;</p>
 
 <p>Luis quickly pulled back. As he moved, his still-hard cock pressed against her inside, making the little cousin gasp.</p>
 

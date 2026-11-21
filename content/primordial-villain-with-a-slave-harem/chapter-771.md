@@ -30,7 +30,7 @@ chapter = 771
 <p>"And all it takes she whispered, reaching between us and guiding my painfully hard cock toward the heat between her thighs, “is for us to seal it… the old-fashioned way.”</p>
 <p>She rubbed herself against me in slow, gentle motions that made my vision blur at the edges.</p>
 <p>"You serious?” I gritted out, barely able to speak.</p>
-<p>She giggled in that perfect giggle of hers. “Deadly serious, hubby~ It’s an ancient form of pact-making. Two lovers, joined in the center of the circle, surrendering themselves to each other.” řἈƝ𝘖ＢĘs̈</p>
+<p>She giggled in that perfect giggle of hers. “Deadly serious, hubby It’s an ancient form of pact-making. Two lovers, joined in the center of the circle, surrendering themselves to each other.” řἈƝ𝘖ＢĘs̈</p>
 <p>It was official now.</p>
 <p>I couldn’t take it anymore.</p>
 <p>Not one second longer.</p>
@@ -42,7 +42,7 @@ chapter = 771
 <p>Drenched.</p>
 <p>Glossy wetness glistened along her inner thighs, proof that the inferno raging inside me was mirrored perfectly within her, despite her early teasing.</p>
 <p>I once again groaned low in my throat as I flipped her around, wrapping my arms around her from behind, lining my cock against her slick, begging entrance. But before I could drive myself into her, she reached back with a playful slap to my hip and twisted herself out of my grasp.</p>
-<p>"Ah-ah! Not so fast, hubby~” she purred, flashing me a wicked grin over her shoulder. Her crimson eyes glittered with mirth and lust.</p>
+<p>"Ah-ah! Not so fast, hubby” she purred, flashing me a wicked grin over her shoulder. Her crimson eyes glittered with mirth and lust.</p>
 <p>Before I could protest, she turned to me and dropped to her knees. “First she said, her voice dripping honey and mischief, “let me inspect what I have to work with.”</p>
 <p>I barely had time to tense before her hands were on me. She wrapped her slender fingers around my thick shaft, stroking it slowly with occasional little hums of appreciation or perhaps amusement. She tugged the skin back to reveal the flushed, leaking head, studying it like a prized treasure. Her thumb brushed over the sensitive slit, smearing the precum and making me groan through my teeth.</p>
 <p>Vex tilted her head, utterly fascinated.</p>

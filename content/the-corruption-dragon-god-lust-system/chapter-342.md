@@ -7,13 +7,13 @@ chapter = 342
 
 <p>Qingyi grabbed Linyue’s thighs with both hands. They were thick and soft, his fingers sinking into her creamy skin as his tongue plunged into her fat pussy lips.</p>
 
-<p>“Ughn~~? What are you-NYAN~~” A sharp, confused squeal escaped Linyue’s lips as Qingyi’s tongue went deeper, massaging her pink clit.</p>
+<p>“Ughn? What are you-NYAN” A sharp, confused squeal escaped Linyue’s lips as Qingyi’s tongue went deeper, massaging her pink clit.</p>
 
 <p>Her lips parted, revealing sharp fangs. A thin line of saliva dripped from her full, pink lips.</p>
 
 <p>Instinctively, she grabbed Qingyi’s head, pulling his long black hair. Her thighs rested on his shoulders, closing around his head in a sea of unparalleled softness and warmth.</p>
 
-<p>“M-my father, won’t- Nyan nghhn~~” Linyue trembled, trying to gather her Qi to escape Qingyi’s grip, but to no avail.</p>
+<p>“M-my father, won’t- Nyan nghhn” Linyue trembled, trying to gather her Qi to escape Qingyi’s grip, but to no avail.</p>
 
 <p>Her body lost its strength, her eyes clouded as obscene moans escaped her lips.</p>
 
@@ -51,13 +51,13 @@ chapter = 342
 
 <p>Qingyi kissed Linyue one last time, grabbing his pants and finally freeing his member.</p>
 
-<p>“nghn~~ NYAN!” A frightened and sweet squeal escaped Linyue’s lips as Qingyi’s cock was freed, hitting the fat, pale lips of her pussy with a wet smack, already sinking into the pink interior.</p>
+<p>“nghn NYAN!” A frightened and sweet squeal escaped Linyue’s lips as Qingyi’s cock was freed, hitting the fat, pale lips of her pussy with a wet smack, already sinking into the pink interior.</p>
 
 <p>Grasping her hips for support, Qingyi aligned his cock with her wet entrance and shoved his hips forward. Her pussy lips parted like flower petals around the long, thick member.</p>
 
 <p>Feeling Linyue’s virginity, Qingyi paused briefly before finally thrusting with full force, penetrating her.</p>
 
-<p>“Aghnn~~!” A sensual moan echoed through the cave. Linyue’s eyes rolled back as she felt completely filled by Qingyi, her face red as a tomato, overcome with a sweet and obscene expression.</p>
+<p>“Aghnn!” A sensual moan echoed through the cave. Linyue’s eyes rolled back as she felt completely filled by Qingyi, her face red as a tomato, overcome with a sweet and obscene expression.</p>
 
 <p>She grabbed his broad shoulders for support, her nails digging into his skin hard enough to draw blood.</p>
 
@@ -71,7 +71,7 @@ chapter = 342
 
 <p>He began to fuck her in an increasingly faster pace, grabbing the base of her tail for support, fucking her pussy hard, reveling in the long, obscene moans that escaped her lips.</p>
 
-<p>“Nyan~~ nyan~~ nghnn~~ I don’t even know your oghnn~~ name, Nyan!” Linyue spoke between gasping moans, her body already completely surrendered to Qingyi, her mind clouded and her lips drenched in saliva.</p>
+<p>“Nyan nyan nghnn I don’t even know your oghnn name, Nyan!” Linyue spoke between gasping moans, her body already completely surrendered to Qingyi, her mind clouded and her lips drenched in saliva.</p>
 
 <p>“Long Qingyi,” he replied, slapping her ass and leaning down to plant a kiss on her neck.</p>
 

@@ -18,7 +18,7 @@ chapter = 441
 <p>Then the head of his cock slipped free from her lips with a wet pop.</p>
 <p>Her airways were finally clear, and she gasped for air, her shoulders heaving, a thick strand of saliva still connecting her lower lip to the head of his cock.</p>
 <p>Her eyes opened, brimming with tears, and her hands moved up to the base of Ethan's cock, her slender fingers clenching tightly around it.</p>
-<p>"Ah~ f-fuck… sis… are you trying to drown me in this human cock?" Auryndra asked in a hoarse voice, her fingers squeezing the shaft, feeling it throb hot and hard against her palms.</p>
+<p>"Ah f-fuck… sis… are you trying to drown me in this human cock?" Auryndra asked in a hoarse voice, her fingers squeezing the shaft, feeling it throb hot and hard against her palms.</p>
 <p>"You did well for your first time," Arwen teased, both hands sliding down her younger sister's shoulders until they reached her breasts.</p>
 <p>Her palms rested open on the outer sides of each breast, the warm, soft flesh molding against them.</p>
 <p>They were large, and Arwen's delicate hands seemed ridiculously small next to those behemoths of flesh.</p>
@@ -43,7 +43,7 @@ chapter = 441
 <p>The young Lord didn't resist, letting himself fall onto his back on the bed, relaxed, the mattress dipping beneath his weight.</p>
 <p>Before he even realized it, Arwen was already kneeling over him, gripping his head with both hands and pulling him between her perfect, heavy breasts—perhaps a little larger than her sister's.</p>
 <p>Her soft, warm skin closed around his face, stifling his breath, Arwen's floral scent filling his lungs.</p>
-<p>She embraced him tightly and lovingly, rocking her body from side to side to rub her breasts against his face, the pillowy mounds squishing over his cheeks and nose. "Let Mommy Arwen smother you between her juicy tits, hubby, fufufu~"</p>
+<p>She embraced him tightly and lovingly, rocking her body from side to side to rub her breasts against his face, the pillowy mounds squishing over his cheeks and nose. "Let Mommy Arwen smother you between her juicy tits, hubby, fufufu"</p>
 <p>Arwen was happy to have her sister back, and that was making her extra naughty today.</p>
 <p>She wanted, together with Auryndra, to suck every last drop out of her hubby, just as she intended to do alongside her other ten sisters when Ethan brought them back.</p>
 <p>Ethan just let Arwen take the lead, savoring the pleasure, the floral scent of the two of them, and the warm weight of those breasts pressed against his face.</p>
@@ -67,9 +67,9 @@ chapter = 441
 <p>His tongue plunged between the plump, pale lips of her cameltoe, slowly parting them, reaching the pink, hot interior of that puffy pussy, already soaking wet, its sweet taste spreading through his mouth.</p>
 <p>He moved his tongue over her clitoris, slow at first, in lazy circles, but quickly picking up speed, flicking the swollen little bud until her hips began to squirm against his face.</p>
 <p>Arwen moaned, trembling slightly, her thick thighs closing around his head, her eyes rolling back as her breathing grew faster and faster.</p>
-<p>"What's up—nghnn~~ big sis? Wasn't I supposed to be the one to break first? Fufufu~" Auryndra teased, not stopping her tit-fucking for even a second.</p>
-<p>"Ah~~ shut up~ you shameless brat!"</p>
-<p>"Shameless? You're nghnn~ the one who handed your own little sister over on a silver platter to this perverted human Lord!" Auryndra said indignantly, though her eyes and attention were completely focused on Ethan's cock.</p>
+<p>"What's up—nghnn big sis? Wasn't I supposed to be the one to break first? Fufufu" Auryndra teased, not stopping her tit-fucking for even a second.</p>
+<p>"Ah shut up you shameless brat!"</p>
+<p>"Shameless? You're nghnn the one who handed your own little sister over on a silver platter to this perverted human Lord!" Auryndra said indignantly, though her eyes and attention were completely focused on Ethan's cock.</p>
 <p>She picked up the pace, her pale breasts bouncing and squishing around his cock with muffled, creamy sounds, the lubricant coating her already spread all over Arwen's breasts, the four slick tits clapping together wetly with every stroke.</p>
 <p>The handsome young Lord also seemed to be reaching his limit, his hips beginning to thrust up against that tight squeeze, and it wasn't long before his cock exploded between the two women's breasts.</p>
 <p>A torrent of hot cum gushed from that cleavage like a fountain, jet after jet, before cascading over the pale peaks of their breasts and splattering onto both their faces, dripping thickly down their cheeks and chins.</p>

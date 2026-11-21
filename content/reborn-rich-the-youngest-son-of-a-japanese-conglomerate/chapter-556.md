@@ -56,23 +56,23 @@ chapter = 556
 <p>Yukiko said, leading me by the hand, and I awkwardly followed Yukiko in an erect state. Yukiko saw my awkward appearance and smiled with a devilish expression, "Ufufu."</p>
 <p>The next place we went was the nurse's office diagonally across from the education preparation room. Of course, Kijimoto Jurie, who had no students to treat because all the students in the special class had left school, had also left work.</p>
 <p>When I entered the nurse's office, the scent of medicine unique to the nurse's office and Kijimoto Jurie's scent brushed past my nose.</p>
-<p>,Heung, heu-heung~♪"</p>
+<p>,Heung, heu-heung♪"</p>
 <p>Yukiko hummed and looked around the nurse's office, then sat on the nurse's office bed, which could almost be called Naruse Shiyo's designated seat. Yukiko patted the seat next to her as if telling me to sit next to her.</p>
 <p>When I sat next to her, Yukiko started whispering in my ear again. This time, she stroked my half-soft penis and teased me.</p>
 <p>,Did you do it with the school nurse here too?"</p>
 <p>,Keueut! Yes, I did...!"</p>
 <p>,Our Ryuta, you're such a pervert♥"</p>
 <p>This time, Yukiko bit my earlobe once and then got up from her seat again.</p>
-<p>,Show me the club room this time~!"</p>
+<p>,Show me the club room this time!"</p>
 <p>Is she tormenting me because I've been with a lot of other women? I adjusted the position of my stiffly erect penis as I watched Yukiko's back as she left the nurse's office, and then followed Yukiko out of the nurse's office.</p>
-<p>I held Yukiko's hand and headed to the club room on the second floor, and as soon as I opened the door, Yukiko looked at the club room and exclaimed, "Wow~!"</p>
+<p>I held Yukiko's hand and headed to the club room on the second floor, and as soon as I opened the door, Yukiko looked at the club room and exclaimed, "Wow!"</p>
 <p>This was because the club room was so well decorated. A super-large TV was hanging on one wall, the kitchen had a top-of-the-line refrigerator, and the sofas were worth millions of yen, so it was natural for Yukiko, who came from a regular high school, to be surprised.</p>
 <p>,Looking at the club room, I realize that this is St. Francisco Girls' Academy. It's so famous as a prestigious girls' school that I had a feeling of longing?"</p>
 <p>,You longed for it?"</p>
 <p>,Yeah, a little?"</p>
 <p>It seemed that St. Francisco Girls' Academy was quite famous during Yukiko's school days. Yukiko also looked around the club room and looked at this and that as if she was curious, then opened the refrigerator and took out a pudding.</p>
 <p>It was the vanilla caramel pudding that Seizawa Shii had recently become addicted to. Hmm, I should fill it up when I go to work tomorrow. If it disappears, she'll make a fuss trying to find the culprit.</p>
-<p>,Ah~!"</p>
+<p>,Ah!"</p>
 <p>Was she trying to feed me instead of eating it herself? Yukiko smiled brightly and scooped up a spoonful of pudding and brought it to my mouth. As I ate the pudding, Yukiko ran to me and started kissing me.</p>
 <p>Tsu-eup, chu-eup, chu-beup, jjok...!</p>
 <p>Yukiko, who had been kissing me until the pudding in my mouth disappeared, took her mouth off with a "Puha" and looked at me with hazy eyes.</p>

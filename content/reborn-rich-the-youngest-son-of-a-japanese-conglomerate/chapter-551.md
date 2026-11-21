@@ -65,7 +65,7 @@ chapter = 551
 <p>I see. The environment in the mind was so desolate, as if I could guess Naruse Shiyo's pain all along. Following Yukiko's guidance, I saw the building of the sealing site where I had been in the real world until just now. However, the magic circle drawn around the sealing site building was fading and gradually disappearing.</p>
 <p>,We need to deal with it quickly...</p>
 <p>Yukiko was muttering while looking at the magic circle when suddenly the sealing site building opened and Naruse Shiyo came out.</p>
-<p>,Kyaaak~! Save me! Sensei-nim!</p>
+<p>,Kyaaak! Save me! Sensei-nim!</p>
 <p>,Just be my food!</p>
 <p>Naruse Shiyo was chasing Naruse Shiyo. The original Naruse Shiyo with gray hair was being chased with tears in her eyes, and Naruse Shiyo with black hair was licking her lips and chasing the gray-haired Naruse Shiyo.</p>
 <p>,Is that black one the dragon?</p>

@@ -14,17 +14,17 @@ chapter = 475
 <p>Seizawa Shii asked about the next schedule, and I remembered when she brought a karaoke machine to our house for a home party, so I suggested going to a karaoke. She smiled like a little devil and opened her mouth.</p>
 <p>"Ryuta-cchi, do you want to be alone with me in a closed space?"</p>
 <p>"Should we just go home?"</p>
-<p>"Aww~! Just kidding, just kidding! I love karaoke~!"</p>
+<p>"Aww! Just kidding, just kidding! I love karaoke!"</p>
 <p>While we were having this kind of silly conversation, the clerk who had finished packaging the perfume box handed it to me and bowed.</p>
-<p>"Thank you~!"</p>
+<p>"Thank you!"</p>
 <p>"Yes, thank you for your hard work."</p>
-<p>"I'll come again with my friends next time~☆"</p>
+<p>"I'll come again with my friends next time☆"</p>
 <p>After leaving the Les Rues, we left the department store to go to the karaoke as we had just said. We went to a karaoke near the department store and entered a room, and it was a bit awkward. Just as Seizawa Shii had said, being alone in a closed space with a man and a woman created a unique tension and awkwardness. Even though we were student and teacher, we were actually the same age, which made it feel even stranger.</p>
 <p>"Ryuta-cchi, when are you going to give me the present?"</p>
 <p>"Ah, right. Here...! Do your best on the final exams too."</p>
 <p>Seizawa Shii said this, looking at the perfume set that I had been holding since receiving it from the clerk, perhaps to ease the awkwardness. I had forgotten about it after receiving it, but if Seizawa Shii hadn't brought it up, I would have taken it home as is.</p>
 <p>I handed the perfume box to Seizawa Shii with words of encouragement. Seizawa Shii received the gift with a beaming smile.</p>
-<p>"Thank you~☆ Can I open it?"</p>
+<p>"Thank you☆ Can I open it?"</p>
 <p>"Yeah, open it."</p>
 <p>Even though it was called packaging, it wasn't gift wrapping but rather a luxurious box, so there wasn't any trash created.</p>
 <p>Seizawa Shii took out one of the three bottles from the box, sprayed it on her wrist, and then began to dab it behind her ears and on the back of her neck. Then, she smiled with her signature little devil smile and opened her mouth.</p>
@@ -33,7 +33,7 @@ chapter = 475
 <p>Even if she was pushing herself, if I didn't smell Seizawa Shii's scent and just stood there, it would be even more embarrassing for her, so I brought my nose to Seizawa Shii's nape. And I took a deep breath.</p>
 <p>Hmm...? It was different. The scent I smelled from the scanning machine and the scent of the perfume Seizawa Shii sprayed on her body were similar but different. It was probably the same perfume, but it seemed that a scent that stirred a man's heart was completed by mixing with Seizawa Shii's unique body odor. It smelled much better than the scent I smelled from the scanning machine earlier.</p>
 <p>"H-How is it? Does it suit me?"</p>
-<p>"Yeah, it smells good. Hhhmm~!"</p>
+<p>"Yeah, it smells good. Hhhmm!"</p>
 <p>Seizawa Shii asked, so I answered while still holding my nose to Seizawa Shii's ear. Seizawa Shii giggled, saying, "Aww, it tickles!"</p>
 <p>"Ryuta-cchi, do you remember the story we told while watching a movie in our club room back then?"</p>
 <p>If it's about watching a movie in the club room, is she talking about when the Date Experience Club recreated a home date and we took turns watching a movie with each other for ten minutes each? What did I talk about with Seizawa Shii back then...?</p>
@@ -63,7 +63,7 @@ chapter = 475
 <p>I was very surprised when she said we were going to share, but I was relieved that she would keep it a secret.</p>
 <p>"So... give me a goodbye kiss."</p>
 <p>As Seizawa Shii said, I lightly kissed her on the lips. If I gave her too deep of a kiss like in the karaoke, we would have to enjoy ourselves in front of her house for a long time again.</p>
-<p>"See you tomorrow, Ryuta-cchi~!"</p>
+<p>"See you tomorrow, Ryuta-cchi!"</p>
 <p>My date with Seizawa Shii ended with a kiss. I touched my lips, which still had Seizawa Shii's warmth, and went home.</p>
 <p>###</p>
 <p>The next morning. Kurayamata Kirie came to work, so I asked her something I was curious about.</p>
@@ -85,4 +85,4 @@ chapter = 475
 <p>Since Kurayamata Kirie is pretty, it seemed like he was hitting on her under the guise of a meal.</p>
 <p>Like this, he's taking another step closer to death. Even though Kurayamata Kirie is a woman who threatened me and had sex with me from the leadership of Jinildang, how dare he hit on a woman who has already shared a body with me? I'll have to take everything I can from him and then kill him.</p>
 <p>-----</p>
-<p>SD Digest~!</p>
+<p>SD Digest!</p>

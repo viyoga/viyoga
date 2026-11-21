@@ -123,7 +123,7 @@ Lucifer's eyebrow raised in interest. "Who offended you?"
 
 Lith squinted his eyes, somewhat feeling his anger swell up. "The Supreme Rank Darren Whitter."
 
-"Heh~… how did you come in contact with him for him to offend you? Now I'm really interested in this tea~"
+"Heh… how did you come in contact with him for him to offend you? Now I'm really interested in this tea"
 
 Lith was about to shift to the bed to explain everything in a comfortable position, but realized the bed was all messy and broken. The same was the condition of the entire room.
 

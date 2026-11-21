@@ -11,7 +11,7 @@ chapter = 725
 <p>Iris got a modest one-piece, while I got Raika a black pair. Vex got the same in white, but before sending the set to the Hexblade, a mischievous smirk emerged on my lips. "You're drenched in blood. Let's shower first."</p>
 <p>"Let's?" she quoted me with raised eyebrows.</p>
 <p>"I volunteer to help you."</p>
-<p>"Oh, my knight~ Ready to sacrifice so much just to assist a worthless lady like me…" she mused with a strong hint of sarcasm in her tone.</p>
+<p>"Oh, my knight Ready to sacrifice so much just to assist a worthless lady like me…" she mused with a strong hint of sarcasm in her tone.</p>
 <p>"Worthless? You're forbidden from calling yourself like that."</p>
 <p>"But!!" she whined with strong protest. "What kind of lady lets herself be covered in blood and grime? I'm no lady at all…"</p>
 <p>"Now that's just not true…" I whispered as I approached, petting this dramatic woman's blood-soaked hair.</p>
@@ -23,7 +23,7 @@ chapter = 725
 <p>"Hey!" the Hexblade cried, strengthening her grip around my waist, making me see stars.</p>
 <p>"Don't hurt Master!" Blossom growled with hostility, ready to lunge at her.</p>
 <p>"Ah, my bad. Sorry, Ghosty. I forgot our Quinnie was still a little boy," Vex apologized, but I couldn't help but sense a great deal of coy mockery in her tone.</p>
-<p>"Now you've done it…" I grunted, making her pretend yelp. "Oh no! Whatever shall I do to make it up to my handsome knight~?"</p>
+<p>"Now you've done it…" I grunted, making her pretend yelp. "Oh no! Whatever shall I do to make it up to my handsome knight?"</p>
 <p>"Ugh, I'm going to tear my ears off if I have to listen to this one second longer. I'm joining the battle," Raika decreed, throwing her bathing items dismissively to the ground and walking toward Sunscar.</p>
 <p>"Raika, sit."</p>
 <p>This single, authoritative command from Vex was enough to make the woman do as instructed, plopping her butt down on the ground like a good doggy.</p>

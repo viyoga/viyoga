@@ -107,4 +107,4 @@ chapter = 671
 
 <p>That girl didn’t want the three of them to bathe together, did she?</p>
 
-<p>“What’s wrong, big sis Xue Hua? Feeling hot? Take off your clothes and let’s take a bath!” Rou’er smiled, provocatively grabbing Qingyi’s cock. “I didn’t lie to you, did I? Hehehe~”</p>
+<p>“What’s wrong, big sis Xue Hua? Feeling hot? Take off your clothes and let’s take a bath!” Rou’er smiled, provocatively grabbing Qingyi’s cock. “I didn’t lie to you, did I? Hehehe”</p>

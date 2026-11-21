@@ -6,13 +6,13 @@ chapter = 671
 +++
 
 <p>"No... There's the Am-sang, right? You're about to make the same misunderstanding as last time."</p>
-<p>When I said that in an aggrieved tone, Minamoto Lisa approached our group, saying, "Ah~ really?"</p>
+<p>When I said that in an aggrieved tone, Minamoto Lisa approached our group, saying, "Ah really?"</p>
 <p>"I'll go too."</p>
 <p>"Huh? Do you have business with Am-sang too, Minamoto-ssi?"</p>
 <p>I thought it would end if she knew I was going to Am-sang. It seemed like she had separate business there.</p>
 <p>"Yeah... I have business."</p>
 <p>"Okay. Let's go together then."</p>
-<p>"I'm happy if Lisa-tan goes with us too~☆"</p>
+<p>"I'm happy if Lisa-tan goes with us too☆"</p>
 <p>So, the three of us decided to go to Am-sang together. Today's gathering was a weekend meeting, so everyone came in casual clothes, which was convenient because we didn't have to go change into our school uniforms.</p>
 <p>Normally, I couldn't go to a love hotel district with two female students in school uniforms, so we'd have to go change.</p>
 <p>"But Shii, why are you going to Am-sang?"</p>
@@ -31,32 +31,32 @@ chapter = 671
 <p>"If something like that happened, why didn't you tell me yesterday?"</p>
 <p>"The job ended late yesterday...?"</p>
 <p>To be more precise, she was busy having combat sex with me after the job, but anyway. Speaking of sex, the damage to the washing machines cost about 800,000 yen. Fortunately, two of the five broken machines could be repaired, so that's how much it cost.</p>
-<p>"I was going to go to Am-sang today and then call you to talk about it~!"</p>
+<p>"I was going to go to Am-sang today and then call you to talk about it!"</p>
 <p>Seizawa Shii said soothingly when Minamoto Lisa felt a bit left out. I understood Minamoto Lisa's position too. If her closest friend went through something big and she didn't know anything about it, she might feel a bit sad.</p>
 <p>"Then, is the story you just told me related to why you're going to Am-sang?"</p>
 <p>"Since the broker died... are you going to meet a new broker?"</p>
 <p>"Ah... I see."</p>
 <p>When Minamoto Lisa completely understood why Shii and I were going to Am-sang, we had already entered the entrance of the love hotel district.</p>
-<p>"Wow~! It's really in the love hotel district. I only half believed it until now!"</p>
+<p>"Wow! It's really in the love hotel district. I only half believed it until now!"</p>
 <p>Seizawa Shii made a fuss, looking at the rows of love hotels.</p>
 <p>"First, let's go into that building..."</p>
 <p>I pointed out the location of Am-sang so that Seizawa Shii could come again next time, pointing to the basement door in a corner of the love hotel.</p>
 <p>"You can go in here."</p>
-<p>"I definitely might not have been able to find it on my own. Thanks for the guidance, Ryuta-cchi~☆"</p>
+<p>"I definitely might not have been able to find it on my own. Thanks for the guidance, Ryuta-cchi☆"</p>
 <p>Seizawa Shii smiled brightly as she opened the basement door. Minamoto Lisa tilted her head, as if she felt that the atmosphere was slightly different from usual.</p>
 <p>Since Minamoto Lisa has a phobia of men, if she knew that I was in a relationship with her closest friend, the possibility of failing my mission at St. Francis Girls' Academy would increase exponentially, so I was sweating a little.</p>
 <p>I asked Seizawa Shii to be careful about what she said about our relationship when we had dinner after having sex, but I don't know if Seizawa Shii will listen to me. Still, I asked her to keep it private, so she probably won't say anything.</p>
-<p>"Welcome~!"</p>
+<p>"Welcome!"</p>
 <p>When I opened the basement door, Eve was welcoming us. She was wearing a special outfit every time I visited, but today she was wearing an outfit in the style called "past jirai-kei."</p>
 <p>Of course, Seizawa Shii, who doesn't know the exact name because it was an old trend, approached Eve in a friendly manner, even though it was her first time meeting her, saying, "Who are you? Your style is pretty."</p>
 <p>"...Jirai-kei?"</p>
 <p>However, Minamoto Lisa, who enjoys classical materials, immediately recognized Eve's outfit.</p>
 <p>"I'm Eve, who manages the Am-sang branches!"</p>
 <p>"Eve? Hmm... I'll call you Eve-chan! I'm Seizawa Shii. Call me Shii-chan too."</p>
-<p>"Okay, Shii-chan~!"</p>
-<p>When I approached Seizawa Shii and Eve, who were becoming friends in real time, Eve greeted us, saying, "Ryuta-nim, Lisa-nim, you've arrived~!"</p>
+<p>"Okay, Shii-chan!"</p>
+<p>When I approached Seizawa Shii and Eve, who were becoming friends in real time, Eve greeted us, saying, "Ryuta-nim, Lisa-nim, you've arrived!"</p>
 <p>"Yes, Eve. How have you been?"</p>
-<p>"I haven't been doing well because Ryuta-nim is busy and doesn't visit often~!"</p>
+<p>"I haven't been doing well because Ryuta-nim is busy and doesn't visit often!"</p>
 <p>Of course, it's a secret from Seizawa Shii and Minamoto Lisa that I'm the CEO of TG Tech, so it seemed like Eve was answering appropriately. I've been talking to her often recently because of work, so we've been interacting frequently.</p>
 <p>"It's been a long time, Minamoto-ssi, hasn't it?"</p>
 <p>"Yeah, there's nothing to buy at Am-sang as a student..."</p>
@@ -70,15 +70,15 @@ chapter = 671
 <p>At Eve's question, Seizawa Shii started to give a slightly abbreviated explanation of what she had told Minamoto Lisa earlier. Eve's eyes sparkled, and she nodded, agreeing with her. Since Eve agreed with her so well, Seizawa Shii was excited to talk.</p>
 <p>"...So, I came to find a new broker."</p>
 <p>"I see. I guess I'll be the broker then."</p>
-<p>"Wow~ Eve-chan does that too?"</p>
+<p>"Wow Eve-chan does that too?"</p>
 <p>Seizawa Shii tilted her head and asked when Eve said she would directly broker for her. It seemed like Seizawa Shii thought Eve was just an employee of the Am-sang branch.</p>
 <p>"Eve is an artificial intelligence android. She knows all the information about Am-sang."</p>
-<p>"Oh, how can you explain it so boringly, Ryuta-nim~!"</p>
+<p>"Oh, how can you explain it so boringly, Ryuta-nim!"</p>
 <p>Eve scolded me at my explanation. It seemed like Eve was planning to tease Seizawa Shii a bit.</p>
-<p>"Ah~! Is that so? She just looks like a person?"</p>
+<p>"Ah! Is that so? She just looks like a person?"</p>
 <p>Seizawa Shii grabs Eve's hand with a curious face. And then she's surprised again.</p>
 <p>"Not only does she look like a person, but she even feels like one?"</p>
-<p>"Thank you, Shii~! Don't flatter me too much."</p>
+<p>"Thank you, Shii! Don't flatter me too much."</p>
 <p>"She looks like a person?" seems to be a compliment to Eve. Judging by the fact that she's smiling happily.</p>
 <p>"Ahem, shouldn't we talk about the mission first?"</p>
 <p>When Minamoto Lisa, who had been alienated for a while, spoke, Eve started explaining, saying, "Ah, right! We were talking about our mission."</p>

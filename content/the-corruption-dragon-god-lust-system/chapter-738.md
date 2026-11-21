@@ -51,9 +51,9 @@ chapter = 738
 
 <p>The beauty shuddered from head to toe, feeling every pulsing vein of Qingyi’s cock throb against her sensitive skin, the thick member sinking slowly into the warm cleft of her perfect bottom.</p>
 
-<p>“Ah~~ can’t you fuck us without embarrassing us?” Biyue moaned, her face on fire, able to see only Feiyan’s face just below hers—an expression full of mischievous glee.</p>
+<p>“Ah can’t you fuck us without embarrassing us?” Biyue moaned, her face on fire, able to see only Feiyan’s face just below hers—an expression full of mischievous glee.</p>
 
-<p>“What’s the matter, little sister Biyue?” Feiyan gave a soft, lewd chuckle. “You weren’t this shy when we drowned in his cum together last week, hmm? Fufufu~”</p>
+<p>“What’s the matter, little sister Biyue?” Feiyan gave a soft, lewd chuckle. “You weren’t this shy when we drowned in his cum together last week, hmm? Fufufu”</p>
 
 <p>She loved to tease—and, above all, she loved to see the purest beauties of Qingyi’s harem squirm with embarrassment under her gaze.</p>
 
@@ -71,9 +71,9 @@ chapter = 738
 
 <p>The next moment, he thrust his hips forward with force.</p>
 
-<p>“MGHNN~~”</p>
+<p>“MGHNN”</p>
 
-<p>“AGHNN~~”</p>
+<p>“AGHNN”</p>
 
 <p>Clap</p>
 
@@ -97,9 +97,9 @@ chapter = 738
 
 <p>clap</p>
 
-<p>“Nghnn~~ hubby~~ f-faster~~ oghnn~~ fuck Feiyan’s little pussy faster hubby!”</p>
+<p>“Nghnn hubby f-faster oghnn fuck Feiyan’s little pussy faster hubby!”</p>
 
-<p>“Oghnn~~ fuck~~ g-gentler, hubby… g-gentler~~”</p>
+<p>“Oghnn fuck g-gentler, hubby… g-gentler”</p>
 
 <p>The two beauties moaned in unison, though their words were completely at odds—just like their voices: one obscene and mischievous, the other noble and sensual.</p>
 

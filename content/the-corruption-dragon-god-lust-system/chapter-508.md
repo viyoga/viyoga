@@ -85,11 +85,11 @@ chapter = 508
 
 <p>“Hm… the whole day.” Qingyi laughed, also getting up. He pulled Sapphire toward him and gave her ass a firm slap, grabbing her pale, milky skin firmly.</p>
 
-<p>“Nghnn~~ Husband!” Sapphire squealed, burying her face in Qingyi’s chest.</p>
+<p>“Nghnn Husband!” Sapphire squealed, burying her face in Qingyi’s chest.</p>
 
 <p>“Let’s go,” he said, looking at the horizon beyond the bedroom window. “It’s late, Celestia must be worried.”</p>
 
-<p>“Hm… that little priestess is always like that, fufufu~~” Sapphire giggled, stretching and then relaxing, regaining some of her sparkle. From what Sapphire knew of Celestia, she was probably praying for Auranys, asking her to bless everyone there.</p>
+<p>“Hm… that little priestess is always like that, fufufu” Sapphire giggled, stretching and then relaxing, regaining some of her sparkle. From what Sapphire knew of Celestia, she was probably praying for Auranys, asking her to bless everyone there.</p>
 
 <p>It was cute.</p>
 

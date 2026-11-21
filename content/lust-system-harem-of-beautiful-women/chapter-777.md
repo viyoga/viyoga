@@ -21,7 +21,7 @@ chapter = 777
 
 <p>&quot;Hehe... So I’ve become a widow just like that. What’s that saying—’the surviving wife,’ right?!&quot;</p>
 
-<p>Bella purred seductively, &quot;Darling, isn’t it more exciting to fuck a widow?~&quot;</p>
+<p>Bella purred seductively, &quot;Darling, isn’t it more exciting to fuck a widow?&quot;</p>
 
 <p>&quot;Fuck off...&quot;</p>
 

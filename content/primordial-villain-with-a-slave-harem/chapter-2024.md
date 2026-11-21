@@ -51,7 +51,7 @@ chapter = 2024
 <p>The elf leaned closer as they ran, taking a curious sniff near her shoulder. Her long ears twitched.</p>
 <p>"Wait... What’s that smell?"</p>
 <p>"Blood."</p>
-<p>"Hmm..." The elf considered her for a moment. "That, or someone had quite the morning~"</p>
+<p>"Hmm..." The elf considered her for a moment. "That, or someone had quite the morning"</p>
 <p>Black Fang turned an ice-cold gaze on her.</p>
 <p>The blonde beauty met it with wide-eyed, angelic innocence, her smile sweet enough that Della found herself staring.</p>
 <p>’What a strange woman...’ she wondered inwardly just as the older man reached toward his belt.</p>

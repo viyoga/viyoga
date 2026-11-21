@@ -65,7 +65,7 @@ chapter = 72
 
 <p>&quot;Brother-in-law didn’t. She suddenly video called. By the way, what does she have on you that made you cooperate so willingly?&quot;</p>
 
-<p>&quot;Ah, don’t ask about it~&quot;</p>
+<p>&quot;Ah, don’t ask about it&quot;</p>
 
 <p>The girl with a youthful face and huge boobs had a soft, glutinous voice. Without even trying to sound cute, it made one’s bones melt, especially with this reproachful, slightly coquettish tone that tested a man’s self-control.</p>
 

@@ -87,4 +87,4 @@ chapter = 750
 <p>_______________</p>
 <p>Kkan Yuka crop top + jeans + armpit illustration requested by RefundAbsolutelyImpossible-nim!</p>
 <p>Bonus Covered Yuka VER!</p>
-<p>Kkiyot~!</p>
+<p>Kkiyot!</p>

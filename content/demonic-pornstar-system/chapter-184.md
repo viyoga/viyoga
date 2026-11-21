@@ -17,7 +17,7 @@ chapter = 184
 <p>- General McCallahan: What the actual hell is going on right now? I just left a dungeon and was recommended to watch this stream. Is this supposed to be some kind of emergency broadcast or...?</p>
 <p>The chat briefly stuttered, then exploded. It was as if someone had thrown gasoline on an already raging fire. Thousands of new users were pouring in by the second, some of whom paid the Verified Membership tax of 10 Chronos immediately upon entry.</p>
 <p>And now even government feeds were quietly boosting the stream.</p>
-<p>- 🦊VixieHex, Monster Domme VTuber: It’s not an emergency, tin-man. Unless you count a goddess in heat about to get dicked down by the hottest sweetiepie alive as a global crisis. Welcome to the show~</p>
+<p>- 🦊VixieHex, Monster Domme VTuber: It’s not an emergency, tin-man. Unless you count a goddess in heat about to get dicked down by the hottest sweetiepie alive as a global crisis. Welcome to the show</p>
 <p>- General McCallahan: ... What the hell kind of op is this?!</p>
 <p>- Captain Tavares: They dropped this into the military onboarding list? No way.</p>
 <p>- Arjun07: Same here! I opened my Awakened Media tab during my break, and this was the top recommended link!</p>

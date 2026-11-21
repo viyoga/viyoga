@@ -7,7 +7,7 @@ chapter = 660
 
 <p>As soon as the phone call ended, Ariana couldn&#x27;t help but ask in confusion, &quot;What&#x27;s wrong with my mom and the others? Instead of calling me or Leah, they all called my brother-in-law.&quot;</p>
 
-<p>Leah giggled mischievously and said, &quot;To catch the general, you have to capture the king first~ Don&#x27;t you even understand that?&quot;</p>
+<p>Leah giggled mischievously and said, &quot;To catch the general, you have to capture the king first Don&#x27;t you even understand that?&quot;</p>
 
 <p>Laughing and joking like that, the skewers quickly arrived at the table. The two young girls were truly starving, and since nothing had been specified earlier, the skewers came out spicy by default.</p>
 
@@ -107,7 +107,7 @@ chapter = 660
 
 <p>So now, she felt a bit uncomfortable. But when she saw that her two cousins seemed completely used to it, she felt too embarrassed to say anything.</p>
 
-<p>Leah adjusted the air conditioner to a lower temperature and, seeing her cousin&#x27;s awkward demeanor, said with a playful laugh, &quot;Oh my~ So you do know how to be embarrassed, huh?&quot;</p>
+<p>Leah adjusted the air conditioner to a lower temperature and, seeing her cousin&#x27;s awkward demeanor, said with a playful laugh, &quot;Oh my So you do know how to be embarrassed, huh?&quot;</p>
 
 <p>&quot;Quit pretending. My brother-in-law always dresses like this at home. Even when your mom and my mom are here, it&#x27;s the same. We&#x27;re all family, so just be as comfortable as you want.&quot;</p>
 

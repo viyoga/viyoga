@@ -6,7 +6,7 @@ chapter = 127
 +++
 
 <p>Broderick crosses his arms, surveying the devastation with a grim expression. "We won't find any survivors here. The orcs' gear and corpses are going to be the only points of interest in this place. Babe, you have the dimensional ring on you? Let's collect the best items."</p>
-<p>"Yes, hubby~" Marjorie purrs, a sound which makes me involuntarily shudder from head to toe. Please don't flirt in front of me… I will have trouble tending to Blossom's fertile fields at night if you keep this shit up.</p>
+<p>"Yes, hubby" Marjorie purrs, a sound which makes me involuntarily shudder from head to toe. Please don't flirt in front of me… I will have trouble tending to Blossom's fertile fields at night if you keep this shit up.</p>
 <p>I've already gotten used to this giant woman's and her flabby skin's sight, so I don't cringe when she acts normally, but each time she does something a lover would I can't help myself from imagining how she looks without her loose robe, how it would feel to embrace her, and I find myself fighting to keep my sanity intact.</p>
 <p>And I'm really not one to fat shame others, mostly because I just don't care about other people in general, but when I'm forced to witness such a sight I simply lose my way in life.</p>
 <p>I quickly approach Blossom and hug her from behind, as my brain is in desperate need of positive emotions. "Master?" She doesn't object or attempt to evade nor disengage from my hold at all, just glances back over her shoulder questioningly.</p>

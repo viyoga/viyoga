@@ -17,11 +17,11 @@ chapter = 90
 
 <p>&quot;You’re pleasuring your own mom. How am I supposed to learn anything when you force me to close my eyes?&quot; Owen slowly moved his hips upward, rubbing his hard shaft right back against her leaking pussy.</p>
 
-<p>&quot;Nghh~hnn! You can’t say that... Ahnn, this is my special teaching, so it’s all new for you, my dear Wen... nghnn!&quot; Arielle shamelessly rubbed her pussy faster against him as she made her weak claim.</p>
+<p>&quot;Nghhhnn! You can’t say that... Ahnn, this is my special teaching, so it’s all new for you, my dear Wen... nghnn!&quot; Arielle shamelessly rubbed her pussy faster against him as she made her weak claim.</p>
 
 <p>&quot;You’re shameless, Mom. You just want to savor my cock for yourself...&quot; Owen reached out and grabbed her thighs, gripping them tightly as he thrust his cock upward with a sharp push, sending a hot jolt through her entire body.</p>
 
-<p>’Ngh~hnn! Ahh... ahh, just one... ahnn, I just want to squirt once, and nothing more... ahnn,’Arielle convinced herself inside her head. She didn’t mind Owen moving his body without her permission, as long as he kept his eyes strictly closed.</p>
+<p>’Nghhnn! Ahh... ahh, just one... ahnn, I just want to squirt once, and nothing more... ahnn,’Arielle convinced herself inside her head. She didn’t mind Owen moving his body without her permission, as long as he kept his eyes strictly closed.</p>
 
 <p>&quot;Yes... ahnn, I’m your selfish and greedy mom... ahnn. So please understand my side, okay? Ahnn...&quot; Arielle could feel her heavy tits heating up as warm milk started leaking out from her tips after she gently twisted her nipples again.</p>
 
@@ -75,7 +75,7 @@ chapter = 90
 
 <p>&quot;Then I’ll take those loud moans as a yes, Mom! Now it’s time for you to squirt all over me and tell me that you love me!&quot;</p>
 
-<p>&quot;Ahnn!! Ahnnnn!! I’m cumming, my dear Wen! Nghh~hhnn!!!&quot;</p>
+<p>&quot;Ahnn!! Ahnnnn!! I’m cumming, my dear Wen! Nghhhhnn!!!&quot;</p>
 
 <p>Squirtt!! Squiirtt!!! Squirttt!!!</p>
 

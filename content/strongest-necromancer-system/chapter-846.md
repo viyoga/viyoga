@@ -40,5 +40,5 @@ chapter = 846
 <p>"Wait, don’t eat all of it! Save some for the ladies – Whoa, this is good!"</p>
 <p>The men were all shocked when they took bites from the meat Jason had cooked and realised that it was fucking good! Jason had once been a professional chef in his mother’s restaurant, and he cooked hundreds of meat patties on a daily basis, so something like grilling was nothing to him!</p>
 <p>A feminine laugh came from the main door, and Jason looked up to see Gina walking out of the house with some other girls who were all looking at him and laughing shyly. Gina had a blush on her face as she listened to what a younger girl was saying to her, and she couldn’t keep her eyes away from Jason when she saw what he was wearing! The pink apron had been a part of Gina’s family tradition for generations, and the fact that Jason was wearing it meant that Gina’s father and uncles had accepted Jason into the family! Jason looked like a typical husband, and Gina found it undeniably attractive. Jason noticed Gina staring, and he winked at her with a grin before taking a drink of beer!</p>
-<p>"Oooooouuuu~!"</p>
+<p>"Oooooouuuu!"</p>
 <p>The girls all made teasing noises at Gina when they saw this, and Gina’s blush grew larger as she quickly moved to help someone else with organising the rest of the picnic!</p>

@@ -45,7 +45,7 @@ chapter = 952
 <p>Kaiden took a slow sip of coffee he had let go cold twenty minutes ago and elected to say nothing at all.</p>
 <p>The Flame Monarch’s grin came off her face one muscle at a time. She turned her head very slowly to the left, confirmed the thing she had already worked out, and held perfectly still for two entire seconds with her mouth slightly open.</p>
 <p>"...How long has she been standing there."</p>
-<p>"The whole time~" Nyx purred.</p>
+<p>"The whole time" Nyx purred.</p>
 <p>"Why did no one tell me?"</p>
 <p>"Because we didn’t know you were about to badmouth mother-in-law?" Aria spoke up, instantly embracing the role of the perfect daughter-in-law, ready to defend Vespera. Whatever it took to earn her lover’s mom’s acceptance, the yandere valkyrie was ready to pay up.</p>
 <p>"I wasn’t."</p>

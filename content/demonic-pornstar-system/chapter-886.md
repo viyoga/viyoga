@@ -10,7 +10,7 @@ chapter = 886
 <p>When they reached the main hall, Aria stopped pretending she was walking at a normal pace.</p>
 <p>She turned, found Nyx and Calypso in the group, and the look on her face was pure, shameless need. "Do me a solid and don’t let others disturb?"</p>
 <p>Nyx took one look at the yandere’s expression, at the white-knuckled grip on Kaiden’s arm, and grinned. "Leave some Kai for the rest of us."</p>
-<p>Calypso grinned, tail flicking. "What she said~"</p>
+<p>Calypso grinned, tail flicking. "What she said"</p>
 <p>Aria was already pulling Kaiden toward the bath before they finished talking.</p>
 <p>"Big brother will need a big meal after this...!" Alice declared to the hall at large, arms crossed, lower lip jutting forward with enough force to qualify as a weapon. "The harpies will drain him dry when he’s already drained! Hmph!"</p>
 <p>She turned on her heel, seized Alexandra by the hand, and began marching toward the kitchen. "Come. We’re cooking."</p>
@@ -39,7 +39,7 @@ chapter = 886
 <p>Nyx smirked. "You’re enjoying this way too much."</p>
 <p>"Start preventative training now," Calypso said, ignoring the Space Valkyrie’s amused words, fingers settling on her belly, "or you really will be a fat cow. And not the cute kind."</p>
 <p>"Hey... Are you trying to make me cry...?" Nyx giggled.</p>
-<p>"Make you cry? No, why would I?" Calypso purred, then followed that up by leaning in close, lips brushing the shell of Nyx’s ear as she whispered in a low, sultry tone, "But if you do become a cute pink cow, this ravenous demoness might just have to eat you up~"</p>
+<p>"Make you cry? No, why would I?" Calypso purred, then followed that up by leaning in close, lips brushing the shell of Nyx’s ear as she whispered in a low, sultry tone, "But if you do become a cute pink cow, this ravenous demoness might just have to eat you up"</p>
 <p>Nyx’s smirk wavered.</p>
 <p>She pressed both hands on the demoness’s and released a short exhale through her nose. "Let’s get started then, you bully. I’m no cow anyone’s eating, much less you."</p>
 <p>Calypso’s laugh echoed down the corridor as the two of them headed for the training grounds, and the Abyssal Palace settled into its evening rhythm: Luna and Bastet’s trash talk bleeding through the walls, the clatter of pots from the kitchen where Alice had seized command, and the faint sound of water running deep in the bath wing where a yandere eyed her prize.</p>

@@ -25,7 +25,7 @@ chapter = 503
 
 <p>He felt his cock reach its limit and then erupt into Isabel’s lips, her throat working tirelessly to swallow all his cum.</p>
 
-<p>“Ah~~” Taking the last sip of cum, Isabel climbed on top of Qingyi, pressing him against the bed. Her enormous breasts hung heavily, her pink nipples sliding against his powerful chest.</p>
+<p>“Ah” Taking the last sip of cum, Isabel climbed on top of Qingyi, pressing him against the bed. Her enormous breasts hung heavily, her pink nipples sliding against his powerful chest.</p>
 
 <p>Feiyan and Ruyan were lying next to him, both covered in warm, pearly liquid, their voluptuous bodies overcome with exhaustion.</p>
 
@@ -71,7 +71,7 @@ chapter = 503
 
 <p>“Big sister?…” Khaedryss narrowed her eyes.</p>
 
-<p>“Well, they are big, fufufu~~” She covered her lips, letting out an elegant laugh, contrasting with her previous wild and hungry attitude.</p>
+<p>“Well, they are big, fufufu” She covered her lips, letting out an elegant laugh, contrasting with her previous wild and hungry attitude.</p>
 
 <p>Qingyi watched this with a gentle smile before taking a seat for himself.</p>
 

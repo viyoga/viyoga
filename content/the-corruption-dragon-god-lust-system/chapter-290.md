@@ -101,7 +101,7 @@ chapter = 290
 
 <p>This time, she didn’t hand it directly to Qingyi, just pushed it towards him and signaled for him to take it.</p>
 
-<p>“You may mmhm~~ withdraw.” Meilin ordered as she stood up, walking towards the same shelf as before with trembling steps.</p>
+<p>“You may mmhm withdraw.” Meilin ordered as she stood up, walking towards the same shelf as before with trembling steps.</p>
 
 <p>“Thank you, young miss Meilin.”</p>
 

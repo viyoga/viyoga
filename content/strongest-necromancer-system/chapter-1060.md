@@ -17,7 +17,7 @@ chapter = 1060
 <p>Vinaris gave the King a snake-like smile in return.</p>
 <p>"Of course, Your Majesty. Everything I do, I do for the glory of your kingdom."</p>
 <p>Tigal’s face split into a wide smile, and he pat Vinaris on the back a few times!</p>
-<p>"You are a good man, Vinaris. You will have anything you want when my rule is solidified in this world. Maybe one day I can even seek the throne of the Overlord himself and become the new ruler of this domain! That fool Farlow does not deserve to be on that seat! HAHAHAHA~!"</p>
+<p>"You are a good man, Vinaris. You will have anything you want when my rule is solidified in this world. Maybe one day I can even seek the throne of the Overlord himself and become the new ruler of this domain! That fool Farlow does not deserve to be on that seat! HAHAHAHA!"</p>
 <p>Tigal suddenly threw his head back and began to laugh loudly, and Vinaris narrowed his eyes as he got a message from someone far away. Vinaris’ mouth split into a sly smile, and he stepped away from the King and bowed his head slightly.</p>
 <p>"I am glad to be in your presence, my Lord."</p>
 <p>King Tigal frowned slightly when he saw Vinaris do this, and somewhere deep inside him, Tigal knew that Vinaris was not speaking to him. Tigal stepped forward to ask Vinaris what he was doing, but Tigal stopped as he saw a bright blue light shining from beside him! Tigal turned and watched as a blue Dimensional Gate tore open on his left, and a prideful voice echoed from beyond the gate.</p>

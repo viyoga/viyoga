@@ -33,7 +33,7 @@ chapter = 263
 <p>Aria tilted her head, making her silver hair cascade over her shoulder as her whole body language emitted nothing but danger alarms. "You’re not one to talk about dickriding... Have you even looked at where you’re seated, miss?"</p>
 <p>Luna didn’t even have to blink at the Moon Valkyrie’s hostile tone and words. Her smirk only widened, and mischief danced in her eyes.</p>
 <p>"In MY boyfriend’s lap," she replied smugly. "What about it? At least I’m honest with what I want: his love and affection, both physical and emotional. I want to feel his warmth as I rest in his arms after a long day of dungeon combat. There’s nothing wrong with that, is there? But what about you? I can’t tell if you’re his actual girlfriend or just one of the numerous fangirls."</p>
-<p>She leaned toward Aria and practically purred the next line right into the woman’s ears, "If you’re the latter, better get in line behind Alice as the number two fangirl, princess~"</p>
+<p>She leaned toward Aria and practically purred the next line right into the woman’s ears, "If you’re the latter, better get in line behind Alice as the number two fangirl, princess"</p>
 <p>Aria’s eyes narrowed.</p>
 <p>Her fingers drifted toward her staff.</p>
 <p>Luna, to her credit, didn’t flinch. In fact, she straightened her spine as if daring the moonlight mage to try something.</p>

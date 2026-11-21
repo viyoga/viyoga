@@ -93,7 +93,7 @@ Arya put her hand behind her and held Lith's shaft. Positioning right at her pus
 
 His meatstick slowly entered the warm and soft canals of his wife which were enveloping tightly around it, making Lith feel even more bliss.
 
-While having a full feeling, Arya softly said, "Mhmm~… Didn't you come here for work, honey? Don't you want an update?"
+While having a full feeling, Arya softly said, "Mhmm… Didn't you come here for work, honey? Don't you want an update?"
 
 "Ah…" Lith suddenly realized. Right, he came here for work and had mentioned it in passing while explaining about Dushkarbor's adventures.
 

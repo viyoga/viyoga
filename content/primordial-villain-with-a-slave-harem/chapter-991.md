@@ -40,7 +40,7 @@ chapter = 991
 <p>"You are really cute, so it’s only fitting. A cute name for a cute girl," Serika said, smiling through tears.</p>
 <p>Mimi’s face turned the faintest shade of violet as she beamed, wings fluttering in glee. She twirled once in the air and hugged Rosie from behind, nuzzling her leaf-like hair.</p>
 <p>"Th-thank you for naming me, Big Sis Rosie!"</p>
-<p>"You’re welcome, Little Sis Mimi~!"</p>
+<p>"You’re welcome, Little Sis Mimi!"</p>
 <p>And just like that, a new name was born. A new being was welcomed. And a broken soul, once heavy with burdens, fluttered freely once again.</p>
 <p>...</p>
 <p>"So is Mimi the same species as you?" Quinlan asked, watching from a distance the trio of Serika, Rykar, and Mimi converse.</p>

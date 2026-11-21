@@ -41,8 +41,8 @@ chapter = 633
 <p>Truly it would be…</p>
 <p>“I apologize but… could you guys please stop the drama already?” Out of nowhere, a clock manifested between her and Lilith, severely slowing her down.</p>
 <p>This lasted for but an instant but in a fight between powerhouses at their level, a missed instant was the moment that decided life and death.</p>
-<p>Swoosh~!</p>
-<p>A clean line was drawn on her body as Lilith's sword slashed down, “Hah~”</p>
+<p>Swoosh!</p>
+<p>A clean line was drawn on her body as Lilith's sword slashed down, “Hah”</p>
 <p>“I believe scum should die like scum. Who gave you the right to die as a warrior?”</p>
 <p>Steps reached her even as her vision dimmed. She recognized the voice, that of Mars’ son.</p>
 <p>So, this is how it ends?</p>

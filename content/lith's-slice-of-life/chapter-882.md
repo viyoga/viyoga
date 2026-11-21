@@ -25,7 +25,7 @@ Shaking orgasms were reserved for Lith solely. She didn't want Rain to see her v
 
 However, Lith being Lith, decided to not heed her call and rammed his hips faster, creating loud slapping sounds.
 
-"Nnghhh~" Arya moaned in pleasure, but quickly squeezed Lith's thighs even tighter, having some blood leak out.
+"Nnghhh" Arya moaned in pleasure, but quickly squeezed Lith's thighs even tighter, having some blood leak out.
 
 'Oh shit, she was serious.' Lith thought to himself and finally slowed down, realizing that this matter wasn't meant to be taken lightly.
 

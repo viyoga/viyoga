@@ -79,7 +79,7 @@ chapter = 428
 
 <p>Her cheeks flushed and her full, pink lips parted.</p>
 
-<p>“Nghnn~~” A short, soft moan escaped them before she finally acted.</p>
+<p>“Nghnn” A short, soft moan escaped them before she finally acted.</p>
 
 <p>She went airborne, her body spinning once before landing a short distance away.</p>
 

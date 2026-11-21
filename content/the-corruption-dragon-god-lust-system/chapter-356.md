@@ -95,7 +95,7 @@ chapter = 356
 
 <p>“Thank you, mother-in-law, she also seems to be getting on well with the… uh…”</p>
 
-<p>“Other wives? Fufufu~~” Maoyue laughed elegantly. “Tai’Ren talked about this artifact of yours, it’s quite interesting. But don’t worry, it’s only natural for powerful men to gather many beauties…</p>
+<p>“Other wives? Fufufu” Maoyue laughed elegantly. “Tai’Ren talked about this artifact of yours, it’s quite interesting. But don’t worry, it’s only natural for powerful men to gather many beauties…</p>
 
 <p>Tai’Ren once had a thousand concubines when he was younger, but nowadays he barely keeps ten by his side.</p>
 

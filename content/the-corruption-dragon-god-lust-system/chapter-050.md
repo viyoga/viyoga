@@ -165,7 +165,7 @@ chapter = 50
 
 <p>Her pale skin was flushed, an almost endless stream of liquid flowing down her legs.</p>
 
-<p>“Ghn~~” she moaned as she moved her hands.</p>
+<p>“Ghn” she moaned as she moved her hands.</p>
 
 <p>What the hell was happening to her? Why was her body reacting like this to Qingyi’s energy and body?</p>
 
@@ -179,7 +179,7 @@ chapter = 50
 
 <p>One of her fingers sank into her plump slit while the other hand grasped her breasts, the thin, delicate fingers sinking into the pale, voluptuous skin.</p>
 
-<p>“Mmph~” She bit her full lips as she sank a second finger in.</p>
+<p>“Mmph” She bit her full lips as she sank a second finger in.</p>
 
 <p>How many decades had it been since she’d touched herself like that? Never again had she thought she’d have to stoop to such a level.</p>
 
@@ -193,13 +193,13 @@ chapter = 50
 
 <p>The tightness in her breasts grew even stronger, a muffled moan echoing through her room as she moved her fingers between the swollen, soaked lips of her pussy, massaging her clitoris.</p>
 
-<p>“Hnngh… ah~” Her fingers slid in easily with all the moisture oozing out of her.</p>
+<p>“Hnngh… ah” Her fingers slid in easily with all the moisture oozing out of her.</p>
 
 <p>She knew it was pathetic for someone as powerful as her to masturbate while thinking about an ant that would never reach her feet.</p>
 
 <p>But she couldn’t stop, the movement of her hand getting faster and faster, the soft, pale skin of her pussy being squeezed as she pressed even harder.</p>
 
-<p>“Aghhn~~ Fuck~” she moaned as her pussy squirted non-stop, her lips releasing a sweet symphony as her body trembled.</p>
+<p>“Aghhn Fuck” she moaned as her pussy squirted non-stop, her lips releasing a sweet symphony as her body trembled.</p>
 
 <p>The grip on her breasts became so strong that she felt pain, her tongue slipping out of her mouth and smearing her lips with saliva.</p>
 

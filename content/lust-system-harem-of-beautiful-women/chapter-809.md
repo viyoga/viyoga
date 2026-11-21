@@ -5,9 +5,9 @@ weight = 809
 chapter = 809
 +++
 
-<p>&quot;Bad man... don’t~...&quot;</p>
+<p>&quot;Bad man... don’t...&quot;</p>
 
-<p>&quot;Godfather~...&quot;</p>
+<p>&quot;Godfather...&quot;</p>
 
 <p>Their breasts pressed together, their bodies inevitably rubbing against each other. Though both shyly kept their eyes closed, they instinctively held each other.</p>
 
@@ -75,7 +75,7 @@ chapter = 809
 
 <p>After dressing, none of them mentioned the night before. Only then did mother and daughter begin to relax.</p>
 
-<p>&quot;Brother-in-law~!!&quot;</p>
+<p>&quot;Brother-in-law!!&quot;</p>
 
 <p>This time, Leah’s attitude was much better. In her school uniform, she looked adorable and delicate, like a porcelain doll you just wanted to kiss.</p>
 
@@ -85,7 +85,7 @@ chapter = 809
 
 <p>Pouting with mock jealousy, she groped Avery’s breasts through her clothes, those full mounds still covered with kiss marks from last night.</p>
 
-<p>&quot;Ahh~... if you’re jealous, just ask brother-in-law to take care of you~&quot;</p>
+<p>&quot;Ahh... if you’re jealous, just ask brother-in-law to take care of you&quot;</p>
 
 <p>Avery shot back, grabbing Leah’s chest. There was no need to ask, Avery’s flushed, satisfied face said it all.</p>
 
@@ -99,11 +99,11 @@ chapter = 809
 
 <p>But now that she’d fallen for her brother-in-law, she was dressing to please. And dresses were easier for fooling around, so she was getting used to them.</p>
 
-<p>&quot;It’s hot, this is more comfortable~!!!&quot;</p>
+<p>&quot;It’s hot, this is more comfortable!!!&quot;</p>
 
 <p>Ariana dressed coolly, and though she wasn’t busty, her youthful appeal was still striking.</p>
 
-<p>She pouted playfully. &quot;What’s for lunch? I’m starving~&quot;</p>
+<p>She pouted playfully. &quot;What’s for lunch? I’m starving&quot;</p>
 
 <p>Lily was off today but wasn’t home, she’d gone to Chloe’s place to see how they shot their short videos.</p>
 
@@ -119,7 +119,7 @@ chapter = 809
 
 <p>Sukiyaki-style snow beef, spicy braised ribs that were perfect with rice, premium abalone in broth, scallions braised with sea cucumber, and Turkish garlic lamb chops.</p>
 
-<p>&quot;This smells amazing~!&quot;</p>
+<p>&quot;This smells amazing!&quot;</p>
 
 <p>The little cousin’s eyes lit up as she savored the lamb chop in her mouth.</p>
 
@@ -129,11 +129,11 @@ chapter = 809
 
 <p>After a satisfying meal, Luis cleared the table. &quot;Let’s take a nap first. After you wake up, I’ll tutor you in English this afternoon.&quot;</p>
 
-<p>&quot;I’ll sleep with Avery~!!&quot;</p>
+<p>&quot;I’ll sleep with Avery!!&quot;</p>
 
-<p>Leah grabbed Avery’s hand, then looked at the blushing little cousin with a sly smile. &quot;Ariana, you can take the guest room or wherever you like~&quot;</p>
+<p>Leah grabbed Avery’s hand, then looked at the blushing little cousin with a sly smile. &quot;Ariana, you can take the guest room or wherever you like&quot;</p>
 
-<p>&quot;Okay~&quot;</p>
+<p>&quot;Okay&quot;</p>
 
 <p>Ariana replied softly, unusually shy.</p>
 

@@ -17,7 +17,7 @@ chapter = 514
 
 <p>Watching all this, Qingyi couldn’t help but be impressed, his eyes falling on a group of children running around a lake of spirit carp. Those were probably the youngest descendants of the Gold King.</p>
 
-<p>“I knew you would like this place, hehehe~~” Meilin smiled beside Qingyi, grabbing his arm and pulling him against her breasts-modest compared to her sisters’, but voluminous and soft nonetheless.</p>
+<p>“I knew you would like this place, hehehe” Meilin smiled beside Qingyi, grabbing his arm and pulling him against her breasts-modest compared to her sisters’, but voluminous and soft nonetheless.</p>
 
 <p>“Hm… it would be better if it were a little less crowded,” Qingyi nodded, taking a deep breath and smelling the sweet aroma of cherry blossom petals slowly falling to the ground.</p>
 

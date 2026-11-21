@@ -13,7 +13,7 @@ chapter = 823
 <p>The Test was over, and as if she had decided to openly break the school rules for a long time, Seizawa Shii, wearing a sky-blue Loli Dress instead of her School Uniform, asked me, looking at me. When I looked at her with an Expression as if asking what the hell this was, Seizawa Shii rather stood up from her Seat as if telling me to look closely.</p>
 <p>The Dress Seizawa Shii was wearing was similar to the Clothes I wore when I first arrived at St. Francis Girls' Academy's special class. At that Time, seeing Seizawa Shii's Attire, I thought the special class would be a complete delinquent class.</p>
 <p>"I have Paperwork, so I can't go to the club room."</p>
-<p>"Ei...! If we play among ourselves, it's not fun~!"</p>
+<p>"Ei...! If we play among ourselves, it's not fun!"</p>
 <p>Of course, I would also find it fun to play with the Students instead of doing Paperwork, but while I have the Status of a Teacher, I have to do what I have to do, so I couldn't help it.</p>
 <p>"And what is that Attire?"</p>
 <p>"Anyway, after the Last Test, no one bothers the third-year students. Even the disciplinary committee now is at its most lenient Time, so they can't pay much attention."</p>
@@ -63,8 +63,8 @@ chapter = 823
 <p>"Of course. On the contrary, it's a welcome!"</p>
 <p>I, smiling, nodded my Head. If it's Shimokawabe Airen, she would be able to deal with some Old Monsters of the Guardian Court that Takakusaki Gengo has at once.</p>
 <p>Urabe Konoka belly dancer, Breast Covering requested by Gojoy-nim!</p>
-<p>Belly dancer~!</p>
-<p>Breast Covering~!</p>
+<p>Belly dancer!</p>
+<p>Breast Covering!</p>
 <p>Hangari Muneo Swimsuit requested by chea yun-nim!</p>
 <p>Nagumo Sian Breast Covering + Randoseru + Bear Panties + embarrassed Expression requested by Iseibu-nim!</p>
 <p>I saw your revised Comment late, so I couldn't add the +bed hehehe.</p>

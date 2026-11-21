@@ -13,7 +13,7 @@ chapter = 974
 <p>"My father did not abandon you. He had no choice but to leave."</p>
 <p>"Your father was a fool! He led us into a war against the Primordials, knowing we stood no chance of victory! And you are a fool for still believing in him!"</p>
 <p>The man pointed a finger at Jason as anger flashed through his eyes for the first time since this conversation started, but Jason remained calm as he listened. The man spread his hands out and continued:</p>
-<p>"We were once the mightiest race in the Primordial Expanse! A warrior people who would not be dared by any of our enemies! And now look at us! Scavengers and refugees running from our past like cockroaches! That is the fault of your father! He brought us this shame! How dare he call himself king? And how dare you stand there and call yourself a prince? Haha~ I’ve been following your journey, you know..."</p>
+<p>"We were once the mightiest race in the Primordial Expanse! A warrior people who would not be dared by any of our enemies! And now look at us! Scavengers and refugees running from our past like cockroaches! That is the fault of your father! He brought us this shame! How dare he call himself king? And how dare you stand there and call yourself a prince? Haha I’ve been following your journey, you know..."</p>
 <p>At this point, the man’s form shifted into a perfect replica of Riyala, and Jason’s eyes widened in shock! The man turned to Jason and spoke kindly.</p>
 <p>"The saviour of Radagan. The dragonslayer who liberated the dragon people."</p>
 <p>The man’s form changed into a replica of Gina this time.</p>

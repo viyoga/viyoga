@@ -56,11 +56,11 @@ chapter = 23
 <p>When we went to the academy, they gave us temporary licenses. They said that the official license would arrive by mail within two weeks. We took a group photo again like the first time. The difference was that everyone was holding their temporary licenses and smiling.</p>
 <p>Now we just had to pack our things in the dorm and leave the academy. In fact, there wasn't much to pack besides clothes and toiletries. So I packed as quickly as possible and decided to fuck Hanako one last time at the academy. I stuffed all my luggage into my bag and headed to the room next door where Hanako was.</p>
 <p>I hugged Hanako from behind. When I hugged her, Hanako whined with a nasal voice.</p>
-<p>"Aang~! What are you doing~."</p>
+<p>"Aang! What are you doing."</p>
 <p>"I'm going to make memories with Hanako one last time."</p>
 <p>"Do you have to do it quickly?"</p>
 <p>It was actually a request close to coercion, but Hanako obediently lifted her skirt and pushed aside her panties. I shoved my dick into Hanako's already wet pussy, which didn't need any foreplay.</p>
-<p>"Hyaaang~!! This is it! I'm going to miss this, Ryuta-gun!"</p>
+<p>"Hyaaang!! This is it! I'm going to miss this, Ryuta-gun!"</p>
 <p>"If you miss it, contact me anytime. I'll come right over to stick it in."</p>
 <p>On the night of the fourth day, Hanako was completely defeated by me and said she wanted to break up with her boyfriend, but I didn't allow it. It's hotter when she has a boyfriend. After that, she sulked a little and declared to me that she would return to being a lovey-dovey couple with her boyfriend, but seeing Hanako already saying that she would miss my dick, it seemed that the lovey-dovey thing was out the window.</p>
 <p>"Hyaang! Heat! Hyaaang...!!"</p>
@@ -68,7 +68,7 @@ chapter = 23
 <p>Pang! Pang! Pang!</p>
 <p>As I moved my hips with a cheerful rhythm, I gradually felt the sensation of ejaculation.</p>
 <p>"Hah...hyaah.... Hyaang...! I'm, going again, going, euahyang!"</p>
-<p>"I'm going to cum too~!"</p>
+<p>"I'm going to cum too!"</p>
 <p>Now it was just internal ejaculation without saying anything. I filled her womb and vagina with as much thick semen as possible, gurgling.</p>
 <p>"Shall we go now?"</p>
 <p>As I spoke to Hanako, several translucent windows appeared for a moment.</p>

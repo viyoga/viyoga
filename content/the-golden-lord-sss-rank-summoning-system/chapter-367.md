@@ -18,7 +18,7 @@ chapter = 367
 <p>Being him was just too good, wasn’t it?</p>
 <p>Honestly, there wasn’t a shred of anger left in his heart toward the system.</p>
 <p>The system had screwed him over plenty early in his life, but well... at least now he was being rewarded for everything he’d been through.</p>
-<p>"Hmm~ slurp~ ah~"</p>
+<p>"Hmm slurp ah"</p>
 <p>Pop</p>
 <p>Faelith let Ethan’s cock slip from between her lips with a wet, obscene pop, a thick trickle of saliva running down her chin and dripping onto her collarbone.</p>
 <p>Gripping the dripping member with both hands, she began to stroke him vigorously, her delicate fingers barely able to close around the throbbing thickness.</p>
@@ -36,7 +36,7 @@ chapter = 367
 <p>With a single thrust, he penetrated her fully, his thick cock shattering her purity in one brutal shove and sinking into the wet depths of her tight womb, filling that elf with every inch of his throbbing length.</p>
 <p>Faelith’s plump ass crashed down against his lap with a loud, wet smack, each milky-white cheek quaking violently around Ethan’s thighs.</p>
 <p>Her white miniskirt flew up from the force, and the couch beneath them creaked in protest against the sheer violence of the penetration.</p>
-<p>"F-fuck~ nghnnnnn~"</p>
+<p>"F-fuck nghnnnnn"</p>
 <p>Faelith was just a mage, but at the fourth stage, her body remained far more resilient than that of an ordinary person.</p>
 <p>Even so, she felt as if she were about to shatter under the pressure of that thick cock buried so deep inside her.</p>
 <p>She fell backward, her head coming to rest against Ethan’s firm chest, her long silver hair spilling over his warm skin like a curtain of silk.</p>

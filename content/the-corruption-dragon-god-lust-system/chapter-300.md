@@ -51,7 +51,7 @@ chapter = 300
 
 <p>When everyone woke up, Elize was already in the kitchen, with breakfast prepared and placed on the large table in the temple’s dining room.</p>
 
-<p>“I woke up first, I get the husband, hehehe~~” She giggled as she jumped onto Qingyi’s lap, her huge boobs hitting his chest, the legs of the chair almost breaking under their combined weight.</p>
+<p>“I woke up first, I get the husband, hehehe” She giggled as she jumped onto Qingyi’s lap, her huge boobs hitting his chest, the legs of the chair almost breaking under their combined weight.</p>
 
 <p>Ignoring the other girls’ complaints, she cheerfully fed her husband.</p>
 
@@ -59,7 +59,7 @@ chapter = 300
 
 <p>“When will the auction start?” he asked, pulling her onto his lap and slapping her ass, grabbing the voluptuous flesh possessively.</p>
 
-<p>“Nghnn~~ in a few days at most… my brother must be wanting to rush things to show his support for the third prince and the great sects.</p>
+<p>“Nghnn in a few days at most… my brother must be wanting to rush things to show his support for the third prince and the great sects.</p>
 
 <p>The pavilion used to support the second prince, it would be good for you to get in touch with him too.”</p>
 

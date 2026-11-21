@@ -85,8 +85,8 @@ chapter = 1090
 <p>Vivian Taylor also seemed to realize that my Prankish Expression wasn't Sincerity, as she laughed and nodded her Head.</p>
 <p>Thus, we continued our Conversation amicably until the end, successfully concluding this contract with Mother Mars.</p>
 <p>Vivian Taylor left the reception room, saying she had Work to handle in the Vice President's Office, and we, guided once again by Anjali Patel, the Indian-American employee who had first guided us on our visit, returned to the Parking Lot where our vehicle was parked.</p>
-<p>Vivian Taylor Handshake Request B-cut~!</p>
-<p>Requested by Gojoy-nim: Yukiko reading a newspaper and Arisu greeting Ryuta after he's leaving work, Chapter 53 Remake~!</p>
-<p>Yukiko~!</p>
-<p>Arisu~!</p>
+<p>Vivian Taylor Handshake Request B-cut!</p>
+<p>Requested by Gojoy-nim: Yukiko reading a newspaper and Arisu greeting Ryuta after he's leaving work, Chapter 53 Remake!</p>
+<p>Yukiko!</p>
+<p>Arisu!</p>
 <p>Making her Hairstyle similar to Chapter 53 makes her feel less like Arisu, hehe.</p>

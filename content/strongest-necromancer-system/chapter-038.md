@@ -43,15 +43,15 @@ chapter = 38
 <p>Did Janet call because she saw Jason on TV when he was pulled into the Gate? It was a possibility.</p>
 <p>Jason shook his head and told Gina to forget about it. He really didn't want to talk about all that drama right now.</p>
 <p>He took the cup of coffee from Gina and put it beside his beer on the side table before he then brought Gina's head down for a kiss.</p>
-<p>"Mmh~"</p>
+<p>"Mmh"</p>
 <p>Gina moaned into his mouth and wrapped her hand around his neck while grinding her crotch against his own! Jason immediately began to grow erect, and Gina moaned into Jason's mouth as she felt his erection pressing into her ass.</p>
 <p>"Are you sure you don't want to talk about it?"</p>
 <p>Gina spoke up breathlessly. She knew that Jason was just trying to distract himself from the real issue, and she wanted to make sure he was really fine.</p>
 <p>Jason's only response was a grunt as he pulled her down for another heated kiss. Jason's hand went to Gina's ass and squeezed hard, and Gina groaned as she started moving even faster against his erection!</p>
 <p>Gina reached down for Jason's joggers and quickly pulled the band down to free his member, and Jason raised Gina with one hand while moving her panties to the side with his other! Gina positioned his member right at her entrance, and then she began to slowly lower herself.</p>
-<p>"Oh, fuck~"</p>
+<p>"Oh, fuck"</p>
 <p>Gina swore as she felt Jason slowly splitting her apart! She already knew that Jason was large, but she didn't think she would ever get used to his sheer size!</p>
 <p>Jason grunted as he felt his dick sinking into Gina's warmth, and he closed his eyes and leaned back as she continued to sit down slowly until she finally slapped their hips together while letting out an intense groan!</p>
 <p>Jason's hand snaked into Gina's shirt and went up to her naked breast! He squeezed her nipple, and Gina moaned as she put her hands on his shoulder and began to move.</p>
-<p>Slap~ Slap~ Slap~ Slap~</p>
+<p>Slap Slap Slap Slap</p>
 <p>The sound of skin slapping against skin filled the living room as Gina impaled herself on Jason's dick over and over again! Jason used both hands to grab Gina's breasts, and he watched her eyes glaze over as she bounced herself on him!</p>

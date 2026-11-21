@@ -99,7 +99,7 @@ chapter = 613
 
 <p>“Ah… hubby’s cock is so thick and hard in Ruyan’s tight little throat…” The naughty little demoness smiled, grabbing and stroking the shaft against her lips, her small, pale, delicate hands moving against the veiny, throbbing member.</p>
 
-<p>“I wonder who made him like this, huh?” Qingyi smiled, pulling away from Nianxue’s lips for a moment and stroking Ruyan’s black hair. “Little sister Nianxue, obviously… she’s devouring hubby’s lips so voraciously. Fufufu♡~~” Ruyan sealed her lips around the tip of the cock, her cheeks hollowed out by the suction.</p>
+<p>“I wonder who made him like this, huh?” Qingyi smiled, pulling away from Nianxue’s lips for a moment and stroking Ruyan’s black hair. “Little sister Nianxue, obviously… she’s devouring hubby’s lips so voraciously. Fufufu♡” Ruyan sealed her lips around the tip of the cock, her cheeks hollowed out by the suction.</p>
 
 <p>Her red eyes sparkled when she saw Nianxue’s blue skin take on a pinkish hue, full of shame.</p>
 
@@ -107,7 +107,7 @@ chapter = 613
 
 <p>Nianxue didn’t respond, a soft moan escaping her lips as a third finger sank into her pussy, massaging her clit.</p>
 
-<p>“Mmhm~~ H-husband loves Nianxue’s blue skin… Nianxue knows that very well, hehehe.” The blue demoness finally formed words, flushed and stuttering.</p>
+<p>“Mmhm H-husband loves Nianxue’s blue skin… Nianxue knows that very well, hehehe.” The blue demoness finally formed words, flushed and stuttering.</p>
 
 <p>Her slender torso, bearing large, magnificent blue tits, rose up, pulling away from Qingyi’s ribs and aligning itself with his face.</p>
 

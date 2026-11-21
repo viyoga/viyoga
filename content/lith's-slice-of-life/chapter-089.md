@@ -71,7 +71,7 @@ Sounds of flesh banging could be heard as Lith rammed his hips faster and faster
 
 *SPRRRUTTT*
 
-“Ahhhh~”
+“Ahhhh”
 
 Lilith orgasmed hard this time and she also squirted a little of her love juices. Lith had too climaxed for the second time but he did it along with his mother this time. He hugged her while his seeds were coming out and making Lilith feel warm once again inside her. Lilith hugged Lucy and Lucy hugged Lilith. They cuddled together like this and enjoyed their post orgasm bliss together.
 

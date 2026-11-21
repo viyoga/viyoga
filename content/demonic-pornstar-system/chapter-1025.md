@@ -58,7 +58,7 @@ chapter = 1025
 <p>"Come on, Lexi. Time to try pushing our big curves into some tight clothes."</p>
 <p>"H-hey..." Alexandra yelped.</p>
 <p>"They will be made to your measurements. No need for worry," Yunohana said with a smile. She, too, was a very well endowed woman. "You can tell the seamstresses what you liked about the estate’s robes, and anything you would like them to change."</p>
-<p>"Consider my curiosity to have peaked~"</p>
+<p>"Consider my curiosity to have peaked"</p>
 <p>...</p>
 <p>Their cars left the main road for a narrower street lined with pale shopfronts and wooden signs. Through the window, Kaiden saw a display of painted fans beside a confectioner whose counter was crowded with little boxes tied in colored string.</p>
 <p>The convoy stopped beneath the entrance to a walled garden court. A stone path ran between shallow ponds to a kimono house at the far end, with smaller shops opening onto covered walkways on either side.</p>
@@ -74,7 +74,7 @@ chapter = 1025
 <p>"Oh, dear."</p>
 <p>"Your beauty claims another victim, moon bestie."</p>
 <p>"Nyx, don’t even make such a joke. The only victim is Kai."</p>
-<p>"I’m afraid the decision isn’t up to you~"</p>
+<p>"I’m afraid the decision isn’t up to you"</p>
 <p>An older customer tried to cross from the sweets shop with a gift box held before him. The captain met him at the garden’s edge, listened to his explanation, then bowed to the man and guided him back toward the covered walkway.</p>
 <p>The customer accepted the refusal with a disappointed smile. He held up the box from behind the guard instead, and Kaiden thanked him with a wave.</p>
 <p>Normally, he would’ve accepted the gift himself. But with the recent developments, he thought it was best to behave with a bit more reservation.</p>

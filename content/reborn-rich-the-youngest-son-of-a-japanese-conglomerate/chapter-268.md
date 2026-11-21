@@ -15,7 +15,7 @@ chapter = 268
 <p>,Hmm, I don't think this is the way.</p>
 <p>,Yeah, the smell is getting weird too.... Let's go back.</p>
 <p>As we turned around to head back towards the main street, we heard a rough voice from behind. The sound of clearing phlegm and snickering wasn't a good sign.</p>
-<p>,Hey~! Where do you think you're going?</p>
+<p>,Hey! Where do you think you're going?</p>
 <p>,If you came in, you have to pay the toll, huh?!</p>
 <p>I glanced back and saw two rough-looking thugs approaching us. One was a shaved-head guy with sunglasses, and the other had a red mohawk. Both had tattoos on their bare skin that wasn't covered by their clothes, so they looked like delinquents at a glance.</p>
 <p>Hmm, you have to be this level to be called a thug. Just bleaching your hair blonde and getting a tan doesn't make you a blonde-tanned thug. It just makes you a blonde-tanned guy. Since I'm a teacher, it's probably better than being considered a thug, right?</p>
@@ -52,12 +52,12 @@ chapter = 268
 <p>Tuduck!</p>
 <p>I became impatient without realizing it and tore off one of Han Yu-gyeong's shirt buttons. It was because I was curious about her breasts, which she said had gotten bigger. Since one button was already torn, I spread Han Yu-gyeong's shirt open.</p>
 <p>Tutututuduck!</p>
-<p>Buttons flew in all directions, revealing Han Yu-gyeong's breasts in her bra. I was expecting her breasts to jiggle with a,taeng~! sound, but because her bra was firmly supporting them, they didn't jiggle as I had hoped.</p>
+<p>Buttons flew in all directions, revealing Han Yu-gyeong's breasts in her bra. I was expecting her breasts to jiggle with a,taeng! sound, but because her bra was firmly supporting them, they didn't jiggle as I had hoped.</p>
 <p>,Kyaak♥</p>
 <p>She said,Kyaak with her mouth, but Han Yu-gyeong liked it when I was a little rough. The bra had a front hook, so I easily disarmed it as well. Only then did her breasts, having found freedom, jiggle and show a lively appearance.</p>
 <p>Her white breasts and pink nipples were revealed, and they definitely seemed a little bigger than before.... Wouldn't I be able to tell properly if I massaged them a bit?</p>
 <p>I grabbed Han Yu-gyeong's breasts. Oh! They definitely seemed bigger. Before, they filled my hand a little, but now they seemed to have more volume (?).</p>
-<p>,Heueung~ They got bigger, didn't they...?</p>
+<p>,Heueung They got bigger, didn't they...?</p>
 <p>,Yeah, they really seem bigger?</p>
 <p>I would have to take a look after completely undressing her to know for sure, but it was amazing that only her breasts got bigger without any change in her body shape. Is this some kind of protagonist buff?</p>
 <p>After sufficiently massaging, sucking, and licking her breasts, I undressed Han Yu-gyeong. Judging by the way Han Yu-gyeong was hastily undressing me, she must have become as horny as possible from my persistent breast caresses.</p>
@@ -70,7 +70,7 @@ chapter = 268
 <p>,Yeah, hehe. You have to show me?</p>
 <p>After cuddling naked for a while, we pressed our bodies together, and I started caressing Han Yu-gyeong's pussy while Han Yu-gyeong sucked my dick in a 69 position.</p>
 <p>I always think this, but Han Yu-gyeong's pussy was pretty. Seeing her unpigmented, pink, adorable pussy made me feel my dick throbbing on its own.</p>
-<p>,Aish~! What is it?</p>
+<p>,Aish! What is it?</p>
 <p>Han Yu-gyeong grumbled softly when my dick suddenly throbbed while she was licking it. And then she concentrated on sucking my dick again. To repay Han Yu-gyeong for working hard, I put my mouth on her pretty pussy and started licking it with my tongue.</p>
 <p>In an instant, the hotel room was filled with lewd sounds of sucking and licking something, like,jjueup, jjueup and,hururuk.</p>
 <p>Han Yu-gyeong's pussy secreted clear, sticky vaginal fluid as I licked and touched it.</p>

@@ -31,15 +31,15 @@ chapter = 142
 <p>-- Summons are random and can be up to two realms of their summoner. Also, they can not be below the realm of their summoner.</p>
 <p>-- Each Sentinel summon can grow by absorbing more soul spirits, essence, and Shards. Some can grow under special means.</p>
 <p>&lt;Requirements&gt;</p>
-<p>~ S-Class Summon: 10 SP</p>
-<p>~ SS-Class Summon: 100 SP</p>
-<p>~ SSS-Class Summon: 1,000 SP</p>
-<p>~ SSS+ Class Summon: 10,000 SP</p>
-<p>~ SSE-Class Summon: 50,000 SP</p>
-<p>~ SSR-Class Summon: 100,000 SP</p>
+<p> S-Class Summon: 10 SP</p>
+<p> SS-Class Summon: 100 SP</p>
+<p> SSS-Class Summon: 1,000 SP</p>
+<p> SSS+ Class Summon: 10,000 SP</p>
+<p> SSE-Class Summon: 50,000 SP</p>
+<p> SSR-Class Summon: 100,000 SP</p>
 <p>&lt; Special Class Summons &gt;</p>
-<p>~L-Class Summon: 250,000</p>
-<p>~X-Class Summon: 500,000</p>
+<p>L-Class Summon: 250,000</p>
+<p>X-Class Summon: 500,000</p>
 <p>___________</p>
 <p>’Not a bad skill. I don’t know much about soul sentinels, but with Elsa and the tower, I guess I have nothing to worry about’ Kent thought.</p>
 <p>He then shifted his attention to his stats. It appeared he has leveled up to level 2 Root Grandmaster after taking Elsa’s purity and adding an additional +50 stats points to each stat.</p>

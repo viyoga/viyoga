@@ -8,7 +8,7 @@ chapter = 1127
 <p>"Lady Black Fang... Can I help you?"</p>
 <p>"Yes," the woman replied flatly. "By opening the portal."</p>
 <p>Quinlan studied her in silence. She betrayed no emotions, no cracks in that cold doll expression of hers. But beneath that mask? He could feel it. The bloodlust. The silent scream of a woman who’d had almost everything taken from her; her home ransacked by Kaede and Lilith, her pride hurt when her blade failed to reach Queen Morgana’s throat. Black Fang didn’t need to say it aloud. She was itching. She wanted to kill, to carve repayment out of flesh and bone.</p>
-<p>He shifted his gaze to Vex, who only smiled at him with dazzling brilliance. "If only big sis wasn’t currently busy playing undead..." she sang sweetly, "the whole gang of sexy, unhinged chicks save for the white-haired beauty who’s completely normal, could be together~"</p>
+<p>He shifted his gaze to Vex, who only smiled at him with dazzling brilliance. "If only big sis wasn’t currently busy playing undead..." she sang sweetly, "the whole gang of sexy, unhinged chicks save for the white-haired beauty who’s completely normal, could be together"</p>
 <p>That was her way of giving him the green light. Her way of saying, ’Sure, let’s bring her. What’s the harm?’</p>
 <p>Quinlan nodded and let his eyes sweep over the gathered women. They were a dangerous lot already, but not nearly dangerous enough.</p>
 <p>"You all know the situation," he spoke up after a bit of silent measuring.</p>

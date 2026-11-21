@@ -77,7 +77,7 @@ chapter = 923
 
 <p>Her scent was pleasant, soft—neither too sweet nor bitter. A perfect balance.</p>
 
-<p>"Ah~~ Q-Qingyi!" Sapphire shuddered.</p>
+<p>"Ah Q-Qingyi!" Sapphire shuddered.</p>
 
 <p>The water flower in her left hand lost its shape instantly, slipping through her fingers and dripping onto the stone floor, while her right hand released the wooden railing and reached up blindly, searching for his face.</p>
 

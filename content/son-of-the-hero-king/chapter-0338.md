@@ -22,13 +22,13 @@ chapter = 338
 <p>Each movement of his dick caused her sticky love juices to produce a wet sound that would make most people blush in shame should they hear such a wonderfully lewd and equally shameful sound.</p>
 <p>The intense and rhythmic thrusting brought a strange feeling to her.</p>
 <p>She felt almost feverishly warm, but without any of the lethargy, one would feel when weakened by a fever or any other illness of similar properties. Only an unbridled sense of intense pleasure rocked throughout her body and caused her thoughts to melt away like a cube of sugar placed inside a cup of tea.</p>
-<p>“Ah~! Ah~Ah~!”</p>
+<p>“Ah! AhAh!”</p>
 <p>She could sense the hard penis thrusting into her as vividly as though she could see it with her own eyes.</p>
 <p>Her vaginal folds wriggled with movements akin to a small boat rocking undulated in the ocean’s waves.</p>
 <p>The tip of the head hit her deepest parts, the ridge of the head rubbed against the walls, and the entire thing seemed to pull out her entire body from within her depths.</p>
 <p>She was being invaded and attacked, but at the same time, she was also devouring and swallowing his member.</p>
 <p>Her love juices would not stop flowing no matter how long they went on with their intense session; it just kept on producing more and more wet sounds and the juices were always abundant. She even felt a tingling sense of pleasure from where his hands were placed and held her hips tightly. Even her breasts felt pleasure as they bounced from Sol's intense thrusting.</p>
-<p>“Ah! Wow~ It’s so good! I’m going crazy! Sol~~”</p>
+<p>“Ah! Wow It’s so good! I’m going crazy! Sol”</p>
 <p>Thanks to his previous words, she felt that some kind of mental barrier had been breached in her psyche, and then, as a result, her entire body began to tremble like she was convulsing from seizures.</p>
 <p>Her vagina squeezed even tighter than before, on its own accord, and she could tell it was going to push the penis out of her. While he was moving his hips, Skuld was also doing her part, well intent on making him cum before she did.</p>
 <p>Looking up at that divine or rather chaotic beauty of hers while she rode his cock was a very powerful sight to him. Knowing he was having sex with such an unbelievably beautiful woman – no, being fucked by her – was nearly enough to make him cum with that alone.</p>
@@ -48,7 +48,7 @@ chapter = 338
 <p>In fact, it was so tight that he couldn’t help but wonder if she intended to crush it.</p>
 <p>“Wow. I’m about to cum already.”</p>
 <p>This was way faster than he was used to, but Skuld was really working hard at milking him dry so it was understandable.</p>
-<p>“Cum ~Cum inside me~! Fill me up!!”</p>
+<p>“Cum Cum inside me! Fill me up!!”</p>
 <p>She said that with a thoroughly melted smile and then she raised her upper body without warning.</p>
 <p>It felt like she was enveloping his entire body. He could feel the feverishly elevated body temperature of her arousal.</p>
 <p>Her voice filled with passion pushed him over the edge.</p>

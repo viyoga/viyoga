@@ -25,7 +25,7 @@ chapter = 200
 
 <p>“But it was good, wasn’t it?” Qingyi stood up too, hugging her from behind, grabbing her full breasts and squeezing them hard.</p>
 
-<p>“Nghnn~~ you… bastard- ah~~” Rongyan moaned, her whole body shuddering under Qingyi’s touch, her legs trembling slightly as she tried to keep her composure.</p>
+<p>“Nghnn you… bastard- ah” Rongyan moaned, her whole body shuddering under Qingyi’s touch, her legs trembling slightly as she tried to keep her composure.</p>
 
 <p>Yes, it was good.</p>
 
@@ -107,7 +107,7 @@ chapter = 200
 
 <p>“Nothing,” he shook his head before, without asking permission, opening her cleavage, grabbing her breasts and taking one of her pink nipples into his mouth.</p>
 
-<p>“What the fuck are you… ughn~~ doing?” Rongyan questioned as Qingyi sucked voraciously on her tits, his tongue circling the sensitive nipple.</p>
+<p>“What the fuck are you… ughn doing?” Rongyan questioned as Qingyi sucked voraciously on her tits, his tongue circling the sensitive nipple.</p>
 
 <p>It wasn’t long before the handsome young man felt the sweet, creamy, Qi-rich liquid invade his mouth, drawing a shocked gasp from Rongyan.</p>
 

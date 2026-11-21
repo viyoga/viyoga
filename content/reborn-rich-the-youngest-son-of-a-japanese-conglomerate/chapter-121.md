@@ -37,7 +37,7 @@ chapter = 121
 <p>Taira Ryuta: How's the infiltration going?</p>
 <p>Cherry-jjang★: It's going smoothly, I'm on the 4th floor now. After questioning a researcher, he said that the kidnapped woman is on the 6th floor.</p>
 <p>Taira Ryuta: Be careful and contact me if anything happens.</p>
-<p>Cherry-jjang★: Okay~!</p>
+<p>Cherry-jjang★: Okay!</p>
 <p>The situation seemed to be going smoothly. But when did Mimata Chieri change her name to Cherry-jjang★? Should I change my phone's security pattern....</p>
 <p>"The infiltration is going smoothly. She's on the 4th floor now, and Azuma-ssi is said to be held on the 6th floor."</p>
 <p>"That's a relief. I hope she gets out quickly."</p>
@@ -60,7 +60,7 @@ chapter = 121
 <p>"Thank you. I'll take Sinya to the hospital as soon as possible and come back."</p>
 <p>Kiyona Mari made the most apologetic expression possible and tried to take Sawayanagi Sinya, who was insisting on not going. Before leaving, Sawayanagi Sinya shouted for a moment and left me about five throwing bombs.</p>
 <p>Looking at the amount of bombs, it seemed that Sawayanagi Sinya could have drawn attention alone if he hadn't been injured. I threw stones that were rolling around to break the windows on the second and third floors. And I immediately threw the bombs that Sawayanagi Sinya left one by one through the broken windows.</p>
-<p>Kuaang~! Kwang!</p>
+<p>Kuaang! Kwang!</p>
 <p>The building shook even with two explosions. Meanwhile, I put on a pair of black gloves on both hands.</p>
 <p>◆Gloves Woven with Abyss Thread "Epic Equipment": Gloves woven with the hair of the Daughter of the Abyss. Gives a 150 percent bonus when using Abyss-type techniques and increases the probability of special effects occurring.</p>
 <p>It was a glove I got from giving offerings to the Daughter of the Abyss before. Come to think of it, it's been a while since I gave offerings. Could it be that the Daughter of the Abyss is sulking??</p>

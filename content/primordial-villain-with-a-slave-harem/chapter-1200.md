@@ -1,5 +1,5 @@
 +++
-title = "Chapter 1200: Someone's Calling~"
+title = "Chapter 1200: Someone's Calling"
 weight = 1200
 [extra]
 chapter = 1200
@@ -12,10 +12,10 @@ chapter = 1200
 <p>They both watched the necklace buzz and come alight with the call.</p>
 <p>For a few seconds, the two looked perfectly innocent. A father and daughter sharing a calm moment.</p>
 <p>Then, in perfect sync, their expressions twisted into the same wicked smirk. Two halves of the same thought formed one shared grin. It was as if they were a single living organism.</p>
-<p>“Someone’s calling~” Rosie sang, her tone syrupy sweet.</p>
-<p>“I wonder who~” Quinlan replied back with a tone he rarely used.</p>
-<p>“Sounds like the call of a desperate man to me~”</p>
-<p>“Right? The ringing’s slow, probably reflects the age of whoever’s trying to reach us~”</p>
+<p>“Someone’s calling” Rosie sang, her tone syrupy sweet.</p>
+<p>“I wonder who” Quinlan replied back with a tone he rarely used.</p>
+<p>“Sounds like the call of a desperate man to me”</p>
+<p>“Right? The ringing’s slow, probably reflects the age of whoever’s trying to reach us”</p>
 <p>Rosie giggled. “Hehe! Should we pick it up?”</p>
 <p>“Let the old bastard ferment in his own thoughts.”</p>
 <p>“Daddy’s evil!” she chirped, covering her mouth with both hands as she giggled jovially.</p>
@@ -30,7 +30,7 @@ chapter = 1200
 <p>“I am going nowhere. You’re stuck with this arrogant father for the rest of eternity.”</p>
 <p>That elicited a tender giggle from the dryad. “Hehe! I wonder what Feng would say when she heard you call yourself arrogant! Whenever she does it, you deny it and call her a rude brat!”</p>
 <p>“… You’re forbidden from snitching.”</p>
-<p>“I wouldn’t dare!” she decreed, then in a much slyer tone, she added, “Rosie is the best girl ever~”</p>
+<p>“I wouldn’t dare!” she decreed, then in a much slyer tone, she added, “Rosie is the best girl ever”</p>
 <p>“…” Quinlan squinted his eyes as she felt mischief in her tone. He leaned down and whispered in her ear, “If you snitch, I’ll snitch as well. Your mothers will learn that you speak like you do because you want to be pampered.”</p>
 <p>Rosie froze mid-giggle. Her leafy hair rustled as she turned her head slowly, eyes wide.</p>
 <p>“D-D-D-D-don’t you dare!!!” she squeaked. Her entire body stiffened like a startled rabbit. Then, in a blur of motion, she hopped and slammed both hands over his mouth with the panic of someone trying to stop a curse from being cast.</p>
@@ -39,7 +39,7 @@ chapter = 1200
 <p>Rosie leaned in closer until her forehead touched his. “Promise you won’t tell, okay?! Swear it on your daughter’s life!”</p>
 <p>He nodded once, still silent under her grip. Only then did she release him with a dramatic sigh, flopping back into his thighs and chest. “Phew… Crisis averted. I must teach Father how to make good jokes because he’s horrible at it!” she muttered, but a small smile betrayed her disgruntled whispering.</p>
 <p>The laughter soon returned between Quinlan and Rosie, which then stretched out for minutes. The necklace never stopped ringing. Its dull vibration pressed against the air like a stubborn heartbeat that refused to fade.</p>
-<p>Rosie finally tilted her head toward it, still curled in his lap. “He’s still calling. Truly desperate… I wonder what’s going through his head~”</p>
+<p>Rosie finally tilted her head toward it, still curled in his lap. “He’s still calling. Truly desperate… I wonder what’s going through his head”</p>
 <p>“Let’s find out.”</p>
 <p>Quinlan said and reached forward.</p>
 <p>By all logic, it should have rejected him. It was a personal relic of Felicity, bound to her by magic, tuned only to her mana signature. Yet when his hand touched it, the light steadied. The Primordial Subjugator did not ask for permission. Ownership was not to be denied from him. What his [Subjugated] people owned, so did he.</p>

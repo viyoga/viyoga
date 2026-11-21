@@ -24,7 +24,7 @@ chapter = 129
 <p>She immediately began to run toward their destination. She knew that this action of hers would compel them to follow and as she thought, after giving one last pat to the wyvern, they began to follow her.</p>
 <p>While running, Theresa began to summarize the situation</p>
 <p>“We already lost too much time. We do not know the strength of the enemy nor do we know their numbers. Nuwa and I are non-fighters. Well technically, Nuwa is a fighter, but let’s not count her in our fighting strength.”</p>
-<p>“Hey~!”</p>
+<p>“Hey!”</p>
 <p>She ignored Nuwa’s outcry and continued, “ I have some handy gadgets, but nothing that can hold long against a true powerhouse. This means that everything will be left to you. Can you do it?”</p>
 <p>Saying so she sent a glance toward Lilin, who nodded quietly.</p>
 <p>Seeing this, she couldn’t help but remember her time adventuring with Lilith and the others.</p>
@@ -33,7 +33,7 @@ chapter = 129
 <p>She wished she could say yes but the truth was,</p>
 <p>‘I can’t.’</p>
 <p>Just because she was the daughter of her friend didn’t mean she was as trustworthy. Still, she couldn’t hesitate.</p>
-<p>‘Haha~and I thought my life would be boring.’</p>
+<p>‘Hahaand I thought my life would be boring.’</p>
 <p>Laughing lightly she began to speed up, she might be weak but she could pull her own weight when necessary.</p>
 <p>As a dwarf, she was extremely skilled in metallurgy and since one of her friends was the supreme daughter of Slothtein, she had been able to create armor that fused the technology of the dwarves and the angels.</p>
 <p>‘I can somewhat hold on against a Duke class. Well, enough to not get one shot. But if we face a king class....’</p>

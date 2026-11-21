@@ -43,7 +43,7 @@ chapter = 931
 <p>Rosie, a small dryad girl with leafy hair and forest-green skin, zipped toward them with a grin too wide for her little face. She was no bigger than a toddler, but her energy could match anyone a run for their money.</p>
 <p>"Mommymommymommy!" she chanted, and pounced directly onto Blossom’s head as she was the woman furthest ahead in the group.</p>
 <p>Blossom let out a happy little squeal of joy as two thin arms wrapped around her head, squeezing with all their might. The dryad giggled as she rubbed her cheek against the dogkin’s.</p>
-<p>"Blossom Mommy smells like victory~! She must’ve ended the miserable lives of many ugly monsters!!" Rosie chirped, proud of her mother’s prowess.</p>
+<p>"Blossom Mommy smells like victory! She must’ve ended the miserable lives of many ugly monsters!!" Rosie chirped, proud of her mother’s prowess.</p>
 <p>Then she moved onto her next mother, to Ayame, twirling once before landing on the samurai’s shoulder and nuzzling into the crook of her neck lovingly. "Rosie missed her serious mommy, too!"</p>
 <p>Ayame gently poked the girl in the cheek with one finger. "You’re supposed to be resting. You might not be human, but we’ve already established that you need to give your body proper-"</p>
 <p>"But Rosie was sooo lonelyyyyyyy!!!"</p>

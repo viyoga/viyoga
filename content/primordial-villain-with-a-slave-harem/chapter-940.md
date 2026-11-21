@@ -29,7 +29,7 @@ chapter = 940
 <p>When they finally parted after many long minutes of interlocked tongues, her breath came in warm puffs against his lips. Her cheeks were flushed, her pupils still wide and wild.</p>
 <p>Then she blinked, and in the cutest, most absurd contrast to the heat of the moment, tilted her head, an innocent expression replacing her overly needy one.</p>
 <p>"Wait... how come you can [Subjugate] me now? You couldn’t before. The level gap was way too big. And you only gained one level from that Primordial Trial, didn’t you?" she asked with a tiny pout as her lashes fluttered before leaning in again, nose brushing against his.</p>
-<p>"You didn’t... really get that much stronger, right~? Or did my handsome hubby truly turn into someone so terrifying while I wasn’t looking?"</p>
+<p>"You didn’t... really get that much stronger, right? Or did my handsome hubby truly turn into someone so terrifying while I wasn’t looking?"</p>
 <p>Quinlan said nothing.</p>
 <p>He simply smirked.</p>
 <p>Then, with a slap on her butt for dramatic effect, he materialized the System Window, a semi-transparent blue interface that shimmered with layered data. 𝑅𝐚ɴǑᛒЕⱾ</p>

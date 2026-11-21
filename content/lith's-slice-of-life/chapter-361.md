@@ -143,7 +143,7 @@ He then came across a leg that looked familiar. Lith checked for pubic hair and 
 
 Lith took his hand out from the curtain and sucked the juices off his hand. It was easy to find Alexandra since she was the only one among his ladies who would have a lot of juices come out just from a single touch of his.
 
-A few seconds later, Alexandra walked out. She looked at Lith and said with a smile, "darling~"
+A few seconds later, Alexandra walked out. She looked at Lith and said with a smile, "darling"
 
 Lith smiled back and walking close to her, he gave her a kiss on her lips. "I was correct, wasn't I?"
 

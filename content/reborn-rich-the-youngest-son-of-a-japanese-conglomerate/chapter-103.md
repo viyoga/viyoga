@@ -26,7 +26,7 @@ chapter = 103
 <p>,So, is that why you went to Yosemite National Park to copy her?"</p>
 <p>When I asked in disbelief, Kiyohira nodded with an expression that asked why I was asking the obvious.</p>
 <p>,Of course. It's not shameful to copy the best. You have to copy what the best does to even touch the edge of their shadow."</p>
-<p>Of course, he wasn't wrong. But you don't have a Myth-grade martial art like Fujigasaki Rinka.... It was a bit of a shame. I should give Kiyohira an Epic-grade or higher martial arts book later. Kiyohira is still in the relatively human welterweight class (~77.1Kg), so he could have a decent fight if it's Epic-grade or higher. Even though the welterweight class is a fierce weight class, it was nothing compared to the inhuman openweight class, so Kiyohira should be able to do it.</p>
+<p>Of course, he wasn't wrong. But you don't have a Myth-grade martial art like Fujigasaki Rinka.... It was a bit of a shame. I should give Kiyohira an Epic-grade or higher martial arts book later. Kiyohira is still in the relatively human welterweight class (77.1Kg), so he could have a decent fight if it's Epic-grade or higher. Even though the welterweight class is a fierce weight class, it was nothing compared to the inhuman openweight class, so Kiyohira should be able to do it.</p>
 <p>,Yeah, good luck. Let's see my friend become a champion."</p>
 <p>,Yeah, thanks. I'm going back to America a bit later this time and try to train in the Fujisan primeval forest...."</p>
 <p>Kiyohira was saying lines like a friend who goes missing in a Japanese horror story. I should put a GPS on him later....</p>
@@ -36,7 +36,7 @@ chapter = 103
 <p>,Are you feeling a bit better?"</p>
 <p>,Keu keu keu, the Kuroki (Black Demon) of Edogawa Middle School was such a coward."</p>
 <p>,Don't talk about Kuroki! You Shiroki (White Demon)!"</p>
-<p>When they were in Edogawa Middle School, their nicknames were Kuroki and Shiroki, but now that they were adults, they were both very ashamed of those nicknames. Actually, even I would be ashamed if I was called the Black Demon of Edogawa Middle School. If I was a chuunibyou in middle school, I would have been like, "Wow~ cool," but now....</p>
+<p>When they were in Edogawa Middle School, their nicknames were Kuroki and Shiroki, but now that they were adults, they were both very ashamed of those nicknames. Actually, even I would be ashamed if I was called the Black Demon of Edogawa Middle School. If I was a chuunibyou in middle school, I would have been like, "Wow cool," but now....</p>
 <p>,Shut up, you guys. Or I'll reveal your middle school nicknames on the broadcast station?"</p>
 <p>Since they were both now UMC players and J-League players with recognition, they suddenly became quiet as if they had made a promise when I said I would tell their embarrassing nicknames on the broadcast station. The reason I silenced them was to contact Yukiko. Yukiko must have heard the news too, so I thought I should call her now because she would be worried if I didn't contact her.</p>
 <p>,Mother, this is Ryuta."</p>
@@ -48,7 +48,7 @@ chapter = 103
 <p>-I'll be waiting.</p>
 <p>As soon as Yukiko hung up, the two criticized me indiscriminately, as if they were trying to retaliate against me for saying I would contact the broadcast station.</p>
 <p>,Ahem! A son of two mothers! You're no different from Lu Bu!</p>
-<p>,Woo~! Woo~!"</p>
+<p>,Woo! Woo!"</p>
 <p>Comparing me to Lu Bu, their creativity in criticism was no joke. Kazuhiro seemed to like Romance of the Three Kingdoms unlike his appearance, so he compared me to Lu Bu.</p>
 <p>,Oh yeah, you bastards. Want to taste Lu Bu's fist?"</p>
 <p>,I don't fight the injured."</p>
@@ -58,7 +58,7 @@ chapter = 103
 <p>Kiyohira suddenly said seriously. What is it? What does he have to say?</p>
 <p>,Let's see the pictures of those girls from your slutty story earlier. Kazuhiro saw them in person, so I have to see them in pictures at least."</p>
 <p>I looked at Kiyohira with a dumbfounded expression for a moment, sighed, took out my smartphone, and showed him Han Yu-gyeong's picture and Arisu's picture.</p>
-<p>,Ooh~! Pretty. They're both celebrity-level?"</p>
+<p>,Ooh! Pretty. They're both celebrity-level?"</p>
 <p>Although Kazuhiro and Kiyohira had unique tastes, they could distinguish between beauty and ugliness, so of course they knew that Han Yu-gyeong and Arisu were pretty. It's just that they didn't match their tastes.</p>
 <p>,So, which one are you dating?"</p>
 <p>,Both."</p>

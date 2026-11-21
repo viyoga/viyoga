@@ -87,7 +87,7 @@ chapter = 602
 
 <p>And cultivators’ bodies were also much more resistant to temperature changes either way.</p>
 
-<p>“Aghnn~~” Rongyan moaned, surfacing from the water and immediately climbing onto Qingyi’s lap.</p>
+<p>“Aghnn” Rongyan moaned, surfacing from the water and immediately climbing onto Qingyi’s lap.</p>
 
 <p>Her red dress was soaked, clinging to her body, her soft, perky nipples pressing against the fabric.</p>
 

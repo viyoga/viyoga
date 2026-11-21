@@ -36,7 +36,7 @@ chapter = 624
 <p>"Pictures? I heard the Date Experience Club is publishing a collection... ."</p>
 <p>Ah... She already knew that they were publishing a collection. She seemed to have a puzzled expression because the story of the pictures suddenly came up.</p>
 <p>"Ah, they say they're giving away my photo card as a bonus when you buy the collection."</p>
-<p>"Ah~ The Date Experience Club is determined?"</p>
+<p>"Ah The Date Experience Club is determined?"</p>
 <p>"I'm not a celebrity, so I don't know if it will sell well if they include my picture as a bonus."</p>
 <p>When I said as if I was a little worried, Matsunaga Yuzuki laughed as if she was dumbfounded.</p>
 <p>"Sensei, you don't know your popularity in this school. You can't compare it to celebrities. Your popularity."</p>

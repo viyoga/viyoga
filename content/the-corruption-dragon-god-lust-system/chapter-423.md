@@ -11,7 +11,7 @@ chapter = 423
 
 <p>Grabbing his cock with his left hand, he aligned the reddish tip with her pussy and moved his hips forward.</p>
 
-<p>“Aghnn~~ hubby!” Isabel exclaimed, her lips parting in a surprised</p>
+<p>“Aghnn hubby!” Isabel exclaimed, her lips parting in a surprised</p>
 
 <p>moan.</p>
 
@@ -21,7 +21,7 @@ chapter = 423
 
 <p>A rosy smile appeared on her lips as Qingyi’s hands flowed to hers, grabbing them and pulling her against him.</p>
 
-<p>“Mghnn~~” Isabel moaned again.</p>
+<p>“Mghnn” Isabel moaned again.</p>
 
 <p>The position of her arms forced her huge tits to squeeze obscenely against each other, giving her no chance to control the sway of those mountains of incomparable chocolaty flesh.</p>
 
@@ -33,7 +33,7 @@ chapter = 423
 
 <p>It was an absolutely beautiful sight, one that Qingyi thoroughly enjoyed as he established a rhythm, fucking Isabel’s pussy mercilessly, reveling in the obscene moans that escaped her lips and the sounds of their bodies meeting.</p>
 
-<p>“H-hubby~~ aghnnn~~ f-faster hubby~~ have no mercy on your Isabel’s tight little cunt~~ aghnnn!~~”</p>
+<p>“H-hubby aghnnn f-faster hubby have no mercy on your Isabel’s tight little cunt aghnnn!”</p>
 
 <p>Isabel’s moans grew increasingly naughty as Qingyi increased his speed, her pussy squeezing even tighter.</p>
 
@@ -53,7 +53,7 @@ chapter = 423
 
 <p>Qingyi kept up the pace, watching the expression on her face slowly change.</p>
 
-<p>“H-husband… I’m coming, hubby~~ Come with me, nghnn~~ fill me with your hot cum! AGHNNN~~”</p>
+<p>“H-husband… I’m coming, hubby Come with me, nghnn fill me with your hot cum! AGHNNN”</p>
 
 <p>Isabel’s words were suddenly cut off. Her eyes widened and she shuddered, an intense explosion of pleasure overwhelming her entire body.</p>
 
@@ -65,7 +65,7 @@ chapter = 423
 
 <p>With a gentle movement, he turned, pulling her on top of him.</p>
 
-<p>“Aghnn~~” Isabel moaned, her voluptuous, sweaty body melting into Qingyi’s embrace, the creamy skin of her massive breasts pressing against his chest.</p>
+<p>“Aghnn” Isabel moaned, her voluptuous, sweaty body melting into Qingyi’s embrace, the creamy skin of her massive breasts pressing against his chest.</p>
 
 <p>Qingyi just kissed her, hugging her a little tighter.</p>
 
@@ -77,7 +77,7 @@ chapter = 423
 
 <p>In the end, she knew well what kind of man Qingyi was. He wouldn’t be content just as the prince of a small, isolated nation.</p>
 
-<p>He wanted much more than that, and she knew that there were no forces in this world capable of stopping him.”So, where does my ambitious hubby want to go now? Hehehe~~” Isabel asked, settling herself next to Qingyi.</p>
+<p>He wanted much more than that, and she knew that there were no forces in this world capable of stopping him.”So, where does my ambitious hubby want to go now? Hehehe” Isabel asked, settling herself next to Qingyi.</p>
 
 <p>She placed one of her thighs on top of his abdomen, his hand resting on her plump, shapely ass.</p>
 

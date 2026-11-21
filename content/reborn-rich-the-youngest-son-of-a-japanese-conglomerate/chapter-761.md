@@ -81,7 +81,7 @@ chapter = 761
 <p>Hot pants home teacher, Black Lisa, Kkan Yuka requested by Hwanbuljeoldaebulga-nim</p>
 <p>Lisa-ttang</p>
 <p>Home Teacher</p>
-<p>Kkan Yuka~!</p>
+<p>Kkan Yuka!</p>
 <p>When it was Yuka's turn to make the last one, I thought, "Since it's 19+, is there any need to wear a bra?" so I made a bare breasts cut too hehe</p>
 <p>Lizhael Boobjob B-cut!</p>
 <p>Actually, I made over 40 boobjob cuts, but I'm too lazy to put seaweed on the dick, so I'm only uploading one hehehe</p>

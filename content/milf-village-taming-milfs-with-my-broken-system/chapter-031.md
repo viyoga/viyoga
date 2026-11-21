@@ -1,5 +1,5 @@
 +++
-title = "Chapter 31: Oops, My Hand Slipped, Mom~"
+title = "Chapter 31: Oops, My Hand Slipped, Mom"
 weight = 31
 [extra]
 chapter = 31
@@ -9,11 +9,11 @@ chapter = 31
 
 <p>Unfortunately...she couldn’t control her voice from coming out.</p>
 
-<p>&quot;Oops, my hand slipped, Mom~&quot; Owen smiled as the soft perfect sound of flesh hitting perfectly, scoping the very space and producing a perfect dap.</p>
+<p>&quot;Oops, my hand slipped, Mom&quot; Owen smiled as the soft perfect sound of flesh hitting perfectly, scoping the very space and producing a perfect dap.</p>
 
 <p>&quot;Ughnn, y-your hand slipped?..&quot;</p>
 
-<p>&quot;Yes, mom...I think my hand is bad~&quot;</p>
+<p>&quot;Yes, mom...I think my hand is bad&quot;</p>
 
 <p>&quot;I-it’s really bad..&quot; her voice laced with desperation...as if she wanted to receive more from his bad hands..</p>
 
@@ -21,7 +21,7 @@ chapter = 31
 
 <p>A morning spanking right out of the gate is not too shabby.</p>
 
-<p>’That’s what I wanted to see, not bad mom~’ A good day added by a good spanking and a loud moan..</p>
+<p>’That’s what I wanted to see, not bad mom’ A good day added by a good spanking and a loud moan..</p>
 
 <p>Pwahh...noooice.</p>
 
@@ -59,7 +59,7 @@ chapter = 31
 
 <p>[ It’s not a compliment bastard!]</p>
 
-<p>&quot;You act just like a woman on her period, my dear system~&quot; Owen ignored the interface after teasing it back.</p>
+<p>&quot;You act just like a woman on her period, my dear system&quot; Owen ignored the interface after teasing it back.</p>
 
 <p>It was certainly strange, but being bound to a talkative hater of a system was refreshing; it made everything feel much more surreal...unlike those other novels.</p>
 

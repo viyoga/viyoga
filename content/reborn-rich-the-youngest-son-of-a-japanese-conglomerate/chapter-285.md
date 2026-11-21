@@ -33,7 +33,7 @@ chapter = 285
 <p>The Kiyona Hori Mari sisters were seriously observing Sawayanagi Azuma's fellatio like eager students.</p>
 <p>Chup chup chup chup!</p>
 <p>Sawayanagi Azuma, who had been doing it slowly, got excited and sucked my dick more vigorously, then made an "Ah!" expression and spat out my dick with a regretful look.</p>
-<p>, "Okay, now try it yourselves~!"</p>
+<p>, "Okay, now try it yourselves!"</p>
 <p>Kiyona Mari, who had been glaring slightly at Sawayanagi Azuma for speaking in a kindergarten teacher-like tone, surprisingly stepped forward first.</p>
 <p>, "It's not like I want to suck a man's thing...! I'm just doing it because I want to prove that I learned well...!"</p>
 <p>She said she didn't want to suck it, but she sucked surprisingly well. Kiyona Mari, who had a good eye, was performing fellatio with a quality quite similar to what Sawayanagi Azuma was doing.</p>

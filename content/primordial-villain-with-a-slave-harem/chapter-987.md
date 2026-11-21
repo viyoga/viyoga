@@ -36,7 +36,7 @@ chapter = 987
 <p>"S-shut it!"</p>
 <p>Jasmine, meanwhile, was focused entirely on her work.</p>
 <p>Aurelion was long past the point of rational pleas. He gasped like a dying fish, his mouth hanging open as pain and blood loss blurred his senses. And still, Jasmine danced around him with surgical elegance.</p>
-<p>"Would you believe me if I said I studied human anatomy just for this day? I fantasized about butchering you like the disgusting pig that you are for such a long time, Father~"</p>
+<p>"Would you believe me if I said I studied human anatomy just for this day? I fantasized about butchering you like the disgusting pig that you are for such a long time, Father"</p>
 <p>Before he could even try to mount a response, the brunette woman was already moving on. "There’s a nerve cluster here..." she murmured while pressing the scalpel against his exposed ribcage.</p>
 <p>"Do you know what happens when you scratch this just right? You get phantom spasms. Even after healing. Isn’t that neat?"</p>
 <p>"P-Please!" Aurelion sobbed, face twisted in agony. "I’m your father, Jasmine!"</p>

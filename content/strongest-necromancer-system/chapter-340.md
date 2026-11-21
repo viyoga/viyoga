@@ -32,9 +32,9 @@ chapter = 340
 <p>Two massive spinning blades of wind shot through the air and headed straight for the dragon riders, and the riders were so shocked by the sudden change in attack pattern that they didn’t even have the time to think about dodging! The dragon riders were only on the same level as A Rank superhumans, so they didn’t stand a chance against Gina’s S Rank skill! The blades cleaved through their bodies like a knife flying through butter, and Gina’s eyes widened in shock as she saw their half-bodies drop from their dragons and fall to the ground below! A bloodthirsty smile appeared on Gina’s face, and she turned to glare at the Imperial Guards around her as she gathered her mana for another attack!</p>
 <p>....</p>
 <p>[With Jason]</p>
-<p>Ding~!</p>
-<p>Ding~!</p>
-<p>Ding~!</p>
+<p>Ding!</p>
+<p>Ding!</p>
+<p>Ding!</p>
 <p>——</p>
 <p>The user has killed [55] Imperial Guards</p>
 <p>+16,500 Kill Points</p>

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 31: So Big~"
+title = "Chapter 31: So Big"
 weight = 31
 [extra]
 chapter = 31
@@ -107,7 +107,7 @@ chapter = 31
 
 <p>What’s more, her loose skirt provided an excellent view of her slender waist. She was wearing an old pair of white panties—yesterday, they hadn’t bought any new white ones.</p>
 
-<p>&quot;So big~&quot;</p>
+<p>&quot;So big&quot;</p>
 
 <p>Luis leered without restraint.</p>
 
@@ -123,7 +123,7 @@ chapter = 31
 
 <p>Leah’s gloomy mood vanished instantly. She cursed him again as a pervert, hugged the clothes, and ran into the bathroom.</p>
 
-<p>When she came out after changing, Luis was waiting by the bathroom door. His eyes lit up as he praised, &quot;Baby is so beautiful~&quot;</p>
+<p>When she came out after changing, Luis was waiting by the bathroom door. His eyes lit up as he praised, &quot;Baby is so beautiful&quot;</p>
 
 <p>She looked like a pure, delicate girl straight out of a manga. Her petite, exquisite frame paired with the fresh dress made her especially charming. Most striking was the pronounced curve of her chest—such large breasts on her small body were surely a burden, but also a visual delight.</p>
 

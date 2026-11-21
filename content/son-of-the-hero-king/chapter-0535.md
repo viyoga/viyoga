@@ -37,7 +37,7 @@ chapter = 535
 <p>“I have no doubt about this. But they say the road to hell is paved with good intentions.”</p>
 <p>The intention of Ambrosia didn’t matter much as what mattered was how she acted and how those actions were interpreted by her children.</p>
 <p>Clearly — the way she acted made them lose hope quite a bit.</p>
-<p>“Sigh~ So, what will you do?”</p>
+<p>“Sigh So, what will you do?”</p>
 <p>“Me? Honestly nothing. We will soon start fighting against Wratharis. Honestly, I believe that sooner or later the wolf will lose his restraints. All they are waiting for is the snow to fall heavily.”</p>
 <p>“Do you need the witches?”</p>
 <p>“No.”</p>

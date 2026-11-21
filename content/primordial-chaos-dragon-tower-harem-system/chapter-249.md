@@ -17,7 +17,7 @@ chapter = 249
 <p>"Don’t mind me; you’re doing a good job," Kent pushed her head back down to his balls. She resumed her sucking.</p>
 <p>Ingrid, who was also wondering the same thing, chose to accept reality and moved toward the still-hard dick, beginning to suck it.</p>
 <p>Kent was feeling all the pleasure he could ask for and more. The disciple and her master were servicing him, and from the look on his face, he was enjoying it.</p>
-<p>"I am cummmmming~."</p>
+<p>"I am cummmmming."</p>
 <p>His moaning filled the room as Ingrid felt the hot jizz shoot down her throat. This time, however, she was able to take it all in, making Kent nod at her accomplishment.</p>
 <p>"Then why don’t we get the show on the road?" Kent said, taking Ingrid’s leg and positioning it on his shoulder. He positioned his dick between her legs and began rubbing them.</p>
 <p>She was still wet, so the gentle teasing was already sending waves through her body.</p>

@@ -25,7 +25,7 @@ chapter = 611
 <p>"We're going to eat breakfast right away, so at least Wash Face and come."</p>
 <p>I turned off the TV and went to the kitchen, speaking to the special class Students who had woken up. Then I took the toast out of the oven, fried Bacon and eggs, took out jam, whipped cream, and butter, and took out orange juice and Milk.</p>
 <p>Even the deliciously golden-brown fried Bacon and eggs were placed on the Dining table in a vessel, and the Students who had quickly washed up sat at the table.</p>
-<p>"Haam~! Teacher-ssi, yesterday you completely Fainted, but you woke up early today?"</p>
+<p>"Haam! Teacher-ssi, yesterday you completely Fainted, but you woke up early today?"</p>
 <p>"Indeed. Was my Condition not so good yesterday? I felt a bit tired."</p>
 <p>"I'll eat well, Teacher-nim. You worked hard since Morning."</p>
 <p>"It's a very appetizing breakfast, Liege."</p>
@@ -35,16 +35,16 @@ chapter = 611
 <p>"Just wait a Moment. I'll just dry my Hair and come out."</p>
 <p>"No, we'll dry it for you, so please come here."</p>
 <p>As if she had already thought of drying my Hair, Konoe Akina was shaking a hairdryer and Smiling. If they dry it for me, it's convenient for me. I didn't refuse and sat in the middle of the sofa that the Students had left empty.</p>
-<p>"I'll dry it for you quickly~!"</p>
-<p>Uwoong~!</p>
+<p>"I'll dry it for you quickly!"</p>
+<p>Uwoong!</p>
 <p>As Konoe Akina turned on the hairdryer, no less than five Hands simultaneously began to ruffle my Hair. The mischievous special class Students sitting around had each placed their Hands on my Head. Naturally, with several Hands ruffling my Hair, the Dewy Moisture dried quickly, but my Hair became a mess.</p>
 <p>"Hey, what is this?"</p>
-<p>"Ahahaha! Teacher-ssi's Hair is funny~!"</p>
+<p>"Ahahaha! Teacher-ssi's Hair is funny!"</p>
 <p>"It'll be fine if I comb it for you, Teacher-nim."</p>
 <p>Konoe Akina gently combed my Hair with a comb. After Dyeing my Hair, I had been wearing it swept back for an Image transformation, but with my Hair combed down like this, I felt like the usual Taira Ryuta before the Dyeing.</p>
 <p>"Oh, covered Ryuta looks quite good?"</p>
 <p>"When I didn't dye my Hair and didn't tan my Skin, I used to wear my Hair down like this."</p>
-<p>"Liege, I'm curious about your Appearance before the transformation~!"</p>
+<p>"Liege, I'm curious about your Appearance before the transformation!"</p>
 <p>"That's right, Teacher-nim. I want to see it!"</p>
 <p>Except for Otagi Yuka, Konoe Akina, and Urabe Konoka, everyone else had met me at St. Francis Girls' academy, so Sakagami Rena and Saionji Diana were curious about my old Appearance.</p>
 <p>"Just a Moment...."</p>
@@ -81,4 +81,4 @@ chapter = 611
 <p>"Write it down if you want to. I'll read it out for you."</p>
 <p>I began to read the Status Window that had appeared before my Eyes to Saionji Diana.</p>
 <p>_________________</p>
-<p>Today's protagonist of Stats, Saionji Diana~!</p>
+<p>Today's protagonist of Stats, Saionji Diana!</p>

@@ -47,7 +47,7 @@ chapter = 384
 
 <p>Qingyi scratched his chin before sighing, moving his hand to Qianyao’s ass, his palm reaching her full, perfectly round cheeks, squeezing the creamy, sweat-soaked skin.</p>
 
-<p>“Aghn~~!” A high-pitched squeal escaped her lips, her golden eyes widening, violent ripples spreading across her bubble butt.</p>
+<p>“Aghn!” A high-pitched squeal escaped her lips, her golden eyes widening, violent ripples spreading across her bubble butt.</p>
 
 <p>She held onto Qingyi’s shoulders a little tighter, blushing deeply.</p>
 
@@ -73,7 +73,7 @@ chapter = 384
 
 <p>He approached Qianyao, his hands sliding into her cleavage, reaching her breasts and squeezing gently.</p>
 
-<p>“Nghnn~~ You… shameless…” The golden dragon shuddered, but didn’t push Qingyi away, just accepting his touch.</p>
+<p>“Nghnn You… shameless…” The golden dragon shuddered, but didn’t push Qingyi away, just accepting his touch.</p>
 
 <p>“I need a moment to cultivate. The talisman’s effect should last another ten hours, can you wait for me?” Qingyi asked.</p>
 
@@ -113,4 +113,4 @@ chapter = 384
 
 <p>Ruxue approached Qianyao, pulling her into a gentle embrace, their huge tits squeezing together.</p>
 
-<p>“We’ve got a lot to talk about while that shameless womanizer cultivates, fufufu~~” Ruxue’s laugh echoed through the forest; sweet, mature and sensual.</p>
+<p>“We’ve got a lot to talk about while that shameless womanizer cultivates, fufufu” Ruxue’s laugh echoed through the forest; sweet, mature and sensual.</p>

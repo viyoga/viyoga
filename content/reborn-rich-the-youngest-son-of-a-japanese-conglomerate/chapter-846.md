@@ -39,7 +39,7 @@ chapter = 846
 <p>In the clearing of Mount Fuji, the sound of Swords swinging and shouts of Gi echoed late into the night.</p>
 <p>Miyashi, Am-sang Branch.</p>
 <p>Saionji Diana, carrying a duffel bag, descended into the Underground of the love hotel where the Am-sang Branch was located. Naturally, Eve greeted Saionji Diana at the Am-sang Branch.</p>
-<p>"Welcome, Diana~!"</p>
+<p>"Welcome, Diana!"</p>
 <p>"Yeah. Long Time no see, Eve."</p>
 <p>Since the two had become like Friends after Eve performed Saionji Diana's cyber implant surgery, Eve and Saionji Diana spoke casually.</p>
 <p>"Are those the Chungrangdae items you mentioned?"</p>
@@ -65,10 +65,10 @@ chapter = 846
 <p>"Then what about these bullets?"</p>
 <p>"Those...."</p>
 <p>The two began a Discussion with the items they brought, and before long, the topic expanded to include various Weapons acquired by Am-sang. The two talked tirelessly about the parts to be mounted on Saionji Diana's combat cyber implants.</p>
-<p>Requested by TheDreaming-nim: Athena and Taira Kokoro sitting on a park bench, wearing only panties and exposing their breasts~!</p>
-<p>Starting with Athena~!</p>
-<p>Taira Kokoro~!</p>
+<p>Requested by TheDreaming-nim: Athena and Taira Kokoro sitting on a park bench, wearing only panties and exposing their breasts!</p>
+<p>Starting with Athena!</p>
+<p>Taira Kokoro!</p>
 <p>Requested by Hwanbuljeoldae-bulga-nim: Lisa, Home Ec Teacher sleeveless See-Through + Hotpants + Thigh band</p>
-<p>Lisa~!</p>
-<p>Home Ec Teacher~!</p>
+<p>Lisa!</p>
+<p>Home Ec Teacher!</p>
 <p>I thought something was missing, and it turns out the armpit image you requested was omitted ㄷㄷ. It would take more Time to make it again, so I just uploaded it as is. Your understanding is appreciated.</p>

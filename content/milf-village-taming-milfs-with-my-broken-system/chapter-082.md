@@ -5,7 +5,7 @@ weight = 82
 chapter = 82
 +++
 
-<p>&quot;You sure, Mom~? Look at how your ass moves on its own...&quot; Owen could see everything in vivid detail, like a 4K resolution video, as her plump tits moved up and down, and her curves and busty ass moved so lewdly.</p>
+<p>&quot;You sure, Mom? Look at how your ass moves on its own...&quot; Owen could see everything in vivid detail, like a 4K resolution video, as her plump tits moved up and down, and her curves and busty ass moved so lewdly.</p>
 
 <p>It was a pair of perfect spheres of melon, while her fresh rosy flesh bounced as she made her move, grinding up the cock inside her pussy.</p>
 
@@ -13,13 +13,13 @@ chapter = 82
 
 <p>It was a lovely, passionate fucking right there in the bathroom, and naturally, it was with her own son!</p>
 
-<p>&quot;Nghh~hnn, yes! Ahnn... ahnn, I’m telling the truth, ahnn, ahn...&quot; Her head rolled backwards as she gripped his nape even harder, working the great deed in perfect, rhythmic harmony.</p>
+<p>&quot;Nghhhnn, yes! Ahnn... ahnn, I’m telling the truth, ahnn, ahn...&quot; Her head rolled backwards as she gripped his nape even harder, working the great deed in perfect, rhythmic harmony.</p>
 
 <p>&quot;You sure you’re telling the truth? The real truth, Mom...? Take this!&quot;</p>
 
 <p>Thrust... thrust... thrust...</p>
 
-<p>&quot;Nghh~hhn... ahhnn... You are hitting my deepest part, my dear Wen... ahhn.&quot;</p>
+<p>&quot;Nghhhhn... ahhnn... You are hitting my deepest part, my dear Wen... ahhn.&quot;</p>
 
 <p>&quot;I’m molding my cock into your bad pussy, Mom.&quot;</p>
 
@@ -41,7 +41,7 @@ chapter = 82
 
 <p>&quot;I’m just naturally good, Mom. Hehe, it can’t be compared to Father, right?&quot;</p>
 
-<p>&quot;Nghh~nnn... Ye—No! Don’t say that about your father... ahhn, ahhn.&quot;</p>
+<p>&quot;Nghhnnn... Ye—No! Don’t say that about your father... ahhn, ahhn.&quot;</p>
 
 <p>&quot;Why, Mom...? Just this once... tell me the truth, Mom.&quot;</p>
 
@@ -53,9 +53,9 @@ chapter = 82
 
 <p>Hell, that was completely over the top.</p>
 
-<p>&quot;Then why are you moving your hips like that, Mom~?&quot;</p>
+<p>&quot;Then why are you moving your hips like that, Mom?&quot;</p>
 
-<p>&quot;Nghhh~hnnn... ahhn... It’s for research purposes... ahhn... ahhn.&quot;</p>
+<p>&quot;Nghhhhnnn... ahhn... It’s for research purposes... ahhn... ahhn.&quot;</p>
 
 <p>&quot;....&quot;</p>
 
@@ -85,7 +85,7 @@ chapter = 82
 
 <p>&quot;Then let’s cum together again, Mom! I’m also nearing my limit!&quot;</p>
 
-<p>&quot;Y-yes... ahhn... don’t let me go... ahhn... shove it deeper, my dear Wen! Fill my womb... again, Nghhh~hhnnn!!&quot;</p>
+<p>&quot;Y-yes... ahhn... don’t let me go... ahhn... shove it deeper, my dear Wen! Fill my womb... again, Nghhhhhnnn!!&quot;</p>
 
 <p>&quot;Take all my seed, Mom, and bear my legacy! Take it all!!&quot; Owen roared like a primal alpha, savoring the best prey. The seed of glory was about to be planted deep within her!</p>
 

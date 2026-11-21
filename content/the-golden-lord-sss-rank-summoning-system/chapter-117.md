@@ -6,7 +6,7 @@ chapter = 117
 +++
 
 <p>In a luxurious mansion, lying on a large bed, a pair of blood-red eyes opened.</p>
-<p>"W-what is this? Nghnn~" A sweet, high-pitched moan escaped her purple lips, a shade slightly darker than the violet skin covering her entire body.</p>
+<p>"W-what is this? Nghnn" A sweet, high-pitched moan escaped her purple lips, a shade slightly darker than the violet skin covering her entire body.</p>
 <p>She grunted, trying to move her hands only to realize they were tied above her head.</p>
 <p>Her eyes slowly traveled down her own body. They widened as a red blush spread across her purple skin.</p>
 <p>She was lying on her back. Her breasts, even pressed flat against her torso, held a round, perfect shape. Firm despite their ample size and the pull of gravity.</p>
@@ -18,7 +18,7 @@ chapter = 117
 <p>The cords sank into the plush, purple mounds, squeezing them tight enough that the swollen flesh bulged around the edges, tied securely at her back.</p>
 <p>She couldn’t see what covered her private parts, but she felt the narrow strip of fabric sinking between the plump lips of her pussy, wedged snugly against her most sensitive flesh.</p>
 <p>She was sure it was just as indecent as the garment that barely managed to cover the nipples of her large purple tits.</p>
-<p>"Arghn~ damn it!" Mireya cursed, glancing to the side just in time to see the door open.</p>
+<p>"Arghn damn it!" Mireya cursed, glancing to the side just in time to see the door open.</p>
 <p>"Y-you damn pervert! What kind of blasphemous clothes are these?! How dare you turn the body of royalty into a display of obscenity?!" she roared, drawing a sigh from Ethan.</p>
 <p>Fortunately, her mana reserves were completely depleted.</p>
 <p>Without being bound to a master, a death knight simply couldn’t regenerate mana easily. She needed decades of sleep or souls.</p>
@@ -37,20 +37,20 @@ chapter = 117
 <p>"W-wait, what do you think you’re doing?"</p>
 <p>Ethan didn’t answer. His hand fell upon her right breast, fingers gently closing over the purple flesh. The soft tit molded to his grip, warm and heavy, the plush skin dimpling under his touch.</p>
 <p>"Honestly, things would be so much easier if you’d just agree to become my subordinate. I’ll provide you with the souls to ascend, and perhaps, in the future, I’ll even take you to see the state of your royal family in the Kingdom of Burning Ice."</p>
-<p>"Y-you pig... nghn~~ I’ll die before—" Mireya’s lips parted in another lewd moan as Ethan pinched one of her nipples through the thin fabric of her micro bikini, the flimsy cloth doing almost nothing to separate his fingers from her bare skin.</p>
+<p>"Y-you pig... nghn I’ll die before—" Mireya’s lips parted in another lewd moan as Ethan pinched one of her nipples through the thin fabric of her micro bikini, the flimsy cloth doing almost nothing to separate his fingers from her bare skin.</p>
 <p>Her body shuddered, her back arching off the bed as she writhed on the sheets.</p>
 <p>[Mireya’s Opinion increased by 3 points]</p>
 <p>[Mireya’s Loyalty increased by 2 points]</p>
 <p>Seeing those two system notifications, Ethan’s lips curled upward.</p>
 <p>It was, indeed, a marvelous skill.</p>
-<p>"I-I’ll never become your servant! nghnn~ I’m a princess~ a~~ nghnn~~" Mireya declared, her voice cracking between indignation and pleasure.</p>
+<p>"I-I’ll never become your servant! nghnn I’m a princess a nghnn" Mireya declared, her voice cracking between indignation and pleasure.</p>
 <p>Ethan just shook his head. The fingers that had been teasing her nipple spread apart, his full hand grasping that plump, purple, juicy tit.</p>
 <p>He squeezed hard.</p>
 <p>The soft flesh spilled between his fingers, bulging obscenely around his grip. The fat, supple mound compressed under his palm, purple skin turning a deeper shade where his fingers dug in, and a moan full of indignation tore from the princess’s lips.</p>
 <p>His free left hand touched the other breast but didn’t linger.</p>
 <p>Slowly, his fingers trailed down, tracing her flat, perfect belly, sliding past her hips, and reaching the thong sinking between the lips of her vulva.</p>
 <p>He pulled the fabric aside and sank a single finger into the warm, soft slit.</p>
-<p>"OGHNNN~~" A loud, rumbling moan escaped Mireya’s lips, as if every part of her were screaming the moment Ethan’s finger pushed inside her pussy. "N-no aghnnn~~ N-not there! Pervert—"</p>
+<p>"OGHNNN" A loud, rumbling moan escaped Mireya’s lips, as if every part of her were screaming the moment Ethan’s finger pushed inside her pussy. "N-no aghnnn N-not there! Pervert—"</p>
 <p>It was strange. As if her whole body were on fire, every fiber screaming in pleasure.</p>
 <p>A pulsing heat spread from the touch, radiating down her thighs and up her spine.</p>
 <p>She stared at Ethan with fiery eyes, panting. She could feel his grip still squeezing her breast and the burning heat of his finger buried inside her, curling against her slick inner walls.</p>

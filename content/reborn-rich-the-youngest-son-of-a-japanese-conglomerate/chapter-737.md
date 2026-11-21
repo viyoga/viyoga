@@ -90,8 +90,8 @@ chapter = 737
 <p>The woman, who was muttering incomprehensible things, tapped something. And the screen of her smartphone turned on, revealing the woman's face in the darkness.</p>
 <p>The face revealed by the cold light of the smartphone was Taira Kanna. Her empty eyes and melted expression created an atmosphere of madness.</p>
 <p>_____________</p>
-<p>Illustration of Han Yu-gyeong and Ha Ju-yoon's mother and daughter in belly dancer outfits requested by MidNightSKY-nim~!</p>
-<p>Starting with the mother, Ha Ju-yoon~!</p>
+<p>Illustration of Han Yu-gyeong and Ha Ju-yoon's mother and daughter in belly dancer outfits requested by MidNightSKY-nim!</p>
+<p>Starting with the mother, Ha Ju-yoon!</p>
 <p>I thought it would be quite difficult to create Ha Ju-yoon with the new model, but it turns out it can be done hehe</p>
 <p>Daughter Han Yu-gyeong!</p>
 <p>Kiyoot!</p>

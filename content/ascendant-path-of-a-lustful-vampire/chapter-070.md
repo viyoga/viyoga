@@ -5,19 +5,19 @@ weight = 70
 chapter = 70
 +++
 
-<p>~Hellsong Dash~ was the Third Circle spell Caius had learned from his father two days ago. While it looked like it simply granted explosive propulsion, the reality was that it kept it stable just as well.</p>
+<p>Hellsong Dash was the Third Circle spell Caius had learned from his father two days ago. While it looked like it simply granted explosive propulsion, the reality was that it kept it stable just as well.</p>
 <p>The focus of the spell was on the ankles but Caius could feel its warmth spread all over his body. His brain was carried along so well that he didn’t seem to just be charging ahead with no possibility for direction.</p>
 <p>When he got to the other side of the platform of icy spikes he just broke through, it began to melt behind him but Caius couldn’t care less as he went charging at Baler, leaving behind a faint trail of red.</p>
 <p>The class cheered.</p>
 <p>Baler recoiled but recovered to form different seals and create another spell circle that he thrust forward, unleashing a lance of ice. The tip was massive and getting struck with it could probably knock one’s head off their shoulders as Caius was sure Baler was hoping would happen to him.</p>
 <p>Fortunately, as fast as the lance toss was, he was still faster and managed to dodge it, keeping his trajectory. Or so he thought.</p>
 <p>The moment the lance missed, Baler clenched one of his hands into a fist and pulled back. Snowflakes appeared along the lance’s stem and he gained control of it, pulling it out of its current path and turning it around so it went flying at Caius, somehow moving even faster now and catching up to Caius before he could reach his target.</p>
-<p>Caius’ eyes widened but rather than sidestep and dodge the lance again, he spun and wrapped a hand around it. The chill was body-numbing and went so deep inside his body it started to impact his body functions but ~Hellsong Dash~ was still active. Its warmth allowed him to shake off the chill and retain his clarity so he could toss the lance at Baler’s just as fast as it had traveled to strike him.</p>
+<p>Caius’ eyes widened but rather than sidestep and dodge the lance again, he spun and wrapped a hand around it. The chill was body-numbing and went so deep inside his body it started to impact his body functions but Hellsong Dash was still active. Its warmth allowed him to shake off the chill and retain his clarity so he could toss the lance at Baler’s just as fast as it had traveled to strike him.</p>
 <p>Baler’s eyes were serious but unbothered by their attack. He had a seal formed and unleashed it in a massive icy blue spell circle that received the lance and absorbed it to repurpose it as multiple spikes that he sent flying.</p>
 <p>"Burn through this, asshole!" Baler said through gritted teeth as his barrage went swarming at Caius.</p>
-<p>Caius’ fist was clenched and he looked ready to strike forward and unleash a fireball but he could just tell it wasn’t going to be enough. He would need multiple fireballs to counter so many spikes. To dodge it, he would also need to kick his running speed up another notch despite already having cast ~Hellsong Dash~</p>
+<p>Caius’ fist was clenched and he looked ready to strike forward and unleash a fireball but he could just tell it wasn’t going to be enough. He would need multiple fireballs to counter so many spikes. To dodge it, he would also need to kick his running speed up another notch despite already having cast Hellsong Dash</p>
 <p>Fortunately, he had just the thing.</p>
-<p>~Galleon’s Gate~</p>
+<p>Galleon’s Gate</p>
 <p>He thrust his hand forward and a dark purple spell circle appeared in front of it, twisting and changing until it became a gigantic gate.</p>
 <p>The gate had an inlaid structure like the thick hull of what must have once been a massive ship. But overlaid over that structure was a smoky thing that looked frankly demonic. It had horns jutting out of its head and its mouth was open to reveal horrible fangs. Its eyes were a dark purple that glowed against the black smoke backdrop.</p>
 <p>Every spike that struck the Gate was swallowed into its maw, never to be seen again. Even worse, the visage of the gate was so horrid that it caused Baler to flinch and freeze in horror.</p>

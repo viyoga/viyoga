@@ -27,7 +27,7 @@ chapter = 314
 <p>"I am asking how you got offed. Truck-Kun? Or one of his numerous cousins?"</p>
 <p>Sol tilted his head in confusion for a short while before his eyes opened wide in astonishment.</p>
 <p>"You…!"</p>
-<p>"Hello~I am your senior."</p>
+<p>"HelloI am your senior."</p>
 <p>"How did you…"</p>
 <p>Sol was about to ask how Anubis guessed but immediately stopped.</p>
 <p>Anubis was one of the first mortal demigods. Meaning that he had been on the Mortal realm even before the creation of Lustburg.</p>

@@ -20,7 +20,7 @@ chapter = 485
 <p>And because she had a unique class, she also had a series of class quests she needed to complete in order to acquire the right skills and boost that class’s power.</p>
 <p>Unfortunately, she’d made some choices—well… not very smart ones—in the last few quests, and ended up stuck on a path that required her to fight alongside an NPC.</p>
 <p>“I see.” Seo-ah nodded, closing the quest window with a light gesture. “Ethan will probably help you if you’re honest with him.”</p>
-<p>“Of course he will. Because your dear NPC is a gentleman who would never leave a woman like me in danger, right? Hehehe~” Chae-rin puffed out her chest proudly, and her tits lurched forward with the movement, quivering like two fat mounds of jelly.</p>
+<p>“Of course he will. Because your dear NPC is a gentleman who would never leave a woman like me in danger, right? Hehehe” Chae-rin puffed out her chest proudly, and her tits lurched forward with the movement, quivering like two fat mounds of jelly.</p>
 <p>“No.” Seo-ah shook her head. “Because of those huge cow-like boobs right there. Hubby can’t resist them.”</p>
 <p>“H-hey! I don’t have cow boobs!” Bustyviper declared, stomping her foot on the ground.</p>
 <p>The impact shot straight up through her body. Her giant breasts bounced hard inside the tight bodysuit, slapping together with a muffled sound and sending a tremor across the stretched fabric that could barely hold everything in place.</p>

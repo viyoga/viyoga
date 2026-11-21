@@ -19,7 +19,7 @@ chapter = 98
 <p>Elena looked up at him, a glint of amusement in her eyes as she increased both the suction and the pressure of her breasts around his cock.</p>
 <p>She felt his cock throb painfully and, with one final, crushing squeeze of her massive dark tits, he came.</p>
 <p>Elena’s eyes widened, and her cheeks, sunken from the suction, inflated with Ethan’s cum.</p>
-<p>"Gulp~ Kulh~~ ah!"</p>
+<p>"Gulp Kulh ah!"</p>
 <p>She took a single gulp, the viscous seed sliding down her throat.</p>
 <p>When she went for the second, she choked on the volume.</p>
 <p>Her mouth opened, making room for a sea of cum to spill out nonstop, painting her dark tits white and sliding down the juicy, perfect orbs.</p>
@@ -28,7 +28,7 @@ chapter = 98
 <p>Elena leaned back, landing on her ass on the floor. The impact made her heavy, cum-glazed tits bounce against her chest.</p>
 <p>Her back arched as she cupped them, the dense flesh spilling over her arms.</p>
 <p>Her dress rode up to her hips, revealing her soaked black panties. The thin fabric clung to the plump, full lips of her vulva.</p>
-<p>"Ah... that was~" Elena couldn’t finish. The door to Ethan’s office suddenly opened.</p>
+<p>"Ah... that was" Elena couldn’t finish. The door to Ethan’s office suddenly opened.</p>
 <p>"Husband, I learned a new spell and wanted to-" Alice fell silent, her eyes landing on Elena.</p>
 <p>The dark-skinned beauty was covered in her husband’s cum. From her lips to her enormous tits, everything was painted white.</p>
 <p>Her pussy was clearly soaked, and her lips were reddened from sucking his cock.</p>

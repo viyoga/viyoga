@@ -31,7 +31,7 @@ chapter = 355
 <p>Then Kaiden’s finger flicked forward and tapped Alice’s forehead with a sharp snap.</p>
 <p>"Ah!" She jolted in panic and shock, and instantly, the manic haze began disintegrating away as she recoiled with a pout. She refused to meet his eyes, knowing full well the scolding that was about to come if she started arguing with him.</p>
 <p>As such, Alice didn’t even attempt defending her actions, though her lips still twisted as she muttered under her breath to no one in particular, "A greeting kiss between brother and sister is completely normal... Stop making such a fuss over nothing, shameless sluts..."</p>
-<p>That was it. Nyx instantly burst into laughter. It lasted a good few seconds before she managed to collect herself enough to tease, "A kiss on the cheek, you mean, right, little sis~?"</p>
+<p>That was it. Nyx instantly burst into laughter. It lasted a good few seconds before she managed to collect herself enough to tease, "A kiss on the cheek, you mean, right, little sis?"</p>
 <p>Alice crossed her arms and turned her head with an exaggerated scoff, refusing to answer. Well, considering that women flanked her and Kaiden from all sides, turning her head didn’t prove to be enough. The little sis thus found refuge in the bridge of her brother’s shoulders and neck, where she hid away from the onlookers.</p>
 <p>Sarah’s voice broke. "E–Elara... isn’t that... isn’t that girl... Alice Ashborn?!"</p>
 <p>Elara’s face drained of blood as her trembling hand found Sarah’s on instinct. Together they clutched each other like two kids huddled in a thunderstorm. "Yes... Th-the Light That Destroys... Alice Ashborn!"</p>
@@ -45,5 +45,5 @@ chapter = 355
 <p>Finally, Kaiden exhaled through his nose and whispered in a low, commanding tone, "Alice. Listen."</p>
 <p>It was as if he had cast a spell enforcing obedience. Instantly, her resistance melted away. Her body loosened, her head lifted, and her teary eyes shimmered as she finally looked at him.</p>
 <p>"So dramatic..." Kaiden muttered, utterly unimpressed.</p>
-<p>"Ehehe~" Alice giggled through her tears, the sound of which was bright and girlish, as if she had already forgotten her supposed suffering.</p>
+<p>"Ehehe" Alice giggled through her tears, the sound of which was bright and girlish, as if she had already forgotten her supposed suffering.</p>
 <p>Kaiden pinched the bridge of his nose. "How did you even get out of prison? Mom should still be in the dungeon. She didn’t get you out."</p>

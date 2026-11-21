@@ -67,7 +67,7 @@ chapter = 544
 <p>"Accepting will make me the happiest woman in the world."</p>
 <p>"Then, let's be happy together."</p>
 <p>Sol released a sigh of relief he did not know he had been holding and then, taking her finger, he put the ring on her.</p>
-<p>Clap~ Clap ~ Clap</p>
+<p>Clap Clap  Clap</p>
 <p>It was hard to say where it began.</p>
 <p>At first, they were hesitant, small, and almost inaudible.</p>
 <p>But soon, like a veritable tsunami, clapping of congratulations started to come from everywhere.</p>

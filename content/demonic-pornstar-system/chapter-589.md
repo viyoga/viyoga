@@ -81,4 +81,4 @@ chapter = 589
 <p>She lifted her head, glaring up at Alice with naked fury, hair hanging in disheveled strands around her face. The humiliation burned hotter than the pain now. An A-Tier. Reduced to crawling. Reduced to this.</p>
 <p>"I’ll kill you!" Vaelira hissed hoarsely, voice cracking under the strain.</p>
 <p>"Alexandra, please make me a filling sandwich. I’ll be at this for a while, and I get hungry when I expend mana," Alice decreed while pulling her sleeves up.</p>
-<p>"Coming right up~" the maid cheered and hurried to the kitchen.</p>
+<p>"Coming right up" the maid cheered and hurried to the kitchen.</p>

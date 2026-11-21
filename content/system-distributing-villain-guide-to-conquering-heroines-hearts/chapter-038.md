@@ -74,6 +74,6 @@ chapter = 38
 <p>"Ah, that’s not it!" He put on a nervous look, waving his hands. "I just... I just..."</p>
 <p>"You just got tired of my cooking, right?" She said with a dull face.</p>
 <p>"No, I just wanted to cook something for you for supporting my actions!" Dante seemed to finally give up and admit it, raising his voice.</p>
-<p>’How cute~’ Natasha covered her mouth and giggled.</p>
+<p>’How cute’ Natasha covered her mouth and giggled.</p>
 <p>It made her want to tease him even more.</p>
 <p>Share to your friends</p>

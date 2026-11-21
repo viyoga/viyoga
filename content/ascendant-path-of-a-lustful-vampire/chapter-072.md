@@ -11,7 +11,7 @@ chapter = 72
 <p>"No!" Baler said but it was muffled slightly by his busted jaw. His icy-blue eyes were wide but through this attack, he had managed to keep his fingers in the seal position they had been in before Caius landed the blow and hurried to complete his spell casting.</p>
 <p>He thrust his hand forward and a spell circle appeared to conjure a wall of ice.</p>
 <p>Caius smirked. He had expected that and was ready.</p>
-<p>~Fireball~</p>
+<p>Fireball</p>
 <p>The spell circle appeared against his knuckles and turned into a ball of fire just in time to make contact with the wall and shatter it.</p>
 <p>"Hngh!" Baler groaned not only in pain at his jaw but also in a brief moment of worry that his defense was so easily broken through. Fortunately, he had learned from his earlier mistakes.</p>
 <p>Already, he had seen Caius was capable of breaking through icy walls and platforms so, while this was worrying, this was not all that shocking and he had a plan.</p>
@@ -37,19 +37,19 @@ chapter = 72
 <p>He needed that latent potential that he had managed to tap into when he punched Baler. He felt the muscles in his arms and he couldn’t detect them all but he detected enough to smile to himself.</p>
 <p>"Balance..." he said in a low voice and flexed his arms.</p>
 <p>And then he bent low and jumped.</p>
-<p>~Hellsong Dash~!</p>
+<p>Hellsong Dash!</p>
 <p>The spell circle appeared, filled him with warmth, and granted him the boost to strike at the roof of the box as hard as he possibly could.</p>
 <p>Why the roof? Well, it was where the box’s structure was weakest.</p>
 <p>*Crack!*</p>
-<p>A long fissure appeared across the ice and spread into longer, larger cracks as Caius landed on the ground again. This time, when he jumped, he cast ~Fireball~ with both his hands and struck the roof, breaking through layers of Ice and creating an opening.</p>
+<p>A long fissure appeared across the ice and spread into longer, larger cracks as Caius landed on the ground again. This time, when he jumped, he cast Fireball with both his hands and struck the roof, breaking through layers of Ice and creating an opening.</p>
 <p>Baler gritted his teeth in annoyance and was already attempting to replace the destroyed walls. The snowflakes were still there and could reform but then he faltered as he found his Mana had run far too low to keep the other sides of the box upright and solid while also reforming the destroyed roof. His hand shook and the spell circle faded in and out as he struggled to keep a grip.</p>
 <p>The thing was though, even if Baler had the Mana to reform the roof, Caius had planned for that.</p>
-<p>~Hellsong Dash~</p>
+<p>Hellsong Dash</p>
 <p>A chime sounded as fire burst from his feet and sent him way past the shattered roof where he did a flip so his feet were slightly inclined toward the ceiling just so he could boost himself back down.</p>
 <p>Baler looked up and saw the shadow cast by Caius coming down at him with a fist drawn. He canceled his spell circle and the box melted away just as he managed to create a slab of ice to slide just a few inches away and avoid the fist.</p>
-<p>But the moment Caius hit the ground on one knee, he boosted himself forward, still with ~Hellsong Dash~, and just in time, he spun around, and struck his leg into Baler’s midsection before he could even think to try to get away a second time.</p>
+<p>But the moment Caius hit the ground on one knee, he boosted himself forward, still with Hellsong Dash, and just in time, he spun around, and struck his leg into Baler’s midsection before he could even think to try to get away a second time.</p>
 <p>"ACK!" Baler let out in his loudest cry of pain yet.</p>
-<p>Maybe it was due to the boost by ~Hellsong Dash~, maybe it was because the latent potential of some of his leg muscles kicked in. Maybe it was both. Anyhow, Caius’ kick sent Baler flying. He went farther than twenty feet, clearing the boundary of the Outer Ring and offshooting it by a couple more feet.</p>
+<p>Maybe it was due to the boost by Hellsong Dash, maybe it was because the latent potential of some of his leg muscles kicked in. Maybe it was both. Anyhow, Caius’ kick sent Baler flying. He went farther than twenty feet, clearing the boundary of the Outer Ring and offshooting it by a couple more feet.</p>
 <p>And when he hit the ground, disqualified and sapped of energy. With his breath knocked out of him, he groaned which sounded even worse due to his wounded jaw as he rolled from side to side, gripping his stomach in pain.</p>
 <p>The class cheered.</p>
 <p>Yelling loudest of all, complete with woos and whistles that sounded so musical, was Eloise Nightingale. Despite her disinterest in combat, she always seemed to be a fan of violence all the same.</p>

@@ -62,7 +62,7 @@ chapter = 50
 <p>Together with Evelyn, he walked through the goblin camp.</p>
 <p>"Hm... didn’t you say you’d make me captain of the guard? That man isn’t me." Evelyn spoke beside him, her eyes narrowing with a hint of dissatisfaction.</p>
 <p>"I know..." Ethan shook his head. "I changed my mind. In the future, I plan to create a private protection guard, just for me. I want you to command it."</p>
-<p>"Oh... let me see, fufufu~~ you’re going to want to fill that guard with beautiful, virgin women, and you only trust another woman of yours to command them?" Evelyn giggled, barely noticing the change in Ethan’s gaze.</p>
+<p>"Oh... let me see, fufufu you’re going to want to fill that guard with beautiful, virgin women, and you only trust another woman of yours to command them?" Evelyn giggled, barely noticing the change in Ethan’s gaze.</p>
 <p>He was, after all, a huge pervert.</p>
 <p>"I... I’d never thought of that, that’s a wonderful idea!"</p>
 <p>"What, no!" Evelyn shouted, realizing she’d said too much.</p>

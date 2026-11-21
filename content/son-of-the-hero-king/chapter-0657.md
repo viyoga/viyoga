@@ -32,7 +32,7 @@ chapter = 657
 <p>In this world, mere mortals could never hope to face a goddess. The simple thought was nothing but pure madness and ignorance. Yet wisdom had nothing to do with power and strength.</p>
 <p>What did it matter if a goddess could erase her existence with a wave of her hand? This did not make the goddess wise now, did it? Only strong and unbending.</p>
 <p>“Mortals can make even the gods fear.”</p>
-<p>Clang~!</p>
+<p>Clang!</p>
 <p>Another sound. One close yet subtly different from the previous. one. This sound caused Theresa to grin further and strike again and again and again.</p>
 <p>At first, her hits were frenetic but it did not take long for her rhythm to change and her technique to evolve.</p>
 <p>She was pouring everything into this work. Her knowledge, her fears, her desire, her dreams.</p>

@@ -10,7 +10,7 @@ chapter = 413
 <p>Ryuta: Let's meet briefly in the clubroom after the first period.</p>
 <p>It wasn't anything special, but since I don't usually contact students to meet separately, the three who received the LINE message probably sensed that I was going to tell them something important.</p>
 <p>It was about 10 minutes before the end of class when I finished receiving Kijimoto Jurie-ssi's service, so I sent the LINE message from the teachers' lounge and went up to the clubroom right away.</p>
-<p>♪!~♬~♩~!</p>
+<p>♪!♬♩!</p>
 <p>Soon, the bell rang to signal the end of the first period, and the door of the Date Experience Club opened, and Konoe Akina-ssi, Saionji Diana-ssi, and Otagi Yuka-ssi entered.</p>
 <p>,Teacher, what's going on?"</p>
 <p>,Teacher-ssi, is it urgent?"</p>

@@ -65,7 +65,7 @@ chapter = 781
 
 <p>She didn’t interrupt their love; instead, she lay beside them, watching the familiar cock moving slowly in and out of Lily’s honeyed folds, mesmerized by the beautiful rhythm.</p>
 
-<p>&quot;Lily, be careful... don’t take it too deep, alright~&quot;</p>
+<p>&quot;Lily, be careful... don’t take it too deep, alright&quot;</p>
 
 <p>Chloe said softly, then leaned in to lick at their joining, teasing the base of his shaft.</p>
 
@@ -73,13 +73,13 @@ chapter = 781
 
 <p>Both lovers moaned at the sensation. Lily sat up, steadying herself against her husband’s chest, her voice trembling: &quot;Tease... that’s a bit too stimulating...&quot;</p>
 
-<p>&quot;I can’t, can’t handle too much pleasure~&quot;</p>
+<p>&quot;I can’t, can’t handle too much pleasure&quot;</p>
 
 <p>Chloe chuckled warmly and embraced her from behind, her hands cupping and massaging Lily’s full, perfect breasts.</p>
 
-<p>&quot;Sweet Lily, I’m worried about you too. You can’t overdo it while sneaking a taste~&quot;</p>
+<p>&quot;Sweet Lily, I’m worried about you too. You can’t overdo it while sneaking a taste&quot;</p>
 
-<p>&quot;If you’re not satisfied, just get your husband to go harder on your asshole later~&quot;</p>
+<p>&quot;If you’re not satisfied, just get your husband to go harder on your asshole later&quot;</p>
 
 <p>&quot;You naughty Chloe!!!&quot;</p>
 
@@ -109,7 +109,7 @@ chapter = 781
 
 <p>Her husband and Chloe were both lying on her, kissing and caressing her with such tender affection.</p>
 
-<p>&quot;Honey, rest a while~&quot;</p>
+<p>&quot;Honey, rest a while&quot;</p>
 
 <p>After a soft kiss on her cheek, Luis pulled Chloe up. Under Lily’s dazed gaze, he laid her on her side.</p>
 
@@ -143,7 +143,7 @@ chapter = 781
 
 <p>Lily said shyly.</p>
 
-<p>&quot;Hurry up, I’m getting impatient~&quot;</p>
+<p>&quot;Hurry up, I’m getting impatient&quot;</p>
 
 <p>Luis lay back on the bed, lighting a post-coital cigarette, thinking to himself: this is the true blessing of having multiple beauties.</p>
 
@@ -157,7 +157,7 @@ chapter = 781
 
 <p>They slipped into bed on either side of Luis, who immediately began fondling their breasts.</p>
 
-<p>&quot;Honey, I saw this restaurant on TikTok earlier—I’m absolutely craving it~&quot;</p>
+<p>&quot;Honey, I saw this restaurant on TikTok earlier—I’m absolutely craving it&quot;</p>
 
 <p>Lily giggled, and Chloe quickly grabbed her phone. &quot;This is the one—I’ve seen it too...&quot;</p>
 
@@ -169,7 +169,7 @@ chapter = 781
 
 <p>These fish couldn’t be farmed and were quite niche—living in coral reefs where netting was impossible. They had to be caught manually, making them rare and expensive in the seafood market.</p>
 
-<p>&quot;They do look good—I’ve never seen these fish before~&quot;</p>
+<p>&quot;They do look good—I’ve never seen these fish before&quot;</p>
 
 <p>Luis watched along with them.</p>
 

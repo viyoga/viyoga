@@ -43,4 +43,4 @@ chapter = 1117
 <p>"It's Tosen Nobumichi, whom you promised to meet today, and Young Master Taira Ryuta." -Please come in. Cheolkuk. As we introduced ourselves, the Gate opened with the Words to come in. We opened the Door and entered Inside the House. Passing through the spacious Yard and entering the Home, an Elderly Person in a wheelchair greeted us.</p>
 <p>"...!"</p>
 <p>"...." Tosen Nobumichi and I couldn't help but be speechless for a Moment. The Complexion of the Elderly Person in the wheelchair who greeted us was so poor. It was clearly Sato Koji's Face from the information we had gathered beforehand, but he was so visibly ill that we couldn't bring ourselves to ask him for Work.</p>
-<p>Requested by Gojoy-nim, Chapter 64 Remake Arisu and Yukiko who fell asleep after entering the Home~! 1. 2. Requested by chea yun-nim, Bikini Herta Vogel~!</p>
+<p>Requested by Gojoy-nim, Chapter 64 Remake Arisu and Yukiko who fell asleep after entering the Home! 1. 2. Requested by chea yun-nim, Bikini Herta Vogel!</p>

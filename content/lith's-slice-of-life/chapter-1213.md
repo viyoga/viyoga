@@ -100,7 +100,7 @@ The scent of roses filled his nose and brought a sense of calm as she neared him
 
 
 
-“My baby~” Lilith let out a soft chuckle and hugged Lith.
+“My baby” Lilith let out a soft chuckle and hugged Lith.
 
 
 

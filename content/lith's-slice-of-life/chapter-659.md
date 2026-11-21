@@ -67,7 +67,7 @@ Finally, she asked, "so if I touch it, it'll go up?"
 
 Lith smiled. "Sure. Give it a try."
 
-"Okie!~" Alea immediately touched Lith's shaft and started playing with it, hoping she would see the erect version soon.
+"Okie!" Alea immediately touched Lith's shaft and started playing with it, hoping she would see the erect version soon.
 
 But Lith was in a playful mood today and didn't let her have an easy time.
 

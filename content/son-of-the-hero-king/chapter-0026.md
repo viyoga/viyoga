@@ -59,7 +59,7 @@ chapter = 26
 <p>"...And yet, you will still choose to betray me."</p>
 <p>"Indeed, I have."</p>
 <p>"Why?" She whispered, lost and distraught, "Did I not fight enough for you? Did I not bleed for you?!! What about our promise?"</p>
-<p>"Promise? Hahaha~! Oh, my dear goddess. Are you serious? Are you really that dumb? Did you seriously think that we could have a completely platonic relationship? Why should I torture myself with a woman I can't even touch?"</p>
+<p>"Promise? Hahaha! Oh, my dear goddess. Are you serious? Are you really that dumb? Did you seriously think that we could have a completely platonic relationship? Why should I torture myself with a woman I can't even touch?"</p>
 <p>Each of his words was mercilessly striking at her heart. Her whole body shivered as her tears slowly fell on the ground of her prison.</p>
 <p>"Why… I could give up everything for you. I even refused to listen to my mother and sisters for you. I believed in you. If it's about your urge there's no problem. I do not mind you having other women. As long as you keep staying with me, as long as you keep loving me. I can accept everything. So please. Do not discard me! Please…please... "</p>
 <p>She became an utter mess as she vented out her suffocating emotions and crumbled while bawling her eyes out, whispering, pleading to him to not discard her, to not abandon her.</p>
@@ -72,7 +72,7 @@ chapter = 26
 <p>His words struck Edea dumb so much so that even her incessant sobbing had stopped, she threw an incredulous look at Jupiter as she blankly asked.</p>
 <p>"... Just because of that? Just because I am outshining your light?"</p>
 <p>The light vanished from her eyes as she realized for the first time just what kind of man she had fallen in love with.</p>
-<p>"Heh, Haha. Hahaha~! I was truly stupid. Oh so stupid and naive."</p>
+<p>"Heh, Haha. Hahaha! I was truly stupid. Oh so stupid and naive."</p>
 <p>Jupiter looked at her indifferently before simply ignoring her mad laughter as he turned to leave, the door slowly closing on his parting words.</p>
 <p>"That door will not open before at least 200 years. By then I should have conquered the other six kingdoms. Sit tight. I will free you once I reach my goal."</p>
 <p>Edea continued to laugh hollowly without paying any attention to him. It was a burst of shrill laughter full of self-mockery and inner hatred.</p>

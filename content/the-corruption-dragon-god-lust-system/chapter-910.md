@@ -19,7 +19,7 @@ chapter = 910
 
 <p>"Yes," Qingyi agreed with a soft chuckle. "I want to take her to see the capital soon; I think she'll love the huge buildings."</p>
 
-<p>"Knowing her, she'll love anything new, fufufu~" Rouxi let out an amused chuckle. "Just yesterday she was playing in the cockpit of your ship and, somehow, managed to take off all by herself. Celestia was there and nearly had a heart attack." 𝒻𝘳ℯℯ𝑤ℯ𝒷𝘯ℴ𝓋ℯ𝘭.𝑐ℴ𝑚</p>
+<p>"Knowing her, she'll love anything new, fufufu" Rouxi let out an amused chuckle. "Just yesterday she was playing in the cockpit of your ship and, somehow, managed to take off all by herself. Celestia was there and nearly had a heart attack." 𝒻𝘳ℯℯ𝑤ℯ𝒷𝘯ℴ𝓋ℯ𝘭.𝑐ℴ𝑚</p>
 
 <p>Hearing that, Qingyi let out a low chuckle, careful not to wake the little one sleeping on his chest. "I'll buy a new ship soon and let her play to her heart's content."</p>
 

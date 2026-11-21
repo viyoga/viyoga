@@ -19,7 +19,7 @@ chapter = 69
 <p>The Queen quickly tried to rush towards the Wolf Rook with her mandibles positioned to tear it to pieces! The Wolf Rook immediately dashed to the side and used the wall of the cave as a springboard to get up and around the ant’s body! The Queen tried to turn around quickly, but it was too slow since its leg was missing, and the Ant Rook quickly used [Linear Charge] against it!</p>
 <p>BOOM!</p>
 <p>A sound like a Gatling Gun shot through the cave as the ant slammed into the side of the Queen! The Queen flew back quickly and slammed into the wall of the cave, and it let out a loud screech as it hurried to get to its feet! It immediately reached out for the Rook and latched onto it with her long legs! The Rook tried to tear out of the Queen’s grip, but the Queen didn’t allow it to move as she grabbed its head and tore it off its body!</p>
-<p>RIP~!</p>
+<p>RIP!</p>
 <p>Jason grimaced at the brutal execution and narrowed his eyes as the Queen got to her feet and let out a loud screech of intimidation! The body of the Ant Rook faded into purple dust, and the Ant Queen let out a skitter as it turned to look at Jason and the Wolf Rook. It almost seemed like it was laughing at them since it knew there were fewer enemies now.</p>
 <p>But Jason just allowed a nasty grin to appear on his face as a tab opened in front of him.</p>
 <p>[Would the user like to revive the Adamantine Ant Rook? Yes/No]</p>

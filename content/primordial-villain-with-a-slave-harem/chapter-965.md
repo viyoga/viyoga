@@ -24,7 +24,7 @@ chapter = 965
 <p>Both women scrambled upright instantly, heads bowed, hands trembling, postures perfect. The image of pure obedience.</p>
 <p>But for just a moment, their gazes lifted to observe who else was present. A big mistake.</p>
 <p>Because, waiting for them, like predators at the watering hole, were two very specific smiles.</p>
-<p>"Hey, sunshine~ Ronan and I missed you greatly~" Blackjack waved at Vivienne, his sharp teeth on full display, grin stretching wider than sanity allowed. "Looks like someone needs a little correction. If you need help breaking this brat’s attitude, boss... I’m always free. You know how much I love community service."</p>
+<p>"Hey, sunshine Ronan and I missed you greatly" Blackjack waved at Vivienne, his sharp teeth on full display, grin stretching wider than sanity allowed. "Looks like someone needs a little correction. If you need help breaking this brat’s attitude, boss... I’m always free. You know how much I love community service."</p>
 <p>Vivienne’s pupils shrank to pinpricks. She would’ve instantly fainted, but somehow, for a reason she couldn’t quite understand, her body remained standing upright.</p>
 <p>At the same time, Amara’s landed on ’her.’</p>
 <p>Selene.</p>

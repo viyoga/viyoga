@@ -9,7 +9,7 @@ chapter = 1995
 <p>Sera stayed beside her, healing light moving over the torn shell. The spider shuddered as the bleeding wounds closed, then gingerly put weight on a leg she’d been dragging.</p>
 <p>"Better?"</p>
 <p>"Yes... First time I... Heal magic."</p>
-<p>"Oh?" The blonde beauty’s eyes lit up. "I hope I didn’t disappoint~"</p>
+<p>"Oh?" The blonde beauty’s eyes lit up. "I hope I didn’t disappoint"</p>
 <p>"No... I... Amazed..."</p>
 <p>"Hehe! You truly are a good girl, aren’t you?"</p>
 <p>"...Yes..."</p>
@@ -50,7 +50,7 @@ chapter = 1995
 <p>From beside the terrace, Kitsara made a pained little sound. "She hugged its face..."</p>
 <p>"Silky is far too adorable for you to continue this nonsense attitude," Sera spoke up. The healer elf was already in Silky’s camp. "Silky is the cutest."</p>
 <p>"Eh?" Blossom gasped.</p>
-<p>"Blossom, Rosie, and Silky are the cutest~" Seraphiel corrected her blunder.</p>
+<p>"Blossom, Rosie, and Silky are the cutest" Seraphiel corrected her blunder.</p>
 <p>"...Traitor," Kitsara scoffed. "Spider monster praises her magic and this bitch is already down on all fours..."</p>
 <p>"I can hear you..."</p>
 <p>"Good..."</p>
@@ -112,7 +112,7 @@ chapter = 1995
 <p>Iris’s red eyes turned toward the samurai.</p>
 <p>"You could fucking try."</p>
 <p>Quinlan pointed toward the far end of the grounds before either drew a weapon. "Away from the glassware, please."</p>
-<p>"Gladly~"</p>
+<p>"Gladly"</p>
 <p>Ayame walked off with Iris at her shoulder, both already arguing about who would regret the invitation. Their first clash rang out beyond the garden wall while Anna and Beatrice brought plates onto the terrace, with Clarisse following behind the twins carrying bread and sauce.</p>
 <p>"Die, cunt!"</p>
 <p>"I’ll teach you some manners finally, bitch!"</p>

@@ -27,7 +27,7 @@ chapter = 73
 <p>-I'll take the 30 million in a month. By the way, when are you coming to the GYM next week? I couldn't go during training, so I want to go after a long time....</p>
 <p>As expected, Kawaji Emiko chose to receive it a month later, as I predicted. And she missed my big-sized hotdog that she hadn't tasted because she was busy, so she asked when I was coming to the gym.</p>
 <p>"Now that the training is over, I'll go right after I finish at 5. If you come on time, I'll do it anytime."</p>
-<p>-Thank you, Ryuta-gun~! See you next week~♡</p>
+<p>-Thank you, Ryuta-gun! See you next week♡</p>
 <p>After finishing the call with Kawaji Emiko, I slowly started getting ready to leave. I sent a simple Line to Hanasaki Sayaka, who was waiting anxiously, saying I was leaving now, and got into the car.</p>
 <p>I set the destination to TERT and departed. It was lunchtime and the road to downtown Tokyo was a bit congested. It usually takes about 40 minutes, but I left with about ten minutes to spare, so I wouldn't be late.</p>
 <p>I parked the car in the TERT parking lot and was about 5 minutes late. Line was already a mess with messages sent by Hanasaki Sayaka. From "Did you have a traffic accident?" to "Please keep the autograph intact." I sent a Line saying, "The traffic was heavy, I'm in the parking lot now," and took the elevator.</p>
@@ -42,7 +42,7 @@ chapter = 73
 <p>"You were waiting for this more than me, right?"</p>
 <p>"Was it obvious? Hehe."</p>
 <p>Isn't it shameless to ask if it was obvious...? Well, we wouldn't have met if it wasn't for the autograph, so of course she wasn't waiting for me.</p>
-<p>"Let's go have lunch now~!"</p>
+<p>"Let's go have lunch now!"</p>
 <p>"Where are we eating today?"</p>
 <p>As I said before, there are four restaurants in TERT: Japanese, Western, Chinese &amp; Asian, and Central/South American &amp; African. I was curious where we would eat, so I asked. Last time, we ate on the floor with Chinese &amp; Asian food.</p>
 <p>"We're going to eat Mexican food today."</p>
@@ -51,7 +51,7 @@ chapter = 73
 <p>"Fujiigasaki Rinka-nim, Taira Ryuta-ssi's master, is fighting a challenger from Mexico in UMC, right? You didn't know that?"</p>
 <p>Hmm.... As a disciple, I wasn't very interested in Fujiigasaki Rinka. But to look at me with eyes that said, "Is this Bastard even a disciple?".... Even if I'm indifferent, isn't that too much?</p>
 <p>"I've been too busy with work lately to pay attention. Thanks for letting me know. I should send a message of support to my master."</p>
-<p>"Ah~ you said you've been busy lately, right? I heard it from Arisu. Arisu said that Taira Ryuta-nim is busy and can't meet her often, and she's sad about it."</p>
+<p>"Ah you said you've been busy lately, right? I heard it from Arisu. Arisu said that Taira Ryuta-nim is busy and can't meet her often, and she's sad about it."</p>
 <p>Only then did Hanasaki Sayaka withdraw her suspicious gaze. We went to the restaurant and ordered. I ordered carne asada, tacos, and burritos, and Hanasaki Sayaka ordered chimichangas, fried burritos. It's heavy food for an actress, but she said she can eat as much as she wants because her schedule has ended recently.</p>
 <p>The Mexican food I ate after a long time was delicious. The housekeeper is good at Japanese, Chinese, and Western food, but she doesn't make other Asian or Central/South American food, but it's delicious to eat after a long time. Still, she heard that I'm Korean, so she's learning Korean food. The housekeeper is skilled, so I'm looking forward to Korean food too.</p>
 <p>After finishing the meal, Hanasaki Sayaka, who was admiring the autograph with a happy expression, asked me to take a commemorative photo with the autograph, so I took it.</p>
@@ -59,10 +59,10 @@ chapter = 73
 <p>We decided to have the training institute graduation party at the Prime Hotel, where Han Yu-gyeong and I stayed before and were attacked by assassins. There was a hotel buffet and we rented a large room for the party. The hotel couldn't handle the attack last time and was scolded by me, so they apologized again and gave us a considerable discount.</p>
 <p>Even with the discount, the price of the buffet for 15 people plus the price of a large room for the party was a burden in the current situation, but if I swiped my card now, I would have liquidated all my Health Miracle stocks and become a cash millionaire by the time I had to pay the card bill, so I paid with my card without hesitation.</p>
 <p>I finished the massage and headed to the Prime Hotel with a refreshed feeling. I parked the car in the Prime Hotel parking lot and went to the first floor lobby, where fourteen beautiful women were waiting for me. People around were glancing at us, wondering what was going on with all the beautiful women gathered together.</p>
-<p>"Mentor-nim~! We've been waiting!"</p>
-<p>"The other teams didn't have a graduation party as fancy as ours~."</p>
+<p>"Mentor-nim! We've been waiting!"</p>
+<p>"The other teams didn't have a graduation party as fancy as ours."</p>
 <p>Being surrounded by fourteen people in an instant, it felt like the fragrance of female bodies was wafting around.</p>
 <p>Ah, I can't get an erection yet. Hold on, my dick....</p>
 <p>"Shall we have dinner at the hotel buffet first?"</p>
-<p>"""Yes~!"""</p>
+<p>"""Yes!"""</p>
 <p>Everyone answers my question with one heart. We're going to run like crazy from tonight until tomorrow, so everyone needs to fully recharge their energy.</p>

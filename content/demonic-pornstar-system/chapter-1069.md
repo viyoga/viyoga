@@ -35,7 +35,7 @@ chapter = 1069
 <p>"Yes. The conquered cavern stays at one end, and this opening into our forest stays at the other. Everything I buy goes between them."</p>
 <p>He traced that connection on the map, already eager to fill it. Anyone coming from Japan would have to cross the land he chose before reaching the Verdant Expanse.</p>
 <p>"I only get to replace it once, though. After I confirm this, I’ll have to reach High-Tier before I can reshape it again."</p>
-<p>"Then may I see what we have to choose from?" Nyx rested a hand on his shoulder. "I’d hate for you to find something nastier after we’ve paid~"</p>
+<p>"Then may I see what we have to choose from?" Nyx rested a hand on his shoulder. "I’d hate for you to find something nastier after we’ve paid"</p>
 <p>"Let’s go shopping," Kaiden smiled.</p>
 <p>He checked that the passage was empty. With no hostiles inside the domain to prevent construction, he asked the sentries at the forest mouth to withdraw toward the palace, watching their markers cross the grass with the waiting monsters behind them.</p>
 <p>"Twelve square kilometres," he murmured, spreading the purchase outline through the provisional connection.</p>
@@ -49,7 +49,7 @@ chapter = 1069
 <p>"Could you turn it, Kai?" Nyx asked, leaning in beside her. "I’d like to see what comes out behind our unfortunate visitors."</p>
 <p>Kaiden rotated the preview for her. Beyond the caves, a bridge curved out from the cliff before meeting a landing on the opposite wall. Intruders crossing it would have to turn their backs on the holes above them.</p>
 <p>Calypso’s tail lifted behind her.</p>
-<p>"Darling, could you make that landing wider? I’d love to have a Monolith waiting there when someone finally gets across~"</p>
+<p>"Darling, could you make that landing wider? I’d love to have a Monolith waiting there when someone finally gets across"</p>
 <p>"How does this look?"</p>
 <p>He broadened the landing until the great creature had room to swing its maul across the bridge’s end. Calypso leaned over him to inspect it, her pleased smile making him glad she’d asked.</p>
 <p>"They can try flying past," Kaiden said, tracing the open space beside it. "Then they get to meet everything living up there."</p>

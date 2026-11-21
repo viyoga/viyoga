@@ -66,7 +66,7 @@ chapter = 989
 <p>"Alright. I'll postpone it for about one or two weeks, I guess...."</p>
 <p>"Once this Work is over, let's go to Tokyo together. We can meet Ryuta, too.... Huh? Ryuta is a Playboy, so we'll have to combine our strengths to capture him."</p>
 <p>Nae Fitzgerald also knew how much Arisu wanted to see Taira Ryuta, so she spoke soothingly. She herself also wanted to see Taira Ryuta, so she decided to go to Japan once this Work was over.</p>
-<p>TheDreaming-nim requested Arcade Oofuchi Erika 1. Tied up state 2. Jumping with breasts jiggling~!</p>
+<p>TheDreaming-nim requested Arcade Oofuchi Erika 1. Tied up state 2. Jumping with breasts jiggling!</p>
 <p>1.</p>
 <p>2.</p>
-<p>Neosblue-nim requested Drop Kick Lena~!</p>
+<p>Neosblue-nim requested Drop Kick Lena!</p>

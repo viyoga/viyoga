@@ -12,7 +12,7 @@ chapter = 329
 <p>Deep inside her, he came, spilling his thick, scalding semen directly against her womb.</p>
 <p>Jet after searing jet flooded that tight pussy until there was no more room to hold it, the excess oozing over the swollen edges of her plump, glistening vulva, thick creamy streams sliding around the cock still buried to the hilt.</p>
 <p>Her inner walls clamped down on him in uncontrollable spasms, squeezing along the length of his shaft as her own orgasm ripped through her body in wave after wave.</p>
-<p>"Aghnnn~ E-Ethan..." Amelia collapsed forward against Ysara, who caught her with trembling arms, the two mature beauties panting heavily as their delicate limbs tangled together, pulling each other into a shivering, breathless embrace.</p>
+<p>"Aghnnn E-Ethan..." Amelia collapsed forward against Ysara, who caught her with trembling arms, the two mature beauties panting heavily as their delicate limbs tangled together, pulling each other into a shivering, breathless embrace.</p>
 <p>They stared at one another for a long moment, eyes glazed over, breaths out of sync, before finally toppling to the side, their sweat-slicked bodies clinging together.</p>
 <p>Fortunately, Ethan’s bed was massive—big enough for fifty women—so even as they fell, they found nothing but a soft mattress and rumpled sheets waiting to catch them.</p>
 <p>The two sank onto their sides, and Ethan’s cock slipped free of Amelia’s tight, quivering grip with a wet slurp, trailing a thick, oozing stream of white cum in its wake.</p>
@@ -24,7 +24,7 @@ chapter = 329
 <p>His hips crashed into her plump ass with an obscene, wet thud, her full buttocks flattening completely against his pelvis before rebounding, quivering violently as thick, hypnotic ripples cascaded outward through the pillow-soft flesh, radiating across both cheeks.</p>
 <p>Her entire voluptuous body shuddered violently from the impact as an obscene squeal tore from her lips, accompanied by Amelia’s loud, shrill laughter as she watched it all.</p>
 <p>Gripping her hips for leverage, Ethan pulled back slowly, watching her tight ring cling desperately to his shaft, only to slam himself all the way in once again, fucking that tight ass with renewed strength and vigor.</p>
-<p>"Aghnn~ f-fuck~ f-fuck~ E-Ethan~ aghnn~~ oghnn~~ mghnnn~~"</p>
+<p>"Aghnn f-fuck f-fuck E-Ethan aghnn oghnn mghnnn"</p>
 <p>Clap Clap Clap Clap Clap Clap</p>
 <p>And so went the rest of Ethan’s night.</p>
 <p>For ten straight hours, he fucked those two hot, drunk MILFs without pause, unloading load after load into one hole after another, alternating between their soaking-wet pussies, hungry mouths, massive tits wrapped around his shaft, and tight, jiggling asses that clapped obscenely against his hips as the drunk milfs moaned and begged for more.</p>

@@ -11,7 +11,7 @@ chapter = 97
 <p>His hands slid down past her hips, settling on her ass and squeezing tight.</p>
 <p>The plush flesh of that perfect bubble-butt spilled between his fingers, each round cheek overflowing his grip as he kneaded the supple curves.</p>
 <p>Her back arched involuntarily, pressing her chest harder against him.</p>
-<p>"nghnn~~ Ethan... I can’t—aghnnn~~" She moaned as he sank his lips into her neck, his tongue tracing the smooth, chocolaty skin along her throat.</p>
+<p>"nghnn Ethan... I can’t—aghnnn" She moaned as he sank his lips into her neck, his tongue tracing the smooth, chocolaty skin along her throat.</p>
 <p>Elena’s voice, mature and drawling, as if coated in honey, echoed through the office.</p>
 <p>Ethan pulled away, panting, still feeling the weight of those huge tits flattened against his chest.</p>
 <p>What a woman.</p>
@@ -38,7 +38,7 @@ chapter = 97
 <p>Not too thin to make her look flat, nor too wide to look grotesque. Just enough to maintain her beautiful hourglass figure.</p>
 <p>"Ah... that’s not exactly slow, you know?" Ethan smiled.</p>
 <p>How could going from a kiss to sucking his cock be slow?</p>
-<p>"It depends on how you look at it." Her fingers slowly closed around the waistband of his pants. "I’m just a beautiful servant, rewarding her young Lord for his incredible new skill, fufufu~~ ♡"</p>
+<p>"It depends on how you look at it." Her fingers slowly closed around the waistband of his pants. "I’m just a beautiful servant, rewarding her young Lord for his incredible new skill, fufufu ♡"</p>
 <p>Her voice was sweet and full of charm as she tugged his pants down.</p>
 <p>His massive cock sprang free, escaping the fabric and slapping against her face with a wet smack, painting the dark skin of her cheek with pearly pre-cum.</p>
 <p>Elena grabbed the base with both hands, her slender fingers barely closing around the thickness.</p>
@@ -60,10 +60,10 @@ chapter = 97
 <p>A low groan escaped Ethan’s throat. His hands reached for her hair, but he didn’t press.</p>
 <p>He merely stroked her short, silky black strands, keeping them from covering the sensual, obscene expression on her face.</p>
 <p>*Pop*</p>
-<p>"Ah~~ ♡" She let the cock slip from her lips, the bulbous head pulsing from the suction. A thread of saliva connected the glans to her rosy lips, stretching thin before it snapped.</p>
+<p>"Ah ♡" She let the cock slip from her lips, the bulbous head pulsing from the suction. A thread of saliva connected the glans to her rosy lips, stretching thin before it snapped.</p>
 <p>"Is this a fitting reward, my lord?" She flashed an elegant, sensual smile, even with her lips drenched in saliva. The same saliva that dripped onto her huge dark tits, running down the curves of those round orbs in pearly strands.</p>
 <p>"Ah... Yes, more than fitting... looks like I’ll have to give you some payback..."</p>
-<p>"Fufufu~~ ♡" A sweet giggle escaped her lips, and she grabbed her breasts with both hands, squeezing them together.</p>
+<p>"Fufufu ♡" A sweet giggle escaped her lips, and she grabbed her breasts with both hands, squeezing them together.</p>
 <p>The pillowy flesh bulged between her fingers, overflowing her grip as she pressed the massive orbs into a deep, tight valley.</p>
 <p>Arching her back and lifting her hips, she wrapped those voluminous breasts around Ethan’s cock.</p>
 <p>The shaft sank into the warm, suffocating cleavage, disappearing between the dark, full mounds as she squeezed tight. She leaned forward and took the tip back into her mouth.</p>

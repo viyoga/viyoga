@@ -89,7 +89,7 @@ chapter = 71
 
 <p>Realizing that no one was looking, he grabbed her slender, delicate wrists, pulling her into an embrace.</p>
 
-<p>“Nghn~~ Not now…” Elize pushed against his chest, but couldn’t resist.</p>
+<p>“Nghn Not now…” Elize pushed against his chest, but couldn’t resist.</p>
 
 <p>“And why not?” He asked, his hands moving up from her delicate waist to her huge, soft twin mountains, feeling them give way under his fingers.</p>
 

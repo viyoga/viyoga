@@ -53,7 +53,7 @@ chapter = 900
 <p>Taira Kanna, giving the pilot a refreshing Smile, disembarked from the Helicopter. Following Taira Kanna, Nakanoin Rina and Muko Neika also disembarked, all in cyber Suits and armed with their own weaponry.</p>
 <p>On the rooftop, two Women were waiting for Taira Kanna. Judging by the fact that both Women were wearing cyber Suits, they seemed to be the Leaders of the support unit dispatched by Taira Ryuta. They were Mimata Chieri with orange Hair and Sawayanagi Azuma with blue Hair.</p>
 <p>Since the Anyaji Headquarters was not in Miyashi, PMCs could be mobilized, which is why Mimata Chieri of East Weapon and Sawayanagi Azuma of Seryu Military Company were participating.</p>
-<p>"Nice to meet you, Taira Kanna-nim~!"</p>
+<p>"Nice to meet you, Taira Kanna-nim!"</p>
 <p>"Ah, hello...!"</p>
 <p>Mimata Chieri, having already met many Tairaga members as a former Taira secret agent, greeted Taira Kanna with a bright Smile, while Sawayanagi Azuma, meeting a direct lineage member of the Tairaga for the first time apart from Taira Ryuta, greeted her with a slightly awkward Attitude, appearing nervous.</p>
 <p>"Hello. You are the ones Orabeoni mentioned, right?"</p>
@@ -62,13 +62,13 @@ chapter = 900
 <p>"We're fully prepared too."</p>
 <p>Mimata Chieri and Sawayanagi Azuma had completed their Preparation to Attack the Anyaji Headquarters, which was threatening Taira Ryuta. Seeing their Appearance, Taira Kanna also raised her rapier.</p>
 <p>"We've also finished our Preparation on the way here, so let's depart immediately."</p>
-<p>Cherry-chan after a long time~!</p>
-<p>Azuma after a long time~!</p>
-<p>Aegyo-ing Liz and Alik, requested by MidNightSKY-nim~!</p>
-<p>Alik first~!</p>
+<p>Cherry-chan after a long time!</p>
+<p>Azuma after a long time!</p>
+<p>Aegyo-ing Liz and Alik, requested by MidNightSKY-nim!</p>
+<p>Alik first!</p>
 <p>Alik, showing a Smile he doesn't usually show and making a heart haha Suddenly, strange spirits (?) appeared again hahaha</p>
 <p>Alik striking a Rabbit-ssi pose.... This time, a stray cat appeared hahaha</p>
-<p>Rabbit pose once more~!</p>
-<p>Liz~!</p>
-<p>A wink and a cheek heart~!</p>
-<p>Finger heart~!!</p>
+<p>Rabbit pose once more!</p>
+<p>Liz!</p>
+<p>A wink and a cheek heart!</p>
+<p>Finger heart!!</p>

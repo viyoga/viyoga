@@ -45,7 +45,7 @@ chapter = 96
 <p>The amount will increase even more with my noble title." Ethan said.</p>
 <p>Slowly, Elena turned to face him. Her eyes brimmed with many emotions, but in the end, only one remained: excitement.</p>
 <p>She was excited. Excited as hell.</p>
-<p>"My Lord is truly amazing! The best of all! Fufufu~~" The uncertainty vanished from her face, and she lunged forward, pulling Ethan against her chest.</p>
+<p>"My Lord is truly amazing! The best of all! Fufufu" The uncertainty vanished from her face, and she lunged forward, pulling Ethan against her chest.</p>
 <p>His face sank into the soft, overwhelming mass of her tits, warm and heavy, molding around his features with a pillowy softness that smothered him completely.</p>
 <p>Her laughter echoed, sweet and sensual, and every giggle sent her chest bouncing, the heavy mounds rippling against his buried face.</p>
 <p>She was a happy woman, and her mind was already racing with all the wonderful uses she could put that ability to.</p>

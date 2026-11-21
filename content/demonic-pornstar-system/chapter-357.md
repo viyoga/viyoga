@@ -28,7 +28,7 @@ chapter = 357
 <p>Kaiden held her gaze for a long moment. Then, at last, his lips curved into a smile, and warmth returned to both his expression and the room itself like the sun after a storm.</p>
 <p>"Good."</p>
 <p>He rose to his feet and looked over at his girls. His voice carried steady confidence again. "We’re healthy. The doctors have cleared us. I say it’s time we leave before we get any more visitors, but let’s go visit Rae and Riven first, see how they’re holding up."</p>
-<p>"Don’t leave me behind~" Bastet’s tail swayed excitedly before she pounced with feline grace. Her slim, tanned arms wrapped around Kaiden’s shoulders as she began purring right into his ears.</p>
+<p>"Don’t leave me behind" Bastet’s tail swayed excitedly before she pounced with feline grace. Her slim, tanned arms wrapped around Kaiden’s shoulders as she began purring right into his ears.</p>
 <p>She climbed his back like a kitten, but her body was anything but small. Her generous, feminine curves pressed firmly against him, her toned, juicy thighs sliding into his palms as though it were the most natural handhold in the world. She gave him a peck on the cheeks before resting her chin on his shoulder as she moved her golden eyes first toward Aria... then Alice.</p>
 <p>The yandere Valkyrie’s stare turned to cold steel, but she made no moves to yank the felinid off.</p>
 <p>Alice, however, didn’t even react. She trailed behind timidly, still trembling from Kaiden’s scolding. Jealousy had no room in her mind when the fear of losing him still clutched her chest like a vice.</p>

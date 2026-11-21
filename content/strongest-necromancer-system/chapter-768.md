@@ -30,10 +30,10 @@ chapter = 768
 <p>Gina let out a cute sound as Jason switched their position so he was on top of her, and she smiled when she saw the predatory grin on Jason’s face! Gina’s large breasts were bouncing as she breathed heavily, and her legs were opened wide to give Jason easy access to her core! Jason leaned down, and Gina felt her heart skip a beat as he stared at her with red predatory eyes!</p>
 <p>"So you want to be my servant, Gina?"</p>
 <p>Gina’s breathing became even more erratic, and she immediately wrapped her hands around Jason’s neck, and she spoke up in a desperate whisper.</p>
-<p>"Yes, Master~! Please punish this lowly servant...!"</p>
+<p>"Yes, Master! Please punish this lowly servant...!"</p>
 <p>"A mere servant dares to command her master? It’s obvious I need to teach you some manners!"</p>
 <p>Jason immediately thrust into Gina, and Gina’s mouth opened wide as she threw her head back and let out a loud moan that echoed through the room!</p>
-<p>"OH MASTERRRRR~!"</p>
+<p>"OH MASTERRRRR!"</p>
 <p>....</p>
 <p>[The Kingdom of Arandelle]</p>
 <p>[The Central Elven Forest]</p>

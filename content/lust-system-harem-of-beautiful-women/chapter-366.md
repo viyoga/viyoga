@@ -55,7 +55,7 @@ chapter = 366
 
 <p>&quot;Don’t say that. I’ve never held any hostility towards you. That earlier incident was just a misunderstanding.&quot;</p>
 
-<p>Bella adopted a pitiful, delicate tone. &quot;You’re a grown man, don’t hold it against little ol’ me~&quot;</p>
+<p>Bella adopted a pitiful, delicate tone. &quot;You’re a grown man, don’t hold it against little ol’ me&quot;</p>
 
 <p>Luis instantly got goosebumps. Damn, this bitch really puts on a convincing act when she turns on the sweet, coquettish act.</p>
 

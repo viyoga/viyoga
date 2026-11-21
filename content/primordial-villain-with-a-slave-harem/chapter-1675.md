@@ -31,7 +31,7 @@ chapter = 1675
 <p>"...Hey... Bad fox..."</p>
 <p>It came out so flat and unbothered it barely qualified as a complaint. Then the second word registered.</p>
 <p>"...Female...?"</p>
-<p>Kitsara shrugged. "Quin exists, of course~"</p>
+<p>Kitsara shrugged. "Quin exists, of course"</p>
 <p>Among the elven vanguard, every long ear within range twitched toward the conversation at once. The ranger at point went scarlet. Three shrine maidens behind her developed a sudden interest in the marshland to their left, and not one of them succeeded in hiding the color climbing their faces.</p>
 <p>The Holy Son was a man, after all... And a young one at that, if the rumors were to be true... It made sense that he had the urges of a man, they realized.</p>
 <p>"Oh..." Void murmured, then nodded into Scar's neck. "...Having a hot and submissive ghost girl call you 'Master' with starry eyes is indeed..."</p>

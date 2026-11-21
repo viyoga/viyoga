@@ -14,7 +14,7 @@ chapter = 244
 <p>"Now that I'm a partner with equity, I'll contact you often."</p>
 <p>"That sounds great. Please do contact me."</p>
 <p>I gave my final greetings and left the cafe room with Mimata Chieri. When I contacted Arisu, she said she was just sitting in the regular seating area of the hotel cafe, drinking tea.</p>
-<p>"Ryuta~! Did the deal go well?"</p>
+<p>"Ryuta! Did the deal go well?"</p>
 <p>Arisu asked, waving her hand. I smiled and nodded. It wasn't completely satisfactory, but I exchanged money and equity under reasonable conditions.</p>
 <p>"Let's go to Fujigasaki Rinka-nim's mansion quickly!"</p>
 <p>Hanasaki Sayaka finished her black coffee in the cup without it even being hot, and then stood up. Since it was Fujigasaki Rinka's house, which had hardly ever been revealed in the media, she seemed very excited.</p>
@@ -63,7 +63,7 @@ chapter = 244
 <p>A fairly lavish meal was set on the large marble table. There was lobster butter grill almost the size of my calf, and the meal was mainly seafood such as shellfish and grilled white fish.</p>
 <p>"Enjoy your meal."</p>
 <p>As the manager bowed slightly and left the dining room, we began to eat.</p>
-<p>Arisu, who could be called a noble young lady, was enjoying her meal moderately, saying "Eum~," and Mimata Chieri, who had a hobby of gourmet tours since she was an assassin, was enjoying her meal with a happy expression, and Hanasaki Sayaka seemed to be feeling a different kind of emotion than taste, saying, "This is the food from Rinka-nim's dining room!"</p>
+<p>Arisu, who could be called a noble young lady, was enjoying her meal moderately, saying "Eum," and Mimata Chieri, who had a hobby of gourmet tours since she was an assassin, was enjoying her meal with a happy expression, and Hanasaki Sayaka seemed to be feeling a different kind of emotion than taste, saying, "This is the food from Rinka-nim's dining room!"</p>
 <p>Kiyohira was just looking at his phone, barely eating his food, because of the Amsang I had taught him. I stopped paying attention to others and picked up a large lobster claw and dipped it in garlic butter sauce.</p>
 <p>As expected, it was very delicious because it was big. Whether they hired a pretty expensive chef or not, the other food besides the lobster was also quite delicious.</p>
 <p>I don't know if Fujigasaki Rinka heard about my appetite or if they just always serve a lot, but the amount was quite large enough to satisfy me.</p>

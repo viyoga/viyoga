@@ -31,7 +31,7 @@ chapter = 318
 <p>"The payment of the debt isn't what is interesting to me. What can you give me as interest?"</p>
 <p>The part Gabriel dreaded to no end finally came. She had tried to deflect it somehow but Tiamat was relentless in her chase, leaving her no way out in the end. Since she was beaten, she knew she had to accept the reality of her current precarious circumstance.</p>
 <p>"Very well, I will do the same service as last time.”</p>
-<p>“Tut~ Tut~ Tut. Last time was last time. Now is now. I won't be satisfied with that anymore. You must do something else or give me something that would be amusing enough to intrigue me.”</p>
+<p>“Tut Tut Tut. Last time was last time. Now is now. I won't be satisfied with that anymore. You must do something else or give me something that would be amusing enough to intrigue me.”</p>
 <p>“Then… How about I serve you as a maid for four days?”</p>
 <p>“Oh, you have my interest now.”</p>
 <p>Tiamat thought for a while, sketching the abominable things she could make Gabriel enact, before nodding to herself.</p>
@@ -39,7 +39,7 @@ chapter = 318
 <p>“One week. No calling special names.”</p>
 <p>“One month, still the same proposal with the appellations.”</p>
 <p>“Two weeks of serving you as a maid and I will call you Lady. This is my last and final offer. Take it or leave it. I'll whip up another way to send my daughter there.”</p>
-<p>“Hmmm~ You are driving a very tight bargain. But very well… Let’s not say that I am too greedy. I accept your proposal.”</p>
+<p>“Hmmm You are driving a very tight bargain. But very well… Let’s not say that I am too greedy. I accept your proposal.”</p>
 <p>After quite the lively haggling, Gabriel finally smiled, happy to have been able to haggle such a bargain out with Tiamat. After all, whenever they had a deal in the past, she would be the one to sorely lose out. There was no moment where she was the one to win out.</p>
 <p>“My bottom line was one month, honestly. I would have done it for way less than you proposed.”</p>
 <p>Gabriel wished to see the smug face of Tiamat vanishing for a chance, sadly for her— this was an impossible dream for her.</p>

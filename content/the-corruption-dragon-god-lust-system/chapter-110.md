@@ -61,7 +61,7 @@ chapter = 110
 
 <p>“Different… huh?” Qingyi sighed, thoughtful.</p>
 
-<p>“Yeah… what?… Disappointed that this is all your wife thinks of you? Fufufu~~”</p>
+<p>“Yeah… what?… Disappointed that this is all your wife thinks of you? Fufufu”</p>
 
 <p>Ruxue’s sweet, harmonious and seductive laugh echoed around the room, sparking a big smile on Qingyi’s face.</p>
 

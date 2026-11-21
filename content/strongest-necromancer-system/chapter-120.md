@@ -40,7 +40,7 @@ chapter = 120
 <p>Jason made his way out of the school building after class with the eyes of multiple students following him. Jason had been scrolling through Metube earlier in class and he saw that the video of him and Jared was now trending on the internet. In fact, there were entire blog posts and streamers talking about whether or not it was right for him to go that far with Jared.</p>
 <p>In the past hour alone, Jason had gotten more than ten emails from different television and internet hosts who were trying to get an interview with him. Jason ignored the messages just like he had been ignoring the messages from the many girls in his school who got his number somehow.</p>
 <p>Even the messages from some top guilds had become more frequent than before! At this rate, Jason knew he would have to change his number very soon.</p>
-<p>Ring~! Ring~!</p>
+<p>Ring! Ring!</p>
 <p>Jason’s phone went off and he picked up once he saw that it was Gina calling.</p>
 <p>"Hey, babe. Are you done with the Gate?"</p>
 <p>[Jason, the artefact you gave me was amazing! I killed ten Magical Beasts alone! Can you believe it!? The others hardly did anything at all!]</p>

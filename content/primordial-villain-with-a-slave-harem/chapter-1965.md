@@ -24,7 +24,7 @@ chapter = 1965
 <p>She chuckled, a rough sound deep in her throat.</p>
 <p>"Starting a fight, especially one you win, will not get this merchant punished."</p>
 <p>Now that, Quinlan could accept much more readily. "I understand. Thank you for the explanation."</p>
-<p>"You’re welcome~" she purred, looking him over again.</p>
+<p>"You’re welcome" she purred, looking him over again.</p>
 <p>The male guard moved aside and curled his tail behind his boots, clearing the passage beside the stacked cargo.</p>
 <p>"Don’t make her regret it."</p>
 <p>Narethi released a breath and led them through. Quinlan inclined his head to her as they passed the first warehouse.</p>

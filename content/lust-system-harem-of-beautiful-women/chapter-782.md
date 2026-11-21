@@ -83,7 +83,7 @@ chapter = 782
 
 <p>After ordering, the three went to their private room. Lily reached over and started stroking her husband’s cock through his pants, giving a sly grin.</p>
 
-<p>&quot;Hubby, did you hear that? Aunt Yana said she’s been getting hot and bothered lately. Her eyes looked so yearning~&quot;</p>
+<p>&quot;Hubby, did you hear that? Aunt Yana said she’s been getting hot and bothered lately. Her eyes looked so yearning&quot;</p>
 
 <p>Luis rolled his eyes. &quot;Your husband shares his affection equally, you know!!&quot;</p>
 
@@ -101,7 +101,7 @@ chapter = 782
 
 <p>Beef skewers, lamb skewers, chicken wings, tendons, fatty edge meat... grilled saury, Spanish mackerel... a feast of barbecue arrived at the table.</p>
 
-<p>Lily grinned slyly. &quot;Hubby, you need to recharge first. Later you can pull Aunt Yana into the bathroom for a quickie~&quot;</p>
+<p>Lily grinned slyly. &quot;Hubby, you need to recharge first. Later you can pull Aunt Yana into the bathroom for a quickie&quot;</p>
 
 <p>&quot;What kind of wife says that?&quot;</p>
 

@@ -16,9 +16,9 @@ chapter = 774
 <p>Itsu Tomohiko, a somewhat flashy-looking Male Student, said with a hint of regret.</p>
 <p>"Stop it. All those girls are Young Ladies of noble Families, do you think they'd fall for you trying to hit on them?"</p>
 <p>Suzuki Soki, the Club President of the Chiba University International Politics Discussion Club, who had just gone to greet the St. Francis Girls' Academy table, said with a slight sneer. Itsu Tomohiko, with his flashy Appearance and the bluff of trying to hit on any Woman, was a guy full of bravado, but in reality, his success rate was extremely low.</p>
-<p>"Yeah~! Don't go there for nothing, saying strange things and just getting humiliated, stay still, Tomohiko!"</p>
+<p>"Yeah! Don't go there for nothing, saying strange things and just getting humiliated, stay still, Tomohiko!"</p>
 <p>Nakamura Shunna, the Vice President of the Chiba University International Politics Discussion Club, who had gone to greet the St. Francis Girls' Academy table with Suzuki Soki, also scolded Itsu Tomohiko to stay still.</p>
-<p>"That's right, Tomohiko's Buttocks are too Light~! Whenever he sees a Woman, he approaches, saying, 'Should I try to hit on her?'!"</p>
+<p>"That's right, Tomohiko's Buttocks are too Light! Whenever he sees a Woman, he approaches, saying, 'Should I try to hit on her?'!"</p>
 <p>Hiragami Noyu, a Female Student who had been friends with Itsu Tomohiko since childhood, also scolded Itsu Tomohiko, following the Club President and Vice President.</p>
 <p>"You know I get even more fired up when you tell me not to, right? Besides, if she's a Daughter of a noble Family, if I play my cards right, won't my Life blossom?"</p>
 <p>Despite the Club President, Vice President, and even his childhood friend trying to stop him, Itsu Tomohiko's Eyes were already burning brightly with enthusiasm.</p>
@@ -90,9 +90,9 @@ chapter = 774
 <p>Aitana Concept Attire!</p>
 <p>Because she's affiliated with the Army, she wears a Cyber Suit with camouflage patterns haha.</p>
 <p>Casual Clothes</p>
-<p>Bikini~!</p>
+<p>Bikini!</p>
 <p>Aitana, shining as the #1 most loved celebrity by Americans in 2053!!</p>
-<p>Underwear~!</p>
-<p>Belly Dancer~!</p>
+<p>Underwear!</p>
+<p>Belly Dancer!</p>
 <p>Perhaps because of her brown Skin, the dancer attire suits her haha.</p>
 <p>Bikini Home Economics Teacher-nim, requested by Hwanbuljeoldae-bulga-nim!</p>

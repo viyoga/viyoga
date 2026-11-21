@@ -6,7 +6,7 @@ chapter = 1189
 +++
 
 <p>"... What have you done, girl?"</p>
-<p>"Ehehehe~!"</p>
+<p>"Ehehehe!"</p>
 <p>She had no proper answer to give.</p>
 <p>"Father is so going to kill me if he ever learns of this..." Felicity couldn’t help but giggle.</p>
 <p>"Kill you? Then what about the grown guy who enslaved his daughter?" Feng asked, seemingly having the time of her life. Quinlan saw this smug teen be cheeky as all hell, but the expression on her face right now perhaps triumphed all previous ones.</p>

@@ -40,7 +40,7 @@ chapter = 247
 <p>"Do I even want to sound like that?" she wondered.</p>
 <p>Inside the room, Ingrid was clutching Kent’s head as it was buried between her legs, eating her out like dinner.</p>
 <p>His tongue was buried deep within her, making Ingrid moan as if her soul was leaving her body. The only thing filling the room was the sound of licking mixed with her moans.</p>
-<p>"AaaHHH~"</p>
+<p>"AaaHHH"</p>
 <p>Ingrid moaned loudly, then squirted, spraying her juices all over Kent’s face. He kept licking her, making her body shudder uncontrollably throughout the experience.</p>
 <p>By the time he was done, Ingrid was out of breath.</p>
 <p>Her entire body became sensitive to the slightest touch. Kent laid her on the bed and looked at her with a smile.</p>

@@ -37,13 +37,13 @@ chapter = 150
 
 <p>[Xu Qingxue’s Corruption increased by 1 point, +50 lust points]</p>
 
-<p>“Nghn~~” Qingxue shuddered, her lips parting in a sweet, soft moan as she felt Qingyi’s large, powerful hands.</p>
+<p>“Nghn” Qingxue shuddered, her lips parting in a sweet, soft moan as she felt Qingyi’s large, powerful hands.</p>
 
 <p>It was strange, as if an invisible energy was spreading through her body, her groin seized by an intense tingling as she clung to the edge of the bench.</p>
 
 <p>“Is everything all right, Master?” Qingyi asked, unable to hide a hint of teasing in his voice as he massaged her pale, creamy skin.</p>
 
-<p>“Hm-mm~~” Qingxue only nodded in response, her flushed face already tinged with a hint of regret.</p>
+<p>“Hm-mm” Qingxue only nodded in response, her flushed face already tinged with a hint of regret.</p>
 
 <p>It was obvious that the touch of that imprudent disciple had no pure intentions.</p>
 
@@ -51,7 +51,7 @@ chapter = 150
 
 <p>But that attempt died the moment his hands moved from her calves, up her pink knees and onto her plump, shapely thighs.</p>
 
-<p>“Mghn~~ You- ughn~~ disrespectful disciple… what are you doing to your master?”</p>
+<p>“Mghn You- ughn disrespectful disciple… what are you doing to your master?”</p>
 
 <p>“Uh?” Qingyi feigned confusion, enjoying the panting and increasingly rapid moans of the silver-haired beauty.</p>
 
@@ -77,7 +77,7 @@ chapter = 150
 
 <p>“Ah… master is so wet… what disciple would I be if I didn’t help her relieve all this?” He spoke and, without waiting for an answer, pulled her panties aside and sank his tongue into the deep valley between her fat pussy lips.</p>
 
-<p>“Arghn~~!!!” Qingxue shuddered, her tongue slipping out of her mouth in a loud, obscene moan as she arched her body, almost falling backwards.</p>
+<p>“Arghn!!!” Qingxue shuddered, her tongue slipping out of her mouth in a loud, obscene moan as she arched her body, almost falling backwards.</p>
 
 <p>Why was she like this? Why couldn’t her body resist the urge to make those obscene sounds?</p>
 
@@ -91,7 +91,7 @@ chapter = 150
 
 <p>“Master…” He called out.</p>
 
-<p>“You’re not the disciple I took – ohgnn~~” Qingxue tried to struggle, but her body was losing strength.</p>
+<p>“You’re not the disciple I took – ohgnn” Qingxue tried to struggle, but her body was losing strength.</p>
 
 <p>“Master is so beautiful…” Qingyi grabbed Qingxue’s waist, so thin that his fingers were not far from encircling her completely.</p>
 
@@ -109,6 +109,6 @@ chapter = 150
 
 <p>“This disciple just wants to make the master relax… how can the master train in peace if her heart is so unstable?” He spoke shamelessly, his lips held together by a thread of saliva.</p>
 
-<p>“I don’t argh~~” Qingxue’s words were interrupted by a lustful moan as she felt something pressing against her pussy.</p>
+<p>“I don’t argh” Qingxue’s words were interrupted by a lustful moan as she felt something pressing against her pussy.</p>
 
 <p>It wasn’t like Qingyi’s fingers, it was long, thick, hot and pulsating, the fat pussy lips slowly opening as he sank into her deep, pink valley.</p>

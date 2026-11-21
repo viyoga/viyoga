@@ -105,7 +105,7 @@ chapter = 162
 
 <p>Without hesitation, Qingyi kissed her, their tongues meeting in a dance that Qingxue initially rejected, but soon found herself actively responding to.</p>
 
-<p>“Nghnn~~ shameless disciple… your master is not your to-” The silver-haired beauty’s words were interrupted by Qingyi’s hands grabbing her breasts tightly.</p>
+<p>“Nghnn shameless disciple… your master is not your to-” The silver-haired beauty’s words were interrupted by Qingyi’s hands grabbing her breasts tightly.</p>
 
 <p>“It’s just that master is so attractive, I couldn’t resist…”</p>
 

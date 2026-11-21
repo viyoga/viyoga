@@ -39,8 +39,8 @@ chapter = 391
 <p>His right hand cupped Evelyn’s full, tanned breast, his palm submerged in that cinnamon-colored flesh, warm and dense, heavy in a way that only the ripest fruit could be.</p>
 <p>He clenched his fingers firmly, squeezing both women’s breasts at the same time.</p>
 <p>The soft mounds molded themselves between his fingers, spilling out through the gaps in his hand in plump, pillowy swells, while the already-hard nipples slid along the line of his palm, sending a shiver rippling through both sleeping bodies.</p>
-<p>"Ah~~ E-Ethan!" Amelia moaned softly, her voice sweet and drawn out by sleep.</p>
-<p>"Nghnnn~~" Evelyn merely moaned, writhing slightly, her eyes fluttering open in sleepy confusion.</p>
+<p>"Ah E-Ethan!" Amelia moaned softly, her voice sweet and drawn out by sleep.</p>
+<p>"Nghnnn" Evelyn merely moaned, writhing slightly, her eyes fluttering open in sleepy confusion.</p>
 <p>Ethan smiled, satisfied, letting his gaze wander around the tent.</p>
 <p>Dozens of women, each a unique beauty, alluring and sensual in her own way, lay scattered around him, their naked bodies intertwined atop the crumpled silk.</p>
 <p>That night, no one had felt the cold.</p>

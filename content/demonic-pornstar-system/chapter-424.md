@@ -31,13 +31,13 @@ chapter = 424
 <p>It was an explosive release that saw her muscles spasming violently and her knees locking against his powerful thighs as her own demonic essence erupted. The force of it left her gasping for breath and her mind momentarily blank.</p>
 <p>Before she could even collect herself, a new sensation brought her back to reality.</p>
 <p>Kaiden’s massive tail curled and poked her at the curve of her waist. It was a precise, unmistakable demand directed at the few remaining pieces of armor that still covered her hips and abdomen. She had submitted by taking her main breastplate and shoulder pauldrons off, but she had not gone completely naked.</p>
-<p>Calypso giggled, releasing a breathless, husky sound of utter delight. "Such an impatient man you are~"</p>
+<p>Calypso giggled, releasing a breathless, husky sound of utter delight. "Such an impatient man you are"</p>
 <p>Her hands, still trembling from her intense orgasm, flew to the fastenings.</p>
 <p>With sensual, eager clicks, she unbuckled the remaining hip plates and the armored thong. As the last piece dropped to the ash-covered floor, revealing her gleaming, battle-ready demonic flesh, the beast in Kaiden returned in full force.</p>
 <p>He leaned down, a dark shadow descending, and his sheer, massive weight pinned Calypso beneath him.</p>
 <p>A thrilling mix of raw excitement and nervous anticipation coursed through her.</p>
 <p>She was a woman of war, a sovereign of hell, and now she was about to be claimed by her sovereign. She reached down, letting her hand brush against her lady flower.</p>
-<p>An amused giggle left her lips. "Well... at least I’m as lubricated as ever down here. I think I’m more than ready to welcome you into your new home~"</p>
+<p>An amused giggle left her lips. "Well... at least I’m as lubricated as ever down here. I think I’m more than ready to welcome you into your new home"</p>
 <p>But Kaiden did not ravage her, despite Calypso being sure it was coming.</p>
 <p>Instead of the frenzied, brutal assault he delivered to her mouth, his descent onto her drenched entrance was slow and careful. His large, powerful cock hovered, and he guided his head toward her with a shocking degree of care.</p>
 <p>Calypso gasped, and a tremor ran through her. She realized, with a sudden jolt of emotion, that he was doing this for her. Despite his trance, his primal instinct was pausing, offering a moment of consideration for his new mate.</p>

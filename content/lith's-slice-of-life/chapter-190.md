@@ -37,7 +37,7 @@ Lith smiled hearing it and nodded his head. He hugged Arya once again and brough
 
 “Arya, is it? I still haven’t gotten my answer. Will you date me, or will you not?”
 
-Arya chuckled hearing it and whispered in Lith’s ears, “who knows? Hehe~.” Arya bit on his earlobes and gently nibbled on them after saying so.
+Arya chuckled hearing it and whispered in Lith’s ears, “who knows? Hehe.” Arya bit on his earlobes and gently nibbled on them after saying so.
 
 ‘Still won’t answer and play around? Heh. Let’s see how long it goes.’ Lith thought to himself and smirked. He grabbed one of her tits and fondling them, whispered in her ear, “if you don’t let me know what our relationship is, I would have no idea what lines to cross and what to not.”
 

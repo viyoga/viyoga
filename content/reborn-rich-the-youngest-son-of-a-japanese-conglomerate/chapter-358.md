@@ -6,7 +6,7 @@ chapter = 358
 +++
 
 <p>"Ehehehehe!"</p>
-<p>"Ah! That felt so good! I feel refreshed, Ryuta-nim~♥"</p>
+<p>"Ah! That felt so good! I feel refreshed, Ryuta-nim♥"</p>
 <p>Late Sunday morning. Mimata Chieri was watching the videos she, I, and Sawayanagi Seari had taken together since Saturday, grinning like an old man and going "ehehehe," while Sawayanagi Seari was making a fuss about how she felt refreshed even though it wasn't a hot spring. Did she feel refreshed because she released the desires that had been building up for weeks?</p>
 <p>"Seari, can you stand over here for a moment?"</p>
 <p>I was curious about the stats of the awakened Sawayanagi Seari, so I put on the glasses from the ruins that I had brought to see Yukiko's abilities and looked at Sawayanagi Seari. Of course, there were still uses left, so Sawayanagi Seari's stat window popped up.</p>
@@ -35,9 +35,9 @@ chapter = 358
 <p>I don't know if this will work... I held out the Fairy's Secret to Sawayanagi Seari.</p>
 <p>"It's a present."</p>
 <p>"Wow! Really? Ryuta-nim is the best!"</p>
-<p>Sawayanagi Seari, who received the Fairy's Secret I gave her, jumped up and down and rejoiced. It wasn't accurate, but it felt like hearing my daughter say "Daddy's the best~!" after receiving a gift.</p>
+<p>Sawayanagi Seari, who received the Fairy's Secret I gave her, jumped up and down and rejoiced. It wasn't accurate, but it felt like hearing my daughter say "Daddy's the best!" after receiving a gift.</p>
 <p>"Put it on now."</p>
-<p>"Ryuta-nim, you have to put things like this on for me~!"</p>
+<p>"Ryuta-nim, you have to put things like this on for me!"</p>
 <p>I said it with the feeling of "try equipping this equipment item," not as a gift. I took the Fairy's Secret back from Sawayanagi Seari and touched her long ears directly, putting the Fairy's Secret on her ear. Sawayanagi Seari made a moaning sound, "Ahng♥," when I touched her ears. Isn't she too sensitive?</p>
 <p>"Oh! Senpai, Seari-chan's appearance is...?!"</p>
 <p>"Huh? What are you talking about?"</p>
@@ -45,7 +45,7 @@ chapter = 358
 <p>◆Awakened High Mountain Elf Body "Legendary Trait": An elf's body that lives in the high mountains, sensing the wind and trees. Each of them was a priestess, hunter, and warrior of the wind god. Agility, Stamina, Resistance, and Recovery stats increase by 2, and their limits also increase by 1 each. The limit of the Spirit Power stat increases by 2, and stats increase as communion with the wind increases. Acquires sub-traits.</p>
 <p>-The appearance of the High Mountain Elf Body is changed to human due to the effect of the currently equipped Fairy's Secret item.</p>
 <p>Hmm, perfect. If it's properly stated in the status window, it doesn't seem like it will suddenly transform back.</p>
-<p>"Ryuta-nim~! Thank you! Now I can wander around as I please!"</p>
+<p>"Ryuta-nim! Thank you! Now I can wander around as I please!"</p>
 <p>Sawayanagi Seari ran to me and jumped into my arms. It was a sudden body slam, so I naturally fell back onto the bed, and Sawayanagi Seari was on top of me.</p>
 <p>"Haa, haa...! It's Ryuta-nim's fault. Because you gave me such a gift♥"</p>
 <p>She's already in heat with hearts in her eyes. She's getting horny from a gift, isn't that too easy...?</p>

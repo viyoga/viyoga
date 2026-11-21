@@ -90,20 +90,20 @@ chapter = 786
 <p>Was that blonde, brown-skinned man truly a benefactor trying to help her with her Revenge for being deceived for over a decade? Or was he an evil person trying to manipulate her into betraying her father? She couldn't tell yet.</p>
 <p>'Yes, there's no choice but to find out for myself.'</p>
 <p>Takakusaki Athena, having made up her Mind, turned the door Handle.</p>
-<p>Reverse Bunny Home Economics Teacher requested by Hwanbuljeoldae-bulga-nim~!</p>
+<p>Reverse Bunny Home Economics Teacher requested by Hwanbuljeoldae-bulga-nim!</p>
 <p>Lizhael Belly Dancer, High Heels requested by Lee Seung-ju_367-nim.</p>
-<p>Starting with the Belly Dancer~!</p>
+<p>Starting with the Belly Dancer!</p>
 <p>Attire that suits High Heels.</p>
-<p>Linling's White Combat Uniform, China Dress, and School Uniform, as a Big Tits Older Sister, requested by Meokguja-nim~!</p>
-<p>White Combat Uniform~!</p>
+<p>Linling's White Combat Uniform, China Dress, and School Uniform, as a Big Tits Older Sister, requested by Meokguja-nim!</p>
+<p>White Combat Uniform!</p>
 <p>School Uniform</p>
-<p>China Dress~!</p>
-<p>She doesn't really give off an Older Sister vibe hehe. Eve's adult art style is still undecided~!! It might stay like this or change hehe.</p>
-<p>Master's everyday clothes, underwear, and belly dancer attire requested by Gojoy-nim~!</p>
+<p>China Dress!</p>
+<p>She doesn't really give off an Older Sister vibe hehe. Eve's adult art style is still undecided!! It might stay like this or change hehe.</p>
+<p>Master's everyday clothes, underwear, and belly dancer attire requested by Gojoy-nim!</p>
 <p>Master's everyday clothes</p>
 <p>Normally, she wears a simple white T-shirt and Jeans, but her everyday clothes in another sense are....</p>
 <p>her Martial Arts Uniform hehe.</p>
-<p>Underwear~!</p>
+<p>Underwear!</p>
 <p>Master, who wears rather daring underwear....</p>
 <p>Belly Dancer</p>
 <p>"Disciple-ya, is this how it's done?"</p>

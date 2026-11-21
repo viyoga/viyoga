@@ -101,7 +101,7 @@ chapter = 517
 
 <p>‘What does this sheath change? Its appearance is identical to the previous one!</p>
 
-<p>[I’ll tell you after I’m done, fufufu~~] Ruxue’s laughter echoed, sweet and symphonic.</p>
+<p>[I’ll tell you after I’m done, fufufu] Ruxue’s laughter echoed, sweet and symphonic.</p>
 
 <p>“All right, son-in-law, daughter, let’s eat and talk a little. We still have a lot to plan for your wedding.” The Gold King smiled, pulling another seat for Meilin beside the lake.</p>
 

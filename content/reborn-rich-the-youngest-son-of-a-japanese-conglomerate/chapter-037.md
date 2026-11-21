@@ -11,7 +11,7 @@ chapter = 37
 <p>,Haeum.... Ung.... Ahh.... Good, Ryuta."</p>
 <p>Tzuwap! Tzuwap!</p>
 <p>Arisu, who was whimpering that it felt good, lifted her head and sucked on my neck. I'm gonna have a hickey on my neck tomorrow.... I gradually increased the speed of my hips and continued the Sumata. As the speed increased, Arisu's back arched more and more, and her moans grew louder to match the speed of my hips.</p>
-<p>,Haaang! Haang! Put it in, you. It's so itchy there, I'm going crazy, haaang~!!"</p>
+<p>,Haaang! Haang! Put it in, you. It's so itchy there, I'm going crazy, haaang!!"</p>
 <p>Arisu demanded insertion, as Sumata wasn't enough for her. When it looked like I was going to keep doing Sumata, Arisu grabbed my ear and brought it to her lips. And whispered.</p>
 <p>,I took my pill today. It's safe, so cum inside, Ryuta."</p>
 <p>Such a seductive bitch, I couldn't refuse when she said it like that. I plunged my dick, covered in bubbles and love juice, straight into Arisu's pussy.</p>
@@ -42,9 +42,9 @@ chapter = 37
 <p>,When you go somewhere, go with your manager and don't go alone. Also, wear something like a smart watch and use an app that sends a message right away if your bio-signals become strange, okay? Should I buy you a smart watch tomorrow?"</p>
 <p>Arisu smiled shyly only then, as if the fear was relieved when I explained this and that.</p>
 <p>,Will you come if it says I'm in danger?"</p>
-<p>,Of course. You saw Hanasaki-ssi freaking out earlier, right? I'm a disciple of the world champion~."</p>
+<p>,Of course. You saw Hanasaki-ssi freaking out earlier, right? I'm a disciple of the world champion."</p>
 <p>While talking, I fondled Arisu's breasts, which proved they were natural by floating. After all, breasts are the best. Breasts always feel good no matter when I touch them. Arisu moaned and smiled as I focused on touching her breasts.</p>
-<p>,Haaang~! Is it that fun to touch my breasts?"</p>
+<p>,Haaang! Is it that fun to touch my breasts?"</p>
 <p>,Yeah, I love it."</p>
 <p>,Eueung... So."</p>
 <p>Arisu's words meant that's why I got hard again. My dick was resurrected by Arisu's breasts, sticking its head out of the bathwater and showing off its majesty. Arisu was sitting almost lying on top of me, so she must have felt my dick getting hard with her butt and waist.</p>

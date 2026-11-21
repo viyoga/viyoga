@@ -29,7 +29,7 @@ chapter = 306
 
 <p>“Let me guess, it was Feiyan’s idea to throw all this on the floor?” Qingyi smiled, pulling them both into his embrace. One of his hands sank into Ruxue’s huge breasts while the other went down to Meilin’s plump, perfectly round ass cheeks, squeezing gently.</p>
 
-<p>“Mhn~~ Who else would it be?” Ruxue giggled, drawing a long sigh from Qingyi.</p>
+<p>“Mhn Who else would it be?” Ruxue giggled, drawing a long sigh from Qingyi.</p>
 
 <p>Well, Feiyan was the one who earned this money. How could he stop her from being happy?</p>
 
@@ -65,7 +65,7 @@ chapter = 306
 
 <p>Meilin lagged a little behind, but Feiyan quickly grabbed her.</p>
 
-<p>“This time you won’t get away! Fufufu~~ I’m going to teach you how to take hubby all inside you!” The tanned beauty’s seductive laugh echoed.</p>
+<p>“This time you won’t get away! Fufufu I’m going to teach you how to take hubby all inside you!” The tanned beauty’s seductive laugh echoed.</p>
 
 <p>By the time they reached the large main room of the temple palace, Qingyi was already sitting on the bed, kissing Ruyan and Ruxue while the other girls competed for his touch.</p>
 
@@ -73,7 +73,7 @@ chapter = 306
 
 <p>Feiyan knelt right behind her, her arms passing around Meilin’s delicate waist and reaching for Qingyi’s pants.</p>
 
-<p>“Nghnn~~” moaned Meilin as Qingyi’s cock, already fully erect, sprang out, hanging heavily in front of her face.</p>
+<p>“Nghnn” moaned Meilin as Qingyi’s cock, already fully erect, sprang out, hanging heavily in front of her face.</p>
 
 <p>The soft red on her cheeks became vibrant, a slight tremor running through her body as her full, cherry-colored lips pressed against the tip of Qingyi’s cock in a moist, soft kiss.</p>
 
@@ -81,7 +81,7 @@ chapter = 306
 
 <p>Her lips first completely enveloped the reddish head, her tongue sliding gently along the thick, veiny base as she swallowed even more.</p>
 
-<p>“Ghuk- mghnn~~” Meilin moaned, feeling the tip pass through her throat and continue to sink deeper and deeper, a long, thick swelling going down her neck.</p>
+<p>“Ghuk- mghnn” Meilin moaned, feeling the tip pass through her throat and continue to sink deeper and deeper, a long, thick swelling going down her neck.</p>
 
 <p>When her lips reached the base of Qingyi’s groin, she pulled back, her tongue slipping out of her mouth, connected to his cock by thick strands of saliva.</p>
 

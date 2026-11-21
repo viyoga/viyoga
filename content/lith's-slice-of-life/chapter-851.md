@@ -31,7 +31,7 @@ Right as the samurai was about to feel dejected, lose all hopes, and have his de
 
 In the next instant, the dark vision changed to…
 
-"hello, everyone~"
+"hello, everyone"
 
 "I'm Tsuki, nice to meet you all."
 

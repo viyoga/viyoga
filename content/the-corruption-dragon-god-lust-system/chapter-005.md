@@ -33,7 +33,7 @@ chapter = 5
 
 <p>“Answer me!” he ordered, his voice more intense as he massaged her intimacy, feeling the inner walls squeeze his fingers.</p>
 
-<p>“Y-yes… nghn~~” she finally gave in, stuttering between gasping words. “I-I’m a little slut- ughn~~”</p>
+<p>“Y-yes… nghn” she finally gave in, stuttering between gasping words. “I-I’m a little slut- ughn”</p>
 
 <p>Her body convulsed as Qingyi’s fingers sank even deeper into her throbbing pussy.</p>
 
@@ -65,7 +65,7 @@ chapter = 5
 
 <p>Painfully, Qingyi’s massive cock made room in her throat until her lips found the base, feeling every pulsating vein against her tongue.</p>
 
-<p>“Ughn slurp~” She moaned, moving her head back and withdrawing his member from that hot interior.</p>
+<p>“Ughn slurp” She moaned, moving her head back and withdrawing his member from that hot interior.</p>
 
 <p>Her lips were soaked with saliva, forming tenuous threads that still connected her to the swollen glans.</p>
 
@@ -95,7 +95,7 @@ chapter = 5
 
 <p>She swallowed every drop of cum before finally separating her lips from his member.</p>
 
-<p>“All done~” Her voice sounded high and soft as she opened her mouth, sticking out her small, fluffy tongue and revealing a completely clean interior.</p>
+<p>“All done” Her voice sounded high and soft as she opened her mouth, sticking out her small, fluffy tongue and revealing a completely clean interior.</p>
 
 <p>She hadn’t wasted a single drop, her lips now red and swollen from the effort.</p>
 

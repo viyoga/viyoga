@@ -29,7 +29,7 @@ chapter = 1904
 <p>They gathered around the crash site instead, settling into a loose circle around their man, arms crossed, eyes narrowed.</p>
 <p>Serika watched him raise one hand and wave it vaguely: the universal signal of a man requesting not to be perceived for a moment.</p>
 <p>"You’re too tanky for your own good. Synchra pampers you so much you’ve become careless."</p>
-<p>"You forgot to invite Kaelira and Black Fang, didn’t you~" Lucille’s purr carried zero surprise. "I was wondering when you’d notice~"</p>
+<p>"You forgot to invite Kaelira and Black Fang, didn’t you" Lucille’s purr carried zero surprise. "I was wondering when you’d notice"</p>
 <p>Blossom said nothing at all. Her tail hung limp behind her, and she was fighting the hardest battle on the landing: refusing to meet his gaze. Her eyes kept sliding toward him anyway, and kept being hauled back, and what finally escaped her was barely a mutter.</p>
 <p>"Master... bad...! Careless!!"</p>
 <p>It landed harder than the ballista had.</p>

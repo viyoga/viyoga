@@ -80,4 +80,4 @@ chapter = 1843
 <p>She paused a moment with her back to the graves, and when she faced Quinlan again the grief had been packed away somewhere it would keep. What looked out of her eyes instead had a shine he knew very well.</p>
 <p>"The mourning is done." Her thumb pushed the katana a finger’s width out of its sheath.</p>
 <p>She grinned.</p>
-<p>"Time to collect on your promise, Quin~"</p>
+<p>"Time to collect on your promise, Quin"</p>

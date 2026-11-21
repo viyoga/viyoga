@@ -6,7 +6,7 @@ chapter = 276
 +++
 
 <p>Lunch was a simple brunch-style meal. It was a buffet, so we were free to serve ourselves. If it had been one bowl per person, it might have been a bit lacking.</p>
-<p>,Ryuta, aah~."</p>
+<p>,Ryuta, aah."</p>
 <p>Alik, who was sitting next to me and munching away, took a piece of Italian omelet frittata with his fork and held it out towards my mouth. Hmm, I didn't put any frittata on my plate because I was busy getting other things, but should I try some?</p>
 <p>I opened my mouth as Alik said and took the piece of frittata. Hmm, it's good. It has the scent of butter and bacon, and it also contains spinach, which is good for your health.</p>
 <p>Alik seemed pleased that I accepted the food he offered, and he smiled slightly before starting to eat the food on his own plate again.</p>
@@ -15,12 +15,12 @@ chapter = 276
 <p>Hmm, the bagel sandwich is quite delicious too. The smoked salmon and cream cheese in the middle made it stable and tasty.</p>
 <p>When I smiled with my eyes and nodded as if to say it was delicious, Konoe Akina also smiled in satisfaction. I was planning to eat about two more plates anyway, so eating this much extra wasn't bad.</p>
 <p>But what came next was the problem. When I accepted Konoe Akina's food, Alik picked up his plate and ran over, bringing food for me and holding it to my lips. This time it was asparagus wrapped in bacon.</p>
-<p>,Ryuta, aah~."</p>
-<p>,Benefactor, I have some too~!"</p>
+<p>,Ryuta, aah."</p>
+<p>,Benefactor, I have some too!"</p>
 <p>With food being delivered from both sides, I couldn't even eat what I had brought myself.</p>
 <p>Panicked, I gave Mimata Chieri a look asking for help, but Mimata Chieri was just looking at me, Alik, and Konoe Akina with a pleased expression. No, Sunbae-nim, this isn't a pleasing situation.</p>
 <p>,Investor-nim, try this too!"</p>
-<p>,Honey, this is delicious, try it~!"</p>
+<p>,Honey, this is delicious, try it!"</p>
 <p>Since no one stopped them, I eventually gave up on eating with my own hands. Later, Sawayanagi Azuma and Lianna Holden even joined in, feeding me food, so I was able to finish lunch without lifting a finger.</p>
 <p>,I'm full now, so I'll stop eating."</p>
 <p>For me to say something like that, when I can easily eat as much as three normal men, you can imagine how much I ate. After lunch, we were shown to our respective rooms.</p>
@@ -28,18 +28,18 @@ chapter = 276
 <p>The intention was obvious, but I remained silent. Well, it's convenient and nice to use a room alone. They're probably planning to come find me at night, but that's fine too, so I stayed still.</p>
 <p>After putting my luggage in the room, there was something like a sports day, as befitting a company outing. The men decided to play 4-on-4 futsal on the futsal field in front of the pension, and the women had to play 5-on-5 volleyball on the court next to it.</p>
 <p>For some reason, it was said that it would be cheating if I and Fujigasaki Rinka participated, so neither of us could participate in the sports day. I'm bad at soccer, you know.</p>
-<p>,The winning futsal team will... Seryu Military Company's advisor Mimata Chieri-nim, who is over there warming up, will arrange a meeting with the female employees of East Weapon~!"</p>
-<p>Instead, I had to hold the microphone and emcee. I've never emceed before, but I guess I can just say what kind of reward is prepared before starting. And a meeting with the female employees of East Weapon is a pretty good reward, right? Especially Lee Doo-young, Choi Jin-ha, and Kim Young-chan, who have just taken off their trainee badges, were so happy that they raised their hands while shouting, "Waa~!"</p>
+<p>,The winning futsal team will... Seryu Military Company's advisor Mimata Chieri-nim, who is over there warming up, will arrange a meeting with the female employees of East Weapon!"</p>
+<p>Instead, I had to hold the microphone and emcee. I've never emceed before, but I guess I can just say what kind of reward is prepared before starting. And a meeting with the female employees of East Weapon is a pretty good reward, right? Especially Lee Doo-young, Choi Jin-ha, and Kim Young-chan, who have just taken off their trainee badges, were so happy that they raised their hands while shouting, "Waa!"</p>
 <p>Well, they had been held captive by slave traders and then only trained in Japan, so they probably hadn't met any proper women. They're young men with boiling blood, so it's natural that they're hungry for women.</p>
 <p>Alik, who had trained with them, seemed young and untouchable, Jung Da-rim was a plant otaku who was only interested in plants, and the other seniors must have been scary because they were tough on them during training, so it seemed good for them to meet different women.</p>
 <p>Among the men of Seryutai excluding the trainees, two had girlfriends, so they had slightly lukewarm expressions about the victory reward.</p>
 <p>,You can also choose a prize of 100,000 yen instead of a blind date."</p>
 <p>I released some money to raise the atmosphere. Even if all four members of the winning team chose the prize money, it would only be about 400,000 yen, so it wasn't that burdensome. Only then did Sawayanagi Shigeru and Kitayama Junichi, who had girlfriends, cheer.</p>
-<p>,Kyahaha! Work hard! If you do well, I'll give you a separate prize too~!"</p>
+<p>,Kyahaha! Work hard! If you do well, I'll give you a separate prize too!"</p>
 <p>Fujigasaki Rinka was excited about the current situation and laughed cheerfully, offering a separate prize. I don't know how much it is, but everyone seemed to be looking forward to Fujigasaki Rinka's reward as a world martial arts champion.</p>
 <p>,I'll say the reward for the women. Now..."</p>
 <p>Fujigasaki Rinka snatched the card with the contents of the gift that I was holding and nodded after looking at it.</p>
-<p>,The winning women's volleyball team will receive a set of cosmetics as a prize~! And the MVP will receive a one-day date ticket with my disciple, Ryuta."</p>
+<p>,The winning women's volleyball team will receive a set of cosmetics as a prize! And the MVP will receive a one-day date ticket with my disciple, Ryuta."</p>
 <p>No, Sabu. What are you saying? You can just give them a set of cosmetics. Why suddenly a date ticket with me?</p>
 <p>Contrary to my dumbfounded reaction, my date ticket was surprisingly popular. They didn't cheer like the men, but I could feel the women who had a relationship with me burning with fighting spirit.</p>
 <p>Even Alik and Konoe Akina, who didn't have a physical relationship with me, were clenching their fists and burning with determination, which made me feel pretty good as a man. It means my date ticket is that attractive.</p>

@@ -18,7 +18,7 @@ chapter = 295
 <p>Apparently, even a powerful expert at the peak of the seventh stage needed to relax every now and then.</p>
 <p>Not that Ethan should have been so surprised—after all, that guy had a bed big enough for dozens of women to sleep in.</p>
 <p>It was obvious he liked to have fun.</p>
-<p>"Hmm... we can check this out later; I want a shower right now! Of course, if you guys want to stay behind... hehe~" Evelyn gave a teasing giggle, grabbing Ethan by the arm and pulling him along.</p>
+<p>"Hmm... we can check this out later; I want a shower right now! Of course, if you guys want to stay behind... hehe" Evelyn gave a teasing giggle, grabbing Ethan by the arm and pulling him along.</p>
 <p>Ethan didn’t resist, letting himself be dragged to the bathroom, all his other wives following close behind, clearly just as excited as she was.</p>
 <p>The palace bathroom was also gigantic—larger on its own than the bedroom and bathroom of his old mansion combined.</p>
 <p>A huge round shower occupied one corner, spacious enough for ten people to bathe under it at the same time. Its circular structure was covered in shiny tiles that reflected the light from the magical lamps.</p>

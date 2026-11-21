@@ -77,4 +77,4 @@ chapter = 296
 <p>When I returned, everyone was waiting for me naked. Everyone was smiling at me.</p>
 <p>"Since we're here at the penthouse, we decided to do a 5P. The women decided to have a so-called naked communion with each other."</p>
 <p>Nagumo Sian spoke on behalf of everyone. I was led by everyone's hands to the wide bed in the penthouse. All four of them were lying on the bed, reaching out to me as if seducing me. I threw myself onto the bed as if diving into a sea of female bodies.</p>
-<p>----Vulva Yukiko~!</p>
+<p>----Vulva Yukiko!</p>

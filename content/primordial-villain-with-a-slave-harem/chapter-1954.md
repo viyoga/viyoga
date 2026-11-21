@@ -32,7 +32,7 @@ chapter = 1954
 <p>Quinlan kept the family above the clouds while he watched the other pirates. Several had stopped firing to support their captain. Others were slipping over the rail, their blue-gray bodies disappearing beneath the surface.</p>
 <p>They were still very close to their own ship.</p>
 <p>"Vex, could you conceal us?"</p>
-<p>"Of course~"</p>
+<p>"Of course"</p>
 <p>His Hexwitch cast [Hex of Null Presence] over their group. Beside him, Black Fang was following the swimmers with her eyes.</p>
 <p>"Once they can see us, let’s use the spell names and gestures," Quinlan said. "I’d rather hear about their magic before they start asking questions."</p>
 <p>Kitsara grinned. "Time to put on a performance!"</p>

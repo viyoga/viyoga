@@ -26,11 +26,11 @@ chapter = 474
 <p>"Kurayamada-sensei will be leaving after talking a bit more."</p>
 <p>"Ah, okay."</p>
 <p>Kurayamada Kirie gave me a look that seemed to say she would give me information, so I nodded and went outside. As soon as I got out of the principal's office, my smartphone started vibrating, and I checked to see that I had a LINE message from Seizawa Shii.</p>
-<p>Shii-ttang☆: Let's start with a bang, so today is a date with me~! Come here by 4:30~!</p>
+<p>Shii-ttang☆: Let's start with a bang, so today is a date with me! Come here by 4:30!</p>
 <p>I thought I would have a date with Seizawa Shii in the middle or at the end, so I was quite surprised that she was the first one. Is it because of what Seizawa Shii said, "Let's start with a bang?"</p>
 <p>Yamashiro Ryuta: Okay. And it's not a date.</p>
 <p>Someone might attack me, so I have to keep saying it's not a date. I got a reply right away to my saying it's not a date.</p>
-<p>Shii-ttang☆: You're so shy~!</p>
+<p>Shii-ttang☆: You're so shy!</p>
 <p>She misunderstood that saying it's not a date means I'm shy. She's a strange one. But if it's 4:30, I don't have much time? I didn't have much time because of the pointless post-exam meeting and the conversation with Ishidera Kosuke. Why did she send the LINE message so close to the time?</p>
 <p>I hurried to leave work to make it to the date.</p>
 <p>###</p>
@@ -50,9 +50,9 @@ chapter = 474
 <p>"Let's go here first, Ryuta-tchi."</p>
 <p>Seizawa Shii dragged me to the Région cosmetics store on the first floor of the department store. It seemed like it was because Seizawa Shii didn't get the custom perfume gift from Région that the other friends got when I came back from America. She went straight to the Région store as if she had thought about it in advance, even though she told me she hadn't decided what she wanted.</p>
 <p>"You said you didn't have anything in mind... Did you think of something quickly?"</p>
-<p>"Ehehehehe, I wanted a custom perfume too! Ryuta-tchi didn't give me one~!"</p>
+<p>"Ehehehehe, I wanted a custom perfume too! Ryuta-tchi didn't give me one!"</p>
 <p>Seizawa Shii was acting spoiled in front of me, as if she was embarrassed that I had caught her. It's clearly Seizawa Shii's fault for asking for a Hollywood celebrity's autograph handkerchief to mess with me, but I don't know why it's becoming my fault.</p>
-<p>"Welcome~!"</p>
+<p>"Welcome!"</p>
 <p>"Do you have custom perfume service?"</p>
 <p>A clerk came and greeted us as Seizawa Shii and I were talking in front of the store. When I asked about the custom perfume, the clerk nodded with a friendly smile.</p>
 <p>"Yes, it just came in recently. The reaction from the upper class in the United States was quite good, so the Japanese branch decided to bring it in as well. Miyashi will probably be the first place in Japan to get it."</p>
@@ -60,7 +60,7 @@ chapter = 474
 <p>"I want to try it!"</p>
 <p>"Yes, please follow me this way."</p>
 <p>Seizawa Shii raised her hand excitedly, and the clerk took her to a place that looked like a sticker photo booth. Inside that machine, they scan your face and body, and then the AI combines a few perfumes for you to smell and decide on.</p>
-<p>"You have to take off all your clothes~!"</p>
+<p>"You have to take off all your clothes!"</p>
 <p>Seizawa Shii peeked her face out from behind the curtain and said to me with a smile. Because they have to scan your body, there was a curtain that completely covered you, unlike the sticker photo booth where you can see your lower body.</p>
 <p>"Ryuta-tchi, come in for a second!"</p>
 <p>I waited for a while, and then I heard Seizawa Shii's shout. Of course, a man who hasn't experienced this might be flustered. That's because you take off your clothes and scan inside that machine, just like Seizawa Shii said.</p>
@@ -82,5 +82,5 @@ chapter = 474
 <p>Seizawa Shii blushed and answered. They say that making secrets with each other makes you closer, so I was going to see if I would get closer to Seizawa Shii in the future.</p>
 <p>----</p>
 <p>Seizawa Shii Date Look B-cut</p>
-<p>I suddenly wanted to see an oversized sweater, so I matched it with wild long boots~!</p>
-<p>"Then goodbye~!"</p>
+<p>I suddenly wanted to see an oversized sweater, so I matched it with wild long boots!</p>
+<p>"Then goodbye!"</p>

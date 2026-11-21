@@ -25,7 +25,7 @@ chapter = 795
 
 <p>&quot;’Taking it like a bitch in heat... it goes deepest. Every time, you get so sensitive and cum so fast.’&quot;</p>
 
-<p>&quot;’I don’t know~...’&quot;</p>
+<p>&quot;’I don’t know...’&quot;</p>
 
 <p>&quot;Her son-in-law’s smug, lecherous voice mixed with her sister’s alluring, sob-like moans instantly made Ruth feel burning hot all over.&quot;</p>
 
@@ -43,7 +43,7 @@ chapter = 795
 
 <p>&quot;The fullness was irresistible to the touch...&quot;</p>
 
-<p>&quot;’Ahh~...’&quot;</p>
+<p>&quot;’Ahh...’&quot;</p>
 
 <p>&quot;Seeing her older sister return, Eloise buried her face in the pillow in shame, biting it to stifle her cries, only letting out soft moans.&quot;</p>
 
@@ -79,7 +79,7 @@ chapter = 795
 
 <p>&quot;The next day, when her daughters praised her for looking radiant, she’d feel incredibly guilty, knowing it was all thanks to her son-in-law’s ’moisturizing.’&quot;</p>
 
-<p>&quot;’Mmm~...’&quot;</p>
+<p>&quot;’Mmm...’&quot;</p>
 
 <p>&quot;While she was daydreaming, Eloise let out a deeply satisfied, almost sigh-like moan.&quot;</p>
 
@@ -123,7 +123,7 @@ chapter = 795
 
 <p>&quot;As Ruth left, she pulled the door shut. Eloise seemed to let out a sigh of relief.&quot;</p>
 
-<p>&quot;’Little bastard, I’ll go upstairs to my room after this... please don’t tease me anymore, okay~...’&quot;</p>
+<p>&quot;’Little bastard, I’ll go upstairs to my room after this... please don’t tease me anymore, okay...’&quot;</p>
 
 <p>&quot;Eloise obediently started washing Luis, pleading with a soft, whiny voice.&quot;</p>
 
@@ -135,7 +135,7 @@ chapter = 795
 
 <p>Seeing her waver, Luis continued with a grin, &quot;Just a moment ago when you were feeling so good, you said you’d agree to anything. Now you want to go back on your word?&quot;</p>
 
-<p>&quot;Bad man... I’ve had enough~...&quot;</p>
+<p>&quot;Bad man... I’ve had enough...&quot;</p>
 
 <p>Eloise blushed, kneeling as she used body wash to clean Luis’s cock. She shot him a seductive glare. &quot;Just how many women do you plan to ruin with this wicked thing of yours?&quot;</p>
 

@@ -55,7 +55,7 @@ chapter = 25
 
 <p>&quot;How can you just stand outside your sister-in-law’s door naked like that? You stinky brother-in-law, you pervert.&quot;</p>
 
-<p>&quot;Alright, I’ll go shower. I’ll make sure to come out smelling nice~ Leah, wait for me.&quot;</p>
+<p>&quot;Alright, I’ll go shower. I’ll make sure to come out smelling nice Leah, wait for me.&quot;</p>
 
 <p>His words were dripping with teasing. Listening carefully to the fading footsteps and the sound of the bathroom door closing, Leah finally dashed out of her room and ran downstairs to call her mother.</p>
 
@@ -107,7 +107,7 @@ chapter = 25
 
 <p>Leah’s face lit up with hope and excitement.</p>
 
-<p>&quot;Brother and you are sharing more and more little secrets, huh~&quot;</p>
+<p>&quot;Brother and you are sharing more and more little secrets, huh&quot;</p>
 
 <p>Only after entering the restaurant did Leah awkwardly realize Luis was holding her hand. She tried to pull away shyly, but Luis gripped it tightly, refusing to let go. Her face flushed red, and she had no choice but to let him keep holding it.</p>
 
@@ -139,7 +139,7 @@ chapter = 25
 
 <p>&quot;Why explain to a stranger? Feeling guilty?&quot;</p>
 
-<p>Luis chuckled and stroked her hand, grinning, &quot;You keep calling me a pervert. If I don’t act a little perverted, I’d be letting myself down. When are you gonna let Brother take advantage of you, huh~?&quot;</p>
+<p>Luis chuckled and stroked her hand, grinning, &quot;You keep calling me a pervert. If I don’t act a little perverted, I’d be letting myself down. When are you gonna let Brother take advantage of you, huh?&quot;</p>
 
 <p>Leah recoiled as if shocked, her face burning red, &quot;Brother, stop joking around. If Second Sister finds out, she’ll beat you to death.&quot;</p>
 

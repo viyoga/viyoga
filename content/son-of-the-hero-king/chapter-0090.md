@@ -32,7 +32,7 @@ chapter = 90
 <p>'As if. The very moment the light is out, I will search all around in your mansion.'</p>
 <p>Keeping his smile, "Then, since we have made everything clear. Why don't you introduce the matriarch, Theresa? I have heard her name from Camelia but aside from that I don't know much."</p>
 <p>He wondered what kind of woman she was.</p>
-<p>"Little Sol~!"</p>
+<p>"Little Sol!"</p>
 <p class="scene-break">· · ·</p>
 <p>[20 Minutes later.]</p>
 <p>Sol sat with a bitter smile on his face as a young woman who could have passed for a pre-teen girl sat on his lap while she kept humming.</p>
@@ -52,12 +52,12 @@ chapter = 90
 <p>She seemed ready to jump in shock as she turned her head around and looked at him,</p>
 <p>"Camelia did not inform you?"</p>
 <p>"No. She never did."</p>
-<p>"Oh~! The sneaky bitch. *Cough* *Cough* I mean. This is something she should have told you."</p>
+<p>"Oh! The sneaky bitch. *Cough* *Cough* I mean. This is something she should have told you."</p>
 <p>Sol's face twitched à little but otherwise didn't become angry. He knew the difference between a genuine insult full of malice and the kind of insult friends could make to each other.</p>
 <p>Deciding to change the subject, he asked, "By the way, how did this come to be?"</p>
-<p>"Hehehe~! I bought it."</p>
+<p>"Hehehe! I bought it."</p>
 <p>"... Come again?"</p>
-<p>"Yep~! You had heard correctly. I bought it."</p>
+<p>"Yep! You had heard correctly. I bought it."</p>
 <p>Saying so, her tone softened, as if reminiscing. "Back then, Blaze said that only the one who gave the best gift could become your godmother. It was funny how Camelia and Persephone fought. But even though they could crush me in terms of might, no one can beat me in terms of money."</p>
 <p>A funny image appeared in Sol's head. One where his mother was an auctioneer searching for the highest bid.</p>
 <p>"It seems that my mother was someone really interesting."</p>
@@ -73,7 +73,7 @@ chapter = 90
 <p>"Happiness never lasts."</p>
 <p>She murmured as a feeling of grief washed over her.</p>
 <p>She shook her head and kept a lid over those feelings. Now wasn't the time.</p>
-<p>"Hehe~ ! Forget it. Even though it's sad, this is life. At least they didn't totally disappear from this world.".</p>
+<p>"Hehe ! Forget it. Even though it's sad, this is life. At least they didn't totally disappear from this world.".</p>
 <p>"People do not die when they are killed. They only die once they are forgotten."</p>
 <p>Theresa's forced laugh stopped as she looked at Sol with shock before a big genuine smile formed on her face.</p>
 <p>"This is a beautiful sentence."</p>

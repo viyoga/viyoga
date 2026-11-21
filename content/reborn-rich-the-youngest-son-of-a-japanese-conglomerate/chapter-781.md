@@ -9,7 +9,7 @@ chapter = 781
 <p>Moreover, I was wearing a school uniform, one I had seen a few times before. A sky-blue shirt, a dark navy necktie, and gray pants.... It was the male school uniform of Miyashi Municipal High School.</p>
 <p>"Hee-eek...!"</p>
 <p>As I awoke from my sleep, a startled voice came from the seat next to me. I glanced over and saw a male student looking at me with a fearful expression. As if he were looking at some blonde, tanned thug.... Ah, I am blonde and tanned, that's true. Not a thug, though....</p>
-<p>"Ryuta-gun~!"</p>
+<p>"Ryuta-gun!"</p>
 <p>Deureureuk!</p>
 <p>Someone called my name and entered the classroom. The student who opened the door and entered was Shido Tsubaki, also wearing the Miyashi Municipal High School uniform, just like me. Unlike the usually calm and quiet Shido Tsubaki, she was incredibly cheerful.</p>
 <p>Hmm.... What is this? Surely.... Is it a dream?</p>
@@ -18,21 +18,21 @@ chapter = 781
 <p>Shido Tsubaki is this class's Class president? As I remained silent, Shido Tsubaki opened her mouth again, as if to say 'that's enough'.</p>
 <p>"Come to the Student Council Room for service again today."</p>
 <p>"What kind of service?"</p>
-<p>"Oh, come on~! You go to the Student Council Room every day because of the trouble you caused~!?"</p>
+<p>"Oh, come on! You go to the Student Council Room every day because of the trouble you caused!?"</p>
 <p>Was that so? I nodded my Head without realizing it. Because of Shido Tsubaki's expression, as if asking what I was doing not going immediately, I got up from my Seat.</p>
 <p>Where is the Student Council Room? I vaguely asked around and headed towards the Student Council Room. Seeing the Nameplate that read 'Student Council Room', I slid the door open with a deureureuk.</p>
-<p>"Kyahaha~! You're here again? Ryuta-gun?"</p>
+<p>"Kyahaha! You're here again? Ryuta-gun?"</p>
 <p>I had half-expected Taira Kanna to appear, but seeing her actually there made me feel strange. Especially when I hadn't expected her to be in a Gyaru style like Seizawa Shii, it felt even stranger.</p>
 <p>Moreover, she was sitting defenselessly on the desk, revealing her underwear, which made it even stranger. Uniquely, tiger-print panties, huh.</p>
 <p>"What do you mean 'here again'? I came because you told me to."</p>
-<p>"Tsk~! No matter if you're childhood friends, you can't use informal speech with your Sunbae~♥ Of course, Ryuta-gun can always be comfortable, but you have to be polite to other Sunbaes, okay?"</p>
+<p>"Tsk! No matter if you're childhood friends, you can't use informal speech with your Sunbae♥ Of course, Ryuta-gun can always be comfortable, but you have to be polite to other Sunbaes, okay?"</p>
 <p>I don't know if I'm allowed to use informal speech or not. But since she said it's okay, I guess I'll just keep using informal speech.</p>
 <p>"So, what should I do?"</p>
 <p>"Hmm? Well, you see.... Just like yesterday, knead my shoulders."</p>
 <p>Taira Kanna, a Gyaru, her Face flushed crimson, ordering me to knead her shoulders. Compared to the original Taira Kanna, who would quietly suddenly Rape me, this Gyaru Taira Kanna seemed to be at the level of a pure baby.</p>
 <p>I placed my Hands on Taira Kanna's shoulders. And with appropriate strength, I kneaded her shoulders. Taira Kanna's slender neck trembled with shivers, and she let out shallow moans of 'Haa-eugh'.</p>
 <p>After kneading Taira Kanna's shoulders for a while, I subtly lowered my Hand towards her upper chest.</p>
-<p>"Haaht...! What are you doing, Ryuta-gun~!! Pervert!"</p>
+<p>"Haaht...! What are you doing, Ryuta-gun!! Pervert!"</p>
 <p>Watching Taira Kanna slap my forearm, calling me a Hentai, I realized something. This Situation was not reality. A Taira Kanna who was this shy did not exist in reality.</p>
 <p>If I were to touch her breast area, Taira Kanna would surely have said, 'Ufufu, Orabeoni, the Destination is a little further down, isn't it?'</p>
 <p>"This is a dream."</p>
@@ -51,7 +51,7 @@ chapter = 781
 <p>"No, I can't go back to sleep when my Conquest Target is right in front of me."</p>
 <p>"♥"</p>
 <p>Perhaps because I had just woken up, or perhaps because Taira Yukiko was right in front of me, my cock was already rock-hard. I immediately pounced on Taira Yukiko, who was feigning innocence with an 'Aing'.</p>
-<p>"Ryuta-cchi~! Where are you?!"</p>
+<p>"Ryuta-cchi! Where are you?!"</p>
 <p>Kwang! Seizawa Shii urgently opened the door. It was a room on the lowest floor of the building where Class Teacher Yamashiro Ryuta was held captive.</p>
 <p>There were no Security Guards, but everyone rushed Underground and opened the last room.</p>
 <p>Kkii-iik!</p>
@@ -73,13 +73,13 @@ chapter = 781
 <p>"Yes. Let's play it...."</p>
 <p>The Students, with anxious Expressions, played the Video. The Screen displayed a low-quality image, unbelievable for the year 2054.</p>
 <p>On the Screen, a man was tied up. A blonde man with brown, tanned skin and dark roots showing; although the quality was poor, everyone present knew who the man on the Screen was. It was their Class Teacher, Yamashiro Ryuta, whom they had been searching for the past month.</p>
-<p>"It's Ryuta-cchi~!"</p>
+<p>"It's Ryuta-cchi!"</p>
 <p>"Teacher-ssi...!"</p>
 <p>"Teacher-nim...!"</p>
 <p>Everyone looked at the Screen and called out to their Class Teacher in their own ways. But their desperate calls could only turn into Silence a moment later, with the appearance of a Woman.</p>
 <p>Due to the poor quality and the Woman wearing a mask, it was impossible to tell who she was, but she was wearing very erotic underwear, so the nature of this Video was guessed. And that guess was correct.</p>
 <p>The Class Teacher Yamashiro Ryuta, whom the Students knew, was no longer there. There was only a single charcoal pig, trained by the Woman in the mask.</p>
-<p>"Haaang, Haaang~! Yes, please...! Haa-euh-heung♥"</p>
+<p>"Haaang, Haaang! Yes, please...! Haa-euh-heung♥"</p>
 <p>"Kkeu-eut, this feels good...! This Cunt/Fuck is the best...!"</p>
 <p>The next Scene, as everyone expected, was an obscene sex scene between the Woman and the man who had been their Class Teacher, Yamashiro Ryuta. Everyone watched the Appearance as if mesmerized.</p>
 <p>"...It's fortunate Alik isn't here today."</p>
@@ -112,10 +112,10 @@ chapter = 781
 <p>Nakatomi Sadae wore a tense Expression at the strange phenomenon that had occurred in an instant.</p>
 <p>"You don't need to be tense, Shrine Maiden. I'm a third-year high school student, merely borrowing the Patissier Club Room for a moment.... It's Valentine's Day tomorrow, so I'm just secretly practicing a Gift for my fiancé."</p>
 <p>A third-year student? Not a ghost?! Looking again, she was indeed wearing the St. Francis's Girls' Academy uniform. So, the ghost commotion until now was caused by people being startled by this third-year student and fainting?</p>
-<p>"Phew, Sunbae. No matter if it's a Gift for your fiancé, don't do it secretly, officially borrow and use the room. You've startled more than one or two people, you know. The urban legend is even trending now~!"</p>
+<p>"Phew, Sunbae. No matter if it's a Gift for your fiancé, don't do it secretly, officially borrow and use the room. You've startled more than one or two people, you know. The urban legend is even trending now!"</p>
 <p>"Ah, was that so? Sorry. Today's the last Time."</p>
 <p>Since the Sunbae was apologizing, the junior couldn't keep admonishing her, so Nakatomi Sadae sighed once more and said she would leave.</p>
-<p>"Sorry again~!"</p>
+<p>"Sorry again!"</p>
 <p>"It's nothing."</p>
 <p>As I walked out of the Patissier Club, I heard the Sunbae's apology from behind. Nakatomi Sadae waved her Hand, saying it was fine, but soon her Hand stopped, and her Footsteps also halted.</p>
 <p>Because the first Words the Sunbae had spoken flashed through her Head in that Moment.</p>
@@ -131,7 +131,7 @@ chapter = 781
 <p>I, filled with Expectation, unwrapped the Box Lizhael had given me. Inside the Box was something chocolate-colored, writhing and emitting a black Aura. It looked like a mixture of a sea cucumber and octopus legs, and it was terrifyingly alive and writhing, like Live Fish sashimi.</p>
 <p>"It's a Valentine's Day Gift, Partner♥"</p>
 <p>Seeing her look at me with such Expectation, I couldn't make a strange Expression. I used all my Acting skill to put on a happy Expression.</p>
-<p>"M-my, it looks delicious~! Can I eat it now?"</p>
+<p>"M-my, it looks delicious! Can I eat it now?"</p>
 <p>"Ufufu, I also want to see my Partner enjoy eating it, so eat it now, Partner♥"</p>
 <p>I have to eat it now? I was at a loss as to how to eat the writhing, chocolate-colored, suction-cupped sea cucumber, but seeing Lizhael's face full of Expectation, I just ate it all in one bite.</p>
 <p>'Ugh...!'</p>
@@ -143,23 +143,23 @@ chapter = 781
 <p>"It's delicious, Liz."</p>
 <p>"Ufufu, if my Partner says it's delicious, there is no greater Joy than this♥"</p>
 <p>Lizhael was extremely pleased by my Praise. Still, if there's cooking to be done in the future, I'll either do it myself or have someone else do it.</p>
-<p>Liz's Valentine's Day Gift B-cut~!</p>
+<p>Liz's Valentine's Day Gift B-cut!</p>
 <p>This is a Gift for the Readers-nim, hehe. Even I, the writer, don't know what's inside the Gift Box, hehehe.</p>
-<p>Gojoy-nim requested Shinoe Misano's Valentine's Day Special image and Belly Dancer Illustration~!</p>
-<p>Valentine's Day Special image~!</p>
-<p>Chocolate given with the buttocks rather than with the Hands, hehehe. I tried a new Attempt~!</p>
-<p>Belly Dancer~!</p>
-<p>I Save I-nim requested New Model Jin Mija's High-Leg, Nude Illustration~!</p>
+<p>Gojoy-nim requested Shinoe Misano's Valentine's Day Special image and Belly Dancer Illustration!</p>
+<p>Valentine's Day Special image!</p>
+<p>Chocolate given with the buttocks rather than with the Hands, hehehe. I tried a new Attempt!</p>
+<p>Belly Dancer!</p>
+<p>I Save I-nim requested New Model Jin Mija's High-Leg, Nude Illustration!</p>
 <p>High-Leg</p>
-<p>Nude~!</p>
-<p>Maman~!</p>
-<p>Mirmar2-nim requested Gyaru Alik, Arisu, Nae~!</p>
-<p>Nae, in order of Age~!!</p>
-<p>Tanning Version~!</p>
-<p>Arisu~!</p>
-<p>Tanning Version~!</p>
-<p>Alik~!</p>
-<p>Lee Seung-ju_367-nim requested Lisa Liz's Female Animal Corruption~!</p>
-<p>Starting with Lisa-ttang~!</p>
-<p>Liz~!</p>
+<p>Nude!</p>
+<p>Maman!</p>
+<p>Mirmar2-nim requested Gyaru Alik, Arisu, Nae!</p>
+<p>Nae, in order of Age!!</p>
+<p>Tanning Version!</p>
+<p>Arisu!</p>
+<p>Tanning Version!</p>
+<p>Alik!</p>
+<p>Lee Seung-ju_367-nim requested Lisa Liz's Female Animal Corruption!</p>
+<p>Starting with Lisa-ttang!</p>
+<p>Liz!</p>
 <p>Hwanbuljeoldae-bulga-nim's Naked Body Chocolate. My understanding was to pour chocolate over a naked body to coat it, but due to the limitations of the old model, it didn't come out, so I just made an illustration of a naked body giving a Gift Box, hehe.</p>

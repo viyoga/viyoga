@@ -41,7 +41,7 @@ chapter = 516
 <p>Seraphina's blood rushed to her head: "You're asking for it!"</p>
 <p>"It doesn't matter if you stay." Another petite Ravenna, lying on Ansel's back, licked his earlobe, "You can only watch, you don't have the ability to join in."</p>
 <p>"Hmm..."</p>
-<p>The tall Ravenna let out a lazy hum: "That's indeed the case... ah…ha~"</p>
+<p>The tall Ravenna let out a lazy hum: "That's indeed the case... ah…ha"</p>
 <p>The wolf girl lost her mind.</p>
 <p>"You think you're the only one who can transform... you think you're the only one who can transform, huh!"</p>
 <p>She shouted furiously: "Today, I'll show you just how compatible Ansel and I are!"</p>

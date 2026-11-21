@@ -69,7 +69,7 @@ chapter = 924
 
 <p>When the kiss ended, she pulled away just enough to speak, her lips still brushing against his.</p>
 
-<p>"Before the war, come visit us—me, Margareth, and Seraphine—in our magical laboratory... we have so many amazing things to show you." She paused, and a mischievous gleam flashed in her eyes. "But not today. Today, it’s Margareth’s turn and mine to serve as a milk supply for Lingxi. That little thing is way too ravenous, fufufu~~."</p>
+<p>"Before the war, come visit us—me, Margareth, and Seraphine—in our magical laboratory... we have so many amazing things to show you." She paused, and a mischievous gleam flashed in her eyes. "But not today. Today, it’s Margareth’s turn and mine to serve as a milk supply for Lingxi. That little thing is way too ravenous, fufufu."</p>
 
 <p>Sapphire gave a soft chuckle, her small shoulders shaking against him and her heavy breasts quivering faintly where they were pressed to his chest.</p>
 

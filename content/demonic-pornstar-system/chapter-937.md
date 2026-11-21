@@ -22,7 +22,7 @@ chapter = 937
 <p>He let go of one wrist. She immediately grabbed a fistful of his shirt and hauled him down harder against her, kissing him with the same ferocity she brought to everything, teeth and tongue and zero patience.</p>
 <p>She got a hand free and tried to roll him. Genuinely tried. She hooked her leg around his hip and threw her weight sideways, and for half a second she almost had it, her body leveraging his momentum, and he caught her mid-roll and pinned her again, flat on her back, both wrists above her head.</p>
 <p>"Hn!" She glared up at him, panting, furious, aroused. "Let me-"</p>
-<p>"This is the second round. Fight back with all your might, my adorable Luna~"</p>
+<p>"This is the second round. Fight back with all your might, my adorable Luna"</p>
 <p>He kissed her neck. She arched into it, cursed, tried to flip him again. This time he caught her leg with his and scissored her flat, and she gasped as his weight settled heavier across her hips.</p>
 <p>"You’re such a- hn- fucking-"</p>
 <p>He pulled her tank top over her head in one motion. She helped, arms up, because even Luna’s stubbornness couldn’t compete with wanting his hands on her. The garment sailed somewhere behind them. She was petite beneath him, and when his hand spread across her bare stomach it covered most of the real estate.</p>

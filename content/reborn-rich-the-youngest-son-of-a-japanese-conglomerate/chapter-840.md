@@ -51,9 +51,9 @@ chapter = 840
 <p>To act as if they were unfortunate Yeonin, when it was unrequited love... What an astonishing old man. To protect old man Ichimonji Harugoro's Dignity, I decided not to say anything more.</p>
 <p>When I contacted Saionji Diana and Muko Neika, who were in the firearms warehouse, they said they were coming out of the warehouse and heading this way.</p>
 <p>I waited for them in the Parking Lot after getting the Students into the car, and they both came carrying a lot of Luggage, as if they had picked out many Items. Beside them, Chief of Arms Shizuma Ichihara was walking along, wearing a proud Expression like a Grandfather who had given many Gifts to his Granddaughter.</p>
-<p>"There were quite a lot of intriguing Items, Teacher-nim~!"</p>
+<p>"There were quite a lot of intriguing Items, Teacher-nim!"</p>
 <p>Seeing the usually calm Saionji Diana quite excited, it seemed she was very pleased with Shizuma Ichihara's Items.</p>
-<p>"That's right~! There's a lot of useful stuff here, Yamashiro ssaem!"</p>
+<p>"That's right! There's a lot of useful stuff here, Yamashiro ssaem!"</p>
 <p>Muko Neika also seemed very satisfied, gently stroking the duffel Bag slung over her Shoulder.</p>
 <p>"Heh heh, most of them are former Terror Items, but they'll be useful."</p>
 <p>Oh, right. This old man, though now a military supplies manager for a PMC, was a bad old man who supplied firearms and explosives to terrorist organizations just a few months ago, wasn't he? Still, he seemed pleased that the high school girls showed Interest in the various Items he had made.</p>
@@ -74,12 +74,12 @@ chapter = 840
 <p>"No, it's fine. Young people should eat together. I brought my Lunchbox."</p>
 <p>At my Proposal, Shizuma Ichihara waved his Hand and returned to his office. If he didn't want to eat, there was nothing I could do. I turned my Head to look at the Students and spoke.</p>
 <p>Torimotsuni (braised chicken giblets in soy sauce) is famous in Kofu, so shall we have that for lunch?</p>
-<p>"Sounds good, Orabeoni~!"</p>
+<p>"Sounds good, Orabeoni!"</p>
 <p>"I don't know what it is, but if Ryuta eats it, Alik will like it too...!"</p>
 <p>"Might as well give it a try."</p>
 <p>Everyone agreed and nodded their Heads at my Proposal, so I punched the restaurant I had looked up into the GPS and started the car.</p>
-<p>Empty-eyed Yandere Alik, requested by Iseibu-nim~!</p>
+<p>Empty-eyed Yandere Alik, requested by Iseibu-nim!</p>
 <p>Felt a little weak? So I added eye shadow, hehe.</p>
 <p>"Ryuta tied to a Chair... Good. Alik and Ryuta, we'll be together for a Lifetime."</p>
-<p>Home Ec Teacher B-cut~!</p>
+<p>Home Ec Teacher B-cut!</p>
 <p>Knee socks felt too childish, so I took them off, hehe.</p>

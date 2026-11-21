@@ -63,7 +63,7 @@ chapter = 534
 
 <p>Her fluffy black tail swayed behind her with a little more excitement, synchronized with the wagging of Xueyao’s snowy tail.</p>
 
-<p>“Hehehe~~” Xueyao giggled excitedly and took a step back. “hubby promised me that he would save everyone, and hubby never breaks his promises, so don’t worry!”</p>
+<p>“Hehehe” Xueyao giggled excitedly and took a step back. “hubby promised me that he would save everyone, and hubby never breaks his promises, so don’t worry!”</p>
 
 <p>“Hm-mm…” Lanyin nodded, struggling to contain her excitement and calm her mind. “Does the Matriarch already know about you?”</p>
 

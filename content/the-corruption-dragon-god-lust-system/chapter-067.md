@@ -29,13 +29,13 @@ chapter = 67
 
 <p>The voluptuous, soft flesh squeezed against Qingyi’s thighs and hips, as if trying to swallow him, his cock reaching deep into her womb.</p>
 
-<p>“Mmphh~” Elize moaned as she felt herself being filled completely.</p>
+<p>“Mmphh” Elize moaned as she felt herself being filled completely.</p>
 
 <p>Qingyi grinned at those words, his body shuddering with pleasure as his cock was crushed by her pussy’s wet, throbbing walls.</p>
 
 <p>“You’re even tighter than in the morning… You know that?” He thrust his hips back, his member almost slipping out of her plump pussy before thrusting all the way in again.</p>
 
-<p>“Ahngn~~ Oh heavens~” Elize moaned, her eyes rolling back as Qingyi’s hips hit her ass with a loud, wet slap, her plump buttocks rippling violently with the impact.</p>
+<p>“Ahngn Oh heavens” Elize moaned, her eyes rolling back as Qingyi’s hips hit her ass with a loud, wet slap, her plump buttocks rippling violently with the impact.</p>
 
 <p>Qingyi kept up the pace, each of Elize’s lustful moans cut off by the loud, wet slap of their bodies meeting.</p>
 
@@ -45,7 +45,7 @@ chapter = 67
 
 <p>Moving his hands from her hips, he grabbed her wrists, pulling her to himself and releasing the twin peaks once again.</p>
 
-<p>“N-no… they’re too-ghn~~ big…” Elize said between gasping moans.</p>
+<p>“N-no… they’re too-ghn big…” Elize said between gasping moans.</p>
 
 <p>“They’re perfect,” Qingyi declared, linking Elize’s wrists in his left hand while using his right to turn her face towards him.</p>
 
@@ -61,7 +61,7 @@ chapter = 67
 
 <p>“Your ass… your thighs… your breasts… your pussy…” he gasped, feeling her completely.</p>
 
-<p>“Why are you saying nhgn~~ such embarrassing things?” Elize shuddered, her face as red as a tomato.</p>
+<p>“Why are you saying nhgn such embarrassing things?” Elize shuddered, her face as red as a tomato.</p>
 
 <p>“Because it’s true,” Qingyi smiled.</p>
 
@@ -73,7 +73,7 @@ chapter = 67
 
 <p>She could only moan raggedly, her tongue slipping out of her lips as she felt something approaching.</p>
 
-<p>“Q-qingyi… I think I’m… I’m… aghn~~ Hnngh~” Her lips fell open, her words cut off by a moan filled with debauchery as her pussy spurted non-stop.</p>
+<p>“Q-qingyi… I think I’m… I’m… aghn Hnngh” Her lips fell open, her words cut off by a moan filled with debauchery as her pussy spurted non-stop.</p>
 
 <p>Qingyi, too, was already on the edge. He felt her cunt walls tighten even more, his throbbing cock burning hotly before finally releasing.</p>
 
@@ -85,7 +85,7 @@ chapter = 67
 
 <p>The cum oozed out slowly, passing through her pink anus until it joined the flow coming out of her pussy, dripping down her thighs.</p>
 
-<p>“Nghn~~ Mmm~” Her legs lost their strength, but she was prevented from falling over when Qingyi pulled her into a hug.</p>
+<p>“Nghn Mmm” Her legs lost their strength, but she was prevented from falling over when Qingyi pulled her into a hug.</p>
 
 <p>He sat down, gently bringing her onto his lap, the steaming water bathing their sweaty bodies.</p>
 
@@ -93,7 +93,7 @@ chapter = 67
 
 <p>Elize snuggled against Qingyi’s chest, her beautiful purple eyes closing slightly as she felt his strong hands.</p>
 
-<p>“Ghn~~” she moaned, a shy smile playing on her lips.</p>
+<p>“Ghn” she moaned, a shy smile playing on her lips.</p>
 
 <p>“You’re not from here… are you?” Qingyi asked, his right hand focusing on Elize’s huge breast while his left grasped a pink nipple, squeezing it gently and eliciting a muffled moan from the beauty.</p>
 

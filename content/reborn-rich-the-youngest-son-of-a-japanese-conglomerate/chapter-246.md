@@ -89,6 +89,6 @@ chapter = 246
 <p>Nice! I came in just in time. A slightly fluorescent blue liquid formed at the ends of both nipples of the Daughter of the Abyss statue.</p>
 <p>I took turns sucking on both breasts of the statue so as not to spill a single drop.</p>
 <p>In an instant, the world turned dark, and before I knew it, I was sucking on the real Daughter of the Abyss's breasts.</p>
-<p>------Daughter of the Abyss-jjang~!</p>
+<p>------Daughter of the Abyss-jjang!</p>
 <p>Daughter of the Abyss-jjang wearing a swimsuit</p>
 <p>Daughter of the Abyss in a different art style</p>

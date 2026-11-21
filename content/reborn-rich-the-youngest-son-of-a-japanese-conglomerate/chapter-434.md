@@ -33,7 +33,7 @@ chapter = 434
 <p>Of course, a big Reason was that I understood Shimokawabe Airen's desire for Actual combat and asked her for Help, but Otagi Yuka wouldn't know that, so she would think it was sudden Help.</p>
 <p>"No, when a Student is in Danger, it's natural for a Teacher to help."</p>
 <p>In reality, she just wanted to cut people; it's quite hypocritical. As I listened to Shimokawabe Airen's Words and evaluated her internally, Konoe Akina and Sakagami Rena arrived at the Warehouse.</p>
-<p>"Sorry for being late~!"</p>
+<p>"Sorry for being late!"</p>
 <p>"I have completed my Mission and returned, Liege."</p>
 <p>Since it was still early Morning, they weren't that late. After exchanging Greetings and saying 'good Work,' everyone's Gaze now turned to Eve. Eve had been continuously collecting Information online since yesterday, and they were curious if there was any new Information.</p>
 <p>"Overnight, I obtained one piece of Information. It's not precise, but the Troops seem considerable. They don't seem to have entered Miyashi yet, but if I make a Conjecture based on a few Calls I hijacked, it seems to be over a hundred people."</p>

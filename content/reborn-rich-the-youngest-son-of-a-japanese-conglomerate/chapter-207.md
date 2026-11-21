@@ -79,7 +79,7 @@ chapter = 207
 <p>"Keueut...! If you cum inside, I'll kill you, ha'eung...! Heueueung♥"</p>
 <p>Of course, asking wasn't to follow Dang So-hwa's opinion. I forcefully pressed my hips against Dang So-hwa's pelvis and released the semen I had been holding back.</p>
 <p>Gush! Gush! Gush!</p>
-<p>"Aandaee~! Heueut, heuhyaaah!! I'm going, I'm going, I'm going, aaaahng♥"</p>
+<p>"Aandaee! Heueut, heuhyaaah!! I'm going, I'm going, I'm going, aaaahng♥"</p>
 <p>As my cock repeatedly widened and contracted Dang So-hwa's pussy, spewing hot semen, Dang So-hwa reached her climax once again. Shortly after Dang So-hwa reached her climax, the stopwatch I had set for an hour beeped, indicating that the time was up.</p>
 <p>I pulled my cock out of Dang So-hwa's pussy and showed her that it was still intact.</p>
 <p>"It's not hurt at all, right? You lost the bet?"</p>

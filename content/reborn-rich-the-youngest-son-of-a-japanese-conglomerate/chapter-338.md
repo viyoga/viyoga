@@ -12,7 +12,7 @@ chapter = 338
 <p>Konoe Akina, who became the president of the Date Experience-Meditation Club, said admiringly as she looked around the club, and I answered.</p>
 <p>Looking around, Seizawa Shii was wandering around the club room as if she was amazed, and the rest of the students were sitting in chairs at the long table.</p>
 <p>,Shii, sit down.</p>
-<p>,Neee~☆Lisa-tan!</p>
+<p>,Neee☆Lisa-tan!</p>
 <p>When Seizawa Shii sat down at Minamoto Lisa's words, I stood up and looked at everyone.</p>
 <p>,As you all know, I'm Yamashiro Ryuta, your homeroom teacher and club advisor. I'll let you do whatever you want with the club, and if you need anything, feel free to contact me. Decide on club rules by discussing them with each other, and don't stay up too late.</p>
 <p>Like a club advisor, I said that I wouldn't get too involved. I was too lazy to set detailed rules like club rules, and I thought that Konoe Akina and Otagi Yuka, the club president and vice president who secretly volunteered to be my helpers, would lead the club subtly as I wanted, so I thought it would be fine even if I didn't interfere directly.</p>

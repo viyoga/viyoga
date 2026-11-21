@@ -14,7 +14,7 @@ chapter = 370
 <p>-Is this how anonymous people talk? Ah! My voice is weird, ahaha!</p>
 <p>Someone turned on anonymous mode and spoke. Of course, because it was anonymous mode, no lights were shining. And the voice was automatically distorted. It seemed that the person who spoke could also hear the distorted voice.</p>
 <p>-Then I'll go first. I... I actually have someone I like. Their name starts with Ya and ends with Taro.</p>
-<p>-Oh my! What a coincidence~! Mine also starts with Ya and ends with Taro...!</p>
+<p>-Oh my! What a coincidence! Mine also starts with Ya and ends with Taro...!</p>
 <p>Everyone who heard the story just now thought it was homeroom teacher Yamashiro Ryuta, but they didn't say anything. It was an opportunity to talk irresponsibly with each other.</p>
 <p>-Ahaha! Surely the person whose name starts with Ya and ends with Taro isn't Ryuta-cchi, right?</p>
 <p>Even though a female student who seemed like anyone would know even in anonymous mode spoke, several people avoided answering the question, saying, "Eh, surely not."</p>
@@ -23,7 +23,7 @@ chapter = 370
 <p>-I like Ryuta.</p>
 <p>-Alik, Alik doesn't have to be anonymous.</p>
 <p>,Oh, really? Alik likes Ryuta."</p>
-<p>-Ahaha~! Alik is so cute~☆</p>
+<p>-Ahaha! Alik is so cute☆</p>
 <p>While talking about who they liked, the story gradually deepened. The deepening story started with a female student who asked to be called O.</p>
 <p>-Please call me O. It's a story that my friend asked me for advice on. It's difficult for me to judge alone, so I'm trying to talk to you all.</p>
 <p>-My friend's father passed away early, and she only has her mother... One day, that friend saw a scene in the living room.</p>
@@ -39,14 +39,14 @@ chapter = 370
 <p>-Risa-chan, do it anonymously too! It seems more fun that way!</p>
 <p>-If they were just having a fling, then you can just let it go, and if they're serious about spending the future together, then you can think of him as your new dad.</p>
 <p>-Ah, I think that's good. I'll tell my friend that.</p>
-<p>-Kyahaha! More than that, tell me in detail about that lewd thing your friend saw~!</p>
+<p>-Kyahaha! More than that, tell me in detail about that lewd thing your friend saw!</p>
 <p>After O's story ended, various concerns and subtly lewd stories began to flood the VR space.</p>
 <p>They chattered about trivial things, such as a story about meeting a man she knew at a laundromat and that man washing sheets covered in vaginal fluids, or a story about how the outline of the thing of a man whose name starts with Ya and ends with Taro was huge when he came wearing jeans.</p>
 <p>The story generally flowed smoothly, but another story using a friend as an excuse caused a big stir.</p>
 <p>-Umm... I also have a friend's concern...</p>
 <p>-What is it? Tell me, tell me!</p>
 <p>-My friend entered into a 'friends with benefits' relationship with a man, but they've only had sex once so far. After that, she was worried about how to initiate sex again. I don't know much about this area, so I'm trying to ask here.</p>
-<p>-There's no way we would know that~! We're daughters of prestigious families, so a sex friend! That's impossible.</p>
+<p>-There's no way we would know that! We're daughters of prestigious families, so a sex friend! That's impossible.</p>
 <p>-In that case, lewd cosplay is good.</p>
 <p>-Even if you don't go as far as cosplay, if you slightly expose lewd underwear or a swimsuit, wouldn't he get excited and rush at you right away?</p>
 <p>Everyone was a virgin, but the questioner nodded at the advice of the female students of St. Francis Girls' School, who had solid theories.</p>
@@ -56,7 +56,7 @@ chapter = 370
 <p>The sex friend story was the last story of the girls' talk. Everyone took off their VR goggles and looked at each other. Except for a few, most of them probably had the same thought.</p>
 <p>'There are a lot of perverts in here.'</p>
 <p>There were quite a few lewd stories, so many of the female students were fanning themselves with their faces red, and many of the students were excited that it was fun.</p>
-<p>,Ahaha~! That was fun. Let's do this often."</p>
+<p>,Ahaha! That was fun. Let's do this often."</p>
 <p>Seizawa Shii said with a laugh as if she had enjoyed it. No matter how anonymously she spoke, she couldn't hide that it was Seizawa Shii, but she seemed to have enjoyed the VR girls' talk quite a bit.</p>
 <p>,We had fun too."</p>
 <p>,But talking made me hungry, should we get some snacks?"</p>

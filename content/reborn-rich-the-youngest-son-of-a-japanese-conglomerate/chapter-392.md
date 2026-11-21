@@ -28,7 +28,7 @@ chapter = 392
 <p>"Are you awake?"</p>
 <p>"Eueung, you couldn't stand just watching me while I was sleeping?"</p>
 <p>"Yeah, Yu-gyeong-ssi is too sexy."</p>
-<p>"Aww~♥"</p>
+<p>"Aww♥"</p>
 <p>Han Yu-gyeong didn't get angry that I did it while she was sleeping. Rather, she looked at me with a seductive expression and tightened her pussy. My dick, which was slightly losing its strength after cumming, became hard again from that stimulation.</p>
 <p>"I didn't feel it because I was sleeping, so do it one more time...♥"</p>
 <p>"Then let's do it wearing the gift Eve gave you."</p>

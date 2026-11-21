@@ -27,7 +27,7 @@ chapter = 1150
 <p>Jason created the new code and stored it away in his mind, and Jason could feel the ship settle down as it accepted him. Once that was finished, Malovena spoke up again:</p>
 <p>’Now that the ship recognises you as the captain, it will help you fly easily. You just need to tell it what to do, and it will do it.’</p>
 <p>Jason hummed calmly when Malovena said this, and Jason flexed his fingers on the silver spheres on either side of him and thought: ’wake up’.</p>
-<p>TOOOOON~!</p>
+<p>TOOOOON!</p>
 <p>The loud sound of the ship coming to life echoed through the Docking Station, and multiple people all looked towards the ship as the lights came on and flashed brightly! All the computers inside the cockpit also came to life, and Jason could feel a quiet connection forming somewhere deep inside his head, like a baby touching his leg and begging for attention. The ship was alive, but it was very primitive, and its mind was undeveloped, so it wanted Jason to tell it what to do next. As someone who had trained his mind for so long, Jason was more than capable of accepting this connection to his mind, and Jason let out a calm breath before he ordered the ship to move up.</p>
 <p>’Slowly now.’</p>
 <p>Jason quickly gave a correction when he noticed that the ship was about to shoot up like a rocket, and the ship quickly corrected itself and began to fly up more slowly. Jason allowed the ship to move a few meters before he gently ordered it to turn around, and once the ship was facing the vast open darkness of the hyperspace, Jason pressed his hands on the spheres and ordered.</p>

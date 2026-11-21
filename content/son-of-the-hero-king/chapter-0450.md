@@ -27,7 +27,7 @@ chapter = 450
 <p>Having received permission from the Queen, Jasmine could no longer hide her laughter and Satella knew that there was not much she could do about it.</p>
 <p>Southern Pride was currently facing a crisis like no other. It wasn’t something like a war or the infiltration of the vampires, but something much much more insidious. To the point that she was completely helpless to do anything about it.</p>
 <p>“A new cult… I would have never thought that someone would be this daring to do something this brazen.”</p>
-<p>“Hehe. Attention. It is not the cult. It’s an assembly formed by like-minded people who respect and admire the tales of the Dragon Emperor…. Pfft! Hahaha~!”</p>
+<p>“Hehe. Attention. It is not the cult. It’s an assembly formed by like-minded people who respect and admire the tales of the Dragon Emperor…. Pfft! Hahaha!”</p>
 <p>She could not keep a straight face even as she spoke out that line, causing Satella to feel like facepalming herself due to the antics of the Supreme Daughter of her country and long time friend.</p>
 <p>All countries in the mortal world had freedom of religion. An elf wasn’t forced to pray to Superbia or her sister. Nor were humans forced to pray to Luxuria and so on.</p>
 <p>This was a law that had been established since the start of the Kingdom era. But in the end, it was because any other religion that they were able to divert to would be the religion of the Mother Goddess of Order.</p>

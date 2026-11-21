@@ -65,21 +65,21 @@ chapter = 887
 <p>Until now, his Attitude as if not feeling pain was gone, and Genpaku was moving his Body Crazy as if Dancing. Sakagami Rena, without letting her guard down, holding her Ninjato and Surigeom, watched Genpaku, but Genpaku's movements gradually slowed down and soon completely stopped moving and fell to the Floor. There was no need for a confirmation kill; he had become completely black charcoal and was only emitting wisps of smoke.</p>
 <p>"Huu...."</p>
 <p>Sakagami Rena let out a sigh. She wanted to collapse right away, but the Battle was not over. She had used up all her Battle Consumables, such as various Talismans, smoke bombs, and the Sakagami Family's special oil, but she still had stamina left, and her Surigeom, throwing stars, and Ninjato remained, so she had to Help Seizawa Shii, who was still fighting fiercely.</p>
-<p>Requested by DoubleBarrelShotgun-nim, Black Gyaru School Uniform Kanna~!</p>
-<p>Other than School Uniform~!</p>
-<p>Requested by MidNightSKY-nim, Gyaru Liz Gyaru Peace Photo and Ryuta's flustered Appearance upon seeing that Photo~!</p>
-<p>Liz Gyaru Peace~!</p>
+<p>Requested by DoubleBarrelShotgun-nim, Black Gyaru School Uniform Kanna!</p>
+<p>Other than School Uniform!</p>
+<p>Requested by MidNightSKY-nim, Gyaru Liz Gyaru Peace Photo and Ryuta's flustered Appearance upon seeing that Photo!</p>
+<p>Liz Gyaru Peace!</p>
 <p>Ryuta</p>
 <p>I didn't know how to put a Photo inside the phone, so I just substituted it with a Liz Illustration haha.</p>
 <p>Requested by TheDreaming-nim, Diaper Athena 1. Nipple Pinching 2. Running.</p>
 <p>1.</p>
 <p>2.</p>
 <p>I don't know why, but she doesn't run well haha. Perhaps because her breasts are Small, even if I added breast bouncing, there was no Effect T_T.</p>
-<p>Requested by Gojoy-nim, Succubus Yukiko's usual Attire and underwear~!</p>
-<p>Usual Attire~!</p>
+<p>Requested by Gojoy-nim, Succubus Yukiko's usual Attire and underwear!</p>
+<p>Usual Attire!</p>
 <p>There isn't really anything to call usual Attire haha.</p>
-<p>Underwear~!</p>
-<p>Requested by Neosblue-nim, Ryuta who took a different tree, not a martial arts tree~!</p>
+<p>Underwear!</p>
+<p>Requested by Neosblue-nim, Ryuta who took a different tree, not a martial arts tree!</p>
 <p>Modification + Firearm</p>
 <p>Complete Modification.</p>
 <p>VR Diver.</p>

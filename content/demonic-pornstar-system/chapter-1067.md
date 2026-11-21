@@ -45,7 +45,7 @@ chapter = 1067
 <p>The palace welcomed them with its familiar warmth. Molten light travelled down the channels Calypso had built into the walls, illuminating the dais where her old throne waited. She brushed its carved arm as she passed, smiling when Kaiden took his seat.</p>
 <p>"Getting comfortable, Darling?"</p>
 <p>"Extremely. My demonic lover truly had great taste in architecture."</p>
-<p>"I know, right~?"</p>
+<p>"I know, right?"</p>
 <p>"It wasn’t you who designed this place, though...?" Aria settled beside the throne with a hand on his shoulder.</p>
 <p>"No need for specifics..." Calypso muttered, eyes narrowed at the yandere beauty.</p>
 <p>Aria didn’t seem apologetic.</p>
@@ -84,7 +84,7 @@ chapter = 1067
 <p>"Two hundred in the air," he confirmed, unable to keep the delight out of his voice. "Forty on the ground so far."</p>
 <p>Yunohana lowered her fan.</p>
 <p>"And they can leave the dungeon? All of them?"</p>
-<p>"Master just needs to say the word~" Bastet purred, her tail lashing once with extreme satisfaction.</p>
+<p>"Master just needs to say the word" Bastet purred, her tail lashing once with extreme satisfaction.</p>
 <p>Yunohana stepped closer to the display, studying a Gorefiend turning above the aerial roster. Even in miniature, its hooked talons looked capable of tearing a man apart, and behind it waited an entire flight of identical creatures.</p>
 <p>"Most awakened will never reach that level. You understand that, don’t you?"</p>
 <p>"I do," Kaiden nodded.</p>
@@ -96,5 +96,5 @@ chapter = 1067
 <p>Calypso was more than happy to finish for the storm gremlin. "Even if our enemies win the first fight, all we need is just a bit of time... And our forces will be back at full strength, while theirs..."</p>
 <p>Save for Alexandra, all of Kaiden’s girls had a cruel glint appear in their gazes.</p>
 <p>"Big Brother will finally be respected by every nation. Or else..."</p>
-<p>"Little Sis is ready to commit genocide, I see~" Nyx purred.</p>
+<p>"Little Sis is ready to commit genocide, I see" Nyx purred.</p>
 <p>"Anyone who dares disrespect, badmouth, or do anything worse against Big Brother deserves total annihilation."</p>

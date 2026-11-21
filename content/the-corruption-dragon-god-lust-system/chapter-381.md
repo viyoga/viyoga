@@ -21,7 +21,7 @@ chapter = 381
 
 <p>Qingyi immediately threw himself towards Qianyao, who had already realized the danger, but simply didn’t have time to react.</p>
 
-<p>“Nghnn~~” A soft moan escaped her lips as her huge tits hit Qingyi’s chest.</p>
+<p>“Nghnn” A soft moan escaped her lips as her huge tits hit Qingyi’s chest.</p>
 
 <p>His hands wrapped around her body, one sliding down to her delicate waist while the other sank into the voluptuous flesh of her ass.</p>
 
@@ -35,7 +35,7 @@ chapter = 381
 
 <p>The hand on her ass squeezed a little harder, eliciting a soft, muffled moan from Qianyao’s rosy lips.</p>
 
-<p>“Q-Qingyi… nghnn~~ Y-your hands… oghnn~~” Qianyao’s whole body shuddered, feeling something else, a large, pulsating bulge, pressing against her groin, each pulse making the tingling in the area grow.</p>
+<p>“Q-Qingyi… nghnn Y-your hands… oghnn” Qianyao’s whole body shuddered, feeling something else, a large, pulsating bulge, pressing against her groin, each pulse making the tingling in the area grow.</p>
 
 <p>[Qianyao’s lust increased by 30%!]</p>
 
@@ -55,11 +55,11 @@ chapter = 381
 
 <p>After a brief moment, Qingyi finally released her lips, letting his palm fall on her ass, feeling the voluptuous flesh ripple under the thin fabric of her dress.</p>
 
-<p>“Ah!~~ You… shameless young master…” Qianyao gave a high-pitched, cute squeal. “My father won’t-“</p>
+<p>“Ah! You… shameless young master…” Qianyao gave a high-pitched, cute squeal. “My father won’t-“</p>
 
 <p>“Tell me… young lady Qianyao… do you think that in this world, you’d find a better man than this shameless young master right here?” Qingyi asked, massaging Qianyao’s plump ass even more vigorously.</p>
 
-<p>“Aghnn~~” A moan escaped her lips as she leaned on Qingyi’s chest, lifting her torso, her breasts swaying gently before slipping out of her cleavage, revealing pink nipples.</p>
+<p>“Aghnn” A moan escaped her lips as she leaned on Qingyi’s chest, lifting her torso, her breasts swaying gently before slipping out of her cleavage, revealing pink nipples.</p>
 
 <p>Her long white hair was disheveled, her golden horns gleaming softly in the sunlight.</p>
 

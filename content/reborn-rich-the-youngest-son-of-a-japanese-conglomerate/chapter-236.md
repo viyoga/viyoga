@@ -54,7 +54,7 @@ chapter = 236
 <p>It was fun to serve them because their moans were different. Then I should taste Nae Fitzgerald's pussy this time.</p>
 <p>On the contrary, this time I caressed Arisu's pussy and sucked Nae Fitzgerald's pussy. Arisu's vaginal fluid tasted like refreshing lemon juice, while Nae Fitzgerald's was the rich taste of a mature woman.</p>
 <p>"Haaht! Your tongue is good... Hyat! Suck my clitoris, heuooht! Eunghooht!"</p>
-<p>"Haaht...! Ryuta, I like you♥ Euheuut! I like Ryuta's fingers~!"</p>
+<p>"Haaht...! Ryuta, I like you♥ Euheuut! I like Ryuta's fingers!"</p>
 <p>They trembled their thighs from the continued caresses and reached a small climax. I raised my head, licked the two's vaginal fluid on my lips with my tongue, and looked at them. Now it was time to insert my dick. I grabbed my stiff dick and asked them.</p>
 <p>"Who should I put it in?"</p>
 <p>"Put it in Arisu."</p>

@@ -32,7 +32,7 @@ chapter = 228
 <p>I can't help but grin wickedly as I slide it off his finger. I quickly bring it up to my face, inspecting it closely. It's finely crafted- definitely worth a pretty penny if nothing else. But I'm not looking to pawn this one off, that's for sure.</p>
 <p>Unless some offers me a king's ransom, this one is staying with us.</p>
 <p>Without hesitating, I push a bit of mana into it, activating the storage compartment inside. A flicker of magical energy runs through the ring, and suddenly I feel the pull of the items within.</p>
-<p>I can instantly tell just off of the feel that it's size is 5 cubic meters (~177 cubic feet). Yours truly have been paying attention to math class this once, and I still remember Mrs. Rogers telling me that 5 cubic meters is 5000 liters. 𝙧𝘈ＮО𝐛ÊȘ</p>
+<p>I can instantly tell just off of the feel that it's size is 5 cubic meters (177 cubic feet). Yours truly have been paying attention to math class this once, and I still remember Mrs. Rogers telling me that 5 cubic meters is 5000 liters. 𝙧𝘈ＮО𝐛ÊȘ</p>
 <p>It's a very sizeable storage space, despite its 'lesser' moniker. It can hold more than enough everyday items for us to be able to ditch the backpacks.</p>
 <p>Now, it's time to inspect its actual contents. The coin purse is in it, as Luke put it back when I said I would rather exchange it for a slave instead.</p>
 <p>There are tons of monster drops as well. They also went through the labyrinth from the first floor just like us, so it was a buy one, get one for free kind of deal for us. We've basically doubled our drop loot that we've earned on this run thanks to this noble's charitability.</p>

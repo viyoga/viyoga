@@ -281,7 +281,7 @@ Qingyue put the phone back in her pocket and shook her head. These guys were too
 
 Having her phone placed back in her ring, she turned her head. The moment she did, her face heated up.
 
-"Mhm~… after so long…" Lilith let out a soft moan.
+"Mhm… after so long…" Lilith let out a soft moan.
 
 Holding Lilith's leg up and having parted her panties, Lith slowly let his erect cock get embraced by her juicy, warm cunt.
 

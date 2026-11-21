@@ -37,16 +37,16 @@ chapter = 765
 <p>Nyx drifted up behind her, hands clasped behind her back. "Gremlin Bestie?"</p>
 <p>"Stay out of it, pink bimbo, this is between me and... hey!"</p>
 <p>Luna’s top peeled itself off, weightless. Her bra was unclipping itself from behind before she finished spinning. Her pants went next, one leg floating obediently toward Nyx’s waiting hand, Luna swatting at her own possessed laundry and cursing with enough creativity to make a sailor take notes.</p>
-<p>"You were a very bad girl today. You know you’ll be punished. Might as well play along, no~?"</p>
+<p>"You were a very bad girl today. You know you’ll be punished. Might as well play along, no?"</p>
 <p>"Ugh! Perverts..."</p>
 <p>Nyx caught Luna’s bra on a fingertip of spatial force, twirled it once for the camera, and flicked it underhand across the room.</p>
-<p>The panties hit Kaiden in the face. "No peeking~"</p>
+<p>The panties hit Kaiden in the face. "No peeking"</p>
 <p>He stood there with a small, very warm, still-warm purple bra draped over his face, breathing through his nose.</p>
-<p>Nyx’s voice, singsong from across the room. "You must exercise patience, Kai~ Let her get dressed first~"</p>
+<p>Nyx’s voice, singsong from across the room. "You must exercise patience, Kai Let her get dressed first"</p>
 <p>Luna grabbed the set off the hanger. The Storm Valkyrie understood. The only dignified way out was through. The bottoms, then the top. The hood last, little white horns flopping, the bell settling against her collarbone.</p>
 <p>She turned to face the room.</p>
 <p>The cow-print triangles did nothing to cover anything. The tail hung limp behind her.</p>
-<p>"She’s ready~" Nyx sang. Kaiden reached up, pulled the bra off his face.</p>
+<p>"She’s ready" Nyx sang. Kaiden reached up, pulled the bra off his face.</p>
 <p>Luna’s defiant glare cracked as her gaze dropped, because Kaiden was throbbing.</p>
 <p>"...Wait. Kai. Hold on..."</p>
 <p>The room moved.</p>
@@ -58,8 +58,8 @@ chapter = 765
 <p>"My crude little cow."</p>
 <p>"I hate you. I hate you so much. I hate... oh, oh fuck..."</p>
 <p>He hooked a finger under the cow-print triangle over her chest, dragged it sideways, and his mouth closed around her stiff little nipple a half-second later. Luna arched off the bed so hard the bell rang twice.</p>
-<p>*Jingle~*</p>
-<p>*Jingle~*</p>
+<p>*Jingle*</p>
+<p>*Jingle*</p>
 <p>His free hand shoved between her thighs and two thick fingers sank knuckle-deep into her soaked depths in one push.</p>
 <p>"Fuck... W-wait, you’re going too hard..."</p>
 <p>His thumb dragged over her clit in tight circles while his fingers ravaged her. Luna’s petite tits heaved as his mouth worked her nipple raw. Her muscles clenched around his knuckles, gushing, wet sounds filling the space between her moans.</p>
@@ -76,7 +76,7 @@ chapter = 765
 <p>Luna’s head snapped back.</p>
 <p>"AHNNN!!"</p>
 <p>Her mouth fell open around a sound that started in her chest and broke apart halfway up her throat, a high shuddering moan that dropped into a gasp against his shoulder as her cunt stretched around the girth of him. Her legs locked around his hips on pure reflex. The bell at her throat rang once, sharp.</p>
-<p>*Jingle~*</p>
+<p>*Jingle*</p>
 <p>Kaiden pulled back until only the head of him remained inside her, watched her slick cling to his shaft in a glistening strand, and slammed back in.</p>
 <p>Luna shrieked.</p>
 <p>"KHNGHHH!! Kai... Kai, you’re... you’re gonna split me..."</p>
@@ -96,7 +96,7 @@ chapter = 765
 <p>"Darling has been gentle for too long... Finally..."</p>
 <p>Calypso couldn’t contain her excitement.</p>
 <p>From the bed: "...three, that’s three, Kai, you absolute..."</p>
-<p>*Jingle~*</p>
-<p>*Jingle~*</p>
+<p>*Jingle*</p>
+<p>*Jingle*</p>
 <p>"Two. You lost count on the first one."</p>
 <p>"..."</p>

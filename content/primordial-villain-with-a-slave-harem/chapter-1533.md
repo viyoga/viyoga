@@ -25,7 +25,7 @@ chapter = 1533
 <p>The girls who had been smiling softly through the exchange with Vex and then the newcomers shifted. A ripple of amusement passed through the group, the kind of shared look that women who had spent months together in absurd situations developed without needing to speak.</p>
 <p>Kitsara's tails swished once. "An empty city..."</p>
 <p>"I'd be happy to pay gold to see the dwarven commander's face," Ayame said.</p>
-<p>"You'll get to see it for free, though~?" Seraphiel smiled playfully.</p>
+<p>"You'll get to see it for free, though?" Seraphiel smiled playfully.</p>
 <p>The chuckle that rolled through his lovers had a distinctly ominous quality to it, the sound of women who knew exactly how the Elvardian Alliance was going to react and found the prospect deeply entertaining.</p>
 <p>Quinlan grinned and his helmet rematerialized.</p>
 <p>"Let's go find out."</p>

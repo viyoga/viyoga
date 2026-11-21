@@ -5,7 +5,7 @@ weight = 898
 chapter = 898
 +++
 
-<p>Warning! There are illustrations with breast Exposure~! Please check your Surroundings before enjoying them!</p>
+<p>Warning! There are illustrations with breast Exposure! Please check your Surroundings before enjoying them!</p>
 <p>Having finished the PMC certification Test, I immediately rode my electric bike south from Kofu City towards Miyashi. To be precise about my Destination, it was a pension and barbecue Place on the outskirts of Miyashi, a location I had intentionally leaked to Anyaji. Because I had let it be known that I would meet Fujigasaki Rinka there, Anyaji personnel who would face me were probably waiting for me. Since I had already heard from Athena Mannerheim, if the personnel hadn't changed at the last Moment, I also knew who was waiting for me.</p>
 <p>My Sabu, instead of going to the pension I was heading to, would be moved to a strange Place by a driver who was a Spy for Anyaji, and I was a little worried if Sabu could really defeat the Enemies. The Opponents were those who used the Power of the White Night Dragon that shakes the Abyss, and three Guardians from the Guardian Temple, who could be called Anyaji's top fighting force. Of course, if it were Sabu Fujigasaki Rinka's pure Skill, there would be no Problem, but since the Opponent used Power that was the Affinity of the Abyss, I thought it would be quite a Problem.</p>
 <p>Despite my worries, Fujigasaki Rinka had loudly declared that she would be fine alone, so I had no choice but to send her alone.</p>
@@ -74,17 +74,17 @@ chapter = 898
 <p>"W-What... What the, Kueoheok...!"</p>
 <p>Musashi Takuro's fist shattered his breastbone, and burrowed almost up to his Elbow into Kakishima Dekuro's Body. Kakishima Dekuro, whose interior was completely pulverized, trembled, shedding Tears of Blood, then soon stopped moving. It was Kakishima Dekuro, who died without knowing why he had died.</p>
 <p>In the sudden Situation, Silence enveloped the pension Surroundings. Even I hadn't thought Musashi Takuro would kill Kakishima Dekuro immediately.</p>
-<p>Requested by MidNightSKY-nim, Kanna and Liz in Tape attire, imagining Ryuta pouncing on them~!</p>
-<p>Starting with Kanna~!</p>
+<p>Requested by MidNightSKY-nim, Kanna and Liz in Tape attire, imagining Ryuta pouncing on them!</p>
+<p>Starting with Kanna!</p>
 <p>After creating it, I thought, "Something's missing?" so I added a nosebleed here haha</p>
 <p>For some reason, Ryuta also appears with a nosebleed haha</p>
-<p>Liz~!</p>
+<p>Liz!</p>
 <p>Kkiyot!</p>
-<p>Requested by TheDreaming-nim, Kujo Kina's kick and phone Filming at the wrestling arena~!</p>
-<p>Kick~!</p>
+<p>Requested by TheDreaming-nim, Kujo Kina's kick and phone Filming at the wrestling arena!</p>
+<p>Kick!</p>
 <p>As expected of a fighter, she kicks better than Kirie haha</p>
-<p>Phone camera~!</p>
-<p>Requested by ISaveI-nim, Nae and Jin Mija figure skating with their upper body Undressing + wearing only panties~!</p>
-<p>Starting with Madam Jin Mija~!</p>
-<p>Nae~!</p>
+<p>Phone camera!</p>
+<p>Requested by ISaveI-nim, Nae and Jin Mija figure skating with their upper body Undressing + wearing only panties!</p>
+<p>Starting with Madam Jin Mija!</p>
+<p>Nae!</p>
 <p>I didn't know how to do figure skating poses, so I just drew them generally ice skating haha</p>

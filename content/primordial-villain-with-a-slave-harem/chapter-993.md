@@ -44,7 +44,7 @@ chapter = 993
 <p>"Men...!" Sera growled cutely. "You don’t understand at all."</p>
 <p>Seraphiel narrowed her eyes and sent him a silent but potent glare full of ’I will definitely not let you deny me.’</p>
 <p>"Alright, alright..." Quinlan lifted his hands in surrender, chuckling. "A shopping date, coming right up."</p>
-<p>"Hehe~!" Seraphiel twirled playfully on the heel of one boot for a second time, incredibly delighted this time around as the bloody hem fluttered behind her. She looked over her shoulder at Jasmine with a wink. "Pay me? You? Gold coins? Hell no, I don’t want your coins. I like this arrangement much better."</p>
+<p>"Hehe!" Seraphiel twirled playfully on the heel of one boot for a second time, incredibly delighted this time around as the bloody hem fluttered behind her. She looked over her shoulder at Jasmine with a wink. "Pay me? You? Gold coins? Hell no, I don’t want your coins. I like this arrangement much better."</p>
 <p>Jasmine’s cheeks flushed. The warmth in her chest grew again.</p>
 <p>It was a kind of lightness she never thought she’d feel.</p>
 <p>Friends.</p>

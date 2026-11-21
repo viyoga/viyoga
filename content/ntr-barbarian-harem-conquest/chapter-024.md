@@ -21,7 +21,7 @@ chapter = 24
 
 <p>He groaned in appreciation at the sight before latching his mouth onto one of her stiff nipples, sucking hard while his hand kneaded the other soft mound.</p>
 
-<p>&quot;Ahhn~~! Kane... wait... mmmph~~!&quot;</p>
+<p>&quot;Ahhn! Kane... wait... mmmph!&quot;</p>
 
 <p>He didn’t wait.</p>
 
@@ -29,9 +29,9 @@ chapter = 24
 
 <p>Without hesitation, Kane buried his face between her thighs. His tongue dragged slowly across her swollen folds before plunging deep inside her.</p>
 
-<p>&quot;Nghnnn~~!!&quot; Gina cried out, her back arching sharply off the bed.</p>
+<p>&quot;Nghnnn!!&quot; Gina cried out, her back arching sharply off the bed.</p>
 
-<p>&quot;Oh gods... your tongue... it’s so deep— ahn~~!!&quot;</p>
+<p>&quot;Oh gods... your tongue... it’s so deep— ahn!!&quot;</p>
 
 <p>Kane ate her pussy with aggressive hunger, sucking on her clit while pushing two fingers back inside her.</p>
 
@@ -45,7 +45,7 @@ chapter = 24
 
 <p>&quot;Your engaged little cunt is flooding my mouth. Does your fiancé ever eat you like this?&quot;</p>
 
-<p>&quot;N-No... he doesn’t— haaaahn~~!! Kane, please... I’m going to cum again— nghnnn~~!!&quot;</p>
+<p>&quot;N-No... he doesn’t— haaaahn!! Kane, please... I’m going to cum again— nghnnn!!&quot;</p>
 
 <p>Her thighs clamped around his head as another powerful orgasm ripped through her.</p>
 
@@ -63,13 +63,13 @@ chapter = 24
 
 <p>Gina hesitated only for a second before her shame completely crumbled.</p>
 
-<p>&quot;Please... Kane... fuck me... I need you inside— ahn~~!!&quot;</p>
+<p>&quot;Please... Kane... fuck me... I need you inside— ahn!!&quot;</p>
 
 <p>With one powerful thrust, Kane buried his entire length deep into her tight pussy from behind.</p>
 
 <p>Gina’s eyes rolled back as she let out a broken moan.</p>
 
-<p>&quot;Eugghhhhh~~!! So deep... you’re so much bigger than him— f-fuuuuck~~!!&quot;</p>
+<p>&quot;Eugghhhhh!! So deep... you’re so much bigger than him— f-fuuuuck!!&quot;</p>
 
 <p>Kane started pounding her hard, his hips slapping loudly against her plump ass with every brutal thrust.</p>
 
@@ -79,11 +79,11 @@ chapter = 24
 
 <p>&quot;Getting fucked like a bitch in heat while your fiancé is probably waiting for you. Say it. Tell me whose pussy this is now.&quot;</p>
 
-<p>&quot;It’s yours-! Ahn~~!! This pussy is yours, Kane- nghnnn~~!! Harder... please fuck me harder!!&quot;</p>
+<p>&quot;It’s yours-! Ahn!! This pussy is yours, Kane- nghnnn!! Harder... please fuck me harder!!&quot;</p>
 
 <p>Gina’s face was pressed into the bed, her hair messy and her mouth wide open as she moaned shamelessly in overwhelming pleasure.</p>
 
-<p>&quot;You’re going to break me- nghnnn~~!!&quot;</p>
+<p>&quot;You’re going to break me- nghnnn!!&quot;</p>
 
 <p>Her tight pussy clenched and fluttered around his cock with every brutal thrust, juices dripping down her thighs as her breasts swayed wildly beneath her.</p>
 
@@ -95,7 +95,7 @@ chapter = 24
 
 <p>Gina’s eyes widened in panic even as her body continued to push back against him desperately.</p>
 
-<p>&quot;K-Kane... someone’s at the door— Ngh~~!!&quot; she moaned, her voice breaking with pleasure.</p>
+<p>&quot;K-Kane... someone’s at the door— Ngh!!&quot; she moaned, her voice breaking with pleasure.</p>
 
 <p>The knocking grew louder and more insistent.</p>
 

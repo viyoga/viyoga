@@ -29,7 +29,7 @@ chapter = 244
 
 <p>A shockwave spread across the redhead’s plump, shapely buttocks, their violent bouncing being controlled by a possessive grip.</p>
 
-<p>“Nghnn~~ You-” Rongyan was about to call him a shameless junior when she remembered the current situation.</p>
+<p>“Nghnn You-” Rongyan was about to call him a shameless junior when she remembered the current situation.</p>
 
 <p>He was no longer her junior; on the contrary, she was technically his junior.</p>
 
@@ -73,7 +73,7 @@ chapter = 244
 
 <p>“Good girl… show your man everything.” Qingyi put his hands behind his head, enjoying the sight.</p>
 
-<p>“Don’t say those nghnn~~ embarrassing things! Oghnn~~” Rongyan exclaimed, her voice interspersed with sweet, sensual moans.</p>
+<p>“Don’t say those nghnn embarrassing things! Oghnn” Rongyan exclaimed, her voice interspersed with sweet, sensual moans.</p>
 
 <p>She was trying to hold back, she didn’t want to cum before Qingyi.</p>
 
@@ -85,7 +85,7 @@ chapter = 244
 
 <p>“Are you tired yet? I thought we’d do it all night.” Qingyi teased, slapping Rongyan’s ass and arousing her again.</p>
 
-<p>“Nghnn~~ You…!” Rongyan lined Qingyi’s member up with her pussy again.</p>
+<p>“Nghnn You…!” Rongyan lined Qingyi’s member up with her pussy again.</p>
 
 <p>His teasing had worked very well.</p>
 

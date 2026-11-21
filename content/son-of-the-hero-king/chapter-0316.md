@@ -17,7 +17,7 @@ chapter = 316
 <p>The one true decorations in this room that would catch anyone's eye upon entering was none of other than the large painting on a wall.</p>
 <p>The painting was depicting a young man with a boyish smile clad in nothing but a white robe that only stopped at his hips.</p>
 <p>His torso was completely naked, showing a beautifully well-sculpted body. His golden hair seemed to shine under the sun and his sky-blue eyes seemed to be looking at the world with gentleness.</p>
-<p>"Ah~! My Beloved lord, when will you come back and take me with you?"</p>
+<p>"Ah! My Beloved lord, when will you come back and take me with you?"</p>
 <p>Gazing feverishly at the painting while kneeling down on the bed was a brown-haired young girl with beautiful brown skin glistening with sweat.</p>
 <p>Her hair and clothes were completely disheveled while she continued to move her hand to caress her most secret place, showing a slovenly appearance that would shock anyone who knew how prim and proper the girl always acted when outside.</p>
 <p>Her eyes were filled with love and worship as she gazed at the painting of her beloved that she made herself but no matter what she did, no matter how much she moved her hand, the sweet release of an orgasm refused to come to her.</p>

@@ -52,7 +52,7 @@ chapter = 1090
 <p>Alice remained attached to his left side, her cheeks puffed into a ferocious pout ever since Yunohana’s self-admission.</p>
 <p>"Hmph!!!!!"</p>
 <p>Kaiden rubbed his sister’s head. She accepted the attention while glaring at Yunohana, quite determined to make her displeasure known.</p>
-<p>"So much for not ending your first date in bed, Yuno~" Nyx teased.</p>
+<p>"So much for not ending your first date in bed, Yuno" Nyx teased.</p>
 <p>"I..."</p>
 <p>The shrine maiden lowered her hands. Between Luna’s delighted grin and Aria’s fond amusement, she could find nobody likely to help preserve what remained of her dignity.</p>
 <p>"The date was over by then."</p>

@@ -40,7 +40,7 @@ chapter = 290
 <p>"But you usually have other ways to vent these emotions, so why did you choose this one this time?"</p>
 <p>That face, clearly cute, but with a mature and cold temperament, was now struggling to maintain its usual cold aura. Ravenna once again covered her eyes with her arm. She now had to use her own rationality to fight against Ansel, discarding all irrelevant senses and emotions, she answered intermittently in as steady a tone as possible:</p>
 <p>"Because... you just... asked me... to do so, that's all."</p>
-<p>"Oh~ Simple pragmatism, very much in your style."</p>
+<p>"Oh Simple pragmatism, very much in your style."</p>
 <p>Ansel chuckled, then put Ravenna back on the puppet's back, no longer touching her.</p>
 <p>"But is that really the case?" He tilted his head slightly, not even continuing to manipulate the puppet, but said with a gentle smile, "Is it really just because I asked you, so you thought instead of resisting, you might as well use this to vent your pent-up emotions?"</p>
 <p>Ravenna, given a chance to breathe, inhaled deeply, maintaining a calm tone: "... What else could it be?"</p>

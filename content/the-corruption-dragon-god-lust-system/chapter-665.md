@@ -75,7 +75,7 @@ chapter = 665
 
 <p>“That tiger won’t go after the weaker fortunes, and you won’t fall behind Longwei.” His hands moved toward the two beauties.</p>
 
-<p>“H-hey! W-what are you… nghnn~~”</p>
+<p>“H-hey! W-what are you… nghnn”</p>
 
 <p>A sweet moan slipped from Xue Hua’s lips.</p>
 

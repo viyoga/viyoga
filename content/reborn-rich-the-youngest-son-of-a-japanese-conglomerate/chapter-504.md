@@ -13,7 +13,7 @@ chapter = 504
 <p>The remaining Jinildang terrorists who might talk were eaten by their boss after he turned into a monster, and the guards who listened to Toyotaka's faction's orders are all captured now, so they're in no position to talk.</p>
 <p>As for Minamoto, who's behind the guards, if word gets out that there was a gun battle, they'll be criticized by the other prestigious families, so they'll definitely keep a tight lid on it. If that happens, there won't be any talk from the guards or Minamoto's PMC either.</p>
 <p>Sakagami Rena, Saionji Diana, and Otagi Yuka, who spent last night with me, yawned and went home in the early morning to prepare for school, so I was home alone. I turned off the TV, packed my briefcase, and headed to school.</p>
-<p>"Long time no see~! Yamashiro-ssi!"</p>
+<p>"Long time no see! Yamashiro-ssi!"</p>
 <p>As I was about to enter the academy, a familiar guard greeted me. It was Kozaki Koji, a guard from the security company whose contract was terminated due to the terrorist attack. He was one of the guards I had persuaded to make it easier for me to cause trouble at the school.</p>
 <p>They couldn't keep using the PMC under the Minamoto Group as security right away, so they must have hurriedly re-signed a contract with the security company they had a contract with until recently.</p>
 <p>From my perspective, it's a good decision. I had bribed some of the guards, but the contract was canceled due to the terrorist attack, so it was meaningless. Fortunately, they're back because of this, so it's a great benefit.</p>

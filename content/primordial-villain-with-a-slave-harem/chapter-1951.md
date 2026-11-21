@@ -54,7 +54,7 @@ chapter = 1951
 <p>Aurora had restocked their medicines, while the others filled their storage with food, fresh water, and their belongings. Familiar equipment hung at their sides, checked for the journey.</p>
 <p>Quinlan then used [Slave Monitor] to restore Aurora’s combat class, Essenceweaver.</p>
 <p>Vex stepped through the gate with a little mirror in her hand, then stopped beside him to finish touching up her lips.</p>
-<p>"One moment, Hubby~"</p>
+<p>"One moment, Hubby"</p>
 <p>They were about to fly into an unknown world full of creatures that might try to eat them, and his Hexwitch was checking her makeup.</p>
 <p>How couldn’t she?</p>
 <p>Her husband would be looking at her on the way there. She refused to give him anything less than her best.</p>

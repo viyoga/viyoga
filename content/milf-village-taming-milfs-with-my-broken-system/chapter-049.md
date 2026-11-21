@@ -23,7 +23,7 @@ chapter = 49
 
 <p>&quot;I-I know it’s wrong,&quot; she mumbled softly, completely indifferent to the fact that Owen was boldly taking control of the situation.</p>
 
-<p>&quot;Then why do you keep pushing it, Mom~?&quot; Owen smiled mischievously, raising his arms to lift the strap of the apron over her head smoothly and set it aside...</p>
+<p>&quot;Then why do you keep pushing it, Mom?&quot; Owen smiled mischievously, raising his arms to lift the strap of the apron over her head smoothly and set it aside...</p>
 
 <p>Her lovely apron is finally down.</p>
 
@@ -91,7 +91,7 @@ chapter = 49
 
 <p>While it was still hard to believe, at the very least, the universe wouldn’t condemn them for indulging their desires.</p>
 
-<p>&quot;Yes, Mom. Now let me show you some proof so you’ll know I’m not lying to you~&quot; Owen realized that to completely shatter her doubts, his greatest asset and support was none other than his divine system.</p>
+<p>&quot;Yes, Mom. Now let me show you some proof so you’ll know I’m not lying to you&quot; Owen realized that to completely shatter her doubts, his greatest asset and support was none other than his divine system.</p>
 
 <p>’System... can you give me a hand here? Can I materialize some tokens as evidence?’</p>
 

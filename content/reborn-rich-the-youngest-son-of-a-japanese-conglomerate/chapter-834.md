@@ -77,4 +77,4 @@ chapter = 834
 <p>Because she had already enjoyed Sex with her Friends at my Home several times, even for Sex beyond a Threesome, Urabe Konoka had no particular Repulsion. Perhaps because it wasn't the Reaction she had worried about, Hangari Muneo looked at Urabe Konoka and let out a Sigh of Relief.</p>
 <p>"From now on, it's a Threesome!"</p>
 <p>At Urabe Konoka's bold Words, I let out a hearty laugh and could only nod my Head.</p>
-<p>B-cut a little~!</p>
+<p>B-cut a little!</p>

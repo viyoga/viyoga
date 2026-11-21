@@ -135,7 +135,7 @@ Lith sucked hard on the clitoris and together with the intense finger movements�
 
 Lith began shaking his hands intensely as he heard that with magic, even made them vibrate.
 
-"Ahhhh… s-slow— Ohhhhhh!~"
+"Ahhhh… s-slow— Ohhhhhh!"
 
 In just a few seconds, Alea's body shook vigorously and holding onto the sheets tighter, she yelled,
 

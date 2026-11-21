@@ -75,7 +75,7 @@ chapter = 37
 
 <p>He was thrilled that Owen was helping them out without demanding any payment, making him more than eager to invite the youth over every single day.</p>
 
-<p>&quot;Fufu... yes, Little Wen, do come back tomorrow. Perhaps we can locate another hole in the barn that needs fixing~&quot; she added, waving her hand while subtly swaying her hips from side to side.</p>
+<p>&quot;Fufu... yes, Little Wen, do come back tomorrow. Perhaps we can locate another hole in the barn that needs fixing&quot; she added, waving her hand while subtly swaying her hips from side to side.</p>
 
 <p>’Heh, of course I’ll be back tomorrow. You still need to fully grant my wish, Auntie! I can’t wait to completely drive you wild like a total beast... I’m definitely going to claim you right while your husband is busy out in the fields!’ Owen didn’t need any extra encouragement.</p>
 

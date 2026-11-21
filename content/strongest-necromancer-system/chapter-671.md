@@ -14,7 +14,7 @@ chapter = 671
 <p>Stella grunted in pain as she used her body as a shield to protect Gina! Jason’s hand stabbed deep into Stella’s belly, and Stella grabbed Jason’s arm and looked up at him as blood began to pour from her mouth.</p>
 <p>"Snap out of it... my prince. You’re stronger than this... please... fight it!"</p>
 <p>There was a flash of black that passed across Jason’s eyes for a split second, but it didn’t last long before the red took control once again! Jason swung his arm to the side and threw Stella away like trash before he began to advance towards Gina!</p>
-<p>’Come to me~!’</p>
+<p>’Come to me!’</p>
 <p>But Jason stopped as he heard a voice echo in his head! That voice belonged to Gillian, and as the one who had changed Jason into a Vympir, Jason had no choice but to follow her every order! Jason crouched and immediately blasted through the roof of the cave and out of the castle in one leap! Once he was gone, Gina felt all the strength leave her legs, and she fell to the ground while releasing a shuddering breath in fear! Gina had never been more scared than she was at that moment! If Stella hadn’t stepped in, then Jason would have really killed her! He would’ve killed their child!</p>
 <p>’Wait, Stella!’</p>
 <p>Gina turned to the side, and she saw Stella lying on her back and bleeding out across the cave floor! Gina quickly scrambled to her feet and rushed towards Stella’s prone body, and she knelt beside her with a worried expression on her face!</p>

@@ -9,14 +9,14 @@ chapter = 718
 <p>Uuung! Uuung!</p>
 <p>As 12 o'clock approached, my phone was buzzing non-stop. Most of them were messages from acquaintances on KakaoTalk, LINE, Dark Web apps, and texts, wishing me a Happy New Year.</p>
 <p>-Han Yu-gyeong: Yong-tae, thank you for this year, and please take care of me next year too. I love you❤️</p>
-<p>-Arisu: Is it almost New Year's in Korea? Ryuta, I want to see you soon~ I'll be going to Japan soon too (•͈ᴗ)ᓂ-ෆ</p>
-<p>-Cherry-chan❤️: Hoobae-nim~! I'm watching Hoobae-nim's videos and the New Year is almost here, so I'm contacting you! Please make new videos in '54 too♥</p>
+<p>-Arisu: Is it almost New Year's in Korea? Ryuta, I want to see you soon I'll be going to Japan soon too (•͈ᴗ)ᓂ-ෆ</p>
+<p>-Cherry-chan❤️: Hoobae-nim! I'm watching Hoobae-nim's videos and the New Year is almost here, so I'm contacting you! Please make new videos in '54 too♥</p>
 <p>Han Yu-gyeong and Arisu contacted me first, followed by a text from Mimata Chieri. Mimata Chieri's text was a bit strange, but I replied with a smile.</p>
 <p>-Yukiko: I'll make sure to pass on the story about the Taira New Year's meeting tomorrow. I hope Ryuta's mission ends soon and we can be together. If I miss you too much, I might visit you in your dreams?</p>
 <p>Yukiko's text, saying she might visit me in my dreams, didn't seem like a lie, so I replied that I missed her too and she could come anytime. As a succubus, Yukiko had a real chance of visiting me in my dreams.</p>
 <p>-Minamoto Risa: Meeting you this year seems like the luckiest thing. Please take care of me next year too.</p>
 <p>It was a simple text, typical of Minamoto Risa. She said she's been studying hard for her exams recently, and since Minamoto Risa is smart, the results will be good.</p>
-<p>-Seizawa Shii: Ryuta-chi! When are you coming to Japan! I bought a coin laundry for nothing because I can't see Ryuta-chi~! Are you coming in the New Year?</p>
+<p>-Seizawa Shii: Ryuta-chi! When are you coming to Japan! I bought a coin laundry for nothing because I can't see Ryuta-chi! Are you coming in the New Year?</p>
 <p>Seizawa Shii, while working as an ogre, mentioned the coin laundry in Miyashi even though she was in Tokyo, not Miyashi. It seemed like she was a little embarrassed to say directly that she wanted to see me.</p>
 <p>-Sakagami Rena: My lord, it was a meaningful 2053 to be able to serve you. I will continue to devote myself to you, the hero of the world.</p>
 <p>-Saionji Diana: If it weren't for you, Sensei, I'd still be in a wheelchair. Thank you, Sensei. I will repay this debt for the rest of my life.</p>
@@ -27,7 +27,7 @@ chapter = 718
 <p>-Urabe Konoka: Shinkai Hime-sama said she wants to see you when she comes to Japan. I miss you too, Sensei....</p>
 <p>Starting with Konoe Akina and Urabe Konoka, LINE messages from the students of the special class at St. Francisco Girls' Academy came in a row, including Uenozono Karen and Kujo Kina. Is this why I'm a teacher? There are still some students who haven't sent me LINE messages, but they might be planning to send them for the New Year, or they might have other things to do.</p>
 <p>-Sawayanagi Azuma: After Investor-nim acquired our Seryu Military Company, all of our fates changed. Thank you. Even when I look at my future vision, there's only a good future, so please take care of us next year too!</p>
-<p>-Sawayanagi Seari: Ryuta-nim~! I miss you! Let's meet often in the New Year!</p>
+<p>-Sawayanagi Seari: Ryuta-nim! I miss you! Let's meet often in the New Year!</p>
 <p>At the same time as the LINE message from Sawayanagi Azuma, the president of Seryu Military Company, the other employees of Seryu Military Company sent me texts. They must be together too. I replied and glanced at the TV.</p>
 <p>-5! 4! 3! 2! 1!! 2053 is gone and 2054 has arrived! Happy New Year to everyone!</p>
 <p>The year 2054 arrived and the New Year's bell was ringing. As the date changed to 2054, my phone vibrated again, and it seemed like Nagumo Sian, Jinmija Yeosa, Jeong Da-rim, and others who hadn't contacted me just now were sending texts for the New Year.</p>

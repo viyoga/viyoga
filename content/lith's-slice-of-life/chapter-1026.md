@@ -5,7 +5,7 @@ weight = 1026
 chapter = 1026
 +++
 
-"Meow~!"
+"Meow!"
 
 A ginger cat, wearing earphones, stretched in Fei's lap and meowed in happiness.
 
@@ -25,13 +25,13 @@ The cat got up and stretched itself. Then, it looked up at Fei with her dreamy f
 
 Fei wondered whether it could see her. Was the girl's blindness cured?
 
-"Meowww~"
+"Meowww"
 
 The cat raised both its paws and stretched over Fei's body, demanding to be picked up.
 
 Lil cat, you're currently on me. Fei wanted to say this, but gave up as she was sure the cat wouldn't understand anything.
 
-"Meowww~"
+"Meowww"
 
 It lightly jumped on its back feet, demanding Fei to hurry up.
 

@@ -16,7 +16,7 @@ chapter = 1204
 <p>‘Shameless…?’ he thought bitterly. ‘Your father is the walking definition of the word, and from what I’m hearing, so are you, little one…’</p>
 <p>He resisted the urge to say it out loud. His Aegis Vanguards were already visibly unsettled by the conversation. The last thing the ancient king needed was for his guards to witness their millennia-old, wise beyond anyone king arguing with a smug child through an enchanted link.</p>
 <p>Meanwhile, Quinlan’s lips curved into a wicked smirk. “Maybe we should help the old man out, hm? He’s already got one foot in the grave; perhaps we should treat him to a little act of goodwill.”</p>
-<p>Rosie gasped in delight, clapping her hands. “Daddy is so magnanimous~!”</p>
+<p>Rosie gasped in delight, clapping her hands. “Daddy is so magnanimous!”</p>
 <p>“I know, right? And this old bastard still dares to treat me like a criminal.” Quinlan heaved a dramatic sigh.</p>
 <p>Rosie huffed, folding her arms. “Rude old bastard! Just fall over and die already! Hmph!”</p>
 <p>“Now, now,” Quinlan chided lightly, voice dripping with amusement, “Graceful ladies don’t wish death on others… even if they deserve it. You’re going to be the prettiest of ladies, aren’t you?”</p>

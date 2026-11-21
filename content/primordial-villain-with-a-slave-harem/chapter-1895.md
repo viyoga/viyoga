@@ -62,7 +62,7 @@ chapter = 1895
 <p>It slid straight down to her eyebrows.</p>
 <p>"Keep it. It fits you better."</p>
 <p>Then the same hand came down, petting the queen of Vraven’s hair in front of her entire assembled peerage.</p>
-<p>she laughed into his mind, which was promptly ignored."&gt; "Ehehe~" The giggle escaped before Felicity could stop it, and she stood there under his palm on her nation’s most historic night, happy from crown to sabatons. &lt;Lazy!!&gt; she laughed into his mind, which was promptly ignored.</p>
+<p>she laughed into his mind, which was promptly ignored."&gt; "Ehehe" The giggle escaped before Felicity could stop it, and she stood there under his palm on her nation’s most historic night, happy from crown to sabatons. &lt;Lazy!!&gt; she laughed into his mind, which was promptly ignored.</p>
 <p>The grin came down at her, warm and villainous in equal measure. "I accept your vassalage, Queen of Vraven. You keep the crown and rule your people. But from today onwards, the kingdom, and everyone in it, is mine to look after."</p>
 <p>He said the next part to the entire hall.</p>
 <p>"And I take care of what’s mine."</p>

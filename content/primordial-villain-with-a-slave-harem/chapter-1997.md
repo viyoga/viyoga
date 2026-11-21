@@ -44,7 +44,7 @@ chapter = 1997
 <p>"Ehhhh?!"</p>
 <p>She twisted toward the door, searching for the tunnel they’d been fighting in.</p>
 <p>"But we were just... The spiders! There was... Eh?! We’re home?!"</p>
-<p>"You hit the sack about one second into the battle," Kitsara purred. "We finished up and brought you back~"</p>
+<p>"You hit the sack about one second into the battle," Kitsara purred. "We finished up and brought you back"</p>
 <p>"One second...?"</p>
 <p>"Mm-hmm. But your cooking was great, don’t you worry."</p>
 <p>The foxkin leaned closer, enjoying every bewildered little change on the innocent girl’s face. Celia had already forgotten her stinging cheek, her hand falling into her lap as she tried to account for an entire battle she’d apparently slept through.</p>
@@ -52,12 +52,12 @@ chapter = 1997
 <p>Serika brushed the hair from her face. "Yes. You’re safe."</p>
 <p>"Then... Father? What about Father? Did you find anything?"</p>
 <p>Seraphiel twirled a small vial between her delicate fingers, smiling as Celia’s gaze caught on it.</p>
-<p>"We did~"</p>
+<p>"We did"</p>
 <p>Her hood rested against her shoulders, leaving her long elven ears in full view.</p>
 <p>"Eh?! Miss Seraphiel is an elf?!"</p>
-<p>"That I am~" Seeing her gaze locked onto her ears, the elf grinned. "Want to touch them?"</p>
+<p>"That I am" Seeing her gaze locked onto her ears, the elf grinned. "Want to touch them?"</p>
 <p>Furious nodding followed.</p>
-<p>"Sorry, that’s my husband’s privilege~"</p>
+<p>"Sorry, that’s my husband’s privilege"</p>
 <p>"!! Cruel... Stop messing with me...!" Celia whimpered.</p>
 <p>As for the hood?</p>
 <p>After gathering enough information, they’d learned that elves were extraordinarily rare here, but people knew of them. Seeing one wouldn’t immediately tell anyone she’d come from Iskaris.</p>

@@ -44,7 +44,7 @@ chapter = 1651
 <p>"Actually..." Lucille wiped a strand of caramel hair from her sweating face and exhaled. "This is... not that bad anymore."</p>
 <p>Three meters away Shallan had her forehead pressed into the moss with both fists white against the green. "...not that bad?!" she breathed.</p>
 <p>Just then, Quinlan's weight left the moss. His legs folded back into the meditative cross, the crimson script at his throat rekindling at half its former intensity, and [Soul Reaper] resumed its orbit. The Bloodfather closed his eyes.</p>
-<p>"Break time is over, ladies~"</p>
+<p>"Break time is over, ladies"</p>
 <p>"WHAT?!" Iris's head came off the ground. "Oh no no no-" from Aurora. "He's joking," Kitsara whispered, her fox ears flat against her skull. He was not joking.</p>
 <p>The crimson script at his throat blazed to full brightness as he refocused on the ritual in full. The banked fire in eighteen chests roared back to furnace heat in a single breath.</p>
 <p>"I dared... delude myself..." Ayame whispered from the green with her cheek pressed flat, "...that I was getting used to it..."</p>

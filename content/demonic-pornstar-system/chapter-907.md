@@ -15,7 +15,7 @@ chapter = 907
 <p>"I’ll be damned..." Calypso whistled, impressed, pressing her face to the tinted glass. "We left this morning. How is it this different already?"</p>
 <p>"Mother?" Aria asked, blinking at Vespera.</p>
 <p>"Brought more contractors."</p>
-<p>"Good thinking, Shadow Mommy~" Nyx purred, also gawking through her windows. "But why? I thought we had more than enough already."</p>
+<p>"Good thinking, Shadow Mommy" Nyx purred, also gawking through her windows. "But why? I thought we had more than enough already."</p>
 <p>"There was room for more," Vespera replied from the passenger seat. "They’ll be working in shifts from today on. The construction will not stop until it’s finished."</p>
 <p>"Hell yeah," Luna grinned. "Do we have an estimated time until completion?"</p>
 <p>"Two days, then some interior work."</p>

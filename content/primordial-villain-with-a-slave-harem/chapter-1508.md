@@ -44,7 +44,7 @@ chapter = 1508
 <p>"Focus," Black Fang hissed.</p>
 <p>"I am," Quinlan grinned.</p>
 <p>"Focusing on me…" she growled.</p>
-<p>"No way~" Quinlan chuckled, having been found red-handed.</p>
+<p>"No way" Quinlan chuckled, having been found red-handed.</p>
 <p>"… We'll discuss your combat behavior after I get the notification for killing this divine bootlicker." Black Fang lifted her katana off the cobblestones. The scraping stopped. The silence that replaced it was louder.</p>
 <p>"Now I'm scared," Quinlan cracked his neck.</p>
 <p>Velara stared at them. At the absolute, unshakeable indifference regarding the utter heresy they were committing. Two people who had been told they were damned for eternity and responded by discussing after-battle plans</p>

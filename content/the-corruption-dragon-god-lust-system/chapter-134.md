@@ -59,7 +59,7 @@ chapter = 134
 
 <p>“Yes, elder, I was instructed by the sect leader to become your disciple and take part in the scarlet dragon competition with you.” He decided to be honest.</p>
 
-<p>“Mmm~~” Qingxue exhaled softly as she took another step towards him.</p>
+<p>“Mmm” Qingxue exhaled softly as she took another step towards him.</p>
 
 <p>Soon, they were face to face, her warm, sweet breath invading Qingyi’s nostrils as she studied him.</p>
 

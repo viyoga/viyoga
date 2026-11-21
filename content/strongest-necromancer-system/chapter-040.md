@@ -26,7 +26,7 @@ chapter = 40
 <p>"So a necromancer? Jason, do you know how amazing this ability is? This beast is a Disaster Rank! It's strong enough to kill a B Rank, and you're an A Rank! Just the both of you can take out an entire Red Gate on your own!"</p>
 <p>Jason nodded along. He still wasn't going to tell anyone about his system and all the other abilities that came with it for now, but he knew that this much would be enough to convince Gina that he wasn't going into Gates alone.</p>
 <p>Gina put her hands over her mouth while staring at the wolf. It gave Gina a curious look before releasing a loud 'yip!' that made Gina jump back in fear! Jason laughed, and the monster vanished in a spray of purple light as he sent it back into his Alternate Dimension.</p>
-<p>Knock~ knock~</p>
+<p>Knock knock</p>
 <p>"Did someone order a pizza!?"</p>
 <p>A voice came from the door as the delivery boy brought the food, and Jason went to get it since Gina still looked shocked. Jason came back with two boxes and put them on the table before he sat on the couch, grabbed Gina, and set her on his lap.</p>
 <p>Jason spoke up seriously.</p>
@@ -44,10 +44,10 @@ chapter = 40
 <p>Gina pulled back with a breathless voice before she laughed softly and spoke.</p>
 <p>"You're such a pervert. We just did it two minutes ago!"</p>
 <p>Gina could feel Jason getting harder against her ass, and Jason hummed before pressing his finger against her crotch and making her shiver in ecstasy!</p>
-<p>"Ohh~"</p>
+<p>"Ohh"</p>
 <p>Gina let out a moan, and Jason grinned when he felt a wetness against his finger.</p>
 <p>"I guess I'm not the only pervert."</p>
-<p>"Hah~ Our pizza's gonna get cold."</p>
+<p>"Hah Our pizza's gonna get cold."</p>
 <p>"We'll reheat it. Come here."</p>
 <p>"Kya!"</p>
 <p>Gina suddenly let out a cute sound in shock as Jason turned and pinned her against the couch! Jason raised a brow at her, and she blushed in embarrassment before pulling him down roughly!</p>

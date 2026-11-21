@@ -27,7 +27,7 @@ chapter = 775
 
 <p>The pad of his finger sank into the incomparably soft folds, the warm moisture enveloping it in a sticky, clinging embrace.</p>
 
-<p>"S-stop... Nghnn~~" Rouxi moaned, releasing her own breasts to grab Qingyi’s wrist with trembling fingers.</p>
+<p>"S-stop... Nghnn" Rouxi moaned, releasing her own breasts to grab Qingyi’s wrist with trembling fingers.</p>
 
 <p>He said nothing, merely leaning over her quivering body and pressing a gentle kiss to her lips, silencing her protests with tenderness.</p>
 
@@ -51,7 +51,7 @@ chapter = 775
 
 <p>Her entire body felt like it was burning, and every brush of Qingyi’s hot cock against her pussy made the fever climb higher.</p>
 
-<p>"Mghnn~~ u-unfilial son..." she whispered between gasping sighs, drawing a hoarse chuckle from her adopted son.</p>
+<p>"Mghnn u-unfilial son..." she whispered between gasping sighs, drawing a hoarse chuckle from her adopted son.</p>
 
 <p>Rouxi could feel the effects of the fertility-boosting pill pulsing in her womb, and she knew full well that, with a pill of that quality, the chances of pregnancy were practically guaranteed...</p>
 
@@ -83,13 +83,13 @@ chapter = 775
 
 <p>She clutched her own breasts tightly, trying and failing to keep them from swaying. Heavy ripples swept over the large orbs of flesh where her forearms sank in, the soft skin slipping out between her arms as if it had a will of its own, refusing to be restrained.</p>
 
-<p>"Qingyi~~"</p>
+<p>"Qingyi"</p>
 
 <p>She barely had time to utter his name before his hips pulled back again, the twenty-three centimeters sliding out of her cunt only to plunge back inside.</p>
 
 <p>Clap</p>
 
-<p>"AGHNNN~!"</p>
+<p>"AGHNNN!"</p>
 
 <p>This time, Qingyi didn’t pause at all.</p>
 
@@ -101,21 +101,21 @@ chapter = 775
 
 <p>Qingyi gasped with pleasure as he pumped relentlessly, fucking her with brute force.</p>
 
-<p>"Nghnn~~ aghnn~~" Rouxi pulled hard on the heavenly silk sheets, her hands soon falling onto her own slender belly, where she could feel Qingyi’s cock inside her—a thick, elongated bulge moving in and out of her without pause.</p>
+<p>"Nghnn aghnn" Rouxi pulled hard on the heavenly silk sheets, her hands soon falling onto her own slender belly, where she could feel Qingyi’s cock inside her—a thick, elongated bulge moving in and out of her without pause.</p>
 
 <p>Clap</p>
 
-<p>"Q-Qingyi~ h-honey~"</p>
+<p>"Q-Qingyi h-honey"</p>
 
 <p>Plap</p>
 
-<p>"G-gentler~~ love~ fuck mommy’s pussy more gently, nghnn~~"</p>
+<p>"G-gentler love fuck mommy’s pussy more gently, nghnn"</p>
 
 <p>Plap</p>
 
 <p>Clap</p>
 
-<p>"P-please~~ nghnn~~ darling~~ sweetheart~~"</p>
+<p>"P-please nghnn darling sweetheart"</p>
 
 <p>Plap</p>
 
@@ -131,11 +131,11 @@ chapter = 775
 
 <p>This was not a pleasure that should exist in this world, and she knew it all too well...</p>
 
-<p>"Are you... aghnn~~ a demon of pleasure?" she asked between gasping moans, her eyes rolled back in ecstasy.</p>
+<p>"Are you... aghnn a demon of pleasure?" she asked between gasping moans, her eyes rolled back in ecstasy.</p>
 
 <p>"Ah... what if I am?" Qingyi replied with a heavy gasp, overcome by a pleasure no less intense than his adoptive mother’s as he fucked that tight cunt nonstop.</p>
 
-<p>"I~~ AGFHNN~!" Rouxi’s words were cut short by a loud, high-pitched shriek.</p>
+<p>"I AGFHNN!" Rouxi’s words were cut short by a loud, high-pitched shriek.</p>
 
 <p>Her eyes widened, and suddenly, she felt it... something big was coming.</p>
 

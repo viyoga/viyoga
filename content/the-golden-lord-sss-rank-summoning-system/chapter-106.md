@@ -9,7 +9,7 @@ chapter = 106
 <p>She knelt on Ethan’s bed, her long, shapely, tanned legs on full display as she helped him into the armor.</p>
 <p>As a mercenary, she had plenty of experience with gear like this, though she had never handled plate quite this heavy before.</p>
 <p>"From the same place I got you, pretty, isn’t it?" Ethan smirked, his hand drifting down to settle on the round curve of Evelyn’s shapely butt, steel-clad fingers pressing lightly into the soft flesh beneath.</p>
-<p>"Ugh~~ idiot, take off your gauntlets before you touch me, that hurts!" Evelyn gasped as the hard metal dug into her tender skin, the shoulder pads she had been trying to fit slipping from her grasp.</p>
+<p>"Ugh idiot, take off your gauntlets before you touch me, that hurts!" Evelyn gasped as the hard metal dug into her tender skin, the shoulder pads she had been trying to fit slipping from her grasp.</p>
 <p>Ethan obeyed without protest. What was the point of touching her if he couldn’t feel her properly, skin against skin?</p>
 <p>He stripped the steel gauntlet from his right hand and tossed it aside with a dull clank. Then his bare palm descended onto Evelyn’s ass with a soft slap.</p>
 <p>Her tanned cheeks, framed by the tight leather shorts, bounced sharply under the impact, the plump flesh flattening beneath his palm for a split second before rebounding with a soft, supple jolt.</p>

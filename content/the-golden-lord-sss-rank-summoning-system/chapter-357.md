@@ -16,7 +16,7 @@ chapter = 357
 <p>"Just look at how beautiful you are. Imagine how many men would throw themselves at your feet... I was once an empress in a past era, you know? Glorious were those times."</p>
 <p>"Many men begged just for the right to kiss my feet, and yet none of them—not kings, not dukes, not emperors—were worth a centimeter of what my Ethan is worth. You’ll understand that one day, if you decide to accept him."</p>
 <p>"M-me, accept him?"</p>
-<p>"Yes... can’t you see how interested he is in you? My husband is such a naughty, greedy man, fufufu~"</p>
+<p>"Yes... can’t you see how interested he is in you? My husband is such a naughty, greedy man, fufufu"</p>
 <p>Seo-ah shuddered, clenching her teeth.</p>
 <p>There she was, being tempted to become the wife of an NPC by one of that very NPC’s many wives...</p>
 <p>How low had she sunk? And why the hell did the AI in this damn game have to be so advanced?</p>

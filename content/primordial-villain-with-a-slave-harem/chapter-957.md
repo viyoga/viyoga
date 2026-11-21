@@ -25,7 +25,7 @@ chapter = 957
 <p>"Back then... you were something I could hardly touch. A being so far above me that it felt like looking at a star from the bottom of a well." His hand reached out, touching her cheek, lifting her chin up so she looked up into his swirling elemental eyes. "But now... well. Unless we have a serious duel, I cant say for sure... but the gap between us is certainly not so big anymore."</p>
 <p>Vexs breath stuttered thanks to her beloveds words. Her thighs squeezed even tighter. Her entire body trembled, but not from fear.</p>
 <p>From something far more dangerous.</p>
-<p>"Hehe~" Her laugh was shaky but wicked. "Thats true... Now you can have that long-awaited duel with Raika should you still wish to do so..." Her fingers reached out, stroking his firm chest. "Mmm... I wonder... can you beat her?"</p>
+<p>"Hehe" Her laugh was shaky but wicked. "Thats true... Now you can have that long-awaited duel with Raika should you still wish to do so..." Her fingers reached out, stroking his firm chest. "Mmm... I wonder... can you beat her?"</p>
 <p>"Well see. But enough chit-chat."</p>
 <p>His gaze dragged across all of them.</p>
 <p>"Ive got many women to satisfy... and I want to finish with you four..." he cracked his neck "before the previous ones wake back up."</p>

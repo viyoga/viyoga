@@ -12,7 +12,7 @@ chapter = 334
 <p>Would</p>
 <p>. Honestly, her displayed prowess only made me more interested in the girl. I have a kink for strong females as stated multiple times before, but I’m not into getting dommed, which would most certainly happen if we somehow found ourselves in a steamy situation together, so first I had to grow in strength.</p>
 <p>Vex then turned towards Elara who was just about to pierce her frame with her thin blade. Their duel began in earnest.</p>
-<p>27 vs ~80</p>
+<p>27 vs 80</p>
 <p>Still bad, but slightly better.</p>
 <p>Continue reading stories on</p>
 <p>&lt;Let’s capitalize on their momentary shock.&gt; Ayame said as she lunged forward to slash at one of the soldiers, followed by the rest of the frontline. However, they couldn’t just go on a reckless rampage since they had to protect the fragile backline.</p>

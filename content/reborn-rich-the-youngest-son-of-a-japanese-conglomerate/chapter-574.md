@@ -13,7 +13,7 @@ chapter = 574
 <p>"We've caught him."</p>
 <p>Gil Jun-seok, the vice-chairman and second-in-command of the Yongcheol Faction, was kneeling in front of us with his face swollen, his arms held by a Yonghwa Construction gang member. He probably got hit a few times for resisting. Gil Jun-seok supported Chairman Jeon Yong-cheol, who was in charge of force, with his schemes, but he only knew how to use despicable tactics, so he wasn't even worth scouting.</p>
 <p>"Where did Jeon Yong-cheol get his cyber implant armor?"</p>
-<p>"Keueok~ Tweh! I'll tell you if you spare me."</p>
+<p>"Keueok Tweh! I'll tell you if you spare me."</p>
 <p>Gil Jun-seok spat phlegm mixed with blood on the ground and spoke in response to my question. Even if it wasn't Gil Jun-seok, I think I could find out this much information. Should I just kill him?</p>
 <p>"Ryuta-nim. I'll get the information myself, so please go in and rest."</p>
 <p>Yang Seol-hui approached me, smiling brightly. Seeing Yang Seol-hui, who probably had some experience torturing as Dang So-hwa's adjutant, speak confidently, it seemed I could get the information without wasting my time asking.</p>
@@ -34,16 +34,16 @@ chapter = 574
 <p>Ah, now that I think about it, I'm still shirtless. I scratched my head with an embarrassed expression and got into the car. Fortunately, the meticulous Han Yu-gyeong had packed my clothes in the car, so I didn't have to stop by Han Yu-gyeong's house in the middle.</p>
 <p>###</p>
 <p>After sleeping for about an hour and coming out to eat the hotel breakfast, I realized that the students' gazes were strange. Everyone was glaring at me as if they were looking daggers.</p>
-<p>"Ryuta-cchi! Where did you go? I was waiting to play board games with Ryuta-cchi~!"</p>
+<p>"Ryuta-cchi! Where did you go? I was waiting to play board games with Ryuta-cchi!"</p>
 <p>Seizawa Shii started nagging as soon as she saw me. Aha, it's because I was away yesterday. Most of the special class students seemed to have come to my room. Seeing that they said they were waiting, it seemed they had been waiting for quite a while and were a little sulky.</p>
 <p>"No, it's free time, so I was just wandering around freely too. I met a Korean friend after a long time."</p>
 <p>"Take us with you too!"</p>
-<p>"Woo~! Woo~!"</p>
+<p>"Woo! Woo!"</p>
 <p>The special class students started booing at my words. I smiled at the sight and used my fork to pick up a mountain of scrambled eggs. The students seemed even more angry at my actions and huffed and puffed, but there was nothing they could do except boo.</p>
 <p>"The morning schedule is coming up, so you'll be busy if you want to change clothes. Everyone, stop and eat breakfast."</p>
 <p>Today's morning schedule was a tour of Gyeongbokgung Palace. The students had brought Hanboks, as foreigners often do, but it would take time to change because they were not used to the clothes. I pointed that out and told them to eat first rather than booing at me.</p>
 <p>Whether my words worked or not, the students each brought their favorite breakfast. Most of them didn't have much appetite in the morning, so they were only eating cereal, fruit, or small bread.</p>
-<p>"Ryuta, ah~"</p>
+<p>"Ryuta, ah"</p>
 <p>Alik fed me what he had brought and smiled contentedly. I thought it was strange that he brought so much in the morning, but it seems he brought a lot to do this.</p>
 <p>After a pleasant breakfast, the students headed to their hotel rooms like a receding tide. They were meeting at 9:30 to depart, so there wasn't much time. I also went back to my hotel room to brush my teeth and found a KakaoTalk message on my smartphone that I had left in the hotel room.</p>
 <p>It was a KakaoTalk message from Han Yu-gyeong, and it was about Jeon Yong-cheol's cyber implant armor. I don't know if Yang Seol-hui found out through torture or through another route, but it seemed she had finally obtained information about the alloy.</p>

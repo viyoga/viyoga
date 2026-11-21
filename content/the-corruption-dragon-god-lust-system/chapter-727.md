@@ -23,7 +23,7 @@ chapter = 727
 
 <p>Without hesitation, she closed her pale thighs around the shaft, squeezing it tightly.</p>
 
-<p>The reddened, bulbous tip emerged above that sea of milky skin while the thick, veiny body of the shaft pressed flush against the plump, soft lips of her pussy, sliding teasingly along the already wet slit. “Ah~” Xue Hua bit her black-painted lower lip. “You know… that’s the only reason I was so eager to come here…” She whispered, reaching back to cup the exposed glans in her palm.</p>
+<p>The reddened, bulbous tip emerged above that sea of milky skin while the thick, veiny body of the shaft pressed flush against the plump, soft lips of her pussy, sliding teasingly along the already wet slit. “Ah” Xue Hua bit her black-painted lower lip. “You know… that’s the only reason I was so eager to come here…” She whispered, reaching back to cup the exposed glans in her palm.</p>
 
 <p>Her delicate fingers closed around the thick shaft in a mischievous grip, stroking once before a shiver ran through her.</p>
 
@@ -37,7 +37,7 @@ chapter = 727
 
 <p>“Or to feel the warmth of your man’s embrace…?” he continued, massaging the soft mounds while his fingers found her pink nipples, pinching the stiff buds between his thumb and index finger and rolling them slowly.</p>
 
-<p>“Nghnn~~ n-no…!” she moaned, her body trembling in his lap, her thighs squeezing involuntarily around his shaft. “You did this to me, you bastard…”</p>
+<p>“Nghnn n-no…!” she moaned, her body trembling in his lap, her thighs squeezing involuntarily around his shaft. “You did this to me, you bastard…”</p>
 
 <p>Qingyi laughed. Grasping that delicate waist firmly, he lifted her onto his cock as if she weighed nothing.</p>
 
@@ -63,9 +63,9 @@ chapter = 727
 
 <p>Xue Hua froze for an instant, her eyes widening before her dark-painted lips parted in a strangled moan.</p>
 
-<p>“Nghnn~~ F-FUCK!” she cursed, her voice coming out as high-pitched as a hamster’s squeak.</p>
+<p>“Nghnn F-FUCK!” she cursed, her voice coming out as high-pitched as a hamster’s squeak.</p>
 
-<p>“Oghnn~~ y-you can’t go a second without… mghnn~~ filling my pussy with that huge thing?” she complained, her walls clenching tight around every inch of him.</p>
+<p>“Oghnn y-you can’t go a second without… mghnn filling my pussy with that huge thing?” she complained, her walls clenching tight around every inch of him.</p>
 
 <p>“Ah… we can stop if you’re not enjoying it…” Qingyi whispered provocatively into her ear, his hot breath sending tingles racing across her skin, his lips barely grazing her earlobe.</p>
 

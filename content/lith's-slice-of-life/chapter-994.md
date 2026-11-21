@@ -29,7 +29,7 @@ In any case, it was just a slight pity he felt. There were absolutely no regrets
 
 Back to the present, Lith stopped sloshing his tongue in Qingyue's pussy and sucked on her clit, pulling it slightly.
 
-"Ahhhh~!"
+"Ahhhh!"
 
 ƈοm Qingyue's toes curled up and she couldn't keep herself supported on the table anymore, falling flat on it.
 
@@ -93,7 +93,7 @@ Lith moved closer to it and gave it a lick, making Qingyue hug him tighter.
 
 Finally, his sharp fangs dug deep in her carotid artery and a gush of blood was pumped in his mouth.
 
-"Mhffmm~" Qingyue let out a muffled moan in Lith's embrace.
+"Mhffmm" Qingyue let out a muffled moan in Lith's embrace.
 
 This thing that was happening was dangerous and lethal, but she wasn't a mortal to worry about such things.
 

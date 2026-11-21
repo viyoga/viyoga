@@ -31,10 +31,10 @@ chapter = 108
 <p>Looking at the time, it was already 11:50 AM, ten minutes before lunchtime. I thought it was a concept until now, but she was serious about eating. I thought it was a concept after learning about Mimata Chieri-ssi's identity, who whines because she can't eat two menus if she can't eat lunch with me, but she just likes to eat.</p>
 <p>,Lunch is...</p>
 <p>If I go around with these four Mumentai wearing cyberpunk helmets, I'll stand out... Should I pack it up and eat it?</p>
-<p>,Don't worry about the Mumentai. Okay~ Mumentai everyone! Let's eat and meet here in an hour and a half~!</p>
+<p>,Don't worry about the Mumentai. Okay Mumentai everyone! Let's eat and meet here in an hour and a half!</p>
 <p>The four Mumentai nodded at Mimata Chieri-ssi's words, got into the van they came in, and disappeared somewhere. It's easier for us if we don't have to take care of their meals.</p>
 <p>,Then shall we go out too?</p>
-<p>,Yes~!</p>
+<p>,Yes!</p>
 <p>We went outside. The place we were in was a commercial building owned by a Taira Group affiliate, and it was an empty building waiting to be demolished for reconstruction. It was in the center of Tokyo, so it was in a very good location because it was close to Tochimura Kaminojo-ssi's current tower mansion and Minamoto Trading Company. And because it was in the center of Tokyo, there were many restaurants, so it was good for eating.</p>
 <p>,I saw a place I liked while coming here!</p>
 <p>Mimata Chieri-ssi grabbed my sleeve and headed to a restaurant. It was a place that mainly served gyukatsu (beef cutlet), and we arrived at 11:56 AM, but it seemed to be a famous restaurant with about five people waiting. After 12 o'clock, office workers around us came out for lunch, and the line behind us quickly became long. Already fifteen teams were lined up behind us.</p>

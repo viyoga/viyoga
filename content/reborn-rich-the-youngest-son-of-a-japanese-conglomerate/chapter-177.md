@@ -47,7 +47,7 @@ chapter = 177
 <p>"Ryuta-gun is in Korea right now, what a coincidence... Huh?"</p>
 <p>Arisu Fitzerald's actions, which had been muttering and launching Mytube, stopped for a moment. The thumbnail was clearly the face of someone she knew...? The image of Taira Ryuta-gun, whom she had slept with just a week ago, was plastered on the thumbnail of her favorite singer.</p>
 <p>What the hell is going on? Arisu Fitzerald clicked on the thumbnail with a trembling hand.</p>
-<p>~♪ ~♬</p>
+<p>♪ ♬</p>
 <p>After the song ended, a tear rolled down Arisu Fitzerald's right cheek.</p>
 <p>"Sniff, sniff...! It was a good story, a good song...."</p>
 <p>Although Arisu Fitzerald was a model, she had friends who were actors and was thinking of entering the acting field, so she didn't seem to think much about Taira Ryuta-gun filming a kissing scene.</p>
@@ -60,7 +60,7 @@ chapter = 177
 <p>"That's all for the executive training... And this is unrelated to the Human Resources Development Center, but it's about Ryuta-dono."</p>
 <p>"Huh? Ryuta? What's wrong? Did he have an accident in Korea or something...?"</p>
 <p>Ikehara Koyuki hesitated slightly and handed over a tablet with a screen displayed. The Mytube was displayed on the tablet screen, and Taira Yukiko-nim, who had misunderstood the situation, hurriedly played the screen.</p>
-<p>~♪ ~♬</p>
+<p>♪ ♬</p>
 <p>"Ah!"</p>
 <p>A completely different situation from what Taira Yukiko-nim had imagined was appearing on the tablet screen. Taira Yukiko-nim thought something like a news screen would appear, but what came out was a music video.</p>
 <p>Taira Yukiko-nim, who was embarrassed, couldn't take her eyes off the screen as if she was being sucked in. Ikehara Koyuki had already seen the video once, but quietly watched the music video with Taira Yukiko-nim.</p>
@@ -97,5 +97,5 @@ chapter = 177
 <p>"What are you muttering like a sinister old man? I'm going to watch our handsome grandson's face one more time, so be quiet!"</p>
 <p>Taira Danjo-nim, feeling dejected at Taira Shizuku's scolding, went outside. The music from the music video was playing in the room.</p>
 <p>-----</p>
-<p>Arisu Bonus~!</p>
+<p>Arisu Bonus!</p>
 <p>It's too annoying to put on seaweed....</p>

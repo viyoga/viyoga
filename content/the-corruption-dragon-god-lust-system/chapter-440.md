@@ -61,7 +61,7 @@ chapter = 440
 
 <p>It was at forty percent, already starting to drop slightly.</p>
 
-<p>“Q-Qingyi, what are you- aghnnn!~~”</p>
+<p>“Q-Qingyi, what are you- aghnnn!”</p>
 
 <p>Celestia’s words were cut off by a loud squeal as Qingyi’s hands wrapped around her waist, pulling her against him.</p>
 
@@ -73,7 +73,7 @@ chapter = 440
 
 <p>Without her noticing, Qingyi’s hands moved down, reaching her fat, round, perky butt. His fingers sank into the soft, pliable flesh, his palm sliding across all that perfection.</p>
 
-<p>“Nghnn~~” Celestia moaned again as he grabbed her without restraint, his hands struggling to encapsulate as much of those perfect, luscious orbs as possible.</p>
+<p>“Nghnn” Celestia moaned again as he grabbed her without restraint, his hands struggling to encapsulate as much of those perfect, luscious orbs as possible.</p>
 
 <p>[Celestia’s Lust increased by 10%!]</p>
 
@@ -89,7 +89,7 @@ chapter = 440
 
 <p>He only stopped when he felt his Qi reserves reach half, hundreds of kilometers from the capital, where he continued just flying.</p>
 
-<p>“Brother Qingyi… Shouldn’t we go slower and without drawing attention? Why are we-nghnn~~ going so fast?” Celestia asked, pressing her face against Qingyi’s chest.</p>
+<p>“Brother Qingyi… Shouldn’t we go slower and without drawing attention? Why are we-nghnn going so fast?” Celestia asked, pressing her face against Qingyi’s chest.</p>
 
 <p>They were a few kilometers up, and she refused to look down.</p>
 

@@ -125,7 +125,7 @@ chapter = 920
 
 <p>"And is the food there better than Elize’s?" Qingyi asked curiously, raising an eyebrow.</p>
 
-<p>"It’s mediocre compared to hers, fufufu~" Yuehan gave a soft chuckle and quickened her pace, her hips swaying seductively with each step.</p>
+<p>"It’s mediocre compared to hers, fufufu" Yuehan gave a soft chuckle and quickened her pace, her hips swaying seductively with each step.</p>
 
 <p>Beneath the thin fabric, her rounded ass shifted from side to side, each cheek rising and dipping in turn as the flesh rolled heavily under the cloth.</p>
 

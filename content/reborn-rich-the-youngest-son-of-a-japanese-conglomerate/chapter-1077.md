@@ -73,18 +73,18 @@ chapter = 1077
 <p>Laszlo Horvath bid Taira Kitsumasa farewell and pulled the trigger twice. The first shot aimed for the Heart, the second for the Head.</p>
 <p>Blood splattered as Taira Kitsumasa collapsed. Laszlo Horvath, having confirmed his final collapsing Appearance, put his sniper rifle into his Bag and began to leave the opposite Building.</p>
 <p>Laszlo Horvath would not know what kind of Aftermath his small Act of pulling the trigger would bring to Japan, across the Sea.</p>
-<p>Minamoto Katsue B-cut~!</p>
+<p>Minamoto Katsue B-cut!</p>
 <p>In the early stages of creation, she had green pupils hehe.</p>
-<p>Shii and Lisa recalling a night with Ryuta, requested by MidNightSKY-nim~!</p>
-<p>Shii~!</p>
+<p>Shii and Lisa recalling a night with Ryuta, requested by MidNightSKY-nim!</p>
+<p>Shii!</p>
 <p>I'm not sure what the shirt swimsuit in the middle is hehe.</p>
-<p>Lisa~!</p>
+<p>Lisa!</p>
 <p>Gokado Hanako on Stage, requested by TheDreaming-nim: 1. Hand Play 2. Zero Two</p>
 <p>1.</p>
 <p>2.</p>
-<p>Sajo's recovered Appearance, requested by Geomeunkkaemuk-nim~!</p>
+<p>Sajo's recovered Appearance, requested by Geomeunkkaemuk-nim!</p>
 <p>I tried to convey the feeling of pale Skin from being constantly confined + a Body that has recovered physically but not mentally hehe.</p>
-<p>Homeroom Teacher performing Battōjutsu on a car, and Ryuta driving, requested by JeongChucky-nim~!</p>
-<p>Homeroom Teacher~!</p>
-<p>I had to create the Battōjutsu horizontally for it to come out properly hehe. Only two images of her properly on the car are the limit hehe. Most of them, like the last one, just have her Legs raised~!</p>
-<p>Ryuta~!</p>
+<p>Homeroom Teacher performing Battōjutsu on a car, and Ryuta driving, requested by JeongChucky-nim!</p>
+<p>Homeroom Teacher!</p>
+<p>I had to create the Battōjutsu horizontally for it to come out properly hehe. Only two images of her properly on the car are the limit hehe. Most of them, like the last one, just have her Legs raised!</p>
+<p>Ryuta!</p>

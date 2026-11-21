@@ -49,7 +49,7 @@ chapter = 173
 <p>But before the ant could reach the ground, Agiel suddenly flew out from the building and kicked it away so that it would land away from Keith! Agiel slammed into the ground in a low crouch before standing slowly, and Keith let his head fall back to the ground as he released another tired sigh. The sound of sand crunching underneath Agiel’s feet told Keith that Agiel was heading his way, and he blinked up at her as she looked down at him with a disappointed expression.</p>
 <p>Agiel could tell that Keith was no longer capable of fighting, and the other two beasts were already starting to bore her since they weren’t intelligent enough to put up a good fight so Agiel decided that this fight was over. She used the tip of her boot to kick Keith’s hand lightly and Keith cursed.</p>
 <p>"Fuck!"</p>
-<p>"Don’t be such a pussy, you fool. It’s only a broken arm. Sigh~"</p>
+<p>"Don’t be such a pussy, you fool. It’s only a broken arm. Sigh"</p>
 <p>Agiel grabbed her gloves from her pocket and began putting them on as she continued talking.</p>
 <p>"What the hell were you thinking, Keith? I thought you were smarter than this. Putting your job and your future on the line for someone that you barely even know. It’s not like you."</p>
 <p>What Keith had done here today was insubordination and as his commanding officer, Agiel had every right to strip him of his position for disobeying her orders. But Agiel was finding it hard to understand what Keith had been trying to achieve by going against her command. Keith was the most reasonable person she knew so this entire situation just didn’t make any sense to her!</p>

@@ -49,7 +49,7 @@ chapter = 161
 <p>“Persephone, you shagged him!?”</p>
 <p>She was astonished.</p>
 <p>She had tried to get it going with Sol but had failed. So how did Persephone succeed,</p>
-<p>“Fufufu~! It was an epic night.”</p>
+<p>“Fufufu! It was an epic night.”</p>
 <p>“You-!”</p>
 <p>Setsuna did not like how they were basically ignoring her.</p>
 <p>Persephone, though, showed no shame as she faced Setsuna, “Young pup, you should mind your words. Sol is not a kid. He knows full well the risks, even more so than you. Then, who are you to judge us?”</p>
@@ -95,7 +95,7 @@ chapter = 161
 <p>"This is a pledge. An oath. Carefully crafted by me. You just need to read it and swear on the name of your respective goddess. I believe two days would be enough to read everything."</p>
 <p>At the end of the day, words were cheap.</p>
 <p>Only a good old contract that could bring death if breached could calm her heart.</p>
-<p>'Fufufu~! Surely, his highness will be happy. I hope he will reward me.'</p>
+<p>'Fufufu! Surely, his highness will be happy. I hope he will reward me.'</p>
 <p>A blush covered her face.</p>
 <p>It has been some days since her last time with Sol.</p>
 <p>Camelia showed a complicated expression as she took a look at the documents.</p>

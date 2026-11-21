@@ -53,7 +53,7 @@ chapter = 292
 
 <p>The handsome young man’s hands were resting directly on her hips, his fingers sinking into the silky skin beneath the fine fabric of the elegant dress.</p>
 
-<p>“nghnn~~ ah!” Meilin moaned, her whole body shuddering before letting out a startled yelp.</p>
+<p>“nghnn ah!” Meilin moaned, her whole body shuddering before letting out a startled yelp.</p>
 
 <p>She jumped off Qingyi’s lap, quickly storing the book in her spatial ring.</p>
 

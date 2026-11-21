@@ -25,7 +25,7 @@ chapter = 722
 <p>To loosen up her lovely anal folds further, he slowly, ever so slowly, inserted his solid meat stake inside her once more. The action filled the girl with a suffocating ecstasy.</p>
 <p>She had received some extremely dangerous petting from him before, but she was still a virgin. She had seen his swollen dick when he had done it with Satella and even licked it, but this was of course her first time having it inside her.</p>
 <p>Furthermore, this was the wrong hole. Its presence and the great pressure should have only filled her with fear, revulsion, and pain. Yet…</p>
-<p>“Ah~…! ahhhn~…!!”</p>
+<p>“Ah…! ahhhn…!!”</p>
 <p>“Nngh. Sounds like it’s started feeling good for you.” He whispered with a snicker into her ear, but she could only glare back with utter bitterness in her eyes.</p>
 <p>That glare held no strength behind it, however, as her lovely slanted eyes were filled with feminine moisture. As he stickily rubbed against her anal walls, somewhat seductive tones escaped her small, pointed nose. ȐÀ₦Ô฿Ę𝐒</p>
 <p>Sol groaned. His massive erection was finally entirely buried inside her up to the very hilt.</p>
@@ -34,7 +34,7 @@ chapter = 722
 <p>Jasmine felt her mind go increasingly faint with each passing second. His cock applied much more pressure to her stomach than the finger ever could. The girthy meat stick filled up her ass and pushed deep inside her anal cavity, reshaping her insides to match its form.</p>
 <p>The tip pushed at the inner wall to stimulate her vaginal wall. It was like an attack on a dual front.</p>
 <p>“Okay, I’m going to move now.”</p>
-<p>“Wait! Hold on! Ah, ahh, ahhhhhhhh~!!!”</p>
+<p>“Wait! Hold on! Ah, ahh, ahhhhhhhh!!!”</p>
 <p>The applied lotion made sticky noises as his cock moved in and out of her ass. The tip continued to stimulate her vagina through the inner wall.</p>
 <p>More and more, she found she couldn’t tell if the pleasure she was feeling came from the attack on a pleasure spot she was familiar with or from the fat cock moving in and out of her asshole.</p>
 <p>He continued thrusting in and out so her anus would get to know what a penis felt like. The pressure gradually lessened, making it easier for him to move, nevertheless, there was still enough pressure that the pleasantness never faded, only amplified.</p>
@@ -47,7 +47,7 @@ chapter = 722
 <p>If he could attack her in a way that brought about the most pleasure, the opposite was also true. He held back on the straight thrusts, pulled partway out, and thoroughly rubbed only at the entrance.</p>
 <p>She was still spread wide, but it did not feel like enough to her anus which had grown soft enough to pull out a bit when his thick head moved in and out.</p>
 <p>He did not give in even as her entire butthole sucked at his penis, increasing the frustration of Jasmine as she sought more pleasure.</p>
-<p>“If you say it, I’ll make you feel good again~♪”</p>
+<p>“If you say it, I’ll make you feel good again♪”</p>
 <p>Slowly, painfully slowly, rubbed against her inner flesh and occasionally roughly struck it with his shaft to simulate a spike of pleasure. Only to dampen it with shallow thrusts.</p>
 <p>“Ah… ahhh.” Now that she knew how much pleasure she could feel if Sol just wished, she could not satisfy the throbbing tickling at the center of her hips that demanded the obscene pleasure only he could provide her in all the realms.</p>
 <p>Sweet breaths escaped from between her clenched teeth, and finally…</p>

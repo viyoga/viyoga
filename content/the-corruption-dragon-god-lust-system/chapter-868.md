@@ -7,7 +7,7 @@ chapter = 868
 
 <p>"Happy with your hubby’s cock?" Qingyi asked with an amused smile, his purple eyes watching Akane revel in his member, her cheeks hollowed out from sucking so eagerly.</p>
 
-<p>"Nghnnn~~ yeah... Qingyi-chan’s huge cock is perfect! Akane-sama is already in love!" Akane declared with a radiant smile as the cock slipped from her red lips with a wet pop, a thick trail of saliva still connecting the reddish glans to the tip of her pink tongue.</p>
+<p>"Nghnnn yeah... Qingyi-chan’s huge cock is perfect! Akane-sama is already in love!" Akane declared with a radiant smile as the cock slipped from her red lips with a wet pop, a thick trail of saliva still connecting the reddish glans to the tip of her pink tongue.</p>
 
 <p>She shook her head like a kitten shaking water from its ears, her long black-and-red hair fluttering around her pale face, a few loose strands sticking to her flushed cheeks.</p>
 
@@ -25,7 +25,7 @@ chapter = 868
 
 <p>A subtle tremor ran through the little demoness’s body, her pale pink nipples stiffening even more atop her huge, exposed breasts, the heavy globes quivering ever so slightly with her arousal. Then her lips parted, and she eagerly took the cock into her mouth once more.</p>
 
-<p>"Mghnn~~ slurp~~ glrp~~ slurp~ T-tastes so good~ my husband’s big cock... Slurp~ Akane’s in love!~~" Loud, obscene, wet sounds spilled from her mouth, her voice muffled by the cock filling her throat.</p>
+<p>"Mghnn slurp glrp slurp T-tastes so good my husband’s big cock... Slurp Akane’s in love!" Loud, obscene, wet sounds spilled from her mouth, her voice muffled by the cock filling her throat.</p>
 
 <p>With every eager bob of her head, thick drops of saliva trickled down her pale chin, dripping between her full breasts and leaving shiny, glistening trails across her gray skin.</p>
 
@@ -43,7 +43,7 @@ chapter = 868
 
 <p>Akane noticed instantly, her blood-red eyes shining with renewed intensity, almost driven mad with anticipation.</p>
 
-<p>"Nghnn~~ Come on, Qingyi-chan! Feed your wife really well! Akane-sama wants to drink it all!" Akane let the cock slip from her lips for a brief moment, saliva dripping down her chin as she spoke in a hoarse, hungry voice.</p>
+<p>"Nghnn Come on, Qingyi-chan! Feed your wife really well! Akane-sama wants to drink it all!" Akane let the cock slip from her lips for a brief moment, saliva dripping down her chin as she spoke in a hoarse, hungry voice.</p>
 
 <p>Immediately after those words left her, she closed her lips around the tip of Qingyi’s cock once more, sucking on the swollen glans with obscene intensity.</p>
 
@@ -57,11 +57,11 @@ chapter = 868
 
 <p>Her cheeks bulged with the sheer volume, her entire body shuddering as her red eyes rolled back slightly in pure, dazed pleasure.</p>
 
-<p>"Gulp~" The first gulp slid down her throat, accompanied by a wet, obscene sound that echoed through the silent pavilion.</p>
+<p>"Gulp" The first gulp slid down her throat, accompanied by a wet, obscene sound that echoed through the silent pavilion.</p>
 
 <p>The very next moment, her mouth was full again, forcing her to swallow nonstop, unable to even breathe properly between one spurt and the next.</p>
 
-<p>"Gulp~ Gulp~ Gulp~ Gulp~ Gulp~" On the sixth gulp, Akane finally pulled back, unable to hold any more.</p>
+<p>"Gulp Gulp Gulp Gulp Gulp" On the sixth gulp, Akane finally pulled back, unable to hold any more.</p>
 
 <p>Her lips parted with a wet gasp, and Qingyi’s cock slipped free with a loud, obscene pop, still spurting hot semen in generous jets.</p>
 
@@ -69,7 +69,7 @@ chapter = 868
 
 <p>A final jet landed right between her large, full, pale breasts, painting a gleaming white trail across the immaculate curve of her ample tits before slowly sliding into the soft valley of her cleavage.</p>
 
-<p>"Ah~ delicious~!" A satisfied sigh escaped Akane’s lips, and she grabbed her own breasts with both hands, squeezing them together and feeling the warm cum ooze between her white fingers.</p>
+<p>"Ah delicious!" A satisfied sigh escaped Akane’s lips, and she grabbed her own breasts with both hands, squeezing them together and feeling the warm cum ooze between her white fingers.</p>
 
 <p>Her pale pink nipples sank into the plush softness as she pressed and kneaded, the supple flesh giving way beneath her palms and spilling out from between her slender fingers in soft, milky waves, warm cum smearing across the immaculate skin and dripping down her wrists.</p>
 

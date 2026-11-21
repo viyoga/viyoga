@@ -31,7 +31,7 @@ chapter = 28
 <p>The weak voice brought her back from her musing and, with extremely careful moves, she took the cloak she was holding and covered the previously nude body of Camelia with it.</p>
 <p>"I am thankful."</p>
 <p>"You shouldn't be. It's my duty."</p>
-<p>"Fufufu~! The clumsy Chloe is now a proud paladin in training from the holy order of Industria. Your mother must be proud of you."</p>
+<p>"Fufufu! The clumsy Chloe is now a proud paladin in training from the holy order of Industria. Your mother must be proud of you."</p>
 <p>Chloe blushed in embarrassment but was extremely elated inside. During their training, all paladins of all seven churches had to complete their training in another church.</p>
 <p>Generally, it was done at random to avoid unbalance, but Chloe, as the top of her promotion in Slothstein, was given a choice and she didn't hesitate to choose Lustburg.</p>
 <p>She grew up hearing the legend of the hero-king and his band of companions.</p>

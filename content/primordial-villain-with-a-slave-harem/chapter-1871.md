@@ -11,7 +11,7 @@ chapter = 1871
 <p>"I don’t have time for you." Her tone stayed conversational. "I’ll kill you first."</p>
 <p>The courtyard went wrong in stages. Hands found hilts along the honor guard, one after another. The escort discovered it had no idea where to point its spears, at her or for her, and settled on trembling in place.</p>
 <p>Up on the walls the count’s men stopped pretending to be furniture, and a warning left one of them as a squeak. A dropped spear rang on the stone like a bell. It stayed where it fell.</p>
-<p>"Now this is more like it~"</p>
+<p>"Now this is more like it"</p>
 <p>Ayame arrived at Iris’s shoulder with her thumb already resting on her katana’s guard, and gave Stormlord a smile with nothing polite left in it.</p>
 <p>"You’re already embarrassing yourself by refusing to act. We all know what’s going on here. Stop being pathetic."</p>
 <p>Her chin tipped at the four columns standing over the inner wall.</p>

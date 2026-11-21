@@ -51,9 +51,9 @@ chapter = 203
 
 <p>“You know… I missed you too… especially that tight pussy,” Qingyi smiled, his pants falling to the floor as he lined up the head of his cock with the plump, soaked entrance to Qingxue’s pussy.</p>
 
-<p>“Nghnn~~” Qingxue moaned as Qingyi’s cock made its way inside her, the twenty-three centimeters forming a soft bulge in her slim belly.</p>
+<p>“Nghnn” Qingxue moaned as Qingyi’s cock made its way inside her, the twenty-three centimeters forming a soft bulge in her slim belly.</p>
 
-<p>“Aghnn~~ heavens~~ mghnn~~” Soon Qingxue’s obscene moans echoed around the room.</p>
+<p>“Aghnn heavens mghnn” Soon Qingxue’s obscene moans echoed around the room.</p>
 
 <p>Her fingers clutched at the bed sheets as her tits jiggled violently with each movement of Qingyi’s hips, driving his cock deeper and deeper into her pussy, the tip hitting the walls of her womb.</p>
 

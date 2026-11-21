@@ -5,7 +5,7 @@ weight = 62
 chapter = 62
 +++
 
-<p>"Mmm~~"</p>
+<p>"Mmm"</p>
 <p>A long, sensual purr echoed through the room, and Evelyn’s body relaxed completely.</p>
 <p>She was lying on Ethan’s bed, clutching the pillow, her back arched and her ass raised gloriously, pressing against the young lord’s hips.</p>
 <p>Ethan sighed. Alice’s breasts warmed his back, and the squeeze of Evelyn’s full, shapely buttocks enveloped his cock with a tight pressure, her sweat serving as natural lubricant.</p>
@@ -14,17 +14,17 @@ chapter = 62
 <p>Ethan smiled at the sight and reached out his hand.</p>
 <p>Lubricant wasn’t common in those lands, but luckily, before going to meet the girls, he’d used up all his free and regular gacha tickets. Among the items he’d obtained was a small box of the product.</p>
 <p>Not baby oil, thankfully. Ethan didn’t want to be like a certain D he knew from his past life on Earth. It was just generic lube.</p>
-<p>"H-hey, what are you doing? Ahn!~~"</p>
+<p>"H-hey, what are you doing? Ahn!"</p>
 <p>Evelyn’s eyes widened as he opened the bottle, aligning it with her pink anus.</p>
-<p>"Eethan, that’s the wrong hole, you nghnn~~"</p>
+<p>"Eethan, that’s the wrong hole, you nghnn"</p>
 <p>She moaned as the cold liquid flooded into her anus in a torrent.</p>
 <p>Soon after, he repositioned his cock, pressing it against her plump, puffy anus, now drenched in lubricant.</p>
 <p>The liquid was cold inside her, but he would soon warm her up.</p>
 <p>Naturally, there was resistance. The virgin anus clung to his cock, refusing to give way even with the help of the lube.</p>
-<p>"Idiot... It won’t fit in there... isn’t my pussy enough for you?♡ ah!~~"</p>
+<p>"Idiot... It won’t fit in there... isn’t my pussy enough for you?♡ ah!"</p>
 <p>"No..." Ethan pressed forward. "I want more than that. I want all of you."</p>
 <p>The cock finally penetrated, and his hips thrust forward, stopping only when they met the soft, creamy skin of that big, perfect ass, the flesh yielding with a glorious squeeze around every inch of him.</p>
-<p>"F-fuuuuuuck aghnnn~~ I can’t take this~~... oghnn~~" Evelyn let out a moan that sounded more like a scream.</p>
+<p>"F-fuuuuuuck aghnnn I can’t take this... oghnn" Evelyn let out a moan that sounded more like a scream.</p>
 <p>Her tongue slipped from her lips as her ass was filled to the brim, the inner walls pressing against his cock with a force that seemed to want to expel it and swallow it at the same time.</p>
 <p>Something so big and thick inside her ass... how could that be possible?</p>
 <p>"Ah..." Ethan gasped, his face flushed.</p>
@@ -59,7 +59,7 @@ chapter = 62
 <p>That ass was truly heavenly... how had he lived so long without that tightness around him?</p>
 <p>The fingers of his left hand closed around her flesh, grabbing as much of that tanned, creamy skin as he could.</p>
 <p>Using his grip as support, he increased the speed at which he moved his hips. Evelyn’s resistance crumbled quickly.</p>
-<p>"Aghnn~~ fuck... you... pervert, nghnn~~"</p>
+<p>"Aghnn fuck... you... pervert, nghnn"</p>
 <p>Evelyn lost control of her own tongue, which extended out from her full, pink lips.</p>
 <p>Even Alice, tended to only by Ethan’s fingers, began to let out increasingly naughty moans. Her body trembled, and her sweet moans intertwined with Evelyn’s mature, seductive moans.</p>
 <p>"Putting my cock in that ass was..." Ethan whispered, increasing the speed of his thrusts, his cock sliding in and out incessantly, reaching tight, previously untouched depths.</p>

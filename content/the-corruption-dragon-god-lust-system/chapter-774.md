@@ -81,7 +81,7 @@ chapter = 774
 
 <p>Qingyi already had his huge cock out, throbbing and rigid, his clothes piled in a heap on the floor!</p>
 
-<p>"Q-Qingyi... sweetheart... I only came here to help you pick out your wedding dress—it’s tomorrow, remember? We can’t... nghnn~~"</p>
+<p>"Q-Qingyi... sweetheart... I only came here to help you pick out your wedding dress—it’s tomorrow, remember? We can’t... nghnn"</p>
 
 <p>Qingyi didn’t give Rouxi a chance to finish her sentence. His eyes overflowed with affection as he hooked his fingers into the neckline of her dress and yanked it down.</p>
 
@@ -91,7 +91,7 @@ chapter = 774
 
 <p>The jiggling of those huge tits only ceased when they smashed against Qingyi’s powerful chest, the pale flesh flattening against his chest, spilling over the sides as if desperately searching for any space to accommodate all that soft, heavy volume.</p>
 
-<p>"Mghnn~~ I-I can’t... I’m your mommy~ n-not your wife... Q-Qingyi... your wedding is tomorrow..." Rouxi moaned against his lips, her whole body trembling in the firm arms that held her against his muscular chest.</p>
+<p>"Mghnn I-I can’t... I’m your mommy n-not your wife... Q-Qingyi... your wedding is tomorrow..." Rouxi moaned against his lips, her whole body trembling in the firm arms that held her against his muscular chest.</p>
 
 <p>"Mommy, huh? You know... when you talk like that, I just want to devour you even more..." Qingyi let out a hoarse chuckle as his lips pulled away from hers, leaving Rouxi gasping for breath, a thin thread of saliva dripping from the corner of her mouth.</p>
 
@@ -99,7 +99,7 @@ chapter = 774
 
 <p>Her eyes widened as she realized this pill had an even more potent effect than the previous one.</p>
 
-<p>"Gulp—aghnn~~ What are you doing?" Rouxi managed to whisper as soon as she finished swallowing the pill, a warm sensation already beginning to spread through her womb.</p>
+<p>"Gulp—aghnn What are you doing?" Rouxi managed to whisper as soon as she finished swallowing the pill, a warm sensation already beginning to spread through her womb.</p>
 
 <p>"What do you think?" Qingyi delivered a firm slap to Rouxi’s plump buttocks. A wet, meaty smack echoed through the room.</p>
 

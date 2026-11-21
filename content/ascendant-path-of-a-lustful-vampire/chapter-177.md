@@ -13,7 +13,7 @@ chapter = 177
 <p>Again, Baler reacted quickly enough. He encased his cheek with ice for defense but the moment the back of Caius’s fist made contact, it became clear that he had formed a seal in preparation for such an attempt at protection from Baler.</p>
 <p>Fire blazed from the spell circle that appeared and even though it couldn’t completely melt the ice on Baler’s cheek, it allowed Caius’s hit to break past it and be effective still.</p>
 <p>*BAM!*</p>
-<p>Baler went spinning away. At the same time, Caius cast ~Hellsong Dash~ and put himself in the path Baler was spinning towards to leap and swing a kick at the grey-white haired boy’s head and send him to the ground.</p>
+<p>Baler went spinning away. At the same time, Caius cast Hellsong Dash and put himself in the path Baler was spinning towards to leap and swing a kick at the grey-white haired boy’s head and send him to the ground.</p>
 <p>"Mmmph!" Baler groaned as he hit the ground and then he saw Caius’s leg coming at him from above.</p>
 <p>He swung his hand upward, seal already formed in an attempt to cast a spell only to then realize the Dark magic in his body had sapped him of every bit of Mana he had left. The Frost Pill still let him exude the augmented chill but it hardly mattered if he couldn’t cast a spell to benefit from the augmentation.</p>
 <p>"Shit!" He said out loud as his icy-blue eyes went wide and he rolled to the side then, just barely avoiding the strike Caius was coming down on him with.</p>
@@ -24,7 +24,7 @@ chapter = 177
 <p>And then came a third that definitely broke something as Baler was convinced he heard a *crack* sound.</p>
 <p>He allowed the force of Caius’s third kick to push him away and scrambled to his feet.</p>
 <p>"I won’t... *groan* I won’t go out like this," he struggled to say and held his arms up like a fighter wanting to ’square up’.</p>
-<p>Caius just laughed and went dashing forward with a boost of ~Hellsong Dash~ to strike a punch into Baler’s midsection before the boy’s brain could even properly react.</p>
+<p>Caius just laughed and went dashing forward with a boost of Hellsong Dash to strike a punch into Baler’s midsection before the boy’s brain could even properly react.</p>
 <p>Caius had tossed the Practice sword aside now. It was enchanted not to cause too much pain and that was exactly what Caius wanted to do.</p>
 <p>*Pow* *Pow* *Pow*</p>
 <p>As he delivered punch after punch with Baler hardly able to defend himself, Caius wondered if he should hold back a bit.</p>

@@ -71,7 +71,7 @@ chapter = 51
 <p>As she went back to her room, her heart was beating in joy, and her body was brimming with energy.</p>
 <p>Of course, working from dawn to nearly midnight was hard. However, no exhaustion was bothering Milia. On the contrary, she couldn’t be more awake. She was like a young girl who discovered her first love.</p>
 <p>After all, she was working for the sake of her beloved lord.</p>
-<p>“Fufufu~!” A smile broke out on her face.</p>
+<p>“Fufufu!” A smile broke out on her face.</p>
 <p>She knew that if someone else spotted her now, things would get complicated. As the head maid, she had to always show dignity and inspire respect in her subordinates. She should never show them her slovenly appearance. But, she couldn’t stop her cheeks from relaxing.</p>
 <p>Finally reaching the door of her room, she injected a bit of her mana in the lock before the door finally opened. There was no way she would use something as simple as a key to protecting her privacy. After all, she knew that if anyone saw what was hidden in her room, she might lose her job as a maid and even her companion in the crown's shadow would look at her weirdly.</p>
 <p>Of course, the inside was pitch black. When Milia used a bit of her magical power, the magical lights in the room went on, illuminating the area. In front of her stood–Sol.</p>
@@ -86,7 +86,7 @@ chapter = 51
 <p>Sleeping and waking up in this world filled with the person she loved, always motivated to give it her best for the day.</p>
 <p>This room was filled with her beloved Sol. The plushy, painting, and statues aside, her blanket was made from Sol’s old clothes. Her drawer was filled with Sol underwear. She also had his sweat-soaked training gear.</p>
 <p>She possessed hundreds of goods related to Sol. This scenery would surely be enough to gross out the person in question, but Milia had no plans of ever inviting him over in her room, so there was no problem. And if the impossible were to happen, she was prepared to beg for forgiveness and cut her belly in suicide.</p>
-<p>"Fufufu~!Ahhh… Sol… you’re as dignified as always… Even today, I cannot get enough of you…”</p>
+<p>"Fufufu!Ahhh… Sol… you’re as dignified as always… Even today, I cannot get enough of you…”</p>
 <p>Recalling his dashing figure as he entered Edea's world for the preparation of his core awakening, her hand slithered to her crotch as her breathing grew heavier as her arousal increased.</p>
 <p>She was losing herself. She knew herself that she could never show these feelings, no it was shameful to even hold such extreme feelings in the first place, but she couldn’t hold them back.</p>
 <p>Her finger finally found her already drenched slit and she began to comfort her. She hadn't been able to receive affection from Sol today but it wasn't a problem. She knew that it was necessary for him to not be distracted.</p>

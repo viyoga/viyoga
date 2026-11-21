@@ -69,7 +69,7 @@ His dragon was getting sandwiched and he was loving every bit of it. The oyako s
 
 Not wasting any more time, Lith squeezed Alea's soft peaches and then inserted his cock into her Elven pussy.
 
-"Aahm~" Alea moaned out and accidentally bit on Agalea's nipple in pleasure.
+"Aahm" Alea moaned out and accidentally bit on Agalea's nipple in pleasure.
 
 On biting, milk gushed out and filled Alea's mouth.
 

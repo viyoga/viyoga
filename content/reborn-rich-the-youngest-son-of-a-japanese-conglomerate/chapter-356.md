@@ -34,7 +34,7 @@ chapter = 356
 <p>Taira Ryuta: What do you want to eat? I'll pack it up and take it with me before I go to Seryutai.</p>
 <p>Sawayanagi Seari: Something sweet! Chieri-chan is coming too, right?</p>
 <p>Taira Ryuta: Yeah, I'll go with something sweet and Chieri-chan.</p>
-<p>Sawayanagi Seari: Okay! I'll be waiting, Ryuta-nim~!</p>
+<p>Sawayanagi Seari: Okay! I'll be waiting, Ryuta-nim!</p>
 <p>Were Sawayanagi Seari and Mimata Chieri close? I didn't know that.... After simply ending the Line chat, the contract between Hatake Investment Company and East Weapon wasn't over yet, so I turned on the Dark Merchant app. I'm sure I remember there being an earring called Fairy's Secret.</p>
 <p>Fairy's Secret was a useless item that only changed the race notation of awakened fairy-type characters to human, but it seemed like it would be in the Dark Merchant. I was almost certain because I could get it from the Dark Merchant in the game as well. Maybe if I have this, I can solve the problem of the elf's pointy ears.</p>
 <p>,Hmm, it's here after all.</p>
@@ -50,7 +50,7 @@ chapter = 356
 <p>,How can I not overdo it when my son makes me come to work on the weekend?</p>
 <p>,I'm sorry about that.</p>
 <p>After coming out of Hatake Investment Company, we took a taxi and stopped by the Dark Merchant's Tokyo branch. Mimata Chieri went to buy the sweets that Sawayanagi Seari had requested, and only I went into the branch.</p>
-<p>,Hello~! Ryuta-nim~!</p>
+<p>,Hello! Ryuta-nim!</p>
 <p>Eve in hologram form was in the Tokyo branch. The Eve android that was in Tokyo must have moved to the Miyashi branch as I expected. Then does that mean there's only one Eve android? I don't know why she's following me, but is it because she's a business partner?</p>
 <p>,Ryuta-nim, you said you'd come to visit around the weekend, so you meant you'd come to the Tokyo branch?</p>
 <p>,I'm just here to pick up the item today. Going to visit is, um....</p>
@@ -60,19 +60,19 @@ chapter = 356
 <p>,I know, right.</p>
 <p>Eve said something to me with a slightly pouting expression, but it's not my fault that things turned out this way, it's because of the school schedule....</p>
 <p>,I'll definitely stop by the week after next.</p>
-<p>,Yes~! The item is here.</p>
+<p>,Yes! The item is here.</p>
 <p>After promising to stop by the Miyashi branch the week after next, I received the box containing the Fairy's Secret. After saying goodbye to Eve once again and coming out of the Tokyo branch, Mimata Chieri was waiting for me with shopping bags full of desserts that almost ten people could eat.</p>
 <p>,Why did you buy so much?</p>
 <p>,There were just a lot of things that looked delicious, hehe.</p>
 <p>As expected, it was like Mimata Chieri, who can't resist exploring famous restaurants. I took half of the luggage and took a taxi together to the small building where Seryu Military Company was located.</p>
 <p>I swiped the card key I had and entered the building, heading to the upper floor dormitory room where Sawayanagi Seari was. It was to put the desserts that Mimata Chieri bought in large quantities first. There were quite a few things that needed to be frozen, so if I did business with Sawayanagi Sinya first, they would all melt.</p>
-<p>,Waa~! Ryuta-nim~! Chieri-chan~!</p>
+<p>,Waa! Ryuta-nim! Chieri-chan!</p>
 <p>Sawayanagi Seari, wearing light clothes like dolphin pants and a tank top, greeted us. Sawayanagi Seari, who had awakened as an elf and had a completely busty and curvy body, was just wearing casual clothes, but she was exuding a very sexy atmosphere.</p>
 <p>,Ehehe, I missed you♥</p>
 <p>,Me too, but where's Sinya-ssi?</p>
 <p>She hugged me slightly with an innocent expression and pressed her breasts tightly against me, giving me the feeling that Ero-Elves are different, but I asked about Sawayanagi Sinya's whereabouts first to take care of the business inspection, which was the purpose of coming to Seryu Military Company.</p>
 <p>,Sinya is probably in the vice president's office.</p>
 <p>,Then I'll go see Sinya-ssi quickly and come back, so please wait a bit.</p>
-<p>,I'll be playing with Seari-chan, so junior, please go do your work and come back~!</p>
+<p>,I'll be playing with Seari-chan, so junior, please go do your work and come back!</p>
 <p>Mimata Chieri said with a bright smile, giving me a strange feeling, but I nodded and went downstairs alone to see Sawayanagi Sinya.</p>
 <p>-----Seari B-cut</p>

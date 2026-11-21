@@ -34,7 +34,7 @@ chapter = 371
 <p>I always carry emergency contraception pills as well as regular birth control pills, so I always cum inside, regardless of whether the woman refuses or not.</p>
 <p>Sometimes I want to see Semen on their face, so I shoot it on their face, but cumming inside gives me a tremendous sense of conquest.</p>
 <p>Buut! But! Byuut!</p>
-<p>"No way~! Hng, it feels good...! Ryuta-nim's baby juice feels good, haang...♥"</p>
+<p>"No way! Hng, it feels good...! Ryuta-nim's baby juice feels good, haang...♥"</p>
 <p>Kijimoto Jurie, making contradictory statements, saying she didn't like it but then saying it felt good as I cum with tremendous force. But her eyes are rolling back and she's drooling, so I guess I should assume she likes it.</p>
 <p>###</p>
 <p>Of course, I couldn't be satisfied with just one round of sex, so Kijimoto Jurie had to receive my Semen in her uterus three more times. There was so much Semen that I started to worry if the birth control pills would even work, so I stopped having sex, put my arm around Kijimoto Jurie, and started chatting.</p>
@@ -65,7 +65,7 @@ chapter = 371
 <p>Hmm, are we supposed to eat while watching the island arrive in real time? I yawned with messy hair, grabbed a plate, and started scooping up food.</p>
 <p>As expected of a breakfast buffet, there weren't any fancy menus, so I piled up scrambled eggs, bacon, and pancakes, and grabbed soup and orange juice before sitting down.</p>
 <p>As I was sitting at the table, blankly admiring the sea, Seizawa Shii, Minamoto Risa, Kujo Kina, and their group came out to the deck. Then the three of them approached the sea and shouted.</p>
-<p>"It's the sea~☆"</p>
+<p>"It's the sea☆"</p>
 <p>As expected, someone has to say "Umi da--!!" to get the feeling of being at the sea. Minamoto Risa and her group, who had been looking at the sea and the island we would soon be disembarking on, scooped up some food from the breakfast buffet and sat down in front of me.</p>
 <p>"Ahaha! Ryuta-cchi, what's with your hair?"</p>
 <p>"Sensei, how's your physical condition? You can spar today, right?"</p>
@@ -78,7 +78,7 @@ chapter = 371
 <p>"You will disembark on Kojima in thirty minutes after finishing your meal. Please prepare to disembark during those thirty minutes."</p>
 <p>That means eat, wash up, and pack your bags well for thirty minutes. After the cruise manager ahjussi finished speaking, Minamoto Risa stood up and opened her mouth.</p>
 <p>"While you're preparing, change into your swimsuits. We'll be swimming and playing at the beach in the morning."</p>
-<p>"Ryuta-cchi! Look forward to it~☆"</p>
+<p>"Ryuta-cchi! Look forward to it☆"</p>
 <p>I don't know what she wants me to look forward to, but I feel a little better thinking about seeing the swimsuits of all the students in the class. Then I should wash up and get off the ship in my swimsuit. Should I go down and prepare?</p>
 <p>----</p>
 <p>Swimsuit Students PART1</p>

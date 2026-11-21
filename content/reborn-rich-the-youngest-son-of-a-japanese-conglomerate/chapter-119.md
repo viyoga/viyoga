@@ -19,7 +19,7 @@ chapter = 119
 <p>"Then I can just deposit the money into the account listed in these documents, right?"</p>
 <p>Mimata Chieri said after receiving and reading the documents. Mimata Chieri said she would take care of it quickly and left with the documents to make a phone call somewhere. It seemed like she was calling the bank. It seemed like she was making sure since the owner of the debt had changed.</p>
 <p>"It's completely taken care of. Seiryu Military Company is now free from debt!"</p>
-<p>"Waaah~!!"</p>
+<p>"Waaah!!"</p>
 <p>The six pairs of eyes that had been watching our every move cheered at the news that the debt was gone. Debt definitely has a way of tightening a person's heart. I heard it was a debt inherited from the previous generation, and it had been tormenting Seiryu Tai for almost six years, so it was natural for them to cheer.</p>
 <p>"Now, let me introduce our Seiryu Tai colleagues. This is our vice president, Sawayanagi Sinya."</p>
 <p>"Thank you, investor-nim! I'm Sawayanagi Sinya."</p>
@@ -35,7 +35,7 @@ chapter = 119
 <p>"These two are sisters. This is the older sister, Kiyona Hori, and this is the younger sister, Kiyona Mari."</p>
 <p>They were two beautiful, similar-looking girls in gothic lolita fashion, but the older sister had breasts and no superpowers, while the younger sister had no breasts but had superpowers. Online, they said Mari traded her breasts for superpowers. Certainly, the older sister had better physical stats and driving skills since she had no superpowers and bigger breasts. On the other hand, Kiyona Mari had pyrokinesis, the ability to create fire and cause chaos. Both had different uses despite their similar appearances, so they rarely acted together in the game.</p>
 <p>"Hey, Azuma-chan! Why are you introducing only us at once?"</p>
-<p>"That's right, that's right! Even if we're sisters, we're not a set menu~!"</p>
+<p>"That's right, that's right! Even if we're sisters, we're not a set menu!"</p>
 <p>"See? They're like this."</p>
 <p>""Azuma-chan!""</p>
 <p>The three of them were doing a skit. The introduction was over since the four who hadn't returned from their mission would be introduced later.</p>

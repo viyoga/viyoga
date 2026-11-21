@@ -6,17 +6,17 @@ chapter = 779
 +++
 
 <p>Having returned from the hot spring, I roughly dried my Head with a hairdryer, then sent the slice cakes packaged from the village below the ski resort to Lizhael, and came Outside with an ice Box and grilling cheese bought from the farm.</p>
-<p>"Ryuta-cchi~! Why are you so late?!"</p>
+<p>"Ryuta-cchi! Why are you so late?!"</p>
 <p>Because I had unknowingly stayed in the hot spring for a long time, what with drying my Hair and sending the gift to Lizhael, I was a little late for the promise to meet the Students at 6:50 PM.</p>
 <p>Of course, since I wasn't thirty minutes or several hours late, but merely a few minutes late, the only Student with her Hands on her Waist, pouting, was Seizawa Shii.</p>
 <p>"Sorry, I unknowingly stayed in the hot spring for too long. But it's only 6:54, so just this once, please."</p>
-<p>"Just this once~?!"</p>
+<p>"Just this once?!"</p>
 <p>Since the kind Gyaru, Seizawa Shii, forgave my lateness, we immediately took the elevator, exited the main building of the Resort, and went to the barbecue area.</p>
 <p>From the Sky, snow was falling a little more heavily than two hours ago. From the sleet-like snow earlier, it was now falling with a slight Heavy snowfall feeling.</p>
 <p>The barbecue area, due to the characteristic heavy snowfall in this region, was an indoor barbecue area rather than an outdoor one, and it had three large chimneys with exhaust fans installed, so the Smell seemed like it would be less.</p>
 <p>At the barbecue area, the University Students we had seen yesterday were there, and it seemed they intended to grill their own Meat because the Price of the Resort restaurant they ate at yesterday was expensive.</p>
 <p>Takakusaki Athena was surrounded by the University Students, having a Conversation, and it seemed she had met the group of University Students while waiting for us.</p>
-<p>"Ah, my Party/Group has arrived~!"</p>
+<p>"Ah, my Party/Group has arrived!"</p>
 <p>Takakusaki Athena, who had been conversing with the University Students, saw us entering the barbecue area, waved her Hand, and approached us. As Takakusaki Athena approached us, the men among the group of University Students made very regretful Expressions.</p>
 <p>"A little late, sorry."</p>
 <p>When I apologized for being late, seeing the clock showed 7:01 PM, Takakusaki Athena waved her Hand as if one minute was nothing.</p>
@@ -37,9 +37,9 @@ chapter = 779
 <p>At my Words, Takakusaki Athena picked up wagyu sirloin and put it on the grill. I put on pork belly and wagyu sirloin.</p>
 <p>As the Smell of grilling Meat was infused with the scent of charcoal, a delicious scent, no less than any other dish, wafted.</p>
 <p>"Ryuta, ah...!"</p>
-<p>As expected, in a Place like this, Alik's 'ah~!' comes first. Alik pushed a well-grilled piece of Meat into my mouth. Naturally, I didn't refuse and ate it, and as expected of the Home Economics Teacher's disciple, it was very well-grilled and delicious.</p>
+<p>As expected, in a Place like this, Alik's 'ah!' comes first. Alik pushed a well-grilled piece of Meat into my mouth. Naturally, I didn't refuse and ate it, and as expected of the Home Economics Teacher's disciple, it was very well-grilled and delicious.</p>
 <p>"Ryuta, is the Meat Alik grilled delicious...?"</p>
-<p>"Yes.... It's delicious, Alik. Alik, you say 'ah~' too."</p>
+<p>"Yes.... It's delicious, Alik. Alik, you say 'ah' too."</p>
 <p>I, too, put the Meat I was grilling into Alik's mouth. Because it had been cut into small, bite-sized pieces in advance, Alik, with her small mouth, could eat it well.</p>
 <p>"It's delicious, Ryuta...!"</p>
 <p>Alik, munching on the Meat, said with a slight smile, as if it were truly delicious.</p>
@@ -60,10 +60,10 @@ chapter = 779
 <p>Because Liquids were heavy and not loaded onto the helicopter, Drinks and Alcohol were prepared in advance by contacting the Resort.</p>
 <p>Because a small amount of Alcohol was prepared to prevent Students from drinking too much, there would be no Students getting drunk and throwing a Drunken Fit.</p>
 <p>Since they are all Seongin now, I thought it would be better to let them drink moderately rather than forcibly stopping them with 'Don't drink Alcohol'. And because the Education of noble Families also included alcohol etiquette Education, I also trusted that.</p>
-<p>"Ryuta-cchi~! Since we've brought Alcohol anyway, let's toast~!"</p>
+<p>"Ryuta-cchi! Since we've brought Alcohol anyway, let's toast!"</p>
 <p>At Seizawa Shii's Proposal, holding a Beer Bottle, everyone raised their Beer Bottles. And they looked at me as if telling me to make a toast, so I chuckled and opened my Mouth.</p>
 <p>"May our troublemakers successfully Graduate...!"</p>
-<p>"Cheers~!"</p>
+<p>"Cheers!"</p>
 <p>Clinking 330mL Nagano local Beer Bottles, we toasted. And we Swallowing Sounded down the Beer.</p>
 <p>Perhaps because it was Beer from a ski resort region, it felt very refreshing. Eating grilled shrimp as an anju made it perfect.</p>
 <p>"Um...."</p>
@@ -72,8 +72,8 @@ chapter = 779
 <p>"Yes, yes...! Thank you."</p>
 <p>As I asked first, they bowed their Heads in greeting, as if grateful. Since we didn't have Sausages among the things we brought, exchanging didn't seem like a bad idea.</p>
 <p>Having received the Sausages, we evenly dished out rock lobster, wagyu, and pork belly and handed them over. We handed over more than we received, and because we had brought plenty in case it wasn't enough, we didn't lack anything to eat.</p>
-<p>"Anyone who wants Sausages, take them from here~!"</p>
-<p>""Yes~!""</p>
+<p>"Anyone who wants Sausages, take them from here!"</p>
+<p>""Yes!""</p>
 <p>Because Sausages were better as Beer anju than the Meat or shrimp we brought, the Sausages were quickly consumed. It was good we exchanged.</p>
 <p>Although it was a small amount of Alcohol, the Atmosphere, which had been slightly stiff due to Takakusaki Athena's presence, softened a little. Takakusaki Athena's Skin, which was pale to the point of being white, also flushed slightly, which was pleasant to see.</p>
 <p>Of course, I didn't know if it was because she was Finnish and had a high Alcohol tolerance, or if Takakusaki Athena herself just had a high Alcohol tolerance, but she didn't seem to get drunk easily from Beer, and her mind seemed clear when I conversed with her.</p>
@@ -87,7 +87,7 @@ chapter = 779
 <p>Takakusaki Athena asked, as she didn't know where her room was.</p>
 <p>"The 2nd Floor."</p>
 <p>The 2nd Floor was the Floor where two-person rooms were gathered. Even though rooms were gathered, it seemed it would be quiet because there were no other customers besides Takakusaki Athena.</p>
-<p>"Let's play the Game of Life today~!"</p>
+<p>"Let's play the Game of Life today!"</p>
 <p>Naturally, since we wouldn't go to Sleep immediately after eating, we decided to play the board games we had brought. While thinking about what board game to play, at Seizawa Shii's Words, the others also stated the board games they wanted to play.</p>
 <p>"Um...."</p>
 <p>"Yes?"</p>

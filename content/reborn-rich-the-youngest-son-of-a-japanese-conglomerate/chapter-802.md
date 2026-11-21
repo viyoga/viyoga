@@ -84,7 +84,7 @@ chapter = 802
 <p>He didn't know if she had changed after being abandoned by her Family or if it was a disposition she had from the beginning, but he found it quite interesting to see his Granddaughter's new Appearance.</p>
 <p>'I may have made the wrong Choice.'</p>
 <p>Saionji Shigetsune muttered incomprehensible Words and started looking at the Report again.</p>
-<p>This is an illustration of Jinmija Yeosa wearing light sky blue lingerie doing a Footjob requested by IsebeuI-nim~!</p>
+<p>This is an illustration of Jinmija Yeosa wearing light sky blue lingerie doing a Footjob requested by IsebeuI-nim!</p>
 <p>I was surprised that the last illustration came out well even though it was a very complicated Scene ㅎㅎ</p>
-<p>Liz in a military officer's Attire requested by seungj050-nim~!</p>
-<p>Kkiyoot~!</p>
+<p>Liz in a military officer's Attire requested by seungj050-nim!</p>
+<p>Kkiyoot!</p>

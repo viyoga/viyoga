@@ -20,17 +20,17 @@ chapter = 639
 <p>,I like that foolish side of you.,</p>
 <p>Foolish... My intelligence stat isn't that low anymore, you know. Seeing my slightly sulky expression, Minamoto Risa chuckled again and asked me to move some luggage.</p>
 <p>While I was moving luggage, I saw Uenozono Karen walking around with a GoPro, talking.</p>
-<p>,We're planning to sell our club anthology and run a café. Right now, we're moving luggage in preparation for tomorrow's festival~!,</p>
+<p>,We're planning to sell our club anthology and run a café. Right now, we're moving luggage in preparation for tomorrow's festival!,</p>
 <p>Uenozono Karen was filming a vlog to upload the day before the festival at Minamoto Risa's request. Since the decision to sell Uenozono Karen's photo cards was made quite late, they were trying to upload it as an advertisement.</p>
-<p>,Actually, I haven't been able to participate in club activities because of my idol work. So, I'm doing it indirectly like this... Ah, Sensei-nim~!,</p>
+<p>,Actually, I haven't been able to participate in club activities because of my idol work. So, I'm doing it indirectly like this... Ah, Sensei-nim!,</p>
 <p>Uenozono Karen called out, and when I looked over, Uenozono Karen came running over, shaking her twintails. *ododo*</p>
 <p>,If you purchase Club Anthology A, you can receive a photo card of our homeroom teacher here.,</p>
 <p>Uenozono Karen, who was talking while pointing the GoPro at me, soon turned the camera back to film her own face.</p>
-<p>,If you purchase Club Anthology B, you can receive my photo card~! Just so you know, I'm not getting any of the money. The proceeds from my photo cards will be donated to the victims of the recent Shinnamgyeong incident.,</p>
+<p>,If you purchase Club Anthology B, you can receive my photo card! Just so you know, I'm not getting any of the money. The proceeds from my photo cards will be donated to the victims of the recent Shinnamgyeong incident.,</p>
 <p>So that's how they're advertising? I laughed awkwardly, *ahahaha*, and carried the luggage up to the second floor. When I went up to the second floor, Seizawa Shii was carrying a fairly large load toward the storage room.</p>
-<p>,Ryuta-chi~! It's heavy!,</p>
+<p>,Ryuta-chi! It's heavy!,</p>
 <p>Seizawa Shii pretended to be weak when she saw me, but since I knew that Seizawa Shii was strangely strong, I laughed and said, ,Don't lie.,</p>
-<p>,Eii~! You're no fun.,</p>
+<p>,Eii! You're no fun.,</p>
 <p>She glared at me for not playing along, then effortlessly lifted the load she had been pretending to struggle with in one hand. And as if she had never glared at me, Seizawa Shii made a V-sign with her fingers and smiled brightly at me.</p>
 <p>Since they were only selling the anthology in the second-floor club room, they didn't need a lot of space. So, they put up a partition and kept the items to be sold or the luggage for the original club activities behind it. Items that shouldn't be lost or were too large to easily store were being moved to the storage room.</p>
 <p>,But were there this many laptops in the club room?,</p>
@@ -69,7 +69,7 @@ chapter = 639
 <p>I gathered the students, gave a brief closing address, and sent them home. Alik went to help out at the Cheongshim Hall, so I need to leave him a message.</p>
 <p>I sent Alik a LINE message saying that the closing address was done, so he could go home as soon as he finished his club work, and left the special class building. It seemed like we finished the fastest. I could see the female students moving busily. There were several tents and makeshift restaurants set up in the main stadium, and in the area where the club rooms were, I saw many people moving luggage like we did.</p>
 <p>As expected, things get done quickly if there are a lot of strong people like in our class. I smiled with the joy of finishing work early and leaving work early, and left the school.</p>
-<p>,I'm home~!,</p>
+<p>,I'm home!,</p>
 <p>I said as usual and opened the door, but I saw two pairs of shoes in the hallway. Who is it? I took off my shoes with a puzzled expression and went into the house. A beauty with pink hair and a beauty with gray hair greeted me, having heard me say I'm home.</p>
 <p>,Good work, Ryuta!,</p>
 <p>,You worked hard.,</p>

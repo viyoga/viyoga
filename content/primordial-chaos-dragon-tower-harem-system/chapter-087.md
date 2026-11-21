@@ -5,7 +5,7 @@ weight = 87
 chapter = 87
 +++
 
-<p>"AaaaaaahhhH~"</p>
+<p>"AaaaaaahhhH"</p>
 <p>Unity moaned out loud as her dam burst again for the third time in 20 minutes. Kent was thrusting so hard that she couldn’t hold back her moan and pleasure screams from escaping her mouth.</p>
 <p>Kent kept thrusting until he couldn’t hold in it anymore. He poured out his load into her inner cave, making sure he filled her womb up before letting her rest on the bed.</p>
 <p>"You turn my third wife" Kent smiled, watching as Lilian moved and bent down. Her waist curved, projecting her butt up.</p>
@@ -18,8 +18,8 @@ chapter = 87
 <p>It didn’t take long for Lilian to cum. But that was what Kent’s dick had been waiting for.</p>
 <p>Lilian’s little sister is a vacuum cleaner. The more Kent thrusts his dick into her, the more tighter she gets. Of course, this keeps driving Kent crazy, so he pushes even harder.</p>
 <p>Any less deep, and things will become boring. So he thrust his dick into her, making sure she felt it deep within her soul.</p>
-<p>"Mmmhh~"</p>
-<p>"AhhhH~"</p>
+<p>"Mmmhh"</p>
+<p>"AhhhH"</p>
 <p>Her moans were doing all the talking.</p>
 <p>Kent knew Lilian liked doggy, so he gave her all the styles he could muster.</p>
 <p>Unity, who was sitting and watching Kent devour her friend and sister, couldn’t stop smiling.</p>

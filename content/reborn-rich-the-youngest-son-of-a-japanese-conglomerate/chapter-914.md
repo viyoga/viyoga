@@ -32,7 +32,7 @@ chapter = 914
 <p>As Kijimoto Jurie pointed to one of the Hospital Rooms, I nodded my Head and approached the Hospital Room she had indicated.</p>
 <p>"Sabu, Shimokawabe seonsaengnim."</p>
 <p>The Hospital Room was a double room, and Fujigasaki Rinka and Shimokawabe Airen, who were friends, were lying side by side.</p>
-<p>"Yo~!"</p>
+<p>"Yo!"</p>
 <p>"Ryuta seonsaengnim, are you alright?"</p>
 <p>I spoke with both of them for a moment, and they both said their Injuries weren't serious.</p>
 <p>Fujigasaki Rinka had her Abyss stolen, but according to Sabu, the Vessel itself wasn't stolen, so she thought the Abyss would slowly but surely recover. I was worried that her maximum Abyss capacity might have been reduced entirely, but it didn't seem to be the case.</p>
@@ -89,10 +89,10 @@ chapter = 914
 <p>At my muttering, Asada Ei bowed her Head apologetically. But this was not Asada Ei's fault. The Jooseodang was not yet a nationwide intelligence Organization. The number of intelligence agents was not yet very large, so they had only established roots in the Tokyo and Miyashi areas, and thus could not have known about the movements of the Anyaji Branches.</p>
 <p>But this Information meant that there was another group that had taken over the Anyaji Branches. After dealing with Anyaji, which had been secretly active in the Japanese martial arts world, another unknown group had appeared....</p>
 <p>Of course, it wasn't predetermined that this unknown group would become an Enemy, but unknown groups were always troublesome. Because of the newly appeared unknown group, I felt my Head Throb.</p>
-<p>Gojoy-nim requested Nagumo Sian lifting her white T-shirt to show her Bra, and Nagumo Sian wearing a Bra + Jeans + High Heels~!</p>
-<p>T-shirt up~!</p>
-<p>Shirt off and High Heels~!</p>
-<p>TheDreaming-nim requested Shii at a martial arts Dojang 1. Training topless~! 2. In an M-Shape posture.</p>
+<p>Gojoy-nim requested Nagumo Sian lifting her white T-shirt to show her Bra, and Nagumo Sian wearing a Bra + Jeans + High Heels!</p>
+<p>T-shirt up!</p>
+<p>Shirt off and High Heels!</p>
+<p>TheDreaming-nim requested Shii at a martial arts Dojang 1. Training topless! 2. In an M-Shape posture.</p>
 <p>1.</p>
 <p>When I included onlookers, they were all topless like Shii, which made it seem like a completely different theme, so I just didn't include them haha.</p>
 <p>When I put G-strings or micro panties and did M-Legs, the pussy flesh came out, so I just changed it to normal panties hahaha.</p>

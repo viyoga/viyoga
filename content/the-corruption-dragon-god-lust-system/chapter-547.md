@@ -5,7 +5,7 @@ weight = 547
 chapter = 547
 +++
 
-<p>“H-Hubby… F-faster~~ aghnn~~ FASTER~~ aghnn!~~”</p>
+<p>“H-Hubby… F-faster aghnn FASTER aghnn!”</p>
 
 <p>Nianxue moaned incessantly, her eyes rolling back as Qingyi fucked her fat, tight pussy.</p>
 
@@ -25,7 +25,7 @@ chapter = 547
 
 <p>One by one, she felt thick spurts of that hot, viscous liquid invade her womb, filling her to the brim.</p>
 
-<p>“Ah… nghnn~~” One last breathless moan escaped her lips before she collapsed, drained of strength.</p>
+<p>“Ah… nghnn” One last breathless moan escaped her lips before she collapsed, drained of strength.</p>
 
 <p>Qingyi pulled back, his cock slipping out of her pussy’s grip.</p>
 
@@ -35,7 +35,7 @@ chapter = 547
 
 <p>“Yes, dear… forever.” Qingyi leaned over her, kissing her.</p>
 
-<p>“Hm… I like that, hehehe~~” Nianxue giggled, and after a moment to recover, she straddled Qingyi. “Can we do it again?”</p>
+<p>“Hm… I like that, hehehe” Nianxue giggled, and after a moment to recover, she straddled Qingyi. “Can we do it again?”</p>
 
 <p>Qingyi froze for a moment before laughing. “Yes, we can.”</p>
 
@@ -89,7 +89,7 @@ chapter = 547
 
 <p>Picking up his clothes, he left the main bedroom, descending the long staircases that connected the purple palace to the rest of the temple.</p>
 
-<p>“Oh… look who finally showed up! Fufufu~~” As soon as Qingyi stepped into the central courtyard, a sweet, mature voice echoed beside him.</p>
+<p>“Oh… look who finally showed up! Fufufu” As soon as Qingyi stepped into the central courtyard, a sweet, mature voice echoed beside him.</p>
 
 <p>Turning his face, he saw Margareth. Her golden hair was already carefully combed, even though it was early in the morning.</p>
 

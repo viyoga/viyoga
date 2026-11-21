@@ -32,7 +32,7 @@ chapter = 44
 <p>Ha, they wanted to cooperate? Dream on!</p>
 <p>"In that case, considering the timing... I can't just leave the image crystal there for four or five days. I need to determine when I can capture the crucial evidence..."</p>
 <p>The girl's worries resurfaced, her shoulders drooping and her expression troubled. "But how am I supposed to know that —"</p>
-<p>"Seri~"</p>
+<p>"Seri"</p>
 <p>Marlina entered the room, "Lord Hydral just sent me a basket of fruit. You... Seri? What are you doing?"</p>
 <p>The gentle older sister looked curiously at her younger sister, who was sprawled across the small round table, wondering what she was up to.</p>
 <p>"I... I'm stretching my body."</p>

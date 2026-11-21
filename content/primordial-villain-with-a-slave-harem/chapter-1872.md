@@ -54,7 +54,7 @@ chapter = 1872
 <p>*Shink.*</p>
 <p>Iris’s sword went home for the first time since the parley began. She rolled the shoulder the ledgers had been chewing on all day, unimpressed, as if the evening had merely finished catching up to her schedule.</p>
 <p>Beside her, a centimeter of steel clicked back into Ayame’s sheath.</p>
-<p>"Mm~" was all the samurai said, deeply satisfied.</p>
+<p>"Mm" was all the samurai said, deeply satisfied.</p>
 <p>Stormlord turned to his sergeant and issued orders past the arrest without pausing for breath. "Send word to the capital; I want this seat logged as commission ground before dawn. Every servant confined to quarters, every fire crew under escort, and nobody touches a page without the investigator’s leave."</p>
 <p>The yard broke into motion around him, and the commission poured inward.</p>
 <p>Quinlan fell in with the flow, then peeled out of it at the east wall, where Black Fang had reclaimed her patch of shadow.</p>

@@ -7,7 +7,7 @@ chapter = 47
 
 <p>"Master... should I go a bit harder?" Dante asked as he gave her breasts a gentle squeeze.</p>
 <p>But, he didn’t wait for her answer. His thumbs found her stiff nipples and pinched them.</p>
-<p>"Hyaa~! Ahn~" Natasha moaned sharply, her body twitching from the sudden jolt.</p>
+<p>"Hyaa! Ahn" Natasha moaned sharply, her body twitching from the sudden jolt.</p>
 <p>He kept playing with her breasts for a while, squeezing them firmly, rolling her nipples between his fingers and pulling them lightly.</p>
 <p>Every time he pinched or tugged, Natasha let out another shaky moan, her body twitching under his hands.</p>
 <p>After some time, his hands finally left her breasts and slowly slid down her back.</p>
@@ -57,7 +57,7 @@ chapter = 47
 <p>With a rough groan, he came hard.</p>
 <p>Thick ropes of cum shot into her mouth and splashed across her face as she pulled back slightly.</p>
 <p>Natasha wiped the corner of her mouth with her thumb and looked at the mess on her face.</p>
-<p>"It got even dirtier... I should clean this up properly~" She added with hearts forming in her eyes.</p>
+<p>"It got even dirtier... I should clean this up properly" She added with hearts forming in her eyes.</p>
 <p>She stood up, pulled her skirt up, and pushed her panty to the side.</p>
 <p>Without hesitation, she positioned herself above him. She grabbed his still-hard cock and rubbed the tip against her wet pussy before slowly lowering herself.</p>
 <p>The moment the thick head pushed inside, Natasha’s eyes widened. She tried to take him in, but she had underestimated his size.</p>

@@ -57,9 +57,9 @@ chapter = 855
 <p>"He'll demand more Money."</p>
 <p>"Tell him we'll give him as much Money as he wants. Anyway...."</p>
 <p>Takakusaki Athena felt she knew what Takakusaki Gengo would say after "Anyway...." He would kill them and take it back, or Brainwash them with Anyaji's Jusul and make them bring it back to him themselves. He was so nonchalant about harming people that he probably killed his own Parents easily. Takakusaki Athena pretended to nod her Head, avoiding Takakusaki Gengo's Eyes, and replied, "Understood." Because if she met his Eyes now, she felt she might say something without realizing it.</p>
-<p>Requested by seungj050-nim: Liz and Home Ec Teacher wearing Greek goddess Clothes~!</p>
+<p>Requested by seungj050-nim: Liz and Home Ec Teacher wearing Greek goddess Clothes!</p>
 <p>Starting with Liz!</p>
-<p>Home Ec Teacher~!</p>
-<p>Requested by TheDreaming-nim: Uenozono Karen's IF Story Subway sudden situation and escaping Appearance~!</p>
-<p>Subway sudden Breast Exposure~!</p>
-<p>Escaping~!</p>
+<p>Home Ec Teacher!</p>
+<p>Requested by TheDreaming-nim: Uenozono Karen's IF Story Subway sudden situation and escaping Appearance!</p>
+<p>Subway sudden Breast Exposure!</p>
+<p>Escaping!</p>

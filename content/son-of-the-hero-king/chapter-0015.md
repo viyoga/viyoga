@@ -11,7 +11,7 @@ chapter = 15
 <p>However, with him nearing the demarcation age of fifteen, he could already be considered an adult, by this world's standards, in every sense of the word. He having a nice couple of nights of passion with Milia, and his other trysts with the maids, also helped her to make the necessary step. Everything incorporated, Camelia was now ready to take their relationship to the step she was waiting for, for ages.</p>
 <p>Feeling bold, he casually stretched out his hands, brazenly groping her ample breasts through her white dress. Feeling them up, he instantly felt her momentarily shiver under his brash touch.</p>
 <p>Delighted by her reactions, Sol thoroughly toyed with the globes of fat in his hands, letting go of the last few emotional restraints holding him back.</p>
-<p>“Nn~!...”</p>
+<p>“Nn!...”</p>
 <p>The Supreme Daughter, being the young holy woman she was and considering what she represented, had never built up a resistance to pleasure. She never had to, to be exact.</p>
 <p>As his skilled hands, fondled her ample breasts, playing with them and teasing them, she grew weak and putty in his hands.</p>
 <p>Seeing her gradually intensifying reactions to his shameless touch, Sol leaned over close to her side, whispering sweet words in her ear, his hands continuing to possessively grope her sizeable tits.</p>
@@ -25,7 +25,7 @@ chapter = 15
 <p>"Don't you think I am a shameless woman who is lusting over someone so much younger than me?"</p>
 <p>"Of course not."</p>
 <p>Raising her chin with his hand, staring at her quivering blue-colored eyes, he kissed her on her plump and inviting lips.</p>
-<p>"Nn~!!"</p>
+<p>"Nn!!"</p>
 <p>He could feel her resist instinctively at first before immediately stopping her struggles and slowly but clumsily trying to reciprocate his advances.</p>
 <p>It was weirdly cute and endearing to see a grown woman show such a lack of experience.</p>
 <p>His lips now pressed down onto hers, she closed her eyes shut, her mouth also closing from nervousness. He lightly kissed her tightly closed mouth a few times and then gently sucked on her lower lip. He pulled away for a moment.</p>
@@ -44,7 +44,7 @@ chapter = 15
 <p>Sol, deciding that he shouldn't let her cool down, brought back his hand to her dress and swiftly tugged it down, undressing her with smooth motions.</p>
 <p>In just a few seconds, Camelia was left in a pair of black underwear. The contrast between her pale white skin and the deep black tint of her underwear was truly a sight enough to make a monk give up his vows of celibacy.</p>
 <p>"You are simply a work of art."</p>
-<p>"Ara~! Is that so?"</p>
+<p>"Ara! Is that so?"</p>
 <p>Despite her confident snide, Sol could see bits and pieces of her nervousness dancing in the depth of her mesmerizing eyes, slowly leaking out of her calm front. Indeed. Camelia was feeling shy. She was in no way as bold as Lilith and usually wore conservative clothes. It was the first time a man saw so much of her skin.</p>
 <p>'There's no need to rush. I should take my time with her.' the thought passed the boy's mind as he read the hesitation in her eyes.</p>
 <p>“Ah!?”</p>

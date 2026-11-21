@@ -17,7 +17,7 @@ chapter = 497
 
 <p>Julian didn’t answer right away. Instead, he exhaled and stretched, raising his arms above his head. Then he twisted side to side, casual and playful, like he hadn’t noticed her intense gaze on his.</p>
 
-<p>“What’s the problem, mo~ther?” he asked, intentionally dragging the word with a teasing tone.</p>
+<p>“What’s the problem, mother?” he asked, intentionally dragging the word with a teasing tone.</p>
 
 <p>Annie came to a stop right in front of him, her arms crossed under her chest. Her gaze lingered longer than usual, and not entirely in a maternal way.</p>
 

@@ -11,7 +11,7 @@ chapter = 945
 <p>It was the kind of gathering Jasmine would have loved to be part ofand would be, one day soon.</p>
 <p>But then a shift in the atmosphere occurred.</p>
 <p>Kitsara, lounging on the stone railing with her fox tails lazily swishing behind her butt, began suggestively rubbing her smooth thighs together. Her needy eyes sparkled with nothing but desire.</p>
-<p>"Mmm, Quin~" she cooed, voice sweet as sin. "Could we, perhaps, speak in private for a little while? Just the two of us... Just five minutes is enough..."</p>
+<p>"Mmm, Quin" she cooed, voice sweet as sin. "Could we, perhaps, speak in private for a little while? Just the two of us... Just five minutes is enough..."</p>
 <p>Quinlan released a deep laugh in response, running a hand through his hair. "Youve been holding back for far too long, hmm, my Slutty Fox?"</p>
 <p>"Dont call me that! I just..."</p>
 <p>He cracked his neck and grinned, ignoring her weak protest entirely. "About time we celebrated properly."</p>

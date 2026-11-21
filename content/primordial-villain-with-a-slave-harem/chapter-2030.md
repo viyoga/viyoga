@@ -54,7 +54,7 @@ chapter = 2030
 <p>Veshara leaned forward again. Her long tongue passed slowly over her lips.</p>
 <p>"You saw his face?"</p>
 <p>"All of us did," Brena replied.</p>
-<p>"Would you be sweet enough to tell me what he looks like~?"</p>
+<p>"Would you be sweet enough to tell me what he looks like?"</p>
 <p>"Oh, Goddess..."</p>
 <p>The words escaped Tavi in a breathy little sigh. She pressed her thighs together beneath her skirt, remembering that mouth smiling at Della across the fire.</p>
 <p>"Handsome," Della said. "Very... handsome."</p>

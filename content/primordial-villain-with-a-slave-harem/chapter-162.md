@@ -26,7 +26,7 @@ chapter = 162
 <p>She doesn't even consider me enough of a threat to bother with proper linen clothes, let alone her Starforged armor.</p>
 <p>She's toying with me.</p>
 <p>A low, aggressive grunt escapes me as I narrow my eyes at her. "What's the meaning of this, Ayame?" My voice is thick with irritation, a combination of anger and disbelief boiling under the surface. ŘàΝỗβÈş</p>
-<p>She giggles- a light, almost melodic sound that only adds fuel to the fire. "Oh, Master~" she purrs, finally turning around to fully showcase her body. She strapped the bandages around her lady parts in a thin horizontal line but that's about it.</p>
+<p>She giggles- a light, almost melodic sound that only adds fuel to the fire. "Oh, Master" she purrs, finally turning around to fully showcase her body. She strapped the bandages around her lady parts in a thin horizontal line but that's about it.</p>
 <p>I can see the skin of her shoulders, tummy, thighs, even the upper and lower ends of her breasts- everything, and even where she is covered, the appendage does little to hide her curves.</p>
 <p>Her eyes sparkle mockingly as she begins to take slow, deliberate steps toward me as her hips sway with exaggerated sensuality with each movement. It's obvious she's doing it on purpose, every step designed to provoke me, to aggravate me even further. "I thought a complete pervert like you would appreciate the view.</p>
 <p>After all, you've been lusting after me ever since you first laid your eyes on me back at the slave house."</p>

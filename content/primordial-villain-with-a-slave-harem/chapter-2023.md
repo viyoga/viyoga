@@ -59,7 +59,7 @@ chapter = 2023
 <p>The redhead shot into a knot of greenskins. Her first punch folded a brute around her fist; the next drove it into the creatures behind it, and she followed with a sweeping kick that cleared the ground around her.</p>
 <p>Across from her, the bare-knuckled woman barked a delighted laugh.</p>
 <p>Vex cut through a creature between them, her blade trailing the dark magic of [Hex of Decay]. The shield it raised crumbled around the edge of her sword.</p>
-<p>"Why are you having so much fun, young lady, if I might ask~?" she purred.</p>
+<p>"Why are you having so much fun, young lady, if I might ask?" she purred.</p>
 <p>"They’re still coming, aren’t they?" The woman punched another greenskin off its feet. Vex’s smile widened before she turned to meet the next charge.</p>
 <p>Della found space beside the pink-haired shieldbearer and held it with her while Brena reloaded behind them. With Tavi watching the brush at their backs, staff ready whenever a creature tried to crawl through the dead, Della could keep her shield facing the slope.</p>
 <p>"That way!" Tavi warned, pointing beneath a fallen trunk.</p>

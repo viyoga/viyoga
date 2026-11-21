@@ -43,7 +43,7 @@ chapter = 963
 <p>Calypso watched the guards go, sipped her smoothie, and looked down at Bastet.</p>
 <p>"I caught her nicely, I thought."</p>
 <p>"You did," Bastet agreed. "You set her back on her feet like a broom, and she never once noticed you had hold of her."</p>
-<p>Kaiden’s interface pinged. Nyx, from the compound, watching forty feeds: ’Handled. Enjoy your date, Kai~’</p>
+<p>Kaiden’s interface pinged. Nyx, from the compound, watching forty feeds: ’Handled. Enjoy your date, Kai’</p>
 <p>...</p>
 <p>Nikki posted the clip from her car, cut at the eleven-second mark, captioned ATTACKED BY KAIDEN GREY’S MONSTER AT MERIDIAN GALLERIA. FULL STORY DROPPING. THEY CAN’T SILENCE ME.</p>
 <p>For nineteen minutes, it worked.</p>

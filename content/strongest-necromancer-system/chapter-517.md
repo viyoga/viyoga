@@ -55,7 +55,7 @@ chapter = 517
 <p>Raygun</p>
 <p>Rank: SSS</p>
 <p>Durability: 100%</p>
-<p>Boosts: +300% ~ 50% Attack Power</p>
+<p>Boosts: +300%  50% Attack Power</p>
 <p>Description: A complex weapon created by the Machina race as a means of boosting the attack power of their soldiers. This weapon can only be used by those with the Cybertronic Gene. It works by absorbing mana from the user’s body and multiplying the power output of that mana in order to increase the damage done by the attack. Lower-ranked mana [D to B-Rank] can be improved by nearly 300%; meanwhile, higher-ranked mana [SSS-Rank and above] can only be improved by 50%.</p>
 <p>[Cooldown: 30 Secs]</p>
 <p>——</p>

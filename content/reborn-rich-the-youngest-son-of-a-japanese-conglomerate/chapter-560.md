@@ -25,7 +25,7 @@ chapter = 560
 <p>Most of the children of prestigious families memorized the members of famous families in order to avoid making mistakes at high-society parties or gatherings, so Naruse Shiyo tilted her head at the unfamiliar name of Taira Ryuta.</p>
 <p>,Actually....</p>
 <p>When I told her that I was an illegitimate child of the Taira family and that I had come to the academy as a teacher on a mission from my grandfather, Naruse Shiyo was very interested.</p>
-<p>,Wow~! I thought things like this only happened in movies! No wonder I thought you were strong for a teacher, you came from th-... no, that place?</p>
+<p>,Wow! I thought things like this only happened in movies! No wonder I thought you were strong for a teacher, you came from th-... no, that place?</p>
 <p>,That's not it. It hasn't even been a year since I found out about my surname. Actually, the reason I'm strong is because my master is Fujigasaki Rinka.</p>
 <p>,Eeeeeh?!</p>
 <p>Naruse Shiyo was even more surprised than when I revealed my real name. Naruse Shiyo, who had been weak but loved strong genres like martial arts and heavy metal, was naturally unable to come to her senses when the name of Fujigasaki Rinka, who could be said to be the pinnacle of strength, came up.</p>
@@ -46,15 +46,15 @@ chapter = 560
 <p>In fact, I had enough materials to create an information team, with Sakagami Rena, a ninja, Asada Fukushi, a former manager from the Self-Defense Forces' information unit, Sawayanagi Sinya, a VR diver, Ryuto Construction's Tang So-hwa, who was well-versed in back alley information, and Eve, the dark merchant, so I was thinking of holding a meeting to properly cook with those materials.</p>
 <p>So, I had reserved the meeting place in advance and asked Eve to set up various equipment.</p>
 <p>When I entered the conference room, the students from St. Francisco Girls' Academy who had arrived early were sitting down, and Eve stood up to greet me.</p>
-<p>,Ah, Ryuta-nim! Hello~!</p>
+<p>,Ah, Ryuta-nim! Hello!</p>
 <p>Eve was wearing a formal outfit, a black skirt and a white shirt, because of the word "meeting," and the students were wearing casual clothes, trying not to attract attention on their way here.</p>
 <p>,I'm a little late.</p>
 <p>,No. There are still... 1 minute and 23 seconds left until the meeting is scheduled to start!</p>
 <p>As expected of an AI android, she's accurate. I sat Naruse Shiyo in the seat labeled Naruse Shiyo and opened my mouth.</p>
 <p>,Naruse is joining us from today, so let's teach her well if she doesn't know anything.</p>
-<p>,Yes~!</p>
+<p>,Yes!</p>
 <p>I informed everyone that Naruse Shiyo was joining us and sat down in my seat, the head seat. It was a long rectangular table with quite a few empty seats, but all the empty seats were taken.</p>
-<p>,Then let's start the meeting~!</p>
+<p>,Then let's start the meeting!</p>
 <p>As Eve sat down in the seat to my left and spoke, a subtle woong sound was heard, and people attending the remote conference via hologram began to appear in the empty seats. This hologram equipment was what I had asked Eve for. I thought it would be quite useful for meetings, so I asked her to prepare it, and she did a great job in a short amount of time.</p>
 <p>Starting with Mimata Chieri, my secretary and the president of East Weapon, Sawayanagi Azuma and Sawayanagi Sinya of Seiryu Military Company, Jinmija Yeosa of Hatake Investment Company, Tang So-hwa of Ryuto Construction, Kurayamda Kirie, who would be creating a new PMC, and Asada Fukushi appeared as holograms.</p>
 <p>Han Yu-gyeong, Yukiko, and Nagumo Sian, who could be said to be my women and business partners, were unable to attend the meeting because this agenda was about creating an information team in Japan, so it was not related to Han Yu-gyeong, and the other two were affiliated with the Taira Group, so they did not attend the meeting because they had the Taira Group's information team or their own information team if they needed information.</p>
@@ -65,7 +65,7 @@ chapter = 560
 <p>,Hatake Investment Company is the parent company of Hatake Mining, which recently discovered a large-scale mithril mine. Is that company's president your mother, Sensei?</p>
 <p>After Jinmija Yeosa's greeting, Saionji Diana, who was very interested in this area, muttered in surprise. Even though she was abandoned by her family, she was the daughter of Saionji Bank, so she was usually interested in the economy and knew Hatake Investment Company well. What surprised the students other than Saionji Diana was that Jinmija Yeosa was my mother. She was originally youthful, but after eating Juaan-gwa, she looked like she was in her mid-thirties even if you were generous, so it was surprising.</p>
 <p>Next was Mimata Chieri, and of course, she was the president of East Weapon, Japan's largest PMC, so some interested students and Kurayamda Kirie and Asada Fukushi looked at her with surprised eyes.</p>
-<p>Seiryu Military Company and Ryuto Construction were not famous, so they were skipped, and when it was Kurayamda Kirie's turn, everyone started buzzing. It was natural for the students to be surprised that the former vice-teacher, who had suddenly disappeared, was appearing here. However, since it was a conference room, there was no child who shouted loudly, but if Seizawa Shii was there, she would have made a fuss, saying, Ryuta-cchi! Kirikiri is here~☆.</p>
+<p>Seiryu Military Company and Ryuto Construction were not famous, so they were skipped, and when it was Kurayamda Kirie's turn, everyone started buzzing. It was natural for the students to be surprised that the former vice-teacher, who had suddenly disappeared, was appearing here. However, since it was a conference room, there was no child who shouted loudly, but if Seizawa Shii was there, she would have made a fuss, saying, Ryuta-cchi! Kirikiri is here☆.</p>
 <p>The students also stood up one by one and introduced themselves, and since they were refreshing female students, everyone watched the introductions with a pleased look.</p>
 <p>,Shall we start the meeting? The main agenda of this meeting is to create our own information team. Our business is slowly growing, so if we don't have information, we'll have no choice but to be passively attacked, so I thought we needed an information team, so I summoned everyone like this.</p>
 <p>Hatake Investment Company, East Weapon, and Ryuto Construction were all growing in size, so forces that were subtly probing us began to appear. If we knew about those movements in advance, we could prepare for them, so the need for an information team was growing.</p>

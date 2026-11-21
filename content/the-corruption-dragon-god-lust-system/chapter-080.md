@@ -23,7 +23,7 @@ chapter = 80
 
 <p>They took turns using their tongues on the large, throbbing member and trying to swallow it all, until their full, juicy lips reached the base, Qingyi’s cock sliding down their throats.</p>
 
-<p>“Mmph~~” A muffled moan escaped the lips of one of the priestesses as another spurt of hot, sticky cum left Qingyi’s cock, going down her throat in greedy gulps.</p>
+<p>“Mmph” A muffled moan escaped the lips of one of the priestesses as another spurt of hot, sticky cum left Qingyi’s cock, going down her throat in greedy gulps.</p>
 
 <p>“Hey, leave some for me too!” The other priestess complained, pushing her sister away before taking Qingyi’s cock for herself. Two more blasts of cum hit her face and breasts, covering her with the handsome young man’s seed.</p>
 

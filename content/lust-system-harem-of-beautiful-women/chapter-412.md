@@ -11,7 +11,7 @@ chapter = 412
 
 <p>Who could refuse such an invitation? Luis immediately lowered his head and began licking the snow-white flesh of her breast in a very lewd manner, then took the small nipple into his mouth, sucking on it with lewd sounds.</p>
 
-<p>&quot;Brother-in-law... it feels so good, even better than when Bunny kisses them~&quot;</p>
+<p>&quot;Brother-in-law... it feels so good, even better than when Bunny kisses them&quot;</p>
 
 <p>Avery’s face immediately flushed completely red. She hugged Luis’s head and moaned.</p>
 

@@ -29,7 +29,7 @@ chapter = 486
 <p>"I will prepare the data, Acting Head-nim...!"</p>
 <p>Daigo Tadanori and his secretary busily began preparing to find a force to join hands with.</p>
 <p>###</p>
-<p>"Welcome~! You're right on time?"</p>
+<p>"Welcome! You're right on time?"</p>
 <p>Eve greeted us with her usual attitude. Saionji Diana and I also greeted Eve and entered the basement of the Miyashi Amasang branch, a love hotel.</p>
 <p>"It's been a while, Eve."</p>
 <p>"Hello, Eve."</p>

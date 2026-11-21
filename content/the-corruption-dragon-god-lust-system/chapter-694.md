@@ -25,7 +25,7 @@ chapter = 694
 
 <p>Along with his bared muscles, Qingyi’s cock rose gloriously, throbbing hard as stone, a bead of pre-cum dripping from its reddish tip.</p>
 
-<p>“Oh my, fufufu~” Rouxi let out a soft giggle, a fierce blush spreading across her face as her eyes locked onto Qingyi’s enormous member.</p>
+<p>“Oh my, fufufu” Rouxi let out a soft giggle, a fierce blush spreading across her face as her eyes locked onto Qingyi’s enormous member.</p>
 
 <p>Of course she knew what that member was. She just wasn’t prepared for such… well, size.</p>
 

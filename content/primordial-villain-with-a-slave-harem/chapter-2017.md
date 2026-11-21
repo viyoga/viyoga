@@ -94,7 +94,7 @@ chapter = 2017
 <p>Della turned toward her.</p>
 <p>Her friend had the decency to blush, although it did very little to weaken the hopeful expression aimed at Black.</p>
 <p>"It seemed worth asking."</p>
-<p>"Hubby’s mine for a moment~" Vex reached into Black’s bowl with her spoon.</p>
+<p>"Hubby’s mine for a moment" Vex reached into Black’s bowl with her spoon.</p>
 <p>She lifted a piece of crab to his mouth. He accepted it, his hand coming to rest against her waist, and the witch smiled at Tavi while he ate.</p>
 <p>Tavi’s fingers closed around Della’s wrist beneath the edge of their bowls.</p>
 <p>Della gripped her back.</p>

@@ -9,7 +9,7 @@ chapter = 934
 <p>According to Sabu Fujigasaski Rinka's Words, her Sabu's Sabu, Soda Haruto, was kidnapped by An-yaji and then handed over to a Sorcerer named Black Sage. The Black Sage was the one who laid the foundation for An-yaji's Sorcery, and he was with An-yaji from its early days but has now left, though his True Identity has not yet been uncovered. Still, since they now knew the name Black Sage, she said she was going to America to track him based on that.</p>
 <p>"Well.... If that's the case, there's no Choice but to do it. I can't go to America right away, but I'll provide some support."</p>
 <p>Having just heard the Story, I hadn't thought about how to provide support, but I decided to help Fujigasaski Rinka with Money, equipment, and manpower, and returned to the Hospital Room with her.</p>
-<p>"Ryutacchi~! What happened?"</p>
+<p>"Ryutacchi! What happened?"</p>
 <p>"Well.... What can I do? Sabu says she's going. Are you really going to be okay in America, Shii?"</p>
 <p>Seizawa Shii, perhaps thinking I would oppose her going to America, asked with a slightly worried Expression, but when I spoke as if it were fine, she showed a relieved Expression.</p>
 <p>"I've been to Foreign Countries a few times for missions, so I'm fine. Aren't you worrying too much, Ryutacchi? I'm not Ryutacchi's Student anymore?!"</p>
@@ -63,5 +63,5 @@ chapter = 934
 <p>"Kiyohira, I'll be going now." "Okay. You don't have to come too often. My Arm being severed is my own fault."</p>
 <p>Kiyohira, with a slightly bitter Expression, spoke at my Words that I was leaving. It was Takakusaki Gengo who tore off his Arm, but Kiyohira was blaming himself. He seemed to think that getting involved with An-yaji in the first Place was a Mistake. He looks a bit dejected now, but once he gets the Cyber Implant, he'll probably return to his original self that I know. I patted Kiyohira's Shoulder as if to tell him to cheer up, then bowed to Musashi Takuro, opened the Hospital Room Door, and went Outside.</p>
 <p>There were no requested Illustrations today, so I made a few Illustrations as a Test to see if the new program works well haha.</p>
-<p>Adult Linling~!</p>
-<p>Tsukiyo, who hasn't appeared yet(?)~!</p>
+<p>Adult Linling!</p>
+<p>Tsukiyo, who hasn't appeared yet(?)!</p>

@@ -161,9 +161,9 @@ chapter = 806
 
 <p>But then Blanche thought: her daughter hadn’t objected, which was even more infuriating. It proved her innocent, adorable daughter had long been corrupted by him...</p>
 
-<p>&quot;Mmm... Daddy... I can’t take it~!!!&quot;</p>
+<p>&quot;Mmm... Daddy... I can’t take it!!!&quot;</p>
 
-<p>&quot;I’m coming... it feels so good~!!!&quot;</p>
+<p>&quot;I’m coming... it feels so good!!!&quot;</p>
 
 <p>Suddenly, Avery shuddered, her body stiffening and turning pink all over.</p>
 
@@ -181,7 +181,7 @@ chapter = 806
 
 <p>He gave her a lecherous grin, then pinned the limp little loli beneath him, kissing her and soothing her through the afterglow.</p>
 
-<p>&quot;Godfather... you’re so good~...&quot;</p>
+<p>&quot;Godfather... you’re so good...&quot;</p>
 
 <p>The little loli murmured in bliss, unaware her mother was watching at the door.</p>
 
@@ -197,9 +197,9 @@ chapter = 806
 
 <p>As his cock sank in inch by inch, her daughter’s childish, coquettish moans began.</p>
 
-<p>&quot;So good... Godfather~!!!&quot;</p>
+<p>&quot;So good... Godfather!!!&quot;</p>
 
-<p>&quot;You’re always so gentle... ahhh... it’s inside... so good~... Avery doesn’t hurt at all anymore~.&quot;</p>
+<p>&quot;You’re always so gentle... ahhh... it’s inside... so good... Avery doesn’t hurt at all anymore.&quot;</p>
 
 <p>Between kisses, his cock was fully buried. From her angle, she could see it sliding in and out with tender rhythm.</p>
 

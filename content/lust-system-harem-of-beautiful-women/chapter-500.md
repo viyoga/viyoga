@@ -63,11 +63,11 @@ chapter = 500
 
 <p>&quot;What&#x27;s wrong?&quot;</p>
 
-<p>Luis affectionately stroked her head and said with a laugh, &quot;Who has dared to offend my precious little treasure~&quot;</p>
+<p>Luis affectionately stroked her head and said with a laugh, &quot;Who has dared to offend my precious little treasure&quot;</p>
 
 <p>The sensation of that sudden embrace was truly wonderful, especially when her two soft mounds pressed against his arm. That tender, yielding impact was simply sublime.</p>
 
-<p>Leah&#x27;s little face was flushed pink, her lips pouted in a sulk as she spoke with a voice full of grievance, &quot;You&#x27;re the bad one! Why didn&#x27;t you come pick me up from school~&quot;</p>
+<p>Leah&#x27;s little face was flushed pink, her lips pouted in a sulk as she spoke with a voice full of grievance, &quot;You&#x27;re the bad one! Why didn&#x27;t you come pick me up from school&quot;</p>
 
 <p>Luis replied helplessly, &quot;Your mom said she would go get you, so I didn&#x27;t.&quot;</p>
 
@@ -113,7 +113,7 @@ chapter = 500
 
 <p>The only one who could be this boisterous and unrestrained was the younger sister she had practically raised herself. Though called a sister, to Hela, who had taken on a motherly role, Chloe was entirely a child she had utterly spoiled.</p>
 
-<p>&quot;Sis! What time is it? Get up and eat~&quot;</p>
+<p>&quot;Sis! What time is it? Get up and eat&quot;</p>
 
 <p>Without a hint of ceremony, she yanked the covers off. Even Hela&#x27;s own son wouldn&#x27;t dare do such a thing. Only this little sister dared to be so brazen.</p>
 

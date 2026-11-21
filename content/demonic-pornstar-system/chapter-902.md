@@ -36,14 +36,14 @@ chapter = 902
 <p>At the card table, things had escalated.</p>
 <p>Nyx dealt with spatial precision, each card gliding to its recipient without her fingers visibly releasing it. Three rounds in, she had won every hand.</p>
 <p>"You’re cheating," Alice said.</p>
-<p>Nyx’s pink eyes widened with wounded innocence. "Little sis is a sore loser~"</p>
+<p>Nyx’s pink eyes widened with wounded innocence. "Little sis is a sore loser"</p>
 <p>"You moved the cards."</p>
 <p>"I dealt them. That’s how dealing works."</p>
 <p>Alice’s expression sharpened, focused and dangerous. She turned to Alexandra. "We’re taking her down."</p>
 <p>Alexandra yelped. "I don’t even understand the rules properly yet! I keep thinking I have a winning hand but I always lose!"</p>
 <p>"Concentrate, Lexi! Prove you’re not a dumb bimbo!"</p>
 <p>"N-no one called me that besides you just now! And I’m trying!"</p>
-<p>Nyx watched them huddle over their cards and smirked. "Working together is actually cheating, you know~"</p>
+<p>Nyx watched them huddle over their cards and smirked. "Working together is actually cheating, you know"</p>
 <p>Alice scoffed. "You talk too much."</p>
 <p>Nyx set her hand down and tilted her chin, her smile losing its playfulness. "Oh, you’re on, little sis."</p>
 <p>She gathered the deck with a flick of spatial manipulation, cards lifting off the table and restacking in her palm. "Let me show you the hierarchy in this family."</p>

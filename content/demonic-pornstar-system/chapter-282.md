@@ -21,7 +21,7 @@ chapter = 282
 <p>But when he turned to check on the others...</p>
 <p>He paused.</p>
 <p>Luna was leaning against a column, massaging her pained back while cursing under her breath, releasing truly unfiltered gamer girl curse phrases.</p>
-<p>However, her eyes widened. She began stroking her belly with both hands, eyes closed in utter bliss. "Mmh~... I feel... full. Like... actually full." Finally, not feeling starved after every single encounter felt utterly liberating.</p>
+<p>However, her eyes widened. She began stroking her belly with both hands, eyes closed in utter bliss. "Mmh... I feel... full. Like... actually full." Finally, not feeling starved after every single encounter felt utterly liberating.</p>
 <p>"What?" Nyx blinked, then blinked again. "Wait. Wait... Yeah! I’m not starving either."</p>
 <p>Aria bounced in place as a giddy grin spread across her sweaty, blood-smeared face. "I feel fine! How is this possible?!"</p>
 <p>Bastet squinted her eyes with a suspicious, feline hum. But even she couldn’t suppress the pleased smile that followed. "I feel deeply nourished..."</p>

@@ -12,10 +12,10 @@ chapter = 308
 <p>"Let's have a good high school life together."</p>
 <p>I finished my first greeting and opened the attendance book. Roughly counting, there were about 11 students' names written in the attendance book, but only about seven students were sitting.</p>
 <p>"Since it's our first meeting today, I'll call the roll to get familiar with your faces. Number 1, Seizawa Shii."</p>
-<p>"Neee~☆"</p>
+<p>"Neee☆"</p>
 <p>When I called her name, a female student with brightly dyed hair and white skin in a shiro-gyaru style raised her hand. She wasn't wearing a school uniform but a fancy pink lolita-style dress. With fair skin and flamboyant blonde hair, and a B-cup chest, she was quite a beauty. Actually, if she wasn't wearing a uniform, I wouldn't know she was a student.</p>
 <p>"Seizawa-yang, please wear your uniform at least when you come to school."</p>
-<p>"Neee~!"</p>
+<p>"Neee!"</p>
 <p>She's good at answering. For your information, this Seizawa Shii is the daughter of the Seizawa family, a political family that has produced prime ministers in the Japanese political world, and she's also a partner in delinquency with Minamoto Lisa, who I'm targeting.</p>
 <p>"Number 2, Saionji Diana."</p>
 <p>"...Yes..."</p>
@@ -45,7 +45,7 @@ chapter = 308
 <p>"Sensei, do you have a girlfriend?"</p>
 <p>As soon as I said to ask questions, Seizawa Shii raises her hand and asks first. Hmm, I don't have a girlfriend. I have female friends, though.</p>
 <p>"Unfortunately, no."</p>
-<p>"Sensei, you're handsome, so I'll nominate myself as your girlfriend~!"</p>
+<p>"Sensei, you're handsome, so I'll nominate myself as your girlfriend!"</p>
 <p>Geez, she's so precocious. It's probably not serious, but I shook my head because of what the headmaster said at the beginning, and I shouldn't hit on female students openly. The previous homeroom teacher was also kicked out due to a woman problem led by Minamoto Lisa, so I have to be careful.</p>
 <p>"I'm a teacher, and you're a student. So, no."</p>
 <p>"Ehhh! Sensei, are you impotent?"</p>
@@ -75,7 +75,7 @@ chapter = 308
 <p>Fortunately, everyone skillfully downloaded the textbook files to their tablets without me having to do it. The next schedule is... introducing each other, but there's no need to do that.</p>
 <p>"Today's schedule is over, so everyone can go home now. Good job."</p>
 <p>Most of them get up in a rush at my words. Some students were happy that it ended quickly, and some were annoyed that they came to school for this. It's understandable to be annoyed since they're being sent home an hour after coming to school. I would be happy, though.</p>
-<p>"Lisa-ttang~! I missed you~☆"</p>
+<p>"Lisa-ttang! I missed you☆"</p>
 <p>Seizawa Shii hung on Minamoto Lisa's back and joked around, and Minamoto Lisa said 'stop it' and released Seizawa Shii's hand, but Seizawa Shii continued to cling to Minamoto Lisa. As expected of a gyaru duo, they're close.</p>
 <p>Konoe Akina and Otagi Yuka continued to stay in their seats until the other students left. They probably want to talk to me about what's going on, but they both didn't know that the other knew me, so they were just standing still.</p>
 <p>I found that funny, so I smiled slightly and said to them.</p>

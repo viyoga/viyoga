@@ -24,7 +24,7 @@ chapter = 431
 <p>It would be too conspicuous to keep going in and out of the Amsang branch, which was a motel village, so we decided to meet at a large building in Amsang that we used as a warehouse. Since the building we used as a warehouse was located on the outskirts of Miyashi, it was a bit far, so I put Sakagami Rena in the car and drove there.</p>
 <p>When we arrived at the warehouse, I saw a motorcycle parked on one side of the parking lot, so it seemed that Otagi Yuka had already arrived.</p>
 <p>"Oh, seonsaengnim-ssi! Sakagami! You came!"</p>
-<p>"Ryuta-nim! Rena-ssi! Hello~!"</p>
+<p>"Ryuta-nim! Rena-ssi! Hello!"</p>
 <p>I parked and opened the warehouse door, and Otagi Yuka and Eve greeted Sakagami Rena and me.</p>
 <p>Inside the warehouse, various firearms were hanging on the wall, and on one wall, the golden sword that Otagi Yuka used when fighting Kurotsukido's Death Knight at the New York Museum was leaning. It seemed she had returned to the mansion yesterday, buried the corpses, and brought the golden sword.</p>
 <p>"Shimokawabe seonsaengnim also readily agreed to help. Alik will come if we call him."</p>
@@ -50,29 +50,29 @@ chapter = 431
 <p>"Don't worry, Ju-gun. We will come up with a great plan."</p>
 <p>It wouldn't take long, but I entrusted the future plan to everyone and sent a LINE message to Arisu. It was around lunchtime in California right now, so Arisu would reply right away unless she was filming a movie.</p>
 <p>Taira Ryuta: Arisu, are you busy now?</p>
-<p>Arisu: No~! I'm not busy because I'm taking a break from filming! \(⩌⩊⩌)/</p>
+<p>Arisu: No! I'm not busy because I'm taking a break from filming! \(⩌⩊⩌)/</p>
 <p>Taira Ryuta: Well, it's like this....</p>
 <p>I roughly explained the current situation to Arisu. And I said I needed the video from the museum.</p>
 <p>Arisu: Ah! That happened? (•3•) I'll send you the video right away! But please make sure our identities stay hidden.</p>
 <p>Taira Ryuta: Okay. Of course. Phantom Thief François can't have their identity revealed because of this, so I'll only cut out that situation.</p>
 <p>I didn't really know how to edit videos, but I could leave the video cutting to Eve, so I wasn't worried.</p>
-<p>Arisu: Ryuta, I miss you so much~! Come visit our filming location sometime!</p>
+<p>Arisu: Ryuta, I miss you so much! Come visit our filming location sometime!</p>
 <p>Taira Ryuta: I'll go next weekend when this is over.</p>
-<p>Arisu: Really? ദ്ദി◍•ᴗ•◍) Ryuta is the best~!</p>
+<p>Arisu: Really? ദ്ദി◍•ᴗ•◍) Ryuta is the best!</p>
 <p>Arisu kept sending emoticons, as if she didn't expect me to actually say I would go. I missed Arisu as I kept exchanging LINE messages. So I decided to ask for a picture of Arisu.</p>
 <p>Taira Ryuta: I want to see a picture of Arisu after a long time....</p>
-<p>Arisu: You miss me? You should have said so sooner! Wait a minute~!</p>
+<p>Arisu: You miss me? You should have said so sooner! Wait a minute!</p>
 <p>Arisu: Photo</p>
 <p>Arisu quickly sent me a picture at my request. Arisu was in a room, wearing short denim pants, shirtless, with a slightly flushed face, smiling as she took a picture and sent it to me. Hmm, she still has a good body like a model. Her hair was cut short, probably because of the movie shoot. It suits her in its own way.</p>
 <p>Arisu: You can see the bottom in person next week...! </p>
 <p>Taira Ryuta: OkayWWW I'll fully appreciate it, so wait for me.</p>
-<p>Arisu: Ahaha! 〜(￣▽￣〜) What do you mean by fully appreciate it~♥</p>
+<p>Arisu: Ahaha! 〜(￣▽￣〜) What do you mean by fully appreciate it♥</p>
 <p>I was on LINE with Arisu for a while and received the video file Arisu sent. I took my eyes off my phone and raised my head, and the three of them, who were supposed to be having a strategy meeting, were staring at me intently.</p>
 <p>"What are you looking at your phone with such a smile?"</p>
 <p>"That's right! Don't be so happy without us, Ryuta-nim!"</p>
 <p>Otagi Yuka unnecessarily made a fuss about my expression, but I ignored her and attached the video to a message and sent it to Eve.</p>
 <p>"If the Death Knight we fought at the museum back then belongs to Kurotsukido, then what Otagi did in New York will be justified. Make sure the video doesn't reveal my and François' identities, Eve."</p>
-<p>"That's easy~! It's my major, so I'll make it well."</p>
+<p>"That's easy! It's my major, so I'll make it well."</p>
 <p>"Where are you going to send the video?"</p>
 <p>"I'm going to send it to SPF headquarters. If I send it to the New York branch, they're likely to ignore our evidence."</p>
 <p>Otagi Yuka nods, as if my words make sense.</p>

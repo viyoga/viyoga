@@ -6,13 +6,13 @@ chapter = 832
 +++
 
 <p>With confident steps, Alik returned to the club room, carrying the result of passing the additional Test. As the club room door opened, everyone looked at Alik.</p>
-<p>"Alik~! Did you do well?"</p>
+<p>"Alik! Did you do well?"</p>
 <p>"Of course, you passed, right?"</p>
-<p>"Our cute Alik, don't get Held Back a Year~!"</p>
+<p>"Our cute Alik, don't get Held Back a Year!"</p>
 <p>Rushing over, the special class troublemakers asked Alik; they seemed genuinely curious about Alik's result. Since they were constantly lounging around in the club room, it seemed they needed other stimulating stories.</p>
 <p>Alik, who had been staring at his friends for a while with a 'jii' sound, made a V-sign with both hands, showing a Double Peace sign, and everyone rushed over, lifted Alik, and began to toss him in the air.</p>
-<p>"Alik, you did well~!"</p>
-<p>"Congratulations~!"</p>
+<p>"Alik, you did well!"</p>
+<p>"Congratulations!"</p>
 <p>It wasn't like he passed a big Test; it was just an additional Test. It wasn't like he won a competition, and I wondered if it was enough to toss him in the air like this, but his friends must care for Alik that much.</p>
 <p>"So, with how many Points did you pass?"</p>
 <p>Naruse Shiyo asked, as if curious. I was curious too. I knew he passed the additional Test, but I hadn't asked with how many Points.</p>
@@ -84,7 +84,7 @@ chapter = 832
 <p>"!"</p>
 <p>"Will you follow me? I will lead you to the peak."</p>
 <p>To Genba Kiyohira, who wore a surprised Expression, it was Takakusaki Gengo extending his Hand. The peak.... It sounded incredibly sweet. So Genba Kiyohira unconsciously nodded his Head.</p>
-<p>Requested by Iseibu-nim~! Nae and Nagumo Sian in the front door with a ladle + naked body Apron~!</p>
-<p>Starting with Nagumo Sian~!</p>
-<p>Nae Fitzgerald~!</p>
-<p>Kkiyoooot~!</p>
+<p>Requested by Iseibu-nim! Nae and Nagumo Sian in the front door with a ladle + naked body Apron!</p>
+<p>Starting with Nagumo Sian!</p>
+<p>Nae Fitzgerald!</p>
+<p>Kkiyoooot!</p>

@@ -39,9 +39,9 @@ chapter = 632
 
 <p>His finger pressed more firmly, finding the outline of her pussy lips through the thin material, feeling moisture beginning to gather there.</p>
 
-<p>“Mmmhhh~~~~ ” Valeria gasped softly, her professional facade cracking further.</p>
+<p>“Mmmhhh ” Valeria gasped softly, her professional facade cracking further.</p>
 
-<p>“I…” she started, then had to pause as his finger traced along her slit. “I should… we should establish… AHH ~~ payment first…”</p>
+<p>“I…” she started, then had to pause as his finger traced along her slit. “I should… we should establish… AHH  payment first…”</p>
 
 <p>Julian’s right hand returned to her breast, this time slipping beneath the fabric of her corset. He found her bare nipple and rolled it between his fingers. His left hand pushed the thin fabric covering her pussy aside, his fingers making direct contact with her wet heat.</p>
 

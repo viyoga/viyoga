@@ -60,5 +60,5 @@ chapter = 1344
 <p>"Complaint #12831: Too smug. Too annoying. He dares openly declare before my denizens that he's overruling my authority before overruling my authority?!?!"</p>
 <p>A couple thousand more followed, after which…</p>
 <p>"Hmph!!!" Lilyanna scoffed again and leaned back in her throne while tapping the glowing notebook with a finger. The diary pulsed softly, as if it approved of her diligence. A small pout crossed her face.</p>
-<p>Her fingers drummed lightly against the cover, and she whispered to herself, almost gleefully, "Oh, you poor boy~ You have no idea what's coming for you…"</p>
+<p>Her fingers drummed lightly against the cover, and she whispered to herself, almost gleefully, "Oh, you poor boy You have no idea what's coming for you…"</p>
 <p>The notebook flickered in response with the stars twinkling as if echoing her determination. Quinlan had multiple mothers who loved to pamper him, but now, he was going to be introduced to the wrath of the strictest Goddess ever!!</p>

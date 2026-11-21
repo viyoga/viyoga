@@ -84,12 +84,12 @@ chapter = 319
 <p>I put the clothes and sheets in the laundry basket and looked at Seizawa Shii, asking if she was living alone. I was expecting her to be living alone, but it would be better to ask for sure.</p>
 <p>"Yeah! My family is laissez-faire."</p>
 <p>According to Seizawa Shii's information, the Seizawa family paid a lot of attention to the son who would inherit the family business, but didn't pay much attention to their daughter, who was considered an outsider after marriage, but I didn't know they were this laissez-faire.</p>
-<p>Ddiririri~!</p>
+<p>Ddiririri!</p>
 <p>I was talking to Seizawa Shii when my phone rang, and the four letters "Danjo Grandpa" were written on the screen.</p>
 <p>"Okay, do your laundry diligently and come to school on Monday without skipping."</p>
 <p>"Okay, Ryuta-jji!"</p>
 <p>"Add 'sensei'!"</p>
-<p>"Ehh~! We've become friends~!!"</p>
+<p>"Ehh! We've become friends!!"</p>
 <p>I said goodbye to Seizawa Shii to answer the phone and left the laundromat to answer it. As soon as I answered, an incredibly loud shout rang in my ears.</p>
 <p>-You bastard! You're using the corporate card I gave you to buy women? Are you out of your mind?</p>
 <p>I wish this grandpa would be a little more laissez-faire.</p>

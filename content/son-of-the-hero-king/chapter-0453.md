@@ -95,7 +95,7 @@ chapter = 453
 <p>It seemed like he had become quite the workaholic. He just wanted to take a look at some papers and then go talk to the witches about his plans for the week.</p>
 <p>As always, Sol simply used his dimension to walk. He was doing so in order to increase his synchronization and understanding of this mysterious power.</p>
 <p>This was why he was surprised to hear a muffled moan when he actually approached his office.</p>
-<p>"Your highness~"</p>
+<p>"Your highness"</p>
 <p>He recognized the voice and as such, had no hesitation when he passed through the door and finally saw the show Milia was putting on for him without her knowledge.</p>
 <p>———</p>
 <p>(AN: Man. The last Milia smut was like a year ago in real life time. I think I pretty much made the turn with those who helped. The last ones on the list are Luxuria and perhaps Asmodeus. But those won’t appear before the end of the volume. So the plan is smut, fun, relationship development, smut, fun. Then something serious. Taking my flight tomorrow. Flight at 8 am. I regret choosing that time. Pretty stupid.)</p>

@@ -11,7 +11,7 @@ chapter = 97
 
 <p>Qingyi activated his lightning steps, dodging the attack before appearing behind her back, throwing a palm in her direction.</p>
 
-<p>“What are you doing – anhhnn~~” Ruxue’s words were interrupted by a long, sensual moan as his hand landed on her buttocks.</p>
+<p>“What are you doing – anhhnn” Ruxue’s words were interrupted by a long, sensual moan as his hand landed on her buttocks.</p>
 
 <p>Her two round, perfect globes of flesh swayed as a shockwave spread across her flesh, Qingyi’s palm striking the pale, soft surface, gripping tightly.</p>
 
@@ -61,7 +61,7 @@ chapter = 97
 
 <p>[Dian Ruxue’s Lust increased by 10%]</p>
 
-<p>“Mmmghnn~~ What are you- hnnggg~~ doing?” She spoke between gasping moans as Qingyi’s hands left her thighs, moving up to her buttocks’ generous curve.</p>
+<p>“Mmmghnn What are you- hnnggg doing?” She spoke between gasping moans as Qingyi’s hands left her thighs, moving up to her buttocks’ generous curve.</p>
 
 <p>“I’m here to turn you into my sword and my woman. We can do this the easy way or the hard way.” He squeezed her buttocks, the creamy skin spilling between his fingers as they sank into a sea of softness.</p>
 
@@ -93,7 +93,7 @@ chapter = 97
 
 <p>He opened his mouth, taking one of her nipples between his lips, delighting in the depraved, sweet moans that escaped between panting curses.</p>
 
-<p>“aghnhhh~~ nngghhh~~ s-your f-son of a… mmmmhhh~~”</p>
+<p>“aghnhhh nngghhh s-your f-son of a… mmmmhhh”</p>
 
 <p>Ruxue tried to calm her mind and take on her spirit form to get back into the sword and stop all this, but she couldn’t.</p>
 
@@ -113,4 +113,4 @@ chapter = 97
 
 <p>But even so, she couldn’t help moaning even more depravedly when Qingyi increased the suction force on her erect nipples.</p>
 
-<p>“You nghn~~ bastard…” She cursed, the pale skin of her cheeks turning a flaming pink.</p>
+<p>“You nghn bastard…” She cursed, the pale skin of her cheeks turning a flaming pink.</p>

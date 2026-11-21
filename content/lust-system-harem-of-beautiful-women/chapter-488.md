@@ -39,11 +39,11 @@ chapter = 488
 
 <p>The young couple, already accustomed to fooling around freely in the living room, shared a passionate kiss. Then Lily pulled down her husband&#x27;s boxers, lowered her head, and began licking his erect member, greedily savoring the intoxicating scent that never failed to enthrall her.</p>
 
-<p>&quot;Husband… you&#x27;re so excited too, you&#x27;re this hard already~&quot;</p>
+<p>&quot;Husband… you&#x27;re so excited too, you&#x27;re this hard already&quot;</p>
 
 <p>Lily hummed, her words slightly muffled.</p>
 
-<p>Luis slid his hand under her little tank top, kneading his wife&#x27;s ample, beautiful breasts, which seemed to have grown even fuller. After a moment&#x27;s consideration, he tested the waters, saying, &quot;Of course. What we&#x27;re about to do is so exciting~&quot;</p>
+<p>Luis slid his hand under her little tank top, kneading his wife&#x27;s ample, beautiful breasts, which seemed to have grown even fuller. After a moment&#x27;s consideration, he tested the waters, saying, &quot;Of course. What we&#x27;re about to do is so exciting&quot;</p>
 
 <p>&quot;It actually reminds me of those times I&#x27;d be working late in the living room and your mom would get up for a midnight bathroom break. I&#x27;d get quite the eyeful then too…&quot;</p>
 
@@ -55,13 +55,13 @@ chapter = 488
 
 <p>&quot;Most of the time she was still wearing panties. But whenever she got up, I&#x27;d pretend to be asleep. I never dared to actually look, afraid it&#x27;d be too awkward.&quot;</p>
 
-<p>&quot;You&#x27;re so bad, you perverted husband~ Just talking about Mom&#x27;s naked body gets you this excited?!&quot;</p>
+<p>&quot;You&#x27;re so bad, you perverted husband Just talking about Mom&#x27;s naked body gets you this excited?!&quot;</p>
 
 <p>Lily scolded playfully around the cock in her mouth. &quot;This naughty thing is already twitching in my mouth… So you have seen Mom&#x27;s big boobs then??&quot;</p>
 
 <p>&quot;Hehe, I have!!&quot;</p>
 
-<p>Luis used both hands, kneading his beloved wife&#x27;s beautiful breasts without restraint, making her moan uncontrollably as she continued her oral ministrations. Then, excitedly, he gasped out, &quot;Mom&#x27;s are truly huge. From a distance, they look like two watermelons hanging from her chest~&quot;</p>
+<p>Luis used both hands, kneading his beloved wife&#x27;s beautiful breasts without restraint, making her moan uncontrollably as she continued her oral ministrations. Then, excitedly, he gasped out, &quot;Mom&#x27;s are truly huge. From a distance, they look like two watermelons hanging from her chest&quot;</p>
 
 <p>&quot;Every time she moves, they sway and bounce… It&#x27;s enough to make a man&#x27;s head spin…&quot;</p>
 
@@ -73,7 +73,7 @@ chapter = 488
 
 <p>&quot;When I was little, I liked to hug her while sleeping… But since growing up, I haven&#x27;t tried. I&#x27;ve seen them when bathing together, but never touched…&quot;</p>
 
-<p>Lily&#x27;s voice trembled with barely concealed excitement. &quot;Husband, next time you take us to the Ocean Hotel again, I want to find a chance… to touch Mom&#x27;s breasts and see what they feel like~&quot;</p>
+<p>Lily&#x27;s voice trembled with barely concealed excitement. &quot;Husband, next time you take us to the Ocean Hotel again, I want to find a chance… to touch Mom&#x27;s breasts and see what they feel like&quot;</p>
 
 <p>The last time he took the whole family there to bathe, his wife Lily hadn&#x27;t yet fully awakened these… inclinations.</p>
 
@@ -105,7 +105,7 @@ chapter = 488
 
 <p>&quot;Alright then. Next time, Mom will let you try. Now lie still, don&#x27;t move.&quot;</p>
 
-<p>&quot;Hehe, Mom, I want to rest my head on your lap. It&#x27;s so soft and comfy~&quot;</p>
+<p>&quot;Hehe, Mom, I want to rest my head on your lap. It&#x27;s so soft and comfy&quot;</p>
 
 <p>&quot;You, with that big belly of yours, always full of ideas. Fine, fine. It&#x27;s not like I mind taking care of you a little longer.&quot;</p>
 
@@ -115,7 +115,7 @@ chapter = 488
 
 <p>&quot;You silly girl, moaning again… It can&#x27;t possibly feel that good!!&quot;</p>
 
-<p>&quot;Mom, I don&#x27;t know either. Ever since getting pregnant, I&#x27;ve become so sensitive. Honestly, whenever you touch me, it feels incredibly good~&quot;</p>
+<p>&quot;Mom, I don&#x27;t know either. Ever since getting pregnant, I&#x27;ve become so sensitive. Honestly, whenever you touch me, it feels incredibly good&quot;</p>
 
 <p>&quot;If your husband hears this, he&#x27;ll think Mom is doing something improper to you. Can&#x27;t you try to hold it in a little?&quot;</p>
 

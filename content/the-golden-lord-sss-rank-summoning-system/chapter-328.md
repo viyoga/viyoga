@@ -5,7 +5,7 @@ weight = 328
 chapter = 328
 +++
 
-<p>"F-fuck~ f-fuck~ b-big~ t-too big... E-Ethan... filling mommy so much, aghn~~" Amelia’s drunken voice rang through the room, high-pitched and sweet, broken by shrill squeals that escaped her lips with every throbbing pulse of her son’s cock buried deep inside her.</p>
+<p>"F-fuck f-fuck b-big t-too big... E-Ethan... filling mommy so much, aghn" Amelia’s drunken voice rang through the room, high-pitched and sweet, broken by shrill squeals that escaped her lips with every throbbing pulse of her son’s cock buried deep inside her.</p>
 <p>The alcohol still clouded her mind, mingling with the overwhelming pleasure crashing through her body.</p>
 <p>Her hands opened and slid down over Ethan’s powerful chest, her palms pressing against her son’s sweat-slick skin.</p>
 <p>Trembling fingers traced the outline of each defined muscle as she searched for some kind of anchor amid the drunken haze fogging her mind.</p>
@@ -17,9 +17,9 @@ chapter = 328
 <p>"N-no... E-Ethan... I’m your mother... this isn’t right, I—" A brief flicker of clarity cut through the alcoholic haze in Amelia’s mind, her unfocused eyes struggling to lock onto her son’s face.</p>
 <p>She began to move her hips slowly, trying to push herself up and off him.</p>
 <p>Yet before even half of Ethan’s cock could slip from her pussy’s tight grip, delicate hands pressed down firmly on her shoulders. Ysara shoved her back down, forcing her to swallow every last centimeter of that thick, throbbing shaft once more.</p>
-<p>"Nghnnn~~ AGHN~~!" Amelia moaned loudly, an obscene grunt ripping through her throat as her body was forced to take Ethan’s cock all the way down to the base again, every centimeter burying itself deep inside her drooling walls.</p>
+<p>"Nghnnn AGHN!" Amelia moaned loudly, an obscene grunt ripping through her throat as her body was forced to take Ethan’s cock all the way down to the base again, every centimeter burying itself deep inside her drooling walls.</p>
 <p>Ysara smiled, her face flushed from the wine and overflowing with pure desire, as she slowly crawled across the massive bed.</p>
-<p>"Hm~~ Little Ethan... No... you’re b-big Ethan now... love..." The words tumbled out jumbled and slurred, as if she was too drunk to even follow her own thoughts. "You’re giving your naughty mommy’s tight little pussy a good pounding, aren’t you? Auntie Ysara wants some too..."</p>
+<p>"Hm Little Ethan... No... you’re b-big Ethan now... love..." The words tumbled out jumbled and slurred, as if she was too drunk to even follow her own thoughts. "You’re giving your naughty mommy’s tight little pussy a good pounding, aren’t you? Auntie Ysara wants some too..."</p>
 <p>She didn’t even give Ethan time to answer, casually draping a leg over his face and settling there without the slightest hint of ceremony.</p>
 <p>"Oh... shit, she’s just like Evelyn," Ethan sighed, his eyes widening as he watched that plump, milky ass descend slowly toward his face.</p>
 <p>Her fat, puffy, juicy pussy was already dripping wet, its swollen lips glistening with love juice that trickled down her inner thighs in slow, sticky strands.</p>
@@ -29,7 +29,7 @@ chapter = 328
 <p>An Awakened woman’s pussy was, without a shadow of a doubt, divine... They were capable of controlling even their own taste and scent.</p>
 <p>Ethan’s hands clenched even tighter around the round cheeks of that plump ass, his fingers leaving reddish crescents on her milky skin as the soft flesh bulged obscenely between them.</p>
 <p>At the same time, the tip of his tongue found Ysara’s swollen clitoris, pressing firmly against it before tracing small, rapid circles around that sensitive little pearl.</p>
-<p>"Oghnn~~ g-gentle, Ethan..." Ysara shuddered from head to toe, a moan heavy with pleasure escaping her golden lips. "Auntie hasn’t felt a man’s touch in over five hundred years..."</p>
+<p>"Oghnn g-gentle, Ethan..." Ysara shuddered from head to toe, a moan heavy with pleasure escaping her golden lips. "Auntie hasn’t felt a man’s touch in over five hundred years..."</p>
 <p>"Slutty slut..." Amelia murmured, still impaled on Ethan’s cock, her eyes fluttering shut as another wave of pleasure crashed through her. "My Ethan... so good... so big... filling mommy up so much."</p>
 <p>Ysara just laughed, leaning forward and pressing herself flush against Amelia.</p>
 <p>Their breasts collided between their bodies—Ysara’s already so massive that no man’s hand could hope to encircle them, yet Amelia’s at least twice their size.</p>
@@ -44,11 +44,11 @@ chapter = 328
 <p>Amelia’s eyes rolled back, her mouth breaking open in a sweet, obscene moan as whatever self-control she had left dissolved into nothing.</p>
 <p>Soon, an obscene symphony echoed through the room, the wet slaps of skin against skin mingling with the uncontrolled moans that tore from both women’s throats.</p>
 <p>The voices of those two mature beauties wove together in a lewd melody, their bodies pressed firmly against one another, sweat and milk and juices smearing between them in a sticky, glistening mess.</p>
-<p>"Ah~ Y-you’re such a bitch... impaled on your own son’s cock~ aghnn~ fufufu~~" Ysara teased, pulling a bottle of wine from the green fairy’s spatial ring with a slightly unsteady motion.</p>
-<p>"Mghnn~~ n-no... it’s just that... Ethan’s cock feels so good... I’m going to... you... aghnn~" Amelia closed her eyes, surrendering herself completely to the flood of pleasure.</p>
+<p>"Ah Y-you’re such a bitch... impaled on your own son’s cock aghnn fufufu" Ysara teased, pulling a bottle of wine from the green fairy’s spatial ring with a slightly unsteady motion.</p>
+<p>"Mghnn n-no... it’s just that... Ethan’s cock feels so good... I’m going to... you... aghnn" Amelia closed her eyes, surrendering herself completely to the flood of pleasure.</p>
 <p>Ysara pulled back slightly, her sweat-slick breasts peeling away from Amelia’s with a wet, obscene sound.</p>
 <p>She brought the wine bottle to her lips, took a single long sip, then tilted it against Amelia’s mouth, forcing her to part her lips.</p>
-<p>"Nghghnn~~ w-why are you drinking like that... imagining yourself sucking Ethan’s cock?" Ysara teased in a mature, drunken voice.</p>
+<p>"Nghghnn w-why are you drinking like that... imagining yourself sucking Ethan’s cock?" Ysara teased in a mature, drunken voice.</p>
 <p>Long strands of alcohol trickled down Amelia’s chin and dripped onto her heavy, milk-swollen breasts, which wobbled with every powerful thrust of Ethan’s hips against her ass.</p>
 <p>Ethan slapped Ysara’s ass hard.</p>
 <p>His palm cracked against the plump cheek with a sharp, ringing snap, the flesh caving deep beneath his hand before rebounding in a shockwave that rippled through the entire globe and crashed into its twin.</p>

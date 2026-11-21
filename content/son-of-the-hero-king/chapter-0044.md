@@ -48,7 +48,7 @@ chapter = 44
 <p>Weirdly, the caravan that was composed of only one old man and three young women were in no way flustered. In fact, from the frown of one of them, they seemed more impatient than frightened.</p>
 <p>"Seems like the security became worse since the last time I was here. To think that they would dare to act so close to the capital, I wonder what gave them such guts?"</p>
 <p>The one who spoke was the girl that was initially frowning. Most of her features were hidden by a cloak but it was easy to see a part of her expression. The more blatant those bandits were the worse her expression became.</p>
-<p>"Hum~! Hehe~! Don't you think it's really weird? As you said bandits shouldn't be so courageous. So, the question is, what gave them such courage?"</p>
+<p>"Hum! Hehe! Don't you think it's really weird? As you said bandits shouldn't be so courageous. So, the question is, what gave them such courage?"</p>
 <p>The young woman standing next to her, a brown-haired girl, spoke while adjusting her glasses. Her tight clothes alighted her rather large curve. She spoke as if those bandits were not even existing in her eyes. Her mind, already filled with different ideas.</p>
 <p>The last woman, who was wearing skimpy maid clothes, gave a cold smile as she tilted her head,</p>
 <p>"Isn't it clearly because we wanted to catch those bandits that we used such a simple ride without any insignia? Why bother guessing when we can just ask them?"</p>

@@ -19,7 +19,7 @@ chapter = 1796
 <p>"Possibly," Seraphiel nodded. "Legally, he is a king, a ruler. But we’re not talking about manmade legality here, but what the system governing Thalorind would consider a ruler. Being born into the right family and inheriting your father’s throne might not give you progression toward being a claimant."</p>
 <p>"For all intents and purposes," Lucille smiled at the king, "Alexios is just a tribal leader on a nice chair, claiming no non-human lands as his own, accepted by no non-humans as their sovereign."</p>
 <p>Alexios’s eye twitched.</p>
-<p>"No offense, Your Majesty~" She didn’t mean it at all.</p>
+<p>"No offense, Your Majesty" She didn’t mean it at all.</p>
 <p>"Quinlan?" Black Fang only spoke his name, yet everyone understood what she meant.</p>
 <p>"That’s right..." Serika straightened, brow furrowed. "If that’s the bar, then Quin clears it. Myrasyn knelt to him. He rules the elves. Shouldn’t he have this progress thing already?"</p>
 <p>Jasmine gently shook her head. "Not necessarily. He has elven people who love and embrace him, people who follow him, and people who’d die for him."</p>

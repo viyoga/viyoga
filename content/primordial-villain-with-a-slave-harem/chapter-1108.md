@@ -6,11 +6,11 @@ chapter = 1108
 +++
 
 <p>The fox wiggled her fingers, all innocence.</p>
-<p>"I can’t hear you~" she announced, far too pleased with herself.</p>
+<p>"I can’t hear you" she announced, far too pleased with herself.</p>
 <p>The vein bulged first.</p>
 <p>A thick, throbbing cord right at the temple of Black Fang’s otherwise porcelain-doll face, pulsing with the kind of rage only centuries of grudges could ferment. She looked carved from ice, but that vein betrayed the inferno bubbling inside her heart.</p>
 <p>Yoruha, naturally, was delighted.</p>
-<p>"My, my~" she purred, her long white ears popping back into existence and flapping excitedly like banners in a playful breeze. "That vein looks serious, dear. Do you take care of your health? You wouldn’t want to die before me, now would you?"</p>
+<p>"My, my" she purred, her long white ears popping back into existence and flapping excitedly like banners in a playful breeze. "That vein looks serious, dear. Do you take care of your health? You wouldn’t want to die before me, now would you?"</p>
 <p>The foxkin paused, no longer walking circles around Black Fang, and tilted her head to the side with mock realization. Her tails were swishing slyly behind her butt. "Oh, I forgot...! You will die before me, won’t you? Any day now, nasty little wrinkles might start plaguing that delicate face of yours... while this little old fox will still be turning heads even a million years later."</p>
 <p>She gasped, clutching her chest as if struck by grief. "What a tragedy!"</p>
 <p>Black Fang’s voice slipped out like frostbite.</p>
@@ -22,7 +22,7 @@ chapter = 1108
 <p>She widened her eyes with innocence, tapping her chin. "But alas, what a shame. You don’t seem to know such a person."</p>
 <p>The hand wrapped around Black Fang’s katana trembled, as violet sparks began licking across the blade. Her tone was flat, but heavy with barely-reined fury.</p>
 <p>"I propose we continue this conversation a couple of miles away."</p>
-<p>"Nooo~" Yoruha giggled. "I’m too comfortable here. It’s such a lovely home."</p>
+<p>"Nooo" Yoruha giggled. "I’m too comfortable here. It’s such a lovely home."</p>
 <p>Then, as if to twist the knife further, she stretched her arms high above her head, arching her back in an infuriatingly languid display before letting out a long, airy yawn. It was the kind of yawn that managed to be both cute and alluring.</p>
 <p>With a flick of her wrist, she waved at Black Fang like one might shoo away a bothersome guest. "You can leave now, though. I’m feeling sleepy."</p>
 <p>She returned to her bed and sprawled out lazily, eyes turning half-lidded, her voice dipped into a honey-sweet purr as she added, "Run along, little fang. I’ll continue bothering you once I wake up."</p>

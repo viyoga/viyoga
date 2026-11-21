@@ -155,7 +155,7 @@ Lith's stamina was no joke and climaxing thrice without breaks? This would defin
 
 Lith put on bed and got on top of her.
 
-"Little cousin~" she extended her hands out and demanded a kiss.
+"Little cousin" she extended her hands out and demanded a kiss.
 
 Lith happily complied and his lips met with her soft ones.
 

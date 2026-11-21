@@ -18,7 +18,7 @@ chapter = 205
 <p>She leans forward and I can no longer hold back, I activate my primordial eyes. Her full bakery is on display for me to see, but just for good measure I reach for her bottom with both hands and spread her cheeks to give me a perfect, five star view of both her alluring pink flower and tiny rear hole.</p>
 <p>Ayame giggles, "you know, in this pitch black room your glowing red eyes are a dead giveaway of you peeping on me… Well, go ahead, enjoy this special occasion. Though, you should try to dim them down or something before you go on a serious stealth mission."</p>
 <p>"Stop your yapping about combat, woman. I couldn't care less when my shaft is about to burst. I demand immediate relief."</p>
-<p>"Oh~? Someone's getting his voice back, but you shouldn't forget which one of us is on top of the other." While saying this, she grabs my underpants and begins lifting it, pushing it off towards my legs.</p>
+<p>"Oh? Someone's getting his voice back, but you shouldn't forget which one of us is on top of the other." While saying this, she grabs my underpants and begins lifting it, pushing it off towards my legs.</p>
 <p>"What the hell is going on with you? One moment you threaten to tear me apart, next you are willingly servicing me?" I can't help but ask my thoughts out loud.</p>
 <p>She scoffs, "do you seriously think that what happened in the cave only had an effect on you? I've never been as wet as when I was back then, no matter how much I touched myself in the past, and I didn't even lower my pants there, let alone start masturbating!</p>
 <p>Also, I just became level 15 today, which I know for mister primordial over here is just another number, but for us normal existences each level takes painstaking effort to reach. At the stage I'm at, leveling up just once can take many months, even years.</p>
@@ -33,5 +33,5 @@ chapter = 205
 <p>This is an amazing woman. I absolutely love her.</p>
 <p>"Quinlan…? Ah! What is this feeling?!"</p>
 <p>"I don't know, my pussy had never been eaten out before." I state amid loud slurps and fierce tongue movements.</p>
-<p>"Ah~! Ahh~! You are so damn fucking funny! And I can't even help you release when that was the whole point of it all! Ahhh~! My arms are not at all long enough to reach…" she broods, "wait, I have an idea.</p>
+<p>"Ah! Ahh! You are so damn fucking funny! And I can't even help you release when that was the whole point of it all! Ahhh! My arms are not at all long enough to reach…" she broods, "wait, I have an idea.</p>
 <p>This way we can both feel good!"</p>

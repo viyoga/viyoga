@@ -43,7 +43,7 @@ Lith soon shoved aside these thoughts and went to the bathroom to freshen up.
 
 A few minutes later, Lith walked out of the bathroom wearing a red towel.
 
-"Fuiyoooooh~" Arya exclaimed looking at the divine figure of Lith.
+"Fuiyoooooh" Arya exclaimed looking at the divine figure of Lith.
 
 His perfectly sculpted body, his toned abs, his wet silver hair that had water dripping down from its end, his perfect chiseled face and his amethyst-like purple eyes were a sight to see for her.
 

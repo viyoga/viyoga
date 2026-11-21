@@ -44,7 +44,7 @@ chapter = 232
 <p>"... Very much so," Aria agreed gravely, clutching her staff tight.</p>
 <p>Nyx’s eyes scanned the growing crowd. "We took five steps past the entrance, and this happens?!"</p>
 <p>Bastet’s tail lashed once as she began calling upon her solar might. "This isn’t just a dungeon. This is a trap. The monsters are starving; there’s nothing for them to consume further in. Thus they came to the entrance, hoping maybe something would come out of the strange portal in the ballroom."</p>
-<p>"Bingo~" one of the female vampires purred. "What a smart kitten."</p>
+<p>"Bingo" one of the female vampires purred. "What a smart kitten."</p>
 <p>"Maybe we should keep her... I always wanted a black cat," another added with a similarly honeyed tone.</p>
 <p>"No... I refuse to let this into my home. Can’t you two feel her energy? She radiates something toxic to our kind..." the final wife growled once she sensed her solar powers.</p>
 <p>Bastet didn’t respond to their words. She couldn’t afford to get offended.</p>
@@ -80,12 +80,12 @@ chapter = 232
 <p>His hand tightened on Twilight Ripper’s hilt.</p>
 <p>"Are my Sinners with me?"</p>
 <p>There was no hesitation.</p>
-<p>"Always, Master~" Bastet purred as a wide, feral grin materialized on her tanned lips.</p>
+<p>"Always, Master" Bastet purred as a wide, feral grin materialized on her tanned lips.</p>
 <p>Two radiant solar beams burst into existence in her palms. They were miniature suns, each radiating waves of heat that made the thralls flinch on instinct.</p>
 <p>Luna scoffed, shaking her head with disappointment at herself as her confidence flooded back.</p>
 <p>How had she let herself waver?</p>
 <p>She spun her [Stormblade] once, the crackling sound of lightning responding with glee.</p>
-<p>"Someone’s getting rewarded tonight~" she decreed, shooting back a flirty look at Kaiden as she stepped forward toward the nearest vampire wife and her pack of snarling thralls.</p>
+<p>"Someone’s getting rewarded tonight" she decreed, shooting back a flirty look at Kaiden as she stepped forward toward the nearest vampire wife and her pack of snarling thralls.</p>
 <p>"I won’t disappoint, Kai!" Aria shouted from behind, her gym-honed arms glowing with pale silver light as lunar magic surged through her staff.</p>
 <p>Glittering moonlight traced elegant patterns in the air, spiraling upward.</p>
 <p>She aimed directly at the second wife.</p>

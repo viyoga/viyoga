@@ -15,7 +15,7 @@ chapter = 922
 <p>"Then shall we go in together?"</p>
 <p>I could do something like Showering together as much as she wanted. While Sakagami Rena and I were having Sex in the room, Saionji Diana had cleaned up all the dinner and even did some housework that she thought was lacking, so Showering together was a simple matter.</p>
 <p>"Go into the Shower Room first. I'll just have a glass of water and go in."</p>
-<p>"Okay~♥"</p>
+<p>"Okay♥"</p>
 <p>I had discharged quite a bit of Sweat and semen etc. from Sex with Sakagami Rena just now, so I should drink some water. I'll probably lose moisture again when I'm with Saionji Diana, so I should drink it in advance.</p>
 <p>I received cold water from the water purifier, took off my Clothes, and entered the Shower Room, and Saionji Diana was already inside the Shower booth. When I entered, she smiled brightly at me and stuck to the glass wall of the Shower booth.</p>
 <p>The sight of her breasts being pressed against the glass wall was enough to anger my cock. I went straight into the Shower booth.</p>
@@ -45,7 +45,7 @@ chapter = 922
 <p>After ending the Shower that was so satisfying (after lathering our Bodies with soap, we rubbed our Bodies together while washing, so my cock quickly resurrected), I returned to the bed and decided to give her a Repayment for the Service I had received in the Shower booth.</p>
 <p>Just like Saionji Diana had done for me, I would suck Saionji Diana's pussy with my mouth.</p>
 <p>Naelreum.</p>
-<p>"Haeueuheung...! Teacher-niim~♥"</p>
+<p>"Haeueuheung...! Teacher-niim♥"</p>
 <p>Saionji Diana, who was feeling pleasure, twisted her whole Body and trembled after I had licked her once. She had a strong Attack power, but she was the type with a weak Defense, but she felt pleasure so close to Climax with just one lick of my tongue? She had definitely felt pleasure herself while Servicing me.</p>
 <p>I didn't let Saionji Diana, who was feeling pleasure like that, watch me, and I licked and sucked Saionji Diana's pussy ravenously.</p>
 <p>"Chyureup! Chwip, Jjeubbeup! Chwip, Hulureup, Chwip...!Chwip!"</p>
@@ -93,15 +93,15 @@ chapter = 922
 <p>Nagumo Sian requested by Gojoy-nim 1. Lying down and covering her breasts 2. Inviting into the Entwined Sheets</p>
 <p>1.</p>
 <p>2.</p>
-<p>Aegyo of child Linling and Zero Two pose of adult Linling requested by MidNightSKY-nim~!</p>
-<p>Child Linling Aegyo~!</p>
+<p>Aegyo of child Linling and Zero Two pose of adult Linling requested by MidNightSKY-nim!</p>
+<p>Child Linling Aegyo!</p>
 <p>Half Ball Heart</p>
 <p>Double Ball Heart</p>
-<p>Finger Heart~! Hehe, actually, you made the same Request before, so.... I've run out of repertoire hehe.</p>
-<p>Adult Linling~!</p>
+<p>Finger Heart! Hehe, actually, you made the same Request before, so.... I've run out of repertoire hehe.</p>
+<p>Adult Linling!</p>
 <p>I remade the adult Linling drawing style hehe.</p>
-<p>Yang Seol-hui and Tang So-hwa sexy Cheongsam requested by Iseibu-nim~!</p>
-<p>From Yang Seol-hui~!</p>
+<p>Yang Seol-hui and Tang So-hwa sexy Cheongsam requested by Iseibu-nim!</p>
+<p>From Yang Seol-hui!</p>
 <p>You might say, what's so sexy about this Cheongsam? But if you look closely, it's a Cheongsam designed to reveal the Side breast hehe.</p>
-<p>Tang So-hwa~!</p>
+<p>Tang So-hwa!</p>
 <p>Tang So-hwa was made with a Cheongsam that showed her Cleavage hehe.</p>

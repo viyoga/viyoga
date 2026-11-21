@@ -7,7 +7,7 @@ chapter = 699
 
 <p>"Oh, are you Aunt Yong-tae?"</p>
 <p>Han Yu-gyeong asked, flustered by the sudden and unexpected appearance of Nae Fitzgerald. I had heard that I had a biracial Caucasian aunt, but I was still a little surprised because she seemed so Western, even though she was my aunt.</p>
-<p>"Oh my~ Are you Yu-gyeong? You're so pretty, you are."</p>
+<p>"Oh my Are you Yu-gyeong? You're so pretty, you are."</p>
 <p>Nae Fitzgerald made a fuss like an ajumma (well, she is an ajumma), praising Han Yu-gyeong for being pretty, which made Ha Ju-yoon even more proud.</p>
 <p>"Arisu is pretty too. She's a Hollywood actress, after all."</p>
 <p>No mother would be upset by praise for their daughter, so Ha Ju-yoon returned Nae Fitzgerald's compliment by praising Arisu.</p>
@@ -25,7 +25,7 @@ chapter = 699
 <p>While everyone's attention was focused on Han Yu-gyeong because of her greeting, I took out my phone and searched for "Phantom Thief François," and there was an article about a chemical research company being robbed of its data this morning.</p>
 <p>The stolen chemical company didn't make any particular comments, so at first I wasn't sure if Phantom Thief François had stolen it, but an article with additional investigation stated that an anonymous employee had reported that Phantom Thief François had stolen the data.</p>
 <p>"How have you been, Nuna?"</p>
-<p>"For me, it's all filming, resting, filming, and resting, so there's nothing to say about whether I'm doing well or not. But if I had to answer, I'd say I haven't been doing well because Yong-tae doesn't come to play often~."</p>
+<p>"For me, it's all filming, resting, filming, and resting, so there's nothing to say about whether I'm doing well or not. But if I had to answer, I'd say I haven't been doing well because Yong-tae doesn't come to play often."</p>
 <p>"Eomma...!"</p>
 <p>Han Yu-gyeong, watching Nae Fitzgerald's reaction to Ha Ju-yoon's flirtatious words, stopped her mother. Of course, Nae Fitzgerald knew all about my relationship with Ha Ju-yoon, so she didn't care, but Han Yu-gyeong wouldn't know that, so she was stopping Ha Ju-yoon.</p>
 <p>"The food will get cold. Let's talk while we eat."</p>
@@ -59,7 +59,7 @@ chapter = 699
 <p>Of course, Nae Fitzgerald was probably expecting to be alone with me for lewd reasons. She wouldn't be able to satisfy her itchy desires if Han Yu-gyeong was there.</p>
 <p>Of course, I wasn't completely unexcited either. Sex with Nae Fitzgerald was also quite stimulating.</p>
 <p>To put it a bit exaggeratedly, it was an unusual situation if it wasn't stimulating, since it was an incestuous sex relationship with my girlfriend's cousin's mother and aunt.</p>
-<p>"Sorry~! It's better to meet at a dinner like this than to meet for stiff business matters anyway. Let's meet one more time before I leave the country?"</p>
+<p>"Sorry! It's better to meet at a dinner like this than to meet for stiff business matters anyway. Let's meet one more time before I leave the country?"</p>
 <p>"Okay, Gomo-nim."</p>
 <p>It was a good thing for Han Yu-gyeong to become close to Nae Fitzgerald, the president of the French luxury brand Légion, so she smiled and nodded at the next dinner appointment.</p>
 <p>"Légion also makes perfumes, right? Do you happen to have a chemical research lab?"</p>
@@ -72,7 +72,7 @@ chapter = 699
 <p>"Are you done eating now? I wanted to have a drink, but I heard you have an important negotiation tomorrow, so I didn't want to eat too much, so Eomma held back."</p>
 <p>"Eomma has a shoot in a few days too. Eomma needs to manage her condition too."</p>
 <p>As Ha Ju-yoon got up from her seat and brought up the topic of alcohol, Han Yu-gyeong began to nag. Ha Ju-yoon looked so young that she felt like an older sister being nagged by her younger sister.</p>
-<p>"Aish~! I know, I'm going to go to bed right away."</p>
+<p>"Aish! I know, I'm going to go to bed right away."</p>
 <p>"If you go to bed right after eating, you'll get bloated, so go to bed a little later."</p>
 <p>"Stop it. If you nag so much, men won't like you?"</p>
 <p>Ha Ju-yoon was flapping her hands, telling her nagging daughter to stop. When she said that men don't like nagging, Han Yu-gyeong glanced at me and closed her mouth.</p>
@@ -86,5 +86,5 @@ chapter = 699
 <p>What company negotiation? She's going to sign the conditions we're asking for right away and tell me to go to bed with her. I smiled and nodded at Nae Fitzgerald's words to secure sex time.</p>
 <p>Seeing Ha Ju-yoon nodding, saying, "Yes, yes. It'll take a long time," I had a feeling that Ha Ju-yoon would also attend the negotiation tomorrow.</p>
 <p>____</p>
-<p>Long time no see, Ha Ju-yoon~!</p>
+<p>Long time no see, Ha Ju-yoon!</p>
 <p>Kiyooot!</p>

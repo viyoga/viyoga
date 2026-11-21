@@ -52,7 +52,7 @@ chapter = 806
 <p>He was always wearing a combat helmet that completely covered his Face and a Power Suit that covered his Figure, so he was a mysterious Character who didn't know if he was a woman, a man, an Elderly Person, or a child, but it was somewhat amazing and empty to see his True Identity revealed like this.</p>
 <p>But in the game, Juuki was clearly a Freelancer without Affiliation.... Does that mean something will happen to Taira Kanna in the future? Of course, the future has changed a lot because I possessed and acted, but it seemed necessary to watch.</p>
 <p>'I still have work left, so I have to go to the education preparation room. You guys also have exams starting today, so go study.'</p>
-<p>'Yes, Orabeoni~! Let's meet up after the exams are over. I'll treat you to a meal.'</p>
+<p>'Yes, Orabeoni! Let's meet up after the exams are over. I'll treat you to a meal.'</p>
 <p>'Since my kidnapping PTSD won't disappear, I won't go to the restaurant that Kanna invited me to, so I'll buy the Meal.'</p>
 <p>'Ufufufu....'</p>
 <p>After making an appointment with Taira Kanna after the exams, I headed back to the education preparation room. As much as the Students were studying, I also hated studying. But since I wanted to have one more PMC, I had no choice but to drag my heavy Feet and study.</p>
@@ -60,7 +60,7 @@ chapter = 806
 <p>After roughly finishing studying, I groaned and stretched my Body a little. My Body was a little stiff from sitting for so long. Before I knew it, the outside of the window had darkened, and when I looked at the clock, it was a little past 7 PM.</p>
 <p>Now I can go Home and have a late dinner. I immediately packed my Luggage and left the special class building. Should I call Saionji Diana, whom I had promised to call in the evening, while going Home?</p>
 <p>When I called Saionji Diana, she answered quickly without the signal ringing several Times. It seemed she was waiting for my Phone Call.</p>
-<p>-Teacher-nim~!</p>
+<p>-Teacher-nim!</p>
 <p>'Yeah, did you have dinner?'</p>
 <p>-I just finished eating. What about Teacher-nim?</p>
 <p>'I'm going Home to eat now. How did it go with the Family?'</p>
@@ -82,11 +82,11 @@ chapter = 806
 <p>-I understand, I remember it too. I'll thank you again. If it wasn't for Teacher-nim, I wouldn't have been able to yell at my Grandfather like that.</p>
 <p>She seemed very touched that I said I hadn't forgotten my promise. I'm embarrassed because she's too grateful...? I could see my Home while walking. I should cut it off with the Excuse that I've arrived.</p>
 <p>'You're welcome.... Ah, I've arrived Home now. Let's talk tomorrow.'</p>
-<p>-I understand, Teacher-nim~! I'll see you tomorrow.</p>
-<p>'Okay, see you tomorrow~!'</p>
+<p>-I understand, Teacher-nim! I'll see you tomorrow.</p>
+<p>'Okay, see you tomorrow!'</p>
 <p>It was Saionji Diana who obediently hung up the Phone at my Words that I had arrived. Still, if Saionji Diana was to get boksu and regain her Father's position someday, it was better to have a Relationship like now than to continue being abandoned by her Family like before.</p>
 <p>Since the Legacy that Saionji Diana will receive this Time has some shares of the Saionji Financial Group, Saionji Diana's grandfather or uncle won't be able to treat Saionji Diana carelessly.</p>
 <p>If they harass Saionji Diana even in the current Situation, I was thinking of properly showing the Saionji Family what a spicy taste is.</p>
-<p>Taira Kanna Footjob Posture requested by seungj050-nim~!</p>
+<p>Taira Kanna Footjob Posture requested by seungj050-nim!</p>
 <p>Yandere Mode</p>
-<p>Kkiyoot~!</p>
+<p>Kkiyoot!</p>

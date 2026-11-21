@@ -131,7 +131,7 @@ Lith thanked Arya by giving her a kiss and saying it to her. He then got back to
 
 Alexandra's insides loosened up a bit and Lith was able to thrust his shaft without feeling any friction. He moved his hips back and forth and spread Alexandra's pussy while hitting her deep inside.
 
-"Ahh~" Alexandra let out her first moan as Lith hit her sweet spot.
+"Ahh" Alexandra let out her first moan as Lith hit her sweet spot.
 
 Arya and Emilia both felt amazed and Emilia was still in disbelief knowing how such a thing could inside such a narrow place fully.
 
@@ -183,7 +183,7 @@ Alexandra let out loud moans as Lith increased pace and also force with which he
 
 Arya and Emilia both could see the blissful face of Alexandra and could make out that she was indeed feeling very good. They were soon thinking of when it would be their turn to feel the same.
 
-"Ahhh~ Ahhh~ Ahhh~" Alexandra let out her tongue and moaned continuously as saliva dripped down from the corner of her mouth.
+"Ahhh Ahhh Ahhh" Alexandra let out her tongue and moaned continuously as saliva dripped down from the corner of her mouth.
 
 Lith bent down while thrusting his shaft in her and sucked one of her boobs. He sucked it hard and swirled his tongue around her nipple. With the other hand, he kneaded her other boob and also pinched and pulled her nipple, causing Alexandra to moan even more loudly.
 
@@ -211,15 +211,15 @@ Alexandra moaned once again loudly and she was almost close to climaxing.
 
 Lith increased his pace again and with one hand, he rubbed Alexandra's erect clit.
 
-"Ahhhhhh~" Alexandra moaned loudly as Lith touched her clit. It was too sensitive and she couldn't help but moan so loud.
+"Ahhhhhh" Alexandra moaned loudly as Lith touched her clit. It was too sensitive and she couldn't help but moan so loud.
 
 A few minutes later…
 
-"Ahhhh~ Ahhhh~ Dar… Darling… I am cumming… I am cumming…" Alexandra said in between her moans.
+"Ahhhh Ahhhh Dar… Darling… I am cumming… I am cumming…" Alexandra said in between her moans.
 
 Spurrrt!
 
-"Ohhhhhh~"
+"Ohhhhhh"
 
 "Hngh."
 

@@ -28,7 +28,7 @@ chapter = 224
 <p>His hand moved instinctively, delivering a gentle pat to the side of one of those large, round, and firm breasts.</p>
 <p>The mountain of pale flesh quivered for a brief moment, lazy ripples spreading across the milky surface in slow, undulating waves before being firmly grasped by her husband’s warm palm.</p>
 <p>His fingers sank deep into the generous softness, the supple flesh swelling obscenely between his digits, spilling out in plump, milky bulges.</p>
-<p>"Nghnn~~ are you that eager to get me pregnant, hubby?" she purred with a heavy gasp, feeling Ethan’s other hand slide down, gliding over her smooth belly until it reached her plump pussy.</p>
+<p>"Nghnn are you that eager to get me pregnant, hubby?" she purred with a heavy gasp, feeling Ethan’s other hand slide down, gliding over her smooth belly until it reached her plump pussy.</p>
 <p>A single finger pressed against her mons pubis, sinking slowly between the soft, warm petals of her swollen labia.</p>
 <p>The satiny skin parted under the pressure, embracing the digit hungrily, as if eager to draw it deeper into that already wet slit.</p>
 <p>Alice shuddered all over, an electric tingle racing up her spine as her back arched sharply off the sheet.</p>
@@ -48,7 +48,7 @@ chapter = 224
 <p>Her huge tits crushed against his torso with a soft, generous weight, the compressed flesh threatening to overflow the tight white top, bulging obscenely over the strained edges of the fabric.</p>
 <p>"What’s the matter?" he asked, his left hand pulling Ophelia’s black skirt up while his right slid down over her full, round, perfect ass, now covered only by thin black pantyhose that outlined every voluptuous curve of that plump flesh.</p>
 <p>His fingers sank into the elastic warmth through the silky fabric, the supple flesh giving way to his possessive grip and quivering in small tremors that radiated across her plump ass.</p>
-<p>"Nghnn~~" she moaned softly, her delicate hands rising to his shoulders in search of support as her body momentarily softened against his.</p>
+<p>"Nghnn" she moaned softly, her delicate hands rising to his shoulders in search of support as her body momentarily softened against his.</p>
 <p>"It’s Alistair. He’s marching toward Goldenveil... They should be here in no more than eight or nine days," she finally said.</p>
 <p>At that moment, Ethan’s eyes flashed, and he clenched his teeth.</p>
 <p>It seemed his peace was over.</p>

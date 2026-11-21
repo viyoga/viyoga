@@ -10,7 +10,7 @@ chapter = 190
 <p>Then, my work continues. Instead of using one, then two fingers, I start off with two and soon move onto three. I gotta say, fingering a girl from behind is significantly easier and more comfortable than from the front.</p>
 <p>To them, it feels similar as if they were doing it themselves, but instead, it's their lover caressing them. And for me, it's also more comfortable to pull my fingers towards myself than push them away.</p>
 <p>A win-win situation.</p>
-<p>"Ahh!~ Ahh!~ Master…" Once I utilize three fingers, Blossom soon erupts into a chorus of lewd noises.</p>
+<p>"Ahh! Ahh! Master…" Once I utilize three fingers, Blossom soon erupts into a chorus of lewd noises.</p>
 <p>It doesn't take long this time. Once she is near eruption, I decide to be a little evil and pinch her clitoris with two of my fingers, and… pull. "KYAAAAAAAA!!!" Perhaps Blossom's loudest shriek of her life reverberates through the cave room. Her eyes roll back from the overwhelming sensation and she enters a dazed state, lingering between consciousness and unconsciousness.</p>
 <p>Her lower half's reaction only lags a second behind. I lean forward and use my knuckles to push her legs out of the way, then use both hands to spread her lower half so that Ayame can truly get everything.</p>
 <p>Then, the explosion arrives.</p>

@@ -151,7 +151,7 @@ Lith was overwhelmed with information.
 
 "…"
 
-"Filled with love, that is. Teehee~ okay, bye. Love you." Lilith said.
+"Filled with love, that is. Teehee okay, bye. Love you." Lilith said.
 
 Lith shook his head with a smile. "Love you too, mom."
 

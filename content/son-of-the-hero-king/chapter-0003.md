@@ -7,7 +7,7 @@ chapter = 3
 
 <p>Milia placed her round and plump butt over his penis and slowly, ever so slowly, began to lower it.</p>
 <p>Her milky white thighs sank down and the labia sucked in the engorged head of his towering penis.</p>
-<p>"Nn~!"</p>
+<p>"Nn!"</p>
 <p>Surprisingly, Milia was the first to raise her voice. The tip had not even fully entered her slit yet, but her thin eyebrows twisted and furrowed while sexual moans escaped with her hot breaths.</p>
 <p>Sol, on the other hand, could not say anything at all. He was spellbound by those well-formed hips sliding back and forth, left and right over his pelvis as if taking aim.</p>
 <p>The fact that the skirt of her maid uniform hid everything that was happening below was particularly erotic in his eyes.</p>
@@ -16,7 +16,7 @@ chapter = 3
 <p>As their union grew deeper, Milia's lovely body arched backward, unable to wait, as she slowly lowered her hips prompting him to grip her waist and lift his own hips up.</p>
 <p>Her beautiful vagina squeezed tight to deepen their bond. Sol had already cum once, so he knew he didn't have to fear cumming too soon.</p>
 <p>"Milia…"</p>
-<p>"Hah~! Maybe I got a little too worked up after such a long time. That felt way too good."</p>
+<p>"Hah! Maybe I got a little too worked up after such a long time. That felt way too good."</p>
 <p>Her tone was a joking one, but a look of longing filled her face as she placed her hands on Sol's stomach and adjusted the depth of her sitting position.</p>
 <p>Her body occasionally trembled as if suffering from small jolts of electric shocks, so he could tell how great the pressure building inside her was.</p>
 <p>The beautiful bowl-shaped breasts, sandwiched between her upper arms, bounced and her wavy black hair fluttered through the air, reflecting the charming moonlight.</p>
@@ -34,19 +34,19 @@ chapter = 3
 <p>Sol stopped holding back and began to thrust his hips up into her twitching and nearly convulsing vagina.</p>
 <p>"I'm so happy I could do this…with someone as pretty as you."</p>
 <p>Those sincere words brought a happy smile to her face.</p>
-<p>"Ara~! I wonder how many girls will fall into your clutches with those sweet words of yours."</p>
+<p>"Ara! I wonder how many girls will fall into your clutches with those sweet words of yours."</p>
 <p>She brought her face in close and moved her lips to the side as she began to lick his ear.</p>
 <p>"Ah! M-Milia…that tickles."</p>
-<p>"Oh? Fufufu! So Your ear is one of your weak points? You are so cute~!"</p>
+<p>"Oh? Fufufu! So Your ear is one of your weak points? You are so cute!"</p>
 <p>She lowered her head before gently biting on his nipple. She knew that even boys were as sensitive as women in that place.</p>
-<p>"Kuh~!"</p>
+<p>"Kuh!"</p>
 <p>He subconsciously reached out his hands to fight back.</p>
 <p>He grabbed both of her soft breasts, pressing them against his chest.</p>
 <p>Milia did not stop and continued bouncing her plump butt up and down. She stopped licking his nipple and straightened herself in order to give him better access.</p>
 <p>Her ample breasts jiggled and her milk-seeping nipples danced erotically before his eyes while an obscenely sticky sound came from their union as her love juices soaked them both.</p>
-<p>“Ahh, nhh…y-yes. Sol, please suck on my breasts. Drink my milk~!"</p>
+<p>“Ahh, nhh…y-yes. Sol, please suck on my breasts. Drink my milk!"</p>
 <p>She pleaded as she leaned down while keeping her hips moving up and down, never breaking the rhythm. He was at the mercy of the pleasure from her vaginal flesh roughly rubbing against all the sensitive spots of his penis, and her tongue on his nipple so he obediently grabbed the heavy boobs pushed in front of his face and gently sucked on the nipples.</p>
-<p>“Ah~! Yes! Suck them harder!”</p>
+<p>“Ah! Yes! Suck them harder!”</p>
 <p>Milia cried out as soon as he started sucking out her milk. The slap of flesh on flesh and her moans echoed through the room, which only increased his ever-growing lust.</p>
 <p>The breast of a cow woman would become particularly sensitive during sex. Sol couldn't even imagine how much pleasure he was bringing her just by doing that.</p>
 <p>"Nn.. Ahh, Sol… You're such a dirty boy."</p>
@@ -54,10 +54,10 @@ chapter = 3
 <p>She just smiled seductively as her butt started wiggling and gyrating around in circles all on its own. Just as it seemed to be moving right, it would turn left. Meanwhile, her inner flesh continued to gently constrict, stroking the brazen younger boy inside her.</p>
 <p>The creaking of the bed grew louder and louder.</p>
 <p>"Ahh… Milia. I'm cumming again… "</p>
-<p>"Fufufu~!" She tightened her hold on him as she began to accelerate, her eyes shining with unconcealed anticipation. "Go ahead. Just let your desire flow…"</p>
+<p>"Fufufu!" She tightened her hold on him as she began to accelerate, her eyes shining with unconcealed anticipation. "Go ahead. Just let your desire flow…"</p>
 <p>Her hair danced wildly just like silk as it flew through the air.</p>
 <p>The pressure around Sol's penis was simply too great as she continued to tighten herself. He gave one last mighty thrust and buried himself to the hilt in her vagina, hitting her cervix.</p>
-<p>"Ah~!!!!!!"</p>
+<p>"Ah!!!!!!"</p>
 <p>The wonderful shock was so great that a low moan left her throat.</p>
 <p>Her entire body was wet and shining with sweat as she tensed up like a beast and breathed out her sensual moans of pleasure.</p>
 <p>Her beautiful breasts jiggled boldly before his eyes and milk squirted out in a rainbow-like arc. The warm milk splashed onto his body and face, so it felt like receiving a milk shower.</p>
@@ -70,7 +70,7 @@ chapter = 3
 <p>"...Ahh… "</p>
 <p>'Sex is really amazing. I feel so full right now.'</p>
 <p>Milia seemed to literally become a blazing inferno. A switch flipped inside her as a large grin covered her face.</p>
-<p>"Heheh~! You can keep going, right?"</p>
+<p>"Heheh! You can keep going, right?"</p>
 <p>A shiver of nervous anticipation went through his spine. Her predatory eyes seemed as if it was about to devour him and frankly, he wished for it</p>
 <p>She didn't wait for him to answer as she resumed swinging her hips, bringing him a new sensation of pleasure.</p>
 <p>"Let's continue. This time. I will show you how it's done."</p>

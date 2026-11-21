@@ -21,7 +21,7 @@ chapter = 514
 
 <p>Chloe sensed something was off; he seemed way too interested in this topic.</p>
 
-<p>&quot;Maybe~!&quot;</p>
+<p>&quot;Maybe!&quot;</p>
 
 <p>Luis stroked her pretty face and said softly, &quot;I told you before, I have other women, and you said you didn&#x27;t mind.&quot;</p>
 

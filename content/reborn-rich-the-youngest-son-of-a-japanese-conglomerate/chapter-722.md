@@ -15,9 +15,9 @@ chapter = 722
 <p>,Oh, Mother...! Ah, hello.</p>
 <p>,Hmph...! Who's your mother?</p>
 <p>When Han Yu-gyeong-ssi greeted her, Jinmija Yeosa-nim spoke coldly. Instantly, the atmosphere in the room froze. Jinmija Yeosa-nim, who had been wearing a cold expression for a moment, suddenly smiled after seeing everyone's expressions.</p>
-<p>,Ohoho, sorry, sorry.... I wanted to say this line after watching a drama. Are you Yu-gyeong-ssi? Nice to meet you~!</p>
+<p>,Ohoho, sorry, sorry.... I wanted to say this line after watching a drama. Are you Yu-gyeong-ssi? Nice to meet you!</p>
 <p>Ah.... It was a joke. I was so nervous. I was wondering what to do with this atmosphere after Jinmija Yeosa-nim's sudden outburst, but thankfully it was just a joke.</p>
-<p>,Ah, you scared me, Mother~!</p>
+<p>,Ah, you scared me, Mother!</p>
 <p>Han Yu-gyeong-ssi was acting cute to Jinmija Yeosa-nim, even though they had just met. Still, because Han Yu-gyeong-ssi is pretty, even if she acts cute on the first meeting, it wasn't unpleasant. Jinmija Yeosa-nim smiled at Han Yu-gyeong-ssi's appearance.</p>
 <p>,Hoho, let's sit down first.</p>
 <p>As Jinmija Yeosa-nim said, everyone sat down. Soon the meal came out, and we had a friendly conversation while eating.</p>
@@ -74,7 +74,7 @@ chapter = 722
 <p>,Listen to the story? Here's a child in a swimsuit in the middle of winter calling you Master-nim...!</p>
 <p>Jinmija Yeosa-nim put her hands on her hips as if she was very angry and was about to start scolding me. But soon she couldn't help but start laughing, and Han Yu-gyeong-ssi also laughed loudly while watching.</p>
 <p>,Don't tell me it was a joke?</p>
-<p>,I talked to Yu-gyeong-ssi when you went to the bathroom earlier~! Yu-gyeong-ssi contacted the research institute.</p>
+<p>,I talked to Yu-gyeong-ssi when you went to the bathroom earlier! Yu-gyeong-ssi contacted the research institute.</p>
 <p>Oh, this ahjumma.... She made fun of Yu-gyeong-ssi earlier, and it seems like she was trying to make fun of me too. I looked at Linling with a resentful expression. Linling still opened her mouth with a blank expression.</p>
 <p>,I just wore today's outfit that Lara Sinclair chose for me, Jin Yong-tae, Master-nim.</p>
 <p>In the end, the conspirators to make fun of me were Jinmija Yeosa-nim, Han Yu-gyeong-ssi, and Lara Sinclair. Linling just wore what she was told to wear.</p>

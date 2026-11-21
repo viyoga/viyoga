@@ -45,7 +45,7 @@ chapter = 417
 <p>"You should know better than to fight a losing battle," Brogan said as he began to lift off the ground just by the strength of his magic while spreading his arms to summon spell circles above both his hands.</p>
 <p>Alexia's brows remained furrowed.</p>
 <p>"Of course, I do," she said, "But this isn't that."</p>
-<p>~Von Helsing Arts: Monster's Bane~</p>
+<p>Von Helsing Arts: Monster's Bane</p>
 <p>It wasn't a spell, it was an innate ability within her blood, and activated by the induction ritual. A torrent of magical might spread out of Alexia's form in a powerful wave. It was well past the sixth Circle and well into the Seventh and yet, it didn't seem to actually have a rigid circle classification.</p>
 <p>It ebbed and flowed as though unstable and yet, was balanced. A violent torrent that consumed all rationality and yet brought a wave of calm and clarity. Such were the contradictions within the Von Helsing Arts and the source of their great aptitude against monsters.</p>
 <p>It was as though the presence of the vampire before her disgusted Alexia so much that she gained strength greater than her own through sheer will.</p>

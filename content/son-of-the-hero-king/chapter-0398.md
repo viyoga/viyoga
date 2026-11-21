@@ -18,10 +18,10 @@ chapter = 398
 <p>“Hum..?”</p>
 <p>The two girls were clearly startled by the sudden question.</p>
 <p>Sheherazade tilted her in confusion before musing.</p>
-<p>“You know…I am not really super smart or strong. Haha~”</p>
+<p>“You know…I am not really super smart or strong. Haha”</p>
 <p>She gave an embarrassed smile before continuing, “--But you see. I don’t really have a choice, right? It isn’t like crying or being angry will change my situation. I don’t like sad things. So I do not want to become sad myself.”</p>
 <p>Sol was speechless by such simple reasoning, “Then are you forcing yourself to show happiness?”</p>
-<p>“Heh? Not really? I mean, I can eat well, live well, I have Isis and now I am even visiting the mortal realm. Hahaha~! My life is so blissful. So why should I only see the negatives? Life is much more fun when you laugh.”</p>
+<p>“Heh? Not really? I mean, I can eat well, live well, I have Isis and now I am even visiting the mortal realm. Hahaha! My life is so blissful. So why should I only see the negatives? Life is much more fun when you laugh.”</p>
 <p>Seeing Sol looking at her with a weird expression, Sheherazade became flustered,</p>
 <p>“Sorry. Like I said, I am not really smart. I don’t know how else to explain myself.”</p>
 <p>“No…”</p>
@@ -46,7 +46,7 @@ chapter = 398
 <p>One chooses to give up on life after losing the one she cared the most for. Living only in the past and ignoring the present or the future.</p>
 <p>Another choose to laugh at the face of Fate even after losing everything she had and decided to focus on the present and the future.</p>
 <p>“Hahaha, you are really incredible.”</p>
-<p>“I am? Hehehe~! Of course, I am! Bow in front of my awesome self!”</p>
+<p>“I am? Hehehe! Of course, I am! Bow in front of my awesome self!”</p>
 <p>“Of course, your fabulousness.”</p>
 <p>Sheherazade laughed and flew before landing on Sol’s head between his horns, “Let’s go! My proud stead. Let’s stop thinking about the difficult thing and let’s have fun!”</p>
 <p>Isis opened her eyes wide when she saw this. Even though Sol was not raised by dragons, she knew very well how angry they could become if someone they did not respect tried to mount them.</p>

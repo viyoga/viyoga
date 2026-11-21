@@ -370,7 +370,7 @@ He grinded his shaft inside her and did slight thrusts, trying to hit her weak s
 
 
 
-"Ah~" Jackie's moan slipped out when her sweet spot was finally hit.
+"Ah" Jackie's moan slipped out when her sweet spot was finally hit.
 
 
 

@@ -61,6 +61,6 @@ chapter = 38
 <p>Slowly, she crawled up onto him, her hands resting on his strong chest and her plump, full, round ass nestling into his lap.</p>
 <p>Her long, slender fingers reached for the tight top, and with a gentle motion, she unbuttoned it, revealing large, heavy breasts, covered in perfect tan lines and crowned by soft, pink nipples.</p>
 <p>Ethan’s hands immediately reached for her huge tits, firm yet soft, his fingers swallowed up by those plump, perfect mounds.</p>
-<p>"Fufufu~~" Evelyn giggled, her eyes taking on an expression that made Ethan feel a little strange.</p>
+<p>"Fufufu" Evelyn giggled, her eyes taking on an expression that made Ethan feel a little strange.</p>
 <p>Leaning over him, her lips parted. "I’m going to cripple you."</p>
 <p>"Oh shit..."</p>

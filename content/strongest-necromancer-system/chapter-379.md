@@ -5,7 +5,7 @@ weight = 379
 chapter = 379
 +++
 
-<p>"UGHHHH~!!!"</p>
+<p>"UGHHHH!!!"</p>
 <p>Gina groaned deep in her throat as her entire body began to shake! Her legs vibrated like a fucking phone, and she tightened up around Jason as her juices fell to the bed! The feeling of his girl going so far over the edge was enough to throw Jason off that edge as well, and he grunted and cursed as he felt his own orgasm shoot through him! Jason slammed into Gina one last time and came hard, and he finally released her hands and leaned forward so that his body was covering her own! The two lovers shook on the bed as their orgasm almost drove them to insanity, and Jason continued to move slowly as he released everything inside her. Jason’s face was pressed into the back of Gina’s neck, and Jason could hear her soft, sexy moan reaching in his ear as she tried to come down from her orgasm! Jason placed a soft kiss on the back of her neck and Gina smiled while breathing heavily into the pillow. Her hair was a mess, and she looked like she had just come out of another battle against the Sovereign himself, but there was a shine around her that made her glow beautifully, and Gina had never felt more satisfied than she did at that moment.</p>
 <p>"I love you, Jason... More than anything in the world. I really... really love you."</p>
 <p>Jason smiled when he heard Gina confessing to him in a soft voice, and he placed another kiss on her neck and said.</p>

@@ -59,7 +59,7 @@ chapter = 283
 <p>His hand sank into the soft, ample flesh, one round cheek molding around his fingers before springing back with a heavy quake that rolled across her ass.</p>
 <p>A sweet squeal escaped her parted lips, her body arching forward from the sudden impact.</p>
 <p>Her extraction spell dissolved instantly, the mana particles dissipating into the air like tiny stray sparks.</p>
-<p>"Ah~ Ethan... I’m busy right now, can’t you see?"</p>
+<p>"Ah Ethan... I’m busy right now, can’t you see?"</p>
 <p>"I can see." Ethan leaned in from behind her, planting a slow kiss along the delicate curve of her neck, his warm lips gliding gently across her soft skin.</p>
 <p>His gaze, however, quickly drifted down to the single crystal pinched between Alice’s slender fingers.</p>
 <p>"I’ve been working for almost an hour, and that’s all I’ve managed to extract," she said with a weary sigh, passing the crystal into his hand.</p>

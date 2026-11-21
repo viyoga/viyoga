@@ -17,7 +17,7 @@ chapter = 453
 <p>The other rested on a back that seemed far too delicate for a body of such obscene proportions.</p>
 <p>“How do you manage to get comfortable in that position?” Ethan asked, his voice still hoarse with sleep.</p>
 <p>Hilda’s eyes cracked open for a moment, then closed again.</p>
-<p>“Nghnn~~ silence, pillow,” she grumbled, rubbing her face against his chest as a sleepy grunt escaped her lips.</p>
+<p>“Nghnn silence, pillow,” she grumbled, rubbing her face against his chest as a sleepy grunt escaped her lips.</p>
 <p>She gave his chest a lazy pat, as if to punish him for waking her, and then relaxed again, her entire body going limp on top of him and her heavy breasts spreading even heavier against his stomach.</p>
 <p>Ethan sighed. Then he slid both hands down her back, following the dip of her spine and the curve of her waist until he reached Hilda’s ass, and gripped it tightly.</p>
 <p>It was like sinking his fingers into a pillow made of some kind of divine silk, too soft to be real.</p>

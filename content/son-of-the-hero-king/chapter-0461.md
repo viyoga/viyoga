@@ -16,7 +16,7 @@ chapter = 461
 <p>War was a great calamity for normal citizens. But for adventurers, this was a period that could greatly increase their revenues and accolades. There was no way in hell any sane adventurer was about to miss a situation like this one.</p>
 <p>———</p>
 <p>The interior of the adventurer guild was fused with a large tavern and the crowd was as rowdy as always.</p>
-<p>Gulp~</p>
+<p>Gulp</p>
 <p>“Kuh. Gotta say, nothing better than a beer after a hard day of work, innit?”</p>
 <p>Sitting close to the main reception area, a dwarf with a thick beer guffawed in pure pleasure after downing a large mug of beer down his throat.</p>
 <p>His stocky face was rosy from the alcohol and he wiped his mouth with the back of his hand in a vulgar display of manners.</p>
@@ -28,7 +28,7 @@ chapter = 461
 <p>“I dare you to finish that sentence.”</p>
 <p>The dwarf raised his hands in surrender when he felt the cold blade neatly placed against his beard.</p>
 <p>“Everything but the beard. I won’t be able to woo any woman without a thick and bushy beard like mine.”</p>
-<p>“Scoff~ I thought beer was your only love in life?”</p>
+<p>“Scoff I thought beer was your only love in life?”</p>
 <p>“I am an ever unfaithful one.”</p>
 <p>The two men who were sitting at the same table as the bickering duo chuckled as they watched the usual scene unfold between the dwarf and the exotic bunny woman.</p>
 <p>Even so, it was something they appreciated as they did not have many friends.</p>

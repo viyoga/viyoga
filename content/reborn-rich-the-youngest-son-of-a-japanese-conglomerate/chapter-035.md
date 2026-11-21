@@ -19,7 +19,7 @@ chapter = 35
 <p>,We're in the same agency. I met her at the Taira Entertainment office.</p>
 <p>Ah, I see. When I searched, Hanasaki Sayaka was also under Taira Entertainment.</p>
 <p>,Are we going to Hanasaki-ssi's parents' store again today?</p>
-<p>,No~, Sayaka doesn't go to her parents' store often. She's so popular that the store gets noisy. She sometimes goes wearing glasses, a mask, and even a hat, though.</p>
+<p>,No, Sayaka doesn't go to her parents' store often. She's so popular that the store gets noisy. She sometimes goes wearing glasses, a mask, and even a hat, though.</p>
 <p>Arisu said to leave today's date course to her, so I still don't know what we're going to do. Except for banging at night, that is.</p>
 <p>,Hmm.... We usually hang out at karaoke, then get a hotel and eat with room service, or eat at a restaurant with separate rooms.</p>
 <p>Hanasaki Sayaka is a celebrity, so they probably hung out in places with rooms as much as possible. Well, that's not bad either.</p>
@@ -50,7 +50,7 @@ chapter = 35
 <p>The security guard was politely greeting me, but if I caused a disturbance or harmed a celebrity belonging to Taira Entertainment, he would become very scary, right? I'm a little curious, is there anyone causing a disturbance...?</p>
 <p>The place where I got off the elevator was like a plaza, and tables and chairs were arranged like a cafe, and there was a bar on one side that provided drinks, so it was really a cafe. They probably serve alcohol as well as coffee.</p>
 <p>,Arisu!</p>
-<p>,Kyaaak! Sayaka~!</p>
+<p>,Kyaaak! Sayaka!</p>
 <p>Hanasaki Sayaka, who was elegantly drinking coffee on one side, put down her coffee and ran to Arisu with her arms open. Arisu also jumped up and down and ran to Hanasaki Sayaka. She's so much like a puppy.</p>
 <p>Hanasaki Sayaka was more beautiful than she looked on TV, and she was a beauty with a calm impression and an impressive beauty mark. Her hair color was a somewhat flashy purplish unique color, but she probably dyed it that color because of drama or movie filming. Her figure was slender and somewhat thin, but her breasts seemed to be about a B cup. You could say she had the kind of body that women go crazy for, thin but also with volume?</p>
 <p>,This is my cousin Ryuta. You know her well, right? My friend Sayaka.</p>
@@ -74,7 +74,7 @@ chapter = 35
 <p>,As expected, it's different when a professional is attached, it's gotten a lot better.</p>
 <p>,Ah! Sayaka also sings very well!</p>
 <p>At Arisu's words, Hanasaki Sayaka said quietly that she would sing. As Arisu said, she sang quite well. She sang in a voice as clear as glass, and if Arisu's style was flashy, Hanasaki Sayaka's style was clear. At first, she was shy, but as she sang, she got excited and sang quite naturally.</p>
-<p>,As expected, Sayaka~! You sing so well!</p>
+<p>,As expected, Sayaka! You sing so well!</p>
 <p>,You could work as a singer?</p>
 <p>,Singing is a bit.... I'm shy about singing in front of people.</p>
 <p>She's a celebrity, but she seems to have a shy personality. Is that why the agency is pushing her as mysterious? It was my turn, so I received the microphone from Arisu and sang. I'm usually average, so I didn't want to sing after someone who sings well, but since two out of three people sang well, I had no choice but to be stuck between people who sing well.</p>

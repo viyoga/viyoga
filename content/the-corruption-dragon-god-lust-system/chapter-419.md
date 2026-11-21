@@ -17,7 +17,7 @@ chapter = 419
 
 <p>“What do you think of this place?” Qingyi asked, wrapping his hands around her delicate waist and moving down slightly, giving her perfect, plump bubble-butt a hard slap.</p>
 
-<p>“Nghnn~~ it’s good… Meilin replied, blushing softly. “If we can connect it to the central pavilion in Eagle Peak Valley and start flowing eastern goods here and western goods there…”</p>
+<p>“Nghnn it’s good… Meilin replied, blushing softly. “If we can connect it to the central pavilion in Eagle Peak Valley and start flowing eastern goods here and western goods there…”</p>
 
 <p>Just thinking about it was enough to make Meilin salivate.</p>
 

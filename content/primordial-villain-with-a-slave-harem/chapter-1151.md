@@ -27,7 +27,7 @@ chapter = 1151
 <p>The Withered Flame.</p>
 <p>The corrupted goddess.</p>
 <p>Sel’Ashra’s voice slithered across his consciousness like a serpent coiling around its prey.</p>
-<p>"Ohhh, how sweet, little primordial. You remembered me so quickly, almost as if I never left your mind to begin with. I must’ve left a lasting impression if my name bursts from your lips the moment you feel something wrong~."</p>
+<p>"Ohhh, how sweet, little primordial. You remembered me so quickly, almost as if I never left your mind to begin with. I must’ve left a lasting impression if my name bursts from your lips the moment you feel something wrong."</p>
 <p>Her tone dripped with cruel amusement, every syllable dripping with a weird power that was best described as ’wrong.’</p>
 <p>It made the dryad’s cries falter.</p>
 <p>"You’re still refusing, aren’t you? Still rejecting the gift that you were so lucky to have land in your lap. The precious little corruption seed..."</p>

@@ -57,5 +57,5 @@ chapter = 1510
 <p>Closed.</p>
 <p>Opened again.</p>
 <p>Nothing came out.</p>
-<p>"I don't know~" Quinlan mused, looking sideways as if the whole affair had grown tiresome. "I'm not really feeling like negotiating with you anymore. You're too loud and annoying. The Goddess' limitless hypocrisy is oozing from you." He waved a hand lazily. "Maybe I'll just skip the coexistence part and do this the old-fashioned way. Conqueror style."</p>
+<p>"I don't know" Quinlan mused, looking sideways as if the whole affair had grown tiresome. "I'm not really feeling like negotiating with you anymore. You're too loud and annoying. The Goddess' limitless hypocrisy is oozing from you." He waved a hand lazily. "Maybe I'll just skip the coexistence part and do this the old-fashioned way. Conqueror style."</p>
 <p>The color drained from Velara's face.</p>

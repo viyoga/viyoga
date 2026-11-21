@@ -85,7 +85,7 @@ chapter = 650
 
 <p>Her delicate hand reached straight over and, through his pants, began stroking Luis&#x27;s cock. She said coquettishly, &quot;Sugar daddy, I&#x27;m an honest girl at heart. I&#x27;ve got my eye on a handbag, and I&#x27;m still short two thousand dollars.&quot;</p>
 
-<p>&quot;Help a girl out, won&#x27;t you~&quot;</p>
+<p>&quot;Help a girl out, won&#x27;t you&quot;</p>
 
 <p>Compared to those scheming, manipulative fake bitches, her straightforward approach was actually somewhat admirable.</p>
 
@@ -123,7 +123,7 @@ chapter = 650
 
 <p>This little slut was actually wearing a thong, which didn&#x27;t serve any modesty purpose at all. Without even needing to take it off, Luis could easily use his fingers to toy with her already soaking wet pussy.</p>
 
-<p>&quot;You like it, don&#x27;t you~ I changed into it on purpose just now…&quot;</p>
+<p>&quot;You like it, don&#x27;t you I changed into it on purpose just now…&quot;</p>
 
 <p>Chloe moaned as she kept her little mouth on the man&#x27;s cock, bobbing up and down. It was so big, she simply couldn&#x27;t fit it all in.</p>
 

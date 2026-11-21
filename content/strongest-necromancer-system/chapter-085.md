@@ -43,7 +43,7 @@ chapter = 85
 <p>[The user’s Avarian genome has strengthened the user’s digestive tract and ensured that it is capable of negating the effects of any poison, debuff, elemental attack, or alchemy that enters the user’s stomach. This is common with the Avarian race and it is done to ensure they are capable of consuming Magic Crystals freely. The user does not need to worry about having his stomach ’hollowed out’.]</p>
 <p>Jason hummed as a smile bloomed on his face. That was perfect! Now all he had to do was prevent the crystal from burning him on the outside. Once he ingested it, he didn’t have to worry anymore.</p>
 <p>Jason activated his [Exoskeletal Armor] and then used his [Mana Frenzy] to boost his stats by a hundred percent. His mana immediately began to drop significantly, but he ignored it as he opened his Alternate Dimension and summoned the crystal into his hand.</p>
-<p>Sizzle~!</p>
+<p>Sizzle!</p>
 <p>The crystal immediately began to sizzle the moment it dropped into Jason’s hand, and Jason grimaced. But he bore with the slight burning sensation, and the pain eventually faded until it was barely noticeable. That meant that he would bear the heat with this much protection at least. The crystal was as large as a basketball with a pulsing red glow shining from inside. When Jason looked closely, he could tell that the glow on the inside looked similar to lava.</p>
 <p>Jason turned to Ragnar and raised the crystal to him before ordering him to break it into pieces. Ragnar tilted his head to one side like a confused puppy, and Jason told him to bite it really hard! Ragnar finally leaned down and grabbed the crystal in his mouth before biting hard!</p>
 <p>Crack!</p>

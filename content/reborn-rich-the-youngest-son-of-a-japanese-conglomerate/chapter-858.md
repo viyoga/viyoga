@@ -80,10 +80,10 @@ chapter = 858
 <p>Seeing her laugh somewhat dangerously, I doubted if she was truly the kind Infirmary Teacher I had shared lunch with at St. Francis Girls' Academy until now.</p>
 <p>"If sensei had abandoned me, I was going to poison you and have you taxidermied, so I could look at only sensei for the rest of my life.... But this is even better. You can meet other Women, just don't abandon me. Sensei, I love you...♥"</p>
 <p>What? Taxidermy me...?! Kijimoto Jurie's Words sent shivers down my spine, giving me Goosebumps. Why are so many of the Women I meet not normal? Could it be that I'm the strange one?</p>
-<p>Requested by TheDreaming-nim: Lisa-ttang fitting room, department store Exposure Filming~!</p>
-<p>Fitting room~!</p>
-<p>Department store~!</p>
+<p>Requested by TheDreaming-nim: Lisa-ttang fitting room, department store Exposure Filming!</p>
+<p>Fitting room!</p>
+<p>Department store!</p>
 <p>The department store image shows her getting very angry at the phone Photo hehehe.</p>
 <p>There were too many People in the background, to the point of ruining the drawing's Atmosphere, so I mainly uploaded images without People hehe. The last image was the minimum number of People hehe.</p>
-<p>Yukiko Practice~!</p>
+<p>Yukiko Practice!</p>
 <p>I'm trying to create them while changing the art style hehe.</p>

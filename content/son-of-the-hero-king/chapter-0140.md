@@ -65,7 +65,7 @@ chapter = 140
 <p>Meanwhile, feeling his gaze on her, Persephone raised her head from her book and smiled at Sol,</p>
 <p>“Hello little Sol. Seeing your face brightens my day.”</p>
 <p>Answering her smile with one of his, he said, “Good afternoon Miss Persephone. I hope I am not disturbing you. How is my aunt?”</p>
-<p>“Fufufu~! I already asked you to be less stiff when speaking to me. If not for that midget I would have been your godmother, you know? Sigh, to think that my centuries of accumulation wouldn’t beat the wealth of a young dwarf.”</p>
+<p>“Fufufu! I already asked you to be less stiff when speaking to me. If not for that midget I would have been your godmother, you know? Sigh, to think that my centuries of accumulation wouldn’t beat the wealth of a young dwarf.”</p>
 <p>Persephone proceed to ramble for a while before stopping, a blush covering her face,</p>
 <p>“Oh my, where are my manners? Lilith is quite alright, I would say. Though she had accumulated an excessive amount of fatigue because of her lack of sleep and excessive use of sleeping pills. I was quite surprised.”</p>
 <p>Sol frowned and began to walk until he stood near Lilith's bedside.</p>

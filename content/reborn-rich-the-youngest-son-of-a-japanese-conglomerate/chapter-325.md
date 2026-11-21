@@ -60,7 +60,7 @@ chapter = 325
 <p>She just wanted to create a meditation club that would make school life easier, but now there's competition. For Seizawa Shii, who has a laid-back personality, it has become a troublesome matter.</p>
 <p>Minamoto Risa ignored Seizawa Shii's grumbling and elegantly twirled the pasta in front of her and brought it to her mouth. Then, she chewed the food exactly 30 times before swallowing and opening her mouth.</p>
 <p>,Don't worry. I have something in mind."</p>
-<p>,Huh? Can we win? Risa-tan~! Tell me quickly!"</p>
+<p>,Huh? Can we win? Risa-tan! Tell me quickly!"</p>
 <p>Seizawa Shii was curious about Minamoto Risa's calm attitude and begged her to tell her quickly. In Seizawa Shii's eyes, the dating experience club seemed much more fun than the boring meditation club.</p>
 <p>,The homeroom teacher told us to do it fairly, but there are no specific laws for creating a club."</p>
 <p>,Right? Five members and one advisor are all the rules, right?"</p>
@@ -75,4 +75,4 @@ chapter = 325
 <p>Minamoto Risa was confident that she would win. If she could borrow the power of the Minamoto Group, that is.</p>
 <p>---</p>
 <p>Masked Girl Sakagami Rena</p>
-<p>She's a mysterious girl~!</p>
+<p>She's a mysterious girl!</p>

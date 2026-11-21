@@ -44,7 +44,7 @@ chapter = 1041
 <p>His declaration lost some of its authority as the shrine maiden was still pinching his cheeks.</p>
 <p>"You certainly implied it, though."</p>
 <p>"No."</p>
-<p>"Merely saying no doesn’t take back what has already left your mouth. I was listening very carefully, you know~"</p>
+<p>"Merely saying no doesn’t take back what has already left your mouth. I was listening very carefully, you know"</p>
 <p>"..." He didn’t know how to react to this situation.</p>
 <p>Bantering with this woman was far more entertaining than he ever thought, considering the aloof first impression she gave.</p>
 <p>"I shall stop messing with you now," Yunohana announced softly, smiling. She released his cheeks from their imprisonment. "You’re still my sick patient, after all."</p>

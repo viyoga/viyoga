@@ -38,7 +38,7 @@ chapter = 822
 <p>Although Minamoto Lisa, Oofuchi Erika, Shido Tsubaki, and others were taking the university entrance common test, they said they would meet their families after the test, so I didn't need to prepare anything.</p>
 <p>Later, around the time the test ends, I'll just send them each a Text Message saying they worked hard.</p>
 <p>So today, no matter what anyone says, I plan to lounge around and Rest. Since I worked hard this week, I made a firm Resolve that I would continue to Rest today unless a War broke out.</p>
-<p>Uwoong~! As soon as I thought I had made a firm Resolve, my phone rang. Who is it? I picked up my phone to check, and it was Urabe Konoka.</p>
+<p>Uwoong! As soon as I thought I had made a firm Resolve, my phone rang. Who is it? I picked up my phone to check, and it was Urabe Konoka.</p>
 <p>"Hello? Konoka, what's up?" -Teacher-nim, Lizhael-nim said she completed the Bracelet.</p>
 <p>At Urabe Konoka's words, I sprang up from my Seat. No matter how important Rest was, I couldn't resist a new Item of equipment. She said it seemed like it would be finished quickly yesterday, and it seemed to have been completed in just one day.</p>
 <p>"I just go to the shrine, right? I'll go now." -Lizhael-nim said to buy some sweet Dessert on your way!</p>
@@ -72,4 +72,4 @@ chapter = 822
 <p>When in Armor form, it came with powerful Defense and an option to reduce enemy Divinity Damage, and 'Divinity Damage' seemed to be a general term for things like the Abyss or Genesis Chaos, which are Stats of Outer Gods. This was also not a bad option.</p>
 <p>After all, the ones most likely to be my next Opponents were Takakusaki Gengo, who uses the Abyss, and Anyaji.</p>
 <p>"I should send it to Liz right away." I put on the Bracelet and laid out the Desserts I had bought from the Convenience Store. I was quite pleased, so it was to express my gratitude to Liz.</p>
-<p>________ Urabe Konoka's casual Clothes + Underwear, requested by Gojoy-nim! Casual Clothes Casual clothes are School Uniform + Miko clothing hehe. Underwear~! Kkyaeek~!</p>
+<p>________ Urabe Konoka's casual Clothes + Underwear, requested by Gojoy-nim! Casual Clothes Casual clothes are School Uniform + Miko clothing hehe. Underwear! Kkyaeek!</p>

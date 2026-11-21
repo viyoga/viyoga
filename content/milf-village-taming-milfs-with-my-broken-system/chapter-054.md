@@ -21,7 +21,7 @@ chapter = 54
 
 <p>She resembled a delicate shell, too timid to reveal its mesmerizing pearl to the world.</p>
 
-<p>&quot;Hehe... your attempts at hiding are far too weak, Mom~&quot; Owen smirked.</p>
+<p>&quot;Hehe... your attempts at hiding are far too weak, Mom&quot; Owen smirked.</p>
 
 <p>Her bashful behavior was entirely predictable; as a seasoned connoisseur of modern web fiction, he knew the usual tropes...</p>
 
@@ -37,15 +37,15 @@ chapter = 54
 
 <p>Owen guided her rhythm while softly tracing her earlobe with his tongue, a drop of moisture escaping as they leaned against the kitchen counter.</p>
 
-<p>&quot;Hehe... you need to apply a bit more pressure, Mom~&quot;</p>
+<p>&quot;Hehe... you need to apply a bit more pressure, Mom&quot;</p>
 
-<p>&quot;It’s entirely your fault that I’ve become this incredibly swollen~&quot; Owen teased, lightly biting her ear to leave a subtle mark before shifting his hips closer.</p>
+<p>&quot;It’s entirely your fault that I’ve become this incredibly swollen&quot; Owen teased, lightly biting her ear to leave a subtle mark before shifting his hips closer.</p>
 
 <p>&quot;L-like this...?&quot; For a busty, pent-up MILF, movements were remarkably clumsy.</p>
 
 <p>It was clear that she was entirely inexperienced when it came to providing a handjob.</p>
 
-<p>&quot;You’re rushing it, Mom... you need to handle it with absolute care~&quot;</p>
+<p>&quot;You’re rushing it, Mom... you need to handle it with absolute care&quot;</p>
 
 <p>&quot;O-okay...&quot; She slowly tightened her small hands around his shaft. touching the whole hot thing.</p>
 
@@ -71,13 +71,13 @@ chapter = 54
 
 <p>’Wow... So my pathetic father never once experienced this kind of luxury! ’</p>
 
-<p>&quot;Why did you never give Father this heavenly treatment, Mom~?&quot; Owen asked with a smug grin, seizing the perfect opportunity to tease her even further.</p>
+<p>&quot;Why did you never give Father this heavenly treatment, Mom?&quot; Owen asked with a smug grin, seizing the perfect opportunity to tease her even further.</p>
 
 <p>&quot;I-is it truly necessary to discuss that right now...?&quot; Arielle felt a sudden, profound wave of pity for her husband as the memory of that utterly underwhelming, pathetic man flashed through her mind.</p>
 
 <p>It’s like a twig compared to the bulging thing that she’s currently touching.</p>
 
-<p>&quot;Of course it is, Mom; knowledge is everything~&quot;</p>
+<p>&quot;Of course it is, Mom; knowledge is everything&quot;</p>
 
 <p>&quot;....&quot; She remained entirely silent.</p>
 
@@ -91,7 +91,7 @@ chapter = 54
 
 <p>&quot;M-mmnn...&quot; She nodded softly, recognizing that saying her thoughts would completely shatter any ordinary man’s.</p>
 
-<p>&quot;Hehe... now, guide my clothes down. Let’s finally begin the main event, Mom~&quot; he commanded, signaling that the true climax of the evening was about to commence.</p>
+<p>&quot;Hehe... now, guide my clothes down. Let’s finally begin the main event, Mom&quot; he commanded, signaling that the true climax of the evening was about to commence.</p>
 
 <p>Arielle leaned forward, her hands trembling slightly as she reached down to lower the fabric obscuring the very rocky thing that was filling her mind.</p>
 
@@ -111,7 +111,7 @@ chapter = 54
 
 <p>Her sheer shock was many times greater than Pamela’s reaction.</p>
 
-<p>&quot;Hehe... it’s just your son’s cock, Mom; there’s no need to look so utterly surprised~&quot; Owen gloated, his face twisted into a highly amused, arrogant smirk.</p>
+<p>&quot;Hehe... it’s just your son’s cock, Mom; there’s no need to look so utterly surprised&quot; Owen gloated, his face twisted into a highly amused, arrogant smirk.</p>
 
 <p>He felt an immense wave of pride seeing a pent-up MILF offer such a priceless reaction upon beholding his full glory.</p>
 
@@ -119,6 +119,6 @@ chapter = 54
 
 <p>&quot;I-it’s so incredibly massive...&quot; she whispered subconsciously, her fingers brushing against the hot steel of his shaft, only to gasp and flinch slightly at the intense, radiating warmth.</p>
 
-<p>&quot;It’s built for pounding, Mom, so it’s only natural that it carries a bit of heat~&quot; Owen chuckled.</p>
+<p>&quot;It’s built for pounding, Mom, so it’s only natural that it carries a bit of heat&quot; Owen chuckled.</p>
 
 <p>He wasn’t surprised by the temperature; his cock was absolutely burning with the desire for release, making the scorching heat entirely expected.</p>

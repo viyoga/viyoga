@@ -5,7 +5,7 @@ weight = 436
 chapter = 436
 +++
 
-<p>"Mmh, stop teasing me, oni-chan~"</p>
+<p>"Mmh, stop teasing me, oni-chan"</p>
 <p>A low whine came from the back of Gina’s car, and Gina looked up at the rearview mirror to see Maya lying on the backseat and sleeping like a log. When Gina and Janet had planned to leave for LA earlier, they had accidentally woken Maya up since they were all in the same room, and Maya had cried out since she thought that Janet was trying to leave without telling her again. Jason and Mira had lied to Maya that Janet had left for college the last time Janet ran away, and Maya thought that Janet was leaving to go back to college, and she begged Janet not to go! Maya just got back home a few days ago, so why was Janet already leaving!? It took a lot of explaining and promises from the two girls before they could make Maya stop screaming and shouting, and it wasn’t until they promised to take Maya along that Maya finally agreed to let them go. But they had been driving for the better part of five hours now, and Maya was so exhausted during the car trip that she ended up falling asleep in the backseat, and Gina was sure that Maya would be asleep until they got home!</p>
 <p>Gina smiled when she watched the sleeping girl, but when she heard Maya mutter something about ’redheaded bimbos with big boobs’, her smile fell into a frown. Cheeky brat.</p>
 <p>"Gina, what’s that?"</p>

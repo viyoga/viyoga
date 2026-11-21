@@ -78,8 +78,8 @@ chapter = 915
 <p>1.</p>
 <p>It feels like a duplicate of yesterday, so I'll only upload two images, haha.</p>
 <p>2.</p>
-<p>MidNightSKY-nim requested Alik Seducing with sexy lingerie and Ryuta's Astonishment upon seeing it, and Ryuta enraged after realizing Shii is the Instigator~! It's virtually three Requests, but since it's just changing Expressions, I'll accept the Request this time?! Haha.</p>
-<p>Alik Seducing with sexy lingerie~!</p>
+<p>MidNightSKY-nim requested Alik Seducing with sexy lingerie and Ryuta's Astonishment upon seeing it, and Ryuta enraged after realizing Shii is the Instigator! It's virtually three Requests, but since it's just changing Expressions, I'll accept the Request this time?! Haha.</p>
+<p>Alik Seducing with sexy lingerie!</p>
 <p>Ryuta's Astonishment and enraged Ryuta.</p>
 <p>Astonishment</p>
 <p>Ah, Alik?!</p>

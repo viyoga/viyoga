@@ -17,11 +17,11 @@ chapter = 437
 
 <p>Her eyes widened slightly as a loud, wet smack echoed.</p>
 
-<p>“Nghnn~~ you… what the hell are you planning, huh?” She moaned, panting softly.</p>
+<p>“Nghnn you… what the hell are you planning, huh?” She moaned, panting softly.</p>
 
 <p>Qingyi’s fingers sank into the soft flesh, which rippled like a churning sea, while his other hand flowed to Meilin on his left.</p>
 
-<p>“Ah~~ Does hubby’s greed really have no limit?” Meilin asked, lifting her flushed face.</p>
+<p>“Ah Does hubby’s greed really have no limit?” Meilin asked, lifting her flushed face.</p>
 
 <p>A soft, high-pitched squeal escaped her lips with the impact on her fat, round, perfect ass.</p>
 
@@ -115,7 +115,7 @@ chapter = 437
 
 <p>Her golden hair was crowned with a large, strange hat, and her body was covered by a dress that seemed too short for her proportions. The white fabric sank into her enormous breasts, even larger than Sapphire’s, creating deep, sensual grooves.</p>
 
-<p>“Nghnn~~” The woman groaned painfully.</p>
+<p>“Nghnn” The woman groaned painfully.</p>
 
 <p>Her voice was so high-pitched and sweet that it sounded more like a moan, as if every little sound that escaped her full, pink lips was bathed in honey.</p>
 
@@ -177,7 +177,7 @@ chapter = 437
 
 <p>Traits: Faithful, Milf mommy, Overly sensitive, Overly pure, Naive]</p>
 
-<p>“Y-young man… could you please nghnn~~ move your hand? That’s not…” Celestia asked, almost begging.</p>
+<p>“Y-young man… could you please nghnn move your hand? That’s not…” Celestia asked, almost begging.</p>
 
 <p>Her face was flushed as her body was overcome with strange sensations she had never felt in her entire life.</p>
 

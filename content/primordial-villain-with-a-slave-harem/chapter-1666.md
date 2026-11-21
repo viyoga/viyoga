@@ -14,7 +14,7 @@ chapter = 1666
 <p>"Let go of my hair!"</p>
 <p>"Apologize first."</p>
 <p>"I will NOT! Miri, stop holding my ankle! Your Goddess commands you! Obey!"</p>
-<p>"I'll consider after you apologize~"</p>
+<p>"I'll consider after you apologize"</p>
 <p>"Heresy!!"</p>
 <p>From the pond, Malakar did not turn around.</p>
 <p>He read the golden window with his fishing rod balanced across one knee, and the low chuckle that left the Father of Humanity traveled across the water like a stone skipping twice.</p>

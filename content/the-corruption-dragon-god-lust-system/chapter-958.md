@@ -25,7 +25,7 @@ chapter = 958
 
 <p>At the same time, one of her hands was wrapped around his cock, pumping up and down at a steady rhythm, her slender fingers squeezing his thick member with every stroke.</p>
 
-<p>"Nghnn~~ Qingyi-chan... hubby~ do you like Akane-sama’s milk~? Fufufu~..." She gave a soft giggle, her free hand stroking Qingyi’s black hair as she felt his lips close around one of her baby-pink nipples.</p>
+<p>"Nghnn Qingyi-chan... hubby do you like Akane-sama’s milk? Fufufu..." She gave a soft giggle, her free hand stroking Qingyi’s black hair as she felt his lips close around one of her baby-pink nipples.</p>
 
 <p>The tip was hard and puffy against his tongue.</p>
 
@@ -61,7 +61,7 @@ chapter = 958
 
 <p>Even then, her tongue ran the length of Qingyi’s cock, licking up every last trace until it was completely clean, and only then did she pull away with one last kiss on the tip, satisfied.</p>
 
-<p>"Ah~ Akane-sama is satisfied; I won’t be having dinner tonight, fufufu~" She laughed happily, running her tongue over the corner of her mouth while using her Qi to cleanse her body.</p>
+<p>"Ah Akane-sama is satisfied; I won’t be having dinner tonight, fufufu" She laughed happily, running her tongue over the corner of her mouth while using her Qi to cleanse her body.</p>
 
 <p>With a lazy motion, she scooped her breast back into her kimono, the heavy flesh wobbling against her palm before the fabric stretched to accommodate its fullness.</p>
 

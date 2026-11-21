@@ -167,4 +167,4 @@ Get the privilege reader role and let's talk in #privilege-general.
 
 Thank you for reading, have a nice day, and make sure to drink plenty of water because I am assuming you might be dehydrated a lot after reading these chapters :')))
 
-Sayonara my Gs~
+Sayonara my Gs

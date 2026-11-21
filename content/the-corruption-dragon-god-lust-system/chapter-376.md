@@ -79,7 +79,7 @@ chapter = 376
 
 <p>She was drenched, her fat, pale outer lips glistening with moisture.</p>
 
-<p>“Nghnn~~” She pressed down on a single finger, feeling the incomparable softness of that fat, puffy mound that hid the pink interior of her tight, virgin pussy.</p>
+<p>“Nghnn” She pressed down on a single finger, feeling the incomparable softness of that fat, puffy mound that hid the pink interior of her tight, virgin pussy.</p>
 
 <p>When she withdrew this finger. It was soaked with her love fluids.</p>
 

@@ -26,14 +26,14 @@ chapter = 1015
 <p>"How generous of you."</p>
 <p>Bastet’s solar fire struck beneath its ribs. Armor flashed orange, then white, and burst as molten rock while the paddy beneath it erupted in a column of steam.</p>
 <p>The Sovereign’s legs buckled. Its three mouths plowed into the flooded terrace hard enough to throw a wave over the retaining wall.</p>
-<p>"There we go~" Calypso purred, delighted, her tail curling behind her.</p>
+<p>"There we go" Calypso purred, delighted, her tail curling behind her.</p>
 <p>A spearman wiped the spray from his eyes and stared at the buried legs.</p>
 <p>"She tripped it. Captain, she tripped that thing!"</p>
 <p>"I can see, damn it! Left leg, with me!"</p>
 <p>The captain led his spears around its flank while the boss fought to lift itself. Luna had returned to the damaged knee.</p>
 <p>"Aria! This one’s open!"</p>
 <p>Luna sprang aside as Aria sent a silver lance through the cut. Moonlight punched out the far side of the joint, carrying a fist of black meat with it.</p>
-<p>"Life is always easier when an electric gremlin screeches at my enemy~"</p>
+<p>"Life is always easier when an electric gremlin screeches at my enemy"</p>
 <p>"You’re welcome!" Luna screeched.</p>
 <p>The Sovereign wrenched a forelimb loose and raked its hook across Calypso’s upper arm. Blood splashed down her red skin, and Carnage sent smoke boiling from the wound.</p>
 <p>She snagged the retreating limb under her axe head and yanked it toward her.</p>
@@ -75,7 +75,7 @@ chapter = 1015
 <p>’Still too much fight in you.’</p>
 <p>He ducked a hook, slashed through the tendons behind its wrist, and returned to Lust. His warmth rushed into the women around him as he backed out from beneath the swinging arm.</p>
 <p>"Nyx, can you lift Luna up to those vents?"</p>
-<p>"Oh, gladly~"</p>
+<p>"Oh, gladly"</p>
 <p>Nyx gripped Luna’s waist with her spatial power. The gremlin felt herself leave the ground and looked toward the damaged crown with immediate, vicious understanding.</p>
 <p>"If you miss, I’m haunting your fat ass!"</p>
 <p>"Then you’d better hold still, bestie."</p>

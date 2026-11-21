@@ -60,7 +60,7 @@ chapter = 423
 <p>"Where's Kirikiri-chan?"</p>
 <p>Seizawa Shii was asking about Kurayamda Kirie's whereabouts, giving her another strange nickname.</p>
 <p>"She said she wasn't feeling well and left early."</p>
-<p>"Hee~! Kirikiri-chan, is it that day?"</p>
+<p>"Hee! Kirikiri-chan, is it that day?"</p>
 <p>"Stop it, Shii!"</p>
 <p>Minamoto Risa stops Seizawa Shii from saying anything. Hmm, she's having a hard time. I greeted Minamoto Risa with my eyes and started telling her the announcements I had received.</p>
 <p>"From today until the end of the exam, clubs are prohibited, so don't think about being in the club room."</p>
@@ -71,11 +71,11 @@ chapter = 423
 <p>"Can we study at Ryuta-cchi's house?"</p>
 <p>"Of course not. Don't even think about it because the teacher is still preparing the exam even after getting off work."</p>
 <p>Everyone laughs when I gesture to shoo them away.</p>
-<p>Ehh~! Then I guess I can't help it. Let's have a study group at the family restaurant today!</p>
+<p>Ehh! Then I guess I can't help it. Let's have a study group at the family restaurant today!</p>
 <p>Seizawa Shii said, looking at some of the students, as if they had really planned to have a study group today. It seemed that they were thinking quite seriously about my promise to give a gift if they were within the top 6. If this happens, the average grade of our class might be quite high?</p>
 <p>Daigo Terue would be very happy. If the special class's grades increase as soon as they come to her line, Daigo Terue's voice will also increase in the Daigo Educational Foundation.</p>
 <p>"Okay, study hard. There are no other announcements, so I'll finish here."</p>
-<p>"Ryuta-cchi Annyong~☆"</p>
+<p>"Ryuta-cchi Annyong☆"</p>
 <p>"Thank you for your hard work!"</p>
 <p>"Ryuta, Alik is going to study...!"</p>
 <p>Several students greeted me, put on their bags, and got up from their seats. The study group members seemed to have formed parties of three or four close friends and were gathering together to talk about where to study.</p>

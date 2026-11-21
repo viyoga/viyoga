@@ -109,7 +109,7 @@ chapter = 243
 <p>She continued to caress his hair and gently emanated her holy aura in the room, creating a warm and calming atmosphere.</p>
 <p>"I…"</p>
 <p>Sol tried to fight back a little but his mind was too worn out and in the end, he closed his eyes as he fell asleep on her laps.</p>
-<p>"Fufufu~! He is quite cute when he sleeps like this."</p>
+<p>"Fufufu! He is quite cute when he sleeps like this."</p>
 <p>It was the first time she took care of someone in such a way and she had to say that it made her quite giddy.</p>
 <p>She was happy to see that Sol had come back stronger than ever and was about to go through another level. But weirdly, she was even happier that he had come back in one piece.</p>
 <p>'Sleep well and have a great dream.'</p>

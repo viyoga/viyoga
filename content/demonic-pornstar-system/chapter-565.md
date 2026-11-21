@@ -64,7 +64,7 @@ chapter = 565
 <p>"E-eat up," Renoa said, voice steadier than before. "It’s meant for quick recovery."</p>
 <p>They didn’t need to be told twice.</p>
 <p>Forks dug in. The first bites landed.</p>
-<p>"Mmm~!" Aria let out a happy hum, shoulders relaxing as heat spread through her chest.</p>
+<p>"Mmm!" Aria let out a happy hum, shoulders relaxing as heat spread through her chest.</p>
 <p>Nyx hummed in agreement, already halfway into her plate. "That hits right."</p>
 <p>"This is so tasty, what the hell?!" Luna was pleased.</p>
 <p>Even Bastet gave a satisfied nod as her golden eyes narrowed, feeling the energy settle into her core. Calypso, who was almost unfazed due to her extremely high Vitality and demonic physique, paused mid-chew. Her gaze drifted across the table as if she’d remembered something annoying.</p>

@@ -13,7 +13,7 @@ chapter = 548
 <p>"Ah, is that so?"</p>
 <p>Otagi Yuka, understanding Sakagami Rena's calm explanation, suppressed her annoyance. Ah... we need to bring in someone else. It seemed she had been quiet until now, hoping we could solve it ourselves, but since we couldn't reach a conclusion, she brought out Plan B.</p>
 <p>"Is this person trustworthy?"</p>
-<p>"Yes, they're my illusion magic master~! They're definitely trustworthy, so they'll help us!"</p>
+<p>"Yes, they're my illusion magic master! They're definitely trustworthy, so they'll help us!"</p>
 <p>Ah, she mentioned before that she was going to get advice from someone to learn the illusion magic from the scroll, so it must be that person. If Sakagami Rena, who handles information, trusts them, I should trust them too. Still, I'm curious about the method.</p>
 <p>"But what method are you going to use?"</p>
 <p>"Um... Shiyo-ssi is under two kinds of rituals: a seal and a sacrifice. It would be difficult but possible to undo one, but the problem is that she's under two spells at the same time. If even one is removed, Naruse-ssi will be in danger."</p>

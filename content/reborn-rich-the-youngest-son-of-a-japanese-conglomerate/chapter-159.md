@@ -12,7 +12,7 @@ chapter = 159
 <p>Han Yu-gyeong also sensed that, and after sucking my balls for a bit, she started licking the shaft with her tongue. Han Yu-gyeong opened her mouth while licking the protruding dick tip below.</p>
 <p>"Hngh...! *Tchuuup*, hard and hot."</p>
 <p>I found Han Yu-gyeong, who was commenting while diligently licking, so cute that I decided to return the favor. I put my foot between the thighs of Han Yu-gyeong, who was kneeling and diligently licking me, and started rubbing her pussy with my big toe. She was wearing panties, so I couldn't directly touch her pussy, but I could feel the sensation of her pussy almost perfectly with my toe because of the already present wetness.</p>
-<p>"Haaahng~!! Aandeae, if you do thiiis, hngh! I can't concentrate on sucking Yong-tae's dick~♥"</p>
+<p>"Haaahng!! Aandeae, if you do thiiis, hngh! I can't concentrate on sucking Yong-tae's dick♥"</p>
 <p>Han Yu-gyeong was acting spoiled, as if giving was more important than receiving. That sight made her even more endearing, so I tormented her pussy even more with my toe.</p>
 <p>"Haaht! Haaahng♥ Hnghht...! Feels, hnghht! Gooood, Yong-tae-aaahng♥"</p>
 <p>Han Yu-gyeong's pussy, already as excited as it could be, was dripping wetness through her panties. As I continued to rub on the increasingly slippery panties, Han Yu-gyeong started making an increasingly desperate expression. Han Yu-gyeong quickly reached her climax from my dazzling toe play.</p>
@@ -50,7 +50,7 @@ chapter = 159
 <p>Ha Ju-yoon: Hehe, cute? These days, AI editing technology is so advanced that once you film the video, it comes out right away on the same day?</p>
 <p>Ah, that's what it was? I felt anew that this place was more futuristic than the world I originally lived in. It wasn't that far into the future, but still, things that were far from my common sense were happening from time to time.</p>
 <p>Moreover, information like AI video editing wasn't even in the original game, so it was fascinating and fun. While I was talking with Ha Ju-yoon, the bathroom door opened. I finished the KakaoTalk and looked at Han Yu-gyeong.</p>
-<p>"I'm done showering. Yong-tae-ya~! Now Yong-tae shower too!"</p>
+<p>"I'm done showering. Yong-tae-ya! Now Yong-tae shower too!"</p>
 <p>"Okay, I'll shower."</p>
 <p>Han Yu-gyeong came out with a large towel wrapped around her body and a towel wrapped around her head and spoke to me. I went to the room where I had put my suitcase, grabbed my underwear, and headed to the bathroom.</p>
 <p>*Swaaaaa*!</p>
@@ -87,7 +87,7 @@ chapter = 159
 <p>"Hehe, it's all because of what *seonsaengnim* promised."</p>
 <p>"The promise I made?"</p>
 <p>Han Yu-gyeong was puffing out her cheeks and making a sulky expression when I asked back. She looked like a real prim high school student, so I almost kissed her without realizing it. This is subtly arousing.... My dick was already sticking out of my pants to the point where it was noticeable, so it was a bit embarrassing.</p>
-<p>"No~! *Ssaem* said that if I get over 90 points on the monthly test, you'd grant me one wish~!"</p>
+<p>"No! *Ssaem* said that if I get over 90 points on the monthly test, you'd grant me one wish!"</p>
 <p>"Ah, right. I said that, didn't I? Wh, what's your wish?"</p>
 <p>Han Yu-gyeong got up at my question, walked to the door, and locked it. Then she went to the bed and lay down as she was. And while lying down, she opened her mouth with a seductive smile.</p>
 <p>"Please make me a woman, *Seon*. *saeng*. *nim*♥"</p>

@@ -36,7 +36,7 @@ chapter = 830
 <p>Aria released her and grinned. "Finally, your rude mouth was put to proper use... You better be grateful."</p>
 <p>Luna collapsed sideways, gasping, drool and precum on her chin, her small chest heaving, the inside of her thighs a glistening ruin.</p>
 <p>"Y-you... psycho... moon... bitch..."</p>
-<p>"Everyone knows I’m innocent~" Aria hummed, and the sweet little smile on her face could have been on a greeting card if the rest of her weren’t naked and leaking cum.</p>
+<p>"Everyone knows I’m innocent" Aria hummed, and the sweet little smile on her face could have been on a greeting card if the rest of her weren’t naked and leaking cum.</p>
 <p>- KaidensWife (mod): YANDERE REVENGE ARC 💀</p>
 <p>- StarryNightCrush: She came from deepthroating! Her legs won’t stop shaking...</p>
 <p>- ThirstyDemon99: Wish it was me...</p>

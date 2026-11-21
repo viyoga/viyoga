@@ -35,15 +35,15 @@ chapter = 6
 
 <p>A man’s ambition must be high for him to succeed.</p>
 
-<p>&quot;Ekknn.... Oh my, I’m weak in that spot, my dear Wen... an old, saggy woman like me still has a sensitive side like that~&quot; Arielle didn’t even mind what Owen did but she still got to refrained some of her womanly side..</p>
+<p>&quot;Ekknn.... Oh my, I’m weak in that spot, my dear Wen... an old, saggy woman like me still has a sensitive side like that&quot; Arielle didn’t even mind what Owen did but she still got to refrained some of her womanly side..</p>
 
 <p>Internally though...she genuinely loved having physical contact with her son, she loves how Owen teased by squeezung her thin fats.</p>
 
 <p>No...it’s not a fat, saying that word is a great sin. An unforgivable one, so Owen is going to call it...MILF bust.</p>
 
-<p>’Hehe...yes, the word really fits to your Busty body mom~’ Owen smiled as he was satisfied that he made such grand name, then his focus went back.</p>
+<p>’Hehe...yes, the word really fits to your Busty body mom’ Owen smiled as he was satisfied that he made such grand name, then his focus went back.</p>
 
-<p>&quot;What are you saying, Mom?... Old and saggy?! That is absolute sacrilege and blasphemy against a body like yours~&quot; Owen spoke with immense enthusiasm and fervor.</p>
+<p>&quot;What are you saying, Mom?... Old and saggy?! That is absolute sacrilege and blasphemy against a body like yours&quot; Owen spoke with immense enthusiasm and fervor.</p>
 
 <p>What Arielle was saying was a complete joke... how could she even claim her body was old and saggy when it was practically screaming with voluptuous, erotic appeal, even while hidden under her housewife clothing and layered by an apron!</p>
 
@@ -59,7 +59,7 @@ chapter = 6
 
 <p>How could any part of a MILF be called fat?! It was the true privilege of being a MILF...something a young virgin simply didn’t and couldn’t possess!</p>
 
-<p>&quot;Oh my... you are quite bold now, my dear Wen~&quot; She had fully regained her balance by now, and she slowly moved her fingers to touch her neck.</p>
+<p>&quot;Oh my... you are quite bold now, my dear Wen&quot; She had fully regained her balance by now, and she slowly moved her fingers to touch her neck.</p>
 
 <p>Her son was getting incredibly cheeky.</p>
 
@@ -71,7 +71,7 @@ chapter = 6
 
 <p>She was deeply happy inside to receive such compliments, even if she only kept those thoughts to herself.</p>
 
-<p>&quot;Hehe, I’m your son, after all... and I’m definitely not lying. How could I ever lie to my own loving and caring mom~&quot; Owen never stopped squeezing and pinching her side, savoring every bit of her softness as they carried on this somewhat weird conversation between mother and son.</p>
+<p>&quot;Hehe, I’m your son, after all... and I’m definitely not lying. How could I ever lie to my own loving and caring mom&quot; Owen never stopped squeezing and pinching her side, savoring every bit of her softness as they carried on this somewhat weird conversation between mother and son.</p>
 
 <p>Owen saw no reason to stop, as Arielle clearly showed that she wasn’t uncomfortable with his teasing... it was actually a great choice, as he could feel her body heating up even more.</p>
 

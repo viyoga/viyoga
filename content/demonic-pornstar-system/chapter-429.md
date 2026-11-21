@@ -15,11 +15,11 @@ chapter = 429
 <p>The statement was delivered with a firm, territorial tone.</p>
 <p>Calypso looked completely amused by the challenge. She did not submit to the displayed dominance. Instead, she reached out to pet Bastet’s soft, triangular cat ears.</p>
 <p>Bastet froze, and a visible shudder ran through her body at the unexpected touch.</p>
-<p>"What a fierce kitten~ Can you purr for me?" Calypso asked while stroking Bastet’s furry ears. Her lips curved into a demonic smirk.</p>
+<p>"What a fierce kitten Can you purr for me?" Calypso asked while stroking Bastet’s furry ears. Her lips curved into a demonic smirk.</p>
 <p>Bastet instantly snapped her head back and slapped the hand away with a quick, reflexive motion. Her golden eyes narrowed into feline slits as she measured the demoness. "I came here to welcome you into the family with open arms, but if you’re going to be a nasty woman like this..."</p>
 <p>She sent Kaiden a glance of disapproval, letting her man know that she was uncertain about the demoness being in the harem. The look Kaiden got from his woman was a deeply, deeply feminine one. Only a man with a harem would ever receive such a glance.</p>
 <p>"... I’ll have to show you your place in the pecking order!" Bastet finished with a hiss.</p>
-<p>"Oooo~ how scary~" Calypso grinned, meeting the felinid’s gaze without blinking. Then, the demoness leaned forward and whispered into Bastet’s ears.</p>
+<p>"Oooo how scary" Calypso grinned, meeting the felinid’s gaze without blinking. Then, the demoness leaned forward and whispered into Bastet’s ears.</p>
 <p>"But let’s make one thing clear, shall we? You didn’t welcome me with open arms; you came here to declare yourself above me in the pecking order. You might’ve known Kaiden longer than me, but my love for him is stronger than anyone’s. I’ll sit on the throne next to him while you’ll stand behind us like the sexy, exotic concubine that you are."</p>
 <p>Bastet’s ears twitched, focused like a predator sighting prey. "Is that so...? If we’re talking about exotic, then nothing beats a red-skinned demon. I’ll be the most beloved monster wife while you’ll be the sexy decoration, bitch."</p>
 <p>She assessed Calypso no longer as a mere ally, but a true competitor. She hadn’t felt jealousy toward the three human girls because they were Kaiden’s original lovers, humans like him. But now, another monster girl was here, one who was powerful and had clearly shown she wanted to sit on Bastet’s throne of most beloved monster girl.</p>

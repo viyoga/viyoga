@@ -10,15 +10,15 @@ chapter = 185
 <p>Ryuta: Is there any transportation available to get from Kraskino to Akita Prefecture as quickly as possible? There are 7 people in the group.</p>
 <p>EVE: Just a moment.... There is a dark web member with a light aircraft north of Kraskino. Since there are two light aircraft, you should be able to go to Akita Prefecture.</p>
 <p>Ryuta: Ah, then please make a reservation with them and mark it on the navigation app?</p>
-<p>EVE: Yes~! Then is that all for the information you need?</p>
+<p>EVE: Yes! Then is that all for the information you need?</p>
 <p>Ryuta: Can I get information on the current situation of the fight between Taira Foods and Kurotsukido in Akita Prefecture?</p>
 <p>EVE: I'm sorry, but I can't provide that information due to dark web policy.</p>
 <p>That's right. Even in the later stages of the game, they wouldn't give me this kind of information, so I didn't use this feature much. Still, it was fortunate that I was able to find transportation.</p>
 <p>Ryuta: Then I don't need any new information right now.</p>
-<p>EVE: Okay~! The information fee is 10,000 points! As a service, I've contacted the light aircraft owners, so they'll be getting ready. You'll be able to leave as soon as you get there.</p>
+<p>EVE: Okay! The information fee is 10,000 points! As a service, I've contacted the light aircraft owners, so they'll be getting ready. You'll be able to leave as soon as you get there.</p>
 <p>Oh, I got the information for the basic fee. That's a relief.</p>
 <p>Ryuta: Thank you. I'll be going now.</p>
-<p>EVE: Okay~! I will end the chat!</p>
+<p>EVE: Okay! I will end the chat!</p>
 <p>I turned off the dark web app, finished eating the porridge, and opened my mouth to the children who were looking at me. I must have been touching my phone with such a serious expression that they were watching to see what was going on.</p>
 <p>"A friend of mine is in danger, so I think I need to go quickly. I wanted to let you rest today, but I'm sorry."</p>
 <p>"No. We don't have good memories of this city anyway, so we wanted to leave quickly."</p>
@@ -67,7 +67,7 @@ chapter = 185
 <p>"They are the seeds of a very precious fruit."</p>
 <p>"It said it was stuffy."</p>
 <p>Jung Da-rim didn't listen to me and tore open the plastic bag and put the seeds on her palm. Smirnova Alexandra and Konoe Akina looked at the seeds with curiosity, but they didn't feel any difference from other seeds and stopped paying attention to the seeds.</p>
-<p>Jung Da-rim looked at the seeds and said, "Uh-huh~. Is that so? It's okay now," and talked to the seeds. Because she's doing that, she looks like she's talking to a ghost. If someone didn't know Jung Da-rim's characteristics, it would be very scary. Just by looking at her, she looks like a crazy woman or someone possessed by a ghost.</p>
+<p>Jung Da-rim looked at the seeds and said, "Uh-huh. Is that so? It's okay now," and talked to the seeds. Because she's doing that, she looks like she's talking to a ghost. If someone didn't know Jung Da-rim's characteristics, it would be very scary. Just by looking at her, she looks like a crazy woman or someone possessed by a ghost.</p>
 <p>It's been about 50 minutes now, so I should talk about what to do after getting off. I looked at Konoe, the oldest, and opened my mouth.</p>
 <p>"I have to go help my friends after I arrive, so you guys wait at the hotel. Should I get Konoe-ssi a phone or something? Do you want to contact your parents?"</p>
 <p>Konoe Akina shook her head at my words.</p>

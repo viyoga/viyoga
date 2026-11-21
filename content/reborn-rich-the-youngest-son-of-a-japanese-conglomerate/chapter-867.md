@@ -13,7 +13,7 @@ chapter = 867
 <p>"I'm coming, I'm coming!"</p>
 <p>The doorbell kept ringing insistently, so I said I was coming and opened the front door. Taira Kanna stood at the door.</p>
 <p>"What brings you here so early?"</p>
-<p>"I wanted to be the first to give Orabeoni a gift for Valentine's Day~!"</p>
+<p>"I wanted to be the first to give Orabeoni a gift for Valentine's Day!"</p>
 <p>Ah, is that why you came so early? Taira Kanna held a rather large box in her hands.</p>
 <p>"Ah.... Thank you. I'm sorry, but you're second for Valentine's Day."</p>
 <p>"Eh, really? I came so incredibly early...?"</p>
@@ -25,7 +25,7 @@ chapter = 867
 <p>"Thank you, I'll eat it deliciously."</p>
 <p>As I spoke, receiving the box, Taira Kanna stared intently at me. She looked at me with an Expression as if asking if I intended to keep her at the front door, so I had no choice but to invite Taira Kanna in.</p>
 <p>"Do you want to come in for now?"</p>
-<p>"Yes~!"</p>
+<p>"Yes!"</p>
 <p>Taira Kanna, excited, came in as soon as I asked. I went to the kitchen, made two cups of coffee, and returned to the living room.</p>
 <p>"Here's your coffee."</p>
 <p>"Thank you, Orabeoni. Orabeoni, please try the coffee with the chocolate I brought."</p>
@@ -43,11 +43,11 @@ chapter = 867
 <p>Jjok.</p>
 <p>After kissing my forehead, Taira Kanna left, leaving only the three-tiered wedding chocolate. I had no intention of eating chocolate first thing in the Morning, so I put it back in the box and placed it in the refrigerator.</p>
 <p>Since I was already up early, I gulped down the remaining coffee and began Studying for the PMC certification Test. After Studying for a while, the doorbell rang again.</p>
-<p>"Yes~!"</p>
+<p>"Yes!"</p>
 <p>When I opened the front door, the special class Students were there in a group. Each of them held a Gift Box, as if they had prepared Valentine's Day gifts.</p>
-<p>"Happy Valentine's Day~☆"</p>
-<p>"We've prepared Valentine's Day gifts~!"</p>
-<p>"Teacher-nim~!!"</p>
+<p>"Happy Valentine's Day☆"</p>
+<p>"We've prepared Valentine's Day gifts!"</p>
+<p>"Teacher-nim!!"</p>
 <p>All of them, like high school girls, squealed with lively Attitudes, making the neighborhood noisy from the Morning, so I let everyone Inside the House for now.</p>
 <p>"Did you all make chocolates?"</p>
 <p>"Yeah, we went Home early yesterday and made them."</p>
@@ -72,7 +72,7 @@ chapter = 867
 <p>"Lisa's and Shii's are both too precious to eat."</p>
 <p>"Ehehe...! I made it well, didn't I?"</p>
 <p>She seemed very pleased with my Praise. Of course, the other special class Students, who didn't know the meaning of the washing machine between Seizawa Shii and me, looked at Seizawa Shii, who was giggling 'ehehe,' with Expressions that said, 'It's well-made, but why a washing machine for Valentine's Day?'</p>
-<p>"Uhuhuhu, you don't know, but we have our own Story~."</p>
+<p>"Uhuhuhu, you don't know, but we have our own Story."</p>
 <p>Despite her Friends' puzzled Gazes, Seizawa Shii, with a sly Attitude that said, 'You don't have memories like this, do you?', annoyed the special class Students.</p>
 <p>"Next is me, Teacher-nim."</p>
 <p>The next Student to step forward was Konoe Akina. When I unwrapped the Gift Box Konoe Akina gave me, something like a basket appeared. Inside that basket....</p>
@@ -89,7 +89,7 @@ chapter = 867
 <p>When I said it was delicious, Seizawa Shii asked with an Attitude that couldn't contain her curiosity. But Konoe Akina shook her Head.</p>
 <p>"Since I gave the gift to Teacher-nim, Teacher-nim has to allow it."</p>
 <p>Since it was already a gift given to me, it became mine, meaning I had to give permission. Seizawa Shii then looked at me and asked.</p>
-<p>"Ryuta-cchi~! Can we try one?"</p>
+<p>"Ryuta-cchi! Can we try one?"</p>
 <p>"Yes, it's precious since Akina gave it to me, but I still want to share this taste. Everyone, try one."</p>
 <p>Actually, I allowed it because I found it a bit much to eat all these eyeball chocolates by myself, but I said it was precious so Konoe Akina wouldn't feel bad, and handed them out to the Students one by one.</p>
 <p>Seizawa Shii casually popped an eyeball chocolate into her mouth, but some Students frowned at the excessively realistic eyeball shape before reluctantly putting it in their mouths.</p>
@@ -97,11 +97,11 @@ chapter = 867
 <p>Seizawa Shii couldn't hide her Expression. She frowned and said the 'taste' was fine, and the others, following the realistic shape, were at a loss with the realistic bursting sensation in their mouths.</p>
 <p>"The feeling of the eye bursting is really realistic, isn't it?"</p>
 <p>Seeing Konoe Akina, who was asking excitedly, made me realize that she was no ordinary person either. I thought Konoe Akina's terrifying Valentine's Day gift was the last of its kind, but upon receiving the next Student's gift, I realized it was just the beginning.</p>
-<p>Requested by Gojoy-nim: Nakanoin Rina's casual attire and underwear attire~!</p>
+<p>Requested by Gojoy-nim: Nakanoin Rina's casual attire and underwear attire!</p>
 <p>Casual Attire</p>
 <p>As a disciplinary committee member, her usual attire is a School Uniform, but since she's graduating now....</p>
 <p>She'll probably dress in a Suit-like style hehe.</p>
-<p>Underwear~!</p>
+<p>Underwear!</p>
 <p>Requested by TheDreaming-nim: Muko Neika 1. Exposure rear view at the Art Museum 2. Front and side view Filming with a phone Camera.</p>
 <p>1.</p>
 <p>2.</p>

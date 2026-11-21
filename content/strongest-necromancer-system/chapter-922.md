@@ -35,7 +35,7 @@ chapter = 922
 <p>Riyala smiled when she heard this, and she spoke softly.</p>
 <p>"You’re the greatest man I’ve ever known, Jason. If anyone can do it, it’s you."</p>
 <p>Riyala leaned forward and placed a deep kiss on Jason’s lips! Jason’s hand immediately went to Riyala’s behind, and he squeezed her ass through her mini skirt, and Riyala moaned as she pressed her breasts against Jason’s chest! Riyala felt something poking her ass through Jason’s trousers, and a thrill went through her body as she rubbed herself against Jason’s member! Jason’s hand travelled up from her ass to her back as he pulled her close, and Riyala gasped as Jason loosened the strip of cloth around her chest and allowed it to fall to the floor! The hot air rubbed against Riyala’s nipples, and Jason pulled back from their kiss before going down and taking a nipple in his mouth!</p>
-<p>"Mmmh~!"</p>
+<p>"Mmmh!"</p>
 <p>Riyala wrapped her hand around Jason’s head and moaned in pleasure, and Jason grabbed her other breast in his hand and squeezed while sucking! The sensations flowing through Riyala at that moment were almost enough to overwhelm her completely, and she began to rock back and forth on Jason’s lap as she humped his erect member! Jason’s other hand was on the curve of Riyala’s back, and he used it to guide her to go even faster as her breath started coming out in large puffs! Riyala put both hands on Jason’s shoulders and pressed her face into his hair as Jason’s member suddenly rubbed against a sensitive part of her crotch!</p>
-<p>"Nnnghh~!"</p>
+<p>"Nnnghh!"</p>
 <p>A min orgasm shot through Riyala’s body as the sensations became too much for her, and Riyala let out harsh breaths as she slowly pulled back from Jason’s embrace.</p>

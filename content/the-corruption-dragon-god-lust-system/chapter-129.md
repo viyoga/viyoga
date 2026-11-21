@@ -57,7 +57,7 @@ chapter = 129
 
 <p>Grabbing his pants, she pulled them down, a large, throbbing cock escaping its confines and hitting her beautiful face with a wet slap.</p>
 
-<p>“Mmm~~ husband’s cock seems even bigger today…” Her cheeks were tinged with a vibrant red as her soft, pink tongue ran along the base of the monstrous length.</p>
+<p>“Mmm husband’s cock seems even bigger today…” Her cheeks were tinged with a vibrant red as her soft, pink tongue ran along the base of the monstrous length.</p>
 
 <p>Without hesitation, she opened her cleavage and grabbed her huge breasts, squeezing them around Qingyi’s cock while her plump, red lips closed around the rosy tip, swallowing everything her breasts were unable to cover.</p>
 
@@ -69,11 +69,11 @@ chapter = 129
 
 <p>Her movements became faster, her breasts slipping out of her hands as she held onto his hips for support, a bulge appearing in her throat as the twenty-three centimeters of cock slid deeper and deeper.</p>
 
-<p>“Gluk… gluk… hmmm~~…” She suddenly stopped, her eyes going wide as Qingyi’s cock exploded in her throat, filling her with hot cum.</p>
+<p>“Gluk… gluk… hmmm…” She suddenly stopped, her eyes going wide as Qingyi’s cock exploded in her throat, filling her with hot cum.</p>
 
 <p>She tried to swallow as much as she could, but in the end, she was still forced to pull back, keeping her mouth open, huge gushes of cum hitting her face, the viscous liquid dripping onto her breasts.</p>
 
-<p>“Ah… gulp… husband’s got quite a load today… looks like the week’s travel paid off, hehehe~” Feiyan swallowed, her tanned skin glistening, covered in the warm, pearly cum.</p>
+<p>“Ah… gulp… husband’s got quite a load today… looks like the week’s travel paid off, hehehe” Feiyan swallowed, her tanned skin glistening, covered in the warm, pearly cum.</p>
 
 <p>“It was your master’s fault for forcing us to come with her and not allowing us to hire a carriage to go on our own.” Qingyi just laughed, his palm falling on her ass, the tanned flesh jiggling under the impact as she let a high-pitched squeal escape her lips.</p>
 

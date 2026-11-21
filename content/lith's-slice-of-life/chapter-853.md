@@ -29,7 +29,7 @@ Now, usually such a thing would be ignored by Lith as this may as well be a norm
 
 Lith's already observational skills had been greatly enhanced and through prior experiences and training, he could tell that this kid was an odd one out here in this place.
 
-Walking up to the green-haired kid with a chubby face, Lith squatted down to reach his eye level and asked with a gentle smile, "hello~, are you lost? Did you lose your mumma's hand?"
+Walking up to the green-haired kid with a chubby face, Lith squatted down to reach his eye level and asked with a gentle smile, "hello, are you lost? Did you lose your mumma's hand?"
 
 The boy, having someone speak so gently and having a look at Lith, was instantly mesmerized.
 

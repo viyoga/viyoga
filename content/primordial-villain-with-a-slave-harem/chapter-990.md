@@ -24,7 +24,7 @@ chapter = 990
 <p>"E-Eeeek!" she squeaked, glancing around at the big, unfamiliar faces surrounding her. She zipped through the air in a panic, before immediately darting toward the one person who felt "right".</p>
 <p>"Big sis Rosie!!"</p>
 <p>The little fairy threw herself behind Rosie’s hair, hiding there like a spooked bunny behind tall grass. Her head peeked out with a trembling pout, eyes watery and wings buzzing.</p>
-<p>Rosie, still perched proudly on Quinlan’s head, giggled and reached back to pat her tiny sister’s face reassuringly. "There, there~ There’s nothing to be afraid of."</p>
+<p>Rosie, still perched proudly on Quinlan’s head, giggled and reached back to pat her tiny sister’s face reassuringly. "There, there There’s nothing to be afraid of."</p>
 <p>"B-but big sis Rosie!!" the fairy whimpered in strong protest, clutching her leafy curls tightly with trembling hands.</p>
 <p>Rosie pointed with her finger dramatically, like a princess introducing her court. "That scary-looking guy there? That’s your father!"</p>
 <p>The little blue fairy’s wings froze.</p>

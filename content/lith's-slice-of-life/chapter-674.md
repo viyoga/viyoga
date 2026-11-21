@@ -39,7 +39,7 @@ Lith sent a tight spank on Luna's left cheek and made her let out a moan.
 
 PAH!
 
-"Ahhhh!~"
+"Ahhhh!"
 
 Being a good maid that she was, Luna followed her master's orders and finally took off the façade.
 

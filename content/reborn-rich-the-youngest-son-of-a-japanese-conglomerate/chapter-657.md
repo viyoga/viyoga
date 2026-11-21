@@ -26,7 +26,7 @@ chapter = 657
 <p>"Yes, Master-nim."</p>
 <p>Nakasone Rishin nodded at Kinui Tatsuo's words. Today was the day of the sparring match that Nakasone Rishin had requested with Yamashiro Ryuta.</p>
 <p>"It will be helpful not only to Rishin but also to you all, so watch the sparring carefully."</p>
-<p>"Okay, Master~!"</p>
+<p>"Okay, Master!"</p>
 <p>"Yes!"</p>
 <p>Ageba Tsurumi, who had fallen for Yamashiro Ryuta's handsome looks, answered the master's words excitedly, and Sato Haruto, the youngest, seemed simply happy that someone was visiting the dojo.</p>
 <p>"...."</p>
@@ -78,7 +78,7 @@ chapter = 657
 <p>They greeted the remaining students awkwardly, but everyone stroked their heads and welcomed them, as if they were charmed by Kujo Kina's young disciples, and the atmosphere softened.</p>
 <p>"When did Master-nim leave?"</p>
 <p>"About thirty minutes ago? It's been."</p>
-<p>"Then he'll be back soon. Let's go into the dojo first. Everyone, come in~!"</p>
+<p>"Then he'll be back soon. Let's go into the dojo first. Everyone, come in!"</p>
 <p>We were guided inside the dojo. The dojo was so large that it was hard to believe it was a container building, and Kujo Kina explained it to us, as if she had noticed our surprise.</p>
 <p>"We stacked several containers to make it wide and then laid a wooden floor that's mainly used in dojos."</p>
 <p>"That's what it was?"</p>

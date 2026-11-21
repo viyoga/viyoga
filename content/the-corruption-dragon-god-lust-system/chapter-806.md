@@ -87,7 +87,7 @@ chapter = 806
 
 <p>Her buttocks swayed in slow, heavy undulations, each tremor traveling from one buttock to the other, both bobbing together for several seconds before finally settling down.</p>
 
-<p>"Nghnn~~" Rouxi moaned as her entire body shuddered.</p>
+<p>"Nghnn" Rouxi moaned as her entire body shuddered.</p>
 
 <p>Her hands flew instinctively to her breasts, cupping the full mounds against her torso in a purely reflexive gesture.</p>
 
@@ -97,7 +97,7 @@ chapter = 806
 
 <p>"What, are you afraid of your own husband?" Qingyi asked playfully, grabbing her hips and pulling her against him without ceremony.</p>
 
-<p>"Ah~ I’m not afraid of anyone, you... unfilial son..." Rouxi complained softly, looking away with flushed cheeks, the blush spreading down to her neck.</p>
+<p>"Ah I’m not afraid of anyone, you... unfilial son..." Rouxi complained softly, looking away with flushed cheeks, the blush spreading down to her neck.</p>
 
 <p>It had been a few weeks since she’d become pregnant, and since then, her body had been growing increasingly sensitive... as had her emotions, which fluctuated at the slightest provocation.</p>
 

@@ -9,7 +9,7 @@ chapter = 356
 
 …..
 
-"Ahh~... Darling~..."
+"Ahh... Darling..."
 
 Alexandra moaned while looking through her binoculars as her love juices dripped down on the ground after soaking her panties.
 
@@ -105,7 +105,7 @@ Lilith made the two watch Lith doing it with Emilia and began explaining how the
 
 While this was happening, Lith who was the cause of all these, was still continuing to pound Emilia's tight ass.
 
-"Ahh~ Ahh~ Ahh~" Emilia's cute moans reverberated throughout the rooftop they were in.
+"Ahh Ahh Ahh" Emilia's cute moans reverberated throughout the rooftop they were in.
 
 To Lith, these moans were like a melody and he loved listening to this. He wanted to see how Emilia's face was while she moaned and so, he decided to change positions.
 
@@ -115,7 +115,7 @@ Having the position changed so suddenly and noticing Lith's smiling face, Emilia
 
 Lith chuckled noticing this and started thrusting his hips again. He grabbed Emilia's big butt and squeezing it, he continued to ram his big rod into her narrow and slippery cave.
 
-"Mhm~ Mhm~" Emilia let out muffled moans as she felt Lith's thing hit her once again.
+"Mhm Mhm" Emilia let out muffled moans as she felt Lith's thing hit her once again.
 
 Lith moved his hands up and first grabbed her hair and tied them behind her in a ponytail. He then made her look up and looking at her blushing and cute face, he said, "You look so lovely."
 
@@ -125,15 +125,15 @@ Lith reciprocated the kiss and grabbing her butt tightly, he continued to ram hi
 
 A few minutes passed and Emilia couldn't take it anymore.
 
-"Ahh~... I am going to… Ahh~... I am…"
+"Ahh... I am going to… Ahh... I am…"
 
 Hearing this, Lith thrust his hips faster and a few more minutes later,
 
-"Ahhhh~"
+"Ahhhh"
 
 Spurrrt!
 
-"Ohhhh~"
+"Ohhhh"
 
 Emilia's toes curled up, her body shivered intensely but Lith held her in place and had her orgasm fully.
 
@@ -143,9 +143,9 @@ Emilia slumped fully on Lith and hugged him. Lith hugged her back and without ta
 
 A bit away from him.
 
-"Ahh~ I am gonna cum too…" Arya said as she intensely rubbed her pussy.
+"Ahh I am gonna cum too…" Arya said as she intensely rubbed her pussy.
 
-"Darling~..." Alexandra said while doing the same thing.
+"Darling..." Alexandra said while doing the same thing.
 
 The two were watching Lith on the screen and masturbating while Lilith held them by their waists and close to her.
 
@@ -153,9 +153,9 @@ Lucy had gotten up from her place and was behind her mother. She had Lilith hugg
 
 Lilith had taught everything there was to masturbation and also showed the two their sweet spots. They were hitting these places constantly and as they were already aroused, it didn't take too long for them to climax as well.
 
-"Ohhh~"
+"Ohhh"
 
-"Darling~ Darli– Ahhh~"
+"Darling Darli– Ahhh"
 
 Arya and Alexandra had a shaking orgasm and Lilith had them held firmly in her grasp and didn't let their bodies shake too much.
 

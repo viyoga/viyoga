@@ -52,12 +52,12 @@ chapter = 99
 <p>"Hello, Sunbae-nim."</p>
 <p>Mimata Chieri greeted me with her usual refreshing smile. I also asked, how was your vacation, Sunbae-nim? and looked at Mimata Chieri's face.</p>
 <p>Her orange hair and the refreshing appearance full of fruit juice that could be seen as the center of an idol group, as described before, made it impossible to think that Mimata Chieri was the assassin from that time.</p>
-<p>"Vacation? It was good. I went to the Shonai area of Yamagata Prefecture, and I heard that pigs are famous there, so I had a lot of fun~!"</p>
+<p>"Vacation? It was good. I went to the Shonai area of Yamagata Prefecture, and I heard that pigs are famous there, so I had a lot of fun!"</p>
 <p>Mimata Chieri showed me pictures of her eating pork with a happy expression. There were pictures of tonkatsu, pork sukiyaki, and simple grilled dishes. There are almost only pictures of food....</p>
 <p>"Did you go alone?"</p>
 <p>"O-Of course! I want to go with my boyfriend, but I don't have a boyfriend, and it's more comfortable to go on these gourmet trips alone.... So, I'm alone! It's not sad at all!"</p>
 <p>Mimata Chieri was raising her voice slightly, as if she was embarrassed to be touring these restaurants alone. As expected, there's no way this Mimata Chieri is an assassin.</p>
-<p>"Here's a gift for you, Hubae-nim~! Yamagata Prefecture is famous for cherries, so I bought you cherry jam~!"</p>
+<p>"Here's a gift for you, Hubae-nim! Yamagata Prefecture is famous for cherries, so I bought you cherry jam!"</p>
 <p>Yamagata Prefecture is famous for cherries.... I just found out. I also gave her the sake from Akita Prefecture that I had prepared as a gift while receiving the cherry jam.</p>
 <p>"Akita Prefecture is famous for rice, so I prepared sake made from rice from Akita Prefecture."</p>
 <p>"Ooh! I'll enjoy it, Hubae-nim!"</p>

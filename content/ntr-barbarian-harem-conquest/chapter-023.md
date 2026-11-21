@@ -169,7 +169,7 @@ chapter = 23
 
 <p>He slid inside, and she took him deep.</p>
 
-<p>&quot;Huugh...! Gluck... gluck... nghnn~~!&quot;</p>
+<p>&quot;Huugh...! Gluck... gluck... nghnn!&quot;</p>
 
 <p>Her throat protested, but she forced herself to relax, to breathe through her nose, to take him all.</p>
 
@@ -193,7 +193,7 @@ chapter = 23
 
 <p>Kane suddenly lifted her, wrapped her legs around his waist, and pinned her against the wall. In one powerful thrust, he buried his massive cock deep inside her soaking pussy.</p>
 
-<p>&quot;Eughhhhhh~~!!&quot; Gina cried out, her eyes rolling back as she was stretched wide open.</p>
+<p>&quot;Eughhhhhh!!&quot; Gina cried out, her eyes rolling back as she was stretched wide open.</p>
 
 <p>Kane groaned deeply, savoring her tight walls.</p>
 

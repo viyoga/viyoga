@@ -27,7 +27,7 @@ chapter = 217
 
 <p>One of Feiyan’s hands gripped Qingxue’s large, firm breasts while the other descended on her plump, drenched pussy.</p>
 
-<p>“Fufufu~~ she’s ready, husband~” Feiyan purred, making sure that Qingxue’s legs were wide open, ready for Qingyi’s cock.</p>
+<p>“Fufufu she’s ready, husband” Feiyan purred, making sure that Qingxue’s legs were wide open, ready for Qingyi’s cock.</p>
 
 <p>Naturally, he didn’t refuse that gift.</p>
 

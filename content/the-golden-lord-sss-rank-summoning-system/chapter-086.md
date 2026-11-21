@@ -6,7 +6,7 @@ chapter = 86
 +++
 
 <p>Ethan’s fingers closed around the soft, supple flesh of Evelyn’s bottom, his grip firm enough to draw a sweet sigh from her lips.</p>
-<p>"Mmm~~ ah~ why didn’t you tell us you’d found another woman?"</p>
+<p>"Mmm ah why didn’t you tell us you’d found another woman?"</p>
 <p>"Because you were meditating, remember? You two left your husband to endure so many cold nights..." he teased, though his expression quickly turned serious.</p>
 <p>He leaned over Evelyn, his lips finding hers in a kiss that was short but intense, his tongue pressing past hers.</p>
 <p>When they parted, his lips curved into a soft smile.</p>
@@ -14,7 +14,7 @@ chapter = 86
 <p>Alice left Elena’s arms after a moment, turning to her husband with a puzzled look.</p>
 <p>"Why are you so serious?" she asked, tilting her beautiful face slightly to the side. "Did something happen?"</p>
 <p>"A goblin attack is approaching Goldenveil." Ethan released Evelyn and pulled Alice into his arms instead, kissing her just the same.</p>
-<p>"Hmm~~" she moaned softly against his mouth, worry filling her eyes the moment the words registered.</p>
+<p>"Hmm" she moaned softly against his mouth, worry filling her eyes the moment the words registered.</p>
 <p>"I-I’ll go get more suitable clothes..." Alice stepped back quickly, nodding respectfully to Elena before heading up to the bedroom.</p>
 <p>Evelyn followed without a word.</p>
 <p>Ethan watched the two of them climb the stairs, a quiet sigh slipping past his lips.</p>
@@ -54,7 +54,7 @@ chapter = 86
 <p>"Ah... you two really don’t give your dear husband any breathing room, do you? Are you trying to break my heart?" Ethan slumped his shoulders dramatically.</p>
 <p>"It’s okay, husband. Elena seems like a good woman." Alice’s voice softened as she spoke.</p>
 <p>She claimed his left side, pressing close and hugging him tight.</p>
-<p>"Yes, and you can call her mommy whenever you want, fufufu~~" Evelyn took his right, her silver-gray eyes sparkling with amusement as she nestled against him.</p>
+<p>"Yes, and you can call her mommy whenever you want, fufufu" Evelyn took his right, her silver-gray eyes sparkling with amusement as she nestled against him.</p>
 <p>His hands moved to stroke the hair of each woman.</p>
 <p>Their large breasts, a little smaller than Elena’s but no less perfect, pressed warmly against his ribs from either side, full and soft.</p>
 <p>He really couldn’t complain about life.</p>

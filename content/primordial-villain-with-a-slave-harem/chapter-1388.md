@@ -54,7 +54,7 @@ chapter = 1388
 <p>"…"</p>
 <p>Quinlan cleared his throat. "Apologies for interrupting, but I have to leave."</p>
 <p>"Leave for another city of mine to conquer, you bastard?" Alexios snapped.</p>
-<p>"I have no idea what you mean~" Quinlan replied lightly. "I am not conquering anything."</p>
+<p>"I have no idea what you mean" Quinlan replied lightly. "I am not conquering anything."</p>
 <p>A beat passed.</p>
 <p>Then…</p>
 <p>"I am leaving, Alexios."</p>

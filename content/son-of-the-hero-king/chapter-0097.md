@@ -30,7 +30,7 @@ chapter = 97
 <p>He was pretty sure that he hadn't been hypnotized, but, since he watched a certain doujin where a fatass played with his bullies by making them think fucking him was a punishment, he rather e'er on the side of caution.</p>
 <p>"Duchess, I must say that this meeting does not begin on a good note."</p>
 <p>"But I thought my music was good?"</p>
-<p>"Music? What does it have to do with… Oh~"</p>
+<p>"Music? What does it have to do with… Oh"</p>
 <p>Did the duchess make a pun? Her? That gloomy and naggy woman?</p>
 <p>Even though it was a rather bad pun, he couldn't help but chuckle.</p>
 <p>The duchess, as if finally acknowledging his existence, finally turned towards him.</p>

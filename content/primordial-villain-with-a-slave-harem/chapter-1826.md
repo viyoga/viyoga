@@ -17,9 +17,9 @@ chapter = 1826
 <p>"That is not a technique!"</p>
 <p>"It’s absolutely a technique."</p>
 <p>"...Does it require being his lover?" she asked the air, with enormous, doomed dignity. "The hearth-tending."</p>
-<p>"Mm~?" Sera’s head turned very slowly, her grin arriving ahead of it. "Why do you ask?"</p>
+<p>"Mm?" Sera’s head turned very slowly, her grin arriving ahead of it. "Why do you ask?"</p>
 <p>"For the report."</p>
-<p>"Of course~ For the report."</p>
+<p>"Of course For the report."</p>
 <p>Elowen achieved a posture rigid enough to shame a parade manual and said nothing further, which said everything, and Seraphiel added another flustered royal guard to a collection that was coming along beautifully.</p>
 <p>At the anvil, the final strike fell, and the seven lights banked themselves in Quinlan’s eyes like lamps turned down for the night. He rolled the haft once in his grip, set the hammer aside, and gave the steel one long, satisfied look, and the air above the anvil shivered with a power none of them could name yet.</p>
 <p>Brokk was moving before anyone else dared, because some offices cannot be delegated. The First Hammer of the royal smithy called the final quench herself, her voice cracking across the hall as if the masterwork were her own, and the whole hall leaned in.</p>

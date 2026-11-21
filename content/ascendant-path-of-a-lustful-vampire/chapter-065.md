@@ -62,13 +62,13 @@ chapter = 65
 <p>When they both climaxed as one, Caius let out his fangs and sank them into the Professor’s neck, letting her blood spill into his mouth and down into his body where its Evolutionary charge continued the ongoing progress he was making into the next Magic Circle.</p>
 <p>After about an hour and thirty minutes, they held each other, naked on the sofa. Caius’ cock remained hard between them, not looking like it’d ever be capable of relenting. They hadn’t entirely stopped to he honest, just a quick break that Arlette decided to use to pass on some knowledge.</p>
 <p>She tapped Caius’ forehead and Arcane symbols swarmed into his mind before coming together to make a coherent spell circle which carried a whole new series of information that highlighted what spell it was and how it worked.</p>
-<p>"~Galleon’s Gate~" Caius named the spell slowly while Arlette nodded against his chest.</p>
+<p>"Galleon’s Gate" Caius named the spell slowly while Arlette nodded against his chest.</p>
 <p>"A Third Circle Dark Magic defensive spell," She said.</p>
 <p>"Did you know that I didn’t have a Defensive spell?" Caius asked, incredulous at the idea that it was a coincidence that Arlette decided to offer him the one type of spell missing from his repertoire.</p>
 <p>Arlette shrugged.</p>
 <p>"I might have guessed it. There have been a lot of details about your Combat Magic and Mage-Knight Training Classes this week and none mentioned a defensive spell.</p>
 <p>That said, even if you did have one and just hadn’t used it yet, it can’t hurt to have another.</p>
-<p>~Galleon’s Gate~ is the best Defensive spell I have. At the Third Circle, at least. If you’re ever in a jam, it should serve you well."</p>
+<p>Galleon’s Gate is the best Defensive spell I have. At the Third Circle, at least. If you’re ever in a jam, it should serve you well."</p>
 <p>"Thank you," Caius said.</p>
 <p>In response, Arlette grabbed the back of his head and pulled him down to join their lips together again before angling herself to put his hard rod right back inside where she believed it belonged.</p>
 <p>Caius had informed Gareth and the other guards that he would be late exiting the Academy already in preparation for this so he knew he still had enough time before they grew as impatient as they were yesterday.</p>

@@ -55,13 +55,13 @@ chapter = 240
 
 <p>“No,” Qingyi shook his head. “That’s desire.” He moved his head slightly, depositing a soft, almost imperceptible bite on one of Xueyao’s furry ears.</p>
 
-<p>“Aghnnn~~” The effect was thunderous, a loud, sensual moan escaping her lips, her high, sweet voice falling apart as her body lost its strength.</p>
+<p>“Aghnnn” The effect was thunderous, a loud, sensual moan escaping her lips, her high, sweet voice falling apart as her body lost its strength.</p>
 
 <p>Qingyi just grabbed her, sitting down on the bed and pulling her onto his lap, his hands going down to the fat, soft mound of her upper thighs, formed by the tightness of her white thigh-high stockings, pushing the flesh up obscenely.</p>
 
 <p>He immediately squeezed that plump flesh, his fingers sinking into a sea of softness.</p>
 
-<p>“Ughnn~~ what is that thing?” she asked, her tail wrapping around Qingyi’s waist, her ass snuggling into his lap and her huge breasts pressed against his chest.</p>
+<p>“Ughnn what is that thing?” she asked, her tail wrapping around Qingyi’s waist, her ass snuggling into his lap and her huge breasts pressed against his chest.</p>
 
 <p>There was something there, a throbbing bulge in Qingyi’s pants, pressing against her crotch which, apart from the dress, didn’t protect much.</p>
 
@@ -83,7 +83,7 @@ chapter = 240
 
 <p>“It’s going to hurt a bit, okay?” he warned.</p>
 
-<p>“Hmhmm~~” Xueyao replied in a muffled nasal moan, clinging to Qingyi’s shoulders, biting her lower lip.</p>
+<p>“Hmhmm” Xueyao replied in a muffled nasal moan, clinging to Qingyi’s shoulders, biting her lower lip.</p>
 
 <p>The moment he finally penetrated her, her eyes widened and her lips opened in a lustful moan as Qingyi’s cock broke through her virginity and reached the depths of her pussy.</p>
 
@@ -101,7 +101,7 @@ chapter = 240
 
 <p>Soon, that isolated, dusty room was filled with the obscene sounds of skin against skin and Xueyao’s soft, high-pitched moans.</p>
 
-<p>“Y-young hero… w-what’s that nghnn~~ feeling?” she asked, leaning over Qingyi, her huge breasts enveloping his face in a soft embrace as she grabbed his head.</p>
+<p>“Y-young hero… w-what’s that nghnn feeling?” she asked, leaning over Qingyi, her huge breasts enveloping his face in a soft embrace as she grabbed his head.</p>
 
 <p>She could feel Qingyi’s member throbbing inside her, her body grasping and squeezing it with incomparable strength, trying to milk it of every last drop.</p>
 

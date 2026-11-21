@@ -7,7 +7,7 @@ chapter = 829
 
 <p>I performed all my actions with Telekinesis to avoid leaving fingerprints when entering and leaving Kasaoka Koki's Home. During that time, my Telekinesis Proficiency had increased significantly, so I effortlessly retrieved the phone Kasaoka Koki had left behind, printed a Letter from the computer (Typing with Telekinesis was a bit tricky. I almost broke the keyboard by misjudging the power), left it, opened the window, and headed Outside.</p>
 <p>Just as I had come to Kasaoka Koki's Home, I also flew back with Telekinetic Flight, heading back to the Am-sang Branch. Because I flew with Telekinetic Flight, I was able to get in before Kasaoka Koki returned Home. I didn't go directly to the 5th floor where Matsunaga Yuzuki was sleeping, but headed to the Underground where Eve was.</p>
-<p>"Ryuta-nim, welcome~!"</p>
+<p>"Ryuta-nim, welcome!"</p>
 <p>Today, Eve was wearing a Miyashi Municipal High School Uniform. It suited her today too. I took out Kasaoka Koki's phone that I had brought and handed it to Eve.</p>
 <p>"Please check if the eavesdropped content has been uploaded elsewhere."</p>
 <p>"Understood."</p>
@@ -44,7 +44,7 @@ chapter = 829
 <p>"Not just the last Comment, but the main Text is mine too. Hehehe."</p>
 <p>She even wrote the main Text herself and made it go viral. Amazing. To prepare from before I even said I'd put the Swords up for Auction, she truly was a frightening Eve.</p>
 <p>"First, I need to get some Sleep, so I'll head up now, Eve. I'll ask and Contact you today."</p>
-<p>"Yes~! Sleep comfortably~!!"</p>
+<p>"Yes! Sleep comfortably!!"</p>
 <p>With the Business discussion concluded, Sleep was slowly creeping in, so I ended the conversation, received Eve's greeting, left the Underground, and returned to the 5th floor Motel Room where Matsunaga Yuzuki was sleeping.</p>
 <p>I had Morning Sex with Matsunaga Yuzuki until the very last moment, then parted ways and went to Work at school. Matsunaga Yuzuki, having sucked my Vital Energy since Dawn, waved her Hand at me with glistening Skin and headed Home.</p>
 <p>I also went Home, changed Clothes, and went to Work at the academy. After sending the Kids in the Classroom to the Club Room for Morning Jorye, I sat in the Education preparation Room when I received a Phone Call. It was Matsunaga Yuzuki.</p>
@@ -64,10 +64,10 @@ chapter = 829
 <p>-Don't mention it. You've already paid the Price, haven't you? Uhuhuhu♥</p>
 <p>That's right. I had provided Service to Matsunaga Yuzuki with all my Heart and Soul, so it was well worth the Price. I talked with Matsunaga Yuzuki for a little longer, then hung up and checked my email.</p>
 <p>I put the Exam Paper, labeled as Math Practice Problems, into a storage Device and printed it. And carrying both of them, I confidently ascended to the 2nd floor Club Room like a triumphant General.</p>
-<p>Eve B-cut~!</p>
+<p>Eve B-cut!</p>
 <p>The previous new model Illustration felt a little unnatural, so I adjusted the Illustration just a little hehe.</p>
-<p>The previous Practice haha. After trying various settings, it became too different from Eve, so Elimination~!</p>
-<p>Hangari Muneo Underwear Entwined Sheets + Lying on her Side in Underwear, requested by Gojoy-nim~!</p>
+<p>The previous Practice haha. After trying various settings, it became too different from Eve, so Elimination!</p>
+<p>Hangari Muneo Underwear Entwined Sheets + Lying on her Side in Underwear, requested by Gojoy-nim!</p>
 <p>Starting with Entwined Sheets</p>
-<p>Lying on her Side~!</p>
-<p>Kkiye-ek~!!</p>
+<p>Lying on her Side!</p>
+<p>Kkiye-ek!!</p>

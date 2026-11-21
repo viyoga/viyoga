@@ -26,7 +26,7 @@ chapter = 1545
 <p>She saw herself.</p>
 <p>A perfect copy of Isara Blackveil, stripped bare, on her knees with her own golden chains wrapped around her body in loops that had nothing to do with combat. The copy's wrists were bound behind her neck, armpits visible, head tilted, lips parted with an expression the real Isara had never made in her life.</p>
 <p>The proportions were wrong, however. Kitsara had never seen Isara beneath the armor and had guessed badly on purpose. The breasts sagged like deflated waterskins. The bush between her legs was a wild, unkempt jungle that looked like it hadn't seen maintenance in the full length of Isara's service record.</p>
-<p>"You know what they say about women who fight with chains~" Kitsara purred from the copy's lips. "Strict and commanding in the field, but behind closed doors she's begging someone to pull them tighter..."</p>
+<p>"You know what they say about women who fight with chains" Kitsara purred from the copy's lips. "Strict and commanding in the field, but behind closed doors she's begging someone to pull them tighter..."</p>
 <p>A vein pulsed in Isara's temple. Her chains didn't falter, her stance didn't break, and her expression barely shifted. But her eyes lingered on the illusion for one second longer than they should have, because somewhere beneath six centuries of battlefield discipline, a woman had just been deeply, personally insulted.</p>
 <p>One second was enough.</p>
 <p>"[Blazing Fist]!"</p>

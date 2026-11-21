@@ -37,7 +37,7 @@ chapter = 618
 
 <p>“What’s wrong? Is your hubby just too amazing? Hehehe.” Qingyi chuckled and squeezed Ruxue’s enormous breasts with his hands.</p>
 
-<p>“Nghnn~” Ruxue moaned and, with a quick movement, turned around in his lap, her breasts pressed against his chest. “Ah… for a shameless womanizer… you actually learn fast…”</p>
+<p>“Nghnn” Ruxue moaned and, with a quick movement, turned around in his lap, her breasts pressed against his chest. “Ah… for a shameless womanizer… you actually learn fast…”</p>
 
 <p>She whispered the words against his mouth before pressing her lips against Qingyi’s.</p>
 

@@ -8,9 +8,9 @@ chapter = 417
 <p>Every weekend, I would leave Miyashi and go to Tokyo or Seoul, but I decided to take a break this week. As October arrived, the exam period was approaching, so I had to start preparing exam questions. I stayed home, reviewing past Korean exam questions to identify key points for creating the exam.</p>
 <p>Since I wasn't originally a teacher, I had to check everything one by one, which made it a time-consuming task.</p>
 <p>But I wouldn't have to suffer anymore if I just finished it this weekend, so I braved my laziness and sat at my desk, creating questions on Sunday, following Saturday.</p>
-<p>Ding-dong~♬</p>
+<p>Ding-dong♬</p>
 <p>I was biting on my pen and creating questions with a bored expression when the bell suddenly rang. Who could it be? I didn't order any food...</p>
-<p>,Coming~!</p>
+<p>,Coming!</p>
 <p>I got up from my desk and headed to the front door. After looking at the intercom screen installed next to the front door, I couldn't help but wear a puzzled expression.</p>
 <p>Kurayamata Kirie was standing on the intercom screen. These days, for security reasons, you can see visitors from various angles in case they're carrying a weapon, and after checking, I saw that she was holding something like a shopping bag in her hand.</p>
 <p>It's a bit creepy...? How does she know my address? And why is she standing in front of my house? Various questions flashed through my mind.</p>
@@ -49,7 +49,7 @@ chapter = 417
 <p>From Kurayamata Kirie.</p>
 <p>Is this a threat? But how did she know that I was from the Taira Group...? Looking at the contents, it seems like she's saying, ,I know you're from Taira, so listen to me.</p>
 <p>I was unexpectedly hit. But seeing that it says,To Yamashiro Ryuta-nim,, it seems like she doesn't know my true identity yet, even though she knows I'm affiliated with Taira. If she knew that I was Taira Ryuta, she wouldn't have threatened me with just a letter like this.</p>
-<p>Ding-dong~♬</p>
+<p>Ding-dong♬</p>
 <p>The doorbell rings again. It can't be Kurayamata Kirie who left and came back... Who is it this time?</p>
 <p>When I checked the intercom, the masked girl Sakagami Rena was standing there. How does she know my address too?</p>
 <p>Surely, it's not like you can just search,Yamashiro Ryuta's house, on Gugol and it comes right up, right?</p>

@@ -35,7 +35,7 @@ chapter = 910
 <p>The pink-haired one, Nyx, entered first, and Whitmore’s brain filed her instantly under manageable: friendly greeting, soft smile, curves that explained about forty percent of the Sinners’ subscriber statistics on their own.</p>
 <p>Behind her came Aria Levander, and the room’s four executives all performed the same subtle recalibration, because screens did not survive contact with the reality of that face. Silver hair, the kind of beauty that made expensive rooms look cheap around it.</p>
 <p>Then the third one padded in barefoot, gold anklets chiming against the marble, translucent veils shifting over tanned skin, cat ears rotating once across the room like instruments taking a reading. Whitmore’s welcome speech lost its footing for a second, because nobody had briefed him on how to receive a desert felinid queen dressed for a throne room.</p>
-<p>"Ladies and gentlemen~" Nyx settled into the offered chair and folded her hands. "Thank you for making time on short notice. Shall we?"</p>
+<p>"Ladies and gentlemen" Nyx settled into the offered chair and folded her hands. "Thank you for making time on short notice. Shall we?"</p>
 <p>They began. Whitmore ran the deck himself, warm and paternal, hitting the notes that they aimed for: heritage, synergy, family.</p>
 <p>The girls listened. Aria drifted along the merchandise displays by the window, examining a lunar-themed jacket with ’Moon Valkyrie’ stitched on the collar. The cat girl reclined in her chair like it had been carved for her and watched him with half-lidded golden eyes that made his sales instincts itch.</p>
 <p>"...which is why we see this as more than sponsorship," he was saying, twelve minutes in. "Corvant wants to be Eclipse’s home in the lifestyle space. A true partnership."</p>
@@ -44,7 +44,7 @@ chapter = 910
 <p>"Speaking of true partnership, Mister Whitmore, could you walk me through clause fourteen of appendix C? The one where Eclipse grants Corvant image rights to all founding members." She looked up, sweet and unhurried. "In perpetuity."</p>
 <p>The room temperature dropped by a degree.</p>
 <p>Harris sat up. "That’s, ah. Standard boilerplate for the category."</p>
-<p>"Is it~? Because your deal with Iron Halo runs image rights for the contract term plus two years. I checked on the drive over." Nyx tilted her head, pink hair sliding off her shoulder.</p>
+<p>"Is it? Because your deal with Iron Halo runs image rights for the contract term plus two years. I checked on the drive over." Nyx tilted her head, pink hair sliding off her shoulder.</p>
 <p>Whitmore held his expression in place while recalculating everything. Fine. So the pink one read appendices. The deal still worked, the numbers were still generous, he just needed to give ground gracefully and reroute through slide twenty.</p>
 <p>That was the moment Aria, standing by the window with the jacket still in her hands, sunlight catching her hair, asked, "Would this line launch before or after the exclusivity window?"</p>
 <p>And Whitmore, mid-pivot, allowed his eyes to go on a trip. Down the silver hair, down the line of her back, and settled, for two full seconds, on her butt.</p>

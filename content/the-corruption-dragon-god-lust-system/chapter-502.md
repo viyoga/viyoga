@@ -5,7 +5,7 @@ weight = 502
 chapter = 502
 +++
 
-<p>“That… isn’t the right size! Ugh~~” Khaedryss complained, and the obsidian skin of her beautiful, elegant face was overtaken by a vibrant dark pink.</p>
+<p>“That… isn’t the right size! Ugh” Khaedryss complained, and the obsidian skin of her beautiful, elegant face was overtaken by a vibrant dark pink.</p>
 
 <p>She looked down.</p>
 
@@ -99,11 +99,11 @@ chapter = 502
 
 <p>“Go on, sis! Show this big dick who’s boss!” Feiyan gave an excited squeal and a firm slap on Ruyan’s ass. Her free hand moved up to her own breasts, squeezing them firmly.</p>
 
-<p>“Nghnn~~” Ruyan moaned at the slap, her eyes watering as her throat tightened around Qingyi’s cock.</p>
+<p>“Nghnn” Ruyan moaned at the slap, her eyes watering as her throat tightened around Qingyi’s cock.</p>
 
 <p>She swallowed a little more before retreating, pulling her head back, her lips still connected to the reddish glans by thick, pearly strands of saliva.</p>
 
-<p>“Your turn now, hehehe~~” Ruyan laughed, slapping Feiyan’s butt while rubbing her own, feeling the burning mark of the tanned beauty’s palm.</p>
+<p>“Your turn now, hehehe” Ruyan laughed, slapping Feiyan’s butt while rubbing her own, feeling the burning mark of the tanned beauty’s palm.</p>
 
 <p>Feiyan didn’t complain, her plump and perfect buttocks were taken by a powerful shockwave as she swallowed Qingyi’s cock.</p>
 

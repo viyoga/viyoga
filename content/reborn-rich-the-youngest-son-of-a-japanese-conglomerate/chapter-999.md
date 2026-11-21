@@ -39,7 +39,7 @@ chapter = 999
 <p>First, I greeted the Meeting participants. It was a thank you for most of them participating like this even though it wasn't a pre-planned Meeting and was urgently scheduled.</p>
 <p>"First of all, the Reason for convening this emergency Meeting is because I suddenly received Contact from the US Federal Superpowers Administration asking to meet."</p>
 <p>At my Words, those who knew that I was Black Knight and that I had a deal with the Federal Superpowers Administration seemed to think that the Federal Superpowers Administration would ask me for help, and Athena and Yoma Kaita of Kōtetsubutai seemed confused about what the Situation was.</p>
-<p>When I looked at the two of them and subtly winked at Linling, Linling nodded and said, I'll send the data~!</p>
+<p>When I looked at the two of them and subtly winked at Linling, Linling nodded and said, I'll send the data!</p>
 <p>"First of all, there are two agenda items for today's Meeting. The first is why the Federal Superpowers Administration called me, and the second is to select the personnel who will go with me when I go to the USA."</p>
 <p>In fact, these two agenda items weren't important enough to warrant an emergency Meeting, but because I was told to come to the USA as soon as possible, it was necessary to gather everyone at once to share opinions and decide on the personnel who would go to the USA with me, so I convened the emergency Meeting.</p>
 <p>"After all, the FSA (Federal Superpowers Administration) called Ryuta Older Brother because they need Older Brother's martial prowess, right? I don't really believe there's another Reason."</p>
@@ -77,13 +77,13 @@ chapter = 999
 <p>There's only one Reason to call me as Black Knight. In the end, they're calling me to use me as a combatant.</p>
 <p>"Then, I have to deal with the Superior side, and while I'm there, I should also help my comrades who went to the USA first, so I should go to the USA with People who have some jeonturyeok."</p>
 <p>In the end, it was the same conclusion as before hearing the Information. Still, there was a big difference between knowing the enemy and not knowing them, so I felt more comfortable than when I first started the Meeting.</p>
-<p>Tsukiyo, who was requested by MidNightSKY-nim, is surprised after destroying a rock while training in Fist Technique, and Ryuta is surprised when Tsukiyo destroys the rock~!</p>
-<p>Tsukiyo~!</p>
-<p>Ryuta~!</p>
-<p>1000th Chapter Anniversary Q&amp;A;~!</p>
-<p>Before starting the Q&amp;A;: It's generally correct, but the answers to the Q&amp;A; may be wrong. Because I may change the Setting or change the contents I had thought of in advance for the sake of the Story development ㅎㅎ Please watch it for fun~!</p>
+<p>Tsukiyo, who was requested by MidNightSKY-nim, is surprised after destroying a rock while training in Fist Technique, and Ryuta is surprised when Tsukiyo destroys the rock!</p>
+<p>Tsukiyo!</p>
+<p>Ryuta!</p>
+<p>1000th Chapter Anniversary Q&amp;A;!</p>
+<p>Before starting the Q&amp;A;: It's generally correct, but the answers to the Q&amp;A; may be wrong. Because I may change the Setting or change the contents I had thought of in advance for the sake of the Story development ㅎㅎ Please watch it for fun!</p>
 <p>Q: Is Yukiko infertile?</p>
-<p>A: She's infertile based on human standards. Because her Succubus Trait is awakening, she needs an Incubus's semen to become pregnant~!</p>
+<p>A: She's infertile based on human standards. Because her Succubus Trait is awakening, she needs an Incubus's semen to become pregnant!</p>
 <p>Q: If Ryuta marries Minamoto Lisa, will Minamoto Ushin's blood pressure rise and he'll be ejected to the afterlife?</p>
 <p>A: His blood pressure will rise 100 percent, but I don't know about the afterlife ㅎㅎ Won't he see the doorstep of the afterlife?</p>
 <p>Q: Is there a heukmak Jipdan above Anya Ji?</p>
@@ -93,45 +93,45 @@ chapter = 999
 <p>Q: Are you thinking of serializing 2000 chapters?</p>
 <p>A: I don't know well ㄷㄷ In fact, the school arc became longer than I thought, so I came to the thousandth chapter, but the more I write, the more tteokbap there are, so it seems like it will be a little longer. Still, I don't think it will go up to 2000 chapters?</p>
 <p>Q: Can I request a sexual intercourse scene of a character with no contact with the protagonist as a oejeon?</p>
-<p>A: You can request it at any Time, but depending on the writer's judgment, if they become involved with the protagonist in the future, or if I don't think of a Story for the requested oejeon, it may be put on hold~!</p>
+<p>A: You can request it at any Time, but depending on the writer's judgment, if they become involved with the protagonist in the future, or if I don't think of a Story for the requested oejeon, it may be put on hold!</p>
 <p>Q: What kind of underwear was Opennmu wearing when he announced that he would do a Q&amp;A;?</p>
 <p>A: He was wearing a rare teal-colored drawers ㅎㅎ</p>
 <p>Q: What is the protagonist's cock size?</p>
-<p>A: The protagonist's cock size is 11 inches~! However, due to the Bedroom Arts that the protagonist has learned, there is also a function that slightly changes the Size depending on the opponent ㅎㅎ</p>
+<p>A: The protagonist's cock size is 11 inches! However, due to the Bedroom Arts that the protagonist has learned, there is also a function that slightly changes the Size depending on the opponent ㅎㅎ</p>
 <p>Q: What is the protagonist's height and weight?</p>
-<p>A: He is 194CM and 118KG~!</p>
+<p>A: He is 194CM and 118KG!</p>
 <p>Q: How much is the Size of Lisa's love for the protagonist based on 100 points?</p>
 <p>A: I don't think it's over 90 for now? I don't know the exact numerical value ㅎㅎ</p>
 <p>Q: How much is the Size of the protagonist's love for Lisa based on 100 points?</p>
-<p>A: I think it will be over 90 as well~!</p>
+<p>A: I think it will be over 90 as well!</p>
 <p>Q: Will you focus on the Management genre from the 4th part onwards?</p>
 <p>A: I think I'll only add the scent of the Management genre ㅎㅎ</p>
-<p>Q: Aunt Kokoro is attractive~! Is it possible to achieve the Aunt Triple Crown?</p>
-<p>A: It hasn't been confirmed yet~! The writer also thinks Aunt Kokoro is attractive!</p>
+<p>Q: Aunt Kokoro is attractive! Is it possible to achieve the Aunt Triple Crown?</p>
+<p>A: It hasn't been confirmed yet! The writer also thinks Aunt Kokoro is attractive!</p>
 <p>Q: Ryuta is building forces in Korea and the USA in addition to Japan, but are you thinking of extending it to the UK or other countries?</p>
-<p>A: One of Jiro's sons is in Europe, so I think I'll go to Europe, but it hasn't been decided yet whether to build forces there ㅎㅎ I'm thinking about it~!</p>
+<p>A: One of Jiro's sons is in Europe, so I think I'll go to Europe, but it hasn't been decided yet whether to build forces there ㅎㅎ I'm thinking about it!</p>
 <p>Q: Ryuta's maternal Family is ordinary in terms of money, but is it an ordinary Family with no hidden Hidden Piece or secret Story?</p>
 <p>A: There's a rumor that they're a business Family ㅎㅎ Could there be a Story on the maternal side as well?</p>
-<p>Q: How much is Ryuta's jeonturyeok in the world? Please tell me in percentage units~!</p>
+<p>Q: How much is Ryuta's jeonturyeok in the world? Please tell me in percentage units!</p>
 <p>A: Wouldn't it be about 0.000071%? (About 5000th in the world.) Ryuta's level is still 16, but he has mythical martial arts and obtains a Trait for each level due to the protagonist's correction, so I think he'll be in a very high Position in terms of jeonturyeok ㅎㅎ</p>
 <p>Q: Does he have yas with Taira Kokoro as well?</p>
-<p>A: It hasn't been 100 percent decided yet. If there is a yas scene with Taira Kokoro, I think the Story will have to progress a little more due to the characteristics of Taira Kokoro, who is the Successor~!</p>
+<p>A: It hasn't been 100 percent decided yet. If there is a yas scene with Taira Kokoro, I think the Story will have to progress a little more due to the characteristics of Taira Kokoro, who is the Successor!</p>
 <p>Q: Aren't there any more ninjas like that?</p>
 <p>A: If we limit it to ninjas, there are more ninja Families besides Sakagami. Mochizuki Ikuro of the superpower crime investigation team is also a ninja, and the Mochizuki Family, Mochizuki Ikuro's Family, is also a ninja Family. And there are ninja Families with names you'll know if you hear them. Fuma or Hattori like....</p>
 <p>Q: Isn't anything coming out about the three great yongbyeong? Is it a MacGuffin?</p>
-<p>A: I think you're talking about the Three Swordsmen, not the three great yongbyeong~! Except for Shimokawabe Airen, there's Cyber Samurai Reito, and Dōgo Asakura of Asakura, one of the top 5 PMCs in the USA, but I'm worried about whether to introduce them because they're People from the future rather than the current era ㅎㅎ</p>
+<p>A: I think you're talking about the Three Swordsmen, not the three great yongbyeong! Except for Shimokawabe Airen, there's Cyber Samurai Reito, and Dōgo Asakura of Asakura, one of the top 5 PMCs in the USA, but I'm worried about whether to introduce them because they're People from the future rather than the current era ㅎㅎ</p>
 <p>Q: Will there be a development where the status of Gods or Transcendent is degraded and damaged by the power of science?</p>
-<p>A: I don't think there will be any content where Oeisin comes out in full force. So I don't think a science VS Oeisin fight will come out~!</p>
+<p>A: I don't think there will be any content where Oeisin comes out in full force. So I don't think a science VS Oeisin fight will come out!</p>
 <p>Q: Are there any Oeisin or Transcendent who will be hostile to Ryuta by birth in the future?</p>
-<p>A: Like the answer to the above Question, there are no plans to bring Oeisin to the forefront yet~!</p>
+<p>A: Like the answer to the above Question, there are no plans to bring Oeisin to the forefront yet!</p>
 <p>Q: Has Fujigasaki Rinka approached the transcendent realm as a martial artist?</p>
 <p>A: As a 'martial artist', she has approached the realm of transcendence, but her level is insufficient. She needs to exceed the human limit of 20 to become a true Transcendent, right?</p>
 <p>Q: Are there any Bosses stronger than the final Boss that Ryuta knows from the original work game?</p>
-<p>A: There may be similar beings~!</p>
+<p>A: There may be similar beings!</p>
 <p>Q: Besides Oeisin, can named Gods such as Odin or Zeus, who are famous on Earth, also appear?</p>
 <p>A: There are no plans yet, but it's a novel that only creates a large framework and writes, so I don't think I can exclude their appearance at any Time ㅎㅎ</p>
 <p>Q: The wish-fulfilling jewel and the Heavenly King Ring that Ryuta obtained in the early stages seem to be the power of the Heavenly King Gwangmok, is the power of the Heavenly King Gwangmok acting on Ryuta's Body along with the Genesis Chaos?</p>
-<p>A: The power of the Heavenly King Gwangmok is the growth-type regenerative Ability obtained with the Heavenly King Ring. Since it's acting as a Trait, it's not wrong to say that it's acting together~!</p>
+<p>A: The power of the Heavenly King Gwangmok is the growth-type regenerative Ability obtained with the Heavenly King Ring. Since it's acting as a Trait, it's not wrong to say that it's acting together!</p>
 <p>Q: Can a swordsman who will inherit the Gokseon Swordsmanship that Ryuta obtained as it is and become the 2nd Gokseon Sword Master join?</p>
 <p>A: I originally planned a 2nd Gokseon Sword Master character, but I'm worried because there are many swordsman characters in Ryuta's party ㅎㅎ</p>
 <p>Q: I heard that the tears of a mermaid have the Effect of raising the Trait from Seongin to Choin, what stage is Rinka at?</p>
@@ -139,7 +139,7 @@ chapter = 999
 <p>Q: The order of the grades of Traits is Normal➡Special➡Rare (Master)➡Narrative (Expert)➡Unique (Seongin)➡Legacy (Choin)➡Unique Legacy➡Legendary➡Mythical➡Transcendent Mythical, is the maximum Trait that a Person can have Choin?</p>
 <p>A: Classifying them as Seongin and Choin is a Trait limited to technologies created by People. If you look at other characters right now, they have legendary Traits except for technical Traits. However, in the case of Choin, although it's a Legacy grade, it has more power than that. Since it's not a Trait acquired through leveling up, such as collecting Enlightenment stacks and raising it, it has power beyond the grade. And technical Traits have the Ability to double the technology, so the grade of the learned technology is also important. The Reason Ryuta was able to wreak havoc with the Fist Technique that he evaluated as Copper in the early stages was because he had a mythical grade Fist Technique.</p>
 <p>Q: Does Famine enter the ranks of Transcendent in the original work?</p>
-<p>A: Not now, but someday he will rise to the ranks of Transcendent~!</p>
+<p>A: Not now, but someday he will rise to the ranks of Transcendent!</p>
 <p>Q: Can Oeisin or Transcendent defend against biochemical weapons or nukes?</p>
 <p>A: If you treat biochemical weapons as dok, the dok used by Oeisin also harms Oeisin. However, you can assume that they take almost no damage from biochemical weapons used by the military. They take damage from nukes, but if they're Oeisin, it seems unlikely that they'll be hit by a nuclear attack head-on. EX) Evade with space movement, manipulate reality so that nuclear missiles are not launched, etc....</p>
 <p>Q: What is the Fist Technique realm of Takakusaki Gengo's Father, who was murdered by the Fate Observer?</p>
@@ -163,8 +163,8 @@ chapter = 999
 <p>Q: Besides Oeisin, are there any beings who individually have national-level or mega-corp-level Abilities?</p>
 <p>A: They exist.</p>
 <p>Q: Opennmu?</p>
-<p>A: I'm wearing navy blue drawers today~!</p>
-<p>1000th Chapter Anniversary Model Change Liz Illustration~!</p>
+<p>A: I'm wearing navy blue drawers today!</p>
+<p>1000th Chapter Anniversary Model Change Liz Illustration!</p>
 <p>This is the original model Liz. I just made it with a different model, thinking of making the same thing with a different model, so I fixed the prompt and seed and only changed the model ㅎㅎ I think it's a relative model with similar learning data because the pose and composition are similar.</p>
 <p>Made with a model that usually only makes characters other than Liz ㅎㅎ This look is also good ㅎㅎㅎ</p>
 <p>Depending on the reader's Preference, there may be a model that you like more than the original ㅎㅎ</p>

@@ -34,11 +34,11 @@ chapter = 804
 <p>It felt like a very long time since I had gone to School, even though it had only been three days, Friday, Saturday, and Sunday. Of course, after the Kotowazuki incident ended, I had returned to School by Helicopter, but today was the first time I had walked directly from Home to School since the incident, so it really felt like a long time.</p>
 <p>When I arrived at School, I left my Luggage in the Education Preparation Room, checked faxes and such, and then headed to the special class classroom for morning Jorye. When the Door opened, all the Students were sitting at their desks, waiting for me.</p>
 <p>"Did everyone prepare well for the exam?"</p>
-<p>"Eh~! I hate exams~☆"</p>
-<p>"I worked hard~!"</p>
+<p>"Eh! I hate exams☆"</p>
+<p>"I worked hard!"</p>
 <p>Although it was exam week, most of them were aiming for St. Francis Women's University, which they would automatically advance to, so it didn't have the burning Feeling of the midterm exam we had shortly after I took office. Back then, a Date with me was offered as a Reward, so they studied incredibly hard.</p>
 <p>"Even if this exam isn't important, you know that you can't have a Failing Grade if you want to go to St. Francis Women's University, right?"</p>
-<p>"Ei~! No way I'd get a Failing Grade?"</p>
+<p>"Ei! No way I'd get a Failing Grade?"</p>
 <p>Even with escalator advancement, there was a minimum required score, which was to exceed the Failing Grade of 40 Points.</p>
 <p>If they couldn't even pass that score, they couldn't go to St. Francis Women's University, but unless they had completely given up on their Studies, there were almost no Students who received a Failing Grade. Of course, even if they received a Failing Grade, there were two supplementary exams, so it was not easy to fail even for a complete idiot.</p>
 <p>"Ryuta, I'm scared...!"</p>
@@ -51,9 +51,9 @@ chapter = 804
 <p>Alik was also calmly assessing her own Skill and was feeling anxious.</p>
 <p>"Even if you don't do well, there's a supplementary exam. Don't worry too much, Alik."</p>
 <p>"Alik, supplementary exam.... I hate it."</p>
-<p>"Eh~! You should say let's do well now so we don't have to go to the supplementary exam, Ryuta-cchi~!"</p>
+<p>"Eh! You should say let's do well now so we don't have to go to the supplementary exam, Ryuta-cchi!"</p>
 <p>Of course, it would be good if Alik did well and didn't have to go to the supplementary exam, as Seizawa Shii said, but I heard that this last exam had many units that Alik found particularly difficult, so it was hard to be Optimistic.</p>
-<p>"Anyway~! Today you don't even have the Mathematics you find difficult, so do well.... Oh, right. After you finish all your exams, they'll be presenting the Brave Citizen Award for catching Kotowazuki during homeroom, so be aware."</p>
+<p>"Anyway! Today you don't even have the Mathematics you find difficult, so do well.... Oh, right. After you finish all your exams, they'll be presenting the Brave Citizen Award for catching Kotowazuki during homeroom, so be aware."</p>
 <p>"Ah, I know that. My dad's local reporter said they'd be taking Photos in our class today."</p>
 <p>"Reporters are coming for us too."</p>
 <p>"Many Minamoto reporters will come, so it will get a bit complicated, you."</p>
@@ -62,10 +62,10 @@ chapter = 804
 <p>The school for noble Young Ladies had quite large classrooms, but I worried if it would become incredibly cramped due to the reporters, but I thought the School would have coordinated it well, and I finished the morning Jorye.</p>
 <p>Class Teachers are forbidden from proctoring their own classes, so I would have to go around other classes. Which class should I visit? I checked the tablet provided for Teachers.</p>
 <p>Coincidentally, the class I had to proctor for the first period was 3rd Year Class A, where Taira Kanna was. Surely, Taira Kanna didn't use her power as Student Council President and Taira's influence to call me as a proctor, did she?</p>
-<p>Gojoy-nim requested Jeong Darim (a Superhuman rescued with Alik, who researches plants) in casual clothes and underwear~!</p>
+<p>Gojoy-nim requested Jeong Darim (a Superhuman rescued with Alik, who researches plants) in casual clothes and underwear!</p>
 <p>Casual clothes</p>
-<p>Underwear~!</p>
-<p>seungj050-nim requested Yukiko and Dang So-hwa in a Footjob-like posture~!</p>
+<p>Underwear!</p>
+<p>seungj050-nim requested Yukiko and Dang So-hwa in a Footjob-like posture!</p>
 <p>Yukiko</p>
-<p>Dang So-hwa~!</p>
-<p>Kkiyoot~!</p>
+<p>Dang So-hwa!</p>
+<p>Kkiyoot!</p>

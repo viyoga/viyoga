@@ -22,7 +22,7 @@ chapter = 336
 <p>Ryuta: Ordered.</p>
 <p>Seizawa Shii: What did you order?</p>
 <p>Ryuta: Double portion of chahan, double portion of karaage set meal, double portion of mapo tofu rice bowl, and Gyoza.</p>
-<p>Seizawa Shii: You really ordered a karaage set meal? Are you really telling me to come to your house? Ryuta-cchi so funny~!🤣</p>
+<p>Seizawa Shii: You really ordered a karaage set meal? Are you really telling me to come to your house? Ryuta-cchi so funny!🤣</p>
 <p>Ryuta: What are you talking about? I ordered it because I wanted to eat it.</p>
 <p>Minamoto Risa: Let's stop talking about food and think about what we need to do to solve the mission.</p>
 <p>In fact, this mission was very easy. The student council's request was to find the person making the moaning sounds of a man and a woman in the corner of the auditorium, but if you think about it, it was a request to find a male teacher who is sleeping with students.</p>

@@ -107,11 +107,11 @@ chapter = 601
 
 <p>Clap</p>
 
-<p>“Nghnn~~ you!”</p>
+<p>“Nghnn you!”</p>
 
 <p>The impact echoed throughout the temple, the fiery beauty’s body shuddering as a pained moan escaped her lips.</p>
 
-<p>“Aghnn~~ you womanizing scoundrel… finally remembered me?” Rongyan gasped, turning to face him and landing a punch on his chest.</p>
+<p>“Aghnn you womanizing scoundrel… finally remembered me?” Rongyan gasped, turning to face him and landing a punch on his chest.</p>
 
 <p>Well, she wasn’t the type to punch half-heartedly, so Qingyi ended up gasping for air for a moment.</p>
 

@@ -59,7 +59,7 @@ chapter = 14
 <p>Her pink lips curled into an angry expression as her thick, powerful thighs closed around his hips, her toned abdomen flexing.</p>
 <p>She wore hardly any clothes.</p>
 <p>Her arms were covered with long leather armbands and shoulder pads, her torso covered by nothing more than a small leather top, barely able to contain her breasts, her shorts so tight they looked like they were about to rip at any moment.</p>
-<p>"Nghnn~~" Her full lips parted as she felt something thick and warm pulse against the fat, soft lips of her vulva, the fabric of his pants and her shorts doing little to separate them.</p>
+<p>"Nghnn" Her full lips parted as she felt something thick and warm pulse against the fat, soft lips of her vulva, the fabric of his pants and her shorts doing little to separate them.</p>
 <p>The voice was mature and strangely sensual. Long, wavy black hair fell over her shoulders, which, like her hands, were too delicate for a warrior.</p>
 <p>"You degenerate bastard! I’ll beat you to death!"</p>
 <p>Evelyn moved her aura, prepared her fist, and brought it down toward Ethan’s face.</p>

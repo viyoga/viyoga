@@ -7,7 +7,7 @@ chapter = 149
 
 <p>"N-Nice to meet you! I'm Sawayanagi Azuma, the president of Seryu Military Company!"</p>
 <p>It felt like just a few minutes ago I was rubbing my tired eyes from the flight, but here was Sawayanagi Azuma speaking with a clear and energetic voice. Is it because she's the biggest employer I've met so far? I could feel her nervousness all the way over here. In contrast, Mimata Chieri looked completely relaxed.</p>
-<p>"I'm Mimata Chieri from East Weapon. Chairman-nim, you're so pretty~!"</p>
+<p>"I'm Mimata Chieri from East Weapon. Chairman-nim, you're so pretty!"</p>
 <p>I told her to introduce herself, and she's just spouting nonsense. Nagumo Sian smiled gently, looking at the contrasting expressions of Sawayanagi Azuma and Mimata Chieri.</p>
 <p>"It's nice to meet you both. Let's talk on the way."</p>
 <p>We followed Nagumo Sian's lead and boarded a sturdy-looking luxury vehicle. As soon as we got in, Nagumo Sian handed contracts to Mimata Chieri and Sawayanagi Azuma.</p>

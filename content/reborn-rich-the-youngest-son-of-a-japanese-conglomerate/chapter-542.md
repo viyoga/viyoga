@@ -24,8 +24,8 @@ chapter = 542
 <p>There's nothing special to tell them today, I just need to tell them about the sports day's best class that I just heard from Daigo Terue. The kids will be so happy, right?</p>
 <p>Deureureuk!</p>
 <p>"You guys must have had a good weekend since Ei-sensei bought you food, right?"</p>
-<p>I opened the classroom door with a refreshing morning greeting. The students greeted me with jeers, "Uu~!", as if they didn't like the way I was showing off.</p>
-<p>"Ryuta-jji, don't show off! I'm a poor student who works part-time~!"</p>
+<p>I opened the classroom door with a refreshing morning greeting. The students greeted me with jeers, "Uu!", as if they didn't like the way I was showing off.</p>
+<p>"Ryuta-jji, don't show off! I'm a poor student who works part-time!"</p>
 <p>Well, talking about money could be a bit sensitive. Minamoto Risa of the Minamoto Group and Konoe Akina, the head of the Konoe family, make the average very high, but Saionji Diana, who was abandoned by her family, Otagi Yuka, and Seizawa Shii, who makes a living working part-time, make our class the most economically unequal class in St. Francisco Girls' Academy.</p>
 <p>"Please forgive me for showing off this much. Because I have good news."</p>
 <p>It was quite cute how everyone perked up their ears when I said I had good news. Uenozono Karen with her twintails was also attending class for the first time in a while and was looking at my mouth. Then the empty seat is Naruse Shiyo's.</p>
@@ -34,10 +34,10 @@ chapter = 542
 <p>"Ah, I was just checking attendance with my eyes. The good news is that.... there's a prize for being the best class at this sports day."</p>
 <p>"A prize? What is it? I don't like money or gift certificates...."</p>
 <p>"It's St. Francisco Girls' Academy, so they won't give you money. Probably...."</p>
-<p>"I like money! I can take a break from my part-time job~☆"</p>
+<p>"I like money! I can take a break from my part-time job☆"</p>
 <p>At my words, the students were speculating about the prize the school would give them. By the way, I'm curious about what kind of part-time job Seizawa Shii does. I should call her separately and ask her later.</p>
 <p>"The prize is a day off that you can use whenever you want."</p>
-<p>"Wow~! That's a relief! I got a call saying that I might be held back a year if I miss a few more days of school!"</p>
+<p>"Wow! That's a relief! I got a call saying that I might be held back a year if I miss a few more days of school!"</p>
 <p>"Not bad."</p>
 <p>"Well.... there would have been complaints no matter what they gave as a prize."</p>
 <p>I thought they would like it quite a bit, but except for Uenozono Karen, who had a problem with her attendance, the rest had a lukewarm reaction.</p>
@@ -64,7 +64,7 @@ chapter = 542
 <p>First, I checked the comments. There wasn't much time left until class, so I couldn't watch the entire video with the students, so I had to check the reactions first.</p>
 <p>Scanning through the comments, it wasn't quite to the extent of "You've become a complete star," as the kids said. Most of the comments were about how pretty and cute the Serif members were, and they were surprised by the beauty of the special class students, and the reactions to me were clearly divided between men and women. The comments written by men were mostly curses, ranging from "Why is there a blonde guy at school?" to "I'm disappointed because he's a male teacher" and "His dick must be small."</p>
 <p>Well, the reactions from women were quite good without me having to say it. In particular, Latin and American older sisters liked me quite a bit. Japan prefers white, pretty boy styles, so the reactions were better in the comments from foreigners.</p>
-<p>"Ei~! Ryuta-jji, don't smile too much."</p>
+<p>"Ei! Ryuta-jji, don't smile too much."</p>
 <p>"Ryuta, is your dick.... small?"</p>
 <p>Seeing my satisfied expression, Seizawa Shii puffed out her cheeks for some reason and told me not to smile with a sulky expression, and Alik said the word "dick," which shouldn't have come out of Alik's mouth, with a pure and innocent expression. But it was a statement that touched my pride, so I had to explain myself to Alik.</p>
 <p>"No, I'm more confident than anyone.... in my big d, no, what's wrong?"</p>
@@ -73,15 +73,15 @@ chapter = 542
 <p>"I have to track down and catch the IDs ekfkadlwhgdk39 and hentai77."</p>
 <p>Minamoto Risa, who was carefully looking at the comments and writing down the IDs in the meantime. She was the scariest. Because she had the ability to carry out those words at any time, it didn't sound like a joke. The atmosphere of appreciating the vlog's reaction became strange, so I put my phone back in.</p>
 <p>"Okay, class is starting now, so stop blocking my mouth and sit down."</p>
-<p>"Yes~!"</p>
+<p>"Yes!"</p>
 <p>The students quickly returned to their seats at my words. I picked up the documents I had brought and headed to the classroom door. And I turned my head and looked around at the students and opened my mouth.</p>
 <p>"Those comments there are all lies, so don't believe anything. Especially the d.... that one."</p>
 <p>Everyone burst out laughing at my words to save my pride. Seizawa Shii looked at me with a playful expression, holding her phone and reading something.</p>
-<p>"What about the pretty Spanish older sister's comment that says, 'This person is the most handsome teacher out of all the teachers~!'?"</p>
+<p>"What about the pretty Spanish older sister's comment that says, 'This person is the most handsome teacher out of all the teachers!'?"</p>
 <p>"That might be true...."</p>
-<p>"U~!"</p>
+<p>"U!"</p>
 <p>In the end, I had no choice but to leave the class while being jeered at. After leaving the classroom, I headed to the nurse's office instead of the education preparation room. Because I had something to ask about Naruse Shiyo.</p>
 <p>__________</p>
 <p>Alik now</p>
 <p>Alik as seen by Ryuta and his classmates</p>
-<p>Protect Alik~!!</p>
+<p>Protect Alik!!</p>

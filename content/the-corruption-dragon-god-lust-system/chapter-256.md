@@ -11,15 +11,15 @@ chapter = 256
 
 <p>Without hesitation, she sat on his cock, a wet slap echoing as her ass hit Qingyi’s thighs, the voluptuous flesh swaying.</p>
 
-<p>“Oghnn~~” she moaned, feeling him reach the depths of her womb, creating an elongated bulge in her lean belly.</p>
+<p>“Oghnn” she moaned, feeling him reach the depths of her womb, creating an elongated bulge in her lean belly.</p>
 
-<p>“Ah… I want you to… nghnn~~” Biyue began to ride him, leaning over him.</p>
+<p>“Ah… I want you to… nghnn” Biyue began to ride him, leaning over him.</p>
 
 <p>Her breasts swung like large, heavy pendulums, the tips of her pink nipples sliding down Qingyi’s chest as she leaned over him.</p>
 
 <p>“What?” Qingyi spoke, running his hands down her body, gripping her curves possessively, feeling her try to milk his cock.</p>
 
-<p>“I’ll… oghnn~~ talk when we’re done, okay? Aghnn~~” Biyue replied.</p>
+<p>“I’ll… oghnn talk when we’re done, okay? Aghnn” Biyue replied.</p>
 
 <p>Running her hands through her hair, she moved a few strands that covered her beautiful face.</p>
 
@@ -29,13 +29,13 @@ chapter = 256
 
 <p>It was a little difficult at first, but she soon got the hang of it, bouncing on Qingyi’s cock faster and faster, feeling it reach deeper and deeper into her womb.</p>
 
-<p>“Nghnn~~ aghnnn~~ oh heavens… oh heavens!” Biyue’s obscene moans echoed through her room, her voice sweet and slurred, carrying none of her usual coldness.</p>
+<p>“Nghnn aghnnn oh heavens… oh heavens!” Biyue’s obscene moans echoed through her room, her voice sweet and slurred, carrying none of her usual coldness.</p>
 
 <p>“Was that tight little pussy really missing her husband that much?”</p>
 
 <p>Qingyi questioned, watching the sensual sway of Biyue’s huge breasts, the mountains of flesh being thrown up with each sit before falling down, hitting her delicate torso with a wet slap, not unlike the one produced by her plump ass.</p>
 
-<p>“You know the answer, oghnn~~” Biyue replied, sealing her own lips the next moment.</p>
+<p>“You know the answer, oghnn” Biyue replied, sealing her own lips the next moment.</p>
 
 <p>What had she just said?</p>
 
@@ -51,7 +51,7 @@ chapter = 256
 
 <p>With an initial thrust, he began to move his hips, responding to Biyue’s thrusts, further stimulating her tight, soaked and sensitive pussy.</p>
 
-<p>“You… shameless, ahhhh!~~” A moan that sounded more like a shrill scream escaped Biyue’s lips, her tongue slipping out of her lips in an obscene expression as the orgasm hit her.</p>
+<p>“You… shameless, ahhhh!” A moan that sounded more like a shrill scream escaped Biyue’s lips, her tongue slipping out of her lips in an obscene expression as the orgasm hit her.</p>
 
 <p>Her pussy squirted non-stop against Qingyi’s lap, who held back before finally releasing his seed.</p>
 

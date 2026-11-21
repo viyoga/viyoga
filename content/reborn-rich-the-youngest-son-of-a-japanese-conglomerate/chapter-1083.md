@@ -8,7 +8,7 @@ chapter = 1083
 <p>and chapter check contains erotic please surroundings this your</p>
 <p>Just after finishing 2-on-1 Sex with Kiyona Hori and Mari, and while considering whether to do it again, the sound of a vehicle was heard from outside, so I sent the two dazed Women to the first-floor Shower Room, and I also showered in the Shower Room in my room.</p>
 <p>After a quick Shower, I came down to the first floor, and the surfing Members, who had returned after tidying up their surfing equipment, were noisily entering Inside the House.</p>
-<p>"Wow~! Ryuta-cchi! Surfing was fun, let's do it together next Time!"</p>
+<p>"Wow! Ryuta-cchi! Surfing was fun, let's do it together next Time!"</p>
 <p>Seizawa Shii, who had returned after finishing surfing, kept saying surfing was fun and was excited. The others also seemed to agree, all with joyful, flushed Expressions. At her Words to do it together next Time, I nodded my Head and welcomed everyone.</p>
 <p>Even Maya Reed, who had initially been awkward and hesitant among people she wasn't close with, was smiling quite genuinely, seemingly having enjoyed herself. Seeing her happily conversing with Lianna Holden and Sawayanagi Seari, it seemed Superhumans had some kind of connection among themselves. Still, it's Fortunate that she made some friends.</p>
 <p>"We'll rest a bit, then have Dinner. Since the Administrator-ssi said he's been preparing barbecue since earlier, we don't need to prepare anything separately."</p>
@@ -25,13 +25,13 @@ chapter = 1083
 <p>"Sabu, is the running course here good?"</p>
 <p>"Yes, it goes up a Hill, so you can see the Sea well, and it has an open, refreshing Feeling, so it was quite good."</p>
 <p>At Naruse Shiyo's Question, Shimokawabe Airen nodded her Head. If it's that good, I should try running there tomorrow Morning too.</p>
-<p>"Everyone, please try the beverage we developed~!"</p>
+<p>"Everyone, please try the beverage we developed!"</p>
 <p>The Kiyona Sisters, who seemed to have finished their Shower and were now perfectly fine (though a slight Blush from Sex still remained), came carrying Bottles and cups full of Kiyona Special and said.</p>
 <p>Shimokawabe Airen, who suddenly blushed upon seeing the Kiyona Sisters, and Seiwa Rieko, who was coming down from the second floor, perhaps having just heard everyone arrive, also had a red Face.</p>
 <p>What is it? Is having a red Face a trend or something? Seiwa Rieko, who had only been Inside the House, had damp Hair as if she had just showered. Why did she Shower at such an ambiguous Time? Everyone seemed uninterested in the Question I was feeling, only showing Interest in the Kiyona Sisters' Kiyona Special.</p>
-<p>"I was thirsty anyway, so this is perfect~!"</p>
-<p>"Hori-cchi, Mari-cchi developed it? Give it here. I'm good at evaluating these kinds of things, you know~!"</p>
-<p>"It's refreshing~!"</p>
+<p>"I was thirsty anyway, so this is perfect!"</p>
+<p>"Hori-cchi, Mari-cchi developed it? Give it here. I'm good at evaluating these kinds of things, you know!"</p>
+<p>"It's refreshing!"</p>
 <p>Everyone, having surfed for several hours, was making a fuss, drinking Kiyona Special and saying it was delicious. Given the good Evaluation, it seemed likely they would release it as a new Menu item when they returned to Japan. Surely they wouldn't put cobra Blood in it, or serve it like that in a Japanese Maid Cafe, right?</p>
 <p>When I looked with a slightly worried Expression, Kiyona Hori chuckled 'fufut' and shook her Head.</p>
 <p>As a result of my tasting, it was a Potency drug so effective that it made my Face feel hot, so I thought I might have to deal with the Women who drank Kiyona Special tonight, but it seemed the Kiyona Sisters also had some thought, as they didn't put cobra Blood in it.</p>
@@ -75,7 +75,7 @@ chapter = 1083
 <p>Taira Ichiro hung up the Phone Call without even waiting for Taira Gensuke's Answer. Taira Gensuke, who had been holding and staring at the empty phone with no one to converse with for a while, put the phone in his pocket.</p>
 <p>"Hmph.... I can't live like this forever. What's important is Power. I'll gather as much influence as possible in Brazil. So Father can't ignore me.... So Father can never treat me like this again...."</p>
 <p>Taira Gensuke quietly muttered. But the content of his Words was completely different from the Reaction Taira Ichiro desired.</p>
-<p>Requested by Gojoy-nim: 1. Yukiko running to the accident Scene and worrying, and 2. Yukiko eating Breakfast~!</p>
+<p>Requested by Gojoy-nim: 1. Yukiko running to the accident Scene and worrying, and 2. Yukiko eating Breakfast!</p>
 <p>1.</p>
 <p>2.</p>
 <p>The meal was decided to be a Sandwich hehe.</p>

@@ -15,12 +15,12 @@ chapter = 280
 <p>Buut! Byuut! Buuuk!!</p>
 <p>"Hyat!"</p>
 <p>"Kyaak...!"</p>
-<p>"Heueung~♥"</p>
+<p>"Heueung♥"</p>
 <p>Since no one was sucking the hole, the semen floated into the air and fell onto the women's faces with a pattering sound.</p>
 <p>As always, the amount of my semen was enormous, so the three of them were covered in a huge amount of semen on their faces.</p>
 <p>The three of them laughed at each other's appearance, then started licking each other's faces and eating my semen. That sight turned me on again, and my dick quickly regained its strength.</p>
 <p>After that, I fucked them one by one, and when I fucked one, the remaining two caressed my whole body to make me cum quickly. It was as if they wanted their turn to come quickly.</p>
-<p>"Heueung...! Heueut...♥ Investor-nim~! Gibun joayo...."</p>
+<p>"Heueung...! Heueut...♥ Investor-nim! Gibun joayo...."</p>
 <p>Sawayanagi Azuma, who was the first in line, moaned as she was impaled by my dick, Lianna Holden was sucking on my nipples, and Mimata Chieri was licking my ass.</p>
 <p>Since I had already came once, I didn't act like a premature ejaculator. It's not like I have premature ejaculation anyway.</p>
 <p>Sawayanagi Azuma seemed excited by this situation, closing her eyes and enjoying my dick, and I also enjoyed Sawayanagi Azuma's tight pussy and shook my hips.</p>

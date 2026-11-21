@@ -19,7 +19,7 @@ chapter = 1652
 <p>Lucille was the first to stand. Her legs shook and her hands braced on her knees, but she rose on her own, and the gorgeous smile that crept across her flushed face was exhaustion and pride in equal measure. Groans from the ground welcomed her success.</p>
 <p>"Why HER..." from Kitsara, face-down.</p>
 <p>"I hate everyone and everything," Iris bit out.</p>
-<p>Lucille brushed the hair from her face and giggled. "I told you girls. It's exactly like pregnancy, just amplified. It only makes sense that I won~"</p>
+<p>Lucille brushed the hair from her face and giggled. "I told you girls. It's exactly like pregnancy, just amplified. It only makes sense that I won"</p>
 <p>Kitsara grunted from the moss. "So you're saying you're an experienced slut with a loose hole, and that's what helped you finish first?"</p>
 <p>Lucille's smile didn't leave, but her green eyes found the foxkin and something behind them went dark and still and specific. "I said that as a mother who has already brought a beautiful child into this world, I had a big advantage over so many innocent little girls who were virgins mere months ago."</p>
 <p>"Yeah, that's exactly what I said," the foxkin managed to grunt, eliciting a dozen twitches of the vein on the Bloodmonger's forehead. She decided the two of them would be having a very long conversation when this was over.</p>

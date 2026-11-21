@@ -6,7 +6,7 @@ chapter = 224
 +++
 
 <p>I was searching the Fitzgerald mansion, opening my senses as much as possible to find Arisu's room. Of course, my dick, still retaining the heat of Mimata Chieri's pussy, hadn't died down yet.</p>
-<p>"Hum~♬ Hum~♪ I shall conquer the enemy general's pussy before my dick cools down."</p>
+<p>"Hum♬ Hum♪ I shall conquer the enemy general's pussy before my dick cools down."</p>
 <p>I was humming a tune, thinking about being able to do it with Arisu after a long time, and muttering Guan Yu's famous lines as I pleased, wandering around to feel Arisu's presence. Of course, it would be much easier to find her room if I called her, but for some reason, today I was in the mood for a sneaky night visit.</p>
 <p>Hmm, the guest rooms were on the first floor, and the maids and butlers were sleeping in the staff quarters next to the mansion... Let's go up to the second floor first. Yes! It seemed like the second floor was the right answer. As soon as I came up to the second floor, I could feel a presence in the corner room.</p>
 <p>Then, does Nae Fitzgerald sleep on the third floor? Or maybe she came to New York after a long time and might be doing other work. Rather than wondering about Nae Fitzgerald, it was a priority to release the white liquid that was pooling in my balls.</p>

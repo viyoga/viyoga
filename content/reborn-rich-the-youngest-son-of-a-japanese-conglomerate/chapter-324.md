@@ -49,7 +49,7 @@ chapter = 324
 <p>"I don't like the meditation club, but I can't lose the match! Ryuta-cchi, just you wait!"</p>
 <p>Seizawa Shii declared that she couldn't lose, put her arm around Minamoto Risa's shoulder, and went outside.</p>
 <p>I thought I heard Minamoto Risa say, 'Even if you say it without any special meaning...,' but they had both already left the teachers' lounge, so I couldn't be sure if I heard it correctly.</p>
-<p>"Sensei! You have to take our side~!"</p>
+<p>"Sensei! You have to take our side!"</p>
 <p>"That's right, Sensei. The dating experience club is better than the meditation club, right?"</p>
 <p>The remaining Konoe Akina and Otagi Yuka said to me as if complaining.</p>
 <p>"In the end, I decided this so that everyone would think about becoming a club member of the club that I'll be the advisor of. There's also a mission...."</p>
@@ -77,7 +77,7 @@ chapter = 324
 <p>"I have to recruit club members...!"</p>
 <p>"Yeah, that's right. We can't lose to them!"</p>
 <p>Of course, Minamoto Risa didn't seriously think about the meditation club and create it, but as a member of the Minamoto family, she couldn't compete and surrender to the opponent. Minamoto Risa was going to do her best to recruit club members.</p>
-<p>-----This is a mid-term summary of the characters appearing in St. Francisco Girls' Academy requested by Arnold-jjang-nim~! Hehe</p>
+<p>-----This is a mid-term summary of the characters appearing in St. Francisco Girls' Academy requested by Arnold-jjang-nim! Hehe</p>
 <p>The Transfer Student Alik of Gentle Breeze!</p>
 <p>Target Minamoto Risa</p>
 <p>Seizawa Shii</p>
@@ -86,4 +86,4 @@ chapter = 324
 <p>Covered Yuka, Slicked-back Yuka</p>
 <p>Konoe Akina</p>
 <p>Aunt and Student Council Chairman Taira Kanna</p>
-<p>Special class students whose illustrations have not yet been released have been excluded~!</p>
+<p>Special class students whose illustrations have not yet been released have been excluded!</p>

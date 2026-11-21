@@ -15,9 +15,9 @@ chapter = 205
 <p>Breathing heavily, Yukiko-ssi begged me to take off her clothes, so I undressed her. The way she begged with aegyo was incredibly cute.</p>
 <p>The dress Yukiko-ssi was wearing was easy to take off. I was already excited, so I didn't even think about putting the dress aside properly and just threw it next to the bed. Her underwear, like her white dress, was a simple white color.</p>
 <p>We had already rubbed our genitals together a lot while still clothed, so her white panties were soaked with moisture. Anyone could tell she was excited, so I chuckled and touched her panties with my hand.</p>
-<p>"Hyaang♥ Hurryy~ Heueung! Take off my panties tooo~♥"</p>
+<p>"Hyaang♥ Hurryy Heueung! Take off my panties tooo♥"</p>
 <p>"Your panties are wet, though? Is that why you want me to take them off?"</p>
-<p>"Noo~♥, Ryuta rubbed me with his dick earlier....eueung, Ryuta's precum got on them♥ It's not my juices, heueung!"</p>
+<p>"Noo♥, Ryuta rubbed me with his dick earlier....eueung, Ryuta's precum got on them♥ It's not my juices, heueung!"</p>
 <p>To tease Yukiko-ssi, who denied that it was her juices, I put my hand inside her panties and poked her pussy slightly. Then I immediately pulled it out and showed it to her. My finger was covered in juices that sparkled in the sunlight shining through the window.</p>
 <p>"Then what's this?"</p>
 <p>"Heueung♥ It's actually my juices. Don't tease me.... Take them off quickly♥"</p>

@@ -16,7 +16,7 @@ chapter = 38
 <p>That was a lie, of course. It’s just that the tale of Aklopis was one of the more interesting bits of side-story Samantha Ellis had included in her novel and Caius knew it so well because he actually liked Aklopis. That horny bastard had done more for sexual content than any of the actual characters of a novel that was rated 18+.</p>
 <p>He got so interested in Aklopis’ side-story of a history that he accurately knew the timeline of events mentioned in the story and here he was regurgitating them and having everyone in class staring at him like he was some brainiac.</p>
 <p>’Damn, Samantha really had me starved,’ He thought with a sigh.</p>
-<p>~"Sorry."~ Samantha’s voice said in his head.</p>
+<p>"Sorry." Samantha’s voice said in his head.</p>
 <p>Calls smiled but said nothing.</p>
 <p>Meanwhile, likely subconsciously, one of Professor Gilligan’s hands went to her chest, her fingers trailing lightly across the buttons that held the two sides of her shirt close to barely hold her large tits in place.</p>
 <p>She seemed to stroke for a full minute before she collected herself and cleared her throat.</p>

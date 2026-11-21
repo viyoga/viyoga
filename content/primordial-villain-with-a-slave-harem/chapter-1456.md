@@ -54,7 +54,7 @@ chapter = 1456
 <p>Before them spread a vast subterranean expanse where stone gave way to sweeping caverns and towering formations with columns rising and bridges arching across chasms lit by bioluminescent growths that cast muted blues and violets across the landscape. Quinlan took a single step forward.</p>
 <p>Just then, something moved beneath him.</p>
 <p>Kiryssa materialized upward from his shadow as if the darkness itself had decided to take form with the tip of a dagger resting against his back.</p>
-<p>"You lost~" she purred.</p>
+<p>"You lost" she purred.</p>
 <p>Quinlan did not flinch.</p>
 <p>He turned smoothly despite the blade pressed so close, red-lit eyes settling on the drow who had risen from his shadow like a bad habit given form. His gaze flicked briefly to the dagger, then back to her face.</p>
 <p>Kiryssa clicked her tongue and withdrew the weapon just enough to be theatrical about it, her lips pushing into an exaggerated pout. "You're no fun at all! You were supposed to throw your arms in the air and beg for mercy!"</p>

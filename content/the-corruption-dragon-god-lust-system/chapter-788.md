@@ -21,7 +21,7 @@ chapter = 788
 
 <p>He gave Elize’s butt a gentle pat, her plump cheeks nestled comfortably in his lap.</p>
 
-<p>"Hmm~ poor little spirit beasts," Elize shook her head with a soft chuckle. "When Khaedryss isn’t slaughtering them, now Yunxi has come to do the same."</p>
+<p>"Hmm poor little spirit beasts," Elize shook her head with a soft chuckle. "When Khaedryss isn’t slaughtering them, now Yunxi has come to do the same."</p>
 
 <p>"Hm... true," Qingyi agreed with a nod.</p>
 

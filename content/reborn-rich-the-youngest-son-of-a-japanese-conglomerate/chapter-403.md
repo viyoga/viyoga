@@ -28,7 +28,7 @@ chapter = 403
 <p>"Yamashiro-sangbyeong-nim...! I'll get revenge!"</p>
 <p>With Oofuchi Erika's angry words as the end, I exited the game. Taking off the goggles and looking around, I saw several female students holding their stomachs, rolling around, and bursting into laughter.</p>
 <p>"Kyahaha! Sensei, is there anything you can't do!"</p>
-<p>"Ahaha! Ryuta-jji, why don't you start 'adapting' to death~!"</p>
+<p>"Ahaha! Ryuta-jji, why don't you start 'adapting' to death!"</p>
 <p>"Haha!! Sensei-ssi is so funny!"</p>
 <p>The laughing girls were Kujo Kina, Seizawa Shii, and Otagi Yuka in that order. Even the seemingly cool-headed Shido Tsubaki and Minamoto Lisa were giggling. Just you wait... you guys.</p>
 <p>Shido Tsubaki was also sitting at the table, laughing and typing on the keyboard non-stop, so I glanced at the laptop screen and was shocked! Special Class's Teacher Y, Game Skills Revealed! It said, and she was writing a newspaper article. Below that, it said Shido Tsubaki, guest reporter for St. Francis Girls' Academy Newspaper Club, so it seemed she was still submitting articles to the newspaper club even after resigning as the head of the newspaper club.</p>
@@ -79,4 +79,4 @@ chapter = 403
 <p>"What I want to do is..."</p>
 <p>-----</p>
 <p>Daughter of the Abyss SD!!</p>
-<p>Daughter of the Abyss is also Kawaii~!</p>
+<p>Daughter of the Abyss is also Kawaii!</p>

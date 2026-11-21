@@ -20,7 +20,7 @@ chapter = 581
 <p>"Yeah, thanks."</p>
 <p>It seemed that Seizawa Shii thought I was a glutton who gets happy when I eat delicious things. I picked up the fried shrimp that Seizawa Shii put on my rice with chopsticks and took a bite.</p>
 <p>The crispy layer broke with a *pasak* sound, and the sweet taste of the shrimp meat wrapped around my tongue. Hmm... Seizawa Shii was right, it's really delicious. It would be delicious to put a lot of shrimp on top and eat it like an ebidon?</p>
-<p>"Hehe~☆ You're back to your original expression now."</p>
+<p>"Hehe☆ You're back to your original expression now."</p>
 <p>As Seizawa Shii said, I guess I really am a glutton character. Only when a new stimulus came to my tongue could I shake off the thought of Chun Ha-rin.</p>
 <p>"You're right, it's really delicious? I should put a few shrimp on top of my rice and eat it as ebidon."</p>
 <p>"Ryuta-cchi is a genius! Should I try eating it like that too?"</p>
@@ -39,7 +39,7 @@ chapter = 581
 <p>-Jin Yong-tae: I guess I'll have to leave the details to Yu-gyeong. Sorry for always asking you.</p>
 <p>I'm going to South China soon for a graduation trip and then go back to Japan, so Han Yu-gyeong will have to do the practical work after all.</p>
 <p>-Han Yu-gyeong: I'm also the CEO of TG Tech, so you don't have to be sorry. It's also for our Yong-tae and me to do well.</p>
-<p>-Chieri-chan: I'll help with anything I can do if I go to Korea~!</p>
+<p>-Chieri-chan: I'll help with anything I can do if I go to Korea!</p>
 <p>If Mimata Chieri even comes to Korea to help, there will be no problem. Eve is also in the dark web Seoul branch, so if it's these three, we won't lose money at least.</p>
 <p>I said goodbye and was about to put my phone in my pocket when I got a call from Kurayamda Kirie this time.</p>
 <p>-Kurayamda Kirie: Congratulations.</p>
@@ -80,4 +80,4 @@ chapter = 581
 <p>Kijimoto Jurie was close to Shimokawabe Airen, who had sensitive senses, so I couldn't say it directly and left a Line message. Kijimoto Jurie must have been looking forward to the graduation trip a little bit too. It's the last day in Korea, so I have to make up for not hugging her all this time.</p>
 <p>------------</p>
 <p>Chun Ha-rin's drawing style when she first appeared.</p>
-<p>Alik cover B-cut~!</p>
+<p>Alik cover B-cut!</p>

@@ -11,7 +11,7 @@ chapter = 460
 <p>Seizawa Shii said excitedly, standing up from her seat. Because the exam ending day was Friday, the students made plans to hang out together on the ending day, and because they had only studied for the past two weeks before the exam, doing study groups and whatnot, everyone wanted to have fun.</p>
 <p>"Since we decided to, we have to. But what are we going to do for fun?"</p>
 <p>Actually, we only made a promise to hang out after the exam, so we didn't decide what to do. If we hang out without any plans, we'll probably just eat and chat.</p>
-<p>"We have to decide now~! The exams are over, so everyone's free!"</p>
+<p>"We have to decide now! The exams are over, so everyone's free!"</p>
 <p>Seizawa Shii was right. The exams were all done, and it wasn't even lunchtime yet, so it seemed like we could decide by lunchtime.</p>
 <p>"Then, Minamoto and Shido, come out and talk to the kids and decide what to do today."</p>
 <p>In times like these, it was good for the teacher to step back and leave it to the class president and vice president. It was easier for me, and the students could make suggestions without worrying about what I thought.</p>
@@ -25,7 +25,7 @@ chapter = 460
 <p>"How about a home party at Ryuta-jji's house?"</p>
 <p>Everyone became quiet at Seizawa Shii's sudden suggestion. No way.... Eh, no, right?</p>
 <p>"A home party, you say...?"</p>
-<p>"American style, where everyone brings something to eat, sets it all out, and eats and plays~!"</p>
+<p>"American style, where everyone brings something to eat, sets it all out, and eats and plays!"</p>
 <p>No, why are we doing that American style thing at my house? Playing is fine, but cleaning up is a pain....</p>
 <p>"Okay, let's vote now. I'll send a voting window to the chat room, so choose two things you want to do."</p>
 <p>Minamoto Risa said, pressing something on her smartphone. Soon, a voting window was uploaded to the Line chat room where I, the vice homeroom teacher Kurayama-da, and Kirie were. There were so many suggestions that each person was given two votes.</p>
@@ -42,12 +42,12 @@ chapter = 460
 <p>Uenozono Karen seemed to want to participate in this gathering, but because she couldn't attend due to her schedule, she seemed to be trying to be vicariously satisfied by looking at the pictures her classmates sent.</p>
 <p>Idols look glamorous on the outside, but it's a bit sad that they can't enjoy memories like these from their school days. I should tell the kids to send a lot of pictures.</p>
 <p>"Are we really bringing one dish per person in the American style? I'm really not preparing any food?"</p>
-<p>"We'll have a meeting among ourselves to decide what to bring, so Ryuta-jji should go home and clean~!"</p>
+<p>"We'll have a meeting among ourselves to decide what to bring, so Ryuta-jji should go home and clean!"</p>
 <p>In the end, the special class female students kicked me out and said they were going to have a meeting, so I was kicked out of the class, and Kurayama-da Kirie remained in the special class classroom. It seemed like a consideration(?) for the homeowner to go and prepare in advance.</p>
 <p>Actually, cleaning wasn't that difficult because the robot vacuum cleaner did it. There were almost no lewd things that the students shouldn't see. In my case, I could satisfy my desires directly with women rather than looking at lewd magazines under the bed, which is common in Japanese subculture.</p>
 <p>...Ah! There's an egg vibrator that I used when I went on an outdoor walk with Kurayama-da Kirie. I should hide that. If I get caught, I could clearly see Seizawa Shii and Kujo Kina laughing and making a fuss, and Minamoto Risa looking at me with a contemptuous look. I prepared to leave work, thinking about what else I needed to hide.</p>
 <p>###</p>
-<p>"Teacher~! I'll help you clean up!"</p>
+<p>"Teacher! I'll help you clean up!"</p>
 <p>Konoe Akina's voice was heard in front of the door outside the house. I, who was in the middle of organizing lewd tools, hid the lewd tools and then walked to the front door and opened it.</p>
 <p>Konoe Akina was wearing a fluttering long-sleeved shirt and beige skirt that suited autumn, and it looked quite good on her.</p>
 <p>"You came early?"</p>
@@ -78,5 +78,5 @@ chapter = 460
 <p>Sakagami Rena and Saionji Diana were cooking directly, and the remaining students were helping to clean the house. There were so many students helping that there was almost nothing for me to do.</p>
 <p>Time passed and one by one brought food, and at 6 p.m., Kurayama-da Kirie and Kijimoto Jurie, whom the students had called separately, arrived and the home party began.</p>
 <p>----</p>
-<p>Sakagami Rena made with Konoe Akina's exclusive model~!</p>
+<p>Sakagami Rena made with Konoe Akina's exclusive model!</p>
 <p>It's not bad ㅎㅎ</p>

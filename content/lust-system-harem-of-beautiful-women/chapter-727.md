@@ -97,7 +97,7 @@ chapter = 727
 
 <p>Luis said cheerfully.</p>
 
-<p>&quot;Alright, then I’ll remember this meal. I want a big feast, okay~&quot;</p>
+<p>&quot;Alright, then I’ll remember this meal. I want a big feast, okay&quot;</p>
 
 <p>Brook said coquettishly, holding a small jewelry box in her hand.</p>
 

@@ -47,14 +47,14 @@ chapter = 312
 <p>"Let's go up for now. We'll be late."</p>
 <p>Rather, I was the one who was wronged, but I comforted them and went up to the 3rd floor, classroom C, where the Korean class was held. As I passed by, I glanced and saw that classroom A seemed to be Chinese and classroom B was French. There are a lot of students. Is he getting edgy because of just four people?</p>
 <p>"Ryuta-nim, fighting! We'll go in first because other people might misunderstand."</p>
-<p>"Teacher-ssi, don't be nervous~!"</p>
+<p>"Teacher-ssi, don't be nervous!"</p>
 <p>I think enough people who could misunderstand have already misunderstood while coming here... The two encouraged me and went into the classroom first.</p>
 <p>I slowly walked and entered through the open door. The classroom, which had been a bit noisy, suddenly became quiet.</p>
 <p>"Hello everyone. I'm Yamashiro Ryuta, and I'm in charge of the Korean class this semester."</p>
 <p>Standing in front of the teacher's desk, I introduced myself to everyone. It was quiet for a moment, but soon it became noisy like a marketplace, and the female students started asking me questions.</p>
-<p>"Teacher~! Do you have a girlfriend?"</p>
+<p>"Teacher! Do you have a girlfriend?"</p>
 <p>"Where did Noda Fukuno-sensei go?"</p>
-<p>"You're handsome, Ryuta-cchi~☆"</p>
+<p>"You're handsome, Ryuta-cchi☆"</p>
 <p>Hmm, the reaction wasn't bad. I smiled slightly and answered the questions I heard. By the way, the student who called me handsome with the strange nickname Ryuta-cchi was Seizawa Shii. When I looked at her, she stuck out her tongue slightly and winked with a dehet.</p>
 <p>"I don't have a girlfriend, and Noda Fukuno-sensei is on temporary leave."</p>
 <p>For reference, Noda Fukuno is the name of the teacher who taught Korean in the first semester. Even though I answered the question, the classroom became even noisier. Surely it's not because I said I didn't have a girlfriend?</p>
@@ -65,7 +65,7 @@ chapter = 312
 <p>"Hmph, making a big fuss...!"</p>
 <p>Minamoto Risa muttered loud enough for everyone to hear. Taira Kanna arrogantly opened her book and started preparing for class as if she hadn't heard Minamoto Risa's story at all.</p>
 <p>A chill ran between the two heiresses of Japan's leading companies, Taira and Minamoto, and the atmosphere rapidly cooled.</p>
-<p>"Sorry I'm late~! Oh? It's my homeroom teacher! Hello~!"</p>
+<p>"Sorry I'm late! Oh? It's my homeroom teacher! Hello!"</p>
 <p>"The bell hasn't rung yet, so you're not late. Take a seat."</p>
 <p>Uenozono Karen ran over. She must have been taking Korean class from the beginning as well. Since she's an idol who's active in Korea, it wasn't strange that she was taking Korean class. Fortunately, the atmosphere that had cooled down was somewhat relieved because of Uenozono Karen. I was worried about what to do with this atmosphere, so it was a relief.</p>
 <p>Yesterday, I went home and searched for Serife, the agency that Karen belongs to, and it was an idol from a Korean agency, but Taira Entertainment had a significant stake in the company. I heard she was quite popular, and as if to prove that fact, most of the students were glancing at Uenozono Karen.</p>
@@ -81,7 +81,7 @@ chapter = 312
 <p>"Ryuta-nim, let's go together!"</p>
 <p>Seizawa Shii and Konoe Akina shouted at the same time. Otagi Yuka had an expression that said, "Ah, I'm late!" and Minamoto Risa, who was next to Seizawa Shii, was looking at her phone as if she wasn't interested.</p>
 <p>"Okay, let's all go together."</p>
-<p>"I'll join too~!"</p>
+<p>"I'll join too!"</p>
 <p>Including Uenozono Karen, we became a total of six people and headed to the building where the 3rd-year special class was located. For reference, only Uenozono Karen was 19 years old and the rest were all 20 years old. Then wouldn't they know each other?</p>
 <p>"Excluding Uenozono-yang, don't the rest of you know each other? Since you're the same age?"</p>
 <p>When I asked, Minamoto Risa opened her mouth.</p>

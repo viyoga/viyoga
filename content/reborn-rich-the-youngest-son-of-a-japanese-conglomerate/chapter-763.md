@@ -51,4 +51,4 @@ chapter = 763
 <p>"Yeah, it seems so." Actually, I hadn't fallen asleep; after the two of us were sent to the Reality World, I had undergone Training for an unknown amount of Time... but thinking there was no need to explain, I nodded my Head at Urabe Konoka's Words that I had fallen asleep.</p>
 <p>"Would you like Breakfast?"</p>
 <p>"Ah, just a Moment... ten minutes, no, I'll eat after fifteen minutes." Hangari Muneo offered me Breakfast, but I had no intention of eating right away. Although I was a big eater who enjoyed food, right now, more than that, I had to check the content of the translucent guide window that was cluttering my vision.</p>
-<p>China Dress Liz B-cut! Lunar New Year Holiday Commemorative Lizhael Hanbok~! "Partner-yeo, receive many New Year's blessings♥" Kkiyot!</p>
+<p>China Dress Liz B-cut! Lunar New Year Holiday Commemorative Lizhael Hanbok! "Partner-yeo, receive many New Year's blessings♥" Kkiyot!</p>

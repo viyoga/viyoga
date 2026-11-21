@@ -13,7 +13,7 @@ chapter = 345
 <p>I entered the reception room of the house. Steaming coffee was prepared in the reception room, and at Daigo Terue's hand gesture to sit, I took a Seat.</p>
 <p>"I am not Erika's Parents. I am her Grandmother, that is, you could say I am Erika's guardian."</p>
 <p>"Ah, yes. I was surprised to find you here so suddenly."</p>
-<p>Ahh~! So she was her Grandmother.... Then, doesn't she have Parents? Oofuchi Erika didn't attend school and didn't go Outside so much that the Taira Group Information Team seemed to think there was no value in investigating her, so they didn't leave any special investigation data, and I didn't know much, but it seemed she didn't have Parents.</p>
+<p>Ahh! So she was her Grandmother.... Then, doesn't she have Parents? Oofuchi Erika didn't attend school and didn't go Outside so much that the Taira Group Information Team seemed to think there was no value in investigating her, so they didn't leave any special investigation data, and I didn't know much, but it seemed she didn't have Parents.</p>
 <p>"Oofuchi-yang's Parents...?"</p>
 <p>"Originally, Erika's Father raised her alone, but her Father died at a Young Age. About 3 years ago. Since then, I have been looking after Erika. Erika's Father was my friend since childhood."</p>
 <p>Ah, I see. I don't know what happened to her Mother, but she wasn't there originally, and her Father died around her 3rd year of middle school or 1st year of high school, so Daigo Terue, her Father's friend, was looking after her as her Grandmother.</p>

@@ -28,10 +28,10 @@ chapter = 199
 <p>He raised the vial of his refined potion to his lips and took a small sip of it.</p>
 <p>Instantly, he felt a filling within him. And then lightness. A strange feeling of buoyancy filled him and he could have sworn he was being lifted off his feet even though he remained on it.</p>
 <p>He could feel his strength rise from the Third Circle and settle at the Fourth but it didn’t feel quite right. Compared to his actual strength, the strength of the Wyvern Trait he had acquired felt like driving a car. You get to control its direction, its speed but it’s not quite you that’s moving; You’re just being moved. Being carried along for the ride.</p>
-<p>It was similar to the feeling Caius had whenever he used ~Hellsong Stomp~ his unstable pseudo-Fourth Circle Movement spell. Only, the Trait acquisition was more stable than that. He was conscious enough of it.</p>
+<p>It was similar to the feeling Caius had whenever he used Hellsong Stomp his unstable pseudo-Fourth Circle Movement spell. Only, the Trait acquisition was more stable than that. He was conscious enough of it.</p>
 <p>Still, it did feel great to have that power.</p>
 <p>With a smile, Caius watched as Mana oozed from his arm and took on the form of a beastly limb tipped with claws, and was superimposed over his own hand. He looked down at his feet and something similar was happening there—It looked like his legs were encased in a Wyvern’s hind limbs.</p>
-<p>The lack of an image of wings attached to his sides had Caius feeling he wouldn’t be capable of flight. But his movement was definitely on the level of someone who had cast a Fourth Circle movement spell. A true one this time and not like ~Hellsong Stomp~.</p>
+<p>The lack of an image of wings attached to his sides had Caius feeling he wouldn’t be capable of flight. But his movement was definitely on the level of someone who had cast a Fourth Circle movement spell. A true one this time and not like Hellsong Stomp.</p>
 <p>There was something about the talons of Mana on his hands and legs that had Caius feeling they would have a physical effect should he use them on someone. But before he could try them out, the feeling within him fizzled out and he was back to the Third Circle.</p>
 <p>"I see," Caius said in a musing tone and rubbed his jaw.</p>
 <p>The potion’s duration of effectiveness was determined by the quantity consumed. The little sip had been about a minute and Caius posited that the entire vial might be forty minutes in all. Give or take five minutes.</p>

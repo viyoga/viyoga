@@ -59,8 +59,8 @@ chapter = 2000
 <p>"The, um... old identification. I’ll need that back."</p>
 <p>"Of course."</p>
 <p>He lifted his hand from her head and placed his badge on the counter.</p>
-<p>"Thanks, bestie~" Kitsara purred. His women came forward to exchange theirs too, giving the clerk something to do with her hands while she checked their names against the replacements.</p>
-<p>"Congratulations~" Sera murmured as she accepted hers.</p>
+<p>"Thanks, bestie" Kitsara purred. His women came forward to exchange theirs too, giving the clerk something to do with her hands while she checked their names against the replacements.</p>
+<p>"Congratulations" Sera murmured as she accepted hers.</p>
 <p>The clerk looked up.</p>
 <p>"I should be saying that to you."</p>
 <p>"Mm-hmm. You should."</p>
@@ -94,7 +94,7 @@ chapter = 2000
 <p>"You could be his cute little assistant. Take care of his contracts, travel with him..."</p>
 <p>"Sit on his lap while he signs things."</p>
 <p>"I’m a Guild employee!"</p>
-<p>"And an excellent one. He seemed very grateful~"</p>
+<p>"And an excellent one. He seemed very grateful"</p>
 <p>She’d been trying so hard to stop thinking about his hand on her head, and these bitches had decided she wasn’t embarrassed enough yet.</p>
 <p>"That was a thank-you!"</p>
 <p>"Mm-hmm. Your first payment. Head pats now, who knows what later?"</p>
@@ -108,7 +108,7 @@ chapter = 2000
 <p>"Then why would we clean latrines?"</p>
 <p>The clerk pouted at the smug faces lined up in front of her. Even the woman who’d been mourning her lost chance at generational wealth was enjoying herself again.</p>
 <p>At her expense.</p>
-<p>"Don’t be upset~ We’re trying to help."</p>
+<p>"Don’t be upset We’re trying to help."</p>
 <p>"Yes. Very thoughtful of you."</p>
 <p>She put the last badge into its tray and pushed it aside.</p>
 <p>"Perhaps I should be equally thoughtful toward your landlords."</p>

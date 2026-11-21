@@ -14,7 +14,7 @@ chapter = 58
 <p>They stepped inside and sure enough, there were cats everywhere. On the shelves, on the tables, on the customers.</p>
 <p>But that wasn’t all.</p>
 <p>Girls in maid outfits with cat ears and tails were walking around serving drinks.</p>
-<p>"Welcome home, Master~!" Three of them greeted in unison with bright smiles.</p>
+<p>"Welcome home, Master!" Three of them greeted in unison with bright smiles.</p>
 <p>The maid outfits caught her off guard for a second.</p>
 <p>But... the sound of the man swallowing hard next to her caught her off guard even more.</p>
 <p>She turned her head slowly.</p>
@@ -46,7 +46,7 @@ chapter = 58
 <p>She found herself staring at the nearest maid.</p>
 <p>And before she knew it, her brain had already put her in the costume.</p>
 <p>She imagined walking into Dante’s bedroom in the morning. Cat ears on her head, a frilly apron that barely covered anything, thigh-highs squeezing tight around her legs, and a skirt so short she kept tugging it down with every step.</p>
-<p>"Good morning, Dante~ Breakfast is ready~" She set the tray on the nightstand and leaned over the bed, the apron hanging loose enough to give him a clear view straight down her chest.</p>
+<p>"Good morning, Dante Breakfast is ready" She set the tray on the nightstand and leaned over the bed, the apron hanging loose enough to give him a clear view straight down her chest.</p>
 <p>He looked up from his pillow, eyes half-open, and his gaze dropped right away. A lazy smile spread across his face.</p>
 <p>"Master, forget the breakfast. Come here." His hand reached for her waist and pulled her onto the bed.</p>
 <p>"W-wait, the food is going to get cold—"</p>

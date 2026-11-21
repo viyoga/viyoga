@@ -59,6 +59,6 @@ chapter = 428
 <p>Every time they came down, those perfect mountains collided with his bare lap in wet, obscene slaps, the sound echoing softly through the room. Each impact sent a heavy ripple rolling outward through all that dark flesh, a tremor that hadn’t even settled before the next one followed.</p>
 <p>Ethan let out a low groan, his hips twitching upward on their own, chasing that slick, crushing warmth.</p>
 <p>His free hand reached down and found the top of her damp head, fingers sinking into her wet curly hair.</p>
-<p>"Fufufufu~" She chuckled softly, her lips curling into a naughty smile as she parted her breasts just wide enough to reveal the tip of that twenty-centimeter cock they had been swallowing whole.</p>
+<p>"Fufufufu" She chuckled softly, her lips curling into a naughty smile as she parted her breasts just wide enough to reveal the tip of that twenty-centimeter cock they had been swallowing whole.</p>
 <p>Her pink tongue slid out and dragged a slow lick across the tip of Ethan’s cock, scooping up the drop of precum glistening there.</p>
 <p>"Did you sleep well, my naughty little lord?"</p>

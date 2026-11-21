@@ -10,7 +10,7 @@ chapter = 157
 <p>Henry spluttered and blushed when they felt Jason’s hand on their chest and they quickly tried to move away from Jason, but Jason kept Henry close since it would be dangerous if they separated.</p>
 <p>’So this bastard was a girl all along. With how feminine he looked, I should have known.’</p>
 <p>This thought passed through Jason’s head as he sent out another pulse of mana to try and pinpoint Rosa’s position.</p>
-<p>Ding~!</p>
+<p>Ding!</p>
 <p>A notification sound echoed through Jason’s system before a tab opened!</p>
 <p>[Due to repeated action, the user has gained a new B Rank skill [Magic Sense]]</p>
 <p>——</p>
@@ -23,7 +23,7 @@ chapter = 157
 <p>The black-skinned Moonlight wolf ran out from the Alternate Dimension and shot straight for Rosa! Rosa had been watching Jason all this time and had been in the middle of thinking about what to do next when the Moonlight Wolf suddenly shot for her. The suddenness of the entire situation shocked Rosa so much that she wasn’t able to move out of the way immediately, and by the time she realized what was going on, the wolf was right on top of her!</p>
 <p>Rosa jumped back to try and put some distance between her and Fenrir while holding her blade towards it threateningly, but Fenrir was a purebred hunter and once it realized that Rosa was close to it, it lashed out and grabbed onto anything it could find! And unfortunately for Rosa, that thing just so happened to be her arm!</p>
 <p>Fenrir bit into Rosa’s arm, and a sickening crunch echoed through the area as it was torn clean off from the socket!</p>
-<p>RIPPP~!</p>
+<p>RIPPP!</p>
 <p>"AAAAHHHHH!!"</p>
 <p>Rosa screamed from the intense pain as she held the stump that had once been her arm! Over the comms, Ricardo started to shout in worry as he wondered what had happened!</p>
 <p>[Rosa! Rosa, what happened!?]</p>

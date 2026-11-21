@@ -35,13 +35,13 @@ chapter = 447
 
 <p>Only Qingyi’s black hair appeared in the deep valley between them, the base of her enormous breasts resting against his shoulders.</p>
 
-<p>“Yes… and you should enjoy it while you can, you shameless husband… or I’ll smother you with my huge boobs, just like Isabel likes to do, fufufu~~” Ruxue purred, giving Qingyi a little space.</p>
+<p>“Yes… and you should enjoy it while you can, you shameless husband… or I’ll smother you with my huge boobs, just like Isabel likes to do, fufufu” Ruxue purred, giving Qingyi a little space.</p>
 
 <p>“Oh? Is that a threat or a reward?” Qingyi asked.</p>
 
 <p>His mouth immediately found one of Ruxue’s purple, soft nipples, his lips closing around it, sucking hard.</p>
 
-<p>“Nghnn~~” Ruxue moaned, pulling Qingyi towards her with a little more force.</p>
+<p>“Nghnn” Ruxue moaned, pulling Qingyi towards her with a little more force.</p>
 
 <p>Her fiery, pleasure-filled eyes descended upon Celestia.</p>
 
@@ -51,7 +51,7 @@ chapter = 447
 
 <p>Her eyes were watering, but she didn’t stop. The elongated bulge in her throat continued to descend further until, finally, her lips touched Qingyi’s groin.</p>
 
-<p>“Aghnnn~~ hubby~~ so big~~ so hot~~ so thick~~” Celestia pulled back, panting against Qingyi’s cock, drenched with her saliva, which kept her connected to him.</p>
+<p>“Aghnnn hubby so big so hot so thick” Celestia pulled back, panting against Qingyi’s cock, drenched with her saliva, which kept her connected to him.</p>
 
 <p>Her hot breath sent shivers throughout the handsome young man’s body.</p>
 
@@ -69,11 +69,11 @@ chapter = 447
 
 <p>Every choking sound, every muffled moan, everything made Qingyi more excited.</p>
 
-<p>“Ughnn~~ b-be gentler.” Ruxue patted Qingyi’s chest, who had started sucking one of her sensitive nipples a little harder.</p>
+<p>“Ughnn b-be gentler.” Ruxue patted Qingyi’s chest, who had started sucking one of her sensitive nipples a little harder.</p>
 
 <p>“Ah…” He pulled back, moving his hands to the breast he had just stopped sucking and squeezing it gently.</p>
 
-<p>“nghnnn~~” Ruxue’s lips parted in an obscene moan as a jet of hot, creamy milk escaped from her tits.</p>
+<p>“nghnnn” Ruxue’s lips parted in an obscene moan as a jet of hot, creamy milk escaped from her tits.</p>
 
 <p>“You’re even hotter today, you know?” Qingyi said, licking the milk that dripped from that nipple, his tongue running the entire length of those perfect, huge, pale orbs.</p>
 
@@ -97,7 +97,7 @@ chapter = 447
 
 <p>It was a strong jet, reaching the roof of her mouth. The hot, viscous liquid ran down her tongue, barely giving her time to swallow before the second burst of cum reached her mouth.</p>
 
-<p>“Gulp~~ gulp~~~gulp~~ mghnn~gulp~~”</p>
+<p>“Gulp gulpgulp mghnngulp”</p>
 
 <p>Four greedy gulps echoed, each louder than the last, her throat. working incessantly to handle all of Qingyi’s cum.</p>
 

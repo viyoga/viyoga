@@ -15,7 +15,7 @@ chapter = 1459
 <p>"Training takes many forms, yes. But what exactly are we training here?"</p>
 <p>Ayame answered him without waiting for a single moment. Her lips pulled into a smug curve as she leaned back with both arms resting along the stone behind her, while her dark hair clung to her shoulders, and her delicate, perky breasts were clearly visible to the naked eye.</p>
 <p>Her crystal blue eyes were bright with mischief as she looked him over.</p>
-<p>"How about training restraint, Quinnie? Can you manage not to…~"</p>
+<p>"How about training restraint, Quinnie? Can you manage not to…"</p>
 <p>Quinlan's eyes shifted to her at once, unimpressed but amused all the same.</p>
 <p>"First of all, you already know only my mothers get to call me Quinnie." His gaze lingered on her sexy breasts for a beat before it traveled up, returning to her amused eyes.</p>
 <p>She knew he was shamelessly checking her out. She knew he observed her assets many times before, and he did so again without caring what anyone else thought.</p>

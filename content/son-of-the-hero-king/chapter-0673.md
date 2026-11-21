@@ -54,7 +54,7 @@ chapter = 673
 <p>“.... Then why even bring them here?” Shouldn’t she keep them in her collection and bring over the normal versions of the book?</p>
 <p>Clara smiled and clasped her hand, she had no reason to hide her goal, “Once you touch the books, I will save your imprint on them using another spell. This will make their value skyrocket. Of course, it would be my honor if you would sign them with your mana or just a word.”</p>
 <p>The way she gave him puppy eyes was simply… unbearable. Still, he had no reason to refuse. But, just as he was about to sign,</p>
-<p>~Ahem~</p>
+<p>Ahem</p>
 <p>Milia cleared her throat gently and took out a dozen books from her shadow dimension.</p>
 <p>“The Hounds asked for this as a reward until you can meet them.” She seemed quite ashamed, but from the way she was holding three books close to her heart, it became evident that some of them were not really for the hounds under her.</p>
 <p>Like this, before he even understood what was happening, a serious discussion about the distribution of power in Lustburg transformed into a glorified signing session.</p>

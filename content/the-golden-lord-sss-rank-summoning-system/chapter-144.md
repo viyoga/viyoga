@@ -5,7 +5,7 @@ weight = 144
 chapter = 144
 +++
 
-<p>"Ah~~"</p>
+<p>"Ah"</p>
 <p>A soft sigh echoed through a dark room as a pair of bright blue eyes slowly fluttered open, focusing on the emptiness before them.</p>
 <p>Their owner sat up with a stretch, her muscles stirring awake from their long slumber.</p>
 <p>With a simple flick of her fingers, more than seven days’ worth of accumulated grime and odor lifted clean from her body, leaving her skin with a renewed, fresh glow.</p>
@@ -17,7 +17,7 @@ chapter = 144
 <p>The voluptuous bodies of the two beauties tangled together in the hug, their generous breasts mashing flat against one another, the soft flesh squishing between them until the four heavy mounds pressed into a single, heaving cushion of cleavage.</p>
 <p>Bright smiles lit both their faces.</p>
 <p>"How long was I gone? Ethan wasn’t worried, was he?" Alice asked, stepping back slightly to look at her friend’s eyes.</p>
-<p>"Seven days," Evelyn replied, drawing a shocked look from Alice before letting out a mischievous giggle. "And you know how he is when it comes to either of us. Of course he was worried. Fufufu~~"</p>
+<p>"Seven days," Evelyn replied, drawing a shocked look from Alice before letting out a mischievous giggle. "And you know how he is when it comes to either of us. Of course he was worried. Fufufu"</p>
 <p>Hearing that, Alice’s lashes fluttered briefly, but in the end she could only release a resigned sigh.</p>
 <p>Her gaze drifted from Evelyn and settled on the door leading to the training arena, where two figures were just emerging.</p>
 <p>Elena walked beside Ethan, clinging tightly to his arm, his forearm half-swallowed by the ample, creamy cleavage of her huge dark tits.</p>
@@ -27,7 +27,7 @@ chapter = 144
 <p>A quiet realization struck him as he did, her already flawless form had somehow become even more alluring than before.</p>
 <p>Was it because he hadn’t seen her in so many days?</p>
 <p>He wasn’t sure, but feeling the powerful mana humming within Alice, Ethan found himself torn between the urge to impregnate her as soon as possible and the curiosity to see her new power in action.</p>
-<p>"Hehe~~ did you miss me?" she asked with a gentle, sweet giggle that made his heart melt a little.</p>
+<p>"Hehe did you miss me?" she asked with a gentle, sweet giggle that made his heart melt a little.</p>
 <p>"Yes..." he murmured, brushing his lips against hers. "Why don’t we pay a visit to the spiritual greenhouse? I want to see your new mana control. Afterward, we can go somewhere more secluded, since I’m curious to see your power, and Evelyn’s as well."</p>
 <p>At his words, the eyes of both beauties lit up with an eager flame.</p>
 <p>Their personalities were very different, yet there was one thing they both loved.</p>

@@ -71,20 +71,20 @@ chapter = 913
 <p>Everyone silently watched Takakusaki Gengo die, and when Takakusaki Gengo's Breath completely stopped, I reached out my Hand and created a Magic Circle connected to Lizhael.</p>
 <p>"I hope she likes it."</p>
 <p>I thought it would be better to give the Outer God's Physical Body to Lizhael as a Gift and get rid of it, as I didn't know what kind of influence it would have on this World.</p>
-<p>Gojoy-nim requested Nagumo Sian in date attire gain~!</p>
+<p>Gojoy-nim requested Nagumo Sian in date attire gain!</p>
 <p>It was a bit difficult to make it exactly the same, so I changed it from long Hair to her original Meoriseutail haha.</p>
-<p>MidNightSKY-nim requested a phantom Mother and daughter Seducing with match underwear~!</p>
-<p>Nae~!</p>
+<p>MidNightSKY-nim requested a phantom Mother and daughter Seducing with match underwear!</p>
+<p>Nae!</p>
 <p>Nae with a 'Should I untie the Strap?' Feeling haha.</p>
-<p>Arisu~!</p>
+<p>Arisu!</p>
 <p>Since it's her first Appearance in a long time, I gave her a more Seductive pose than her mom haha.</p>
 <p>Neosblue-nim requested a super-fusing evil-Tendency Ryuta.... but since super-fusion wasn't Learning and there was no LORA, I just tried creating a Ryuta who took an evil-Tendency Route haha.</p>
 <p>Looking at it this way, he looks incredibly Threatening haha.</p>
-<p>Hwanbuljeoldaebulga-nim requested See-Through Shirt Leather Pants Sensitive Ear Piercing Lisa Home Economics Teacher~!</p>
-<p>Lisa-tang first~!</p>
-<p>Home Economics Teacher~!</p>
-<p>ISaveI-nim requested Jinmija Yeosa and Hanakame drinking Kola in the kitchen wearing only panties~!</p>
-<p>Jinmija Yeosa~!</p>
+<p>Hwanbuljeoldaebulga-nim requested See-Through Shirt Leather Pants Sensitive Ear Piercing Lisa Home Economics Teacher!</p>
+<p>Lisa-tang first!</p>
+<p>Home Economics Teacher!</p>
+<p>ISaveI-nim requested Jinmija Yeosa and Hanakame drinking Kola in the kitchen wearing only panties!</p>
+<p>Jinmija Yeosa!</p>
 <p>It turned out really well with a great Atmosphere haha.</p>
 <p>Hanakame</p>
 <p>Why the straw...?</p>

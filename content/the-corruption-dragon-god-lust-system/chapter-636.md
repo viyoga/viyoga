@@ -95,7 +95,7 @@ chapter = 636
 
 <p>The system was based on Qi, and its Mana artifacts were few and expensive.</p>
 
-<p>“Hm, hmm~~ Are you leaving already?” Lanyin asked when Qingyi stood up.</p>
+<p>“Hm, hmm Are you leaving already?” Lanyin asked when Qingyi stood up.</p>
 
 <p>The black fox hugged him tightly, her tail, dark as a moonless night, swaying gently behind her as her arms wrapped around him.</p>
 
@@ -129,7 +129,7 @@ chapter = 636
 
 <p>She panted through her nose as she took it inside her, her delicate mouth opening as wide as it could as the member entered her throat, her cheeks sucking firmly.</p>
 
-<p>“Gulp… aghnn~~” She pulled back with a wet sigh, making room for Lanyin.</p>
+<p>“Gulp… aghnn” She pulled back with a wet sigh, making room for Lanyin.</p>
 
 <p>The black fox had lost much of her usual coldness over time and had slowly opened up, both with her heart and her throat, which enveloped Qingyi’s cock like a perfect, tight glove.</p>
 

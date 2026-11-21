@@ -10,7 +10,7 @@ chapter = 355
 <p>Yukiko wasn't just passively receiving my piston action. She sucked on my neck and nipples, whispering lewd words in my ear, doing everything she could to suck my semen into her womb as quickly as possible.</p>
 <p>The succubus's instincts and the crimson pillars of murderous intent swimming in my Black Maitreya semen and vaginal fluids were attacking each other to reach their peak first. As a result, their pleasure was soaring higher and higher.</p>
 <p>"Heok, heok...! Heok...! Yukiko...!"</p>
-<p>"Haeuuheut, heeung! Ryutaaaa♥ I love you, hheut! Feels so gooood! Heuaaaaaaang~!!"</p>
+<p>"Haeuuheut, heeung! Ryutaaaa♥ I love you, hheut! Feels so gooood! Heuaaaaaaang!!"</p>
 <p>Like a train rushing towards its final destination, we shook our waists relentlessly, kissed, and whispered dirty talk, finally reaching our climax together.</p>
 <p>Chwaaaak! Chwak! Chwaaaak!</p>
 <p>Byuuuut! Byeut! Byuuuut!</p>
@@ -22,7 +22,7 @@ chapter = 355
 <p>Yukiko, lying on the bed with a sensual expression and asking me that, was of course pretty. Her appearance stats were stats, and her charm stats were incredibly high, so it was natural that she was pretty. Becoming a succubus seemed to make her personality a little more cheerful, which was also kind of nice.</p>
 <p>"Yeah, you're pretty. That's why it's like this again."</p>
 <p>I grabbed my re-erected cock and showed it to Yukiko, saying that. Yukiko's eyes gleamed seductively when she saw my hard cock.</p>
-<p>"Then you can hug me again? Ryuta, put it in right away~☆"</p>
+<p>"Then you can hug me again? Ryuta, put it in right away☆"</p>
 <p>Seeing the clear, lewd vaginal fluids already flowing in streams, it was clear that the succubus's pussy was fully prepared to accept my cock again.</p>
 <p>"Okay. How about Yukiko does it on top this time?"</p>
 <p>"Ah, I like that! I'll do it on top♥"</p>
@@ -56,7 +56,7 @@ chapter = 355
 <p>"This way, I can go outside as much as I want♥"</p>
 <p>Her face was still Yukiko's, but her hair was pink and her atmosphere was quite different, so strangers wouldn't recognize her as Yukiko.</p>
 <p>"Then let's get dressed and go out."</p>
-<p>"Okay~!"</p>
+<p>"Okay!"</p>
 <p>Wearing different clothes than when she came to the hotel, we enjoyed a Tokyo date for the first time in a while.</p>
 <p>###</p>
 <p>"That's too bad, I thought you'd be here all weekend...."</p>

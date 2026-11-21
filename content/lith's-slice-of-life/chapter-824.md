@@ -119,7 +119,7 @@ As Fei relaxed, Lith took out some lube from his space ring and lathered it all 
 
 Once everything was nice and wet, Lith pointed at the document on the table and asked, "8th of what Fei?"
 
-Fei's attention was back on it and she said, "8th of the… Mhmm~… W-winter— Ahh— solstice…"
+Fei's attention was back on it and she said, "8th of the… Mhmm… W-winter— Ahh— solstice…"
 
 Lith's cock entered Fei's tight asshole and spread them to his size, making her feel great pleasure.
 

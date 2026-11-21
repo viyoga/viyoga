@@ -25,7 +25,7 @@ chapter = 101
 
 <p>Spurt!! Spurt!! Spurtt!</p>
 
-<p>&quot;Ngh~hhnn! Ahnnn!!&quot; Arielle finally moaned out loud to her heart’s content while squirting yet another massive load of juices...</p>
+<p>&quot;Nghhhnn! Ahnnn!!&quot; Arielle finally moaned out loud to her heart’s content while squirting yet another massive load of juices...</p>
 
 <p>&quot;Yes! Hold your pussy like that, don’t ever let this golden opportunity slip away from your pussy!&quot; Owen didn’t care if she was squirting everywhere as he thrust his cock deep inside her again.</p>
 

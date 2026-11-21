@@ -21,7 +21,7 @@ chapter = 1091
 <p>"I was merely stating a fact."</p>
 <p>Yunohana opened her fan with a pleased smile, looking around at the women gathered with her.</p>
 <p>"Perhaps I could support you at first. Hold an enemy when you need an opening, interrupt an attack, help when someone is caught. You can pursue your levels while I learn where I can be most useful."</p>
-<p>"Sounds fun~" Nyx was instantly game. "We can work out how to keep everyone where they need to be."</p>
+<p>"Sounds fun" Nyx was instantly game. "We can work out how to keep everyone where they need to be."</p>
 <p>"And you can tell me when I am in the way," Yunohana added with a rueful smile. "I would much prefer that to discovering it in front of something with teeth."</p>
 <p>Calypso giggled.</p>
 <p>"We’ll look after you, Miss Milf."</p>
@@ -41,13 +41,13 @@ chapter = 1091
 <p>She looked toward Kaiden, bewildered by how comfortably Calypso was holding her. Her lover appeared to be having considerable difficulty keeping a straight face.</p>
 <p>"Let me know if you need a strap-on," Luna offered. "I’ve got my sources."</p>
 <p>Calypso gave her a confident grin.</p>
-<p>"This demoness might not have a weapon down there, but she needs no toys to make a woman happy~"</p>
+<p>"This demoness might not have a weapon down there, but she needs no toys to make a woman happy"</p>
 <p>Calypso turned down the palace hall with Yunohana staring up at her. The shrine maiden’s composure deserted her entirely as she was carried away from the others.</p>
 <p>"Ehhhh?! Kaiden?"</p>
 <p>She reached back toward him. Kaiden gave Yunohana a cheerful salute.</p>
 <p>Bastet watched the pair go, her ears tipping forward with interest.</p>
 <p>"Is this what humans call rookie hazing?"</p>
-<p>"Something like that~" Nyx purred. "Though I have to admit, Cali surprised even me. Who knew she was such a player?"</p>
+<p>"Something like that" Nyx purred. "Though I have to admit, Cali surprised even me. Who knew she was such a player?"</p>
 <p>"Would you please stop chatting and help me?!" Yunohana cried.</p>
 <p>...</p>
 <p>Yunohana spent the carriage ride tucked against Kaiden, pouting furiously at Calypso across the aisle. The demoness only grinned back, utterly shameless.</p>

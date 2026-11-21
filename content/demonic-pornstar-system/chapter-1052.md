@@ -87,7 +87,7 @@ chapter = 1052
 <p>"Now this is worth looking at."</p>
 <p>"So you’d rather look at ugly monsters than my legs, I see..." Yunohana mused.</p>
 <p>"...I-"</p>
-<p>"Just kidding~" the shrine maiden giggled, visibly having the time of her life.</p>
+<p>"Just kidding" the shrine maiden giggled, visibly having the time of her life.</p>
 <p>"..."</p>
 <p>He smiled gingerly, spreading the gathered blood into a broad shield braced along his gauntlet and met the first creature head-on.</p>
 <p>Its hooked forelegs struck the shield hard enough to gouge trenches through the gravel beneath his shoes. Kaiden leaned into the impact, allowing the blood to flow around both hooks before hardening it into a pair of locked sockets.</p>

@@ -32,7 +32,7 @@ chapter = 696
 <p>The war is over now, but North China was an enemy country during the Third World War, so we needed to be careful. They could suddenly become hostile to us, so the more escorts, the better.</p>
 <p>"What do you want to eat?"</p>
 <p>"Let's go somewhere with a private room. We didn't get to talk much about work yesterday and today because we were having a body conversation, so let's go somewhere where we can talk while we eat."</p>
-<p>"Body conversation, what's that~!"</p>
+<p>"Body conversation, what's that!"</p>
 <p>We talked about the dinner menu and took the elevator to the underground parking lot. Since I'm here to handle any situation, I gave Dickson a day off today, so it was my turn to drive today.</p>
 <p>I sat in the driver's seat of the sedan with excellent bulletproof capabilities, and Han Yu-gyeong sat in the passenger seat. It was a different car from yesterday, and she said that TG Tech was becoming famous and there were more suspicious approaches to Han Yu-gyeong, so she was changing cars every day.</p>
 <p>"I'll put the restaurant in the GPS. We had Korean set menu yesterday... Let's go to a Korean-style Chinese course restaurant today."</p>

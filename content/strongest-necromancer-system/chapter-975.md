@@ -31,7 +31,7 @@ chapter = 975
 <p>Jason asked this question to the system, and the system brought up a tab.</p>
 <p>[The system cannot find any information on [Jack the Ripper] in its database.]</p>
 <p>Jason’s eyes narrowed as he heard this, and he stored the man’s name away in his mind. Jason already knew that Avarans had the ability to absorb powers from any creature in the Primordial Expanse, so there was no way for Jason to pinpoint exactly what ability Jack just used to escape from the [Land of Lost Shadows], but Jason couldn’t believe that there was actually something out there capable of bypassing an Arcane Art!</p>
-<p>Roar~!</p>
+<p>Roar!</p>
 <p>A low roar came from the side, and Jason turned to see one of his dragons flying up to him with the arm that Jason had severed from Raeynar in its mouth. Jason smiled at the dragon and pet its head, thankful, as he collected the arm and Jason decided that this could be useful in tracking those bastards.</p>
 <p>’Come out here.’</p>
 <p>Jason called on multiple Moonlight Wolf subordinates, and they landed on a large black platform and immediately ran up to Jason! The wolves jumped around him excitedly while rubbing against his body, and Jason grinned and pet a few of them before he put the arm down and told them to sniff it! The wolves took long sniffs, and they picked up the scent of the woman, and once they were sure they had the scent, Jason told them to scatter!</p>

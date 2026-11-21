@@ -31,7 +31,7 @@ chapter = 557
 <p>Because Yukiko had been teasing my dick so eagerly even before entering the classroom, I couldn't hold back for long and had no choice but to explode.</p>
 <p>Boo-ut, byu-ut! Byueeut!</p>
 <p>Yukiko swallowed my semen as I shot it, and as she pulled my dick out of her mouth, she narrowed her lips and sucked as much as possible, using an advanced technique to extract the semen from my urethra.</p>
-<p>"Aah~ It's delicious, Teacher♥"</p>
+<p>"Aah It's delicious, Teacher♥"</p>
 <p>Yukiko, as if trying to get me to confirm that she had eaten everything, opened her mouth and showed it to me, causing my dick, which had just ejaculated, to revive.</p>
 <p>"Sit on the desk and spread your legs."</p>
 <p>At my words, Yukiko, without being told, took off her panties and straddled the desk. And she spread her legs, even slightly parting her pretty pussy with one hand.</p>

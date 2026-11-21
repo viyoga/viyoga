@@ -11,7 +11,7 @@ chapter = 944
 <p>"Two people touched this who shouldn’t have. I think. A scheduling clerk who moved a six-week queue in one afternoon, and the review desk that waved it past without a single question. Everyone else just did their jobs. Right, or am I seeing ghosts?"</p>
 <p>Doug read down her annotations once, then read them again, slower, which from him was applause.</p>
 <p>"Right on both counts. The clerk earns a government salary, and the review desk belongs to a man four years from a government pension. Neither profile takes risk for free."</p>
-<p>"So somebody paid retail~"</p>
+<p>"So somebody paid retail"</p>
 <p>"Twenty bucks still says it’s the sperm donor," Luna offered from her cot, eyes closed, arms crossed like a mummy with opinions.</p>
 <p>"That’s the part I can’t check." Nyx pulled the sheet back and tapped the shell company’s name.</p>
 <p>"This thing that paid the clerk rents by the month. Single officer, no history, no other footprint anywhere. It reads disposable to me, but I’ve never bought one."</p>

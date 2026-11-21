@@ -37,7 +37,7 @@ chapter = 1758
 <p>It came out small and warm, meant for him and no one else, and she pressed her forehead against his chest and stayed there for three quiet heartbeats while the field reorganized around them.</p>
 <p>"I can speak properly when I want to... You know that..." Quinlan grumbled under his breath, dissatisfied with the utter nonsense he was hearing.</p>
 <p>But at the same time, his palm came up and rested on the back of her head, stroking lush black hair with impossible tenderness.</p>
-<p>"Do I~?" she giggled slyly, leaning into his touch.</p>
+<p>"Do I?" she giggled slyly, leaning into his touch.</p>
 <p>Behind her, Black Fang stood with her arms folded and her violet eyes fixed on the approaching leaders.</p>
 <p>Quinlan's gaze found her over Ayame's hair, and the look he sent carried everything it needed.</p>
 <p>Black Fang didn't even acknowledge it, because as far as she was concerned, she hadn't done anything worth the look.</p>

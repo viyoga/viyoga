@@ -13,13 +13,13 @@ chapter = 725
 
 <p>Eloise covered her mouth in shame, afraid of making a sound, but it was just fooling herself.</p>
 
-<p>&quot;Heh heh, you naughty boy, don’t bully your aunt too badly~&quot;</p>
+<p>&quot;Heh heh, you naughty boy, don’t bully your aunt too badly&quot;</p>
 
 <p>Hearing her older sister’s familiar voice while committing adultery with her brother-in-law, the sinful feeling made the wicked pleasure grow even more intense.</p>
 
 <p>Even with her mouth covered, she couldn’t help but let out muffled moans. She actually knew there was no hiding it anyway, her sister absolutely knew what the two of them were doing at that moment.</p>
 
-<p>Even if she wasn’t letting out lewd cries, this bastard~</p>
+<p>Even if she wasn’t letting out lewd cries, this bastard</p>
 
 <p>Hearing her mother-in-law’s voice, his cock throbbed and swelled even larger as he fucked her even harder, as if he was going to fuck her to death.</p>
 
@@ -125,7 +125,7 @@ chapter = 725
 
 <p>Lily wasn’t jealous at all, but rather a little expectant.</p>
 
-<p>&quot;I’ll find a chance. You little nympho, what’s going on in that head of yours, you’re suddenly so wet~&quot;</p>
+<p>&quot;I’ll find a chance. You little nympho, what’s going on in that head of yours, you’re suddenly so wet&quot;</p>
 
 <p>Even though they couldn’t have intercourse, their sex life with oral was still very harmonious.</p>
 

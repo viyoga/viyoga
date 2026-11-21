@@ -1,11 +1,11 @@
 +++
-title = "Chapter 786: Ruth Satisfied~~ [18+]"
+title = "Chapter 786: Ruth Satisfied [18+]"
 weight = 786
 [extra]
 chapter = 786
 +++
 
-<p>&quot;Mom, let me help you~!!&quot;</p>
+<p>&quot;Mom, let me help you!!&quot;</p>
 
 <p>Under the shower, he held her plush body, his smile even more depraved.</p>
 
@@ -21,17 +21,17 @@ chapter = 786
 
 <p>Playing with his mother-in-law’s plush body, unable to stop fondling her incredibly full breasts, Luis quickly got hard again.</p>
 
-<p>Sucking on her nipples while pushing her down, he panted, &quot;Mom, get me hard with your mouth so I can fuck your asshole~&quot;</p>
+<p>Sucking on her nipples while pushing her down, he panted, &quot;Mom, get me hard with your mouth so I can fuck your asshole&quot;</p>
 
 <p>The filthy words made Ruth tremble all over, but she obediently crouched down, taking her son-in-law’s half-hard cock into her mouth and sucking.</p>
 
-<p>&quot;Son-in-law... use that... the lubricant~!!!&quot;</p>
+<p>&quot;Son-in-law... use that... the lubricant!!!&quot;</p>
 
 <p>Under Luis’s maneuvering, Ruth turned around in shame, bracing herself against the wall and raising her plump, fleshy ass.</p>
 
 <p>Her pussy was still wet and inviting, while her little asshole twitched nervously—so tempting, radiating pure carnal desire.</p>
 
-<p>&quot;Sure thing, Mom. Don’t worry, I’ll be gentle~&quot;</p>
+<p>&quot;Sure thing, Mom. Don’t worry, I’ll be gentle&quot;</p>
 
 <p>Luis crouched behind her, smearing lubricant on his cock. As he spread it, he stuck out his tongue and licked his mother-in-law’s pretty pink asshole.</p>
 
@@ -185,7 +185,7 @@ chapter = 786
 
 <p>But Ruth immediately turned away in shame, grabbed the showerhead, and snapped with a mix of embarrassment and anger, &quot;You little devil, are you satisfied now? It hurts like hell...&quot;</p>
 
-<p>&quot;Hehe, totally satisfied~ Every part of you feels amazing, Mom!&quot;</p>
+<p>&quot;Hehe, totally satisfied Every part of you feels amazing, Mom!&quot;</p>
 
 <p>Luis leaned in with a lecherous grin.</p>
 

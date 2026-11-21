@@ -9,7 +9,7 @@ chapter = 161
 <p>Even after wearing the school uniform, we did it with just stockings on our bare bodies, and then, after engaging in traditional naked sex, I was hungry. As I was giving Han Yu-gyeong a pillow arm, my stomach rumbled, and Han Yu-gyeong giggled.</p>
 <p>,Aren't you hungry? Should we order dinner tonight?</p>
 <p>,Let's do that. Order me chicken.</p>
-<p>,Okay~!</p>
+<p>,Okay!</p>
 <p>While Han Yu-gyeong turned on the delivery app to order chicken, I got up from the bed, put on underwear, a short-sleeved shirt, and shorts, and went to the room where I kept my luggage. I took out the Glasses of the Ruins from the suitcase.</p>
 <p>Glasses of the Ruins "Rare Item 3/5": When you wear the glasses, you can check the target's abilities.</p>
 <p>There are only three uses left. I had already hoarded the ones that came up on the black market and they were being shipped, but I also needed to check Arisu's or Chieri's status window. If the number of women keeps increasing, I will have to keep buying them steadily.</p>

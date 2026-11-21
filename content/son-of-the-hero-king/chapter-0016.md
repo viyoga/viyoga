@@ -51,7 +51,7 @@ chapter = 16
 <p>The very moment she finished her words, Camelia's body shuddered violently while a greater amount of liquid gushed out from her sacred place. There was no mistake, those words had set her off.</p>
 <p>"You came?"</p>
 <p>Sol wore an incredulous expression before barking out a laugh full of mockery and derision, still in the prime of his act — deeply engrossed in it.</p>
-<p>"Hahaha~! You are truly a dirty woman. To think that even without having to touch you, you would come from humiliating yourself."</p>
+<p>"Hahaha! You are truly a dirty woman. To think that even without having to touch you, you would come from humiliating yourself."</p>
 <p>Brushing his fingers once again against her soaked vagina, Sol scooped up a large part of her leaking fluid, slowly bringing it toward her heavily blushing and panting face.</p>
 <p>"Now, Camelia, lick my hand and experience your own flavor.”</p>
 <p>“N, no, stop, …”</p>
@@ -61,10 +61,10 @@ chapter = 16
 <p>“Delicious, isn’t it?”</p>
 <p>“It is not! Please, stop this already!”</p>
 <p>Camelia tearfully pleaded, but he continued to ignore her pleas, the same belligerent smile stretching his lips.</p>
-<p>“Hehe~ ! If you insist, I will end the foreplay there. You’re plenty wet, so we should be able to move on to the next phase. Don't you think so? Now beg me. Beg me like your life depends on it."</p>
+<p>“Hehe ! If you insist, I will end the foreplay there. You’re plenty wet, so we should be able to move on to the next phase. Don't you think so? Now beg me. Beg me like your life depends on it."</p>
 <p>In a slow shuddering rhythm, the masochistic woman's heavy breasts moved up and down. Drowned by the lust she felt for the first time in her life, in a depraved tone she voiced out her true thoughts, not letting down Sol's expectations.</p>
 <p>"Please master. I am a dirty woman whose head is only filled with lust and shameful thoughts. Please use me as much as you like."</p>
-<p>"Hehe~! Perfect!!"</p>
+<p>"Hehe! Perfect!!"</p>
 <p>Laughing gleefully, Sol began to unbutton his suit, shirt, and his pants in order. It didn't take long for him to be as naked as Camelia was.</p>
 <p>Now was the moment of truth. He really wanted to continue the play, but he was hesitating about taking her virginity just like that.</p>
 <p>It seemed like Camellia caught on to his hesitation but she neither complained nor used the word. Hence, he decided to press on.</p>
@@ -93,7 +93,7 @@ chapter = 16
 <p>Despite his desires, Sol refused to break the trust she put in him just for a temporary moment of pleasure. Pleasure was a dangerous thing, treading around its edges without care always resulted in disastrous outcomes for relationships.</p>
 <p>With sheer will, he forced himself to only coat his penis in the love juices dripping down endlessly from her dripping vagina.</p>
 <p>Then he used both hands to spread the white squishy flesh.</p>
-<p>'Ahh~ Even her asshole is so pink and pretty.'</p>
+<p>'Ahh Even her asshole is so pink and pretty.'</p>
 <p>He gently placed his penis against the pink throbbing flower in the center of the two round, thick and cushy parts of white flesh.</p>
 <p>“Okay, I’m putting it in.”</p>
 <p>This was Sol’s first time having anal sex, so he felt oddly excited and simultaneously nervous about it.</p>
@@ -111,7 +111,7 @@ chapter = 16
 <p>The tightness was entirely different from that of a vagina. The entire vagina would softly squeeze down on him, but only the anus’s entrance squeezed down with great force.</p>
 <p>Even so, the rest of his hard rod went inside much easier after he got the head inside.</p>
 <p>'I-it’s in. My dick is completely inside her ass…'</p>
-<p>“Hgh~! …” he groaned in pleasure.</p>
+<p>“Hgh! …” he groaned in pleasure.</p>
 <p>He did feel some disappointment that he could not stick it in her vagina, but using her ass instead brought a sense of sinfulness along with the usual sense of conquest. It filled him with a different kind of arousal.</p>
 <p>He lost himself in thrusting his hips.</p>
 <p>“Ahhh!”</p>
@@ -120,12 +120,12 @@ chapter = 16
 <p>He felt like his penis could continue forever when he thrust in and felt like her anus would come out with it when he pulled back.</p>
 <p>Her now red and engorged anus spread wide as the boy’s hard cock mercilessly pumped in and out.</p>
 <p>As this continued, a change came over her pained moaning.</p>
-<p>“Nn! Nn! Ah~ !...”</p>
+<p>“Nn! Nn! Ah !...”</p>
 <p>These were now the signs of a woman beginning to feel pleasure.</p>
 <p>Her anus never grew wet as he pounded it, but nectar poured endlessly from her untouched pussy lips and soaked her white inner thighs, trailing down and staining the sheets.</p>
 <p>'Good. It looks like she is liking it.'</p>
 <p>Knowing she was enjoying it, his last bit of worry vanished.</p>
-<p>"Hahaha~! What would the believers think if they saw the woman they respected being plowed in the ass by a man so much younger than her."</p>
+<p>"Hahaha! What would the believers think if they saw the woman they respected being plowed in the ass by a man so much younger than her."</p>
 <p>Her groan and shudder were the sole answer he got as a response.</p>
 <p>The movement of his waist quickly increased in speed, upping his tempo to newer heights, plunging deeper into her core without reserve.</p>
 <p>“A-! Aah!”</p>

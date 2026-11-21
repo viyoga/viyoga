@@ -36,7 +36,7 @@ chapter = 54
 <p>*Clap* *Clap* *Clap*</p>
 <p>He was brought back once he heard the veritable sea of applause and whistle.</p>
 <p>"Reminds me of one thing. Once I become king, we need to change this hymn."</p>
-<p>"Fufufu~! Understood."</p>
+<p>"Fufufu! Understood."</p>
 <p>Smiling back at her, he began to admire the arena where he would soon fight and from where the singers left after finishing their songs.</p>
 <p>Despite how large it was, and how far from the terrain he was, he had no trouble seeing what was happening, and it wasn't thanks to his super senses, but rather a beautiful piece of technology.</p>
 <p>Four huge holographic screens floating in the sky and transmitting all the events happening on the ground.</p>

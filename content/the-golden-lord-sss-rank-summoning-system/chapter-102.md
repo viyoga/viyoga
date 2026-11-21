@@ -14,7 +14,7 @@ chapter = 102
 <p>"Oh... really?" Elena tilted her head. "Well, I was talking to Evelyn a few days ago, and she mentioned something about calling her ’Mommy’... Is the Lord interested in that sort of thing?"</p>
 <p>Ethan froze, his cheeks burning red.</p>
 <p>That had been nothing more than a joke between him, Evelyn, and Alice. Did that woman want to ruin his reputation?</p>
-<p>"Fufufu~~ it’s all right, my perverted lord, this will stay just between us."</p>
+<p>"Fufufu it’s all right, my perverted lord, this will stay just between us."</p>
 <p>Elena rose onto her tiptoes and pressed a gentle kiss to his lips.</p>
 <p>A faint blush colored her cheeks as she pulled back, turning on her heel to take the lead.</p>
 <p>Ethan stood in place for a moment. His gaze dropped on its own, drawn to the slow roll of her hips as she walked away.</p>

@@ -57,7 +57,7 @@ Sebastian leaned against the wall and said, adding himself into the conversation
 
 Lith nodded. "Alright. Come here, I'll show you something good." 
 
-"Yay!~" Tsuki said cheerfully and flocked to Lith while the rest had some suspicions.
+"Yay!" Tsuki said cheerfully and flocked to Lith while the rest had some suspicions.
 
 Lith gave a look to them and shook his head. If it were him in their shoes, he wouldn't trust anyone either and could understand where they were coming from.
 
@@ -129,7 +129,7 @@ Not wanting to have the guy be left out, Lith said, "Hey, you're not going to jo
 
 Iki didn't respond.
 
-"Ikiiii!~" Tsuki called out, to which Iki turned his head towards her, his face still serious.
+"Ikiiii!" Tsuki called out, to which Iki turned his head towards her, his face still serious.
 
 "Come here, see this." Tsuki gestured to him to come closer.
 

@@ -66,6 +66,6 @@ chapter = 553
 <p>"Please consider the Shikigami I obtained as the Price for saving my daughter."</p>
 <p>Takinogawa, no, Taira Yukiko, muttered to herself, though no one heard her. Taira Yukiko had snatched the contracts of three of the Naruse Family Head's Shikigami as the Price for saving Naruse Shiyo.</p>
 <p>If Naruse Hirohide had been conscious, it would have been impossible, but since Naruse Hirohide had lost his Mind and the elders had set up a Jusul circle to transfer the contracts, she was able to seize the contracts without difficulty.</p>
-<p>"Shall I go back to Shiyo? Heung Heung~♬"</p>
+<p>"Shall I go back to Shiyo? Heung Heung♬"</p>
 <p>Taira Yukiko, humming leisurely, disappeared riding the golden Tiger Torako.</p>
 <p>Awakening Yukiko after a long time.</p>

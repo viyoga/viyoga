@@ -23,7 +23,7 @@ chapter = 747
 <p>"Something is burning in the kitchen!"</p>
 <p>Alexandra’s voice cut through the warmth with an urgency that fooled no one. She was already pushing against Nyx’s forearms, both palms flat, legs bracing against the couch.</p>
 <p>Nyx tilted her head. She took a long, slow, theatrical inhale through her nose.</p>
-<p>"Hmm~" Her smile widened. "I don’t smell anything, Alex."</p>
+<p>"Hmm" Her smile widened. "I don’t smell anything, Alex."</p>
 <p>"Well I do!"</p>
 <p>"Fine, fine." Nyx’s arms opened. Alexandra launched off her lap, smoothed down her skirt, and was halfway to the kitchen before anyone could comment.</p>
 <p>Nyx watched her go with a soft laugh.</p>

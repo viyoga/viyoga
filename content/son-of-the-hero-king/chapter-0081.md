@@ -22,7 +22,7 @@ chapter = 81
 <p>"Anyway leave Kali to me. You should worry about your date first. The competition is pretty high. Even more with your childish body."</p>
 <p>Medea blushed as she twisted her body to leave Freya's grasp.</p>
 <p>"I am not that small!"</p>
-<p>"Hahaha~! Indeed. Size-wise you are quite normal when compared to a normal teen girl. But when compared to women like that little Camelia, Milia, or Lilith you still have a long way to go."</p>
+<p>"Hahaha! Indeed. Size-wise you are quite normal when compared to a normal teen girl. But when compared to women like that little Camelia, Milia, or Lilith you still have a long way to go."</p>
 <p>Medea groaned at that. This was something she could do nothing against. It was already a miracle that she could have pushed her development to at least look like a teen woman. After all, normally a witch didn't look any different to a preteen.</p>
 <p>After playing enough, Freya placed her chin on Medea's head, her eyes full showing a complex light.</p>
 <p>"I know I already asked this, but, are you serious about all this?"</p>
@@ -54,7 +54,7 @@ chapter = 81
 <p>Meanwhile, in another place in the capital of Lustburg, in the castle belonging to the Traver family, a short overweight man was patiently listening to a young man wearing armor.</p>
 <p>"So the dinner with the prince went well and he convened with the Duke out of prying eyes?"</p>
 <p>"..."</p>
-<p>"I see. Ohohoh~! Seems like the prince got the support of that old man or is it the opposite? Well, no matter. This isn't particularly surprising."</p>
+<p>"I see. Ohohoh! Seems like the prince got the support of that old man or is it the opposite? Well, no matter. This isn't particularly surprising."</p>
 <p>Despite his amusing and round form. The Duke Traver wasn't someone who could be underestimated. After all, the only way to become Duke in their family was to outclass everyone as a merchant using any way possible.</p>
 <p>Bribing, threatening, assassination, alliance, betrayal, begging. He stopped at nothing and rose from the least favored situation to the most favorable one. His name was Hermes. Duke Hermes Traver.</p>
 <p>Next to Hermes, a short but obviously mature woman asked with a small smile. "So, little boy, what will you do?"</p>

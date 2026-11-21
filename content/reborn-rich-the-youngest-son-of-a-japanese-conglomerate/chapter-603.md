@@ -23,7 +23,7 @@ chapter = 603
 <p>For reference, I ate two pizzas that Eve prepared while talking to her. As I was chatting with Eve about trivial things, I heard a 'woong' sound, and Han Yu-gyeong's image appeared in a hologram. Since I installed a hologram machine in Han Yu-gyeong's office in Vanguard, where she mainly works, we could now see each other and talk.</p>
 <p>The hologram machine above my head would be shining on me, scanning my appearance and transmitting it to Han Yu-gyeong in real time.</p>
 <p>"Did you have a good meal with your family?"</p>
-<p>-Of course not. Ryuta, I'm stressed out.... Give me a hug~!</p>
+<p>-Of course not. Ryuta, I'm stressed out.... Give me a hug!</p>
 <p>"Come here if a hologram is okay."</p>
 <p>I smiled at Han Yu-gyeong's grumbling and spread my arms. Han Yu-gyeong made a crying face, saying she couldn't hug me, but she seemed to relieve some stress from my comforting words.</p>
 <p>-The meal was as we expected. My eldest uncle....</p>
@@ -48,19 +48,19 @@ chapter = 603
 <p>"Since the U.S. is very interested in our guns right now, the actor should be American.... I have a cousin who is a model and actress named Arisu Fitzgerald...."</p>
 <p>-Still, this is a matter that depends on the future of our company, so I want to hold auditions.... I haven't even decided how to advertise yet....</p>
 <p>"Okay. But at least let her have a chance to audition."</p>
-<p>-Ryuta, can you do that for me~</p>
+<p>-Ryuta, can you do that for me</p>
 <p>I was going to push Arisu once, but in the end, she has to pass the audition. Still, I think I've done my part since I put her in the running when she wasn't even a candidate. For reference, Arisu is promoting a movie that she filmed that is about to be released.</p>
 <p>-I have to start working right away! Ryuta, you've worked hard in China, but I'm sorry for making you work during your break.</p>
 <p>Han Yu-gyeong said to me with an apologetic expression, but she probably has a lot more work than me, who is doing an undercover mission as a teacher and can't help much.</p>
 <p>"No, I'm sorry that I can't help much. Send me the paperwork I need to do by email. It's our company's work, so I'll work hard too."</p>
-<p>-Okay~! I miss you, Ryuta.</p>
+<p>-Okay! I miss you, Ryuta.</p>
 <p>"I miss you too, Yu-gyeong."</p>
 <p>"Aren't you seeing each other right now?"</p>
 <p>Eve said something to ruin the mood when we were about to get all lovey-dovey while saying we missed each other. Of course, we are seeing each other through holograms, so she's right, but....</p>
 <p>"The atmosphere has become strange, so I'll go now."</p>
-<p>"Ryuta-nim! Don't paint me as the mood breaker~!"</p>
+<p>"Ryuta-nim! Don't paint me as the mood breaker!"</p>
 <p>-Okay, I'll text you. Let's be lovey-dovey there♥</p>
-<p>"Don't ignore meeee~!"</p>
+<p>"Don't ignore meeee!"</p>
 <p>After saying goodbye to Han Yu-gyeong and Eve, I returned home, and it was already late. When I entered the house, I saw two suitcases that hadn't been unpacked yet in the living room.</p>
 <p>"I'll be busy again from tomorrow, so should I unpack today?"</p>
 <p>I was too tired yesterday, so I went straight to bed, and I went out early this morning for the memorial service, so I didn't have time to unpack. Since I saw them, I thought I should take care of them quickly and go to bed, so I unpacked them, and most of them were clothes I had worn.</p>

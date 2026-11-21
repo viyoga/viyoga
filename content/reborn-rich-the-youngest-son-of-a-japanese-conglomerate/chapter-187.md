@@ -45,10 +45,10 @@ chapter = 187
 <p>"They came quickly?"</p>
 <p>I was studying the terrain while looking at the tablet PC when Mimata Chieri, who had regained her senses, received a call from a soldier at the base entrance and told me.</p>
 <p>Only fifteen minutes have passed; how fast did they drive? As I put the tablet down and stood up, the tent door opened and Sawayanagi Azuma entered. Sawayanagi Azuma saw me, ran over, and hugged me. It's been a while since I hugged a woman, so dick is trying to react a bit.</p>
-<p>"Investor-nim! I missed you~!"</p>
+<p>"Investor-nim! I missed you!"</p>
 <p>"Azuma-ssi, have you been well?"</p>
 <p>Was it a bit much to ask if she's been well? She must have only been fighting for the past six days while I was gone. Whether my worries were unfounded, Sawayanagi Azuma nodded with a bright expression.</p>
-<p>"Yes! The president of Taira Foods praised us for doing well~! We also recaptured Yurihonjo City and defended well when the enemies attacked Daisen City."</p>
+<p>"Yes! The president of Taira Foods praised us for doing well! We also recaptured Yurihonjo City and defended well when the enemies attacked Daisen City."</p>
 <p>Well, they recaptured a city and carried out several missions with only 10 people, so they couldn't help but receive a good evaluation. Certainly, if this war ends in victory, both Seryu Military Company and East Weapon will gain quite a bit.</p>
 <p>"If this operation is successful, you'll receive an even better evaluation. And...."</p>
 <p>"And?"</p>
@@ -59,7 +59,7 @@ chapter = 187
 <p>"Giving Sunbae-nim a request ticket is a bit scary, though?"</p>
 <p>"Sunbae-nim!!"</p>
 <p>"Just kidding. I'll grant Sunbae-nim a request too. Keep in mind, it's a request ticket if you succeed within two days."</p>
-<p>"Yes~!"</p>
+<p>"Yes!"</p>
 <p>"Two days should be enough."</p>
 <p>At my words of two days, Mimata Chieri excitedly raised her hand and answered, and Sawayanagi Azuma closed her eyes for a moment and said it seemed enough. She probably confirmed it with her precognition; does that mean it'll be decided within two days? Then that's good for me since my schedule won't be delayed.</p>
 <p>Well, Sawayanagi Azuma probably won't make a big request, and Mimata Chieri will probably ask me to show her how I have sex with other women. The two of them were already distracted by the request ticket I mentioned, pulling my arm and telling me to leave quickly.</p>

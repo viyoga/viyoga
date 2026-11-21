@@ -199,7 +199,7 @@ Breakfast was served on the table and the two started having it.
 
 Emilia cut into her stack of pancakes and had a bite of it. The soft and fluffy pancakes felt a bit dry at first but then they got mixed with the maple syrup and butter and things balanced out.
 
-“Mhm~”
+“Mhm”
 
 Emilia once again let out an ecstatic wail when she felt the sugary goodness on her palate which of course wasn’t gone unnoticed by Lith.
 

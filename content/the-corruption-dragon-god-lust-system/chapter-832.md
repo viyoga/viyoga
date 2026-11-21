@@ -35,7 +35,7 @@ chapter = 832
 
 <p>With a sigh, he turned his attention to Ruxue, still nestled in his strong arms, savoring the weight of her voluptuous body and the familiar warmth of her huge tits pressed against his chest.</p>
 
-<p>"Miss Ruxue, it’s been a long time... I wouldn’t have expected to see that proud little spirit in the arms of a man like this—fufufu~—what happened to you?" Feiyue gave a soft chuckle, her eyes sparkling with pure curiosity.</p>
+<p>"Miss Ruxue, it’s been a long time... I wouldn’t have expected to see that proud little spirit in the arms of a man like this—fufufu—what happened to you?" Feiyue gave a soft chuckle, her eyes sparkling with pure curiosity.</p>
 
 <p>She still remembered how arrogant Ruxue had always been. Never unpleasant or blindly proud, but always a little... well... over the top.</p>
 

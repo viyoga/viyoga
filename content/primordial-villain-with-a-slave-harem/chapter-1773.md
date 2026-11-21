@@ -13,7 +13,7 @@ chapter = 1773
 <p>"Heads gonna roll?" Felicity giggled.</p>
 <p>"No... Not yet. They're only settling in."</p>
 <p>"Settling in?" Myrasyn asked, confused. "Your guards are?"</p>
-<p>"Something like that~" None who were in the know explained, instead wearing sly grins.</p>
+<p>"Something like that" None who were in the know explained, instead wearing sly grins.</p>
 <p>The reveal would have to wait.</p>
 <p>"Hmm... What nasty young ladies you are... Tormenting your elders with suspense..." The elven queen narrowed her eyes, pouting, then began diligently studying her surroundings to unearth the mystery.</p>
 <p>While that would take some time, what was instantly apparent to her was how every step was warmer than the last, and by the time Jasmine led them past the first row of buildings, the winter they'd left on the hilltop felt like a different country.</p>
@@ -31,7 +31,7 @@ chapter = 1773
 <p>"You did what?" Alexios couldn't believe his ears.</p>
 <p>"Whisperfield was taken a little more than a day ago!" Myrasyn yelped quietly from beneath her hood. Then her eyes widened and her head whipped toward Jasmine.</p>
 <p>"Is that why the guards are still 'settling in?!'"</p>
-<p>"Bingo~ They're hard-working people. Just need to give them some time."</p>
+<p>"Bingo They're hard-working people. Just need to give them some time."</p>
 <p>Quinlan added nothing of his own, letting his proud governor do the talking since she seemed to be really in her element.</p>
 <p>Far be it from Quinlan to interrupt when one of his girls was this chirpy and cheery, electing to just listen to her go on with a content heart.</p>
 <p>Then a burst of laughter drew every eye to a small square where two roads met.</p>

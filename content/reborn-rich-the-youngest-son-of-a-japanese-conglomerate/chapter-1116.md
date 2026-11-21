@@ -86,7 +86,7 @@ chapter = 1116
 <p>Shinonome Mio, after examining the book, smiled with Satisfaction and nodded her Head. Since the deal was complete, I also had something to say.</p>
 <p>"Then I'll use my first Advice right now. I received Talent recommendations from someone, and I want to know if these People are suitable, and if they are good Talents, what Method should I use to recruit them?"</p>
 <p>I handed Shinonome Mio a piece of Paper with People's names written on it. That Paper contained the names of the People Goishihara Shoji had recommended to me, and Shinonome Mio's name was also on that Paper.</p>
-<p>Requested by Gojoy-nim: Yukiko at Dijuni Land 1. After riding the flume ride and getting her Clothes wet~! 2. Yukiko holding churros and waffles~!</p>
+<p>Requested by Gojoy-nim: Yukiko at Dijuni Land 1. After riding the flume ride and getting her Clothes wet! 2. Yukiko holding churros and waffles!</p>
 <p>1.</p>
 <p>2.</p>
 <p>Requested by TheDreaming-nim: Chieri 1. Sticking to a hotel window 2. Masturbating in a night park</p>

@@ -79,7 +79,7 @@ chapter = 331
 <p>EVE: Really? I'll remember that. I'll even back up this memory!</p>
 <p>I was grateful and told her to ask me for anything anytime, but she's even backing it up, so is she saying she'll remember it even if I die? That's pretty scary.</p>
 <p>Ryuta: Of course. Ask me anytime.</p>
-<p>EVE: Yes~! Don't worry about Saionji-yang. Recovery technology has advanced these days, so she'll be able to come to school tomorrow.</p>
+<p>EVE: Yes! Don't worry about Saionji-yang. Recovery technology has advanced these days, so she'll be able to come to school tomorrow.</p>
 <p>After finishing the chat with Eve and doing my work with a lighter heart, lunchtime passed, my class time passed, and it was time for the after-school assembly.</p>
 <p>"Did you all listen to the class well today too?"</p>
 <p>"...."</p>

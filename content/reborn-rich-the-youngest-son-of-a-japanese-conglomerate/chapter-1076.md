@@ -22,13 +22,13 @@ chapter = 1076
 <p>"I guess I just grew fond of it, having been here for a while."</p>
 <p>"I want to go back to Japan quickly, I really hate New York."</p>
 <p>Otagi Yuka shook her Head at Seizawa Shii's Words about growing fond of it, saying she hated New York. Otagi Yuka didn't seem to have very good Emotions because her friend had died in New York. And this vigilante Work must have been tiring too.</p>
-<p>Normally, Seizawa Shii would have snapped back, asking why she was tackling her, but knowing Otagi Yuka's Story about her friend dying in New York, she just clicked her Tongue with a "Chi~!" and let it go.</p>
-<p>"I like New York because there's a lot of delicious food~!"</p>
+<p>Normally, Seizawa Shii would have snapped back, asking why she was tackling her, but knowing Otagi Yuka's Story about her friend dying in New York, she just clicked her Tongue with a "Chi!" and let it go.</p>
+<p>"I like New York because there's a lot of delicious food!"</p>
 <p>Naruse Shiyo said. In fact, since it was the USA, they mostly ate greasy, salty, and heavy foods rather than delicious ones. As a half-Korean Person, I craved kimchi so much that I bought it separately at a Mart and stocked up. Now, kimchi has become very common even in the USA, so it was easy to get.</p>
 <p>Others consumed calories by roaming New York every night doing vigilante activities, but Naruse Shiyo, who came as the leader of the Jooseodang, had almost no Body changes despite continuously sitting.</p>
 <p>Naruse Shiyo, being a Half-Dragon, seemed to have a constitution that didn't gain much flesh even if she ate such food excessively. Of course, I am also considered a big eater, but this was unavoidable due to my Regeneration Trait. I wasn't eating because I wanted to, but because of my regenerative power, so anyway, I wasn't a big eater.</p>
 <p>"You can eat things like Haembeogeo or Pizza in Japan too!"</p>
-<p>"Still, the taste of the homeland is different...! Especially the Mars Burger I ate this time, it was really delicious~!"</p>
+<p>"Still, the taste of the homeland is different...! Especially the Mars Burger I ate this time, it was really delicious!"</p>
 <p>"Ah, that's right! That was delicious...! I hate New York, but Mars Burger was good."</p>
 <p>"Shiyo-ppippi, Mars Burger was delicious for me too! I wish they had it in Japan...!"</p>
 <p>Ah, Mars Burger...! It was a Franchise created by Mother Mars, in which I had a Share. Among the Haembeogeo I ate during this New York Travel, it was indeed the most delicious. It was a Franchise only in the USA, so it was a pity it wasn't in Japan.</p>
@@ -81,7 +81,7 @@ chapter = 1076
 <p>"Understood, Airen."</p>
 <p>With Shimokawabe Airen, who was a friend, they exchanged a simple greeting, but unlike the simple greeting, their Gazes at each other were filled with Friendship.</p>
 <p>After Kurayamada Kirie and the Seryu Military Company People also greeted Fujigasaki Rinka, we left the Hospital and got back into the vehicle heading to the Airport. It was now Time to leave New York and go to California.</p>
-<p>Gojoy-nim requested Kurayamada Kirie's first appearance Scene, and Shinoe Misano raising her Glasses Scene~!</p>
-<p>Kirie~!</p>
-<p>Shinoe Misano~!</p>
+<p>Gojoy-nim requested Kurayamada Kirie's first appearance Scene, and Shinoe Misano raising her Glasses Scene!</p>
+<p>Kirie!</p>
+<p>Shinoe Misano!</p>
 <p>Surprisingly, grabbing the Glasses works well hehe.</p>

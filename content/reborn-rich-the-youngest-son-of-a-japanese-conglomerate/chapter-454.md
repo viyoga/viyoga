@@ -35,7 +35,7 @@ chapter = 454
 <p>They reacted quite well, even though it had only been three days since I last saw them. It seemed like everyone had come to school without skipping because it was exam period. Naruse Shiyo and Uenozono Karen, who often skip school, were both there and sitting in their seats.</p>
 <p>,Of course the seminar wasn't fun, it was a seminar. I couldn't even spend personal time because I was buying the gifts you guys asked for."</p>
 <p>Of course, it was a lie that I couldn't spend personal time because I was buying gifts, but it was true that it took some time to choose gifts for over a dozen people.</p>
-<p>,Wow, you really bought gifts? Ryuta-chi is amazing~?"</p>
+<p>,Wow, you really bought gifts? Ryuta-chi is amazing?"</p>
 <p>For reference, the gift Seizawa Shii chose was a handkerchief with the autograph of a Hollywood star. She probably thought hard to screw with me, but there were many Hollywood celebrities around me, so it was the easiest to get.</p>
 <p>,Yeah. It was hard to get, you little brat."</p>
 <p>The quite luxurious handkerchief was densely filled with the autographs of Dean Hoffman and the actresses from Arisu's filming studio who spent the night with me at the party.</p>

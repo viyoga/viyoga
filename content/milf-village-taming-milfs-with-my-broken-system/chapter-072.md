@@ -69,7 +69,7 @@ chapter = 72
 
 <p>&quot;R-really!?... Oh, no... no, I-I don’t want it!&quot; Her head whipped completely around to look at his face, but she quickly decided to lower her gaze again.</p>
 
-<p>&quot;But you clearly want it. Your voice and your body are being honest, Big Sis~.</p>
+<p>&quot;But you clearly want it. Your voice and your body are being honest, Big Sis.</p>
 
 <p>&quot;No... I don’t want it.&quot;</p>
 

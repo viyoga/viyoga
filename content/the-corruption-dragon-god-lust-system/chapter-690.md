@@ -69,7 +69,7 @@ chapter = 690
 
 <p>The fabric sank into the deep valley between them as the twin mounds squished together, bulging outward in a soft, heavy surge of pale flesh.</p>
 
-<p>“I must say the same of you, little dragon. Truly, you haven’t disappointed me, fufufu~♡”</p>
+<p>“I must say the same of you, little dragon. Truly, you haven’t disappointed me, fufufu♡”</p>
 
 <p>Rouxi let out a sweet, soft giggle, her mature voice echoing throughout the pavilion and making many a heart race.</p>
 

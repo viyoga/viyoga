@@ -5,7 +5,7 @@ weight = 231
 chapter = 231
 +++
 
-<p>“So… did hubby sleep well? Fufufu~~” Ruyan giggled softly when she noticed Qingyi’s eyes opening.</p>
+<p>“So… did hubby sleep well? Fufufu” Ruyan giggled softly when she noticed Qingyi’s eyes opening.</p>
 
 <p>“What do you think?” Qingyi returned her smile as he stood up and looked outside.</p>
 

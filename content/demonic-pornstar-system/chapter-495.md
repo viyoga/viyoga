@@ -21,7 +21,7 @@ chapter = 495
 <p>"You’re right, Aria. It’s fine. We gained enough anyway. They gave the dungeon its first real test. Now we know where to tighten things and what worked great. They were good data, and an even better source of DMP."</p>
 <p>Aria’s face brightened. Relief washed across her features at how quickly his posture shifted under her machinations. The girl loved to see how immense an influence her touch and gentle voice had over her boyfriend. The sight made her all giddy and happy.</p>
 <p>So much so that she couldn’t contain herself. The Moon Valkyrie leaned down and pressed a soft kiss onto the top of her Paragon of Sin’s head, then brushed her fingers through his hair with care, almost fanatically in love based on how she did it.</p>
-<p>Kaiden smiled, reached back, caught her around the waist, and pulled the girl forward over the sofa. "Kya~!" She let out a startled yelp as she tipped into his lap, but the surprise vanished an instant later. She settled against him, head resting against his chest, eyes closed, arms draped around his neck without hesitation.</p>
+<p>Kaiden smiled, reached back, caught her around the waist, and pulled the girl forward over the sofa. "Kya!" She let out a startled yelp as she tipped into his lap, but the surprise vanished an instant later. She settled against him, head resting against his chest, eyes closed, arms draped around his neck without hesitation.</p>
 <p>Her breathing slowed as the girl felt the firm embrace of her man around her. She loved to be hugged so tightly.</p>
 <p>"Glory to the Queen of Night... long may she reign."</p>
 <p>The line, repeated by Bastet, hung in the air for a few seconds.</p>

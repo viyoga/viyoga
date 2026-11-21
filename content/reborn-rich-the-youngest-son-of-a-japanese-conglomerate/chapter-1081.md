@@ -89,16 +89,16 @@ chapter = 1081
 <p>Ah, it seemed Kiyona Mari was a little sulky after seeing Kiyona Hori have sex while wearing a maid cap. Kiyona Mari, who had been looking at her older sister with a sulky expression, began to put on a maid outfit.</p>
 <p>"I-I'm not, not doing this service because I like, like Master-nim...!"</p>
 <p>It was Maid Kiyona Mari, approaching me with her tsundere attitude again. She probably meant for me to have sex with her while she was wearing the maid outfit, right?</p>
-<p>Hori Mari B-cut~!</p>
+<p>Hori Mari B-cut!</p>
 <p>Ryuta came out too delicate, so it was eliminated hehe.</p>
-<p>Exhilarating Rider Hori~!</p>
-<p>Gojoy-nim requested Chieri eating a chocolate banana, and Shinoe Misano eating yakisoba~!</p>
-<p>Chieri-chan~!</p>
+<p>Exhilarating Rider Hori!</p>
+<p>Gojoy-nim requested Chieri eating a chocolate banana, and Shinoe Misano eating yakisoba!</p>
+<p>Chieri-chan!</p>
 <p>I couldn't make her hold out a chocolate banana, so I just created it hehe.</p>
-<p>Shinoe Misano~!</p>
+<p>Shinoe Misano!</p>
 <p>When I typed "yakisoba prompt," yakisoba bread came out, so it was a bit difficult hehe.</p>
-<p>TheDreaming-nim requested Maya Reed in an apartment: 1. Upper body naked 2. Interview in an apartment corridor~!</p>
+<p>TheDreaming-nim requested Maya Reed in an apartment: 1. Upper body naked 2. Interview in an apartment corridor!</p>
 <p>1.</p>
-<p>When I typed "yoga pose," it didn't work hehe. Today was a day with many sex scenes requiring illustrations, so I ran out of time and couldn't try other attempts~!</p>
+<p>When I typed "yoga pose," it didn't work hehe. Today was a day with many sex scenes requiring illustrations, so I ran out of time and couldn't try other attempts!</p>
 <p>2.</p>
 <p>Why a microphone for a pussy...?</p>

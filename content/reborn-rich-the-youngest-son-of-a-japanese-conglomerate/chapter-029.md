@@ -21,7 +21,7 @@ chapter = 29
 <p>-Actually, there's not much to prepare, so I've been sitting and studying.</p>
 <p>Studying because she has nothing to do, she really is a woman who graduated at the top of Korea's best university. I couldn't check Han Yu-gyeong's stats, but her knowledge, which can't be raised by leveling up, seemed incredibly high.</p>
 <p>"Did I interrupt your studying?"</p>
-<p>-No~! I was just doing it because I had nothing to do. But what's up with the call?</p>
+<p>-No! I was just doing it because I had nothing to do. But what's up with the call?</p>
 <p>"I just wanted to hear your voice, and I called for that reason too."</p>
 <p>-Really? Hehet. I'm glad I heard your voice too.</p>
 <p>How sweet, I never imagined that a super pretty college girl would like me this much.</p>
@@ -44,8 +44,8 @@ chapter = 29
 <p>"Then come visit me the week after next. Come on Friday's flight and play like the OT from Friday to Sunday."</p>
 <p>I wanted to see Han Yu-gyeong-ssi too. Anyway, this week is Han Yu-gyeong's college OT, and I had a company dinner on Friday and a date with Arisu from Saturday evening to Sunday. Looking at it like this, I'm a really busy guy?</p>
 <p>-Really? Will you meet me if I go to Japan?</p>
-<p>"Of course~! Why wouldn't I meet you."</p>
-<p>-Heu-heung, okay. Then see you the week after next Friday~!</p>
+<p>"Of course! Why wouldn't I meet you."</p>
+<p>-Heu-heung, okay. Then see you the week after next Friday!</p>
 <p>"Okay, let's hang up now. You go back to studying, and I'll review the work I learned today."</p>
 <p>Actually, there wasn't much work I learned today, but I just decided to hang up because I had to pee.</p>
 <p>-Okay, let's talk again next time!</p>

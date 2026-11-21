@@ -17,7 +17,7 @@ chapter = 359
 <p>They filled his strong hands completely, soft flesh escaping through the gaps between his fingers, yet not enough to overshadow her delicate torso. Huge on her petite frame, firm, and full—the most perfect melons.</p>
 <p>He pressed her breasts together, feeling her shudder in his arms. The soft white flesh compressed between his palms with irresistible give, her pink nipples gradually hardening under his touch until they poked stiffly against the creases of his fingers.</p>
 <p>Warm water rained down from the showerhead above them, streaming over her body in glistening rivulets, pooling in the deep valley formed by her round white breasts.</p>
-<p>"E-Ethan! Nghnn~~ a-aren’t we going too fast?" she moaned, her body overcome by unfamiliar sensations.</p>
+<p>"E-Ethan! Nghnn a-aren’t we going too fast?" she moaned, her body overcome by unfamiliar sensations.</p>
 <p>Before she realized it, her panties were already sliding down her hips, gliding over her damp thighs until they fell in a soaked heap on the wet floor at her feet.</p>
 <p>Seo-ah was a petite woman, standing just one meter fifty-seven tall, and Ethan’s chin rested comfortably on the top of her head.</p>
 <p>He could smell the sweet scent of her long black hair, the floral aroma mingling with the steam rising from the shower.</p>
@@ -44,8 +44,8 @@ chapter = 359
 <p>A wet slap echoed off the marble walls as Ethan’s hips slammed against Seo-ah’s ass.</p>
 <p>Her large, pale buttocks flattened under the impact, the plump flesh molding to his pelvis, gelatinous tremors spreading across the white surface before finally subsiding in one last, obscene wobble.</p>
 <p>Seo-ah’s eyes widened and her lips parted in an obscene moan, her entire body trembling from the impact, tiny droplets flying from her wet skin.</p>
-<p>"Oghnn~~" Her hands shot forward, seeking desperate support on the cold marble-clad walls.</p>
-<p>"Aghn!~~ t-too big... E-Ethan... o-oppa... filling me up so much, ah!"</p>
+<p>"Oghnn" Her hands shot forward, seeking desperate support on the cold marble-clad walls.</p>
+<p>"Aghn! t-too big... E-Ethan... o-oppa... filling me up so much, ah!"</p>
 <p>She closed her eyes tightly as Ethan’s cock reached the depths of her womb, filling her until nothing else could fit. The walls of her pussy squeezed his member tightly, pulsing around the intrusion as if trying to get used to the invader.</p>
 <p>Ethan gasped, both hands sliding down to grip the top of her hips, his fingers pressing into the soft flesh there.</p>
 <p>His lips curved into a smile as his palm delivered a firm slap to Seo-ah’s right buttock.</p>

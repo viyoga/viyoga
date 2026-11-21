@@ -46,4 +46,4 @@ chapter = 323
 <p>"I didn't know you already had an Appointment. I'm sorry for bothering you, Teacher."</p>
 <p>"I'll be going too...!" The five Club Presidents left the education preparation room as if the tide was receding. It was awkward, but Fortunate.</p>
 <p>"You helped me because I was in a difficult Situation, right? Thank you." When I greeted Seizawa Shii, Seizawa Shii said with an Expression that asked, 'What are you talking about?' "What are you talking about, Ryuta-cchi? We're really going to make a club, you know?"</p>
-<p>-----This is an intermediate summary of St. Francisco Girls' Academy characters requested by Arnold-jjang-nim~! haha Headmaster Daigo Terue 3rd Year Homeroom Teacher Kasaoka Yuzuki School Nurse Kijimoto Jurie Home Economics Teacher Shimokawabe Airen</p>
+<p>-----This is an intermediate summary of St. Francisco Girls' Academy characters requested by Arnold-jjang-nim! haha Headmaster Daigo Terue 3rd Year Homeroom Teacher Kasaoka Yuzuki School Nurse Kijimoto Jurie Home Economics Teacher Shimokawabe Airen</p>

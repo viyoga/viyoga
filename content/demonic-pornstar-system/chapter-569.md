@@ -48,7 +48,7 @@ chapter = 569
 <p>Alice’s smile widened, radiant and unburdened, as if the entire world had reduced itself to her and her brother. Her big brother’s hand was on her head, and that was all she needed.</p>
 <p>Her eyes fluttered open just as his hand pulled away.</p>
 <p>For a heartbeat, she looked almost confused, like someone waking up from the best nap of their life and not quite ready to accept reality again. Then her gaze focused on him, and her face lit up in a bright, utterly genuine smile.</p>
-<p>"Payment accepted~! Pleasure doing business, hehe!"</p>
+<p>"Payment accepted! Pleasure doing business, hehe!"</p>
 <p>"... The pleasure is all mine."</p>
 <p>Then, after nodding at Kaiden’s response, which the girl found more than acceptable - there would’ve been drama if he mispoke at this moment - without another word, she turned on her heel.</p>
 <p>Alice marched straight over to Alexandra, grabbed the abyssal maid by the hand, and started dragging her down the hallway.</p>

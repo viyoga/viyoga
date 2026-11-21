@@ -1,5 +1,5 @@
 +++
-title = "Chapter 581: Mother~~ Daughter~~ [18+]"
+title = "Chapter 581: Mother Daughter [18+]"
 weight = 581
 [extra]
 chapter = 581
@@ -111,7 +111,7 @@ chapter = 581
 
 <p>In the passionate afterglow, they were willing to satisfy their man. But acting so submissively in front of each other was another psychological test and trial.</p>
 
-<p>Luis handed his cock, coated in semen and the mingled climax fluids of the mother and daughter, right in front of Yana&#x27;s face. He panted excitedly, &quot;Sister Yana, as the mother, you have to set a good example, you know~ You used to enjoy eating it so much.&quot;</p>
+<p>Luis handed his cock, coated in semen and the mingled climax fluids of the mother and daughter, right in front of Yana&#x27;s face. He panted excitedly, &quot;Sister Yana, as the mother, you have to set a good example, you know You used to enjoy eating it so much.&quot;</p>
 
 <p>Yana&#x27;s face was full of shyness. She gave Luis a light punch with her little fist, then closed her eyes, opened her mouth, and took him in, starting to suck.</p>
 

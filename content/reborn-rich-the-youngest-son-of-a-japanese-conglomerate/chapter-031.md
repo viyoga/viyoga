@@ -22,7 +22,7 @@ chapter = 31
 <p>"Take care, junior-gun."</p>
 <p>I heard Mimata Chieri's refreshing voice.</p>
 <p>"See you on Monday, Sunbae-nim."</p>
-<p>"Hehe, let's swap lunches again on Monday~!"</p>
+<p>"Hehe, let's swap lunches again on Monday!"</p>
 <p>After exchanging greetings with Mimata Chieri, I took Shinoe Misano from Kurakake Kuma, supported her, and headed out of the restaurant.</p>
 <p>"Enjoy yourself for a bit. I'll escort you to the taxi stand."</p>
 <p>I heard Kurakake Kuma's voice from behind. I pretended not to hear and started walking, supporting Shinoe Misano.</p>
@@ -79,7 +79,7 @@ chapter = 31
 <p>Shit, if I hadn't stopped that Kuma bastard, she would have become Kurakake Kuma's dick slave? How sexually frustrated is this woman? Even now, she's subtly pressing her breasts against me, as if she wants me to lose control and pounce on her.</p>
 <p>"Team Leader-nim...!"</p>
 <p>As I pretended to pull away, Shinoe Misano leaned in and kissed me. Her tongue moved like an eel trying to return to its burrow, thumping and trying to enter my mouth. I reluctantly accepted Shinoe Misano's tongue.</p>
-<p>Chuuup~! Chup~ Chuwap!! Chop!</p>
+<p>Chuuup! Chup Chuwap!! Chop!</p>
 <p>A lewd sound that could hardly be called a kiss echoed in the room. After the kiss, we were both filled with lust and began to frantically undress each other. Shinoe Misano's husband was on a long-term overseas business trip, so she was naturally sexually frustrated, and I hadn't had sex since Hanako at the driver's license camp, so I was about to explode.</p>
 <p>Shinoe Misano had a surprisingly sexy body, just as I had expected. She had incredibly wide hips that could easily give birth to triplets, and huge breasts with nipples that were so erect they were painfully pressing against my body. I wondered how a Japanese woman could have such an explosive, Western-style figure.</p>
 <p>Even more than I was admiring her, Shinoe Misano was admiring my body, to the point of drooling. She was staring intently at my muscular body, which middle-aged women go crazy for, and my huge, erect cock that was about to touch my navel.</p>

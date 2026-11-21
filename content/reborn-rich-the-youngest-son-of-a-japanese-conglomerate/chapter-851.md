@@ -23,7 +23,7 @@ chapter = 851
 <p>Sakagami Ginshiro asked back, as if surprised by my Answer. As I nodded my Head again, Sakagami Ginshiro and his Family began to guide me.</p>
 <p>Entering a small building in a Corner of the spacious mansion, two large Buddha statues were enshrined. When I pushed aside the right Buddha statue among those placed there, a Secret Passage leading to the Underground appeared. I stepped into the Secret Passage without fear.</p>
 <p>"Then, I'll be back."</p>
-<p>"Liege/Master~! Be careful...!"</p>
+<p>"Liege/Master! Be careful...!"</p>
 <p>"I sincerely hope for your Success."</p>
 <p>I descended into the Secret Passage, seeing off the Sakagami People. The Secret Passage grew darker the further I descended, and upon reaching the end of the Passage, complete Darkness greeted me.</p>
 <p>Since I didn't have the Ability to see through Darkness, I activated Creation Chaos. Relying on the Light of Creation Chaos, where deep blue and purple Light mysteriously harmonized, I walked the Road. With this level of brightness, I could sufficiently navigate the Road.</p>
@@ -67,8 +67,8 @@ chapter = 851
 <p>As Sakagami Mansaku said that Sakagami Rena's choice of Liege/Master was a good one, Sakagami Rena's Mother Sakagami Shiine also playfully Smiled and said she liked Yamashiro Ryuta's Face.</p>
 <p>"I, on the other hand, think his Face is the Problem. If he's too handsome, he's bound to live up to his looks...! It's the mark of a Womanizer, the mark of a Womanizer!"</p>
 <p>Sakagami Ginshiro grumbled as if he didn't like Yamashiro Ryuta's smooth Face. Sakagami Ginshiro's Words were not wrong. Because at this very moment, Yamashiro Ryuta was embracing two women simultaneously: Sakagami Ginshiro's Daughter Sakagami Rena, and Otagi Yuka.</p>
-<p>Shido Tsubaki new model Remake~!</p>
-<p>Original Ryuta, delivering a Punch imbued with Creation Chaos, as requested by MidNightSKY-nim~!</p>
-<p>Shido Tsubaki Stuck in wall, as requested by TheDreaming-nim~!</p>
+<p>Shido Tsubaki new model Remake!</p>
+<p>Original Ryuta, delivering a Punch imbued with Creation Chaos, as requested by MidNightSKY-nim!</p>
+<p>Shido Tsubaki Stuck in wall, as requested by TheDreaming-nim!</p>
 <p>I wish the wall Position was a bit better, but it's not turning out as I want, hehe.</p>
 <p>Kkiyot!</p>

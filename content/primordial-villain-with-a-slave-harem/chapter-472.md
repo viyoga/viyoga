@@ -25,7 +25,7 @@ chapter = 472
 <p>Kael glanced up at me with an annoyingly wide smirk, "You Elemental Sovereigns are not the only ones who can summon elemental pets. Greet my adorable bird, [Anivia]! Let's see if you can retain your aerial supremacy, Devil!"</p>
 <p>From his ornately decorated mage's staff, a shiny glyph spun into existence, and from the glowing glyph emerged a majestic bird-shaped construct, its translucent body was seemingly made of pure, crystallized ice.</p>
 <p>Sharp, icy talons hung below its sleek, aerodynamic form and its piercing blue eyes glowed with sentient malice.</p>
-<p>Anivia let out a guttural cry that was a haunting, resonant sound that sent chills through the air. Its voice carried the weight of a blizzard just as its wings unfurled, spanning over ten meters (~33 feet) from tip to tip.</p>
+<p>Anivia let out a guttural cry that was a haunting, resonant sound that sent chills through the air. Its voice carried the weight of a blizzard just as its wings unfurled, spanning over ten meters (33 feet) from tip to tip.</p>
 <p>The bird circled Kael protectively once before flapping its wings harder and quickly ascending to a higher point than where I stood.</p>
 <p>Its agility in the air was simply breathtaking; it moved with the grace of an aerial predator despite its ginormous size.</p>
 <p>I was greatly surprised when Anivia paused mid-flight all of a sudden and started hovering in place.</p>

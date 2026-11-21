@@ -11,7 +11,7 @@ chapter = 294
 <p>If he kept training over the next few months, Ethan could sense that he would soon reach the absolute ceiling of his current phase.</p>
 <p>The third surprise was that those facilities, covering just over two hundred thousand square meters, had absolutely everything he needed: a running track capable of adjusting gravity, a swimming pool with controllable water density, and even two specialized rooms dedicated to Aura control training.</p>
 <p>What excited him most, however, was knowing this was just the beginning. As he gathered the fragments of the palace, he would gain access to even better facilities.</p>
-<p>"F-fuck... F-fuck! Fuck! Fuck! Aghnn~~ w-why do you like fucking my ass so much? You, nghnn~~ bastard~ pervert!"</p>
+<p>"F-fuck... F-fuck! Fuck! Fuck! Aghnn w-why do you like fucking my ass so much? You, nghnn bastard pervert!"</p>
 <p>Evelyn’s sweet, sensual voice echoed through the empty hall, her black shorts sagging and crumpled in a heap down at her knees.</p>
 <p>They had started training at five in the afternoon, and now it was almost eight in the evening.</p>
 <p>Evelyn was straddling Ethan’s lap, her full, round buttocks swaying heavily like two mountains of Jell-O with every movement, slamming down against his pelvis in wet, rhythmic impacts.</p>

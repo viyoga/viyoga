@@ -109,7 +109,7 @@ chapter = 221
 <p>At the same time, it was a way she used to tease her children whenever they wished to meet her.</p>
 <p>Because of this, she had completely forgotten to lower it when Sol entered and had been ready to dispel it when he nearly caved in.</p>
 <p>Still...</p>
-<p>‘Hahaha~! what an interesting boy.’</p>
+<p>‘Hahaha! what an interesting boy.’</p>
 <p>She dispelled the idea the moment she saw him change form and straighten his back as walked toward her.</p>
 <p>Watching him take one step after another, and adapting so easily to a level of gravity most adult dragons couldn’t even support, she felt a mixture of emotions - happiness, pride, and sad nostalgia.</p>
 <p>It was as if she could remember the picture all those years ago, when her little adorable daughter, Blaze had shown her that she wasn’t just a mischievous child and that she had her own pride.</p>

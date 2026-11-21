@@ -35,7 +35,7 @@ chapter = 885
 <p>Luna’s eyes narrowed. "I moved more materials than you."</p>
 <p>"You moved more trips," Nyx corrected, taking a slow sip from her canteen. "I moved more tonnage. One girder versus your little rebar bundles? Do the math, sweaty bestie."</p>
 <p>"Oh, so now that you lost we’re counting by weight?! That wasn’t the deal!"</p>
-<p>"Exactly~" Nyx giggled, taking a gulp of her cold beverage before adding, "There was no deal. You just started running and declared it a race where ’my fat ass could not keep up.’ Well, I did."</p>
+<p>"Exactly" Nyx giggled, taking a gulp of her cold beverage before adding, "There was no deal. You just started running and declared it a race where ’my fat ass could not keep up.’ Well, I did."</p>
 <p>"You sat on your floating couch the whole time drinking water and eating snacks! You didn’t even break a sweat!"</p>
 <p>"I’m the space babe," Nyx shrugged, adjusting her position on the platform with a lazy stretch that made two nearby workers forget they were tired. "Not the ’sprint around screeching profanities’ babe. That spot appears to be already taken."</p>
 <p>The hissing that followed was mutual, immediate, and escalated with a speed that made a mockery of the exhaustion both of them should have been feeling.</p>

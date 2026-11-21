@@ -7,7 +7,7 @@ chapter = 377
 
 <p>After another deep make-out session with a very entranced Isis, Sol took a look at Nent, brimming with expressions of desire and anticipation, and promptly decided to continue with her for this round. Skuld and Kiyohime were already out cold for the count.</p>
 <p>“Okay, Nent. Place your hands against the wall and stick your butt out this way please.”</p>
-<p>“Fufufu~! Is it finally my turn?”</p>
+<p>“Fufufu! Is it finally my turn?”</p>
 <p>This whole night had been something that Isis could hardly imagine in her most debauched dreams.</p>
 <p>But as she watched her maternal aunt place her hands on the wall as told by her lover, spreading her legs slightly, sticking her butt out to show that soaking wet pussy of hers… She felt like she was really reaching the heights of debauchery, witnessing scenes of carnal hedonism.</p>
 <p>“Like this?”</p>
@@ -39,13 +39,13 @@ chapter = 377
 <p>She lowered her head in embarrassment and clenched her teeth in frustration.</p>
 <p>“Man, you have a really naughty body.”</p>
 <p>He teased her and she glared back at him with her arms still against the wall before giving him a sensual smile,</p>
-<p>“Even if it’s true, you are the one who made me this way. I was never this sensitive before I slept with you. So you have to take responsibility, okay~?”</p>
+<p>“Even if it’s true, you are the one who made me this way. I was never this sensitive before I slept with you. So you have to take responsibility, okay?”</p>
 <p>Even though she had researched selective breeding, Nent herself had never been particularly interested in sex and never had any experiences in that department. Alongside her sisters and mother, they had been the oldest virgin in the Astral realm and she had been happy to stay that way.</p>
 <p>But everything changed after she had her first time with Sol. Now, like a well-trained dog, her body would react at the slightest touch of his.</p>
 <p>Sol gave a heartfelt smile before gently kissing Nent on her neck. He would never shirk responsibility. That was not his motto. And… He had no reason to do that anyways.</p>
 <p>“Gladly.”</p>
 <p>He whispered in her ear, lowering his right hand down to her smooth stomach, slowly sliding it into the bottom of her black Bikini.</p>
-<p>“Ahhh~…”</p>
+<p>“Ahhh…”</p>
 <p>The gentle stimulation of his crafty hands had her sighing in pleasure again.</p>
 <p>‘She really does get wet too easily. My fingers are literally drowning in her hot juices.’</p>
 <p>After giving her some time to rest after the nipple orgasm she experienced, he parted her wet flesh and slipped his middle finger up to the second joint inside her hot depths.</p>
@@ -61,7 +61,7 @@ chapter = 377
 <p>“Then I will put it in now.”</p>
 <p>He held the base of his rock-hard cock and moved the tip against her pussy lips. His hips trembled from the heat of her wet flesh, but as he kept pushing forward, his penis was easily swallowed by her vagina.</p>
 <p>It went in so easily that he went in too hard at it and the head slammed into her deepest part at once.</p>
-<p>“Ahn~!…I can feel every bit of you inside me…”</p>
+<p>“Ahn!…I can feel every bit of you inside me…”</p>
 <p>She arched her back and let out a moan of pleasure when his erection penetrated her so deep so suddenly, but she still managed to keep her voice low…</p>
 <p>‘She is mine.’</p>
 <p>Once again possessiveness bloomed in his heart but Sol did not reject those feelings this time. He simply embraced and accepted them. They were his and he was theirs.</p>
@@ -73,7 +73,7 @@ chapter = 377
 <p>The squeezing of her vaginal flesh grew even tighter and melting pleasure spread through his crotch every time his dick rubbed against that searing and soft flesh.</p>
 <p>The resistance from her inner flesh grew stronger, but his hips sped up on their own and it was all he could do to stop his crotch from slapping against her ass.</p>
 <p>He grabbed her ass tightly and thrust into her while doing his best not to make too much noise.</p>
-<p>“Ahh so rough~”</p>
+<p>“Ahh so rough”</p>
 <p>Every time his erect penis thrust into her, her body would shake forward and back, her hair would bounce, and her tits would jiggle seductively.</p>
 <p>The arousal from the scene in front of him and the pleasure from the vaginal folds surrounding and rubbing his schlong caused his body temperature to rise steadily. It literally felt like his blood was boiling. At the same time, an ejaculatory urge rose from deep within his crotch.</p>
 <p>He knew he would not last long if he kept thrusting inside her like this, but he did not slow down nor did he plan to. In fact, he sped up as he approached climax.</p>

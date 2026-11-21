@@ -9,7 +9,7 @@ chapter = 1041
 <p>The oriental teen scoffed and turned her head away, but her hand came up to hold his where it rested on top of her hair, refusing to let go.</p>
 <p>Lucille’s smirk cut through the room. "Indeed... men need to feel validated from time to time. To let themselves know they are appreciated and that their hard work doesn’t go unnoticed. Just look at this big oaf’s giant grin as he’s basking in the afterglow of his victory, surrounded by his teary-eyed women. I bet he feels immensely masculine right now, hehe!"</p>
 <p>His hand shot out and delivered a firm, resounding slap to her ass.</p>
-<p>"Mmh~! You didn’t deny it, though..." Lucille’s grin widened as she rubbed the red mark, chuckling in smug satisfaction.</p>
+<p>"Mmh! You didn’t deny it, though..." Lucille’s grin widened as she rubbed the red mark, chuckling in smug satisfaction.</p>
 <p>Quinlan refused to meet Lucille’s smug, victorious eyes.</p>
 <p>Instead, his gaze slid past her, toward the far corner of the room, where Iris sat with her arms folded, eyes downcast, clearly lost in thought.</p>
 <p>A whisper of wind magic stirred. He pretended to cast with both words and hand gestures this time around.</p>

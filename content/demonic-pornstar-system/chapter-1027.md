@@ -7,7 +7,7 @@ chapter = 1027
 
 <p>"My poor Kai. They put you to work."</p>
 <p>"Best job ever."</p>
-<p>"The correct answer~"</p>
+<p>"The correct answer"</p>
 <p>She held a blue display kimono against herself, with the darker silk swatch draped over its sleeve.</p>
 <p>"Which blue for the moonlight? This one, or the darker silk Yunohana showed me?"</p>
 <p>Kaiden compared the two shades, then looked at her expectant face. "The darker silk. Your hair would look gorgeous against it, and the silver would stand out more."</p>
@@ -21,7 +21,7 @@ chapter = 1027
 <p>An excited burst of Japanese escaped one room, followed by a hurried apology and Nyx’s laughter.</p>
 <p>"It’s fine, sweetie. Take your time."</p>
 <p>"I think the poor girl’s trying to work out where your waist went under those things," Luna called from the next room.</p>
-<p>"Would you like to come help her? You seem to know my body very well~"</p>
+<p>"Would you like to come help her? You seem to know my body very well"</p>
 <p>"Hell no."</p>
 <p>Kaiden grinned down at Alice’s fabric sample and accessories on his lap. Yunohana emerged from Alexandra’s room and paused beside him, enjoying the exchange herself.</p>
 <p>"They seem to be having fun," he said.</p>
@@ -62,7 +62,7 @@ chapter = 1027
 <p>"You mean ’powerfully adorable’ or she’ll conduct a royal hissing fest," Nyx corrected, joining them in a plum-colored sample.</p>
 <p>Luna walked up to Kaiden and tugged his free hand toward her waist, making her own request quite clear. He kissed her too, and she held her response to her pink friend long enough to cling to his collar.</p>
 <p>Nyx waited beside them with a patient smile.</p>
-<p>"Since we’re forming a queue~"</p>
+<p>"Since we’re forming a queue"</p>
 <p>"We’re not forming a queue!" Luna protested, still holding him.</p>
 <p>Yunohana turned toward the counter, laughing softly as she asked the proprietress to bring out the men’s selection.</p>
 <p>"My turn?" Kaiden asked when an attendant approached him with a dark robe.</p>

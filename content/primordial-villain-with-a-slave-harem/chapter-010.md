@@ -16,10 +16,10 @@ chapter = 10
 <p>With that, I step back and continue to explore the market, my mind racing with possibilities.</p>
 <p>After an hour of wandering around I've seen most stalls and inspected their offerings, I feel confident in creating an average price list estimate.</p>
 <p>Crippled good-for-nothings: 1-5 silver</p>
-<p>Simple manual laborers: ~25 silver</p>
-<p>Well-built manual laborers (with above-average strength): ~50 silver</p>
-<p>House servants: ~25-100 silver, varying by experience and appearance</p>
-<p>Sex slaves: ~25-300 silver, with young, beautiful elves reaching over 10 gold (1,000 silver)</p>
+<p>Simple manual laborers: 25 silver</p>
+<p>Well-built manual laborers (with above-average strength): 50 silver</p>
+<p>House servants: 25-100 silver, varying by experience and appearance</p>
+<p>Sex slaves: 25-300 silver, with young, beautiful elves reaching over 10 gold (1,000 silver)</p>
 <p>Combat slaves: Low-level fighters start at 1 gold, with those above level 10 costing 3-5 gold, and those above level 20 easily exceeding 15 gold. Mages cost significantly more than non-magic classes.</p>
 <p>The most expensive slaves are those with both combat and sexual skills, often doubling their price. Young elves also demand a hefty premium due to their longevity, serving for generations if well-kept.</p>
 <p>Unless I want to waste my money to house and feed a crippled old man or woman I can't afford anything here, but it was definitely worth the time and effort to come here. I gained a lot of information and also had the chance to experience such a surreal, otherworldly place.</p>

@@ -12,7 +12,7 @@ chapter = 1290
 <p>Every deep sigh and shuddering gasp that escaped Blossom was a victory song to him.</p>
 <p>Blossom's breath hitched, followed by a bright, joyful giggle that was music to his ears. She thrashed lightly against his grip, testing if he was truly holding her down.</p>
 <p>Once she ascertained that, indeed, she was being held, her eyes squeezed shut in ecstatic surrender.</p>
-<p>"Oh nooo~!" she yelped playfully. "Blossom has been caught, and she can't escape~!!"</p>
+<p>"Oh nooo!" she yelped playfully. "Blossom has been caught, and she can't escape!!"</p>
 <p>Hearing her words, Quinlan's tongue movements intensified as he held her above him even firmer, stealing the turbo submissive woman's breath away. She loved submitting to her Master no matter the situation, but this…</p>
 <p>Being pinned and devoured, feeling like helpless prey before the big bad predator, was one of her greatest kinks.</p>
 <p>Her playful cries turned into choked moans, serving as a melodic, joyful surrender that had nothing to do with fear and everything to do with being completely consumed by his dominant affection. She mouthed silent words into the air, her expression turning dreamy, her body beginning to tremble uncontrollably beneath his hands.</p>
@@ -54,7 +54,7 @@ chapter = 1290
 <p>"Why was I included? I've been on my best behavior recently!! I didn't even ask you to bed my mother in days!" she protested.</p>
 <p>"I'm craving elf for some reason," he replied nonchalantly, his hips never pausing.</p>
 <p>"Craving elf?" Seraphiel mused, raising a perfectly sculpted eyebrow, "When did I become an item on a restaurant menu?"</p>
-<p>But then she grinned, letting a wicked, beautiful expression appear on her delicate face. This woman was far too happy with her place in life. "Far be it from me to complain, though~"</p>
+<p>But then she grinned, letting a wicked, beautiful expression appear on her delicate face. This woman was far too happy with her place in life. "Far be it from me to complain, though"</p>
 <p>She unclasped her own bathrobe, tossed the piece of attire aside, revealing her lithe figure: large breasts, a thin waist, and sensual, curvy hips. She was the epitome of elven beauty: graceful, lithe, yet extremely feminine and bountiful in just the right places. And now she was completely naked.</p>
 <p>Seraphiel reached out, pulled herself close to Quinlan's side, and kissed him deeply, letting her long fingers travel down his skin until reaching their destination and grabbing onto his jewel sack, stroking it as he ruthlessly pleasured Ayame.</p>
 <p>"I heard I'm not the only elf in the harem anymore," Seraphiel purred against his mouth. "Took you long enough. But now I suddenly feel my competitive spirit light up."</p>

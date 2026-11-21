@@ -56,11 +56,11 @@ chapter = 605
 <p>It's funny how everyone's reactions are different. By the way, Kim Young-chan was having an office romance and was dating his instructor, Sawayanagi Mikiyo. Dating his instructor.... He's amazing.</p>
 <p>The Korean trio also soon returned to their seats, and I briefly shared stories with Sawayanagi Sinya, Sawayanagi Tobe, Sawayanagi Shigeru, Katayama Junichi, and others that I hadn't been able to tell.</p>
 <p>While talking, I wondered why I couldn't see the women, so I glanced over and saw them all gathered in a corner, plotting something. They must be plotting a conspiracy against me. I'm a little uneasy.</p>
-<p>"The food you ordered is here~!"</p>
+<p>"The food you ordered is here!"</p>
 <p>I told them to order whatever they wanted, so deliveries were coming in one after another. Some of them couldn't be delivered, so they packed them up and brought them, so the long table in the conference room was filled with various foods like a buffet.</p>
 <p>Even though individuals ordered what they wanted to eat, each menu was for 3-4 people, considering what others would eat, so when everything was spread out on the table, the amount was no joke. I'll have to pack up the leftovers.</p>
-<p>"I bought alcohol too~!"</p>
-<p>"Yay~!"</p>
+<p>"I bought alcohol too!"</p>
+<p>"Yay!"</p>
 <p>It was lunchtime, but it was completely serious to see them buying alcohol too. I was going to stop them as the homeroom teacher because there were special class students, but when I thought about it, they were all adults.</p>
 <p>Konoe Akina, Otagi Yuka, Saionji Diana, and Sakagami Rena all repeated a year, and Urabe Konoka is currently a senior in high school, but I knew that she was over 20 years old because she had worked as an inn clerk to avenge her father's enemy.</p>
 <p>Then everyone can drink, right? I don't really need to stop them. I filled my glass with beer with peace of mind. I liked cold beer because I didn't get drunk because of my regeneration trait.</p>
@@ -68,8 +68,8 @@ chapter = 605
 <p>"Even though we belong to different organizations, we are all family. Let's get along well, cheers!"</p>
 <p>"""Cheers!"""</p>
 <p>After a simple toast, we started eating. We prepared separate buffet-like plates and picked out food like a real buffet and put it on our plates.</p>
-<p>"Ryuta-nim, say ah~."</p>
-<p>Sawayanagi Seari said, pushing grilled eel into my mouth. No, how can you just put it in without even saying ah~! Before I could say anything, this time Sawayanagi Azuma scooped up soft-shelled turtle soup, which I don't know where she ordered from, and put it in my mouth.</p>
+<p>"Ryuta-nim, say ah."</p>
+<p>Sawayanagi Seari said, pushing grilled eel into my mouth. No, how can you just put it in without even saying ah! Before I could say anything, this time Sawayanagi Azuma scooped up soft-shelled turtle soup, which I don't know where she ordered from, and put it in my mouth.</p>
 <p>"Hmph, I'm not giving it to you because I like you!"</p>
 <p>Kiyona Mari, who said she wasn't giving it to me because she liked me, put a spoonful of raw oysters in my mouth, and Kiyona Hori, like a batter waiting for the next at-bat, was holding a chicken skewer with black garlic sauce, and behind her were Otagi Yuka, Saionji Diana, and Sakagami Rena with several dishes.</p>
 <p>When I thought about it, everything they were putting in my mouth was food that was good for stamina. What are you trying to do to me today by feeding me these things?</p>

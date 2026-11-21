@@ -13,7 +13,7 @@ chapter = 455
 <p>Kurayamda Kirie looked at me as if asking for advice, but it was my first time too, so I didn't really have anything to say. In fact, Kurayamda Kirie and I didn't have much of a difference in experience. There was only about a month's difference, so it would be strange if I were giving her advice.</p>
 <p>After Kurayamda Kirie left for exam supervision, I left the school and headed to the Amhang branch where Eve was. Going to the love hotel district during work hours could be problematic, but no one was following me, and the teachers were mostly busy supervising exams, so there was no way I'd get caught.</p>
 <p>,Eve, I'm here."</p>
-<p>,Long time no see~! Did you have a good time in America?"</p>
+<p>,Long time no see! Did you have a good time in America?"</p>
 <p>As always, Eve greeted me brightly. Eve always showed a new look, so I was looking forward to seeing what she would be wearing today, and today she was wearing a body-hugging China dress. Hmm.... China dresses are good too. She changed her hairstyle slightly to match the China dress, and it suited her even better. Is this called a steamed bun hairstyle? Or a dumpling hairstyle? I'm not sure exactly.</p>
 <p>,Yes. I had a good time. Here's a gift."</p>
 <p>I wondered if it was necessary to give a gift to Eve, who oversees Amhang and can get anything she wants if she sets her mind to it, but I decided to give her something since I had been on a trip.</p>
@@ -39,7 +39,7 @@ chapter = 455
 <p>,Have all the items I ordered been made? I want to talk to Eve a little more, but I have to go back quickly because I have to supervise the exam."</p>
 <p>,You said it's an exam today, right? I've prepared everything!"</p>
 <p>At my words, Eve handed me a paper bag containing the gifts that had been pre-packaged.</p>
-<p>,Come visit anytime~!"</p>
+<p>,Come visit anytime!"</p>
 <p>,Yes!"</p>
 <p>I returned to Saint Francisco Girls' Academy, seeing Eve off.</p>
 <p>###</p>

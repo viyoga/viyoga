@@ -32,9 +32,9 @@ chapter = 630
 <p>"I'm going to school first, so lock the door properly when you come."</p>
 <p>Everyone was in the middle of washing up, so there was no response, but I left the house. I arrived at school and sat down in the teacher's prep room for a while, and I saw the special class students entering the classroom with zombie-like expressions. Well, they were in the club room until after 12, so they must be tired.</p>
 <p>After some more time passed, just before checking for tardiness, Otagi Yuka, Sakagami Rena, and Saionji Diana, who were talking and laughing as they entered, waved their hands as they passed in front of the teacher's prep room.</p>
-<p>"Teacher-ssi~!"</p>
+<p>"Teacher-ssi!"</p>
 <p>"Jugun-sama!"</p>
-<p>"Teacher~!"</p>
+<p>"Teacher!"</p>
 <p>Only those three were full of energy. The Sacred Pillar trait must be a scam.</p>
 <p>###</p>
 <p>"What are we doing today?"</p>
@@ -93,11 +93,11 @@ chapter = 630
 <p>The club president, vice president, and advisor teacher still had work left. It was a bit annoying, but I couldn't help it.</p>
 <p>"It's over for today, and we're going to make samples. Anyone want to come with us?"</p>
 <p>"Me!"</p>
-<p>"I want to go too~!"</p>
+<p>"I want to go too!"</p>
 <p>Minamoto Risa said that the more opinions, the better, and recruited volunteers to go to the photo card production company with her. Everyone decided to go together except for Kujo Kina, Naruse Shiyo, and Alik, who had to train at least a little bit every day.</p>
 <p>"You have to let me know what you decided on?!"</p>
 <p>"Alik wants to see it too."</p>
-<p>"Please send me the selected sample too~!"</p>
+<p>"Please send me the selected sample too!"</p>
 <p>"Okay, go and train quickly."</p>
 <p>We said goodbye to the three training musketeers who were lingering because they wanted to go with us, and we called a few taxis and moved to the production company.</p>
 <p>______</p>

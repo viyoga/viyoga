@@ -72,7 +72,7 @@ chapter = 112
 <p>I felt sorry for punching Mimata Chieri, so I reached out to use a throw. Mimata Chieri dodged my grab by moving her body like an eel. She's so fast! And she put the gun in her waist and dug into me as much as possible, putting her palm on my stomach.</p>
 <p>Kuoong-!</p>
 <p>Mimata Chieri's palm felt like it was giving a shock not to the surface of my stomach, but to my internal organs. Surely this is...?</p>
-<p>- Hubae-nim~! You're amazing. As expected of Fujisaki Rinka-nim's disciple! You took down a Tatsuya spear squad with your bare hands!! Like this? Like this? Is that how you do it?</p>
+<p>- Hubae-nim! You're amazing. As expected of Fujisaki Rinka-nim's disciple! You took down a Tatsuya spear squad with your bare hands!! Like this? Like this? Is that how you do it?</p>
 <p>I remembered Mimata Chieri chattering next to me yesterday after taking down the Tateyari. Don't tell me she copied it after seeing it? She has so much talent! If she had any related traits, she would have a master of martial arts or more. Of course, since she doesn't have 'the Abyss', the Shin Too Banin's murderous power wasn't reproduced as is. But at this level, an ordinary person would faint while vomiting blood.</p>
 <p>But it was a mistake to approach me too much in order to use a technique she had seen once. I grabbed Mimata Chieri as is and strangled her until she fainted.</p>
 <p>I won easily compared to the shock I received from seeing Mimata Chieri use the technique, but Mimata Chieri's talent was amazing. I wanted to introduce her to a good master. Since Shinkaiya Tsudae is a martial art of one-person transmission, I should get her another martial art.</p>

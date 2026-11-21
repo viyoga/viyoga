@@ -15,7 +15,7 @@ chapter = 469
 
 <p>The reddish head overcame the initial resistance before finally sliding all the way in.</p>
 
-<p>“Nghnn~~ Q-Qingyi!” Ruxue exclaimed.</p>
+<p>“Nghnn Q-Qingyi!” Ruxue exclaimed.</p>
 
 <p>Her eyes rolled back as she moaned, feeling the tip of Qingyi’s member reach the depths of her womb. His hips collided with her body with a wet smack.</p>
 
@@ -27,7 +27,7 @@ chapter = 469
 
 <p>Her hands moved, grabbing the grass beside her. Her huge, heavy breasts swayed freely against her delicate torso as Qingyi mercilessly fucked her tight, fat, pussy.</p>
 
-<p>“Aghnn~~ you… hubby… b-be gentler, nghnnn~~ I can’t take it aghnn~~ anymore- ah!”</p>
+<p>“Aghnn you… hubby… b-be gentler, nghnnn I can’t take it aghnn anymore- ah!”</p>
 
 <p>Without responding to Ruxue’s moans, Qingyi grabbed her hips, spinning her around on his lap.</p>
 
@@ -37,7 +37,7 @@ chapter = 469
 
 <p>Ruxue blushed as her torso rose, her hips still arched, and her breasts now hanging heavily from her delicate body.</p>
 
-<p>“Y-yes… you nghnn~~ never fail to remind us of that…” Ruxue gasped.</p>
+<p>“Y-yes… you nghnn never fail to remind us of that…” Ruxue gasped.</p>
 
 <p>She felt Qingyi’s waist hitting her buttocks freely now. Each impact caused her entire body to be thrown forward before bouncing back against his hips.</p>
 

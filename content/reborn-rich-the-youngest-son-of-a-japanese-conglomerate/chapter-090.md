@@ -6,7 +6,7 @@ chapter = 90
 +++
 
 <p>When I entered the Human Resources Development Institute's home after a few days, Yukiko greeted me. It was just past 8 o'clock, the time when the housekeeper ajumma works, so Yukiko wasn't worried about the eyes around her and hugged me as soon as she saw me.</p>
-<p>"Ryuta~! Welcome back?"</p>
+<p>"Ryuta! Welcome back?"</p>
 <p>"Yes, I'm back. Thanks to you, Yukiko-ssi, I was able to handle the work well."</p>
 <p>As Yukiko hugged me, Yukiko's two huge love sacks pressed against my body, making me feel happy. Home is good after all. I haven't lived in this house at the Human Resources Development Institute for very long, but it feels like my home because it's the longest I've lived anywhere since the possession.</p>
 <p>And having a beautiful mama with a great body waiting for me is the icing on the cake.</p>
@@ -66,7 +66,7 @@ chapter = 90
 <p>Yukiko first stuck out her tongue and licked from the base of the shaft to the glans. It was ticklish and felt so good that my butt naturally tightened.</p>
 <p>Yukiko licked for a while, making my cock soaked with saliva, and looked at the shiny cock with satisfaction for a while, and then put it in her mouth.</p>
 <p>Seeing Yukiko doing fellatio while shaking her head back and forth while looking at me, I felt like my cock was going to explode. I also put my foot between Yukiko's squatting legs to make her feel good and started rubbing her pussy with my thumb.</p>
-<p>"Huuuum...! Uuuum~!!"</p>
+<p>"Huuuum...! Uuuum!!"</p>
 <p>I don't know what she's saying because she has my cock in her mouth. I thought she meant to keep going, so I rubbed it a little harder, and she spat out my cock.</p>
 <p>"Stop it...! I can't concentrate because it feels so good."</p>
 <p>"Okay."</p>

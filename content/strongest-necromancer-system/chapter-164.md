@@ -24,7 +24,7 @@ chapter = 164
 <p>Yulyv narrowed his eyes at the Moonlight Wolf and he realized that there was something more to them than what he was seeing. Moonlight wolves weren’t normally this strong unless they were the leader of their pack, and there was no way three pack leaders would be working together like this!</p>
 <p>’Is there a master tamer around here? And why don’t they die when I stab them? They definitely aren’t normal!’</p>
 <p>They had to change their tactic!</p>
-<p>Whistle~</p>
+<p>Whistle</p>
 <p>Yulyv let out a complicated whistle towards the other phantoms and they acknowledged his order silently as they continued their fight! Yulyv fell back and melted into the shadow behind him as he started to make his way towards Riyala and one of the phantoms that was currently fighting Riyala broke off and changed places with Yulyv so he was facing the moonlight wolf!</p>
 <p>Yulyv appeared from the shadow outside the blue flames surrounding Riyala and Gina and he clapped his hands and called on his mana! Yulyv was from a world of desert wanderers who utilized wind magic to harvest spice and rare metals, so the moment his mana surged out of him, a gale of wind blew through the room!</p>
 <p>WOOSH!</p>

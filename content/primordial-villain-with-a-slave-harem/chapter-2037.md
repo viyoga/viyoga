@@ -10,7 +10,7 @@ chapter = 2037
 <p>"Our daughter walks all over you whenever she feels like it."</p>
 <p>Quinlan raised a finger to his lips, looking pointedly at Vex.</p>
 <p>The witch giggled.</p>
-<p>"You may silence your wife, but she speaks the truth nonetheless~"</p>
+<p>"You may silence your wife, but she speaks the truth nonetheless"</p>
 <p>At the kitchen doorway, Nessa stopped with the tea tray in her hands.</p>
 <p>The three adventurers were staring at Black.</p>
 <p>"You’re a father?!" Tavi blurted.</p>
@@ -52,7 +52,7 @@ chapter = 2037
 <p>Ayame stopped in front of him with a plate balanced on her palm. She offered him a pastry, then pulled it back when he reached for it.</p>
 <p>"Won’t you let me feed you, husband?"</p>
 <p>He obediently opened his mouth.</p>
-<p>"Good boy~ Today you haven’t caused any issues... yet."</p>
+<p>"Good boy Today you haven’t caused any issues... yet."</p>
 <p>Across the room, Tavi watched him take a bite from the samurai’s fingers. Brena said something into her ear, receiving a wounded look in return.</p>
 <p>Quinlan chuckled around his mouthful.</p>
 <p>"Enjoying yourself?" Ayame asked, receiving a nod in return.</p>
@@ -70,7 +70,7 @@ chapter = 2037
 <p>Nessa tucked the empty serving tray under her arm and turned toward the kitchen, only for Lucille to hold out a croissant.</p>
 <p>"Would you like one?"</p>
 <p>"Thank you, my lady, but I shouldn’t eat while serving the guests. There’s still work to-"</p>
-<p>"Oops~"</p>
+<p>"Oops"</p>
 <p>Lucille tucked one end of the croissant between the maid’s parted lips.</p>
 <p>"Mmph!"</p>
 <p>Nessa caught the pastry in her free hand. Her cheeks flushed as she narrowed her eyes at the woman smiling so innocently before her.</p>

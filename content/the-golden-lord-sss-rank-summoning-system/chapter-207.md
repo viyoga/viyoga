@@ -12,7 +12,7 @@ chapter = 207
 <p>"Don’t feel pressured; you’ve only been studying for two months. On the rest of the continent, many noble children study magic for five or six years before they’re introduced to more refined notions of mana control, like this one."</p>
 <p>Ethan’s voice echoed behind Veronica, making her shiver from head to toe.</p>
 <p>Her face flushed intensely, and she almost lost control of her mana for a moment.</p>
-<p>"Calm down, dear. I also want to throw myself into husband’s arms right now, but we can’t collapse every time we see him, can we? Hehe~" Alice gave a mischievous giggle to her apprentice, who shuddered yet again.</p>
+<p>"Calm down, dear. I also want to throw myself into husband’s arms right now, but we can’t collapse every time we see him, can we? Hehe" Alice gave a mischievous giggle to her apprentice, who shuddered yet again.</p>
 <p>"I-it’s not what you’re thinking, I just..." Veronica fell silent, then forced her eyes back into focus.</p>
 <p>Lord Ethan was watching her now. She couldn’t let him down!</p>
 <p>As she pointed her hand toward Alice, a fireball appeared before her, crackling unsteadily in the warm air.</p>

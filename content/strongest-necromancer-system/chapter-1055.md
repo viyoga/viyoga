@@ -5,10 +5,10 @@ weight = 1055
 chapter = 1055
 +++
 
-<p>"Shhhh~"</p>
+<p>"Shhhh"</p>
 <p>Riyala calmed the dragon down with just a sound, and the dragon shook his head a few times as his anger slowly began to fade away before he brought his head forward and allowed Riyala to pet it gently. Riyala pressed her forehead against the dragon, and she hugged it close while speaking in a calm tone.</p>
 <p>"Calm down. We just want to help you. Something is coming. Something dangerous. If you stay here, you and your family will all be killed. We must leave for a safer world."</p>
-<p>GRUMBLE~!</p>
+<p>GRUMBLE!</p>
 <p>The dragon let out a deep rumbling sound from its chest, and Riyala smiled sadly as she understood. The dragon was reluctant to leave this forest because this was where it grew up and also where it was raising its children. The dragon thought that it was powerful enough to handle any enemy that came to harm its family. But Riyala knew that this was one enemy that no one could hope to defeat!</p>
 <p>"I’m sorry, little one. But you cannot defeat this enemy. I order you as your priestess and the highest authority in your colony. Gather your family and the families of all the other dragons and prepare them to evacuate this world. No one else will enter this forest while you get ready. I swear it."</p>
 <p>The dragon let out another low grumble in annoyance when it heard this, but now that Riyala had used her authority as the priestess, the dragon no longer had a choice but to obey. The dragon pushed Riyala’s forehead with its own to show that it was not happy, and Riyala hugged it closer and apologised for what was happening. Finally, after a few more seconds of hesitation, the dragon grunted and turned around before letting out a roar toward the other male dragons!</p>

@@ -123,11 +123,11 @@ Narrowing his eyes and looking at the gate, this was the same one from which Lit
 
 As Lith thought that and gazed at the people, a sudden shrill voice broke his train of thoughts.
 
-"KIIIII!~"
+"KIIIII!"
 
 "WELCOME TO THE REAL TRIAL!"
 
-"KIIIII!~"
+"KIIIII!"
 
 A phoenix-like giant orange bird roamed the skies and shrieked, grabbing everyone's attention.
 

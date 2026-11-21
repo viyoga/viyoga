@@ -42,7 +42,7 @@ chapter = 436
 <p>Arwen was already on her feet, and in the next instant she threw herself into Ethan’s arms.</p>
 <p>He welcomed her with open arms.</p>
 <p>The elf’s soft, warm body pressed against his, the swell of her massive breasts cushioning against his chest, and the fresh scent of green leaves that always seemed to follow her enveloped him completely.</p>
-<p>"Husband... I’m so glad you came. It took a little longer than expected, fufufu~" The beautiful elf gave a soft chuckle against his chest, her arms wrapped around his neck.</p>
+<p>"Husband... I’m so glad you came. It took a little longer than expected, fufufu" The beautiful elf gave a soft chuckle against his chest, her arms wrapped around his neck.</p>
 <p>"I know, I ended up taking a little longer than I wanted at the fortress, but everything’s ready now," Ethan said, his eyes falling on the small, hastily built church.</p>
 <p>"Shall we?" he asked.</p>
 <p>"Yes." Arwen nodded, revealing a gentle, happy smile.</p>

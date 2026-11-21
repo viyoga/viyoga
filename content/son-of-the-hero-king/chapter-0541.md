@@ -60,10 +60,10 @@ chapter = 541
 <p>A circular table implied equality between all members while a rectangular table implied a clear hierarchy. The most important place was obviously the ends of the table.</p>
 <p>Each end represented a side and the two sides were equal or antagonistic. All those on the sides were just that — Side characters.</p>
 <p>It was a rather simplification of the matters. But Befana knew that she did not need to think more about it.</p>
-<p>Step~</p>
+<p>Step</p>
 <p>Here, high in space, it was incredible to even hear something akin to someone stepping on the ground.</p>
 <p>But — They were sure they all heard it.</p>
-<p>Whoosh~!</p>
+<p>Whoosh!</p>
 <p>Some of the witches groaned while many lowered their hats to hide their expression of surprise as an overwhelming aura filled the space.</p>
 <p>The chair was pulled and a young man took place at the other end.</p>
 <p>He was a handsome young boy and had a genial smile on his face, giving the impression that he wouldn’t even hurt a bug.</p>

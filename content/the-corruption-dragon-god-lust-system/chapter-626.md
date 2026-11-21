@@ -89,7 +89,7 @@ chapter = 626
 
 <p>Qingyi savored that sight for a moment before realizing that Rou’er had already thrown herself at him, pressing her lips against his in a clumsy and completely inexperienced kiss.</p>
 
-<p>“Just marking my territory, hehehe~~” She gave a sweet little laugh, turned her back, and disappeared shortly after.</p>
+<p>“Just marking my territory, hehehe” She gave a sweet little laugh, turned her back, and disappeared shortly after.</p>
 
 <p>He could no longer detect her, neither with his spatial abilities nor with his draconic eyes.</p>
 

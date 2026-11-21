@@ -22,10 +22,10 @@ chapter = 551
 <p>RIP!</p>
 <p>WOOOOSSSHH!!</p>
 <p>Jason and Gina immediately put their hands up to their faces as they felt an intense winter breeze shoot out from the dimensional tear and slam into them! The breeze was so intense that Jason could feel the cold reaching into his literal bones! Jason had never even felt a cold ever since he became a superhuman, and now that he was a TITAN, he knew that it would be impossible for any regular winter breeze to affect him! But this one was nothing like what Jason was used to! This couldn’t be normal!</p>
-<p>Crackle~! Crackle~! Crackle~!</p>
+<p>Crackle! Crackle! Crackle!</p>
 <p>Jason looked down, and he stepped back in shock when he saw the ground literally freezing over from the intense breeze! What the actual fuck was this? The system immediately came up with an explanation.</p>
 <p>[The user is about to step into the territory of the [Beast of the Apocalypse]. The user must keep in mind that the Beast is a very territorial being, and in the event that it senses your magic or presence in its territory, it will do everything in its power to put an end to you.]</p>
 <p>’So this is the power of a TITAN Rank Beast?’</p>
 <p>Jason looked up at the dimensional tear once again, and he could only imagine what the world on the other side of that portal would be like. Jason knew that if he left this portal open for too long, then this entire world would be overrun by the cold, and it was likely going to be frozen before the week was over! So Jason quickly pulled his mana back and watched as the dimensional tear shut down!</p>
-<p>"Brrrrrr~! My god, that was freezing!"</p>
+<p>"Brrrrrr! My god, that was freezing!"</p>
 <p>Gina cried out from beside Jason while rubbing her arms together.</p>

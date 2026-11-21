@@ -19,7 +19,7 @@ chapter = 597
 
 <p>After all, that was her own daughter; discussing her intimate affairs with her lover was awkward, no matter how shameless she usually was.</p>
 
-<p>&quot;Then you&#x27;ll have to tell her, you know, that high-protein is very nutritious and great for the skin~&quot;</p>
+<p>&quot;Then you&#x27;ll have to tell her, you know, that high-protein is very nutritious and great for the skin&quot;</p>
 
 <p>After teasing Blanche for a bit, Luis kissed her goodbye. She had to head to the bar for a meeting in the afternoon, as she was now a key member of the bar&#x27;s management team.</p>
 

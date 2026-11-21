@@ -17,7 +17,7 @@ chapter = 326
 <p>Many men dreamed of the chance to merely gaze upon such beauties from afar, but Ethan had them right there, competing for every centimeter of space on his lap.</p>
 <p>Hidden beneath the water, his hands were buried up to his wrists in large, heavy breasts, his fingers kneading that creamy flesh in slow circles.</p>
 <p>He could feel every little tremor rippling through the plush mounds with each firm squeeze, the water making them feel even more soft against his palms.</p>
-<p>"Mhmmmm~~" Amelia moaned, her voice sweet and slurred by alcohol. "Ethan... what’s this silly little hand doing?" she asked languidly, feeling his right hand—firm and strong—sink into one of her enormous breasts, his fingers disappearing completely into the creamy softness.</p>
+<p>"Mhmmmm" Amelia moaned, her voice sweet and slurred by alcohol. "Ethan... what’s this silly little hand doing?" she asked languidly, feeling his right hand—firm and strong—sink into one of her enormous breasts, his fingers disappearing completely into the creamy softness.</p>
 <p>His digits closed around a puffy, plump nipple, squeezing and twisting the stiff peak between his thumb and index finger, drawing a gasping moan from Amelia’s throat as her breast quivered against his palm.</p>
 <p>Her high, noble cheeks were as red as ripe tomatoes, her mature, elegant face transformed into a mask of pure lewdness, her parted lips letting out trembling breaths.</p>
 <p>Ysara was in no better state, whimpering softly with each squeeze Ethan gave her breasts. Though considerably smaller than Amelia’s, they were still far too large for his hands to fully encircle, the firm flesh spilling between his fingers like warm cream at every knead.</p>
@@ -41,9 +41,9 @@ chapter = 326
 <p>With both beauties resting in his arms, he stepped out of the water and helped them put on their shoes and wrap themselves in soft towels.</p>
 <p>Then, supporting them on his shoulders, he guided them through the palace’s wide corridors to his bedroom, each step accompanied by the soft tinkling of their tipsy giggles.</p>
 <p>"Is everything okay?" he asked in a sweet voice, his hands resting directly beneath both of their breasts, cradling the generous weight of each.</p>
-<p>"Hm... as long as I’m with my Ethan, everything’s fine, fufufu~" Amelia replied, her trembling arms wrapping around his.</p>
+<p>"Hm... as long as I’m with my Ethan, everything’s fine, fufufu" Amelia replied, her trembling arms wrapping around his.</p>
 <p>One of her pink nipples slipped free from beneath the towel, which hugged her breasts so tightly it carved deep grooves into the creamy skin of her massive tits, the ample flesh spilling over the edge of the fabric.</p>
-<p>"Me too... hehehe~" Ysara gave a soft chuckle, and as Ethan used his Aura to open the bedroom door, she leaned against his shoulder, her lips gently touching his strong neck.</p>
+<p>"Me too... hehehe" Ysara gave a soft chuckle, and as Ethan used his Aura to open the bedroom door, she leaned against his shoulder, her lips gently touching his strong neck.</p>
 <p>"My Ethan is the best of all... so hot and..." Her free hand wandered downward, finding the bulge between his legs and squeezing it firmly.</p>
 <p>Her delicate fingers could barely encircle the thick, heavy cock through the towel, feeling it throb and swell against her palm in response to her drunken touch.</p>
 <p>"Hey..." Amelia grunted, furrowing her brow. "That’s mine! My Ethan!" She batted Ysara’s hand away, the gesture possessive and slightly irritated.</p>

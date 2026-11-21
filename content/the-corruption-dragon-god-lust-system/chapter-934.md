@@ -99,7 +99,7 @@ chapter = 934
 
 <p>She was carrying a little baby with black horns—a miniature version of the young man’s—and eyes of the same color, though far more beautiful.</p>
 
-<p>"Spank ’im, Dadda! Hehehe~" Lingxi babbled before bursting into laughter, clapping her chubby little hands together, thoroughly amused to see that evil man suffer.</p>
+<p>"Spank ’im, Dadda! Hehehe" Lingxi babbled before bursting into laughter, clapping her chubby little hands together, thoroughly amused to see that evil man suffer.</p>
 
 <p>"As you wish, my princess."</p>
 

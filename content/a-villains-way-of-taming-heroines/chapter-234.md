@@ -14,7 +14,7 @@ chapter = 234
 <p>Who could resist the unreserved desire of a loved one?</p>
 <p>— If only he were a bit more normal, not doing such things in front of others...</p>
 <p>Never mind, it's of course that Revenna would be claimed by Ansel. After yesterday's incident, she would never be able to hold her head high in front of me again, hmph!</p>
-<p>And looking at her, she can't withstand Ansel's torment, collapsing in half an hour at most, unlike me~</p>
+<p>And looking at her, she can't withstand Ansel's torment, collapsing in half an hour at most, unlike me</p>
 <p>The girl's possessiveness took the high ground in strange places, and recalling Ansel's chastisement yesterday, her tall figure shivered slightly on the bed.</p>
 <p>"... At this rate, I'll become an idiot."</p>
 <p>Seraphina gently touched the collar around her neck, muttering with both happiness and worry, "Why hasn't Ansel let me do anything since we arrived in the capital? It makes me feel so useless."</p>

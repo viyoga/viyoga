@@ -16,7 +16,7 @@ chapter = 1460
 <p>The thought alone was dangerously appealing.</p>
 <p>Ayame shifted then, turning slightly to wrap her arms around him in a tight, earnest hug that saw her cheek brushing against his chest as she spoke.</p>
 <p>"I'd argue it's been more than three weeks of endless hardships. Your battle with Nyxara was anything but relaxing, after all."</p>
-<p>"Hehe~ Maybe I did work you a bit hard…" Nyxara's voice purred in his mind, instantly filed away to irrelevance as Quinlan ignored her.</p>
+<p>"Hehe Maybe I did work you a bit hard…" Nyxara's voice purred in his mind, instantly filed away to irrelevance as Quinlan ignored her.</p>
 <p>Ayame tilted her head up to look at him. Her expression was stripped of playfulness, crystal-blue eyes steady and warm as they met his.</p>
 <p>"I might joke a lot," she murmured with her thumb brushing lightly against his side beneath the water. "I tease, and I provoke, and I pretend." Her voice lowered just a touch. "But I want you to know this." A pause came.</p>
 <p>Her eyes shone with nothing but utmost sincerity.</p>

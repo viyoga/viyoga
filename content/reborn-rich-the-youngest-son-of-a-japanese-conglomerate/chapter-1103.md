@@ -11,14 +11,14 @@ chapter = 1103
 <p>Tsukiyo, who was driving, said. Looking Outside the window, stately black Sedans, similar to the one they were in, were lined up, heading towards the Taira Main family. As expected, there were more customers when the Successor's Son died than when the Successor himself died.</p>
 <p>"Next time, should we take a Helicopter in this kind of Situation?"</p>
 <p>Suddenly, feeling that the time wasted on the Road was a shame, he mentioned buying a Helicopter. Originally, he had enough funds, and with the Behemoth bounty earned in the USA this time, he had enough Money to purchase several Helicopters, so there was no worry about funds.</p>
-<p>"That sounds good too~! Then.... I'll have to get a Helicopter license, won't I?"</p>
+<p>"That sounds good too! Then.... I'll have to get a Helicopter license, won't I?"</p>
 <p>Tsukiyo seemed quite intrigued by my proposal. Seeing as she looked ready to get a Helicopter license right away.</p>
 <p>She loved learning so much that even a Helicopter license seemed like quite a challenge to her.</p>
 <p>"That would be fine. Yongtae-nim's time is important, after all."</p>
 <p>Linxiang also nodded her Head with a serious Expression, agreeing to my proposal. If even Linxiang agreed, I'd have to seriously consider it.</p>
 <p>"Now that the Main family is starting to come into view, let's seriously consider the Helicopter Matter later.... I need to sharpen my Sensitive Nerves."</p>
 <p>Arriving at the Taira Main family Mansion, which was practically a Den of iniquity, he had to be careful with his actions. Even if he was Taira Danjo's Youngest Grandson.</p>
-<p>"We've arrived~!"</p>
+<p>"We've arrived!"</p>
 <p>"Okay. Thanks for your hard Work today too."</p>
 <p>"Don't worry. I'll be downloading and looking at the Helicopter Textbook."</p>
 <p>He was worried about Tsukiyo, who would be alone guarding the Car again today, so he asked her to bear the trouble, but Tsukiyo seemed to have already entered study Mode. Seeing as she was already searching for a Helicopter control Textbook on her phone.</p>
@@ -77,8 +77,8 @@ chapter = 1103
 <p>"Oh...!"</p>
 <p>Shinonome Zen also seemed a little surprised when his Granddaughter approached me. Seeing that stubborn-looking Elderly Person involuntarily make a sound of surprise.</p>
 <p>Since there were no requests today, I decided to create the author's Christmas special illustrations as I pleased, hehe.</p>
-<p>Rudolph Matsunaga Yuzuki~!</p>
-<p>Christmas Tree Nagumo Sian~!</p>
+<p>Rudolph Matsunaga Yuzuki!</p>
+<p>Christmas Tree Nagumo Sian!</p>
 <p>I didn't know there was a Christmas Tree Costume, hehehehe.</p>
-<p>Succubus Yukiko Santa~!</p>
+<p>Succubus Yukiko Santa!</p>
 <p>As expected, she's a mommy, hehe.</p>

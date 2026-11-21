@@ -95,6 +95,6 @@ chapter = 703
 <p>I had written down the things I needed while listening to Eve's explanation just now, and I handed the memo to Han Yu-gyeong. Han Yu-gyeong tilted her head when she saw the memo, but soon nodded as if she understood, handed the memo to the secretary outside, and ordered food.</p>
 <p>_______</p>
 <p>Family Teacher Pics requested by Refund Not Allowed-nim!</p>
-<p>Garter belt thigh flex~!</p>
+<p>Garter belt thigh flex!</p>
 <p>Skirt lifting temptation</p>
-<p>Armpit flex~! hehehe</p>
+<p>Armpit flex! hehehe</p>

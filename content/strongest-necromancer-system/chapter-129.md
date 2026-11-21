@@ -37,7 +37,7 @@ chapter = 129
 <p>"I can assure you of one thing. We fear nobody."</p>
 <p>"Then why don’t you walk into his home and see what happens."</p>
 <p>The agent said nothing, and Gina almost felt like laughing. She couldn’t believe she had been worried for a moment there!</p>
-<p>"You’re scared of him. Of what he can do to you if you make him your enemy. That’s why you came to talk to me instead of going to threaten him. You want me to convince my boyfriend to give her to you. Haha~ You know, they always made secret agents look so tough in the movies, but in the real world, you’re just full of shit."</p>
+<p>"You’re scared of him. Of what he can do to you if you make him your enemy. That’s why you came to talk to me instead of going to threaten him. You want me to convince my boyfriend to give her to you. Haha You know, they always made secret agents look so tough in the movies, but in the real world, you’re just full of shit."</p>
 <p>The agent’s hand squeezed into a fist even though his face remained perfectly calm. Gina was right about them not wanting to meet and antagonize Jason, but hearing her say that they were afraid of him irritated the agent! They didn’t fear anyone!</p>
 <p>Vroom!</p>
 <p>The sound of a bike pulling up to the diner echoed through the road, and all the patrons in the diner turned to watch Jason park his motorcycle in the lot. The agent turned to his right to see Jason glaring at him with blood-red eyes while getting off his bike! Jason calmly started to walk towards the door with an intense aura around him, and the agent realized it was time to go.</p>

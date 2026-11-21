@@ -70,8 +70,8 @@ chapter = 1010
 <p>"Now that I've taken off all my Clothes, you're going to lick my Body with your tongue as Kirie said, right?"</p>
 <p>"I'll lick every nook and cranny...♥"</p>
 <p>Kurayamada Kirie said she would lick every nook and cranny, but as soon as I became naked, she put my cock in her mouth. Seeing her suck on the sausage right away, it seemed she was the Style to eat the delicious stuff first.</p>
-<p>Kirie B-cut~!</p>
-<p>Chomisaemeonji-nim requested Bunny Girl, Reverse Bunny Girl Liz~!</p>
-<p>Bunny Girl~!</p>
-<p>Reverse Bunny~!</p>
-<p>Kkiyot~!</p>
+<p>Kirie B-cut!</p>
+<p>Chomisaemeonji-nim requested Bunny Girl, Reverse Bunny Girl Liz!</p>
+<p>Bunny Girl!</p>
+<p>Reverse Bunny!</p>
+<p>Kkiyot!</p>

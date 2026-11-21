@@ -24,7 +24,7 @@ chapter = 1819
 <p>Refreshments arrived in the hands of maids who shook exactly as much as the salon stylists had. The Holy Son’s effect on the citizenry had not weakened one bit after stepping through the palace grounds, and word of his walk through the capital had clearly beaten them to the palace.</p>
 <p>Then a whole gang of stewards appeared at the queen’s elbow with a stack of scrolls, and the morning’s warmth died a bureaucratic death.</p>
 <p>The Queen of the Elves looked at her palace, her canopy ceiling, her assembled staff, and accepted her fate.</p>
-<p>"How long will all that important nation business take~?" Seraphiel asked sweetly.</p>
+<p>"How long will all that important nation business take?" Seraphiel asked sweetly.</p>
 <p>Myrasyn looked at the cheeky elf. The cheeky elf looked back, all innocence.</p>
 <p>The queen understood precisely what was being asked.</p>
 <p>"...You will likely have a day of free time," she grumbled.</p>

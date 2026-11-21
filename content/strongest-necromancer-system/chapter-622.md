@@ -24,7 +24,7 @@ chapter = 622
 <p>A loud voice suddenly came from behind, and they both turned around to see a small army of natives with red skin and yellow eyes. The natives were all pointing weapons at them threateningly, and Jason’s eyes narrowed in anger! That small action made almost all the natives take a step back in fear, and Jason couldn’t help but sigh in amusement when Gina suddenly said:</p>
 <p>"Hey, maybe we can ask them for some food?"</p>
 <p>.....</p>
-<p>"Ugh~!"</p>
+<p>"Ugh!"</p>
 <p>Stella let out a small groan as she slowly came back to consciousness, and she put her hand on her head as she felt a headache slamming against her skull. It felt like someone hit her head with a metal bat. What in the world happened to her? Stella tried getting up, and she felt a hand on her shoulder holding her down before she heard Sagarda speaking softly.</p>
 <p>"Be careful, Stella. You’ve been unconscious for a while."</p>
 <p>Stella opened her eyes and looked over at Sagarda. Her vision was slightly blurry because of the headache, but Stella managed to focus, and she pushed Sagarda back a little so she could sit up. Stella held her head and grunted before she spoke.</p>

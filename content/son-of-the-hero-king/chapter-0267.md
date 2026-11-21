@@ -52,7 +52,7 @@ chapter = 267
 <p>*Gulp*</p>
 <p>‘This is supposed to go in me?’</p>
 <p>Kiyohime felt a weird mixture of fear and excitement and the tingling in her lower part became stronger.</p>
-<p>“Ah~!”</p>
+<p>“Ah!”</p>
 <p>She suddenly felt a shiver of pleasure when a finger poked her at a very specific place.</p>
 <p>“Sol!?”</p>
 <p>“Don’t mind me. Continue what you were doing.”</p>

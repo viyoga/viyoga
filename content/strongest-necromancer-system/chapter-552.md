@@ -5,7 +5,7 @@ weight = 552
 chapter = 552
 +++
 
-<p>"Brrrrrr~! Oh god, that was freezing!"</p>
+<p>"Brrrrrr! Oh god, that was freezing!"</p>
 <p>Gina cried out from beside Jason while rubbing her arms together, and Jason narrowed his eyes as he came up with a quick plan. Jason knew that he would have to move really fast if he wanted to cross through the territory of that beast without alerting it to his presence, so he didn’t think he could afford to take Gina with him in there. In truth, Jason would have loved to fight against the [Beast of the Apocalypse]! It was the first TITAN Rank being that he was meeting on his journey, and he wanted to test himself against it and see if he could win. But Jason also knew that it would be a waste of time! Jason was in a hurry to reach Riyad and finish his mission, and spending time here was only going to slow him down. Instead, Jason was going to suppress his mana and pass through all the territories of this beast without issues. Jason turned to Gina and spoke calmly.</p>
 <p>"I need you to go into the Alternate Dimension."</p>
 <p>Gina frowned when Jason said this, and even though Gina was able to immediately understand why Jason wanted her to do such a thing, she couldn’t help but be worried about him.</p>

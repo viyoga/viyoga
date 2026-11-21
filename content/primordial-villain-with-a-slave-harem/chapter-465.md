@@ -11,7 +11,7 @@ chapter = 465
 <p>Find more chapters on empire</p>
 <p>I smiled at the words of this poor, tortured soul. "Good. I'm happy that you get to experience new things."</p>
 <p>"Should we bow? I once saw a theatre play while I was in the army and the performers bowed at the end." She asked very innocently.</p>
-<p>Her currently displayed adorable antics pained my heart in a way. In this moment, it was so damn clear to me just how much loss this woman had gone through. She might be a ~27 years old adult in body, but her mind was robbed of many opportunities to develop due to her extreme failure of a father.</p>
+<p>Her currently displayed adorable antics pained my heart in a way. In this moment, it was so damn clear to me just how much loss this woman had gone through. She might be a 27 years old adult in body, but her mind was robbed of many opportunities to develop due to her extreme failure of a father.</p>
 <p>In a way, she was still the same little girl who was imprisoned in the basement and then tormented for a decade straight. The fact that she was so lost on what to do in this very basic social situation displayed this perfectly.</p>
 <p>Even after she managed to kill her father, she was still just a lost, orphaned girl who was entirely alone in this cruel world. She somehow had to find her way in life, which led her to the army. I imagine that such a place is not the most ideal to develop one's sense of self.</p>
 <p>"I decided to become a criminal in part so that I would never have to bow to anyone. However, there's no shame in doing so in this instance. Go ahead if you want." I told her.</p>

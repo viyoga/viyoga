@@ -91,13 +91,13 @@ chapter = 216
 
 <p>Her huge breasts hit his chest with a soft pop, the soft flesh fluttering lightly against his chest, enveloping him in a warm, obscene embrace.</p>
 
-<p>“Nghnn~~ won’t the husband want my breakfast?” She blushed, putting the tray aside as she held onto Qingyi’s neck, arching her back and offering her huge bosoms to him.</p>
+<p>“Nghnn won’t the husband want my breakfast?” She blushed, putting the tray aside as she held onto Qingyi’s neck, arching her back and offering her huge bosoms to him.</p>
 
 <p>“I want… Just not that breakfast.” Qingyi smiled as he grabbed her breasts with both hands, pulling up her dress and revealing her pink nipples.</p>
 
 <p>Without hesitation, Qingyi squeezed her tits until the pink nipples met before opening his mouth and taking them between his lips, sinking his face into that sea of incomparable softness.</p>
 
-<p>“Mghnn~~ G-gentler.” Elize gasped as she grabbed Qingyi’s head, pulling him even tighter against her delicate torso.</p>
+<p>“Mghnn G-gentler.” Elize gasped as she grabbed Qingyi’s head, pulling him even tighter against her delicate torso.</p>
 
 <p>She felt the weight of her huge breasts disappear in his firm, possessive grip as her nipples released a flood of sweet, Qi-rich milk into his mouth.</p>
 
@@ -111,7 +111,7 @@ chapter = 216
 
 <p>Her breasts followed the movement of his head to the edge of their elasticity, where the pink nipples escaped his lips with a wet pop.</p>
 
-<p>“Ahhh~” she moaned softly as their huge masses of flesh bounced against her delicate torso, shimmering like a rough, obscene sea.</p>
+<p>“Ahhh” she moaned softly as their huge masses of flesh bounced against her delicate torso, shimmering like a rough, obscene sea.</p>
 
 <p>Observing that beautiful sight, Qingyi looked towards the horizon.</p>
 

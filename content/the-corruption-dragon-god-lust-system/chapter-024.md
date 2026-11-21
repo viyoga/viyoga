@@ -31,7 +31,7 @@ chapter = 24
 
 <p>’This girl…’ He grabbed her slim, delicate waist, lifting her up before slapping her ass hard, shock waves spreading as the plump flesh shook under his fingers.</p>
 
-<p>“Ahh~!” She let out a high-pitched, surprised cry, more like a moan of pleasure as she was taken by Qingyi’s strong arms.</p>
+<p>“Ahh!” She let out a high-pitched, surprised cry, more like a moan of pleasure as she was taken by Qingyi’s strong arms.</p>
 
 <p>“What? Husband doesn’t like my tanned skin?” She snuggled into her lover’s arms.</p>
 
@@ -41,7 +41,7 @@ chapter = 24
 
 <p>“Do I really need to talk?” He grabbed one of her breasts, feeling its perfect weight and softness. “Dressing like that, so openly and so early… your husband needs to cultivate too, you know? Do you want me to spend the rest of my life just fucking you until I can’t take it anymore?”</p>
 
-<p>“Mmm~ Yes!” A big smile came over her face, as if Qingyi had had the best idea of his life. The next moment her gaze changed, and her smile turned into a muffled laugh.</p>
+<p>“Mmm Yes!” A big smile came over her face, as if Qingyi had had the best idea of his life. The next moment her gaze changed, and her smile turned into a muffled laugh.</p>
 
 <p>“What?”</p>
 
@@ -51,7 +51,7 @@ chapter = 24
 
 <p>“An arrogant, degenerate man who wants a collection of beauties so gorgeous and powerful that they would make the world tremble with a single smile.” Qingyi didn’t even have to think before answering that, it was quite clear.</p>
 
-<p>“Hmm~ And I’m one of those beauties?” She purred, her lips lightly touching his.</p>
+<p>“Hmm And I’m one of those beauties?” She purred, her lips lightly touching his.</p>
 
 <p>“Yes, you’re the first of them…” He responded to her touch, kissing her deeply.</p>
 
@@ -77,7 +77,7 @@ chapter = 24
 
 <p>He grabbed one of her breasts, opening his mouth wide and taking it into his lips ravenously.</p>
 
-<p>“Mmmph~! Aren’t you going to leave anything for our future children?” Feiyan moaned, clutching his head for support, her fingers getting lost in his hair.</p>
+<p>“Mmmph! Aren’t you going to leave anything for our future children?” Feiyan moaned, clutching his head for support, her fingers getting lost in his hair.</p>
 
 <p>“I’ll pay for a wet nurse for him, you’re all mine!” Qingyi smiled after a big gulp, feeling the Qi-rich, sweet and creamy liquid go down his throat, he really was getting addicted to it.</p>
 
@@ -93,7 +93,7 @@ chapter = 24
 
 <p>“I’m going to miss you.” Qingyi hugged her one last time, breathing in the natural scent of her skin.</p>
 
-<p>“Mmm~… you know I hardly go much further than an hour’s walk, right?” She smiled, feeling Qingyi’s warmth envelop her.</p>
+<p>“Mmm… you know I hardly go much further than an hour’s walk, right?” She smiled, feeling Qingyi’s warmth envelop her.</p>
 
 <p>It was pleasant… something she had never felt in her life.</p>
 

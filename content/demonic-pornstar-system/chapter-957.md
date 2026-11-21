@@ -20,7 +20,7 @@ chapter = 957
 <p>Nyx had three catalogs open in as many seconds and was swiping through executive lounge sets with focused serenity. Aria drifted to her shoulder and began vetoing color schemes without being asked. Alexandra produced an actual spreadsheet from somewhere on her person, titled it, and started a budget column before anyone had agreed to buy anything.</p>
 <p>’They’re in sync,’ Kaiden sighed inwardly, wry. He liked seeing his girls being on the same page, but... was upgrading furniture really that high on the list of importance?</p>
 <p>"Walnut," Aria said. "Warm tones. The light through that wall is gorgeous in the afternoon and I refuse to waste it on gray laminate."</p>
-<p>"Walnut and cream, bestie. Trust me~" Nyx tilted her screen. "Low profiles here, tall shelving on the dead wall, and the reception set faces the doors so visitors sit with their backs exposed. For their psychology."</p>
+<p>"Walnut and cream, bestie. Trust me" Nyx tilted her screen. "Low profiles here, tall shelving on the dead wall, and the reception set faces the doors so visitors sit with their backs exposed. For their psychology."</p>
 <p>"For their psychology," Aria agreed pleasantly.</p>
 <p>Aria swiped past a sectional with visible longing, murmured "Office. Not home. Office," and let it go, a woman being strong.</p>
 <p>Indeed, they were buying furniture for their work space now, not their home, which remained the Abyssal Palace.</p>

@@ -49,7 +49,7 @@ chapter = 1643
 <p>It came in the cadence she only ever used in private. Slow, half-sung, devoted in a register no one else in the universe heard from her.</p>
 <p>&lt;Let me help you, my ruin...&gt;</p>
 <p>A pause.</p>
-<p>&lt;...and for the record. I am very proud of you~&gt;</p>
+<p>&lt;...and for the record. I am very proud of you&gt;</p>
 <p>Quinlan's mouth tilted upwards inside the trance.</p>
 <p>'Hmm.'</p>
 <p>Quinlan let her voice settle against the ritual's spine and kept rising.</p>

@@ -28,17 +28,17 @@ chapter = 454
 <p>“Sigh… Your Highness.”</p>
 <p>Hot sighs leaked out from her as her face became progressively more flushed with each stroke applied over her flowing garden. This was just a pen but since it had his name engraved on it, it gave her a certain immoral feeling about the things she was doing with his belongings.</p>
 <p>Just imagining him using that pen later on without knowing what she did made her shiver and groan with lustful pants. At the same time, it satisfied the deep and twisted desire for monopoly that was hidden in her heart.</p>
-<p>“Nh~!”</p>
+<p>“Nh!”</p>
 <p>How many minutes went by? Perhaps an instant? Or perhaps over a dozen? But she did not care about the time. She simply was not able to. Her feverish face had now become completely dyed in the shades of red. Her eyes had become hazy and her mind was already approaching cloud nine.</p>
 <p>A sweet smell had started to spread in the office room and an ever-growing stain was showing on her already damp panties while a clear liquid started to flow and leak out from the sides.</p>
 <p>Soon, the sensations were not enough for her. She wanted more, way more. She pushed the panties to the side, and gently shoved the pen inside all while imagining it was Sol’s experienced digits finally entering her.</p>
 <p>She felt so ashamed of her actions, but her lust and desire were simply too overpowering for her to give mind to her shame. She imagined that it was Sol using his finger to bring relief to her and she leaked out a sob of pleasure as she reached a new crescendo. Her inner flesh tightened around the pen and she began to accelerate her movements.</p>
 <p>Her thin love liquid flowed incessantly from her place and stained the chair below her;</p>
-<p>“Nh~! Please, more!”</p>
+<p>“Nh! Please, more!”</p>
 <p>Shame was dead as fast as it was born and all that mattered now for her was reaching the peak. An exhilarating feeling of pleasure began to gather towards her lower abdomen.</p>
 <p>Her whole body began to tremble and the rhythm of her breathing increased dramatically.</p>
 <p>She was just a little short. Just a little more and she would reach what she sought…</p>
-<p>“Your Highness~!”</p>
+<p>“Your Highness!”</p>
 <p>“You called?”</p>
 <p>“...”</p>
 <p>“...”</p>

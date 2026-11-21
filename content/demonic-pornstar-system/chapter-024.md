@@ -19,7 +19,7 @@ chapter = 24
 <p>"Yeah, you're hot as hell..." Kaiden declared huskily without an ounce of reservation.</p>
 <p>"?!" The girl gasped with a bashful smile dancing on her pretty lips. "Thanks..."</p>
 <p>She soon began grinding against his shaft earnestly now that she was getting into the mood for real. Luna bobbed her perky butt up and down eagerly while she grabbed the back of his head with both hands to have firmer support.</p>
-<p>"Ah~!" A muted moan escaped her lips, soon followed by others that became louder and louder. "Why is this so good? My toys should be much better than a penis that isn't even inside me... What's more, there's like four layers of clothes between us..."</p>
+<p>"Ah!" A muted moan escaped her lips, soon followed by others that became louder and louder. "Why is this so good? My toys should be much better than a penis that isn't even inside me... What's more, there's like four layers of clothes between us..."</p>
 <p>*Ring ring ring*</p>
 <p>A phone timer buzzed. Three heads snapped in Aria's direction. Her cheeks reddened as she failed to meet anyone's gaze. "Sorry... I started a timer when you've been doing this for a minute already and showed no signs of stopping anytime soon..."</p>
 <p>"Nice cockblock, sis! A girl's gotta yoink the horny sluts off of her boyfriend's lap from time to time, after all! Hahahaha!" Nyx laughed jovially while clutching at her stomach, referencing how Aria pretended to be his girlfriend in front of David.</p>

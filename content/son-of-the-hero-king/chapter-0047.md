@@ -43,7 +43,7 @@ chapter = 47
 <p>The simple fact that she could so perfectly gauge his power was a proof of the gulf that separated them. But, it didn't matter. In the first place, he never thought he could win against her using conventional ways.</p>
 <p>They were so close, they could feel their breath and it was like that, while looking at each other, that Sol talked.</p>
 <p>"Aunt. You know, I really really love you."</p>
-<p>"Wha~!"</p>
+<p>"Wha!"</p>
 <p>'So cute.'</p>
 <p>Her flabbergasted and blushing look at his confession was so cute, but he had a match to win.</p>
 <p>Kicking her in the stomach like she did, since he was all for equal treatment between men and women. He grabbed her feet as she was about to fly away and brought her down hard on the ground.</p>
@@ -57,12 +57,12 @@ chapter = 47
 <p>Searching his gaze, their eyes locked for a short while before her mana sword vanished.</p>
 <p>"Indeed, you have won. Congratulations."</p>
 <p>She didn't seem particularly dejected, but Sol could feel some disappointment in her eyes. It wasn't disappointment in the way he won. Lilith had told him many times that war and battle had no places for silly honor. If you could win by playing dirty then you should do so. This was also why she always wore those clothes when fighting. Men had a hard time giving their all while watching her and she used it to her advantage each time.</p>
-<p>'Ah~!'</p>
+<p>'Ah!'</p>
 <p>"Just so you know, I was serious with my confession. I am aware that now isn't the time and you may not share my feelings. I just wanted to make it clear."</p>
 <p>Saying so, he got up from her and stretched his hand toward her to help her up.</p>
 <p>He had acted on the spur of the moment, but he did not regret it, one should always be honest with their feelings. In this life, he refused to be wishy-washy.</p>
 <p>Lilith's cheeks reddened again, but Sol did not point it out. He knew he didn't let her indifferent, but it was hard to equate it to love.</p>
-<p>"Fufufu~! To think you would be flirting with another woman in front of Edea, you are really bold?"</p>
+<p>"Fufufu! To think you would be flirting with another woman in front of Edea, you are really bold?"</p>
 <p>Sol was a little startled as he felt Freya behind him. He had to force himself to not use a sword in reflex. It seemed like Lilith had beat many good habits necessary for survival in him.</p>
 <p>"Why do you think so? I am doing nothing wrong. In fact, acting behind her back would have been the wrong thing to do. Me acting in front of her is more a mark of respect than acting all sneaky and insulting her intelligence and trust in me."</p>
 <p>A harem wasn't the easiest of the situation. Even though it was the norm in this world, few women would be truly happy to share their men. That's why, for a harem to work, Sol thought honesty was necessary. Well, it was a necessity in any relationship. Even the normal one.</p>

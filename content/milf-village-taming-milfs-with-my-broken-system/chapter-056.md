@@ -91,11 +91,11 @@ chapter = 56
 
 <p>[ .... ]</p>
 
-<p>&quot;Heh, welcome back. So, how about putting those goods on display, my dear tsundere system~&quot; He happily teased the system interface that popped up right in front of his face, cutting off his daydreaming.</p>
+<p>&quot;Heh, welcome back. So, how about putting those goods on display, my dear tsundere system&quot; He happily teased the system interface that popped up right in front of his face, cutting off his daydreaming.</p>
 
 <p>[ Then you need to work harder... much harder than you are doing today. ]</p>
 
-<p>&quot;Figures... How about some sex toys, then~?&quot;</p>
+<p>&quot;Figures... How about some sex toys, then?&quot;</p>
 
 <p>[ You are a shameless host..]</p>
 

@@ -17,7 +17,7 @@ chapter = 684
 <p>"He tanned." His skin used to be white, but now he had healthy brown skin.</p>
 <p>"Yes, he's definitely handsome." Vivian Taylor smiled slightly, looking at the hologram. As an American who appreciated macho beauty, Vivian Taylor liked Taira Ryuta's brown-skinned Appearance. Ignoring the hologram Chip, she turned the page and found a Photo with something written in Japanese. It seemed to be a Photo taken holding a Glass/Cup and looking at the Camera, and when she checked with a translation App, it said "A toast to your pupils".</p>
 <p>"He's handsome and cheesy.... Why on earth did he send me this photocard album?" She couldn't understand why he had sent photos when they had only met once. But the Phrase was quite funny, so Vivian Taylor smiled unconsciously.</p>
-<p>-Junior-nim~! I've sent all the photocard albums as you instructed!</p>
+<p>-Junior-nim! I've sent all the photocard albums as you instructed!</p>
 <p>"Already? That's incredibly fast?" Not long after the festival ended, Mimata Chieri called. As my secretary, she insisted on sending my photocards herself, took the List, and sent them all within a day. -To briefly Report, first, Han Yu-gyeong-ssi, Ha Ju-yoon-ssi, Nae Fitzgerald-ssi, Arisu-ssi, Vivian Taylor-ssi overseas....</p>
 <p>"Wait...! Vivian who?" Listening to Mimata Chieri's Report, I couldn't help but interrupt her. Why did you send it to Vivian Taylor? -Vivian Taylor-ssi! Her name was on the List you sent me. No way.... I quickly checked the email I sent to Mimata Chieri. What...? Vivian Taylor is really there?! I must have forgotten to remove her from the List and just included everyone.</p>
 <p>"I wrote the List incorrectly. What would she think if she received a Photo album like this from someone she's only met once?" -Hmm, handsome but a Lunatic? As expected, Mimata Chieri answered without any hesitation.</p>
@@ -52,4 +52,4 @@ chapter = 684
 <p>"We might both have Teacher-ssi's Smell ingrained in our Bodies, but I have a Key and you don't, do I?"</p>
 <p>"What?!" Kukukuku...! The air between them trembled. They were already prepared to fight each other. By a Woman's Instinct, they wanted to determine who was superior and inferior with the Woman in front of them. They wanted to compare their martial prowess to confirm who was closer to their Class Teacher Yamashiro Ryuta. The Moment they glared at each other for a while and were about to move.</p>
 <p>"Shii? Yuka?" The Voice of their Class Teacher Yamashiro Ryuta, who had seen them both, was heard. Otagi Yuka, who had her back to Yamashiro Ryuta, mouthed Words without making a sound, as if trying not to be heard by him. 'Let's fight next time.' Seizawa Shii, seeing her mouthing, snorted 'Ha!' and nodded her Head. Seizawa Shii resolved that she would definitely contend with this red-haired Woman for supremacy someday.</p>
-<p>Vivian Taylor after a long time~!! Kkiyot!</p>
+<p>Vivian Taylor after a long time!! Kkiyot!</p>

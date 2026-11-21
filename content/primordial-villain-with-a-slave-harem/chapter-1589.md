@@ -85,7 +85,7 @@ chapter = 1589
 <p>"I will offer you both clauses in your slave contracts. Comfortable clauses. Protection from abuse. A monthly allowance. A mansion, quiet and safe, where you can live out your days without hardship." His eye settled on Myrasyn. "All you need to do is name Aelindra as your successor." The eye moved to Black Fang. "And all you need to do is answer my questions."</p>
 <p>Myrasyn giggled.</p>
 <p>The sound was so inappropriate for the setting that even Durnok looked up from his collar inspection.</p>
-<p>"Live a collared life like a bird in a gilded cage," she mused, ears twitching, "as a reward for betraying the trust of the elven people who voted for me?" She beamed. "No thank you. Once again, I refuse~"</p>
+<p>"Live a collared life like a bird in a gilded cage," she mused, ears twitching, "as a reward for betraying the trust of the elven people who voted for me?" She beamed. "No thank you. Once again, I refuse"</p>
 <p>Black Fang didn't even bother to respond. She hadn't looked at Ragnar once since he'd entered the cell. Her eyes were closed, her breathing measured, every thread of concentration pulled inward where the venom chased the collar's pulses through her channels. The room and everyone in it, irrelevant.</p>
 <p>Ragnar watched them both for a long, silent moment.</p>
 <p>"I see."</p>

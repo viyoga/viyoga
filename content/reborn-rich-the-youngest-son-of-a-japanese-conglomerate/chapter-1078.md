@@ -66,9 +66,9 @@ chapter = 1078
 <p>"Yes, actually, since I no longer have family, there was no Reason to return."</p>
 <p>Since she was Maya Reed, who had lost all her family, I should treat her well. So she can consider us family. Looking at her Abilities, she's a Talent no one would want to lose.</p>
 <p>The car stopped. We were welcomed by the Mansion caretaker and were guided to our respective rooms. Perhaps because there were quite a lot of people, we decided to use Fujigasaki Rinka's Annex as well. Because Fujigasaki Rinka was someone who occasionally provided rooms to her Japanese Martial Arts juniors when they came to the USA for Training, there were quite a few rooms in the Annex, so there was no Situation where multiple people had to share a room.</p>
-<p>Alik and Tsukiyo pouting, requested by MidNightSKY-nim~!</p>
-<p>Alik~!</p>
-<p>Tsukiyo~!</p>
-<p>Lisa without Gyaru vibes, requested by Meokguja-nim~!</p>
+<p>Alik and Tsukiyo pouting, requested by MidNightSKY-nim!</p>
+<p>Alik!</p>
+<p>Tsukiyo!</p>
+<p>Lisa without Gyaru vibes, requested by Meokguja-nim!</p>
 <p>Her current Appearance is slightly darker because her Tanning hasn't completely faded. I couldn't precisely adjust the skin tone, so it came out a bit too pale hehe.</p>
 <p>I guess she'll be a pale Lisa when she meets Ryuta next time hehe.</p>

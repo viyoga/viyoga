@@ -30,15 +30,15 @@ chapter = 14
 <p>"I'm cumming!"</p>
 <p>Throb throb!</p>
 <p>My dick repeatedly expanded and contracted, spewing semen. Arisu, wanting to taste the semen with her tongue, pulled my dick out of her throat and took the glans into her mouth. Arisu's cheeks bulged thanks to the gushing semen. It was clear that my stamina had increased significantly due to the Golden Pillar trait, and the amount of semen had also increased dramatically. What man would ejaculate enough semen to make someone's cheeks bulge? It's all thanks to the trait.</p>
-<p>When I pulled my dick out of her mouth, Arisu opened her mouth, showing my semen with a "hee~" sound. Then, she rolled her tongue around in her mouth to taste it before swallowing it down. And she opened her mouth with an ecstatic expression.</p>
+<p>When I pulled my dick out of her mouth, Arisu opened her mouth, showing my semen with a "hee" sound. Then, she rolled her tongue around in her mouth to taste it before swallowing it down. And she opened her mouth with an ecstatic expression.</p>
 <p>"Hehe. It's delicious."</p>
 <p>It shouldn't be delicious, right? Did it become edible because of the Golden Pillar trait? Still, Arisu's actions themselves were arousing, reducing my post-cum clarity.</p>
 <p>I had touched her breasts and received oral service, so now there was only one place left. I picked up Arisu and threw her onto the bed.</p>
-<p>"Kyaaak~!"</p>
+<p>"Kyaaak!"</p>
 <p>Arisu screamed, but she was smiling slightly. I lay down next to Arisu and caressed the space between the small mounds rising above her panties, moving my index finger back and forth.</p>
 <p>"Euheung.... Euheut.... This, feels good."</p>
 <p>"Which do you like the most, the kiss, the breasts, or here?"</p>
-<p>"I like them all, all.... Ah-heut~!"</p>
+<p>"I like them all, all.... Ah-heut!"</p>
 <p>When I flicked her Clitoris slightly, Arisu's hips lifted into the air while lying down, and she twitched. Since her hips were already lifted, I pulled down her panties. Arisu's clean pussy was visible, whether it was because she had shaved or because she originally had no hair.</p>
 <p>When I gently rolled my tongue over Arisu's reddish-pink pussy, she narrowed her thighs while saying, "Heuaaaang!!" But because my face was in the middle, I only felt the soft sensation of her thigh flesh pressing against both of my cheeks.</p>
 <p>Of course, the feeling of her thighs was so good that I wanted to keep feeling it, but I had to move forward, so I grabbed Arisu's ankles with both hands and spread them apart.</p>

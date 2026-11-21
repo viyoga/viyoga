@@ -58,4 +58,4 @@ chapter = 453
 <p>I left Arisu behind and boarded the plane to Japan. Tomorrow was the exam period at St. Francis Girls' Academy.</p>
 <p>------</p>
 <p>Urabe Konoka</p>
-<p>Urabe Konoka can also use tentacles~! As the priestess of Simyeonui ttal, she has top-tier combat power among the students of St. Francis Girls' Academy.</p>
+<p>Urabe Konoka can also use tentacles! As the priestess of Simyeonui ttal, she has top-tier combat power among the students of St. Francis Girls' Academy.</p>

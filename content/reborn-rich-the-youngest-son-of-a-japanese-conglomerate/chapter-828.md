@@ -30,7 +30,7 @@ chapter = 828
 <p>In addition, she grabbed her own thighs and pulled them, inducing the breeding press position, which was an incredibly lewd scene. She's doing all this, how can I not insert it? I lifted Matsunaga Yuzuki's legs onto my shoulders, put her in the breeding press position, and thrust my cock inside.</p>
 <p>"Haa-euh-heung! This is it, Haaang...! All this time, Haaht! Yamashiro-ssi's cock, Euh-heung♥ I've been itching inside without ittt!!"</p>
 <p>Just like Matsunaga Yuzuki's boisterous words, her pussy also twitched violently, welcoming my cock, which had entered intravaginally after a long time. Perhaps because we hadn't done it for a while, her pussy, which was originally accustomed to my size, had narrowed, and because of that, it felt even better.</p>
-<p>"Haaht! Heu-eung, it's dangerousss~! Haaht! If you scrape the inside like thisss, Haaang♥!!"</p>
+<p>"Haaht! Heu-eung, it's dangerousss! Haaht! If you scrape the inside like thisss, Haaang♥!!"</p>
 <p>I had only just inserted it and hadn't even thrust my hips a few times, yet Matsunaga Yuzuki was already squirting with 'pyut-pyut' sounds. Matsunaga Yuzuki was always a bit sensitive, but I never expected such a good Reaction.</p>
 <p>Since her Reaction was so good, I couldn't help but get excited, so I moved my hips even more rhythmically. I moved so violently that the 'cheol-sseok cheol-sseok' sounds were loud enough to be clearly heard by the bugging device inside Matsunaga Yuzuki's Bag.</p>
 <p>"Euh-heung, Oh-oh-oht! Too much, Haaht! Oh-ho-oht♥ Too, stronggg♥ If it continues like thisss, Haa-euh-heut! I'll go crazyyy...!"</p>
@@ -67,7 +67,7 @@ chapter = 828
 <p>Their sex ended when the clock pointed to two-thirty in the morning. They had started sex at 7:30 and engaged in seven hours of frenzied sex. Even excluding the time they spent drinking water or going to the restroom, it was a duration he couldn't even fathom.</p>
 <p>Through the earphones, he seemed to hear them talking for a moment, then a soft snoring sound soon followed. It was Matsunaga Yuzuki's snoring sound. There was no way he wouldn't recognize the snoring sound of the woman who had been his wife for several years.</p>
 <p>Since there was nothing left to listen to, Kasaoka Koki slowly rose from his seat.</p>
-<p>"Goodbye~!"</p>
+<p>"Goodbye!"</p>
 <p>Hearing the bright greeting of the part-time job worker, Kasaoka Koki stepped Outside and began to head Home. But his mind was completely tangled.</p>
 <p>'What should I do?'</p>
 <p>He didn't necessarily have to do anything. Matsunaga Yuzuki was no longer Kasaoka Yuzuki. He couldn't even say his divorced ex-wife was cheating, so it wasn't a situation for Kasaoka Koki to do anything.</p>
@@ -95,10 +95,10 @@ chapter = 828
 <p>-I thought there was about a 30 percent chance you wouldn't threaten me.... This is all your choice.</p>
 <p>Ah...! Yamashiro Ryuta had been waiting for him to threaten. He had been waiting for an excuse to kill him...!</p>
 <p>The last thing Kasaoka Koki saw was the sight of glowing jellyfish filling his field of vision, and between the jellyfish, a silver-haired woman happily eating milk pudding with an expression that showed she didn't care whether he lived or died.</p>
-<p>Today's B-cut~!!</p>
+<p>Today's B-cut!!</p>
 <p>There were many requests for B-cuts, so I included a lot haha.</p>
-<p>Illustration of Phantom Thief Mother and Daughter in sexy lingerie, Am-ta, Ahegao, and Double Peace, requested by MidNightSKY-nim~!</p>
-<p>Starting with Arisu~!</p>
-<p>Nae~!</p>
+<p>Illustration of Phantom Thief Mother and Daughter in sexy lingerie, Am-ta, Ahegao, and Double Peace, requested by MidNightSKY-nim!</p>
+<p>Starting with Arisu!</p>
+<p>Nae!</p>
 <p>I tried to create a scene from normal appearance -&gt; Ahegao Double Peace haha.</p>
-<p>Hangari Muneo Nurse Uniform requested by Gojoy-nim~!</p>
+<p>Hangari Muneo Nurse Uniform requested by Gojoy-nim!</p>

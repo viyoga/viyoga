@@ -35,7 +35,7 @@ chapter = 14
 <p>'I used a lot when fighting earlier. But it should be enough!'</p>
 <p>Jason spread all his mana across the clearing and covered all the dead wolves in its power, and his grin widened as he said one word:</p>
 <p>"Resurrect."</p>
-<p>HOWWWWLLL~!</p>
+<p>HOWWWWLLL!</p>
 <p>The clearing suddenly grew loud with the howl of wolves as they all pulled themselves out from their dead bodies and slammed their paws into the ground! Their mouths drew back into heavy snarls and their claws scratched against the ground as they felt Jason's command deep within their minds: Attack!</p>
 <p>The wolves all charged towards the last two remaining wolves and Jason took a step back and found a large rock to lean against as his stamina suddenly dropped to less than half of what it had been. Sending a command to all those wolves—even though it was only one word—was still very draining. He would have to work harder on his stamina so he doesn't grow this tired in the future.</p>
 <p>Jason watched as the two remaining wolves were completely overwhelmed by his wolves. They were trying their best to hold on and throw the wolves off them, but his wolves were relentless in their attack! And since there were now fifteen more wolves all fighting at the same time, the last wolf didn't stand a chance!</p>

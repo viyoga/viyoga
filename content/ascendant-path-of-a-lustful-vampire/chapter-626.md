@@ -48,29 +48,29 @@ chapter = 626
 <p>Usually, Caius ignored the connection and her presence but he had use for it now. Alas, he had been trying for a good while now with no result. He didn't give up though because he knew it was only a matter of time.</p>
 <p>Sure enough, the presence within the darkness turned toward him and gave off a feeling of opening one eye lazily to peek at him with apparent disinterest.</p>
 <p>'There you are,' Caius thought toward the presence, 'Took you long enough.'</p>
-<p>"~…~"</p>
+<p>"…"</p>
 <p>'I suppose I should start by offering my gratitude. You answered the call of my friends when they called to you. Your power even saved Delia from certain death. Of course, I know you didn't do it out of the goodness of your heart but still—'</p>
-<p>"~Offering gratitude and immediately backtracking? Amusing.~"</p>
+<p>"Offering gratitude and immediately backtracking? Amusing."</p>
 <p>Caius smiled at having gotten Nyx to speak before too long. It had taken much longer the last time. Her ego seemed a little more touchy today.</p>
 <p>'Well, we both know what you're after by offering your help,' Caius said, 'if anything I'm acknowledging that your ulterior motives don't matter as much as the fact that you did help.'</p>
-<p>"~Why have you sought me out now? Don't think I've been unaware of your willful disregard for my presence.~"</p>
+<p>"Why have you sought me out now? Don't think I've been unaware of your willful disregard for my presence."</p>
 <p>'Would you have preferred I constantly dropped in for a chat? That I start each day with a pledge of devotion to your divine will?' Caius asked with a smirk.</p>
-<p>"~The first? No. The second? Absolutely. You could stand to perform more supplications to my Divine self.~"</p>
+<p>"The first? No. The second? Absolutely. You could stand to perform more supplications to my Divine self."</p>
 <p>'I'll take that under advisement,' Caius said.</p>
-<p>"~I hope you will. Now, I ask again, why have you sought me now?~"</p>
+<p>"I hope you will. Now, I ask again, why have you sought me now?"</p>
 <p>'How go the negotiations?'</p>
-<p>"~You speak as if you could comprehend matters of the Divine—~"</p>
+<p>"You speak as if you could comprehend matters of the Divine—"</p>
 <p>'I'm here to help so the less gravitas that my 'poor human mind' can't comprehend, the better I think,' Caius cut in to say.</p>
-<p>"~Do not interrupt me!~"</p>
+<p>"Do not interrupt me!"</p>
 <p>There was a wave of anger that struck Caius and shook him to his very soul. Goosebumps appeared all over his body and there was an aura that descended upon the cockpit for a few seconds before passing.</p>
 <p>Philip's eyes moved to Caius, who sat cross-legged, and his lips pressed together in a hard line before he returned his eyes ahead.</p>
 <p>Caius couldn't remain stoic in face of Nyx's flash of anger but he did manage to not let it shake him enough to cower.</p>
 <p>'Okay,' he said simply.</p>
-<p>"~How could you possibly help me?~"</p>
+<p>"How could you possibly help me?"</p>
 <p>Caius took many breaths to calm his agitated heart so his thoughts could be clear as they traveled to Nyx's dark presence.</p>
 <p>'I know you're in negotiations with Aether and Hell. You've been dragged into two incidents without proper knowledge of what's going on so you'd be a fool to not have questioned them already. You are many things Nyx, but you are no fool.</p>
 <p>Am I wrong?"</p>
-<p>"~You haven't answered my question.~"</p>
+<p>"You haven't answered my question."</p>
 <p>'Mention the Vera Accords to Aether and Hell and you'll have them ready to listen to every word you have to say. They'll be ready to concede your conditions. So long as it doesn't nullify the contract they have in place already, of course.</p>
 <p>Even if Hell is fine with it all falling apart, Aether certainly isn't."</p>
 <p>In the original canon, it had taken so long before Aurelius began getting help from his companions, and by then, they were all capable in their own right so they never needed to call on the Goddess of Primordial Darkness. Especially not when Caius, in the original canon, was making a point to reject his vampiric nature. His shunning of that part of him of course included Nyx who created vampirism in the first place.</p>

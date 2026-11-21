@@ -15,11 +15,11 @@ chapter = 709
 
 <p>Feeling his cock rise stiffly beneath the fabric, she let out a satisfied giggle, her hips shifting just enough to drag along the growing bulge.</p>
 
-<p>“Big brother Qingyi… are you eager to meet Lady Bai? Hehehe~ ♡” she asked, grinding gently against his hardening member.</p>
+<p>“Big brother Qingyi… are you eager to meet Lady Bai? Hehehe ♡” she asked, grinding gently against his hardening member.</p>
 
 <p>“Yes.” Qingyi gripped her hips firmly. “I want to see her, just as much as you want her as your new sister.”</p>
 
-<p>“Good! Hehe~, now, big brother Qingyi should fill me with cum, right? It’s been so long since we’ve fucked.”</p>
+<p>“Good! Hehe, now, big brother Qingyi should fill me with cum, right? It’s been so long since we’ve fucked.”</p>
 
 <p>She didn’t hesitate.</p>
 
@@ -35,7 +35,7 @@ chapter = 709
 
 <p>The warm skin of his cock pressed against Rou’er’s moist, soft flesh, both settling into one another.</p>
 
-<p>“Nghnn~~ come on, big brother Qingyi… put that huge cock inside Rou’er’s tight ass… I’m already dying of anticipation! ♡” She gave a naughty little giggle, wiggling her hips to coax him forward.</p>
+<p>“Nghnn come on, big brother Qingyi… put that huge cock inside Rou’er’s tight ass… I’m already dying of anticipation! ♡” She gave a naughty little giggle, wiggling her hips to coax him forward.</p>
 
 <p>Qingyi nodded with a smile, purchasing a bottle of lube from the system store with a simple thought.</p>
 
@@ -53,7 +53,7 @@ chapter = 709
 
 <p>Clap</p>
 
-<p>“Aghnn~~ Big brother Qingyi’s cock feels even bigger today, hehe~~” Rou’er smiled, burying her face in the pillow as her eyes rolled back in pleasure.</p>
+<p>“Aghnn Big brother Qingyi’s cock feels even bigger today, hehe” Rou’er smiled, burying her face in the pillow as her eyes rolled back in pleasure.</p>
 
 <p>Qingyi felt the same. Her anus felt much tighter than before, squeezing his cock as if trying to crush it, every inch embraced by that scalding, clinging flesh.</p>
 
@@ -69,7 +69,7 @@ chapter = 709
 
 <p>Rou’er nodded excitedly.</p>
 
-<p>“Yeah, nnghnn… when we get married, big brother Qingyi is going to fill me with little babies, hehe~~ ♡ If not, aghnnn~~ I won’t call you daddy…</p>
+<p>“Yeah, nnghnn… when we get married, big brother Qingyi is going to fill me with little babies, hehe ♡ If not, aghnnn I won’t call you daddy…</p>
 
 <p>Should Rou’er beg big brother to fuck her tight, fat little pussy when the time comes?”</p>
 
@@ -85,7 +85,7 @@ chapter = 709
 
 <p>Her fingers clenched the crumpled sheets, mouth open and drooling nonstop, staining the pillow beneath her flushed face.</p>
 
-<p>“Nghnn~~ come on, big brother Qingyi… fill Rou’er’s little ass with your hot cum! ♡” She screamed, and at that very moment, Qingyi gave in.</p>
+<p>“Nghnn come on, big brother Qingyi… fill Rou’er’s little ass with your hot cum! ♡” She screamed, and at that very moment, Qingyi gave in.</p>
 
 <p>His cock pulsed once, sinking all the way to the base into her anus before the first gush of hot cum invaded the tight interior, followed by another, and then another.</p>
 
@@ -95,7 +95,7 @@ chapter = 709
 
 <p>Rou’er’s hips collapsed onto the mattress immediately afterward, her pulsating anus leaking cum nonstop, dripping in white streaks down her inner thighs.</p>
 
-<p>“Nghnn~~ big brother is going to fuck me just like this, side by side with Aunt Rouxi, right? You’re going to make the two of us call you daddy and fill us with children, aren’t you? ♡” Rou’er said, her voice intoxicated with pleasure.</p>
+<p>“Nghnn big brother is going to fuck me just like this, side by side with Aunt Rouxi, right? You’re going to make the two of us call you daddy and fill us with children, aren’t you? ♡” Rou’er said, her voice intoxicated with pleasure.</p>
 
 <p>Qingyi smiled, nodding as he slid his hand over her flushed ass and gave a gentle slap to her still-trembling buttock. “Yes.”</p>
 
@@ -117,7 +117,7 @@ chapter = 709
 
 <p>***</p>
 
-<p>‘Nghnn~~ I know they’re young, but couldn’t they at least activate the sound suppression arrays before they started?’ Rouxi complained, Rou’er’s high-pitched, gasping moans invading her ears.</p>
+<p>‘Nghnn I know they’re young, but couldn’t they at least activate the sound suppression arrays before they started?’ Rouxi complained, Rou’er’s high-pitched, gasping moans invading her ears.</p>
 
 <p>It was pure luck that she’d noticed before anyone else, managing to isolate the sound from their room in time.</p>
 
@@ -133,7 +133,7 @@ chapter = 709
 
 <p>Even so, Rouxi grabbed the hem of her own dress, slowly lifting it until it revealed thick, creamy thighs and, between them, the drenched lips of her pussy glistening with accumulated moisture. The fabric clung for a moment before peeling away from her slick skin.</p>
 
-<p>‘Nghnn~~ big brother is going to fuck me just like this, side by side with Aunt Rouxi, right? You’re going to make both of us call you daddy and fill us with babies, aren’t you?’</p>
+<p>‘Nghnn big brother is going to fuck me just like this, side by side with Aunt Rouxi, right? You’re going to make both of us call you daddy and fill us with babies, aren’t you?’</p>
 
 <p>When those words echoed through the array, Rouxi lost control for a moment.</p>
 

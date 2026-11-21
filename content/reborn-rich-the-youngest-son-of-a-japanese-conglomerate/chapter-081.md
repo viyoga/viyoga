@@ -20,7 +20,7 @@ chapter = 81
 <p>,It's because Yukiko-ssi is pretty."</p>
 <p>,Aang♡ Don't say things like that. I'll cum quickly♥"</p>
 <p>Yukiko-ssi had become much more affectionate lately. She really liked it when I said her name like this sometimes. It must have been quite difficult for someone this affectionate to put on airs of dignity when her son came. I'll put off leveling up and traits for later and serve Yukiko-ssi a little more.</p>
-<p>,Hyaang♥ Joaang~!"</p>
+<p>,Hyaang♥ Joaang!"</p>
 <p>The room was filled with Yukiko-ssi's moans and lewd smells.</p>
 <p>###</p>
 <p>Thankfully, Yukiko-ssi gave me business trip expenses under the guise of a Korean business trip without using my vacation days. As expected, she's a mom worth serving....</p>

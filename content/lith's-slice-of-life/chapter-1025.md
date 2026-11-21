@@ -65,7 +65,7 @@ Fei did and she gestured to the ginger head that it was fine to sit here.
 
 Hesitantly, the ginger sat down beside Fei.
 
-"Oooh~… what a cutie…"
+"Oooh… what a cutie…"
 
 Mayzin said in her drunken state and tried to pinch the ginger's cheek from across the table.
 
@@ -81,7 +81,7 @@ Mayzin blew raspberries and said with a pouty look.
 
 Smiling and shaking his head, Lith dropped the thought and turned to look at the ginger-haired girl.
 
-"hello~"
+"hello"
 
 Lith smiled and waved at her.
 
@@ -181,6 +181,6 @@ Meryl raised her hands and began moving them as if she was orchestrating a choir
 
 This intensified further. Her body trembled in amusement and finally...
 
-"Meow~!"
+"Meow!"
 
 "…"

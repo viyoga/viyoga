@@ -14,10 +14,10 @@ chapter = 976
 <p>"...I understand. Since there are many people with the Taira surname there, may I call you Ryuta-nim?" "Yes." "Instead, at the mansion, I'll call you Jin Yongtae-nim."</p>
 <p>Linxiang seemed to prefer the Address Jin Yongtae-nim over Ryuta, showing a slight Obsession. As I talked with Linxiang and put on my Suit, Alik and Linling came running over.</p>
 <p>Both were holding something; Alik had a Belt, and Linling had a Necktie.</p>
-<p>"Ryuta, Belt...!" "Jin Yongtae-nim, your Necktie~!" "Thank you, both."</p>
+<p>"Ryuta, Belt...!" "Jin Yongtae-nim, your Necktie!" "Thank you, both."</p>
 <p>I stroked both their Heads, then put on my Belt and Necktie. My now black Hair was being tidied by Linxiang while I put on my Suit.</p>
 <p>After finishing my preparations, I went down to the mansion, where People were gathered, waiting to see me off to the Meeting.</p>
-<p>"Ryuta Older Brother~! You're even more handsome today♥" "Liege-nim...! You are magnificent!!" "Teacher-nim! You're cool!"</p>
+<p>"Ryuta Older Brother! You're even more handsome today♥" "Liege-nim...! You are magnificent!!" "Teacher-nim! You're cool!"</p>
 <p>I didn't usually dress shabbily, but I hadn't shown myself in a custom Suit and such a tidy Appearance before, so everyone's Praise made me a little awkward. It's not like I was bad normally, you know.</p>
 <p>"There won't be anything particularly dangerous. So don't worry.... I'll be back from the Meeting."</p>
 <p>I waved to everyone, then boarded the luxury sedan made by Taira Motors. The vehicle had been sent by Danjo Grandfather two days prior. Just in case, I checked for listening devices, but it was a clean vehicle.</p>
@@ -27,7 +27,7 @@ chapter = 976
 <p>"Just bear with it for today, Diana." "I don't mind continuing to drive, Ryuta-nim."</p>
 <p>Saionji Diana said she didn't mind my words, but Saionji Diana still had things to do. As a former Successor of Saionji Bank, Saionji Diana possessed various Abilities along with military power, so she had to take on much more important tasks than driving.</p>
 <p>"I can drive, Jin Yongtae-nim. I'm a secretary anyway, so I'll be with you everywhere. And I can multitask, so I can do other things while driving."</p>
-<p>As we were talking about driving, Linxiang said she could be the driver. Ah, that's right. Linxiang could be the driver from now on. When Linxiang said she would drive, Saionji Diana let out a slight tsking sound, as if regretfully. "That would be good too." "I can also be Junior-nim's driver~!" "Senior-nim, you have to manage East Weapon, don't you?" "Ah, that's right, Heh~!"</p>
+<p>As we were talking about driving, Linxiang said she could be the driver. Ah, that's right. Linxiang could be the driver from now on. When Linxiang said she would drive, Saionji Diana let out a slight tsking sound, as if regretfully. "That would be good too." "I can also be Junior-nim's driver!" "Senior-nim, you have to manage East Weapon, don't you?" "Ah, that's right, Heh!"</p>
 <p>Mimata Chieri said she could do it too in response to Linxiang's words, but seeing her quickly agree to my words, it seemed she wasn't serious.</p>
 <p>As we talked about the driver, we were already driving through the city center of Neo Tokyo. It was the first day of March, the beginning of Spring, so the warm-looking Sunlight illuminated the city skyscrapers.</p>
 <p>"Once you arrive at the Grand Conference, you'll immediately have breakfast. The Taira Direct Lineage members gather a little early for the meal, so something might be discussed there. Be alert. It's a place only family can go, so I can't Help you."</p>
@@ -56,4 +56,4 @@ chapter = 976
 <p>"Just trust me, Ryuta-nim."</p>
 <p>Mimata Chieri nodded her Head and spoke. Since the Taira Main family home would have countless Eyes and Sensitive Ears, we had decided in advance not to use our usual Addresses like Senior-nim or Junior-nim for a while.</p>
 <p>I nodded, looking at Mimata Chieri, who had a trustworthy Expression, and followed Yanagiba Morishige. The place Yanagiba Morishige guided me to was a place I knew. It was the Annex where I had often met my Grandmother Taira Shizuku, and she was waiting for me there.</p>
-<p>Hwanbuljeoldaebulga-nim requested Saionji Diana's casual Clothes and underwear~! Diana, who makes many bold challenges in her attire haha Underwear~! Bonus~! Because I liked the Composition and equipment haha Gojoy-nim requested Lisa Tape, breast covering~! Starting with Tape~! Breast covering~! MidNightSKY-nim requested Succubus Yukiko Pink Seduction, Shii playing drums~! Starting with Yukiko~! I clearly entered 'fog' but it came out with a Flame feeling ㄷㄷ Shii~! Kkiyot!</p>
+<p>Hwanbuljeoldaebulga-nim requested Saionji Diana's casual Clothes and underwear! Diana, who makes many bold challenges in her attire haha Underwear! Bonus! Because I liked the Composition and equipment haha Gojoy-nim requested Lisa Tape, breast covering! Starting with Tape! Breast covering! MidNightSKY-nim requested Succubus Yukiko Pink Seduction, Shii playing drums! Starting with Yukiko! I clearly entered 'fog' but it came out with a Flame feeling ㄷㄷ Shii! Kkiyot!</p>

@@ -64,17 +64,17 @@ chapter = 1075
 <p>So, Work in New York was finished for now.... Next, there was only the schedule to meet the Moss Tactical people who followed Taira Saburo, and Moss Tactical was in California.</p>
 <p>Tetsu Kagerou of Moss Tactical, whom I met during the New Rochelle incident, said he had been designated and came to New York alone, so he probably left New York immediately after the New Rochelle incident ended.</p>
 <p>"Then, Work in New York is finished, and next, I'll move on to California. Combatants will get about two days of Vacation in California, so enjoy yourselves...."</p>
-<p>"Wow~! Ryuta-jji is the best!"</p>
+<p>"Wow! Ryuta-jji is the best!"</p>
 <p>Seizawa Shii was incredibly happy to hear about the Vacation. Having arrived in New York before me and acted as a vigilante every Night, she would certainly need the Vacation.</p>
 <p>"We will return to Japan immediately. There are funeral procedures as well...."</p>
 <p>Old man Yoda said. Indeed, since it was the Gwonmaeng side with deceased people, they would have to go to Japan. I nodded my Head.</p>
 <p>"Understood. I will support all funeral procedures."</p>
 <p>I answered with a serious Expression. So... the Gwonmaeng people would be leaving, and for reference, Kujo Kina had already gone to Los Angeles. She hadn't come to the USA just to save Sajo, but also for Business, so she had flown to LA to sign some Contract. Kujo Kina isn't our Person anyway, but a Kujo Group Person, so I don't need to worry about her anymore.</p>
-<p>"Everyone, prepare to pack your Luggage.... I need to Contact Sajo to see if he's alright. That's all, dismissed~!"</p>
+<p>"Everyone, prepare to pack your Luggage.... I need to Contact Sajo to see if he's alright. That's all, dismissed!"</p>
 <p>I was leaving New York for now, but I had to decide whether to take Sajo with me or leave Sabu in New York and see to his Recovery before leaving. I took out my Phone and made a Phone Call to Sabu.</p>
-<p>Tetsu Kagerou Belly Dancer requested by Gojoy-nim~! Breast Concealment~!</p>
-<p>Belly Dancer~!</p>
-<p>Breast Concealment~!</p>
-<p>Tetsu Kagerou on the Subway requested by TheDreaming-nim: 1. Hands tied 2. Breast Pressing~!</p>
+<p>Tetsu Kagerou Belly Dancer requested by Gojoy-nim! Breast Concealment!</p>
+<p>Belly Dancer!</p>
+<p>Breast Concealment!</p>
+<p>Tetsu Kagerou on the Subway requested by TheDreaming-nim: 1. Hands tied 2. Breast Pressing!</p>
 <p>1.</p>
 <p>2.</p>

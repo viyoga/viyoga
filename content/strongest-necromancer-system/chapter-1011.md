@@ -23,7 +23,7 @@ chapter = 1011
 <p>The conductor bowed once again.</p>
 <p>"Thank you for your generosity. We are forever in your debt."</p>
 <p>Jason and Stella got on the taxi, and Jason was surprised when he didn’t see any driver. The taxi had a holographic image of a pretty woman floating on the dashboard, and she waved at Jason and Stella with a smile.</p>
-<p>[Hello, my name is Fora, and I’ll be your driver today~! Where are you heading to~?]</p>
+<p>[Hello, my name is Fora, and I’ll be your driver today! Where are you heading to?]</p>
 <p>The hologram spoke in the official Izagi language, but since both Jason and Stella had translation abilities, they were able to translate and understand her easily enough. Jason turned towards Esdath and asked him where they were meant to go.</p>
 <p>’You’re going to the world of Diran. I don’t know how to get there from Izagi though.’</p>
 <p>Jason hummed, and he asked the system for directions.</p>

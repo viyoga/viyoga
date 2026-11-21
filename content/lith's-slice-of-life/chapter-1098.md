@@ -7,13 +7,13 @@ chapter = 1098
 
 With the way Arya was looking at him and the words she had spoken, let alone a man, not even a woman could stop herself from advancing and making her move. Perhaps only gay men could resist, but Lith had confidence that even gays would turn straight if they were to be around a perfect being like his wife. She was literally perfect!
 
-Placing his hands on her hips, he positioned her vertical slit on his shaft. Giving her a hard slap on her ass, Lith thrust his cock deep inside her vagina.  "Ohhhh~! That's it! That's the way!" Arya moaned. Squelch… Squelch… Squelch…
+Placing his hands on her hips, he positioned her vertical slit on his shaft. Giving her a hard slap on her ass, Lith thrust his cock deep inside her vagina.  "Ohhhh! That's it! That's the way!" Arya moaned. Squelch… Squelch… Squelch…
 
 Sounds of water splashing mixed with Lith's shaft sliding in and out of Arya's slippery insides was creating a lewd melody for both to hear. For reasons unknown, Arya was literally perfect from all angles. Her insides were of the right size as if they were tailor-made for him, her body had the perfect hourglass-like curves and she did not lack anywhere in the melons or peaches departments. The hot spring water was heating up his body, but Arya's insides were hotter. They were soft and tight, making him feel like someone was trying to suffocate his little brother with wet sponges. "Ohhh so amazing! My insides are turning into mush!" Arya placed her hands on the edge and moaned. "Ahh… just like that… just like that…"
 
 Lith's cock rubbed against her sweet spot as he thrust violently. "…ohhh… harder, babe! Fill me up! Fill me up!"
 
-Arya was too vocal, to the point that her moans echoed in the mountains far ahead. It was a good thing that there wasn't anyone in a ten thousand kilometers radius. Lith gripped Arya's hips, leaving visible prints on them, and intensely thrust in her for a couple of minutes before exploding fully. His shaft twitched in her as he emptied all his baby formula into her hungry vessel. "Ohhhhhhh~~!"
+Arya was too vocal, to the point that her moans echoed in the mountains far ahead. It was a good thing that there wasn't anyone in a ten thousand kilometers radius. Lith gripped Arya's hips, leaving visible prints on them, and intensely thrust in her for a couple of minutes before exploding fully. His shaft twitched in her as he emptied all his baby formula into her hungry vessel. "Ohhhhhhh!"
 
 Arya's body twitched and her eyes rolled back as she felt an intense orgasm. Her head was going blank and she could only feel bolts of electricity running through her along with hot sensations outside and inside her body. Two minutes later, Arya and Lith both recovered. She turned around while ensuring Lith's dick stayed inside her, and wrapped her arms around his neck and legs around his waist. Kissing his lips, Arya said, "Eyes on me the whole time, babe."
 

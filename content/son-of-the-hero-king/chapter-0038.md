@@ -50,7 +50,7 @@ chapter = 38
 <p class="scene-break">· · ·</p>
 <p>"Tell me blaze, just why do you love Mars so much?"</p>
 <p>Camelia was currently soaking naked in the hot water of her large bath as she asked her sole friend, an incredibly voluptuous and beautiful red-haired woman who was equally naked.</p>
-<p>"Kukuku~! Don't you think he is super cute? The way he still blushes when seeing me naked is so endearing."</p>
+<p>"Kukuku! Don't you think he is super cute? The way he still blushes when seeing me naked is so endearing."</p>
 <p>Camelia awkwardly laughed at this. She was on a speaking term with Mars, but she rather hated his indecisive and dense side.</p>
 <p>'Just how many women did he harm that way?'</p>
 <p>A boy shouldn't go around treating women so well when he didn't plan to answer back to their feelings.</p>
@@ -66,7 +66,7 @@ chapter = 38
 <p>"This is good enough. Thanks." Camelia wiped the tears that were gathering at the corner of her eyes. Then, smiling mischievously, she asked, "So, when did you plan to announce the good news? Should I say congratulations?"</p>
 <p>Blaze tilted her head before smiling radiantly as she patted her stomach.</p>
 <p>"I guess hiding it from you was impossible."</p>
-<p>"Fufufu~! I am really happy for you. Do you already have a name?"</p>
+<p>"Fufufu! I am really happy for you. Do you already have a name?"</p>
 <p>"No. You know that stupid tradition for the crown prince. We were hesitant about which star to use." Then, as if making a decision, Blaze said.</p>
 <p>"Camelia, why don't you choose the name?"</p>
 <p>"Me?"</p>

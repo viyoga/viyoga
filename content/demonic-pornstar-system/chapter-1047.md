@@ -86,7 +86,7 @@ chapter = 1047
 <p>"At least try. It’s his duty as a man. Men who just slap something on while their date took such great care of herself are no men at all."</p>
 <p>Alexandra brought Yunohana her tea. The shrine maiden accepted it gratefully, and the maid bent to check that the dress’s sash lay smoothly behind her chair.</p>
 <p>Nyx watched her fuss over their guest.</p>
-<p>"You’re being very generous, Lexi. Helping another woman get ahead of you~"</p>
+<p>"You’re being very generous, Lexi. Helping another woman get ahead of you"</p>
 <p>Alexandra looked up so quickly that her blonde hair slipped over her cheek.</p>
 <p>"Ahead of me? Nyx, I am only helping my friend get ready."</p>
 <p>"Mm. Very sweetly."</p>

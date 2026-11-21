@@ -5,7 +5,7 @@ weight = 2
 chapter = 2
 +++
 
-<p>“Sigh~ I am beat!”</p>
+<p>“Sigh I am beat!”</p>
 <p>Jumping on his bed — after wiping off the remnants of water droplets left on his body and hair with a towel, Sol released a sigh of contentment as he felt the comfy softness of his bed, healing the soreness of his fatigued body, and gradually refreshing his equally exhausted mind.</p>
 <p>Today had been a little rougher than usual, which was understandable with him being distracted after having that remarkably bizarre exchange with his aunt, Lilith, at the start of this day. The contents of the conversation and the ominous ending still persistently resonated within his mind making him feel restless of a tumultuous future ahead.</p>
 <p>After the end of his training session with Ares, he had been, for the lack of a better word, forced to listen to numerous boring lessons in preparation for his future role as a king, and consequently, he was now drained — both mentally and physically, more so than any other day of his life in this world.</p>
@@ -59,7 +59,7 @@ chapter = 2
 <p>The giant breasts defied gravity to stick straight out towards him, settling in a round enamoring shape, and the cherry-colored tips were already hard and erect as if hoping to draw his eyes toward them. Apparently, she was already aroused from their previous interactions, the erect tips of her firm tits being a perfect indicator of that fact.</p>
 <p>Milia blushed in slight embarrassment, her cheeks becoming slightly rosy, when he stared at her breasts with such focus and intensity, but she kept her back straight and her chest sticking out as though asking him to pay more attention towards them and in turn toward her.</p>
 <p>The brown-haired maid gently lifted her massive round breasts with both of her hands. She inched closer towards Sol and pressed them towards each other with Sol’s fully-erect manhood smothered in between their lovely shape.</p>
-<p>“Ohh~!”</p>
+<p>“Ohh!”</p>
 <p>The smooth, unbelievably soft , and springy texture of her shapely breasts surrounded his heated shaft, making it pulsate in anticipation. The warm and firm titty pressure was so pleasant that he could not help but moan out loud, losing any semblance of self-control he had been trying to put on.</p>
 <p>“It has been rather long since I participated in such a carnal act. Do you like it, your highness?”</p>
 <p>She pressed her breasts together firmly and began stroking his hard throbbing rod while turning her pitch-black eyes up toward him, making way for an unbelievably seductive scene, all for Sol to witness and relish.</p>
@@ -68,7 +68,7 @@ chapter = 2
 <p>Sol, entranced by the sight could not avert his gaze away from the beautiful maid and this attention was something Milia relished immensely. Happily, her eyes narrowed into a crescent shape, but her dignified features remained unchanged and her expression was locked in a calm alluring state of a mature enchantress. However, her cheeks looked a bit flushed and she seemed to be breathing a little heavily, her breathing getting more erratic with the passage of time.</p>
 <p>And as she expertly moved her boobs up and down, and gyrated them in different ways to stimulate Sol further, small trickles of milk seeped out from her fully erect cherry-colored nipples.</p>
 <p>“Ah, Milia, your milk…”</p>
-<p>“Nh~… It comes out when I massage them hard enough…but the addition of milk should serve as a good lubricant…”</p>
+<p>“Nh… It comes out when I massage them hard enough…but the addition of milk should serve as a good lubricant…”</p>
 <p>He recalled hearing that all cow women began to produce milk in their teenage years. It was a genetic trait of theirs inherent in every female of their race, which made them an excellent choice as wet nurses and nannies.</p>
 <p>It was reliable enough that a girl’s first lactation was considered as much of a coming-of-age milestone as her first period was, so it was not at all strange for milk to seep out from the breasts of a beautiful adult woman like Milia.</p>
 <p>‘To think that I was fed milk from those same boobs when I was a child.’</p>

@@ -25,7 +25,7 @@ chapter = 687
 
 <p>Letting out a cold sigh, he fixed his gaze on the dust cloud as it began to thin.</p>
 
-<p>“Boy… boy… are you ready to die? Hehehe~”</p>
+<p>“Boy… boy… are you ready to die? Hehehe”</p>
 
 <p>The madman’s voice echoed across the scorched landscape, dripping with sadism, yet Qingyi did not hesitate for a single heartbeat.</p>
 

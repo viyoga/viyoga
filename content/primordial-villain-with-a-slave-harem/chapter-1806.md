@@ -7,7 +7,7 @@ chapter = 1806
 
 <p>"Aurora. His other lover." A beat, and a playful glance slid toward Quinlan. "Well. One of many."</p>
 <p>"Many," Cela repeated faintly.</p>
-<p>"You should have seen us at the Square, you know~" Aurora went on, warming to the subject with scientific enjoyment.</p>
+<p>"You should have seen us at the Square, you know" Aurora went on, warming to the subject with scientific enjoyment.</p>
 <p>"Yeah, yeah!" Lucille giggled, eyes shining.</p>
 <p>"Huh?" Cela gasped.</p>
 <p>Aurora had a sly smirk as she explained, "We walked in right behind him. Ten masks, perfectly synchronized. We were very proud of that walk."</p>

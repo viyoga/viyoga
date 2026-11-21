@@ -15,7 +15,7 @@ chapter = 509
 
 <p>Ruxue’s pale, milky skin and Khaedryss’ obsidian skin contrasted with each other as the creamy skin of their hips met.</p>
 
-<p>“Aghnn~~ No… I have a whole world to manage, after all. I’m just on vacation! Fufufu~~” Ruxue laughed, grabbing Qingyi’s left hand and making him grab one of her boobs.</p>
+<p>“Aghnn No… I have a whole world to manage, after all. I’m just on vacation! Fufufu” Ruxue laughed, grabbing Qingyi’s left hand and making him grab one of her boobs.</p>
 
 <p>Khaedryss, beside her, barely bothered to respond, just looking away and closing her eyes.</p>
 
@@ -35,7 +35,7 @@ chapter = 509
 
 <p>“Yes,” Qingyi kissed her neck and spoke. “It’s time to leave for the Kingdom of Valemont. After that, we’ll go to the Enlightened Sky Empire, okay?”</p>
 
-<p>“Mh-hmm~~” Meilin replied with a cute, high-pitched nasal sigh, feeling Qingyi’s strong hands grip her delicate waist.</p>
+<p>“Mh-hmm” Meilin replied with a cute, high-pitched nasal sigh, feeling Qingyi’s strong hands grip her delicate waist.</p>
 
 <p>Honestly, the route they would be taking wasn’t exactly efficient. They would go to the opposite corner of the continent and have to circle the entire southern region before crossing the Eternal Blue Sea and finally arriving at the Enlightened Sky Empire.</p>
 

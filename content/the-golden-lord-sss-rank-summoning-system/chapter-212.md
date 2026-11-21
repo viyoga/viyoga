@@ -38,7 +38,7 @@ chapter = 212
 <p>She looked into his eyes before leaning forward and pressing her lips to his in a passionate kiss, her tongue slowly sliding into his mouth.</p>
 <p>Mireya, watching the two of them in silence, felt her cheeks grow hot and looked away, feigning sudden interest in the smooth walls of the arena.</p>
 <p>Clearing her throat theatrically, she said, "I’m still here."</p>
-<p>"Nghn~~" Evelyn’s lips parted from Ethan’s with a wet sound, and she turned her face languidly toward Mireya. "Why, teacher? Do you want to join in too?"</p>
+<p>"Nghn" Evelyn’s lips parted from Ethan’s with a wet sound, and she turned her face languidly toward Mireya. "Why, teacher? Do you want to join in too?"</p>
 <p>Mireya blushed even more at those words, turning her face away and huffing indignantly, unable to meet either of their eyes.</p>
 <p>Honestly, she was surprised too.</p>
 <p>An artifact of that caliber wasn’t something one could easily obtain.</p>

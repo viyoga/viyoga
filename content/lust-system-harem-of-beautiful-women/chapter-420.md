@@ -71,7 +71,7 @@ chapter = 420
 
 <p>The System’s notification chime rang out. Luis was exceptionally pleased, a wide grin spreading across his face as he thought to himself that this green tea bitch’s appearance had been a godsend.</p>
 
-<p>Nancy finally snapped out of her daze and pouted coquettishly, &quot;You’re so bad, honey~ Depositing that much, when will I ever use it all up?&quot;</p>
+<p>Nancy finally snapped out of her daze and pouted coquettishly, &quot;You’re so bad, honey Depositing that much, when will I ever use it all up?&quot;</p>
 
 <p>Luis warmly wrapped an arm around her slender waist, gazing at her with deep affection. &quot;It’s fine, just bring your sisters along to enjoy yourselves more often. It’s not that much money anyway. Your happiness is all that matters.&quot;</p>
 
@@ -91,9 +91,9 @@ chapter = 420
 
 <p>Deewa’s face instantly darkened. She let out a cold snort, turned on her heel, and stalked away, her mood for any beauty treatments utterly ruined.</p>
 
-<p>&quot;Deewa, don’t go! We’re all classmates here, don’t be so petty~&quot;</p>
+<p>&quot;Deewa, don’t go! We’re all classmates here, don’t be so petty&quot;</p>
 
-<p>&quot;My treat today! My card gets an even better discount, you know~&quot;</p>
+<p>&quot;My treat today! My card gets an even better discount, you know&quot;</p>
 
 <p>&quot;Don’t leave... Do me a favor, will you? Otherwise, how will I ever spend all this money?&quot;</p>
 

@@ -25,7 +25,7 @@ chapter = 515
 
 <p>He leaned over her, planting a kiss on her lips.</p>
 
-<p>“Hm~~” A soft moan escaped Meilin’s lips as she allowed herself to melt into her husband’s embrace. “Big sister Feiyan taught me that the best time to tease you is anytime.”</p>
+<p>“Hm” A soft moan escaped Meilin’s lips as she allowed herself to melt into her husband’s embrace. “Big sister Feiyan taught me that the best time to tease you is anytime.”</p>
 
 <p>Qingyi’s mouth opened to respond, but he was interrupted by a loud knock, followed by a familiar voice.</p>
 

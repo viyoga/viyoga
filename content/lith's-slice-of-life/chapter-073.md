@@ -9,7 +9,7 @@ Lith parted Lilith’s legs and looked at his mother’s sweet pink slits which 
 
 He looked at Lilith in the eyes and she too looked at him. He smiled and licked his finger which had just come out of her hole. She too smiled without feeling even a little embarrassed and on top of that, she also gave him a wink. Lith positioned his shaft on her entrance and he rubbed it a few times. He slowly pushed it inside her and reached all the way to the end.
 
-“Mhm~”
+“Mhm”
 
 Lilith released a satisfied and relaxed moan and closed her eyes to feel her son inside of her.
 
@@ -29,7 +29,7 @@ Lucy released a muffled moan when she felt her mother’s touch on her sensitive
 
 After twenty minutes, Lith started increasing his pace and he moved faster. He got back up and placed his hands on Lilith’s knees. Lilith was in a M shape right now. He moved his dick in her pussy faster and also much more deeper all the way to touching her womb.
 
-“Ohhhh~”
+“Ohhhh”
 
 Lilith moaned a little loudly when she felt Lith’s cock balls deep in her. She had broken the kiss with Lucy due to this and had moaned. Lith felt his mother’s hole getting tighter and he bent to the side and squeezed Lucy’s right ass. Lucy looked at him and Lith nodded, giving her certain signal. Lucy too nodded and bent towards her mother’s neck and bit on her. She started sucking her blood while Lith fucked her pussy.
 
@@ -51,7 +51,7 @@ Lith increased his pace once again and Lucy too rubbed aggressively on her mothe
 
 *Spurrtt*
 
-“Ohhhhhhh~”
+“Ohhhhhhh”
 
 “Agh..”
 
@@ -99,7 +99,7 @@ He then looked at his mother and with the same smile, said
 
 Lilith smiled and went towards Lith. She then looked at her daughter’s ass which had a buttplug in it. Lith noticed her looking at it and smirked. He removed the buttplug slowly out of Lucy’s ass hole. After removing it fully, Lilith and Lith, both could see Lucy’s ass hole contracting and relaxing rapidly. It was clear that Lucy was very horny and needed a cock very quickly in her ass hole. Lith didn’t make her wait for too long. He got behind her, positioned himself and shoved his cock deep in her with one push.
 
-“Mhmm~”
+“Mhmm”
 
 Lucy moaned in satisfaction. Finally, finally her body got the thing she wanted the most. Lith could feel Lucy’s walls tightening around his shaft. He knew she just had a small orgasm because of his thrust and he waited for it to subdue. Lilith hugged Lith from behind and bit on his neck. She started sucking his blood and Lith got very turned on because of it. His shaft inside Lucy started twitching a little. Lucy felt it and looked back and saw the scene and understood what was going on. She had a little red face but she still said
 
@@ -127,7 +127,7 @@ Lith said while looking at his mother. Lilith stopped licking Lucy and deepthroa
 
 Lilith after a few minutes put her two fingers inside Lucy and sucked on her clit.
 
-“Ohhh~”
+“Ohhh”
 
 Lucy moaned after feeling the penetration inside her pussy. She liked this feeling. Getting penetrated in both of her holes felt nice to her. Lilith heard Lucy’s moan and knew her daughter liked this. She fingered Lucy’s pussy and Lith kept fucking her ass hole.
 
@@ -137,7 +137,7 @@ After a few more minutes of so much pleasure, Lucy moaned lewdly asking for Lith
 
 *Spurrttt*
 
-“Ohhhhhh~”
+“Ohhhhhh”
 
 Lucy moaned loudly and arched her back and started shaking. She had a big orgasm just like Lilith a while ago. Lilith didn’t waste time and quickly put her mouth onto Lucy’s pussy. She started gulping down her juices which spewed out. Lith too had climaxed. He stayed in the position he was in and didn’t move and let his big sister enjoy her orgasm as much as she could.
 

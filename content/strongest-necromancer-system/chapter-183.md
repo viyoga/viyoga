@@ -90,7 +90,7 @@ chapter = 183
 <p>-&gt; [NEW!] Bring Gina Fey back to life</p>
 <p>——</p>
 <p>This was what Jason’s system tab looked like now. He had finally passed the 50% mark in his Rank progression and it wouldn’t take long before he finally reached SS Rank. But once Jason’s eyes landed on the Mission tab and the new mission there, he felt his eyes narrow into slits. It was a sobering reminder of what had been tormenting him all this time and Jason closed his eyes and released a small sigh to calm himself.</p>
-<p>Ding~!</p>
+<p>Ding!</p>
 <p>The sound of a new notification appearing on his tab gave Jason a chance to distract himself and Jason immediately took it! He closed the main tab that showed his stats and opened the new tab!</p>
 <p>——</p>
 <p>Congratulations!</p>

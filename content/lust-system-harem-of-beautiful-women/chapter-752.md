@@ -103,7 +103,7 @@ chapter = 752
 
 <p>&quot;Prepare dinner. I’m staying here overnight.&quot;</p>
 
-<p>Luis lit a cigarette and said this simply. Deewa’s eyes were already filled with tears, and she said in a delicate voice, &quot;Got it~&quot;</p>
+<p>Luis lit a cigarette and said this simply. Deewa’s eyes were already filled with tears, and she said in a delicate voice, &quot;Got it&quot;</p>
 
 <p>As soon as the door closed, she helped her grandmother back inside but couldn’t stop worrying. She supported herself on a ladder and watched anxiously from the periphery.</p>
 

@@ -71,13 +71,13 @@ chapter = 1085
 <p>"This Person...?"</p>
 <p>Ah, this is Kanzaki Saya, the Team Leader of our Moth Tactical Assault Team 1. Tetsuhana Ayame, whom you met earlier, is also the Team Leader of Assault Team 1.</p>
 <p>Ah, I see. So Bullet Lover's name is Kanzaki Saya. Her name is Scabbard... You could say it's a name that suits a Combat Class Character.</p>
-<p>Kanzaki Saya~!</p>
+<p>Kanzaki Saya!</p>
 <p>When I made Tetsu Kagerou, she's a Character I made together with him hehe.</p>
-<p>Requested by TheDreaming-nim: Taira Camila in the Park: 1. Spreading Legs while covering her groin on a bench 2. Interview~!</p>
+<p>Requested by TheDreaming-nim: Taira Camila in the Park: 1. Spreading Legs while covering her groin on a bench 2. Interview!</p>
 <p>1.</p>
 <p>2.</p>
 <p>When I tried the requested pigeon pose, only this kneeling posture came out... So from the next cut, I made it with the alternative request of breast support hehe.</p>
-<p>A way to roughly figure out if it's been Learning or not~~!</p>
+<p>A way to roughly figure out if it's been Learning or not!</p>
 <p>If you look at the prompt auto-completion feature like this, you'll see numbers behind it, and the higher this number, the higher the Learning Probability hehe. You can consider 10-digit and 100-digit numbers as almost impossible hehe.</p>
 <p>Prompts that don't show auto-completion have a Possibility close to 0 hehe.</p>
 <p>If a number of this Level appears, it's almost certain hehe.</p>

@@ -91,7 +91,7 @@ chapter = 57
 
 <p>&quot;Brother in law... I’m on my lunch break.&quot;</p>
 
-<p>&quot;Baby, brother in law misses you~&quot;</p>
+<p>&quot;Baby, brother in law misses you&quot;</p>
 
 <p>&quot;I miss you too!!&quot;</p>
 
@@ -99,7 +99,7 @@ chapter = 57
 
 <p>After chatting with her for a while, Luis asked: &quot;Baby, why do they call you Bunny.&quot;</p>
 
-<p>&quot;I need to get up and prepare for PT~&quot;</p>
+<p>&quot;I need to get up and prepare for PT&quot;</p>
 
 <p>Leah immediately avoided this topic.</p>
 

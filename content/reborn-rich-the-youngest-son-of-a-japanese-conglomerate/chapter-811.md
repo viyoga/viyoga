@@ -40,7 +40,7 @@ chapter = 811
 <p>Taira Jiro said, Collapsing into the seat on Jinmija's Opposite Side. It was an extremely impolite Attitude, not treating the other party as a Negotiation partner, but Taira Jiro's confident Attitude somewhat masked that Feeling.</p>
 <p>"It's been over 20 years since I parted ways with Saburo-ssi, so I'm not your sister-in-law. And I wasn't married to him either."</p>
 <p>No matter how arrogant Taira Jiro acted, Jinmija knew very well that Hatake Investment Company was currently in the superior position in the Negotiation. Jinmija showed a deeply displeased Expression and frowned.</p>
-<p>"Haha, it's a Playful Jest~! I just said it to try and get closer since you're my lovely Nephew's Mother, so don't take it too much to Heart."</p>
+<p>"Haha, it's a Playful Jest! I just said it to try and get closer since you're my lovely Nephew's Mother, so don't take it too much to Heart."</p>
 <p>Taira Jiro slyly passed off his Mistake as a Joke. Jinmija couldn't say anything more and entered the Negotiation.</p>
 <p>"I want Hatake Mining. I hope you'll sell it."</p>
 <p>The original content to be negotiated today was how much Mithril Hatake Mining would supply to Taira Steel. But Taira Jiro suddenly made a Proposal to buy Hatake Mining, which hadn't been discussed beforehand.</p>
@@ -88,10 +88,10 @@ chapter = 811
 <p>What Taira Jiro said first in the Negotiation was that he wanted Hatake Mining. That was Taira Jiro's True Feelings. Seeing him dismiss Jinmija as merely a former housewife, it seemed he had no intention of dealing with her properly from the start.</p>
 <p>"If Hatake Mining becomes mine, there's no need to buy Mithril. I'll have to show my Nephew-nim and my Nephew's Mother how terrifying it is to do Business in Japan. Her Attitude was also arrogant, so she won't be able to hold Resentment against me, right?"</p>
 <p>Taira Jiro watched the Hatake Investment Company building recede, a wry Smile on his Face.</p>
-<p>Gojoy-nim requested Sakagami Rena's usual Attire and Underwear~!</p>
+<p>Gojoy-nim requested Sakagami Rena's usual Attire and Underwear!</p>
 <p>She was the mask Woman in the Early Stage, hehe.</p>
 <p>Her other usual attire is, of course, the cyber Suit she wears during missions, hehe.</p>
-<p>Underwear~!</p>
-<p>Home Economics Teacher new model Remake~!</p>
+<p>Underwear!</p>
+<p>Home Economics Teacher new model Remake!</p>
 <p>No matter how much I tried to create it with the new model, it didn't have that Feeling. So, I trained it with the numerous Home Economics Teacher Illustrations I already had to create a LORA specifically for the new model, hehe. I didn't know I'd even get my Hands on Learning, hehe.</p>
-<p>Kkiyoot~! Does it look good? Hehe.</p>
+<p>Kkiyoot! Does it look good? Hehe.</p>

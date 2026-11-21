@@ -38,7 +38,7 @@ chapter = 370
 <p>He squeezed his mother’s breast firmly, and her whole body shuddered in response, the voluptuous flesh billowing around his fingers like warm dough.</p>
 <p>Together, the two women let out muffled moans, their trembling hands flying to Ethan’s arms in a feeble, half-hearted attempt to restrain him.</p>
 <p>"H-husband, behave yourself!"</p>
-<p>"Yeah~ nghnn~ I didn’t raise you like this!"</p>
+<p>"Yeah nghnn I didn’t raise you like this!"</p>
 <p>The two complained in unison, eliciting an amused laugh from Ethan.</p>
 <p>"Well... it’s just that I’m way too in love with both of you..." he teased, leaning over Alice and stealing a deep kiss from her pink lips.</p>
 <p>When he turned to Amelia, she tried to pull away, her face already flushed to the tips of her ears, but Ethan cupped her chin and kissed her anyway.</p>

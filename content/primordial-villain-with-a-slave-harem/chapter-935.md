@@ -41,7 +41,7 @@ chapter = 935
 <p>A dimensional tear materialized on the tree’s surface.</p>
 <p>Intricate, ancient glyphs pulsed around the edges of the wooden arch, vines twisting to form a frame of sigils. The trunk split down the middle without breaking, welcoming the path now open to those who dared walk it.</p>
 <p>Rosie turned back to them, cheeks puffed up in pride, arms raised high like a child expecting applause.</p>
-<p>"Ta-da~!"</p>
+<p>"Ta-da!"</p>
 <p>Seeing the dumbfounded expressions still frozen on the faces of her beloved family, Rosie let out a dramatic sigh and shook her head in playful disapproval.</p>
 <p>"Adults are so slow..." she muttered with exaggerated exasperation.</p>
 <p>Then, without another word, the tiny dryad girl turned on her heel and darted toward the dimensional tear.</p>
@@ -53,7 +53,7 @@ chapter = 935
 <p>"Boooooring...!" she declared, hands on her hips.</p>
 <p>No flowers. No glowing mushrooms. No fluttering lights or singing leaves. No life.</p>
 <p>Just an empty plane.</p>
-<p>"Ei~!" she chirped again, bright and proud, as her hands clapped together.</p>
+<p>"Ei!" she chirped again, bright and proud, as her hands clapped together.</p>
 <p>The last of the energy she had absorbed from Quinlan, passed during their forehead touch, burst forth from her little form in shimmering rings of light.</p>
 <p>Her fairy-tale tree, back in Thalorind, reacted immediately.</p>
 <p>Its many branches twisted, stretched, and dug into the ground, reaching into the gardens, the groves, and the surrounding woods near the stronghold. It sought seedlings, saplings, spores, and fragments of magic flora, gathering them.</p>
@@ -64,10 +64,10 @@ chapter = 935
 <p>Spinning, giggling, skipping across the soul realm’s untouched air, she began scattering seeds everywhere. She tossed them high into the windless sky, let them fall into rivers, tucked them lovingly into mountain cracks.</p>
 <p>And all the while, she sang.</p>
 <p>A soft, fluttery little melody that was a lullaby made of laughter and spring rain.</p>
-<p>"♪ Bloom, bloom, bloom~</p>
-<p>Fill the air with green perfume~</p>
+<p>"♪ Bloom, bloom, bloom</p>
+<p>Fill the air with green perfume</p>
 <p>Roots go deep, petals wide,</p>
-<p>Make this place Daddy’s pretty pride~ ♪"</p>
+<p>Make this place Daddy’s pretty pride ♪"</p>
 <p>She continued doing so unimpeded, with the branches of her tree supplying her with new ammunition each time the dryad ran out.</p>
 <p>But then, from one moment to the next, she stopped.</p>
 <p>The song cut off mid-hum.</p>

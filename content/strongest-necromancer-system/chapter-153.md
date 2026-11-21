@@ -18,7 +18,7 @@ chapter = 153
 <p>Darren immediately puffed up again at that bit of praise and Jason laughed slightly at how quickly his mood changed. What a crazy bastard.</p>
 <p>"Ohh, so you’re a technopath, bratza! That’s amazing! I have never seen anyone control technology before!"</p>
 <p>Ricardo spoke up from the other side of the clearing while looking up at the multiple drones circling overhead. He stretched out his senses to see what was powering the drones and was surprised when he noticed a decent-sized Magic Crystal inside each one of them! Those crystals would have been at least three hundred thousand dollars each! That meant these ten drones cost more than three million dollars altogether!</p>
-<p>"Ooh~ And you even fitted them with magic-powered lasers! You’re really rich, aren’t you bratza!?"</p>
+<p>"Ooh And you even fitted them with magic-powered lasers! You’re really rich, aren’t you bratza!?"</p>
 <p>Darren gave a closed-eye chuckle while rubbing his finger under his nose pridefully. But Jason could see a slight blush on his face as he enjoyed the bit of praise from the older superhuman.</p>
 <p>At the side, Henry was looking up at the drones with a completely different expression on his face!</p>
 <p>’What the hell? What the actual fucking hell!? What was the meaning of this shit!?’</p>

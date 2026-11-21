@@ -117,11 +117,11 @@ The four ladies walked together through the hallway to the private chambers and 
 
 Alea sensed people arrive and she turned to look at them.
 
-"Alea~" Mayzin walked towards Alea and said with a happy smile.
+"Alea" Mayzin walked towards Alea and said with a happy smile.
 
-"Aunty!~" Alea got up and hugged Mayzin as she saw her.
+"Aunty!" Alea got up and hugged Mayzin as she saw her.
 
-"Alea~" Mayzin swayed side to side after hugging Alea. "I missed you."
+"Alea" Mayzin swayed side to side after hugging Alea. "I missed you."
 
 "Alea missed you too, aunt." Alea answered with a happy smile on her face.
 
@@ -135,15 +135,15 @@ She hugged her as well and said happily, "Alea missed you too, aunt."
 
 Lilith chuckled. "Aunt did too. How's my sweet Alea doing?" 
 
-"I am happy~" Alea said cheerfully. "How has aunt been?" She asked back.
+"I am happy" Alea said cheerfully. "How has aunt been?" She asked back.
 
 "Aunt met Alea, aunt is happy too now, fufufu." Lilith said with a smile.
 
 The ladies chuckled hearing that and Alea was all smiles hearing that too.
 
-Her gaze then fell on Lucifer as she broke the hug with Lilith and she said, "Aunty Lucifer!~"
+Her gaze then fell on Lucifer as she broke the hug with Lilith and she said, "Aunty Lucifer!"
 
-"Alea~" Alea's bright and contagious smile lifted Lucifer's mood and made her get cheerful as well.
+"Alea" Alea's bright and contagious smile lifted Lucifer's mood and made her get cheerful as well.
 
 As Alea was about to make her way towards Lucifer, Agalea stopped her from doing so as she held her hand.
 

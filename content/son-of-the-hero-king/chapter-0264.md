@@ -45,7 +45,7 @@ chapter = 264
 <p>However, his words were as insulting as they could get.</p>
 <p>Hearing him, Nihil tilted her head for an instant before nodding,</p>
 <p>“Zwei. Can you deal with her?”</p>
-<p>“Hahaha~! This is why I love you, boss!”</p>
+<p>“Hahaha! This is why I love you, boss!”</p>
 <p>…</p>
 <p>…</p>
 <p>…</p>

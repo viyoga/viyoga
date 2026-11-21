@@ -12,7 +12,7 @@ chapter = 960
 <p>"I think I look mysterious," Calypso said.</p>
 <p>"Motion denied," said Ms. Rook.</p>
 <p>"Then we don’t hide," Kaiden said. "I’m not smuggling two monster queens through a service entrance like contraband."</p>
-<p>"So the date is also bait," Nyx said, tapping through camera coverage of the east wing with visible professional joy. "A gorgeous, well-fed piece of bait that picked its own pond and stocked it with sharks first. I can work with this, Kai~"</p>
+<p>"So the date is also bait," Nyx said, tapping through camera coverage of the east wing with visible professional joy. "A gorgeous, well-fed piece of bait that picked its own pond and stocked it with sharks first. I can work with this, Kai"</p>
 <p>She flicked the mock-up of the sun hat off her screen. "And besties, you will be the loudest thing in that building the second you walk in. Good. Loud is the plan. Subtle died in committee."</p>
 <p>So they went the other way, and the other way was Eclipse’s own ground rules.</p>
 <p>Kaiden was honest with the room about what the afternoon was for, and it was for two things at once: his monster girls got a real date in the open, and whoever had been circling this family got a clean look at the bait, with every chance to bite.</p>
@@ -44,7 +44,7 @@ chapter = 960
 <p>"MOM. MOM, LOOK. IT’S THE AXE LADY."</p>
 <p>"That’s me," Calypso told the child warmly. "I’m the axe lady."</p>
 <p>The child pointed at the white bow tied to the base of her left horn, beyond further speech.</p>
-<p>"I know," Calypso agreed. "It’s a cute ribbon, right~?"</p>
+<p>"I know," Calypso agreed. "It’s a cute ribbon, right?"</p>
 <p>"Yeah! Mommy, buy me one!"</p>
 <p>"Hahaha!" Calypso broke into laughter.</p>
 <p>She was still laughing when she found Kaiden over the top of the crowd, and for half a second the laugh went somewhere quieter. The whole drop-off lane had its phones up, and not one person in it was running. A child had just asked her for a ribbon.</p>

@@ -57,7 +57,7 @@ chapter = 950
 
 <p>Her hard nipples poked two sharp points against the thin fabric.</p>
 
-<p>"AGHNN~ fuck!" Khaedryss grunted.</p>
+<p>"AGHNN fuck!" Khaedryss grunted.</p>
 
 <p>She leaned over Qingyi and sealed his lips in a passionate kiss, her breasts crushing against his chest, the soft mounds squashing between their bodies.</p>
 
@@ -87,7 +87,7 @@ chapter = 950
 
 <p>He slapped Khaedryss’s right buttock. The cheek caved in around his palm, then sprang back with a heavy wobble that rolled all the way through it and set the other one trembling too.</p>
 
-<p>"Aghnn~~ good~~ come on, hubby~ fill Khaedryss’s tight little pussy with cum! I want to be pregnant with our little warrior before this trip is over!"</p>
+<p>"Aghnn good come on, hubby fill Khaedryss’s tight little pussy with cum! I want to be pregnant with our little warrior before this trip is over!"</p>
 
 <p>Khaedryss ground her hips back against Qingyi’s as she spoke, her ass circling slowly against his pelvis while her pussy walls squeezed and milked his cock.</p>
 
@@ -119,11 +119,11 @@ chapter = 950
 
 <p>plap</p>
 
-<p>"Aghnn~~"</p>
+<p>"Aghnn"</p>
 
 <p>plap</p>
 
-<p>"F-faster~ Qingyi~ fuck this one’s fat cunt harder!" she demanded, her voice trembling amid the loud, obscene slaps, the words coming out broken and breathless with each impact.</p>
+<p>"F-faster Qingyi fuck this one’s fat cunt harder!" she demanded, her voice trembling amid the loud, obscene slaps, the words coming out broken and breathless with each impact.</p>
 
 <p>Qingyi, of course, didn’t hesitate.</p>
 

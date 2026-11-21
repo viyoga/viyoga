@@ -27,7 +27,7 @@ chapter = 196
 <p>In the end, she opened up an unparalleled great era with her own hands.</p>
 <p>This is Ravenna, a paranoid with intelligence and rationality that have also become "defects",like Seraphina, but totally opposite to Seraphina, who has not yet become a hero.</p>
 <p>At this moment, she stared at Ansel standing at the door for a full three seconds, then planned to leave without saying a word, and then—</p>
-<p>"duang~"</p>
+<p>"duang"</p>
 <p>Ravenna made some modifications to this puppet. For various reasons, she reduced her height a lot, so now she, directly bumped into some firm, elastic and soft object that suddenly appeared in front of her.</p>
 <p>"Have some manners!"</p>
 <p>Seraphina, who blocked Ravenna's way, grinned slightly: "Ansel came to find you, and you want to leave without even saying hello?"</p>

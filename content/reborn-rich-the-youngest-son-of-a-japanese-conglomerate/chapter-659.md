@@ -5,7 +5,7 @@ weight = 659
 chapter = 659
 +++
 
-<p>Warning! An illustration featuring underwear appears~! Please check your surroundings and enjoy!</p>
+<p>Warning! An illustration featuring underwear appears! Please check your surroundings and enjoy!</p>
 <p>Kukukukuku!</p>
 <p>The Helmeted Woman, Seizawa Shii, called Ogre, and Kinui Tachio's Momentum clashed, and the atmosphere trembled. Of the two who briefly faced off, Seizawa Shii was the first to move.</p>
 <p>Whooong!</p>

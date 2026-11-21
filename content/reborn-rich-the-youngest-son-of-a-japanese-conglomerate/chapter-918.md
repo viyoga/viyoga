@@ -63,7 +63,7 @@ chapter = 918
 <p>Shido Tsubaki? Why is her name suddenly coming up?</p>
 <p>"You made Shido a vassal?"</p>
 <p>Sakagami Rena, who was listening nearby, with a surprised Expression, asked Otagi Yuka.</p>
-<p>"Nooo~! Can you please listen to the whole Story first?"</p>
+<p>"Nooo! Can you please listen to the whole Story first?"</p>
 <p>"Sorry...."</p>
 <p>Perhaps due to the lack of Hyeol-Gi, Otagi Yuka's Attitude became a little sharp. In fact, I also thought to myself, 'Did she make Shido Tsubaki a vassal?' but it was a good thing I didn't say anything.</p>
 <p>"Tsubaki called, and then what?"</p>
