@@ -1,5 +1,5 @@
 +++
-title = "Chapter 152: Tanned Kittens Come Pre-Drenched"
+title = "Chapter 152: Tanned Kittens Come Pre-Drenched 18+"
 weight = 152
 [extra]
 chapter = 152
