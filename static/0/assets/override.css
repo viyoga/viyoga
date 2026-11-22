@@ -1,0 +1,363 @@
+/* /0 replica: same old UI, solid plain surfaces, square corners.
+   Loaded after /style.css so every rule here wins. */
+
+/* ── Fonts ─────────────────────────────────────────────────────────── */
+@font-face {
+  font-family: "Iosevka V0";
+  src: url("/0/assets/fonts/Iosevka-Regular.woff2") format("woff2");
+  font-weight: 400;
+  font-style: normal;
+  font-display: swap;
+}
+@font-face {
+  font-family: "Iosevka V0";
+  src: url("/0/assets/fonts/Iosevka-Bold.woff2") format("woff2");
+  font-weight: 700;
+  font-style: normal;
+  font-display: swap;
+}
+@font-face {
+  font-family: "Annotation Mono V0";
+  src: url("/0/assets/fonts/AnnotationMono-Regular.woff2") format("woff2");
+  font-weight: 400;
+  font-style: normal;
+  font-display: swap;
+}
+@font-face {
+  font-family: "Annotation Mono V0";
+  src: url("/0/assets/fonts/AnnotationMono-Bold.woff2") format("woff2");
+  font-weight: 700;
+  font-style: normal;
+  font-display: swap;
+}
+@font-face {
+  font-family: "Nunito V0";
+  src: url("/0/assets/fonts/Nunito-VF.woff2") format("woff2");
+  font-weight: 200 1000;
+  font-style: normal;
+  font-display: swap;
+}
+
+/* Old font ids are kept so the old switchers keep working; they now
+   resolve to the three replica fonts. */
+html[data-font="maple"] {
+  font-size: 110%;
+  --font-mono: "Annotation Mono V0", monospace;
+  --font-read: "Annotation Mono V0", monospace;
+}
+html[data-font="iosevka"] {
+  font-size: 115%;
+  --font-mono: "Iosevka V0", monospace;
+  --font-read: "Iosevka V0", monospace;
+}
+html[data-font="space"] {
+  font-size: 110%;
+  --font-mono: "Nunito V0", sans-serif;
+  --font-read: "Nunito V0", sans-serif;
+  --content-w-read: 680px;
+}
+
+/* ── Theme: Caelus (amber slot) ───────────────────────────────────── */
+html[data-theme="amber"],
+html[data-theme="caelus"] {
+  --bg: #0f0f0f;
+  --bg-elev: #1a1a1a;
+  --bg-panel: #1a1a1a;
+  --bg-panel-alt: #262626;
+  --border: rgba(217, 205, 181, .18);
+  --border-strong: rgba(217, 205, 181, .42);
+  --fg: #d9cdb5;
+  --fg-dim: #a89f8c;
+  --fg-muted: #7d776b;
+  --accent: #ef934d;
+  --accent-2: #e87015;
+  --accent-bright: #f5b07a;
+  --accent-soft: #ef934d;
+  --accent-dim: #b06a2e;
+  --link: #71b4d6;
+  --link-hover: #9fd0e8;
+  --focus-ring: #ef934d;
+  --grid-fade: #0f0f0f;
+  --grid-line: rgba(239, 147, 77, .09);
+  --grid-dot: rgba(239, 147, 77, .30);
+  --bg-glow: #0f0f0f;
+  --bg-core: #0f0f0f;
+  --bar-a: #ef934d;
+  --bar-b: #e87015;
+  --bar-c: #f5b07a;
+  --orange: #ef934d;
+  --orange-deep: #8a4a16;
+  --red: #f16e65;
+  --red-deep: #c44545;
+  --cyan: #71b4d6;
+  --cyan-deep: #3d7a99;
+  --yellow: #f5b07a;
+  --cat-dark: #5a3a20;
+  --cat-mid: #a8642e;
+  --cat-base: #ef934d;
+  --cat-light: #f5b07a;
+  --glass: #1a1a1a;
+  --glass-hi: #262626;
+  --line: rgba(217, 205, 181, .18);
+  --line-hi: rgba(217, 205, 181, .42);
+  --sheen: transparent;
+  --grid: rgba(239, 147, 77, .07);
+  --glow: rgba(239, 147, 77, .30);
+  --halo-a: transparent;
+  --halo-b: transparent;
+  --blur: 0px;
+  --sat: 100%;
+}
+
+/* ── Theme: Catppuccin Mocha (mallow slot) ────────────────────────── */
+html[data-theme="mallow"],
+html[data-theme="catppuccin-mocha"] {
+  --bg: #1e1e2e;
+  --bg-elev: #313244;
+  --bg-panel: #313244;
+  --bg-panel-alt: #45475a;
+  --border: rgba(205, 214, 244, .18);
+  --border-strong: rgba(205, 214, 244, .42);
+  --fg: #cdd6f4;
+  --fg-dim: #a6adc8;
+  --fg-muted: #7f849c;
+  --accent: #fab387;
+  --accent-2: #f5c2e7;
+  --accent-bright: #fbcba8;
+  --accent-soft: #fab387;
+  --accent-dim: #b06a4a;
+  --link: #89b4fa;
+  --link-hover: #b4c8ff;
+  --focus-ring: #fab387;
+  --grid-fade: #1e1e2e;
+  --grid-line: rgba(250, 179, 135, .09);
+  --grid-dot: rgba(250, 179, 135, .30);
+  --bg-glow: #1e1e2e;
+  --bg-core: #1e1e2e;
+  --bar-a: #fab387;
+  --bar-b: #f5c2e7;
+  --bar-c: #f9e2af;
+  --orange: #fab387;
+  --orange-deep: #a8643e;
+  --red: #f38ba8;
+  --red-deep: #c45a75;
+  --cyan: #89dceb;
+  --cyan-deep: #4a8a99;
+  --yellow: #f9e2af;
+  --cat-dark: #4a3a2e;
+  --cat-mid: #a86a4a;
+  --cat-base: #fab387;
+  --cat-light: #fbcba8;
+  --glass: #313244;
+  --glass-hi: #45475a;
+  --line: rgba(205, 214, 244, .18);
+  --line-hi: rgba(205, 214, 244, .42);
+  --sheen: transparent;
+  --grid: rgba(250, 179, 135, .07);
+  --glow: rgba(250, 179, 135, .30);
+  --halo-a: transparent;
+  --halo-b: transparent;
+  --blur: 0px;
+  --sat: 100%;
+}
+
+/* ── Theme: Dracula (safelight slot) ──────────────────────────────── */
+html[data-theme="safelight"],
+html[data-theme="dracula"] {
+  --bg: #282a36;
+  --bg-elev: #343746;
+  --bg-panel: #343746;
+  --bg-panel-alt: #44475a;
+  --border: rgba(248, 248, 242, .18);
+  --border-strong: rgba(248, 248, 242, .42);
+  --fg: #f8f8f2;
+  --fg-dim: #b8b8c0;
+  --fg-muted: #8a8a96;
+  --accent: #ffb86c;
+  --accent-2: #ff79c6;
+  --accent-bright: #ffd0a0;
+  --accent-soft: #ffb86c;
+  --accent-dim: #b07a3e;
+  --link: #8be9fd;
+  --link-hover: #b0f0ff;
+  --focus-ring: #ffb86c;
+  --grid-fade: #282a36;
+  --grid-line: rgba(255, 184, 108, .09);
+  --grid-dot: rgba(255, 184, 108, .30);
+  --bg-glow: #282a36;
+  --bg-core: #282a36;
+  --bar-a: #ffb86c;
+  --bar-b: #ff79c6;
+  --bar-c: #bd93f9;
+  --orange: #ffb86c;
+  --orange-deep: #a8643e;
+  --red: #ff5555;
+  --red-deep: #c44545;
+  --cyan: #8be9fd;
+  --cyan-deep: #4a8a99;
+  --yellow: #f1fa8c;
+  --cat-dark: #4a3a2e;
+  --cat-mid: #a86a4a;
+  --cat-base: #ffb86c;
+  --cat-light: #ffd0a0;
+  --glass: #343746;
+  --glass-hi: #44475a;
+  --line: rgba(248, 248, 242, .18);
+  --line-hi: rgba(248, 248, 242, .42);
+  --sheen: transparent;
+  --grid: rgba(255, 184, 108, .07);
+  --glow: rgba(255, 184, 108, .30);
+  --halo-a: transparent;
+  --halo-b: transparent;
+  --blur: 0px;
+  --sat: 100%;
+}
+
+/* ── Solid glass tokens ───────────────────────────────────────────── */
+:root {
+  --glass-bg: var(--bg-panel);
+  --glass-bg-subtle: var(--bg-panel);
+  --glass-bg-elev: var(--bg-panel-alt);
+  --glass-bg-strong: var(--bg-panel);
+  --glass-blur: 0px;
+  --glass-hi: var(--border);
+  --glass-bevel-top: none;
+  --glass-bevel-ring: none;
+  --glass-bevel-bottom: none;
+  --glass-shadow: none;
+  --glass-shadow-hover: none;
+  --flare-tint: var(--accent);
+  --flare-filament: transparent;
+  --flare-bloom: transparent;
+  --glass-edge-line: transparent;
+  --glass-edge-width: 0%;
+  --glass-specular: none;
+  --bar-sweep: none;
+  --bar-sweep-rev: none;
+  --blur: 0px;
+  --sat: 100%;
+  --sheen: transparent;
+}
+
+/* ── Kill blur, glass, glow, and rounding everywhere ──────────────── */
+*,
+*::before,
+*::after {
+  border-radius: 0 !important;
+  box-shadow: none !important;
+  text-shadow: none !important;
+  background-image: none !important;
+  filter: none !important;
+}
+* {
+  backdrop-filter: none !important;
+  -webkit-backdrop-filter: none !important;
+}
+html,
+body {
+  background: var(--bg) !important;
+  background-image: none !important;
+}
+body {
+  background-attachment: scroll !important;
+}
+
+/* The pixel kitty is drawn with box-shadow pixels; keep those. */
+.site-cat .cat-face {
+  box-shadow: 29px 0 0 var(--bg) !important;
+}
+.site-cat .cat-whiskers {
+  box-shadow: 0 7px 0 var(--cat-light) !important;
+}
+.site-cat .cat-whiskers::after {
+  box-shadow: 0 7px 0 var(--cat-light) !important;
+}
+.site-cat .cat-paw::after {
+  box-shadow: 7px 0 0 var(--cyan-deep), 14px 0 0 var(--cyan-deep) !important;
+}
+.logo-mark {
+  filter: none !important;
+}
+
+/* Hardcoded gradients on the nav and controls become flat panels. */
+.nav-links a,
+.theme-btn,
+nav.top .logo,
+.glass-btn,
+.dict-launch-btn,
+.back-btn,
+.back-link a,
+.back-link .back-btn,
+.novel-start-btn,
+.type-action-btn,
+.compress-btn,
+.compress-dl-btn,
+.compress-dl-all,
+.walldiff-btn,
+.studio-btn,
+.dict-submit,
+.dict-retry {
+  background: var(--bg-panel) !important;
+  background-image: none !important;
+  box-shadow: none !important;
+}
+
+/* Translucent secondary surfaces become opaque panels. */
+body.chapter-page .chapter-bar {
+  background: var(--bg-panel) !important;
+}
+.chapter-settings {
+  background: var(--bg-panel) !important;
+  background-image: none !important;
+}
+.chapter-bar-index,
+.chapter-bar-arrow,
+.chapter-bar-tools,
+.chapter-bar-arrow.is-off,
+.playlist-bar,
+.playlist-item:hover,
+.novel-hero-quote,
+.dict-input,
+.compress-drop,
+.studio-drop,
+.studio-panel,
+.walldiff-drop,
+.conn-notice {
+  background: var(--bg-panel-alt) !important;
+  background-image: none !important;
+}
+@media (max-width: 768px) {
+  body.reading .chapter-body {
+    text-shadow: 0 1px 3px rgba(0, 0, 0, .55) !important;
+  }
+}
+
+/* Mobile reading sheet: three replica themes, three replica faces. */
+.cs-themes button[data-theme-choice="amber"] {
+  --sw-paper: #0f0f0f;
+  --sw-ink: #ef934d;
+}
+.cs-themes button[data-theme-choice="mallow"] {
+  --sw-paper: #1e1e2e;
+  --sw-ink: #fab387;
+}
+.cs-themes button[data-theme-choice="safelight"] {
+  --sw-paper: #282a36;
+  --sw-ink: #ffb86c;
+}
+.cs-themes button[data-theme-choice="tungsten"],
+.cs-themes button[data-theme-choice="nyctophobia"] {
+  display: none !important;
+}
+.cs-themes i {
+  border: 2px solid var(--sw-ink) !important;
+}
+.cs-faces button[data-font-choice="maple"] b {
+  font-family: "Annotation Mono V0", monospace !important;
+}
+.cs-faces button[data-font-choice="iosevka"] b {
+  font-family: "Iosevka V0", monospace !important;
+}
+.cs-faces button[data-font-choice="space"] b {
+  font-family: "Nunito V0", sans-serif !important;
+}
