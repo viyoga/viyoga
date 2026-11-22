@@ -5,6 +5,41 @@ const PRELOADS =
   '<link rel="preload" href="/0/assets/fonts/Iosevka-Bold.woff2" as="font" type="font/woff2" crossorigin>';
 
 const HEAD_SCRIPT = `<script>(function(){
+  // Keep the replica's preferences separate from the old site's theme/font
+  // keys, so visiting /0 never rewrites the / UI's stored choices.
+  try {
+    var _real = window.localStorage;
+    var _map = function (k) {
+      return (k === "theme" || k === "font") ? "v0-" + k : k;
+    };
+    var _wrap = new Proxy(_real, {
+      get: function (target, prop) {
+        if (prop === "getItem") return function (k) { return target.getItem(_map(k)); };
+        if (prop === "setItem") return function (k, v) { return target.setItem(_map(k), v); };
+        if (prop === "removeItem") return function (k) { return target.removeItem(_map(k)); };
+        if (prop === "clear") return function () { return target.clear(); };
+        if (prop === "key") return function (i) { return target.key(i); };
+        if (prop === "length") return target.length;
+        if (typeof prop === "string" && (prop === "theme" || prop === "font")) {
+          return target.getItem(_map(prop));
+        }
+        return target[prop];
+      },
+      set: function (target, prop, value) {
+        if (typeof prop === "string" && (prop === "theme" || prop === "font")) {
+          target.setItem(_map(prop), value);
+          return true;
+        }
+        target[prop] = value;
+        return true;
+      }
+    });
+    Object.defineProperty(window, "localStorage", {
+      configurable: true,
+      get: function () { return _wrap; }
+    });
+  } catch (e) {}
+
   var root = document.documentElement;
   var themes = ["amber", "mallow", "safelight"];
   window.__THEMES__ = themes;
@@ -20,8 +55,8 @@ const HEAD_SCRIPT = `<script>(function(){
     tungsten: "amber",
     nyctophobia: "safelight"
   };
-  if (t && tmap[t]) t = tmap[t];
   if (!t) { try { t = localStorage.getItem("theme"); } catch (e) {} }
+  if (t && tmap[t]) t = tmap[t];
   if (themes.indexOf(t) < 0) t = "amber";
   root.setAttribute("data-theme", t);
   try { localStorage.setItem("theme", t); } catch (e) {}
@@ -37,8 +72,8 @@ const HEAD_SCRIPT = `<script>(function(){
     nunito: "space",
     space: "space"
   };
-  if (f && fmap[f]) f = fmap[f];
   if (!f) { try { f = localStorage.getItem("font"); } catch (e) {} }
+  if (f && fmap[f]) f = fmap[f];
   if (fonts.indexOf(f) < 0) f = "iosevka";
   root.setAttribute("data-font", f);
   try { localStorage.setItem("font", f); } catch (e) {}
