@@ -37,6 +37,99 @@
   })();</script>
   <title>{% block title %}{{ config.title }}{% endblock title %}</title>
   <link rel="stylesheet" href="/style.css?v=20261119_01">
+  <link id="redesign-css" rel="stylesheet" href="/redesign.css?v=20261122c" disabled>
+  <script>(function(){
+    var root = document.documentElement;
+    var params = null;
+    try { params = new URLSearchParams(window.location.search); } catch (e) {}
+    var qd = params ? params.get('design') : null;
+    var design = (qd === 'new' || qd === 'classic') ? qd : null;
+    if (design) {
+      try { localStorage.setItem('design', design); } catch (e) {}
+    } else {
+      try { design = localStorage.getItem('design'); } catch (e) {}
+    }
+    if (design !== 'new') design = 'classic';
+    root.setAttribute('data-design', design);
+
+    var sheet = document.getElementById('redesign-css');
+    if (sheet) {
+      var on = design === 'new';
+      if (on) sheet.removeAttribute('disabled');
+      else sheet.setAttribute('disabled', '');
+      sheet.disabled = !on;
+    }
+    if (design !== 'new') return;
+
+    // Separate the redesign's theme/font prefs from the classic keys.
+    try {
+      var real = window.localStorage;
+      var map = function (k) {
+        return (k === 'theme' || k === 'font') ? 'v0-' + k : k;
+      };
+      var wrap = new Proxy(real, {
+        get: function (t, p) {
+          if (p === 'getItem') return function (k) { return t.getItem(map(k)); };
+          if (p === 'setItem') return function (k, v) { return t.setItem(map(k), v); };
+          if (p === 'removeItem') return function (k) { return t.removeItem(map(k)); };
+          if (p === 'clear') return function () { return t.clear(); };
+          if (p === 'key') return function (i) { return t.key(i); };
+          if (p === 'length') return t.length;
+          if (typeof p === 'string' && (p === 'theme' || p === 'font')) {
+            return t.getItem(map(p));
+          }
+          return t[p];
+        },
+        set: function (t, p, v) {
+          if (typeof p === 'string' && (p === 'theme' || p === 'font')) {
+            t.setItem(map(p), v);
+            return true;
+          }
+          t[p] = v;
+          return true;
+        }
+      });
+      Object.defineProperty(window, 'localStorage', {
+        configurable: true,
+        get: function () { return wrap; }
+      });
+    } catch (e) {}
+
+    var themes = ['amber', 'mallow', 'safelight'];
+    window.__THEMES__ = themes;
+    var theme = params ? params.get('theme') : null;
+    var tmap = {
+      caelus: 'amber',
+      'catppuccin-mocha': 'mallow',
+      dracula: 'safelight',
+      amber: 'amber',
+      mallow: 'mallow',
+      safelight: 'safelight',
+      tungsten: 'amber',
+      nyctophobia: 'safelight'
+    };
+    if (!theme) { try { theme = localStorage.getItem('theme'); } catch (e) {} }
+    if (theme && tmap[theme]) theme = tmap[theme];
+    if (themes.indexOf(theme) < 0) theme = 'amber';
+    root.setAttribute('data-theme', theme);
+    try { localStorage.setItem('theme', theme); } catch (e) {}
+
+    var fonts = ['maple', 'iosevka', 'space'];
+    var font = params ? params.get('font') : null;
+    var fmap = {
+      annotation: 'maple',
+      'annotation-mono': 'maple',
+      maple: 'maple',
+      iosevka: 'iosevka',
+      nunito: 'space',
+      space: 'space'
+    };
+    if (!font) { try { font = localStorage.getItem('font'); } catch (e) {} }
+    if (font && fmap[font]) font = fmap[font];
+    if (fonts.indexOf(font) < 0) font = 'iosevka';
+    root.setAttribute('data-font', font);
+    try { localStorage.setItem('font', font); } catch (e) {}
+  })();</script>
   <link rel="icon" href="/favicon.svg" type="image/svg+xml">
   <link rel="alternate icon" href="/favicon.ico">
   <link rel="apple-touch-icon" href="/apple-touch-icon.png">
@@ -58,6 +151,9 @@
     <li><a href="/#dictionary">dict</a></li>
     <li><a href="/#stats">stats</a></li>
   </ul>
+  <div class="theme-pick">
+    <button class="theme-btn" id="design-btn" type="button" aria-label="Switch to new design" title="Switch to new design" aria-pressed="false"><svg viewBox="0 0 24 24" aria-hidden="true"><rect x="3" y="4" width="18" height="16"/><path d="M3 9h18M9 9v11"/></svg></button>
+  </div>
   <div class="theme-pick">
     <button class="theme-btn" id="font-btn" type="button" aria-label="Font" title="Font"><svg viewBox="0 0 24 24" aria-hidden="true"><path d="M5 6V4h14v2M12 4v16M9 20h6"/></svg></button>
   </div>
@@ -81,5 +177,7 @@
 <script defer src="/js/spotlight.js?v=20261025"></script>
 <script defer src="/js/flue.js?v=20261025"></script>
 {% block extrascripts %}<script defer src="/js/grid.js?v=20261025"></script>{% endblock extrascripts %}
+<script defer src="/js/design-override.js?v=20261122c"></script>
+<script defer src="/js/design.js?v=20261122c"></script>
 </body>
 </html>
