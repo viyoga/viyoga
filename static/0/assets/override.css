@@ -303,11 +303,18 @@ nav.top .logo,
 }
 
 /* Translucent secondary surfaces become opaque panels. */
-body.chapter-page .chapter-bar {
+.chapter-settings,
+.terminal-bar {
   background: var(--bg-panel) !important;
+  background-image: none !important;
 }
-.chapter-settings {
-  background: var(--bg-panel) !important;
+.section-line {
+  background: var(--border) !important;
+  background-image: none !important;
+}
+.skeleton-line,
+.skeleton-block {
+  background: var(--bg-panel-alt) !important;
   background-image: none !important;
 }
 .chapter-bar-index,
@@ -327,6 +334,9 @@ body.chapter-page .chapter-bar {
   background-image: none !important;
 }
 @media (max-width: 768px) {
+  body.chapter-page .chapter-bar {
+    background: var(--bg-panel) !important;
+  }
   body.reading .chapter-body {
     text-shadow: 0 1px 3px rgba(0, 0, 0, .55) !important;
   }

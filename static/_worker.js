@@ -1,5 +1,5 @@
-const OVERRIDE_CSS = '<link rel="stylesheet" href="/0/assets/override.css?v=20261122a">';
-const OVERRIDE_JS = '<script defer src="/0/assets/override.js?v=20261122a"></script>';
+const OVERRIDE_CSS = '<link rel="stylesheet" href="/0/assets/override.css?v=20261122b">';
+const OVERRIDE_JS = '<script defer src="/0/assets/override.js?v=20261122b"></script>';
 const PRELOADS =
   '<link rel="preload" href="/0/assets/fonts/Iosevka-Regular.woff2" as="font" type="font/woff2" crossorigin>' +
   '<link rel="preload" href="/0/assets/fonts/Iosevka-Bold.woff2" as="font" type="font/woff2" crossorigin>';
