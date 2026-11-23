@@ -3832,42 +3832,29 @@ body.reading .chapter-body {
   will-change: transform;
 }
 
-/* Reveal on scroll: Retro 3D Mechanical Stamp / Pop
+/* Reveal on scroll: a quiet fade with a short rise.
+   No blur, no scale, no stagger — content simply settles into place.
    (gated on html.anim-on, set by anim.js — pre-JS paint stays fully bright) */
-/* Sections resolve out of a blur instead of sliding in: the content is
-   already in place, it just comes into focus. Filter is dropped at the end
-   (the .in state has filter: none) so descendant backdrop-filter surfaces
-   keep sampling the real page after the animation. */
 html.anim-on .reveal {
-  --reveal-blur: 14px;
-  opacity: 0.15;
-  filter: blur(var(--reveal-blur));
-  transform: translateY(10px) scale(0.995);
+  opacity: 0;
+  transform: translateY(8px);
 }
 
 html.anim-on .reveal.in {
   opacity: 1;
-  filter: none;
   transform: none;
-  animation: reveal-clear 0.72s var(--ease-smooth) backwards;
-  animation-delay: var(--delay, 0ms);
+  animation: reveal-rise 0.42s var(--ease-smooth) backwards;
 }
 
-@keyframes reveal-clear {
+@keyframes reveal-rise {
   from {
-    opacity: 0.15;
-    filter: blur(var(--reveal-blur));
-    transform: translateY(10px) scale(0.995);
+    opacity: 0;
+    transform: translateY(8px);
   }
   to {
     opacity: 1;
-    filter: blur(0);
     transform: none;
   }
-}
-
-@media (max-width: 480px) {
-  html.anim-on .reveal { --reveal-blur: 10px; }
 }
 
 /* button press feedback (emil-design-eng tactile spring compression) */

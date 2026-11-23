@@ -27,15 +27,6 @@
     return;
   }
 
-  for (var j = 0; j < els.length; j++) {
-    var el = els[j];
-    var parent = el.parentElement;
-    if (parent) {
-      var idx = Array.prototype.indexOf.call(parent.children, el);
-      el.style.setProperty('--delay', (idx * 60) + 'ms');
-    }
-  }
-
   var io = new IntersectionObserver(function(entries) {
     entries.forEach(function(entry) {
       if (entry.isIntersecting) {
@@ -43,11 +34,11 @@
         io.unobserve(entry.target);
       }
     });
-  }, { threshold: 0.01, rootMargin: '0px 0px 60px 0px' });
+  }, { threshold: 0.01, rootMargin: '0px 0px 180px 0px' });
 
   for (var k = 0; k < els.length; k++) {
     var r = els[k].getBoundingClientRect();
-    if (r.top < window.innerHeight + 60) {
+    if (r.top < window.innerHeight + 180) {
       els[k].classList.add('in');
     } else {
       io.observe(els[k]);
