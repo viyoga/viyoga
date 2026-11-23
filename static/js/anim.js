@@ -1,11 +1,5 @@
 (function() {
   var doc = document;
-  // Gate the dimmed pre-reveal state on this script actually running.
-  // (Previously `html.js` was set in <head>, so first paint showed every
-  // section at 15% opacity until these files arrived — a dark flash.)
-  doc.documentElement.classList.add('anim-on');
-  var reduced = window.matchMedia && window.matchMedia('(prefers-reduced-motion: reduce)').matches;
-
   /* scroll progress bar */
   var bar = doc.getElementById('scroll-bar');
   function updateBar() {
@@ -19,36 +13,6 @@
     window.addEventListener('resize', updateBar);
     updateBar();
   }
-
-  /* reveal on scroll */
-  var els = doc.querySelectorAll('.reveal');
-  if (reduced || !('IntersectionObserver' in window)) {
-    for (var i = 0; i < els.length; i++) els[i].classList.add('in');
-    return;
-  }
-
-  var ticking = false;
-  function updateReveals() {
-    ticking = false;
-    var vh = window.innerHeight;
-    for (var k = 0; k < els.length; k++) {
-      var r = els[k].getBoundingClientRect();
-      if (r.top < vh * 0.88 && r.bottom > 0) {
-        els[k].classList.add('in');
-      } else if (r.bottom < -80 || r.top > vh + 80) {
-        els[k].classList.remove('in');
-      }
-    }
-  }
-  function onScroll() {
-    if (!ticking) {
-      ticking = true;
-      requestAnimationFrame(updateReveals);
-    }
-  }
-  window.addEventListener('scroll', onScroll, { passive: true });
-  window.addEventListener('resize', onScroll);
-  updateReveals();
 
   /* stat counters */
   var counts = doc.querySelectorAll('.stat-count');

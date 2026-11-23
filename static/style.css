@@ -3832,31 +3832,7 @@ body.reading .chapter-body {
   will-change: transform;
 }
 
-/* Reveal on scroll: a pronounced macOS-dock launch, no fade.
-   Sections rise and scale up from the bottom edge with a visible settle,
-   like a window launching from the dock.
-   (gated on html.anim-on, set by anim.js — pre-JS paint stays fully bright) */
-html.anim-on .reveal {
-  transform: scale(0.8) translateY(64px);
-  transform-origin: 50% 100%;
-}
-
-html.anim-on .reveal.in {
-  transform: none;
-  animation: reveal-dock 0.8s cubic-bezier(0.16, 1, 0.3, 1) backwards;
-}
-
-@keyframes reveal-dock {
-  0% {
-    transform: scale(0.8) translateY(64px);
-  }
-  60% {
-    transform: scale(1.02) translateY(-6px);
-  }
-  100% {
-    transform: scale(1) translateY(0);
-  }
-}
+/* Sections are intentionally static: no scroll-triggered reveal effects. */
 
 /* button press feedback (emil-design-eng tactile spring compression) */
 .theme-btn:active {
@@ -3900,7 +3876,6 @@ nav.top .logo:active, .nav-links a:active, .type-action-btn:active,
     transition-duration: 0.01ms !important;
     scroll-behavior: auto !important;
   }
-  html.anim-on .reveal { opacity: 1; transform: none; filter: none; }
 }
 
 /* ── WTC tool (wallpaper theme converter) ── */
