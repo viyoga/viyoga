@@ -29,20 +29,16 @@
 
   var io = new IntersectionObserver(function(entries) {
     entries.forEach(function(entry) {
-      if (entry.isIntersecting) {
-        entry.target.classList.add('in');
-        io.unobserve(entry.target);
-      }
+      entry.target.classList.toggle('in', entry.isIntersecting);
     });
-  }, { threshold: 0.01, rootMargin: '0px 0px 180px 0px' });
+  }, { threshold: 0.01, rootMargin: '160px 0px 160px 0px' });
 
   for (var k = 0; k < els.length; k++) {
     var r = els[k].getBoundingClientRect();
-    if (r.top < window.innerHeight + 180) {
+    if (r.top < window.innerHeight + 160 && r.bottom > -160) {
       els[k].classList.add('in');
-    } else {
-      io.observe(els[k]);
     }
+    io.observe(els[k]);
   }
 
   /* stat counters */
