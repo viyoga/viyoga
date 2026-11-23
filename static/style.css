@@ -474,55 +474,55 @@ html[data-theme="nyctophobia"] {
 }
 
 
-/* ── ocean blue — deep-sea glass — navy water, cyan light, seafoam edges. ── */
+/* ── ocean blue — AMOLED deep sea — near-black water, sky-blue light. ── */
 html[data-theme="ocean"] {
-  --bg: #04121F;
-  --bg-elev: #08243A;
+  --bg: #000000;
+  --bg-elev: #020B14;
   --fg: #E6F7FF;
-  --fg-dim: #94BFD4;
+  --fg-dim: #8FB8CC;
   --accent: #38BDF8;
-  --accent-2: #2DD4BF;
-  --glass: rgba(8, 40, 60, .48);
-  --glass-hi: rgba(18, 74, 104, .68);
-  --line: rgba(56, 189, 248, .18);
-  --line-hi: rgba(94, 234, 212, .48);
-  --sheen: rgba(207, 250, 254, .08);
-  --grid: rgba(56, 189, 248, .07);
-  --glow: rgba(56, 189, 248, .30);
-  --halo-a: rgba(14, 116, 144, .18);
-  --halo-b: rgba(56, 189, 248, .10);
+  --accent-2: #0EA5E9;
+  --glass: rgba(3, 17, 28, .56);
+  --glass-hi: rgba(10, 52, 76, .72);
+  --line: rgba(56, 189, 248, .20);
+  --line-hi: rgba(125, 211, 252, .48);
+  --sheen: rgba(186, 230, 253, .08);
+  --grid: rgba(56, 189, 248, .06);
+  --glow: rgba(56, 189, 248, .28);
+  --halo-a: rgba(14, 165, 233, .14);
+  --halo-b: rgba(56, 189, 248, .07);
   --blur: 18px;
   --sat: 150%;
-  --bg-panel: #08243A;
-  --bg-panel-alt: #0D344F;
-  --bg-glow: #08243A;
-  --bg-core: #020B14;
-  --fg-muted: #6F9BB0;
+  --bg-panel: #03111C;
+  --bg-panel-alt: #061C2C;
+  --bg-glow: #010912;
+  --bg-core: #000000;
+  --fg-muted: #5F879B;
   --border: var(--line);
   --border-strong: var(--line-hi);
-  --accent-bright: #A5F3FC;
-  --accent-soft: #2DD4BF;
-  --accent-dim: #0E7490;
-  --link: #67E8F9;
-  --link-hover: #CFFAFE;
+  --accent-bright: #BAE6FD;
+  --accent-soft: #0EA5E9;
+  --accent-dim: #075985;
+  --link: #7DD3FC;
+  --link-hover: #E0F2FE;
   --focus-ring: #38BDF8;
-  --grid-fade: #04121F;
-  --grid-line: rgba(56, 189, 248, .09);
-  --grid-dot: rgba(94, 234, 212, .30);
+  --grid-fade: #000000;
+  --grid-line: rgba(56, 189, 248, .08);
+  --grid-dot: rgba(125, 211, 252, .28);
   --bar-a: #38BDF8;
-  --bar-b: #2DD4BF;
-  --bar-c: #A5F3FC;
-  --orange: #2DD4BF;
-  --orange-deep: #0F766E;
+  --bar-b: #0EA5E9;
+  --bar-c: #BAE6FD;
+  --orange: #0EA5E9;
+  --orange-deep: #075985;
   --red: #FB7185;
   --red-deep: #9F1239;
-  --cyan: #38BDF8;
-  --cyan-deep: #0E7490;
-  --yellow: #FCD34D;
-  --cat-dark: #075985;
-  --cat-mid: #0E7490;
+  --cyan: #7DD3FC;
+  --cyan-deep: #0369A1;
+  --yellow: #BAE6FD;
+  --cat-dark: #082F49;
+  --cat-mid: #0369A1;
   --cat-base: #38BDF8;
-  --cat-light: #CFFAFE;
+  --cat-light: #E0F2FE;
 }
 
 /* ── Scrollbar ── */
