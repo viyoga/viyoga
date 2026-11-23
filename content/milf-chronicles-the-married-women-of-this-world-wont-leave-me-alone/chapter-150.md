@@ -26,22 +26,22 @@ chapter = 150
 <p>His fingertips were still stimulating her nipples, and with stimulation coming from multiple places at once, she reacted intensely. Han-pan was very pleased with her movements.</p>
 
 <p>Looking at Han-pan as he stared at her pussy, Miho spoke imploringly.<br>
-「Haa!! Hurry, suck it harder! Son!! Suck Mom's pussy!! Hurry!!」</p>
+"Haa!! Hurry, suck it harder! Son!! Suck Mom's pussy!! Hurry!!"</p>
 
 <p>At her words, Han-pan gave a sly grin and said,<br>
-「Gladly...」</p>
+"Gladly..."</p>
 
 <p>Muttering that, Han-pan buried his head even deeper. Picking up the tempo, his tongue flickered rapidly, alternating between the opening of her pussy and her clitoris in a concentrated flutter. At the same time, he slid his hands underneath and pulled her buttocks closer to him, causing her legs to naturally drape over his shoulders.</p>
 
 <p>While the cold sensation of her high heels pressed against his back, he moved his tongue rapidly, stimulating her as if in a total violation.</p>
 
 <p>Miho cried out as if wailing at the stimulation he provided.<br>
-「Haa! It feels so good!! Mom loves this so much! Son!! Ah! Ah! Ah! Ah! That's it! Just like that!!! Haaang~! Son, Son, it feels so good! I love you!!!」</p>
+"Haa! It feels so good!! Mom loves this so much! Son!! Ah! Ah! Ah! Ah! That's it! Just like that!!! Haaang~! Son, Son, it feels so good! I love you!!!"</p>
 
 <p>Swept up in arousal, Miho screamed mindlessly, expressing her long-suppressed desires without restraint. She seemed to get even more excited by the very words she was blurting out. Han-pan thrust his tongue into her slit. Greedily drinking the pungent cunt juice that sprayed out over his lips, he sucked at the spot even faster.</p>
 
 <p>Miho's mind raced as arousal and pleasure intertwined.<br>
-「That's it!! Ah! Ah! Ah! It feels so good! Fuck!! Son, this is too good! What should Mom do!! Ah! Ah! Ah! Mom's about to cum! Heung~ Aaang~ Mom's going to cum! I'm going to cum because of my son's tongue! Make Mom cum!! Ah! Ah! Ah!」</p>
+"That's it!! Ah! Ah! Ah! It feels so good! Fuck!! Son, this is too good! What should Mom do!! Ah! Ah! Ah! Mom's about to cum! Heung~ Aaang~ Mom's going to cum! I'm going to cum because of my son's tongue! Make Mom cum!! Ah! Ah! Ah!"</p>
 
 <p>Her body began to tremble violently as the orgasm approached. Han-pan hadn't expected the climax to spread through her body so quickly, but he didn't care. The important thing was to send her to heaven as fast as possible.</p>
 
@@ -49,33 +49,33 @@ chapter = 150
 
 <p>Soon, the trembling reached the legs draped over Han-pan's shoulders. Han-pan increased the tempo even further to stimulate her. Not only did he thrust his tongue deep inside, but he also bit and sucked her clit with his lips, launching a concentrated assault. Miho's trembling body suddenly went rigid. Her entire frame stiffened as she let out a sound like her breath was being cut off.</p>
 
-<p>「My pussy!! Ah, my fucking cunt!!! Ah, I'm going!!! Fuck, I'm going!!! Ah, Han-pan-ah!!! My son!!! Aaaaaaaaaaaaangaaangaa!!!!」</p>
+<p>"My pussy!! Ah, my fucking cunt!!! Ah, I'm going!!! Fuck, I'm going!!! Ah, Han-pan-ah!!! My son!!! Aaaaaaaaaaaaangaaangaa!!!!"</p>
 
 <p>Her movements stiffened even more violently as she let out an unrecognizable, animalistic cry.<br>
-「Euk... Euuuuuuk... Ah, fuck... Eeeeeeeuk... Fucking bastard... Eeeeeuk...」</p>
+"Euk... Euuuuuuk... Ah, fuck... Eeeeeeeuk... Fucking bastard... Eeeeeuk..."</p>
 
 <p>As she spat out those words, her bloodshot eyes lost focus, and the legs on his shoulders slid down, spreading wide to the sides as Miho's body went limp. Han-pan pushed himself up with his arms and looked at her face. The traces of pleasure were clearly etched across her half-delirious expression.</p>
 
 <p>Her body shuddered with occasional spasms, and seeing her tremble gave him a massive sense of catharsis.</p>
 
 <p>Miho's eyes were vacant, and her mouth was slightly agape as she struggled to catch her breath. After a moment, her senses finally returned, and seeing Han-pan looking down at her, she managed to force out some words. Straightening herself up, she said,<br>
-「That was no joke... As expected... of my son... But you know what Mom wants besides oral, right?」</p>
+"That was no joke... As expected... of my son... But you know what Mom wants besides oral, right?"</p>
 
 <p>Han-pan nodded.<br>
-「Of course... This was just the appetizer... Mom.」</p>
+"Of course... This was just the appetizer... Mom."</p>
 
 <p>He stood up and spread her open thighs even wider, slightly overlapping his body with hers. He aimed his dick, which was already as angry as it could be, toward her cunt hole.<br>
-「That's right, that's the spirit... Thrust it in... Thrust that big dick of yours into Mom so hard I lose my mind! You hear me?! Yeah? Yeah?!」</p>
+"That's right, that's the spirit... Thrust it in... Thrust that big dick of yours into Mom so hard I lose my mind! You hear me?! Yeah? Yeah?!"</p>
 
 <p>After aiming his dick precisely at her pussy, he slowly pushed it inside. Her pussy, drenched in a mixture of her cunt juice and his saliva, accepted his dick smoothly, as if tightly wrapping around it.<br>
-「Ah!」<br>
+"Ah!"<br>
 With a sharp moan, Miho's body arched and reacted instantly to the dick Han-pan had thrust inside.</p>
 
 <p>Han-pan could immediately realize just how much she had been craving his dick. Seeing her flinch throughout her entire body in response to the pleasure he was providing, Han-pan gave a faint smile. Looking at her expression soaked in pleasure, Han-pan realized once again just how much he loved the woman lying before him.</p>
 
 <p>Their animalistic, passionate sex began, and their bodies quickly started to match each other's tempo.<br>
-「Ah... Ah... Ah... Ah... Ah...」<br>
-「Heok... Heok... Heok... Heok... Heok...」</p>
+"Ah... Ah... Ah... Ah... Ah..."<br>
+"Heok... Heok... Heok... Heok... Heok..."</p>
 
 <p>While their rhythmic moaning filled the entire room, Han-pan thoroughly enjoyed the fact that he was receiving just as much pleasure as he was giving. They both focused every nerve in their bodies, exchanging the maximum amount of pleasure they could offer their partner.</p>
 
@@ -89,6 +89,6 @@ With a sharp moan, Miho's body arched and reacted instantly to the dick Han-pan 
 
 <p>As Miho's body began to tremble more and more, Han-pan guessed she would soon reach her orgasm, and he also sensed that his own ejaculation was imminent. It was passionate sex. The two of them moved their bodies continuously, stimulating each other like athletes competing in an intense sport. Finally, Miho's lips parted as she let out a loud moan.</p>
 
-<p>「Ah! Ah! Fuck! Fuck! That's it!!! This is the taste!!! My son's cock taste!!! Fuck!!! You crazy bitch!!! A crazy bitch who's dying for her son's dick!!! Fuck!!! It's so good!!! Ah! Ah! Ah! Son!! More!!! More!!!」</p>
+<p>"Ah! Ah! Fuck! Fuck! That's it!!! This is the taste!!! My son's cock taste!!! Fuck!!! You crazy bitch!!! A crazy bitch who's dying for her son's dick!!! Fuck!!! It's so good!!! Ah! Ah! Ah! Son!! More!!! More!!!"</p>
 
 <p>A moment later, while Han-pan felt the signs of ejaculation approaching, he could feel something hot about to burst forth from his dick.</p>

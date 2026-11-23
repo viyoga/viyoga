@@ -146,7 +146,7 @@ So-jo pushed him away and said,</p>
 
 <p>On the screen was one photo and a short message, and seeing it made Han-pan grin.</p>
 
-<p>「Waiting for you, darling.」</p>
+<p>"Waiting for you, darling."</p>
 
 <p>It was a photo of her lips.</p>
 

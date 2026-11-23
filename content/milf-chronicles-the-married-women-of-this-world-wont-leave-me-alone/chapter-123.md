@@ -7,15 +7,15 @@ chapter = 123
 
 <p>It was an unexpected question, but when asked if he had masturbated while thinking of her, Han-pan nodded without a second thought.</p>
 
-<p>「"Yeah, that’s right… because when I was younger, nuna, you were the closest person to my ideal… no, you were the object of my longing..."」</p>
+<p>""Yeah, that’s right… because when I was younger, nuna, you were the closest person to my ideal… no, you were the object of my longing...""</p>
 
 <p>At his answer, a complex expression crossed Seo-ah-nuna’s face as various thoughts collided.</p>
 
-<p>「"So, how many times did you do it?"」</p>
+<p>""So, how many times did you do it?""</p>
 
 <p>Han-pan let out a sigh and spoke.</p>
 
-<p>「"Well… I don’t know if the number really matters… but I can say it was enjoyable every single time… It’s been so many times I’ve lost count... My lust has always been a bit extraordinary, you see..."」</p>
+<p>""Well… I don’t know if the number really matters… but I can say it was enjoyable every single time… It’s been so many times I’ve lost count... My lust has always been a bit extraordinary, you see...""</p>
 
 <p>He slowly pulled off the shirt he was wearing and tossed it aside.</p>
 
@@ -27,21 +27,21 @@ chapter = 123
 
 <p>Han-pan took a step toward her and asked.</p>
 
-<p>「"Have you ever had those kinds of fantasies while thinking of me, nuna?"」</p>
+<p>""Have you ever had those kinds of fantasies while thinking of me, nuna?""</p>
 
-<p>「"Uh…? Well…"」</p>
+<p>""Uh…? Well…""</p>
 
-<p>「"Be honest with me… we’re both adults now… We’re grown-ups, and being honest with your own desires is the right way to enjoy the true pleasure of sex…"」</p>
+<p>""Be honest with me… we’re both adults now… We’re grown-ups, and being honest with your own desires is the right way to enjoy the true pleasure of sex…""</p>
 
-<p>「"Um... honestly, I’ve been thinking about that a lot all day today... about something like this happening with you..."」</p>
+<p>""Um... honestly, I’ve been thinking about that a lot all day today... about something like this happening with you...""</p>
 
 <p>He took another step toward her. She tried to back away, but Han-pan gently caught her arm and spoke.</p>
 
-<p>「"If you’re that hesitant, how about we try kissing just once first?... If you really think it’s not right, I’ll act like everything up until now never happened… and of course, I’ll forget about your request too… We’ll just go back to being normal siblings... Though, you’ll have to turn a blind eye to the relationship between Mom and So-jo-nuna..."」</p>
+<p>""If you’re that hesitant, how about we try kissing just once first?... If you really think it’s not right, I’ll act like everything up until now never happened… and of course, I’ll forget about your request too… We’ll just go back to being normal siblings... Though, you’ll have to turn a blind eye to the relationship between Mom and So-jo-nuna...""</p>
 
 <p>Hesitating, she let out a sigh and slumped her shoulders.</p>
 
-<p>「"I can’t believe this… that I’m doing this with you again… I was the one who asked this morning, but… honestly, now that I’m facing you, I’m hesitating a lot... Fine... let’s just try it once…"」</p>
+<p>""I can’t believe this… that I’m doing this with you again… I was the one who asked this morning, but… honestly, now that I’m facing you, I’m hesitating a lot... Fine... let’s just try it once…""</p>
 
 <p>Han-pan took her hand and led her to the sofa, and she took her place right beside him.</p>
 
@@ -65,7 +65,7 @@ chapter = 123
 
 <p>To ease her tension, Han-pan gently stroked her arm. As if forcing her to make a decision quickly, he rubbed his inserted tongue against hers, seeking it out.</p>
 
-<p>「"Mmm…"」</p>
+<p>""Mmm…""</p>
 
 <p>A tiny breath escaped from inside her mouth. Her lips parted further, allowing his tongue to move more easily and smoothly inside.</p>
 
@@ -73,7 +73,7 @@ chapter = 123
 
 <p>Han-pan smiled inwardly. With strong confidence, he began to move his tongue even more aggressively.</p>
 
-<p>「"Uuuhm…"」</p>
+<p>""Uuuhm…""</p>
 
 <p>Another moan flowed out from her lips. The warmth felt inside her mouth was similar to Miho-nim’s. The thought that she was truly her mother’s daughter flashed through Han-pan’s mind, given how similar that soft, warm sensation was.</p>
 
@@ -87,19 +87,19 @@ chapter = 123
 
 <p>When he opened his closed eyes and looked at her, he could see that her eyes were filled with lust and arousal.</p>
 
-<p>「"Hmm… how was it?"」</p>
+<p>""Hmm… how was it?""</p>
 
 <p>At his question, she wore a confused expression for a moment. It seemed she was processing the emotions she had just felt.</p>
 
-<p>「"I’m not sure…"」</p>
+<p>""I’m not sure…""</p>
 
 <p>However, she spoke with a wide smile spreading across her lips.</p>
 
-<p>「"So…"」</p>
+<p>""So…""</p>
 
-<p>「"So?"」</p>
+<p>""So?""</p>
 
-<p>「"I think I’ll know if we do it one more time."」</p>
+<p>""I think I’ll know if we do it one more time.""</p>
 
 <p>Saying that, she wrapped her arms around his neck and pulled him strongly toward her. Seo-ah-nuna pulled him down as she lay back on the sofa, and as Han-pan climbed on top of her body, they began to kiss again.</p>
 
@@ -113,7 +113,7 @@ chapter = 123
 
 <p>A long, loud moan escaped her lips.</p>
 
-<p>「"Haah…"」</p>
+<p>""Haah…""</p>
 
 <p>The feeling of her breast filling his hand was incredibly good. It was smaller compared to Miho-nim’s massive breasts, but larger than So-jo-nuna’s size. Though the sizes differed slightly, they all had consistently firm and beautiful breast lines.</p>
 
@@ -127,33 +127,33 @@ chapter = 123
 
 <p>He pushed his finger straight inside. Simultaneously, Seo-ah-nuna’s eyes widened mid-kiss, and she let out a loud moan.</p>
 
-<p>「"Aaaah!!"」</p>
+<p>""Aaaah!!""</p>
 
 <p>Han-pan stopped the kiss and looked at her. Judging by the way her eyes were trembling, she seemed to be feeling a significant amount of arousal.</p>
 
 <p>Han-pan lifted his upper body and moved down between her legs, moving his fingers rapidly. She spread her legs even wider, quickly adapting to his movements.</p>
 
-<p>「"Aaaaaah!!!"」</p>
+<p>""Aaaaaah!!!""</p>
 
 <p>Han-pan added his index finger to his middle finger and pushed them inside, which stimulated her even more intensely. With her eyes closed, she seemed to be fully enjoying the sensations felt throughout her body.</p>
 
 <p>Her moans became rhythmic, matching the timing of his moving fingers.</p>
 
-<p>「"Hak! Hak! Hak! Ah, I love it!!"」</p>
+<p>""Hak! Hak! Hak! Ah, I love it!!""</p>
 
 <p>Han-pan really liked the fact that she was expressing her pleasure positively for the first time.</p>
 
-<p>「"Nuna, how is it? Is it good?"」</p>
+<p>""Nuna, how is it? Is it good?""</p>
 
 <p>She spoke with her eyes still closed.</p>
 
-<p>「"Yes! Yes! Ah… ah… it’s good…!!!"」</p>
+<p>""Yes! Yes! Ah… ah… it’s good…!!!""</p>
 
 <p>Han-pan gave a smirk and withdrew his fingers. Then, she opened her eyes and spoke.</p>
 
-<p>「"Han-pan… do it more… more!"」</p>
+<p>""Han-pan… do it more… more!""</p>
 
-<p>「"I knew you’d say that…"」</p>
+<p>""I knew you’d say that…""</p>
 
 <p>He pulled his body back slightly, and she hurriedly sat up and showered him with kisses. She lunged at him like someone who had finally unlocked a long-closed bolt.</p>
 
@@ -161,7 +161,7 @@ chapter = 123
 
 <p>As if her reaction was amusing, Han-pan spoke.</p>
 
-<p>「"You enjoyed it so much yesterday, why are you so surprised now?"」</p>
+<p>""You enjoyed it so much yesterday, why are you so surprised now?""</p>
 
 <p>He took her retreated hand and made her grab his dick. After awkwardly kneading his dick for a moment, her hand soon went to the hook of his pants.</p>
 

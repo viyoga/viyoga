@@ -88,7 +88,7 @@ chapter = 35
 <p>Han-pan descended into the living room with an ecstatic smile as he looked at the provocative design of the clothes his mother was wearing. <br>
 So-jo, seeing him approach, stood up, slung her bag from the coffee table over her shoulder, and spoke.</p>
 
-<p>「You certainly took your time coming down...」</p>
+<p>"You certainly took your time coming down..."</p>
 
 <p>Unlike the prodding So-jo, Mi-ho was extremely pleased with the sight of her son dressed up so handsomely.</p>
 
@@ -98,7 +98,7 @@ So-jo, seeing him approach, stood up, slung her bag from the coffee table over h
 
 <p>Because it was a suit he had worn before, the size was tight, but that actually emphasized his suit-clad physique even more sexily.</p>
 
-<p>「Son, you look so handsome. Turn around once.」</p>
+<p>"Son, you look so handsome. Turn around once."</p>
 
 <p>Han-pan slowly spun around once in front of her.</p>
 
@@ -124,9 +124,9 @@ Mi-ho was flustered by the impulse she felt momentarily, but she tried her best 
 
 <p>Unlike Mi-ho, who found it easier to control her emotions, So-jo hurried the two of them along, trying to deny her own heart.</p>
 
-<p>「Let's go quickly! We're late!」</p>
+<p>"Let's go quickly! We're late!"</p>
 
-<p>「Yes, right... let's go quickly.」</p>
+<p>"Yes, right... let's go quickly."</p>
 
 <p>Mi-ho, startled by So-jo's prodding as if waking from a dream, turned her head and nodded.</p>
 
@@ -136,16 +136,16 @@ Mi-ho was flustered by the impulse she felt momentarily, but she tried her best 
 
 <p>Then, looking at Han-pan as he approached her, she spoke softly.</p>
 
-<p>「Son...」</p>
+<p>"Son..."</p>
 
-<p>「Yes, Eomma.」</p>
+<p>"Yes, Eomma."</p>
 
-<p>「Stay close to Eomma today, okay?」</p>
+<p>"Stay close to Eomma today, okay?"</p>
 
 <p>Within her suggestive way of speaking, the thought struck Mi-ho like lightning that she had to block the bitches who would approach her son at the party today. <br>
 There would surely be females at the party eyeing her son and approaching him, and she realized she had been given the heavy mission of protecting her son from them.</p>
 
-<p>「Yeah... I understand.」</p>
+<p>"Yeah... I understand."</p>
 
 <p>Han-pan gave a bashful smile, and that pure smile of her son felt incredibly sexy to her.</p>
 
@@ -161,11 +161,11 @@ Seeing her expressing two contradictory emotions on her face at the same time, H
 Recognizing that no one was there, he leaned his head down to kiss her. <br>
 Sensing his intention, she pulled her face back slightly and spoke.</p>
 
-<p>「My lipstick will get wiped off beautifully...」</p>
+<p>"My lipstick will get wiped off beautifully..."</p>
 
-<p>「...」</p>
+<p>"..."</p>
 
-<p>「Stick out your tongue...」</p>
+<p>"Stick out your tongue..."</p>
 
 <p>Han-pan stuck his tongue out long.</p>
 
@@ -179,23 +179,23 @@ Sensing his intention, she pulled her face back slightly and spoke.</p>
 
 <p>As time flowed like lightning and they spent a long moment feeling the sweet sensation from each other's tongues, they were startled by a sound coming from the basement.</p>
 
-<p>「I said we're late!」</p>
+<p>"I said we're late!"</p>
 
 <p>The two of them snapped back to their senses and looked toward the stairs leading to the basement. <br>
 Mi-ho forced a smile, and Han-pan also lowered his head with a bashful smile.</p>
 
-<p>「Let's go.」</p>
+<p>"Let's go."</p>
 
 <p>Mi-ho said as she took his hand and led him toward the underground garage. <br>
 Han-pan followed behind her down to the garage. <br>
 So-jo, standing by the car, was frowning as she watched them come down late.</p>
 
-<p>「Sorry, sorry...」</p>
+<p>"Sorry, sorry..."</p>
 
 <p>Han-pan raised his hand to express his apology to her. <br>
 Mi-ho tossed him the car keys and spoke.</p>
 
-<p>「Han-pan, you drive. We ladies need to receive some escorting today.」</p>
+<p>"Han-pan, you drive. We ladies need to receive some escorting today."</p>
 
 <p>Han-pan caught the keys she threw.</p>
 

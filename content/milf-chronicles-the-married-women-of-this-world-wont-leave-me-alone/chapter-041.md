@@ -11,7 +11,7 @@ chapter = 41
 
 <p>For a moment, they danced like that. Han-pan had been worrying for a while now, thinking about his lower body that seemed to brush against her at any moment, while So-jo wondered what the cock she had seen while he was changing clothes would feel like. Driven by intense curiosity, So-jo turned her head and spoke into his ear.</p>
 
-<p>「Let’s see our younger brother’s dancing skills when it comes to handling women, shall we?」</p>
+<p>"Let’s see our younger brother’s dancing skills when it comes to handling women, shall we?"</p>
 
 <p>After saying that, she took both of his hands and placed them on her waist. Han-pan smiled and, familiar with the motion, gripped her waist firmly, matching his steps to her dance. The two of them quickly fell into the beat. The dazzling lighting shone upon them as they became one body.</p>
 
@@ -19,15 +19,15 @@ chapter = 41
 
 <p>Han-pan felt her buttocks pressing toward his own several times and pulled his hips back. Then, So-jo, dissatisfied with his hesitant behavior, turned her head again and whispered into his ear.</p>
 
-<p>「What’s with you? Is Nuna not good enough? Why are you being so half-hearted? Try to make this Nunim properly happy… other men are dying for the chance.」</p>
+<p>"What’s with you? Is Nuna not good enough? Why are you being so half-hearted? Try to make this Nunim properly happy… other men are dying for the chance."</p>
 
 <p>Han-pan tilted his face and whispered into her ear.</p>
 
-<p>「Ah… Nuna, this is awkward… we’re nammae… why are you being so embarrassing?」</p>
+<p>"Ah… Nuna, this is awkward… we’re nammae… why are you being so embarrassing?"</p>
 
 <p>She whispered back into his ear.</p>
 
-<p>「Hey, is Nuna not attractive? I’m giving you a chance just this once today! Show me your real skills.」</p>
+<p>"Hey, is Nuna not attractive? I’m giving you a chance just this once today! Show me your real skills."</p>
 
 <p>As she spoke, she pushed her buttocks back again and shook her pelvis. With a "come what may" attitude, Han-pan pushed his buttocks forward. As Han-pan became proactive, a smile played on So-jo’s lips. She skillfully shook her pelvis, rapidly stimulating his buttocks.</p>
 
@@ -63,11 +63,11 @@ chapter = 41
 
 <p>The tongues that had been entering and leaving each other’s mouths for several minutes stopped. So-jo pulled her face back slightly and looked at him. Her lips were full of smiles. She leaned in and whispered into his ear.</p>
 
-<p>「Han-pan-i is a good kisser…」</p>
+<p>"Han-pan-i is a good kisser…"</p>
 
 <p>Han-pan whispered back.</p>
 
-<p>「Nuna too…」</p>
+<p>"Nuna too…"</p>
 
 <p>For a moment, they both felt a sense of bashfulness and could feel the heat rising in their faces. Taking Han-pan’s hand, she led him to a corner where the club’s lighting didn’t reach. There were quite a few people around, but everyone was spending their own time, so no one paid attention to them.</p>
 
@@ -75,35 +75,35 @@ chapter = 41
 
 <p>So-jo slowly rubbed her buttocks against his while kissing him, and Han-pan did the same. With their pelvises tightly pressed together, the two of them engaged in foreplay as if slowly dancing to the music. After a while, So-jo stopped kissing and said,</p>
 
-<p>「You’re quite bold… doing this kind of thing to your Nuna.」</p>
+<p>"You’re quite bold… doing this kind of thing to your Nuna."</p>
 
 <p>Han-pan smiled.</p>
 
-<p>「Didn’t you say you’d give me a chance? When I’m with such a beautiful woman, does it matter if she’s my Nuna?」</p>
+<p>"Didn’t you say you’d give me a chance? When I’m with such a beautiful woman, does it matter if she’s my Nuna?"</p>
 
-<p>「You’re crazy… you were talking about being nammae just a moment ago… hohoho.」</p>
+<p>"You’re crazy… you were talking about being nammae just a moment ago… hohoho."</p>
 
-<p>「I don’t know! Nuna started it first.」</p>
+<p>"I don’t know! Nuna started it first."</p>
 
 <p>He said that and kissed her again, and the two shared another kiss. So-jo reached down and stroked his cock. A small moan leaked from Han-pan’s mouth, and So-jo smiled at the sight.</p>
 
-<p>「Does it feel good?」</p>
+<p>"Does it feel good?"</p>
 
-<p>「Yeah.」</p>
+<p>"Yeah."</p>
 
-<p>「Nuna will give you proper service today.」</p>
+<p>"Nuna will give you proper service today."</p>
 
-<p>「Haha, only today?」</p>
+<p>"Haha, only today?"</p>
 
 <p>She made a thoughtful expression and said,</p>
 
-<p>「Well… it’ll depend on how you behave in the future… hmm… if the mood for this kind of lewd act is right, there’s no reason we couldn’t…」</p>
+<p>"Well… it’ll depend on how you behave in the future… hmm… if the mood for this kind of lewd act is right, there’s no reason we couldn’t…"</p>
 
 <p>Han-pan licked her nape with a long stroke of his tongue, and So-jo let out a small moan in response.</p>
 
-<p>「Like this?」</p>
+<p>"Like this?"</p>
 
-<p>「Mmm…」</p>
+<p>"Mmm…"</p>
 
 <p>The two of them continued to exchange foreplay like that. While they were deep in it, the music changed to a slower tempo, and the flashy lighting also changed according to the music. People on the stage began to slowly filter out to the surroundings. Sensing the atmosphere, the two stopped their foreplay and looked around.</p>
 
@@ -111,9 +111,9 @@ chapter = 41
 
 <p>So-jo pulled his hand and said,</p>
 
-<p>「Let’s go back… Mom must be waiting.」</p>
+<p>"Let’s go back… Mom must be waiting."</p>
 
-<p>「Okay.」</p>
+<p>"Okay."</p>
 
 <p>The two of them held hands affectionately and headed toward the room on the second floor. Just as he was about to grab the handle in front of the room door, So-jo hurriedly stopped him. Han-pan looked at her with a questioning expression. So-jo pulled him back and placed a finger on her lips, signaling him to be quiet. Han-pan nodded and stepped back without much thought.</p>
 

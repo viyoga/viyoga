@@ -43,25 +43,25 @@ chapter = 34
 
 <p>Seeing his reaction, So-jo laughed and spoke.</p>
 
-<p>「Why? Does looking at this nuna-nim make you dizzy? Hoho.」</p>
+<p>"Why? Does looking at this nuna-nim make you dizzy? Hoho."</p>
 
 <p>She approached him with a cheerful laugh and spoke while looking at his messy bedhead.</p>
 
-<p>「Were you sleeping? I sent you a KakaoTalk message telling you to get ready...」</p>
+<p>"Were you sleeping? I sent you a KakaoTalk message telling you to get ready..."</p>
 
-<p>「Ah... well, I just need to wash up and put on clothes, so what...」</p>
+<p>"Ah... well, I just need to wash up and put on clothes, so what..."</p>
 
-<p>「Ah, wash up quickly... We’re ready to go as soon as we change our clothes!」</p>
+<p>"Ah, wash up quickly... We’re ready to go as soon as we change our clothes!"</p>
 
 <p>At her words, Han-pan touched the back of his head and slightly lowered his gaze.</p>
 
-<p>「Ah... yes, nuna-nim... I understand... But you two look incredible... Weren't we just going out to have fun?」</p>
+<p>"Ah... yes, nuna-nim... I understand... But you two look incredible... Weren't we just going out to have fun?"</p>
 
 <p>So-jo said with a laugh.</p>
 
-<p>「Spoken like a true grunt... You really need to drain some of that fluid... This nuna-nim's face is well-known, and the place we're going today is a hot place that just opened, so a lot of people are coming for today's event. Naturally, hot girls and guys will be there. To escort us, you need to look a bit stylish so my prestige stays intact, right? And since we're going, we should play hard... Party time! Don't you know that?... Well, since you just got discharged from the army, you'll need some time to adapt to society... Anyway, hurry up and get ready.」</p>
+<p>"Spoken like a true grunt... You really need to drain some of that fluid... This nuna-nim's face is well-known, and the place we're going today is a hot place that just opened, so a lot of people are coming for today's event. Naturally, hot girls and guys will be there. To escort us, you need to look a bit stylish so my prestige stays intact, right? And since we're going, we should play hard... Party time! Don't you know that?... Well, since you just got discharged from the army, you'll need some time to adapt to society... Anyway, hurry up and get ready."</p>
 
-<p>「Ah, yes, yes... I'm sure you're right... Yes, yes, I understand, nuna-nim.」</p>
+<p>"Ah, yes, yes... I'm sure you're right... Yes, yes, I understand, nuna-nim."</p>
 
 <p>Bowing his head repeatedly at her pouring words, he let out a sigh, turned around, and walked to his room.</p>
 
@@ -85,17 +85,17 @@ chapter = 34
 
 <p>Just then, he felt the sound of high heels quickly approaching the door. Before he could even react, a knocking sound was heard at the door, and it swung wide open.</p>
 
-<p>「Hey, Kim Han-pan, what are you doing? Hurry up! We're going to be late!」</p>
+<p>"Hey, Kim Han-pan, what are you doing? Hurry up! We're going to be late!"</p>
 
 <p>At So-jo's sharp voice, Han-pan instinctively tried to cover his crotch, but he couldn't hide the entirety of his fully erect cock.</p>
 
 <p>As a desperate measure, he hurriedly turned his body toward the wall.</p>
 
-<p>「Ah, nuna! What the hell! Have some manners and close the door! I'm changing my clothes!!!」</p>
+<p>"Ah, nuna! What the hell! Have some manners and close the door! I'm changing my clothes!!!"</p>
 
 <p>At Han-pan's scream, So-jo, who had opened the door and walked in, realized the situation as she saw him hurriedly turning away, but she had already seen his naked body.</p>
 
-<p>「Oh my, I'm sorry!」</p>
+<p>"Oh my, I'm sorry!"</p>
 
 <p>Saying that, So-jo turned around to leave, but suddenly a playful spirit took over.</p>
 
@@ -109,11 +109,11 @@ chapter = 34
 
 <p>Han-pan looked at her in horror and said.</p>
 
-<p>「What is it? I told you to get out.」</p>
+<p>"What is it? I told you to get out."</p>
 
-<p>「Hehehe, I don't want to?」</p>
+<p>"Hehehe, I don't want to?"</p>
 
-<p>「Ah, get out quickly, I have to put on clothes!」</p>
+<p>"Ah, get out quickly, I have to put on clothes!"</p>
 
 <p>So-jo giggled and approached him, then slapped his buttocks with her palm.</p>
 
@@ -135,13 +135,13 @@ chapter = 34
 
 <p>So-jo wondered if that could even fit inside a woman's body, while Han-pan got angry seeing her staring intently at his naked form.</p>
 
-<p>「Get out now! I'm really getting mad!」</p>
+<p>"Get out now! I'm really getting mad!"</p>
 
 <p>Han-pan seemed truly angry.</p>
 
 <p>Sensing that her prank had gone too far and thinking she should stop here, she forced a smile and turned around.</p>
 
-<p>「Our little brother has a great body! Hoho, alright! Put your clothes on quickly! Who told you to dawdle like this? I'll be waiting outside with Mom, so hurry up and come out!」</p>
+<p>"Our little brother has a great body! Hoho, alright! Put your clothes on quickly! Who told you to dawdle like this? I'll be waiting outside with Mom, so hurry up and come out!"</p>
 
 <p>Han-pan watched her back as she spoke and stepped outside.</p>
 

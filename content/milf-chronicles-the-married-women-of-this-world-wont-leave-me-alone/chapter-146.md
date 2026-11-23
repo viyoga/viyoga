@@ -15,7 +15,7 @@ chapter = 146
 
 <p>Han-pan felt incredibly good being surrounded by women, but eventually, Miho grabbed his arm and spoke coldly.</p>
 
-<p>「I’m tired… let’s go home now…」</p>
+<p>"I’m tired… let’s go home now…"</p>
 
 <p>At her words, Sojo also nodded, looked at the surrounding women, and then grabbed Han-pan’s other arm to lead him away.</p>
 
@@ -25,7 +25,7 @@ chapter = 146
 
 <p>Miho stood up from her seat and said.</p>
 
-<p>「I think this is enough for dance time… let’s go home now…」</p>
+<p>"I think this is enough for dance time… let’s go home now…"</p>
 
 <p>Sojo called the manager and settled the bill.</p>
 
@@ -49,29 +49,29 @@ chapter = 146
 
 <p>Sojo, noticing his gaze, looked at him and spoke.</p>
 
-<p>「It felt good being surrounded by women earlier, didn't it?」</p>
+<p>"It felt good being surrounded by women earlier, didn't it?"</p>
 
-<p>「Huh?」</p>
+<p>"Huh?"</p>
 
 <p>Sojo said with a laugh.</p>
 
-<p>「The women were surrounding you and making passes at you earlier, weren't they? Ho-ho.」</p>
+<p>"The women were surrounding you and making passes at you earlier, weren't they? Ho-ho."</p>
 
-<p>「Ah… well…」</p>
+<p>"Ah… well…"</p>
 
-<p>「Know that it’s because of us, ho-ho.」</p>
+<p>"Know that it’s because of us, ho-ho."</p>
 
-<p>「What?」</p>
+<p>"What?"</p>
 
-<p>「Women are bound to feel attracted to a man who is with wonderful women… Since we were around you, of course those women would take an interest… ho-ho-ho.」</p>
+<p>"Women are bound to feel attracted to a man who is with wonderful women… Since we were around you, of course those women would take an interest… ho-ho-ho."</p>
 
 <p>Han-pan said with a smirk.</p>
 
-<p>「Ah, Nunnim, is that so? I didn't know that.」</p>
+<p>"Ah, Nunnim, is that so? I didn't know that."</p>
 
-<p>「So you better be good to your Nunnim, you brat! Got it?」</p>
+<p>"So you better be good to your Nunnim, you brat! Got it?"</p>
 
-<p>「Ye-yep! I’ll make sure to serve you well.」</p>
+<p>"Ye-yep! I’ll make sure to serve you well."</p>
 
 <p>The two women, who had been drinking from the event hall to the restaurant and then to the club, giggled and laughed incessantly at whatever was so funny.</p>
 
@@ -93,7 +93,7 @@ chapter = 146
 
 <p>She smiled as she took his hand.</p>
 
-<p>「Thanks, son!」</p>
+<p>"Thanks, son!"</p>
 
 <p>Even though they must have drunk almost the same amount of alcohol, Sojo was perfectly fine, while Miho seemed very drunk as her body swayed.</p>
 
@@ -115,7 +115,7 @@ chapter = 146
 
 <p>Seeing this, Sojo gave a smirk, looked at the two of them, and said.</p>
 
-<p>「You hot lovers, it won't be too late even if you do that after going upstairs.」</p>
+<p>"You hot lovers, it won't be too late even if you do that after going upstairs."</p>
 
 <p>At her words, Han-pan gave an awkward smile, ended the kiss, and pulled Miho’s hand.</p>
 
@@ -139,59 +139,59 @@ chapter = 146
 
 <p>Han-pan looked at her curiously and asked.</p>
 
-<p>「Is something wrong?」</p>
+<p>"Is something wrong?"</p>
 
-<p>「No, I just suddenly remembered something from a long time ago…」</p>
+<p>"No, I just suddenly remembered something from a long time ago…"</p>
 
-<p>「What is it, Mom?」</p>
+<p>"What is it, Mom?"</p>
 
 <p>Sojo asked.</p>
 
 <p>Miho shook her head briefly and said.</p>
 
-<p>「It’s nothing… just something from a long time ago…」</p>
+<p>"It’s nothing… just something from a long time ago…"</p>
 
 <p>She said that and then smiled again.</p>
 
-<p>「Anyway, is it time to surprise our Han-pan now?」</p>
+<p>"Anyway, is it time to surprise our Han-pan now?"</p>
 
 <p>Sojo, hearing her words, opened her eyes wide as if she had realized something she’d forgotten and said.</p>
 
-<p>「Ah, right! I almost forgot…」</p>
+<p>"Ah, right! I almost forgot…"</p>
 
 <p>Han-pan was curious about what their conversation was about.</p>
 
 <p>Miho, in a husky tone, placed her hand on Han-pan’s shoulder and said.</p>
 
-<p>「You worked hard all day driving and taking care of us… and those clothes look so sexy and suit you so well… I think it’s time you go and change into something comfortable to wear in bed, don't you?」</p>
+<p>"You worked hard all day driving and taking care of us… and those clothes look so sexy and suit you so well… I think it’s time you go and change into something comfortable to wear in bed, don't you?"</p>
 
 <p>Han-pan said with a bright smile.</p>
 
-<p>「Hmm, then how about the two of you strip me right now?」</p>
+<p>"Hmm, then how about the two of you strip me right now?"</p>
 
 <p>He looked back and forth between Sojo and Miho with a sly expression.</p>
 
-<p>「Hmm… we have things we need to do first on our end…」</p>
+<p>"Hmm… we have things we need to do first on our end…"</p>
 
 <p>Miho said that while looking at Sojo.</p>
 
-<p>「Go to your room and just wear your panties—no, it’s fine if you come completely naked… anyway, in 10 minutes… no… in about 20 minutes, come to my room, okay?」</p>
+<p>"Go to your room and just wear your panties—no, it’s fine if you come completely naked… anyway, in 10 minutes… no… in about 20 minutes, come to my room, okay?"</p>
 
-<p>「Mom’s room?」</p>
+<p>"Mom’s room?"</p>
 
-<p>「Yes.」</p>
+<p>"Yes."</p>
 
 <p>Sojo said with a smirk.</p>
 
-<p>「Go quickly, you won't be disappointed… no, it’ll be a memory to cherish, ho-ho-ho.」</p>
+<p>"Go quickly, you won't be disappointed… no, it’ll be a memory to cherish, ho-ho-ho."</p>
 
 <p>Sojo laughed cheerfully.</p>
 
-<p>「Yes, come to my room later, you won't regret it.」</p>
+<p>"Yes, come to my room later, you won't regret it."</p>
 
 <p>Miho said.</p>
 
-<p>「I’ve never regretted it once, the time I’ve spent with Nuna and Mom, always…」</p>
+<p>"I’ve never regretted it once, the time I’ve spent with Nuna and Mom, always…"</p>
 
 <p>Han-pan spoke concisely and headed toward the second floor with a smile.</p>
 

@@ -23,17 +23,17 @@ chapter = 23
 
 <p>Immediately, a moan and a gasp erupted from Han-pan’s mouth at the same time.</p>
 
-<p>「Ah… Eun-young-nuna…」</p>
+<p>"Ah… Eun-young-nuna…"</p>
 
 <p>Eun-young felt good hearing her name called by him.</p>
 
 <p>Pulling her mouth away from his cock, she continued to stroke it up and down and asked,</p>
 
-<p>「Why? Does Han-pan like it?」</p>
+<p>"Why? Does Han-pan like it?"</p>
 
 <p>His face flushed from the blood rushing through his body, Han-pan said,</p>
 
-<p>「Ah… I love it… Ah…」</p>
+<p>"Ah… I love it… Ah…"</p>
 
 <p>Han-pan pulled her face toward him and kissed her; soon, they began to swirl their tongues together, frantically devouring each other's lips.</p>
 
@@ -53,13 +53,13 @@ chapter = 23
 
 <p>After licking his cock for a while, Eun-young said,</p>
 
-<p>「Han-pan… you’re so lewd… getting your cock this hard for your mother’s friend…」</p>
+<p>"Han-pan… you’re so lewd… getting your cock this hard for your mother’s friend…"</p>
 
-<p>「Ah, nuna, you’re the one who made it like this…」</p>
+<p>"Ah, nuna, you’re the one who made it like this…"</p>
 
 <p>Eun-young, her eyes flashing with lewdness, replied,</p>
 
-<p>「Oh my, did I make it like this? Hmm… then… I guess I’ll have to take care of it quickly…」</p>
+<p>"Oh my, did I make it like this? Hmm… then… I guess I’ll have to take care of it quickly…"</p>
 
 <p>Saying so, she slowly lowered her head again.</p>
 
@@ -97,11 +97,11 @@ chapter = 23
 
 <p>After exchanging kisses like that for a while, they finally broke apart, breathing heavily.</p>
 
-<p>「You’re a good kisser… that’s no ordinary skill. Who taught you?」</p>
+<p>"You’re a good kisser… that’s no ordinary skill. Who taught you?"</p>
 
 <p>At those words, Han-pan smiled and said,</p>
 
-<p>「I received all sorts of training in the army…」</p>
+<p>"I received all sorts of training in the army…"</p>
 
 <p>As he spoke, he squeezed her breasts with his hands. Stimulated by this, Eun-young let out a moan and closed her eyes.</p>
 
@@ -115,7 +115,7 @@ chapter = 23
 
 <p>Eun-young opened her closed eyes and looked at him.</p>
 
-<p>「Shall we check our sexual compatibility now?」</p>
+<p>"Shall we check our sexual compatibility now?"</p>
 
 <p>Saying so, she climbed on top of his body.</p>
 
@@ -145,11 +145,11 @@ chapter = 23
 
 <p>Han-pan moaned and said,</p>
 
-<p>「Haah… haah… won’t someone see us here?」</p>
+<p>"Haah… haah… won’t someone see us here?"</p>
 
 <p>To that, Eun-young replied,</p>
 
-<p>「It’s fine… the car tinting is dark so you can’t see inside, and people rarely pass through here… I come here sometimes when I want car sex… it’s a great spot… don’t worr—ah… ah…」</p>
+<p>"It’s fine… the car tinting is dark so you can’t see inside, and people rarely pass through here… I come here sometimes when I want car sex… it’s a great spot… don’t worr—ah… ah…"</p>
 
 <p>Han-pan smirked and grabbed her waist to support her movements. Having secured her posture, Eun-young began to move skillfully on top of him like a carp.</p>
 
@@ -173,13 +173,13 @@ chapter = 23
 
 <p>Closing his eyes tightly, he said,</p>
 
-<p>「Ah… ah… Eun-young-ah, I’m going to cum… it feels so fucking good…」</p>
+<p>"Ah… ah… Eun-young-ah, I’m going to cum… it feels so fucking good…"</p>
 
-<p>「Ang… honey… ang ang… honey… I love your cock so much!!! Ang, honey!」</p>
+<p>"Ang… honey… ang ang… honey… I love your cock so much!!! Ang, honey!"</p>
 
-<p>「Is it okay if I cum inside?」</p>
+<p>"Is it okay if I cum inside?"</p>
 
-<p>「Ang ang… I’m on birth control, it’s fine… cum inside… ang ang ang…」</p>
+<p>"Ang ang… I’m on birth control, it’s fine… cum inside… ang ang ang…"</p>
 
 <p>Han-pan made a final spurt, moving his waist even more violently.</p>
 
@@ -191,4 +191,4 @@ chapter = 23
 
 <p>Eun-young let out a deep moan as she felt something hot pouring into her body.</p>
 
-<p>「Ah!!!! Honey!!!! Ahhhhhh!!!!!!」</p>
+<p>"Ah!!!! Honey!!!! Ahhhhhh!!!!!!"</p>

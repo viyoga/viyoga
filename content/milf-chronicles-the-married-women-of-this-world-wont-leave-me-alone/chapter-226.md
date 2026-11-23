@@ -5,17 +5,17 @@ weight = 226
 chapter = 226
 +++
 
-<p>「Hyeong-nim, have a drink.」</p>
+<p>"Hyeong-nim, have a drink."</p>
 
 <p>Han-pan pulled a can of Maekju from a basket filled with ice and handed it to him.</p>
 
-<p>「Oh, nice.」</p>
+<p>"Oh, nice."</p>
 
 <p>Won-cheol took the Maekju Han-pan offered.</p>
 
 <p>Opening the can, he gulped it down in one go, beol-keok beol-keok, feeling the refreshing chill.</p>
 
-<p>「Huu~ Ah~ That’s refreshing.」</p>
+<p>"Huu~ Ah~ That’s refreshing."</p>
 
 <p>He looked at Han-pan with a bright smile.</p>
 
@@ -23,9 +23,9 @@ chapter = 226
 
 <p>When his dick was suddenly exposed, Han-pan turned his head away.</p>
 
-<p>「Haha, it’s not like you’ve never seen a man’s junk before, why are you turning away… you rascal… I’m all dressed now, you can look.」</p>
+<p>"Haha, it’s not like you’ve never seen a man’s junk before, why are you turning away… you rascal… I’m all dressed now, you can look."</p>
 
-<p>「Ah, yes… haha.」</p>
+<p>"Ah, yes… haha."</p>
 
 <p>Han-pan turned back with an awkward laugh.</p>
 
@@ -33,9 +33,9 @@ chapter = 226
 
 <p>As Han-pan pulled another Maekju from the basket and popped the tab, Won-cheol held out his own can.</p>
 
-<p>「Bro, to a fun party…」</p>
+<p>"Bro, to a fun party…"</p>
 
-<p>「Haha, to the party…」</p>
+<p>"Haha, to the party…"</p>
 
 <p>The two clinked cans and drained their Maekju.</p>
 
@@ -125,65 +125,65 @@ chapter = 226
 
 <p>Won-cheol spoke.</p>
 
-<p>「Ladies, you all look so sexy and wonderful, hahaha.」</p>
+<p>"Ladies, you all look so sexy and wonderful, hahaha."</p>
 
-<p>「Oh my!? Son, do you think we look okay?」</p>
+<p>"Oh my!? Son, do you think we look okay?"</p>
 
 <p>When Eun-young spoke, Won-cheol nodded vigorously.</p>
 
-<p>「Haha, Eomeoni-nim, you look magnificent.」</p>
+<p>"Haha, Eomeoni-nim, you look magnificent."</p>
 
-<p>「Oh my, Oppa, really? Who looks the best?」</p>
+<p>"Oh my, Oppa, really? Who looks the best?"</p>
 
 <p>At So-eun’s question, Won-cheol lifted his head and spoke.</p>
 
-<p>「Who else could it be? My fiancée, of course!」</p>
+<p>"Who else could it be? My fiancée, of course!"</p>
 
 <p>At his answer, Eun-young burst into a wide smile.</p>
 
-<p>「Hehe, our Oppa certainly knows the right answer…」</p>
+<p>"Hehe, our Oppa certainly knows the right answer…"</p>
 
-<p>「Oh my, I’m getting jealous… is our son already stolen away?」</p>
+<p>"Oh my, I’m getting jealous… is our son already stolen away?"</p>
 
 <p>Eun-young smiled playfully as she looked at So-eun.</p>
 
-<p>「Oh, Eomeoni-nim… it’s not stealing… it’s sharing… hehehe.」</p>
+<p>"Oh, Eomeoni-nim… it’s not stealing… it’s sharing… hehehe."</p>
 
 <p>As Eun-young said that, she thrust her upper body forward, and So-eun placed a hand on her shoulder, gently rubbing it while also thrusting her own upper body forward.</p>
 
 <p>Watching their breasts being emphasized, Won-cheol whispered quietly to Han-pan.</p>
 
-<p>「What do you think? Isn’t our So-eun’s chest killer?」</p>
+<p>"What do you think? Isn’t our So-eun’s chest killer?"</p>
 
 <p>Han-pan hesitated on how to respond before saying,</p>
 
-<p>「Haha, you’re right, it’s wonderful.」</p>
+<p>"Haha, you’re right, it’s wonderful."</p>
 
 <p>Won-cheol whispered again.</p>
 
-<p>「It’s even more killer when we’re doing it… hyeu-hyeu-hyeu… and don’t even get me started on my mom… hehehe.」</p>
+<p>"It’s even more killer when we’re doing it… hyeu-hyeu-hyeu… and don’t even get me started on my mom… hehehe."</p>
 
-<p>「Ahaha, is that so?」</p>
+<p>"Ahaha, is that so?"</p>
 
 <p>Han-pan gave an awkward smile.</p>
 
 <p>Seeing his awkward expression, Won-cheol said,</p>
 
-<p>「You rascal… I know all about you sleeping with my mom… why are you being so shy… I know you’ve had a fun time with your family too, hyeu-hyeu-hyeu…」</p>
+<p>"You rascal… I know all about you sleeping with my mom… why are you being so shy… I know you’ve had a fun time with your family too, hyeu-hyeu-hyeu…"</p>
 
-<p>「Ahaha, Hyeong-nim…」</p>
+<p>"Ahaha, Hyeong-nim…"</p>
 
 <p>Just then, So-jo approached the two of them with glasses in hand.</p>
 
-<p>「Oh my, what kind of sweet, secret conversation are our men having…」</p>
+<p>"Oh my, what kind of sweet, secret conversation are our men having…"</p>
 
 <p>As the nearly naked So-jo approached him, Han-pan’s heart began to race.</p>
 
 <p>Won-cheol said slyly,</p>
 
-<p>「What else… we’re talking about the sexiest women in the world standing right in front of us…」</p>
+<p>"What else… we’re talking about the sexiest women in the world standing right in front of us…"</p>
 
-<p>「Oh, is that so? First, shall we have a drink with those sexy women…」</p>
+<p>"Oh, is that so? First, shall we have a drink with those sexy women…"</p>
 
 <p>So-jo held out the glasses to them.</p>
 
@@ -193,21 +193,21 @@ chapter = 226
 
 <p>Eun-young held out her glass first.</p>
 
-<p>「Now, a toast to celebrate this wonderful day!」</p>
+<p>"Now, a toast to celebrate this wonderful day!"</p>
 
 <p>They all raised their glasses and toasted.</p>
 
-<p>「To us!」</p>
+<p>"To us!"</p>
 
-<p>「To us!!」</p>
+<p>"To us!!"</p>
 
 <p>And they drained their first glasses in one gulp.</p>
 
-<p>「Kyaa, that’s good!」</p>
+<p>"Kyaa, that’s good!"</p>
 
 <p>Won-cheol shouted loudly, grabbed So-eun, and spun her around in a large circle.</p>
 
-<p>「Ah, Oppa!!!」</p>
+<p>"Ah, Oppa!!!"</p>
 
 <p>So-eun laughed, kka-reu-reu, clearly enjoying herself.</p>
 
@@ -233,36 +233,36 @@ chapter = 226
 
 <p>Won-cheol looked at the screen and then at Eun-young.</p>
 
-<p>「It’s Dad.」</p>
+<p>"It’s Dad."</p>
 
-<p>「Huh?」</p>
+<p>"Huh?"</p>
 
 <p>Won-cheol answered the phone.</p>
 
-<p>「Yes, Father… yes, yes… I’m with Mom and So-eun… yes, yes… Ah… I see… right now?... yes, yes… Ah… ah… I understand… nothing can be done… yes, yes… I’ll go now… Yes, see you in a bit.」</p>
+<p>"Yes, Father… yes, yes… I’m with Mom and So-eun… yes, yes… Ah… I see… right now?... yes, yes… Ah… ah… I understand… nothing can be done… yes, yes… I’ll go now… Yes, see you in a bit."</p>
 
 <p>After hanging up, Won-cheol looked at Eun-young.</p>
 
-<p>「What is it?」</p>
+<p>"What is it?"</p>
 
-<p>「Dad says a very urgent matter came up at the company and he wants me to go handle it…」</p>
+<p>"Dad says a very urgent matter came up at the company and he wants me to go handle it…"</p>
 
-<p>「Now? On a Saturday?」</p>
+<p>"Now? On a Saturday?"</p>
 
-<p>「I know… I don’t know… Ah, damn it…」</p>
+<p>"I know… I don’t know… Ah, damn it…"</p>
 
-<p>「Oppa, do you have to go now?」</p>
+<p>"Oppa, do you have to go now?"</p>
 
-<p>「Yeah, looks like it…」</p>
+<p>"Yeah, looks like it…"</p>
 
 <p>Won-cheol wore a look of regret.</p>
 
-<p>「Oh my… that’s a shame.」</p>
+<p>"Oh my… that’s a shame."</p>
 
-<p>「Well, even if I’m not here, Han-pan is here, so I’m sure you can all have a great time… Han-pan, you can handle it, right?」</p>
+<p>"Well, even if I’m not here, Han-pan is here, so I’m sure you can all have a great time… Han-pan, you can handle it, right?"</p>
 
 <p>Won-cheol patted him on the back.</p>
 
-<p>「Ahaha, of course!」</p>
+<p>"Ahaha, of course!"</p>
 
-<p>「Alright then, let’s go again!」</p>
+<p>"Alright then, let’s go again!"</p>

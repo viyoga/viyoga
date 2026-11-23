@@ -9,7 +9,7 @@ chapter = 68
 
 <p>Seeing that, Miho smiled brightly.</p>
 
-<p>「My son is hopeless at yoga... collapsing from just this much stimulation... how will you ever manage?」</p>
+<p>"My son is hopeless at yoga... collapsing from just this much stimulation... how will you ever manage?"</p>
 
 <p>Han-pan regained his balance and looked at her.</p>
 
@@ -77,41 +77,41 @@ chapter = 68
 
 <p>Miho spoke while gasping for breath.</p>
 
-<p>「Son…」</p>
+<p>"Son…"</p>
 
 <p>Han-pan nodded.</p>
 
-<p>「Yes, Mom…」</p>
+<p>"Yes, Mom…"</p>
 
-<p>「You're going to love me forever, right?」</p>
+<p>"You're going to love me forever, right?"</p>
 
 <p>Han-pan nodded again.</p>
 
-<p>「Of course…」</p>
+<p>"Of course…"</p>
 
-<p>「Unchangingly?」</p>
+<p>"Unchangingly?"</p>
 
-<p>「Unchangingly!」</p>
+<p>"Unchangingly!"</p>
 
-<p>「No matter what bitch you sleep with? You know I come first, right? Hmm?」</p>
+<p>"No matter what bitch you sleep with? You know I come first, right? Hmm?"</p>
 
-<p>「I'm always yours, Mom... forever from now on.」</p>
+<p>"I'm always yours, Mom... forever from now on."</p>
 
-<p>「Yes... I believe in my son...」</p>
+<p>"Yes... I believe in my son..."</p>
 
-<p>「I won't disappoint you, Mom...」</p>
+<p>"I won't disappoint you, Mom..."</p>
 
-<p>「Yes, Mom has a lot built up, so I'll have many demands... please listen to even the strange ones... for Mom, okay?」</p>
+<p>"Yes, Mom has a lot built up, so I'll have many demands... please listen to even the strange ones... for Mom, okay?"</p>
 
-<p>「Of course…」</p>
+<p>"Of course…"</p>
 
-<p>「No matter what it is?」</p>
+<p>"No matter what it is?"</p>
 
-<p>「Of course... whatever it is, because you're Mom, I'll follow you...」</p>
+<p>"Of course... whatever it is, because you're Mom, I'll follow you..."</p>
 
-<p>「My son is so wonderful... I love you...」</p>
+<p>"My son is so wonderful... I love you..."</p>
 
-<p>「I love you too.」</p>
+<p>"I love you too."</p>
 
 <p>As soon as he finished speaking, Miho pulled the hand holding his Cock toward her Jade Gate.</p>
 
@@ -127,11 +127,11 @@ chapter = 68
 
 <p>She said in a low voice.</p>
 
-<p>「Ah... how did we end up here?... I don't even know...」</p>
+<p>"Ah... how did we end up here?... I don't even know..."</p>
 
-<p>「I don't know either... Mom... don't think about it now... just be faithful to your instincts...」</p>
+<p>"I don't know either... Mom... don't think about it now... just be faithful to your instincts..."</p>
 
-<p>「Yes, let's be faithful to our instincts...」</p>
+<p>"Yes, let's be faithful to our instincts..."</p>
 
 <p>Saying that, she began to slowly push his Cock into her Jade Gate.</p>
 
@@ -171,13 +171,13 @@ chapter = 68
 
 <p>Now, the roles of mother and son vanished, and only one female and one male existed.</p>
 
-<p>「It fills me up more than I thought... ha...」</p>
+<p>"It fills me up more than I thought... ha..."</p>
 
 <p>As she let out a Moan, Han-pan spoke.</p>
 
-<p>「You'll get used to it soon... because you'll be feeling it countless times starting today...」</p>
+<p>"You'll get used to it soon... because you'll be feeling it countless times starting today..."</p>
 
-<p>「I suppose so?」</p>
+<p>"I suppose so?"</p>
 
 <p>Miho began to slowly move her body up and down.</p>
 
@@ -217,23 +217,23 @@ chapter = 68
 
 <p>And heading toward the wall, he supported her and began Fucking her again.</p>
 
-<p>「Haa! Haa! Fuck!! It’s so fucking good!! Ah, fuck!! Mom!! It feels so good!!」</p>
+<p>"Haa! Haa! Fuck!! It’s so fucking good!! Ah, fuck!! Mom!! It feels so good!!"</p>
 
 <p>Miho shot back.</p>
 
-<p>「Hah... hah... is it fucking good? Is it good because you're doing it with your mom? Hah... more than other fucking bitches? Hah... hah...」</p>
+<p>"Hah... hah... is it fucking good? Is it good because you're doing it with your mom? Hah... more than other fucking bitches? Hah... hah..."</p>
 
-<p>「Haa... haa... fuck... Mom is the best! Ah, fuck... Mom's Jade Gate is the best!!! Ah, fuck!!!」</p>
+<p>"Haa... haa... fuck... Mom is the best! Ah, fuck... Mom's Jade Gate is the best!!! Ah, fuck!!!"</p>
 
-<p>「Yes! Fuck, Thrust! Hah... hah... hah... Thrust as much as you want... from now on, Mom is yours!!」</p>
+<p>"Yes! Fuck, Thrust! Hah... hah... hah... Thrust as much as you want... from now on, Mom is yours!!"</p>
 
-<p>「Haa! Haa! Ah, fuck! Mom, you're my woman now! I'm going to do whatever I want!」</p>
+<p>"Haa! Haa! Ah, fuck! Mom, you're my woman now! I'm going to do whatever I want!"</p>
 
-<p>「Hah... hah... hah... yes, do as you please! Hah... hah...」</p>
+<p>"Hah... hah... hah... yes, do as you please! Hah... hah..."</p>
 
-<p>「Haa! Haa! I'm going to make you wear the clothes I want! And we'll do it anytime, anywhere! From now on, whenever I tell you, spread your pussy, got it?! You Fucking Bitch!!!! Ah!!! Ah!!! You Fucking Bitch!!! I'm going crazy!!!」</p>
+<p>"Haa! Haa! I'm going to make you wear the clothes I want! And we'll do it anytime, anywhere! From now on, whenever I tell you, spread your pussy, got it?! You Fucking Bitch!!!! Ah!!! Ah!!! You Fucking Bitch!!! I'm going crazy!!!"</p>
 
-<p>「Hah... hah... hah... I'll do everything you tell me to!!! Mom will be your Jade Gate!!! Mom is now her son's pussy!!! Only my son can Thrust into me!!! Aaack!!!」</p>
+<p>"Hah... hah... hah... I'll do everything you tell me to!!! Mom will be your Jade Gate!!! Mom is now her son's pussy!!! Only my son can Thrust into me!!! Aaack!!!"</p>
 
 <p>Miho gasped for breath frantically and let out moans.</p>
 
@@ -253,6 +253,6 @@ chapter = 68
 
 <p>Realizing he was about to ejaculate by looking at his facial expression, Miho spoke.</p>
 
-<p>「Son, cum inside Mom... it's okay... it's Mom's safe day... cum inside...」</p>
+<p>"Son, cum inside Mom... it's okay... it's Mom's safe day... cum inside..."</p>
 
 <p>Simultaneously with Miho's words, Han-pan erupted with the Ejaculation he had been holding back.</p>

@@ -132,17 +132,17 @@ The sight of her lewdly sucking his dick in a space where many people were prese
 
 <p>Then, she answered calmly as if nothing had happened.</p>
 
-<p>「Yeah, So-jo... yeah... ah... I’m with Han-pan right now... yeah... here?... uh... the 2nd floor... yeah... oh, we were just looking around here and there... yeah... yeah... I got it... I’ll head down soon... yeah... okay...」</p>
+<p>"Yeah, So-jo... yeah... ah... I’m with Han-pan right now... yeah... here?... uh... the 2nd floor... yeah... oh, we were just looking around here and there... yeah... yeah... I got it... I’ll head down soon... yeah... okay..."</p>
 
 <p>She pressed the end call button and slowly stood up from her spot.</p>
 
-<p>「So-jo nuna?」</p>
+<p>"So-jo nuna?"</p>
 
 <p>Miho nodded and gave a faint smile.</p>
 
-<p>「Yeah, she told us to come down to the 1st floor quickly. She said there’s someone she wants to introduce...」</p>
+<p>"Yeah, she told us to come down to the 1st floor quickly. She said there’s someone she wants to introduce..."</p>
 
-<p>「Oh, okay...」</p>
+<p>"Oh, okay..."</p>
 
 <p>Miho put the phone back into her handbag, turned around, and tidied up her quite disheveled body in front of the mirror.</p>
 
@@ -199,24 +199,24 @@ Han-pan followed behind her like a child being dragged away against his will.</p
 
 <p>She turned her head and looked at Miho and Han-pan.</p>
 
-<p>「Where were you?」</p>
+<p>"Where were you?"</p>
 
 <p>So-jo spoke to them in a somewhat frustrated tone, but conscious of the people around her, she soon smiled brightly and introduced the two to them.</p>
 
-<p>「This is my mother and my younger brother.」</p>
+<p>"This is my mother and my younger brother."</p>
 
 <p>At her words, Miho and Han-pan bowed their heads slightly to greet them.</p>
 
-<p>「We’ve met once before, haven’t we?」</p>
+<p>"We’ve met once before, haven’t we?"</p>
 
 <p>The others were people he was seeing for the first time, but Han-pan could recognize him instantly. <br>
 It was Ju Seong-jin, the representative of Star Cruise, to which So-jo belonged, sporting a stylish beard.</p>
 
-<p>「Hello, nice to see you again.」</p>
+<p>"Hello, nice to see you again."</p>
 
 <p>Miho bowed her head politely toward him once more.</p>
 
-<p>「Oh my, why are you being so formal between fellow representatives? Hahaha!」</p>
+<p>"Oh my, why are you being so formal between fellow representatives? Hahaha!"</p>
 
 <p>He was very pleased when a beautiful woman like Miho greeted him. <br>
 With that, the conversation opened up, and Miho was introduced to the people one by one by So-jo. Soon, Miho was skillfully continuing the conversation like someone who belonged in their group. <br>

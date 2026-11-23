@@ -31,11 +31,11 @@ chapter = 96
 
 <p>As he stuck his tongue out again and thrust it into her anus, she let out a unique moan that sounded like the rhythmic chik-chik-pok-pok of a steam locomotive.</p>
 
-<p>「Hah... hah... hah... hah... hah...」</p>
+<p>"Hah... hah... hah... hah... hah..."</p>
 
 <p>With those rhythmic moans, Miho braced herself by grabbing the top of his head with one hand and the shower rod on the wall with the other, slamming her buttocks back down onto his face and rubbing against him.</p>
 
-<p>「Euaaaang!!!! Honey!!! Aaaaaaaang!!!!」</p>
+<p>"Euaaaang!!!! Honey!!! Aaaaaaaang!!!!"</p>
 
 <p>Listening to her screams, Han-pan supported her buttocks with one hand while the other continuously dug into her cunt hole.</p>
 
@@ -49,7 +49,7 @@ chapter = 96
 
 <p>She cried out as if vomiting the words.</p>
 
-<p>「Aack!!!!! Fuuuuuuuck!!!!!!! Aack!!!!!」</p>
+<p>"Aack!!!!! Fuuuuuuuck!!!!!!! Aack!!!!!"</p>
 
 <p>Feeling her body stiffen violently again, Han-pan sprang up from his spot.</p>
 
@@ -119,17 +119,17 @@ chapter = 96
 
 <p>Conscious of his gaze fixed on her, she spoke.</p>
 
-<p>「It looks like you can't focus because of me. Should I help you?」</p>
+<p>"It looks like you can't focus because of me. Should I help you?"</p>
 
-<p>「Uh... I guess Mom can focus well... but I can't... Hahaha.」</p>
+<p>"Uh... I guess Mom can focus well... but I can't... Hahaha."</p>
 
 <p>Han-pan let out a hollow laugh, revealing his uncontrollable lust.</p>
 
-<p>「I wonder why you can't focus...」</p>
+<p>"I wonder why you can't focus..."</p>
 
 <p>She tilted her head, asking a question to which the answer was obvious.</p>
 
-<p>「You know exactly why...」</p>
+<p>"You know exactly why..."</p>
 
 <p>Han-pan stepped toward her and sucked on her nipple.</p>
 
@@ -137,79 +137,79 @@ chapter = 96
 
 <p>Miho slightly pulled her pelvis back and said,</p>
 
-<p>「Stop it... I just washed...」</p>
+<p>"Stop it... I just washed..."</p>
 
-<p>「So what?」</p>
+<p>"So what?"</p>
 
 <p>He leaned in to kiss her lips, then quickly pulled back and said,</p>
 
-<p>「I love Mom so much!」</p>
+<p>"I love Mom so much!"</p>
 
 <p>At his words, she broke into a wide grin and gave him a lovely kiss on the cheek.</p>
 
-<p>「Oh dear... I don't think I'm quite a good enough mother yet...」</p>
+<p>"Oh dear... I don't think I'm quite a good enough mother yet..."</p>
 
 <p>In response, he thrust both hands forward, grabbing both of her buttocks firmly, and said,</p>
 
-<p>「Only Mom can draw out this kind of stimulation from me... so you're a good enough mother... no, a good woman... a good girlfriend... a good sex partner... a good...」</p>
+<p>"Only Mom can draw out this kind of stimulation from me... so you're a good enough mother... no, a good woman... a good girlfriend... a good sex partner... a good..."</p>
 
 <p>As his voice trailed off, she wore a questioning expression.</p>
 
-<p>「A good what?」</p>
+<p>"A good what?"</p>
 
 <p>Han-pan hesitated for a moment before speaking.</p>
 
-<p>「Wife...」</p>
+<p>"Wife..."</p>
 
-<p>「What?!」</p>
+<p>"What?!"</p>
 
-<p>「Wife!」</p>
+<p>"Wife!"</p>
 
-<p>「What are you even saying! A wife!! Hohoho.」</p>
+<p>"What are you even saying! A wife!! Hohoho."</p>
 
 <p>Miho let out a joyful laugh and swatted his arm.</p>
 
 <p>Deep down, she didn't seem to dislike him calling her his wife.</p>
 
-<p>「Should I call you 'Yeobo' when it's just the two of us?」</p>
+<p>"Should I call you 'Yeobo' when it's just the two of us?"</p>
 
 <p>Miho thought deeply for a moment before saying,</p>
 
-<p>「Well... do as you like... I don't care what you call me, but...」</p>
+<p>"Well... do as you like... I don't care what you call me, but..."</p>
 
 <p>She said that, looked at him for a moment, and then tossed the used towel into the laundry basket.</p>
 
-<p>「There's a lot of laundry to do today...」</p>
+<p>"There's a lot of laundry to do today..."</p>
 
-<p>「I guess so... Hahaha.」</p>
+<p>"I guess so... Hahaha."</p>
 
 <p>Han-pan also tossed his used towel into the basket.</p>
 
 <p>She smiled and grabbed his semi-erect cock, moving it gently back and forth.</p>
 
-<p>「Hmm... it looks like Mom still wants to do more...」</p>
+<p>"Hmm... it looks like Mom still wants to do more..."</p>
 
 <p>She laughed at his words.</p>
 
-<p>「Hmm... does my son want to rest? Then rest a bit... although it seems Mom’s lust hasn't been fully satisfied yet...」</p>
+<p>"Hmm... does my son want to rest? Then rest a bit... although it seems Mom’s lust hasn't been fully satisfied yet..."</p>
 
-<p>「What? You're still not satisfied?」</p>
+<p>"What? You're still not satisfied?"</p>
 
 <p>Han-pan thought he had worked hard to make her come, but it seemed it wasn't enough for her.</p>
 
-<p>「I think you've awakened the monster inside me... I want to do nothing but have sex all day...」</p>
+<p>"I think you've awakened the monster inside me... I want to do nothing but have sex all day..."</p>
 
 <p>Miho spoke in a slightly despairing tone.</p>
 
-<p>「A sex monster?」</p>
+<p>"A sex monster?"</p>
 
-<p>「I think you're a sex monster too.」</p>
+<p>"I think you're a sex monster too."</p>
 
 <p>Miho said, referring to his long, monster-like tool.</p>
 
 <p>Han-pan smiled at her witty retort as he looked at his standing member.</p>
 
-<p>「Let's go to my room... your room is such a mess...」</p>
+<p>"Let's go to my room... your room is such a mess..."</p>
 
 <p>Still completely naked, she left the shower room and headed toward her bedroom.</p>
 
@@ -237,29 +237,29 @@ chapter = 96
 
 <p>Miho caught the flustered look on his face and wore a playful smile.</p>
 
-<p>「When you were little, you wouldn't even drink the formula I made... but you drank my breast milk so well... When you were a baby, it seemed like you wanted to stay latched onto my breast all day... It seems you're still the same, even now that you're all grown up...」</p>
+<p>"When you were little, you wouldn't even drink the formula I made... but you drank my breast milk so well... When you were a baby, it seemed like you wanted to stay latched onto my breast all day... It seems you're still the same, even now that you're all grown up..."</p>
 
 <p>Han-pan approached her and stood before her.</p>
 
-<p>「Was I like that? Well... even now, you keep making my eyes dizzy in a different sense...」</p>
+<p>"Was I like that? Well... even now, you keep making my eyes dizzy in a different sense..."</p>
 
-<p>「So-jo’s breasts are pretty too... Don't you like a younger woman's breasts more? They're perky and more elastic... What's so good about the just-plain-big breasts of an older woman like me...」</p>
+<p>"So-jo’s breasts are pretty too... Don't you like a younger woman's breasts more? They're perky and more elastic... What's so good about the just-plain-big breasts of an older woman like me..."</p>
 
 <p>Han-pan spoke in a strong tone, telling her she was wrong.</p>
 
-<p>「Mom, first of all... you haven't aged at all... Who would ever know your real age? You look at least 20 years younger than you actually are!」</p>
+<p>"Mom, first of all... you haven't aged at all... Who would ever know your real age? You look at least 20 years younger than you actually are!"</p>
 
 <p>She smiled brightly at his words.</p>
 
-<p>「Second! Mom, your breasts are bigger than any other woman's! Besides, I've never seen a woman with such a beautiful and distinct line before... I probably won't ever see one again.」</p>
+<p>"Second! Mom, your breasts are bigger than any other woman's! Besides, I've never seen a woman with such a beautiful and distinct line before... I probably won't ever see one again."</p>
 
-<p>「Really?」</p>
+<p>"Really?"</p>
 
-<p>「Of course!」</p>
+<p>"Of course!"</p>
 
-<p>「My son really knows how to make his mother feel good!」</p>
+<p>"My son really knows how to make his mother feel good!"</p>
 
-<p>「Naturally! Whose son am I? Hahaha!!!」</p>
+<p>"Naturally! Whose son am I? Hahaha!!!"</p>
 
 <p>Han-pan laughed cheerfully.</p>
 

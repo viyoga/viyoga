@@ -29,7 +29,7 @@ chapter = 220
 
 <p>Soon after arriving at the hotel, Han-pan got out of the car, and at that moment, a text message arrived from her.</p>
 
-<p>「1505」</p>
+<p>"1505"</p>
 
 <p>The short room number arrived via text, and Han-pan headed straight for the elevator, going directly to the room where she was.</p>
 
@@ -41,11 +41,11 @@ chapter = 220
 
 <p>After looking around the room, he spoke.</p>
 
-<p>「The room is nice.」</p>
+<p>"The room is nice."</p>
 
 <p>Lee Ae-yeon gave a thin smile, sat on the bed without a word, and looked at him while crossing her legs.</p>
 
-<p>「I have to be back by 11:00 PM at the latest... There are a little over two hours left, so... what shall we do now?」</p>
+<p>"I have to be back by 11:00 PM at the latest... There are a little over two hours left, so... what shall we do now?"</p>
 
 <p>She moved her crossed leg back and forth with a rhythmic kkadak-kkadak, a movement that felt like a tease.</p>
 
@@ -77,7 +77,7 @@ chapter = 220
 
 <p>Small moans repeatedly escaped Lee Ae-yeon's mouth.</p>
 
-<p>「Mmm... Han-pan, you're good at kissing... Aren't you a bit too experienced for your age?... Mmm... Ah... I can't believe I'm doing this with you... Mmm...」</p>
+<p>"Mmm... Han-pan, you're good at kissing... Aren't you a bit too experienced for your age?... Mmm... Ah... I can't believe I'm doing this with you... Mmm..."</p>
 
 <p>Han-pan gave a thin smile and continued his foreplay, working his tongue and lips without a word.</p>
 
@@ -85,25 +85,25 @@ chapter = 220
 
 <p>Han-pan pushed harder, trying to lay her down on the bed, but Lee Ae-yeon slipped away slightly and spoke.</p>
 
-<p>「Do you have a condom?」</p>
+<p>"Do you have a condom?"</p>
 
 <p>At the unexpected question, Han-pan opened his closed eyes and said,</p>
 
-<p>「I didn't think this would happen, so I didn't prepare one...」</p>
+<p>"I didn't think this would happen, so I didn't prepare one..."</p>
 
 <p>Lee Ae-yeon chuckled and said,</p>
 
-<p>「You still lack manners toward women... Shouldn't you prepare a condom if you want to sleep with a woman?」</p>
+<p>"You still lack manners toward women... Shouldn't you prepare a condom if you want to sleep with a woman?"</p>
 
 <p>Han-pan gave a thin smile.</p>
 
-<p>「I was planning to pull it out quickly before I cum.」</p>
+<p>"I was planning to pull it out quickly before I cum."</p>
 
 <p>When the word "cum" came out of his mouth, Lee Ae-yeon burst into laughter.</p>
 
-<p>「Ho-ho-ho, what... "cum"... how unrefined...」</p>
+<p>"Ho-ho-ho, what... "cum"... how unrefined..."</p>
 
-<p>「I was never refined to begin with!」</p>
+<p>"I was never refined to begin with!"</p>
 
 <p>Han-pan grabbed her waist, pulled her close to him, and rubbed his lips forcefully against hers.</p>
 
@@ -115,29 +115,29 @@ chapter = 220
 
 <p>Feeling her allure that had been hidden by her loose clothes, Han-pan said,</p>
 
-<p>「Your figure is great... I like it... If I knew you had a body like this, I should have contacted you sooner...」</p>
+<p>"Your figure is great... I like it... If I knew you had a body like this, I should have contacted you sooner..."</p>
 
 <p>Continuing the kiss, Lee Ae-yeon said,</p>
 
-<p>「It's even more magnificent when I take it off...」</p>
+<p>"It's even more magnificent when I take it off..."</p>
 
-<p>「Then take it off.」</p>
+<p>"Then take it off."</p>
 
 <p>Han-pan pushed her even harder, undoing the buttons of her dress one by one.</p>
 
 <p>Lee Ae-yeon gently pushed him away with both hands and said,</p>
 
-<p>「Shouldn't we wash up?」</p>
+<p>"Shouldn't we wash up?"</p>
 
 <p>Han-pan said with a beaming smile,</p>
 
-<p>「I prefer doing it raw... If you wash, there's no body scent, so it's not as good...」</p>
+<p>"I prefer doing it raw... If you wash, there's no body scent, so it's not as good..."</p>
 
 <p>Lee Ae-yeon liked his confidence, which exuded a powerful male pheromone.</p>
 
 <p>She slowly stood up from her spot, looked down, and said,</p>
 
-<p>「Take off your clothes and wait...」</p>
+<p>"Take off your clothes and wait..."</p>
 
 <p>Then she turned around and headed for the restroom.</p>
 
@@ -193,7 +193,7 @@ chapter = 220
 
 <p>They were high heels that looked quite luxurious, and since Han-pan had never seen her wearing high heels before, it felt very new.</p>
 
-<p>「Do you like it?」</p>
+<p>"Do you like it?"</p>
 
 <p>Han-pan nodded with a beaming smile.</p>
 
@@ -213,23 +213,23 @@ chapter = 220
 
 <p>After continuing the kiss for a while, Lee Ae-yeon stopped and spoke.</p>
 
-<p>「I like wearing high heels when I have sex... How about you?」</p>
+<p>"I like wearing high heels when I have sex... How about you?"</p>
 
 <p>Han-pan smiled brightly.</p>
 
-<p>「It's exactly what I want... Always wear high heels when we have sex from now on... It's so erotic... The higher they are, the better...」</p>
+<p>"It's exactly what I want... Always wear high heels when we have sex from now on... It's so erotic... The higher they are, the better..."</p>
 
 <p>Lee Ae-yeon's eyes sparkled.</p>
 
-<p>「Okay... Then I'll have to wear even hotter ones in the future...」</p>
+<p>"Okay... Then I'll have to wear even hotter ones in the future..."</p>
 
 <p>At the same time, she reached down and rubbed his dick through his drawers.</p>
 
-<p>「Ah... But isn't your size just too wonderful?」</p>
+<p>"Ah... But isn't your size just too wonderful?"</p>
 
-<p>「Hehe, is that so? I'm going to go inside you soon, Teacher...」</p>
+<p>"Hehe, is that so? I'm going to go inside you soon, Teacher..."</p>
 
-<p>「Really?」</p>
+<p>"Really?"</p>
 
 <p>She wore an obscene smile, then reached out and rummaged through her handbag for something.</p>
 
@@ -237,7 +237,7 @@ chapter = 220
 
 <p>She tore the wrapper with her teeth and said,</p>
 
-<p>「If it's this big, I should have looked for a larger size... I don't know if this will fit...」</p>
+<p>"If it's this big, I should have looked for a larger size... I don't know if this will fit..."</p>
 
 <p>She held the condom in her mouth, hooked her fingers into the waistband of his drawers, and pulled them down.</p>
 
@@ -259,8 +259,8 @@ chapter = 220
 
 <p>Seeing that, she smiled.</p>
 
-<p>「This is no joke... I don't know if I can handle this...」</p>
+<p>"This is no joke... I don't know if I can handle this..."</p>
 
-<p>「Everyone says that at first, but in the end, they all adapt and love it...」</p>
+<p>"Everyone says that at first, but in the end, they all adapt and love it..."</p>
 
 <p>He spoke as he grabbed her, pulled her up, and laid her back down on the bed.</p>

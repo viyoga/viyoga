@@ -51,31 +51,31 @@ chapter = 232
 
 <p>Looking at Han-pan spread out on the sofa, gasping for air, Eun-young spoke.</p>
 
-<p>「Hohoho, good work… but is this the end?」</p>
+<p>"Hohoho, good work… but is this the end?"</p>
 
 <p>Han-pan let out a smirk.</p>
 
-<p>「I don’t know… why? One more time?」</p>
+<p>"I don’t know… why? One more time?"</p>
 
 <p>Mi-ho stood up from her seat, rubbing her pussy with her fingers as she spoke.</p>
 
-<p>「Hmm… I’m not finished yet… it’s not even midnight… it would be a shame to end it like this… can our seobangnim find the strength for one more round?」</p>
+<p>"Hmm… I’m not finished yet… it’s not even midnight… it would be a shame to end it like this… can our seobangnim find the strength for one more round?"</p>
 
 <p>Han-pan stood up lightly and stroked his dick.</p>
 
 <p>He still had some energy left.</p>
 
-<p>「Hehe, sounds good.」</p>
+<p>"Hehe, sounds good."</p>
 
-<p>「Oh my, son… you still have stamina left? That’s amazing.」</p>
+<p>"Oh my, son… you still have stamina left? That’s amazing."</p>
 
 <p>As Mi-ho spoke, Han-pan gave a thumbs up and said,</p>
 
-<p>「Of course… a day like this doesn’t happen often… today, I’m going to find out where my limit is.」</p>
+<p>"Of course… a day like this doesn’t happen often… today, I’m going to find out where my limit is."</p>
 
 <p>At his words, Mi-ho also smirked.</p>
 
-<p>「Mi-ho, shall we move to your room and do it more comfortably?」</p>
+<p>"Mi-ho, shall we move to your room and do it more comfortably?"</p>
 
 <p>Mi-ho nodded.</p>
 
@@ -135,7 +135,7 @@ chapter = 232
 
 <p>Han-pan used all his power to pour his final remaining seed deep into her uterus.</p>
 
-<p>「Ahhhhhhh!!!」</p>
+<p>"Ahhhhhhh!!!"</p>
 
 <p>With a final scream, Mi-ho shrieked and fell forward, her entire body trembling violently.</p>
 

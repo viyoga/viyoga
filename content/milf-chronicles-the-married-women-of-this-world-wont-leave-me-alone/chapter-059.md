@@ -81,11 +81,11 @@ chapter = 59
 
 <p>The height was a dizzying length, surely exceeding 12cm.</p>
 
-<p>「How is it?」</p>
+<p>"How is it?"</p>
 
-<p>「It looks very graceful.」</p>
+<p>"It looks very graceful."</p>
 
-<p>「Ho-ho, right?」</p>
+<p>"Ho-ho, right?"</p>
 
 <p>She spun around once as if showing off the clothes to him.</p>
 
@@ -99,7 +99,7 @@ chapter = 59
 
 <p>Thinking she had taken enough photos, Mi-jo suggested they try a different version and began to undo the buttons of her dress one by one.</p>
 
-<p>「The charm of this outfit is... it looks very innocent, but it’s actually incredibly erotic...」</p>
+<p>"The charm of this outfit is... it looks very innocent, but it’s actually incredibly erotic..."</p>
 
 <p>As she spoke, she undid about four or five buttons near her chest.</p>
 
@@ -135,11 +135,11 @@ chapter = 59
 
 <p>Han-pan felt an intense thrill.</p>
 
-<p>「Um... I’m thinking of taking some more erotic shots now... would that be okay?」</p>
+<p>"Um... I’m thinking of taking some more erotic shots now... would that be okay?"</p>
 
 <p>Mi-jo said with a laugh.</p>
 
-<p>「It’s what I was hoping for... try to take them as lewdly as possible so my husband gets excited... I’ll trust Han-pan-i’s directing.」</p>
+<p>"It’s what I was hoping for... try to take them as lewdly as possible so my husband gets excited... I’ll trust Han-pan-i’s directing."</p>
 
 <p>She posed as she spoke.</p>
 
@@ -191,28 +191,28 @@ chapter = 59
 
 <p>Han-pan realized that even as he got older, seeing a woman who was always prepared for sex like that made him aroused.</p>
 
-<p>「Nuna, you look truly amazing. Wow... how do you still maintain a figure like that?」</p>
+<p>"Nuna, you look truly amazing. Wow... how do you still maintain a figure like that?"</p>
 
-<p>「Really? Do I look okay? Actually... I suffered a bit doing a sudden diet over the weekend because I was worried I’d look fat, but I’m glad you like it... ho-ho.」</p>
+<p>"Really? Do I look okay? Actually... I suffered a bit doing a sudden diet over the weekend because I was worried I’d look fat, but I’m glad you like it... ho-ho."</p>
 
-<p>「Gosh, you have a wonderful body even without dieting... man, this is no joke...」</p>
+<p>"Gosh, you have a wonderful body even without dieting... man, this is no joke..."</p>
 
 <p>She was satisfied with his answer and slowly moved the dress she was wearing as if it were a coat, posing once again.<br>
 Han-pan raised the camera to photograph her again, and after a moment, he spoke to her.</p>
 
-<p>「Nuna, try sitting over there on the sofa.」</p>
+<p>"Nuna, try sitting over there on the sofa."</p>
 
 <p>Ban Mi-jo went to the sofa and sat down.</p>
 
-<p>「It doesn’t matter if it’s a bit lewd, right?」</p>
+<p>"It doesn’t matter if it’s a bit lewd, right?"</p>
 
 <p>She said with a suggestive smile.</p>
 
-<p>「Do whatever you want, Director-nim.」</p>
+<p>"Do whatever you want, Director-nim."</p>
 
 <p>Ban Mi-jo winked and readily agreed to his proposal.</p>
 
-<p>「Well then, spread your legs as wide as possible and reach your arms back toward the sofa.」</p>
+<p>"Well then, spread your legs as wide as possible and reach your arms back toward the sofa."</p>
 
 <p>Han-pan requested a pose he had seen in the sample photos earlier, and realizing what it was, she immediately took the position.</p>
 
@@ -222,7 +222,7 @@ Han-pan raised the camera to photograph her again, and after a moment, he spoke 
 
 <p>Han-pan raised the camera and took several shots.</p>
 
-<p>「Nuna, make a sexy expression.」</p>
+<p>"Nuna, make a sexy expression."</p>
 
 <p>Following his words, she made a devious and wanton expression.<br>
 The alcohol was kicking in, and she was in a very good mood.<br>

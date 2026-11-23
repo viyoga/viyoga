@@ -129,31 +129,31 @@ The taxi quickly pulled onto the road.</p>
 After staring out the window for a moment, Han-pan took his cellphone out of his pocket and called his mom, Park Mi-ho.<br>
 The dial tone rang, and soon Park Mi-ho’s slightly high-toned voice was heard.</p>
 
-<p>『Son?』</p>
+<p>"Son?"</p>
 
 <p>“Yes, Mom, hehe.”</p>
 
-<p>『What? It’s not an international call; it’s showing up as a domestic number! Are you perhaps?』</p>
+<p>"What? It’s not an international call; it’s showing up as a domestic number! Are you perhaps?"</p>
 
 <p>“Hehehe.”</p>
 
-<p>『What? Are you in Korea?』</p>
+<p>"What? Are you in Korea?"</p>
 
 <p>“Yep!”</p>
 
-<p>『You said you were coming the day after tomorrow!』</p>
+<p>"You said you were coming the day after tomorrow!"</p>
 
 <p>“I wanted to surprise you! Mom, are you in the office right now?”</p>
 
-<p>『Huh? Yes!』</p>
+<p>"Huh? Yes!"</p>
 
 <p>“Is it okay if I go there now?”</p>
 
-<p>『Of course!』</p>
+<p>"Of course!"</p>
 
 <p>“Okay, then I’ll be there soon. See you in a bit.”</p>
 
-<p>『Okay, okay.』</p>
+<p>"Okay, okay."</p>
 
 <p>After hanging up, he looked out the window.</p>
 
@@ -219,7 +219,7 @@ The dial tone rang, and soon Park Mi-ho’s slightly high-toned voice was heard.
 
 <p>Park Mi-ho, who had been working, raised her head and stood up from her desk with a radiant smile to welcome him.</p>
 
-<p>『Son!!!』</p>
+<p>"Son!!!"</p>
 
 <p>“Mom!”</p>
 

@@ -15,9 +15,9 @@ chapter = 212
 
 <p>With an excited expression, he said,</p>
 
-<p>「This is so cool...」</p>
+<p>"This is so cool..."</p>
 
-<p>「Little brother, we should do things like this more often... haha.」</p>
+<p>"Little brother, we should do things like this more often... haha."</p>
 
 <p>Eun-young, who had been held in Won-cheol's embrace, stood up from her spot.</p>
 
@@ -39,31 +39,31 @@ chapter = 212
 
 <p>Won-cheol looked at him and said,</p>
 
-<p>「It seems Han-pan has a lot to learn... haha.」</p>
+<p>"It seems Han-pan has a lot to learn... haha."</p>
 
-<p>「I guess so...」</p>
+<p>"I guess so..."</p>
 
 <p>Won-cheol held out his palm toward Han-pan.</p>
 
 <p>Han-pan reached out and gave him a high five.</p>
 
-<p>「That wasn't bad teamwork... hahahaha.」</p>
+<p>"That wasn't bad teamwork... hahahaha."</p>
 
-<p>「It was fun... hahahaha.」</p>
+<p>"It was fun... hahahaha."</p>
 
 <p>After the high five, Eun-young stood up and looked back and forth between the two of them.</p>
 
-<p>「Oh my, look at these two, hohoho, what is this...」</p>
+<p>"Oh my, look at these two, hohoho, what is this..."</p>
 
 <p>Han-pan looked at Eun-young.</p>
 
 <p>The cum was now dripping down her thighs.</p>
 
-<p>「Auntie, you're amazing... hehe.」</p>
+<p>"Auntie, you're amazing... hehe."</p>
 
-<p>「Oh my, Auntie? I told you to call me Noona, didn't I?」</p>
+<p>"Oh my, Auntie? I told you to call me Noona, didn't I?"</p>
 
-<p>「Ah, right... hahahaha. Okay... Eun-young-noona!」</p>
+<p>"Ah, right... hahahaha. Okay... Eun-young-noona!"</p>
 
 <p>Won-cheol approached her and scooped up a handful of the cum running down her thigh with his fingers.</p>
 
@@ -71,53 +71,53 @@ chapter = 212
 
 <p>Closing her eyes and savoring it, Eun-young said,</p>
 
-<p>「Hmm... as expected... since they're young, the taste is fresh... and I think I'm pretty incredible... I took two massive monster cocks at the same time... hoho, I wonder if Mi-ho could do it too?」</p>
+<p>"Hmm... as expected... since they're young, the taste is fresh... and I think I'm pretty incredible... I took two massive monster cocks at the same time... hoho, I wonder if Mi-ho could do it too?"</p>
 
 <p>At her words, Han-pan waved his hand and said,</p>
 
-<p>「Sharing Mom with another man... that would be a bit... too difficult, I think...」</p>
+<p>"Sharing Mom with another man... that would be a bit... too difficult, I think..."</p>
 
-<p>「Hoho, really? Well... she is quite conservative...」</p>
+<p>"Hoho, really? Well... she is quite conservative..."</p>
 
-<p>「It's partly her personality, but I also... don't have the confidence for that yet...」</p>
+<p>"It's partly her personality, but I also... don't have the confidence for that yet..."</p>
 
-<p>「Haha, right... it's fine... how about that person from yesterday? You said she's your stepmother? You're surrounded by so many beautiful women... I'm jealous, man... hahahaha,」 Won-cheol said.</p>
+<p>"Haha, right... it's fine... how about that person from yesterday? You said she's your stepmother? You're surrounded by so many beautiful women... I'm jealous, man... hahahaha," Won-cheol said.</p>
 
 <p>Han-pan shrugged his shoulders and replied,</p>
 
-<p>「Well... should I try asking her... hahahaha... if it's my stepmother, she might be able to do it... hahahaha.」</p>
+<p>"Well... should I try asking her... hahahaha... if it's my stepmother, she might be able to do it... hahahaha."</p>
 
 <p>Won-cheol tapped him on the shoulder and said,</p>
 
-<p>「Right, let's have a fun time with my mom, the four of us... hahahaha... no, should we make it five and enjoy it with So-eun too...」</p>
+<p>"Right, let's have a fun time with my mom, the four of us... hahahaha... no, should we make it five and enjoy it with So-eun too..."</p>
 
-<p>「So-eun would love that too... hohoho.」</p>
+<p>"So-eun would love that too... hohoho."</p>
 
-<p>「Wait, So-eun-noona?」</p>
+<p>"Wait, So-eun-noona?"</p>
 
 <p>Eun-young nodded.</p>
 
-<p>「Of course, she loves group play so much...」</p>
+<p>"Of course, she loves group play so much..."</p>
 
-<p>「Ha... there's a lot I don't know about my noona.」</p>
+<p>"Ha... there's a lot I don't know about my noona."</p>
 
-<p>「Oh my, you didn't know... I should have kept it a secret... sigh... I never said anything, hohoho.」</p>
+<p>"Oh my, you didn't know... I should have kept it a secret... sigh... I never said anything, hohoho."</p>
 
 <p>She laughed cheerfully.</p>
 
 <p>Han-pan smiled broadly and said,</p>
 
-<p>「Of course... I'll keep it a secret, hehe.」</p>
+<p>"Of course... I'll keep it a secret, hehe."</p>
 
 <p>Eun-young clapped her hands once and said,</p>
 
-<p>「Alright, good... then shall we clean up and go grab a meal?」</p>
+<p>"Alright, good... then shall we clean up and go grab a meal?"</p>
 
-<p>「Ah, right... I'm really hungry. As expected, the meal after sex is the most delicious.」</p>
+<p>"Ah, right... I'm really hungry. As expected, the meal after sex is the most delicious."</p>
 
-<p>「Yes, let's go eat.」</p>
+<p>"Yes, let's go eat."</p>
 
-<p>「Great, today is on me!」</p>
+<p>"Great, today is on me!"</p>
 
 <p>Won-cheol said boisterously.</p>
 
@@ -221,27 +221,27 @@ chapter = 212
 
 <p>Won-cheol's eyes widened as he ate.</p>
 
-<p>「The lady from yesterday?」</p>
+<p>"The lady from yesterday?"</p>
 
 <p>Han-pan nodded.</p>
 
-<p>「Nice... should I try talking to So-eun too...」</p>
+<p>"Nice... should I try talking to So-eun too..."</p>
 
-<p>「What is it?」</p>
+<p>"What is it?"</p>
 
 <p>Eun-young leaned in to look at Han-pan's phone.</p>
 
-<p>「Oh my...」</p>
+<p>"Oh my..."</p>
 
-<p>「How is it?」</p>
+<p>"How is it?"</p>
 
-<p>「She's pretty... but how old is she?」</p>
+<p>"She's pretty... but how old is she?"</p>
 
-<p>「I believe she's in her late 30s...」</p>
+<p>"I believe she's in her late 30s..."</p>
 
-<p>「Oh, really? She looks much younger... hmm... so she's a doctor... a lustful doctor, hohoho.」</p>
+<p>"Oh, really? She looks much younger... hmm... so she's a doctor... a lustful doctor, hohoho."</p>
 
-<p>「I guess so... hehe.」</p>
+<p>"I guess so... hehe."</p>
 
 <p>As they continued eating, a notification rang on Won-cheol's phone.</p>
 
@@ -257,27 +257,27 @@ chapter = 212
 
 <p>Seeing his expression, Won-cheol said,</p>
 
-<p>「How is it? Not bad, right?」</p>
+<p>"How is it? Not bad, right?"</p>
 
 <p>Han-pan nodded vigorously.</p>
 
-<p>「Of course... my future sister-in-law is very charming.」</p>
+<p>"Of course... my future sister-in-law is very charming."</p>
 
-<p>「Haha, right... you should hurry up and find an open-minded girlfriend too... should I introduce someone to you later?」</p>
+<p>"Haha, right... you should hurry up and find an open-minded girlfriend too... should I introduce someone to you later?"</p>
 
-<p>「Hahahaha, that would be great!」</p>
+<p>"Hahahaha, that would be great!"</p>
 
-<p>「Ooh, I'll have to set something up soon, hahahaha.」</p>
+<p>"Ooh, I'll have to set something up soon, hahahaha."</p>
 
-<p>「Ah... this Saturday, we're planning to have a pool party at my house to celebrate the end of summer... you should all come.」</p>
+<p>"Ah... this Saturday, we're planning to have a pool party at my house to celebrate the end of summer... you should all come."</p>
 
-<p>「Eh? A party?」</p>
+<p>"Eh? A party?"</p>
 
 <p>Eun-young said, looking at Han-pan.</p>
 
-<p>「Actually, So-eun mentioned it... I'll go with Won-cheol... So-eun will come too.」</p>
+<p>"Actually, So-eun mentioned it... I'll go with Won-cheol... So-eun will come too."</p>
 
-<p>「Haha, that's great...」</p>
+<p>"Haha, that's great..."</p>
 
 <p>The three of them smiled and finished the rest of their meal, then shared various stories over coffee.</p>
 

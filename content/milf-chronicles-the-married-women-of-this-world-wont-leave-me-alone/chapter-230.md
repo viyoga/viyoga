@@ -15,7 +15,7 @@ chapter = 230
 
 <p>The stimulation catching at the cock root drove Han-pan into an even deeper state of pleasure.</p>
 
-<p>「Huaaaaa...」</p>
+<p>"Huaaaaa..."</p>
 
 <p>As the entirety of his cock vanished into her mouth, Han-pan let out a heavy sigh.</p>
 
@@ -65,7 +65,7 @@ chapter = 230
 
 <p>Eun-young, who had been busy stimulating his anus, noticed this and looked at Mi-ho with a smirk.</p>
 
-<p>「Come here quickly... you two should join in as well... or else your son might get stolen away... hohoho.」</p>
+<p>"Come here quickly... you two should join in as well... or else your son might get stolen away... hohoho."</p>
 
 <p>At her words, an inexplicable jealousy rose within Mi-ho.</p>
 
@@ -78,7 +78,7 @@ chapter = 230
 <p>Mi-ho accepted his lips, and as his tongue slid out, she took it with her own; their saliva intertwined like two snakes coiling around each other.</p>
 
 <p>Eun-young watched the approaching Seo-ah while stimulating Han-pan’s anus with her finger and said, <br>
-「Seo-ah... do you want to try licking your brother’s anus? It’s so fragrant...」</p>
+"Seo-ah... do you want to try licking your brother’s anus? It’s so fragrant..."</p>
 
 <p>As Seo-ah continued to hesitate, Eun-young snatched her hand and pulled her close.</p>
 
@@ -104,7 +104,7 @@ chapter = 230
 
 <p>Then, she whispered into her ear.</p>
 
-<p>「I’ve wanted to do something like this with you for a long time... today is the day... welcome to the true world of pleasure...」</p>
+<p>"I’ve wanted to do something like this with you for a long time... today is the day... welcome to the true world of pleasure..."</p>
 
 <p>Eun-young licked Seo-ah’s ear with her tongue and slowly stimulated the nape of her neck.</p>
 
@@ -116,7 +116,7 @@ chapter = 230
 
 <p>He let out moans as he kissed Mi-ho even more intensely.</p>
 
-<p>「Hreum.. eum... eum...」</p>
+<p>"Hreum.. eum... eum..."</p>
 
 <p>Amidst the mixing of their tongues, the sound of her son’s moaning was a massive stimulant for Mi-ho.</p>
 
@@ -142,7 +142,7 @@ chapter = 230
 
 <p>He threw his head back toward the ceiling and shouted.</p>
 
-<p>「Ah, I'm cumming, I'm cumming... Ah... Fuck, it feels so fucking good!! Aaaaaaaaah!!」</p>
+<p>"Ah, I'm cumming, I'm cumming... Ah... Fuck, it feels so fucking good!! Aaaaaaaaah!!"</p>
 
 <p>A scream like a death rattle escaped Han-pan’s lips.</p>
 
@@ -189,19 +189,19 @@ chapter = 230
 <p>Eun-young and Seo-ah stood up and watched the two women frantically sucking each other’s tongues and lips. <br>
 Eun-young smiled, while Seo-ah had a shocked expression with her mouth agape.</p>
 
-<p>「I guess you’re not adjusted to this yet...」 Eun-young said, looking at Seo-ah.</p>
+<p>"I guess you’re not adjusted to this yet..." Eun-young said, looking at Seo-ah.</p>
 
-<p>「...」</p>
+<p>"..."</p>
 
 <p>Seo-ah looked at Eun-young before turning her head to look at Mi-ho. <br>
 Mi-ho was wearing a slow smile.</p>
 
-<p>「Shall we enjoy ourselves a bit more... Han-pan, second round?」</p>
+<p>"Shall we enjoy ourselves a bit more... Han-pan, second round?"</p>
 
 <p>Han-pan nodded and rubbed his cock with his hand. <br>
-「Of course.」</p>
+"Of course."</p>
 
-<p>「As expected of someone young, your recovery is amazing...」</p>
+<p>"As expected of someone young, your recovery is amazing..."</p>
 
 <p>Eun-young took Seo-ah and Mi-ho’s hands and led them to the sofa.</p>
 
@@ -229,13 +229,13 @@ Mi-ho was wearing a slow smile.</p>
 
 <p>Eun-young and Mi-ho, who were frantically kissing beside them, shifted their gaze to Han-pan. <br>
 Eun-young lowered Mi-ho’s body and said, <br>
-「Now... suck your son’s cock... I’ve wanted to see how your family shares love for a long time...」</p>
+"Now... suck your son’s cock... I’ve wanted to see how your family shares love for a long time..."</p>
 
 <p>At her words, Mi-ho smirked and leaned down, saying, <br>
-「You bitch... you really are unstoppable... you’re truly so lewd...」</p>
+"You bitch... you really are unstoppable... you’re truly so lewd..."</p>
 
 <p>Eun-young rubbed her own Jade Gate with her hand and replied, <br>
-「Fuck... I know... sometimes I can’t even control myself...」</p>
+"Fuck... I know... sometimes I can’t even control myself..."</p>
 
 <p>Seo-ah offered the cock toward Mi-ho. <br>
 Mi-ho knelt down and placed both arms on Han-pan’s spread thighs. <br>

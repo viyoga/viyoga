@@ -47,31 +47,31 @@ chapter = 219
 
 <p>She looked at him with her characteristically clear, bright eyes and spoke.</p>
 
-<p>「Han-pan, where are you sneaking off to?」</p>
+<p>"Han-pan, where are you sneaking off to?"</p>
 
 <p>He replied with a sheepish expression.</p>
 
-<p>「Ah... I was thinking of having a cigarette...」</p>
+<p>"Ah... I was thinking of having a cigarette..."</p>
 
 <p>She frowned slightly and said,</p>
 
-<p>「Oh my, you smoke too?」</p>
+<p>"Oh my, you smoke too?"</p>
 
 <p>He put on an awkward face.</p>
 
-<p>「Seonsaengnim, I am a full-grown adult now.」</p>
+<p>"Seonsaengnim, I am a full-grown adult now."</p>
 
 <p>With a smirk, he continued walking.</p>
 
 <p>Releasing her grip on his arm, Oh Jeong-ah-nim walked side-by-side with him.</p>
 
-<p>「In my eyes, you still look like a high schooler.」</p>
+<p>"In my eyes, you still look like a high schooler."</p>
 
 <p>He let out a short laugh.</p>
 
-<p>「No way... Why did you come out, Seonsaengnim?」</p>
+<p>"No way... Why did you come out, Seonsaengnim?"</p>
 
-<p>「Well... I had a drink, and I suppose I wanted to breathe in some night air?」</p>
+<p>"Well... I had a drink, and I suppose I wanted to breathe in some night air?"</p>
 
 <p>Han-pan smirked as he looked at her.</p>
 
@@ -79,23 +79,23 @@ chapter = 219
 
 <p>Feeling a sense of curiosity at his transformed aura, she looked at him intently and said,</p>
 
-<p>「True, your gaze is certainly unusual... Have you been well? I heard it hasn't been long since you were discharged from the army. You look like you've returned healthy...」</p>
+<p>"True, your gaze is certainly unusual... Have you been well? I heard it hasn't been long since you were discharged from the army. You look like you've returned healthy..."</p>
 
 <p>He nodded.</p>
 
-<p>「Of course. How have you been, Seonsaengnim? You seem to have become even more beautiful.」</p>
+<p>"Of course. How have you been, Seonsaengnim? You seem to have become even more beautiful."</p>
 
-<p>「Hmm... Me? I've been busy...」</p>
+<p>"Hmm... Me? I've been busy..."</p>
 
 <p>Arriving at the convenience store, he stepped inside and purchased cigarettes and a lighter.</p>
 
 <p>Coming back out, he pulled one out and looked at Oh Jeong-ah-nim.</p>
 
-<p>「It's okay if I smoke one, right?」</p>
+<p>"It's okay if I smoke one, right?"</p>
 
-<p>「Didn't you say you're an adult? Do as you please... As long as you can take responsibility for your actions, isn't everything up to you now?」</p>
+<p>"Didn't you say you're an adult? Do as you please... As long as you can take responsibility for your actions, isn't everything up to you now?"</p>
 
-<p>「Haha, I suppose so...」</p>
+<p>"Haha, I suppose so..."</p>
 
 <p>He lit the cigarette.</p>
 
@@ -107,79 +107,79 @@ chapter = 219
 
 <p>Immediately, she began to cough violently.</p>
 
-<p>「Kollok-kollok... Oh dear, I don't know why people smoke this stuff... Kollok-kollok.」</p>
+<p>"Kollok-kollok... Oh dear, I don't know why people smoke this stuff... Kollok-kollok."</p>
 
 <p>Han-pan stroked her back and asked,</p>
 
-<p>「Are you okay?」</p>
+<p>"Are you okay?"</p>
 
 <p>She held out her hand and said,</p>
 
-<p>「I'm fine...」</p>
+<p>"I'm fine..."</p>
 
 <p>Han-pan took the cigarette back from her hand and put it to his lips.</p>
 
-<p>「It feels strange smoking in front of you, Seonsaengnim... He-he.」</p>
+<p>"It feels strange smoking in front of you, Seonsaengnim... He-he."</p>
 
 <p>After catching her breath, she looked at him and said,</p>
 
-<p>「It does... You were so innocent back in school, but now you have this... mister? That kind of vibe.」</p>
+<p>"It does... You were so innocent back in school, but now you have this... mister? That kind of vibe."</p>
 
 <p>Han-pan laughed loudly.</p>
 
-<p>「Hahaha, is that so? But I think you've changed a bit too, Seonsaengnim. It's been three years since graduation, and something feels different.」</p>
+<p>"Hahaha, is that so? But I think you've changed a bit too, Seonsaengnim. It's been three years since graduation, and something feels different."</p>
 
 <p>Oh Jeong-ah-nim smiled thinly and asked,</p>
 
-<p>「Does it look that way?」</p>
+<p>"Does it look that way?"</p>
 
-<p>「Of course.」</p>
+<p>"Of course."</p>
 
-<p>「What looks different?」</p>
+<p>"What looks different?"</p>
 
-<p>「Well...」</p>
+<p>"Well..."</p>
 
 <p>Han-pan's eyes quickly swept over her body.</p>
 
 <p>She was wearing a shirt one size too large and a long skirt, but she had the frame of someone who exercised.</p>
 
-<p>「Hmm... Your figure seems to have changed a lot...」</p>
+<p>"Hmm... Your figure seems to have changed a lot..."</p>
 
 <p>Oh Jeong-ah-nim gave a soft, playful laugh.</p>
 
-<p>「You have a sharp eye.」</p>
+<p>"You have a sharp eye."</p>
 
-<p>「He-he-he, I think the volume of your figure has improved.」</p>
+<p>"He-he-he, I think the volume of your figure has improved."</p>
 
 <p>Oh Jeong-ah-nim narrowed her eyes and said,</p>
 
-<p>「Oh my, Han-pan, you really do have a sharp eye... Even though I'm wearing these baggy clothes, you picked up on it... But do I really look that way?」</p>
+<p>"Oh my, Han-pan, you really do have a sharp eye... Even though I'm wearing these baggy clothes, you picked up on it... But do I really look that way?"</p>
 
-<p>「Of course. You have a great body. Don't keep it all wrapped up; show it off a bit. Hahaha.」</p>
+<p>"Of course. You have a great body. Don't keep it all wrapped up; show it off a bit. Hahaha."</p>
 
 <p>Oh Jeong-ah-nim's face flushed slightly.</p>
 
-<p>「Oh my, listen to you... You have to be careful with your words at school. Ho-ho-ho.」</p>
+<p>"Oh my, listen to you... You have to be careful with your words at school. Ho-ho-ho."</p>
 
-<p>「Oh, then... can I expect to see that improved figure next time we meet?」</p>
+<p>"Oh, then... can I expect to see that improved figure next time we meet?"</p>
 
-<p>「Well... You certainly have good instincts.」</p>
+<p>"Well... You certainly have good instincts."</p>
 
 <p>Oh Jeong-ah-nim trailed off, looking at him.</p>
 
-<p>「Hmm... I guess my instincts are sharp because I have a lot of women around me...」</p>
+<p>"Hmm... I guess my instincts are sharp because I have a lot of women around me..."</p>
 
-<p>「Oh my, women? Do you have a girlfriend?」</p>
+<p>"Oh my, women? Do you have a girlfriend?"</p>
 
 <p>Han-pan hesitated before speaking.</p>
 
-<p>「Eh... I could say I do, and I could say I don't...」</p>
+<p>"Eh... I could say I do, and I could say I don't..."</p>
 
-<p>「Hmm, that means there's no permanently confirmed woman.」</p>
+<p>"Hmm, that means there's no permanently confirmed woman."</p>
 
-<p>「You're quick on the uptake too, Seonsaengnim. What about you?」</p>
+<p>"You're quick on the uptake too, Seonsaengnim. What about you?"</p>
 
-<p>「Hmm... I'm getting married soon.」</p>
+<p>"Hmm... I'm getting married soon."</p>
 
 <p>Han-pan was taken aback.</p>
 
@@ -187,25 +187,25 @@ chapter = 219
 
 <p>He gave a thin smile.</p>
 
-<p>「Ah... I see... Congratulations.」</p>
+<p>"Ah... I see... Congratulations."</p>
 
-<p>「Thank you...」</p>
+<p>"Thank you..."</p>
 
 <p>Han-pan stared at her for a moment before speaking.</p>
 
-<p>「Seonsaengnim, why don't the two of us grab a drink sometime?」</p>
+<p>"Seonsaengnim, why don't the two of us grab a drink sometime?"</p>
 
-<p>「A drink, just the two of us?」</p>
+<p>"A drink, just the two of us?"</p>
 
-<p>「Yes.」</p>
+<p>"Yes."</p>
 
-<p>「Hmm...」</p>
+<p>"Hmm..."</p>
 
 <p>After a brief pause, she asked,</p>
 
-<p>「Are you hitting on me?」</p>
+<p>"Are you hitting on me?"</p>
 
-<p>「Hahaha, is that what it is? It's just an invitation for a drink, does it have to mean much... Once you experience it, I'm sure you'll enjoy it, Seonsaengnim.」</p>
+<p>"Hahaha, is that what it is? It's just an invitation for a drink, does it have to mean much... Once you experience it, I'm sure you'll enjoy it, Seonsaengnim."</p>
 
 <p>Oh Jeong-ah-nim stared at him blankly for a long time.</p>
 
@@ -221,37 +221,37 @@ chapter = 219
 
 <p>Watching her struggle with the decision, Han-pan held out his phone.</p>
 
-<p>「Give me your number.」</p>
+<p>"Give me your number."</p>
 
 <p>After a moment of conflict, Oh Jeong-ah-nim typed her number into his phone.</p>
 
 <p>Han-pan saved the number under her name and said,</p>
 
-<p>「I'll be in touch.」</p>
+<p>"I'll be in touch."</p>
 
-<p>「Okay...」</p>
+<p>"Okay..."</p>
 
-<p>「Shall we head back?」</p>
+<p>"Shall we head back?"</p>
 
-<p>「Uu-ung...」</p>
+<p>"Uu-ung..."</p>
 
 <p>Oh Jeong-ah-nim was confused by his sudden advance, but at the same time, she felt aroused.</p>
 
 <p>She followed behind him as they walked back to where the reunion was being held.</p>
 
-<p>「We're going to head out now. You guys have a good time.」</p>
+<p>"We're going to head out now. You guys have a good time."</p>
 
 <p>Lee Ae-yeon-nim stood up and gave a look to Oh Jeong-ah-nim.</p>
 
 <p>Oh Jeong-ah-nim stood up with a smile.</p>
 
-<p>「Yeah, we'll head out first. You guys enjoy yourselves.」</p>
+<p>"Yeah, we'll head out first. You guys enjoy yourselves."</p>
 
-<p>「Teacher-nim! You're leaving already?!」</p>
+<p>"Teacher-nim! You're leaving already?!"</p>
 
-<p>「Come with us for the second round!!」</p>
+<p>"Come with us for the second round!!"</p>
 
-<p>「Ho-ho-ho, us teachers need to get some rest... We're not like you guys... I'll settle the bill for this, so have fun~!」</p>
+<p>"Ho-ho-ho, us teachers need to get some rest... We're not like you guys... I'll settle the bill for this, so have fun~!"</p>
 
 <p>Disappointed voices rose from all around.</p>
 
@@ -259,7 +259,7 @@ chapter = 219
 
 <p>Watching them leave, Han-pan also stood up and whispered quietly into Hyeon-dong's ear.</p>
 
-<p>「I'm going to head out early too... My family wants me home soon... I'll leave without telling the others so I don't ruin the mood.」</p>
+<p>"I'm going to head out early too... My family wants me home soon... I'll leave without telling the others so I don't ruin the mood."</p>
 
 <p>Han-pan made up an excuse.</p>
 
@@ -271,31 +271,31 @@ chapter = 219
 
 <p>There, Lee Ae-yeon-nim and Oh Jeong-ah-nim were standing side-by-side, talking.</p>
 
-<p>「Are you two heading home?」</p>
+<p>"Are you two heading home?"</p>
 
 <p>The two turned their heads to look at Han-pan.</p>
 
-<p>「Are you going home too?」</p>
+<p>"Are you going home too?"</p>
 
 <p>Oh Jeong-ah-nim asked.</p>
 
 <p>Han-pan nodded.</p>
 
-<p>「They told me to come home early. He-he.」</p>
+<p>"They told me to come home early. He-he."</p>
 
 <p>He stole a glance at Lee Ae-yeon-nim.</p>
 
 <p>She was wearing a mysterious smile.</p>
 
-<p>「Oh, really?」</p>
+<p>"Oh, really?"</p>
 
-<p>「Oh Seonsaengnim's boyfriend is coming to pick her up.」</p>
+<p>"Oh Seonsaengnim's boyfriend is coming to pick her up."</p>
 
 <p>Han-pan acted surprised.</p>
 
-<p>「Oh, really?」</p>
+<p>"Oh, really?"</p>
 
-<p>「Yeah, he's almost here.」</p>
+<p>"Yeah, he's almost here."</p>
 
 <p>Just as she said, a moment later, a sedan pulled up.</p>
 
@@ -319,6 +319,6 @@ chapter = 219
 
 <p>Lee Ae-yeon-nim scanned the surroundings before leaning in to whisper in his ear.</p>
 
-<p>「There's a hotel about ten minutes from here by car. Meet me there... You leave about ten minutes after I do.」</p>
+<p>"There's a hotel about ten minutes from here by car. Meet me there... You leave about ten minutes after I do."</p>
 
 <p>Finishing her short instruction, she ordered a taxi through an app.</p>

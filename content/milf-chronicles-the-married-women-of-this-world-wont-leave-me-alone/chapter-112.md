@@ -27,7 +27,7 @@ chapter = 112
 
 <p>So-jo glanced at her conflicted eyes and spoke again.</p>
 
-<p>「I told you, Mom, come here too...」</p>
+<p>"I told you, Mom, come here too..."</p>
 
 <p>Her words, delivered with a smile like a demon's, were an incredibly intense seduction.</p>
 
@@ -63,17 +63,17 @@ chapter = 112
 
 <p>Seo-ah watched them with wide eyes, and that was when So-jo whispered into her ear.</p>
 
-<p>「Mom was hesitant at first too, but she’s become quite skilled before I knew it... Han-pan-i really is amazing... You’ll get used to it soon too, eonni...」</p>
+<p>"Mom was hesitant at first too, but she’s become quite skilled before I knew it... Han-pan-i really is amazing... You’ll get used to it soon too, eonni..."</p>
 
 <p>As she said that, she sucked on Seo-ah’s earlobe.</p>
 
 <p>Startled by So-jo licking her earlobe with her tongue, Seo-ah turned her head to look at her.</p>
 
-<p>「So-jo-ya...」</p>
+<p>"So-jo-ya..."</p>
 
 <p>So-jo spoke with a sly smile.</p>
 
-<p>「Eonni... are you interested in lesbians? I’m... bisexual... I’ve wanted to do something like this with you for a long time...」</p>
+<p>"Eonni... are you interested in lesbians? I’m... bisexual... I’ve wanted to do something like this with you for a long time..."</p>
 
 <p>As she said that, she suddenly pressed her lips against Seo-ah’s.</p>
 
@@ -97,19 +97,19 @@ chapter = 112
 
 <p>Seeing Seo-ah resisting, he spoke to Mi-ho.</p>
 
-<p>「Mom... help So-jo eonni...」</p>
+<p>"Mom... help So-jo eonni..."</p>
 
 <p>Mi-ho understood his meaning immediately, but she didn't have the courage to step forward readily.</p>
 
 <p>Han-pan spoke while stroking his cock with his hand.</p>
 
-<p>「I want to have sex with Seo-ah eonni...」</p>
+<p>"I want to have sex with Seo-ah eonni..."</p>
 
 <p>Mi-ho’s eyes widened at his sudden declaration.</p>
 
-<p>「With Seo-ah?」</p>
+<p>"With Seo-ah?"</p>
 
-<p>「Of course... we’re family... we should all share everything now... we are a destiny community from now on...」</p>
+<p>"Of course... we’re family... we should all share everything now... we are a destiny community from now on..."</p>
 
 <p>After saying that, he took a step back and approached his two sisters.</p>
 
@@ -165,7 +165,7 @@ chapter = 112
 
 <p>She whispered softly.</p>
 
-<p>「Eonni, you’re so clean... I like it...」</p>
+<p>"Eonni, you’re so clean... I like it..."</p>
 
 <p>Saying that, she slowly moved down and spread Seo-ah’s legs. Seo-ah tried to tense her thighs, guessing what she was about to do, but as soon as Mi-ho’s touch reached her breasts, she felt the strength drain from her body.</p>
 

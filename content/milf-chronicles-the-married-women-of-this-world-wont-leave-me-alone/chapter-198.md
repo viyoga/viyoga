@@ -66,15 +66,15 @@ Inside the room, where the sleeping lamp beside the bed was turned on, a flicker
 
 <p>Han-pan looked down at her and said,</p>
 
-<p>「Ah... Mom... it feels so good... Ah... Ah...」</p>
+<p>"Ah... Mom... it feels so good... Ah... Ah..."</p>
 
 <p>Mi-ho, who had been enjoying his penis thrusting with her eyes closed, spoke.</p>
 
-<p>「Haa... Son... Mom loves it so much too... Haa... Haa... Ah... Yes, just like that... Ah... Ah...」</p>
+<p>"Haa... Son... Mom loves it so much too... Haa... Haa... Ah... Yes, just like that... Ah... Ah..."</p>
 
-<p>「Here? Ah... Ah... But how much do you like it?... Ah...」</p>
+<p>"Here? Ah... Ah... But how much do you like it?... Ah..."</p>
 
-<p>「I don't know... I can't explain it... Ah... Ah... Harder there... Ah... Ah... Yes... Ah...」</p>
+<p>"I don't know... I can't explain it... Ah... Ah... Harder there... Ah... Ah... Yes... Ah..."</p>
 
 <p>As he continued thrusting, Han-pan’s body grew hotter, and heat radiated from his entire form.</p>
 
@@ -104,27 +104,27 @@ Inside the room, where the sleeping lamp beside the bed was turned on, a flicker
 
 <p>He took a firm stance and pushed his cock in with all his might.</p>
 
-<p>「Aat!」</p>
+<p>"Aat!"</p>
 
 <p>Han-pan smirked at her immediate reaction.</p>
 
-<p>「How is it? Mom?」</p>
+<p>"How is it? Mom?"</p>
 
 <p>Han-pan pulled his cock out slowly and then thrust it back in rapidly.</p>
 
-<p>「Hahak!!」</p>
+<p>"Hahak!!"</p>
 
-<p>「Your son's cock feels good, doesn't it?!」</p>
+<p>"Your son's cock feels good, doesn't it?!"</p>
 
 <p>Han-pan pulled out again and then pushed in powerfully.</p>
 
 <p>Mi-ho’s body surged again as she poured out a loud moan.</p>
 
-<p>「How does it feel to eat your son's cock? Is it good? Haa!!」</p>
+<p>"How does it feel to eat your son's cock? Is it good? Haa!!"</p>
 
 <p>Mi-ho looked at him and said,</p>
 
-<p>「Do you even have to ask... Haa... It's so fucking good... You're my son... You have to do at least this much for Mom to be satisfied... Ah...」</p>
+<p>"Do you even have to ask... Haa... It's so fucking good... You're my son... You have to do at least this much for Mom to be satisfied... Ah..."</p>
 
 <p>Han-pan smirked and moved his waist faster and faster.</p>
 
@@ -140,27 +140,27 @@ Inside the room, where the sleeping lamp beside the bed was turned on, a flicker
 
 <p>With the rapid movement, Han-pan’s breath grew increasingly ragged.</p>
 
-<p>「Huck, huck... Fuck... huck, huck... Fuck... Is it good?! Is it good?! Huck, huck!! Do you like your son's cock?! You fucking bitch, huck, huck!!?!! Ah! Fuck, it's so delicious!!」</p>
+<p>"Huck, huck... Fuck... huck, huck... Fuck... Is it good?! Is it good?! Huck, huck!! Do you like your son's cock?! You fucking bitch, huck, huck!!?!! Ah! Fuck, it's so delicious!!"</p>
 
 <p>With eyes full of sexual aura, Mi-ho said,</p>
 
-<p>「Haa... haa... Yes, it's good! You fucking bastard! Haa... haa... Thrust, thrust harder! Try to tear my pussy apart! Tear your mom's pussy apart! You fucking bastard! Aaaaah!!!」</p>
+<p>"Haa... haa... Yes, it's good! You fucking bastard! Haa... haa... Thrust, thrust harder! Try to tear my pussy apart! Tear your mom's pussy apart! You fucking bastard! Aaaaah!!!"</p>
 
 <p>At her cursing, Han-pan pushed his speed even higher.</p>
 
 <p>The muscles of his entire body writhed, and his penis thrusting became even more intense.</p>
 
-<p>「Yeah, you fucking mother-bitch! I'll fuck you hard! I'll give you a whole load of cum!! You cunt, begging for your son's cock!!」</p>
+<p>"Yeah, you fucking mother-bitch! I'll fuck you hard! I'll give you a whole load of cum!! You cunt, begging for your son's cock!!"</p>
 
 <p>His violent body thrust into her as if violating her, and Mi-ho reacted strongly in response.</p>
 
 <p>A pleasure that felt like it would tear her apart struck her entire body at full speed, from the top of her head to the tips of her toes.</p>
 
-<p>「Yes, cum for me!!! Give me your son-cum!! Ah!! Ah!!! Cum!!! Son's cum!!! Pour it inside Mom's womb!!! Aaaah!!! Fill Mom's body with your son-cum!!! Aaaah!! I'm going!!! Mom's going!!! Aaaaaaaaaaaack!!!!」</p>
+<p>"Yes, cum for me!!! Give me your son-cum!! Ah!! Ah!!! Cum!!! Son's cum!!! Pour it inside Mom's womb!!! Aaaah!!! Fill Mom's body with your son-cum!!! Aaaah!! I'm going!!! Mom's going!!! Aaaaaaaaaaaack!!!!"</p>
 
 <p>Mi-ho let out a moan mixed with a scream as she reached the climax of sex, the orgasm.</p>
 
-<p>「Uuuuuugh.... Son... Ah... Mom... Mom... is going...」</p>
+<p>"Uuuuuugh.... Son... Ah... Mom... Mom... is going..."</p>
 
 <p>She spoke as she tilted her head back as far as it would go while lying down.</p>
 
@@ -176,7 +176,7 @@ Inside the room, where the sleeping lamp beside the bed was turned on, a flicker
 
 <p>Mi-ho, whose trembling had been subsiding, reacted again, her waist arching toward the ceiling.</p>
 
-<p>「Uuuugh!!」</p>
+<p>"Uuuugh!!"</p>
 
 <p>The orgasm that had been dissipating flowed through every corner of her body once more like a wave from the new stimulation.</p>
 
@@ -188,31 +188,31 @@ Inside the room, where the sleeping lamp beside the bed was turned on, a flicker
 
 <p>Mi-ho opened her eyes at his touch and said,</p>
 
-<p>「Huu... Ah, that was no joke...」</p>
+<p>"Huu... Ah, that was no joke..."</p>
 
-<p>「Was it good?」</p>
+<p>"Was it good?"</p>
 
-<p>「Do you even have to ask... My son is working so hard today...」</p>
+<p>"Do you even have to ask... My son is working so hard today..."</p>
 
-<p>「Hehe... Anytime... If it's service for Mom, it's always welcome...」</p>
+<p>"Hehe... Anytime... If it's service for Mom, it's always welcome..."</p>
 
 <p>Mi-ho smiled and lifted her head to look at his cock.</p>
 
 <p>The cock, still in a state of full erection, stood stiffly toward her, nodding with his breath and moving like a living creature.</p>
 
-<p>「It seems my son isn't finished yet...」</p>
+<p>"It seems my son isn't finished yet..."</p>
 
 <p>Han-pan nodded.</p>
 
-<p>「I guess not... One more time?」</p>
+<p>"I guess not... One more time?"</p>
 
-<p>「I'd love to... I don't know how many times I've gone today... Because of my son, it feels like Mom is finally finishing all the homework she's piled up...」</p>
+<p>"I'd love to... I don't know how many times I've gone today... Because of my son, it feels like Mom is finally finishing all the homework she's piled up..."</p>
 
 <p>Mi-ho smiled at him, got up from the bed, and walked toward the wall.</p>
 
 <p>She placed both hands against the wall, stuck her buttocks out, and looked back at him.</p>
 
-<p>「Mom is ready.」</p>
+<p>"Mom is ready."</p>
 
 <p>Her buttocks, rounded like a full moon and lifted high by the high heels, and the hole glistening with her Love Juice located between them, stimulated his gaze.</p>
 
@@ -224,11 +224,11 @@ Inside the room, where the sleeping lamp beside the bed was turned on, a flicker
 
 <p>With an ecstatic expression, he stood up, walked toward her while shaking his cock, took his position, and slid his cock inside.</p>
 
-<p>「Mmm... My son is going to make Mom go again, right?」</p>
+<p>"Mmm... My son is going to make Mom go again, right?"</p>
 
 <p>The burning heat of her body was transmitted through his entire cock.</p>
 
-<p>「Of course... I'll cum inside this time too.」</p>
+<p>"Of course... I'll cum inside this time too."</p>
 
 <p>Mi-ho smiled at him.</p>
 

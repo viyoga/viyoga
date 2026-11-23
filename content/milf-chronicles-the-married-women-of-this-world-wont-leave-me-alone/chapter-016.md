@@ -13,16 +13,16 @@ chapter = 16
 
 <p>Only the sound of their breathing filled the room until Mi-ho broke the silence with a soft laugh.</p>
 
-<p>「Ha... Son... You’re really something...」</p>
+<p>"Ha... Son... You’re really something..."</p>
 
 <p>Han-pan replied with a faint smile. <br>
-「Mom... weren't you just as pent-up all this time?」</p>
+"Mom... weren't you just as pent-up all this time?"</p>
 
 <p>At those words, she playfully slapped his chest. <br>
-「Look who's talking.」</p>
+"Look who's talking."</p>
 
 <p>Han-pan teased her back. <br>
-「Well, whose son am I... hehe.」</p>
+"Well, whose son am I... hehe."</p>
 
 <p>She laughed at his remark and slowly stood up.</p>
 
@@ -44,8 +44,8 @@ chapter = 16
 
 <p>She thought that no woman would be able to resist his appearance.</p>
 
-<p>「Take off your pants... Mom needs to wash them. It would be embarrassing if someone found out...」 <br>
-「Okay...」</p>
+<p>"Take off your pants... Mom needs to wash them. It would be embarrassing if someone found out..." <br>
+"Okay..."</p>
 
 <p>Han-pan stood up from the bed and handed her the discarded pants.</p>
 
@@ -55,10 +55,10 @@ chapter = 16
 
 <p>She had no idea how she would handle the consequences later, but right now, that didn't seem important.</p>
 
-<p>「Mom, you’re really sexy...」</p>
+<p>"Mom, you’re really sexy..."</p>
 
 <p>At his words, Mi-ho turned her head to look at him. <br>
-「Really? Well, if I can even seduce my own son, I suppose other men wouldn't stand a chance.」</p>
+"Really? Well, if I can even seduce my own son, I suppose other men wouldn't stand a chance."</p>
 
 <p>She glanced at the clock and saw it was already heading toward midnight.</p>
 
@@ -70,8 +70,8 @@ chapter = 16
 
 <p>Now barefoot, she headed toward the door and spoke to Han-pan.</p>
 
-<p>「I'll leave the cleanup to you... Be careful not to let So-jo catch on... Let's talk about today again tomorrow. We have a lot to discuss.」 <br>
-「Okay, Mom...」</p>
+<p>"I'll leave the cleanup to you... Be careful not to let So-jo catch on... Let's talk about today again tomorrow. We have a lot to discuss." <br>
+"Okay, Mom..."</p>
 
 <p>Han-pan nodded, and Mi-ho gave him a smile before slipping out of his room as cautiously as a sinner.</p>
 
@@ -89,9 +89,9 @@ chapter = 16
 
 <p>He greeted her cheerfully.</p>
 
-<p>「Mom, good morning!」</p>
+<p>"Mom, good morning!"</p>
 
-<p>「Oh, right. Son... good morning.」</p>
+<p>"Oh, right. Son... good morning."</p>
 
 <p>Unlike Han-pan’s bright tone, Mi-ho replied quietly with an awkward smile.</p>
 
@@ -118,37 +118,37 @@ As breakfast ended, Mi-ho told Han-pan and So-jo that she would be late that eve
 <p>The daylight hours passed idly. In the evening, after eating dinner with So-jo who had returned from work, Han-pan sat in the living room staring blankly at the TV, ruminating on everything that had happened from last night to this morning. <br>
 After a few hours, when it was nearly 10 PM, his phone rang with an unknown number.</p>
 
-<p>「Hello?」</p>
+<p>"Hello?"</p>
 
-<p>「Oh, is this Han-pan?」</p>
+<p>"Oh, is this Han-pan?"</p>
 
 <p>It was an unfamiliar but quite friendly female voice.</p>
 
-<p>「Han-pan! It really is you!! Hohoho, it’s been so long!」</p>
+<p>"Han-pan! It really is you!! Hohoho, it’s been so long!"</p>
 
-<p>「Ah... yes... excuse me, but who is this?」</p>
+<p>"Ah... yes... excuse me, but who is this?"</p>
 
-<p>「Oh my, look at me! I'm your mom's friend, Eun-young! Do you remember me?」</p>
+<p>"Oh my, look at me! I'm your mom's friend, Eun-young! Do you remember me?"</p>
 
 <p>Han-pan recalled a woman among his mother's close friends who always dressed very flashily. <br>
-「Of course. Hello, Eun-young-ajumma.」 <br>
-「Oh my, 'ajumma'? That’s too much... you should call me Older Sister, hohoho.」</p>
+"Of course. Hello, Eun-young-ajumma." <br>
+"Oh my, 'ajumma'? That’s too much... you should call me Older Sister, hohoho."</p>
 
 <p>She sounded drunk, and her voice was quite scattered as she spoke.</p>
 
-<p>「Oh, look at my mind! It's nothing else, but your mom is passed out here, so you need to come pick her up...」</p>
+<p>"Oh, look at my mind! It's nothing else, but your mom is passed out here, so you need to come pick her up..."</p>
 
-<p>「What? Mom?」</p>
+<p>"What? Mom?"</p>
 
-<p>「Your mom is drunk and sleeping here. Come get her, hohoho.」</p>
+<p>"Your mom is drunk and sleeping here. Come get her, hohoho."</p>
 
-<p>「Ah, yes... where are you?」</p>
+<p>"Ah, yes... where are you?"</p>
 
-<p>「Right, you know where my shop is, don't you?」</p>
+<p>"Right, you know where my shop is, don't you?"</p>
 
 <p>Han-pan remembered a luxury boutique near Dosan Park that his mother used to visit often before he went to the army. <br>
-「Ah... I remember...」 <br>
-「Good, good... just come there. I'll be waiting!」</p>
+"Ah... I remember..." <br>
+"Good, good... just come there. I'll be waiting!"</p>
 
 <p>With that, she hung up the phone.</p>
 
@@ -160,7 +160,7 @@ After a few hours, when it was nearly 10 PM, his phone rang with an unknown numb
 
 <p>Seeing that the door was locked, Han-pan called Eun-young.</p>
 
-<p>「Are you here? I'll be right down.」</p>
+<p>"Are you here? I'll be right down."</p>
 
 <p>Eun-young hung up immediately.</p>
 
@@ -168,7 +168,7 @@ After a few hours, when it was nearly 10 PM, his phone rang with an unknown numb
 
 <p>Recognizing his face, she welcomed him warmly.</p>
 
-<p>「Han-pan? It’s been so long... how many years has it been?」</p>
+<p>"Han-pan? It’s been so long... how many years has it been?"</p>
 
 <p>Seeing her for the first time in a long while, Han-pan gave her a polite greeting.</p>
 
@@ -178,18 +178,18 @@ After a few hours, when it was nearly 10 PM, his phone rang with an unknown numb
 
 <p>She seemed to have had quite a lot to drink.</p>
 
-<p>「Our Han-pan, it’s been so long! How have you been? It must have been hard in the army, right?」 <br>
-「Ah, yes... haha...」</p>
+<p>"Our Han-pan, it’s been so long! How have you been? It must have been hard in the army, right?" <br>
+"Ah, yes... haha..."</p>
 
 <p>Eun-young released him from the hug as he let out an awkward laugh.</p>
 
-<p>「Hmm, let me look at our Han-pan... Oh... your body has gotten much better than before? You smell like a man now.」</p>
+<p>"Hmm, let me look at our Han-pan... Oh... your body has gotten much better than before? You smell like a man now."</p>
 
 <p>Han-pan felt shy at her praise.</p>
 
-<p>「Ah, yes... thank you, haha.」</p>
+<p>"Ah, yes... thank you, haha."</p>
 
-<p>「Let's go up! Your mom is sleeping like she's dead right now.」</p>
+<p>"Let's go up! Your mom is sleeping like she's dead right now."</p>
 
 <p>She led him inside.</p>
 
@@ -209,9 +209,9 @@ After a few hours, when it was nearly 10 PM, his phone rang with an unknown numb
 
 <p>He had heard from Mi-ho before that he had been discharged from the Marines and was now receiving management training at his father's company.</p>
 
-<p>「How is Won-cheol-hyung doing?」 <br>
+<p>"How is Won-cheol-hyung doing?" <br>
 At Han-pan’s question, she laughed. <br>
-「Won-cheol? Oh, he's doing great! You two should meet up for a meal sometime, hohoho.」</p>
+"Won-cheol? Oh, he's doing great! You two should meet up for a meal sometime, hohoho."</p>
 
 <p>Being quite drunk, she laughed a lot.</p>
 

@@ -11,47 +11,47 @@ chapter = 189
 
 <p>As soon as he pressed the call button, a bright and cheerful voice rang out.</p>
 
-<p>「Yo, bro! I heard you got discharged?」</p>
+<p>"Yo, bro! I heard you got discharged?"</p>
 
 <p>It was the voice of his high school friend, Lee Hyeon-dong.</p>
 
 <p>They had been classmates in high school, and Hyeon-dong had returned to society after being discharged before Han-pan.</p>
 
-<p>「It’s been a little over fifteen days now… How are you adjusting, bro?」</p>
+<p>"It’s been a little over fifteen days now… How are you adjusting, bro?"</p>
 
-<p>「Yooo… First off, welcome back to society safely… I heard you were even in a deployment unit? Well, as for me, I’m just getting by…」</p>
+<p>"Yooo… First off, welcome back to society safely… I heard you were even in a deployment unit? Well, as for me, I’m just getting by…"</p>
 
-<p>「Ah, I volunteered for that, got selected, and went. It was fun.」</p>
+<p>"Ah, I volunteered for that, got selected, and went. It was fun."</p>
 
 <p>Han-pan was curious about how Kang Eun-ju was doing.</p>
 
-<p>「Are you adjusting well to society?」</p>
+<p>"Are you adjusting well to society?"</p>
 
-<p>「Haha, I’m a total society newbie. How has our brother Hyeon-ho been?」</p>
+<p>"Haha, I’m a total society newbie. How has our brother Hyeon-ho been?"</p>
 
-<p>「What else is there? I’m just doing a simple part-time job at a delivery logistics center.」</p>
+<p>"What else is there? I’m just doing a simple part-time job at a delivery logistics center."</p>
 
-<p>「Really? But what’s up? You actually called? Did you contact me because you wanted to hear your hyung-nim’s voice?」</p>
+<p>"Really? But what’s up? You actually called? Did you contact me because you wanted to hear your hyung-nim’s voice?"</p>
 
-<p>「A bit of this and that. I need to see your face too, and it just so happens we’re having a class reunion at our school this week. You should come! The kids are curious about how you’re doing.」</p>
+<p>"A bit of this and that. I need to see your face too, and it just so happens we’re having a class reunion at our school this week. You should come! The kids are curious about how you’re doing."</p>
 
-<p>「Oh! That sounds great! When is it?」</p>
+<p>"Oh! That sounds great! When is it?"</p>
 
-<p>「Late Friday afternoon this week! We’re scheduling it to meet up after class ends.」</p>
+<p>"Late Friday afternoon this week! We’re scheduling it to meet up after class ends."</p>
 
 <p>Han-pan remembered his promise to Eun-young.</p>
 
 <p>As he hesitated for a moment, Hyeon-ho spoke.</p>
 
-<p>「Oh Jeong-ah-nim is coming too.」</p>
+<p>"Oh Jeong-ah-nim is coming too."</p>
 
-<p>「Oh Jeong-ah-nim? How is she coming?」</p>
+<p>"Oh Jeong-ah-nim? How is she coming?"</p>
 
-<p>「I think the girls called her… I guess they’ve stayed in touch. Haha.」</p>
+<p>"I think the girls called her… I guess they’ve stayed in touch. Haha."</p>
 
-<p>「Oh~ are a lot of the kids coming?」</p>
+<p>"Oh~ are a lot of the kids coming?"</p>
 
-<p>「I heard quite a few are showing up… Even our first-year homeroom teacher is coming.」</p>
+<p>"I heard quite a few are showing up… Even our first-year homeroom teacher is coming."</p>
 
 <p>He briefly recalled the class teacher who had treated him poorly back then.</p>
 
@@ -65,9 +65,9 @@ chapter = 189
 
 <p>Conversely, Lee Ae-yeon-nim, his first-year homeroom teacher, was on the complete opposite end of that spectrum.</p>
 
-<p>「Fine, I’ll go!」</p>
+<p>"Fine, I’ll go!"</p>
 
-<p>「Okey-dokey! Then I’ll contact you once the time is confirmed.」</p>
+<p>"Okey-dokey! Then I’ll contact you once the time is confirmed."</p>
 
 <p>The two shared updates on their lives for a while longer.</p>
 

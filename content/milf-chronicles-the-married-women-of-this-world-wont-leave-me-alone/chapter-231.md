@@ -83,11 +83,11 @@ chapter = 231
 
 <p>Sucking on Seo-ah’s breast, Han-pan muttered.</p>
 
-<p>「Ah, fuck... this is so fucking good... ah... fuck... what is this... haa... haa... ah... I’m going crazy...」</p>
+<p>"Ah, fuck... this is so fucking good... ah... fuck... what is this... haa... haa... ah... I’m going crazy..."</p>
 
 <p>At Han-pan’s words, Mi-ho’s breathing also grew ragged as she let out moans.</p>
 
-<p>「Ah... son... it’s so good... haa... haa... I love having sex with my son so much... I think I’m going crazy... Ah, Mom, what should I do... Ah... son... son... ah... ah... ah... ah... fuck... I love my son’s cock so much... ah...」</p>
+<p>"Ah... son... it’s so good... haa... haa... I love having sex with my son so much... I think I’m going crazy... Ah, Mom, what should I do... Ah... son... son... ah... ah... ah... ah... fuck... I love my son’s cock so much... ah..."</p>
 
 <p>Mi-ho, half out of her mind, moved her body violently.</p>
 
@@ -117,7 +117,7 @@ chapter = 231
 
 <p>As the intense stimulation continued, Mi-ho let out a loud cry.</p>
 
-<p>「Ahhhhhhh!!!!!!! Eun-young-ah!!!!!!!!」</p>
+<p>"Ahhhhhhh!!!!!!! Eun-young-ah!!!!!!!!"</p>
 
 <p>Mi-ho screamed, her back arching deeply like a bow.</p>
 
@@ -137,7 +137,7 @@ chapter = 231
 
 <p>After kissing for a moment, Han-pan spoke to Seo-ah.</p>
 
-<p>「Noona, get on top of my face.」</p>
+<p>"Noona, get on top of my face."</p>
 
 <p>Seo-ah hesitated for a moment before spreading her legs and positioning her fucking cunt over his face.</p>
 
@@ -169,7 +169,7 @@ chapter = 231
 
 <p>Eventually, Seo-ah was the first to stop the kiss and let out a scream.</p>
 
-<p>「Ahhhh!!!! Han-pan-ah!!!! Ahhhhhh!!! Oppa!!! Oppa!!! Ahhh!!!」</p>
+<p>"Ahhhh!!!! Han-pan-ah!!!! Ahhhhhh!!! Oppa!!! Oppa!!! Ahhh!!!"</p>
 
 <p>Seo-ah screamed, her eyes rolling back until only the whites showed.</p>
 
@@ -181,7 +181,7 @@ chapter = 231
 
 <p>Her lips parted as she vented a powerful moan.</p>
 
-<p>「Ah... fuck... this is the taste... ah... ah... ahhhhh!」</p>
+<p>"Ah... fuck... this is the taste... ah... ah... ahhhhh!"</p>
 
 <p>Ultimately, the two women reached their orgasms almost simultaneously.</p>
 
@@ -189,7 +189,7 @@ chapter = 231
 
 <p>Han-pan felt the signs of ejaculation.</p>
 
-<p>「Ah, I’m gonna cum... ah... you fucking bitches are so good... I’m cumming inside you fucking bitch!!! I’m cumming inside!!! Ah... ah fuck... goddamn it!!!」</p>
+<p>"Ah, I’m gonna cum... ah... you fucking bitches are so good... I’m cumming inside you fucking bitch!!! I’m cumming inside!!! Ah... ah fuck... goddamn it!!!"</p>
 
 <p>Despite being lost in her orgasm, Eun-young bucked her pelvis even faster at Han-pan’s warning.</p>
 
