@@ -188,7 +188,8 @@ html[data-theme="catppuccin-mocha"] {
 /* ── Theme: Gruvbox Material (safelight slot) ─────────────────────── */
 html[data-theme="safelight"],
 html[data-theme="gruvbox-material"],
-html[data-theme="gruvbox"] {
+html[data-theme="gruvbox"],
+html[data-theme="nyctophobia"] {
   --c-bg0: #282828;
   --c-bg1: #32302f;
   --c-bg2: #3c3836;
@@ -254,68 +255,6 @@ html[data-theme="gruvbox"] {
   --c-cat-light: var(--c-yellow);
   --c-cyan: var(--c-aqua);
   --c-cyan-deep: var(--c-blue);
-}
-
-/* ── Theme: Ocean Blue (nyctophobia slot) ─────────────────────────── */
-html[data-theme="nyctophobia"] {
-  --c-bg: #04121f;
-  --c-surface: #09263b;
-  --c-surface-variant: #0d344f;
-  --c-surface-2: #124663;
-  --c-on-surface: #e6f7ff;
-  --c-on-surface-variant: #a8cfe2;
-  --c-outline: #3f7f9e;
-  --c-outline-variant: #1b4a66;
-
-  --c-primary: #38bdf8;
-  --c-on-primary: #04121f;
-  --c-primary-container: #0b4f73;
-  --c-on-primary-container: #c8f2ff;
-  --c-secondary: #2dd4bf;
-  --c-on-secondary: #04121f;
-  --c-secondary-container: #0b514d;
-  --c-on-secondary-container: #ccfbf1;
-  --c-tertiary: #7dd3fc;
-  --c-on-tertiary: #04121f;
-  --c-tertiary-container: #164e63;
-  --c-on-tertiary-container: #e0f2fe;
-  --c-error: #fb7185;
-  --c-on-error: #04121f;
-  --c-error-container: #5d1f2d;
-  --c-on-error-container: #ffe4e6;
-  --c-success: #5eead4;
-  --c-warning: #fcd34d;
-  --c-info: #67e8f9;
-  --c-info-container: #0e4f63;
-  --c-link: #67e8f9;
-  --c-link-hover: #a5f3fc;
-  --c-hover: #0f3b57;
-  --c-on-hover: #e6f7ff;
-  --c-shadow: #010912;
-  --c-scrim: #010912;
-  --c-inverse-surface: #e6f7ff;
-  --c-inverse-on-surface: #04121f;
-  --c-inverse-primary: #0369a1;
-  --c-surface-tint: #38bdf8;
-  --c-cat-dark: #083349;
-  --c-cat-mid: #0e7490;
-  --c-cat-base: #38bdf8;
-  --c-cat-light: #cffafe;
-  --c-orange: var(--c-primary);
-  --c-orange-deep: var(--c-primary-container);
-  --c-cyan: var(--c-secondary);
-  --c-cyan-deep: var(--c-secondary-container);
-  --c-yellow: var(--c-warning);
-  --c-red: var(--c-error);
-  --c-red-deep: var(--c-error-container);
-  --c-green: var(--c-success);
-
-  --ocean-glass-bg: linear-gradient(145deg, rgba(18, 75, 105, .78), rgba(4, 24, 38, .72));
-  --ocean-glass-strong: linear-gradient(180deg, rgba(12, 54, 78, .88), rgba(4, 24, 38, .82));
-  --ocean-glass-line: rgba(125, 211, 252, .26);
-  --ocean-glass-hi: rgba(207, 250, 254, .16);
-  --ocean-glass-shadow: 0 18px 50px rgba(0, 8, 16, .46), inset 0 1px 0 var(--ocean-glass-hi);
-  --ocean-glass-shadow-hover: 0 22px 60px rgba(0, 8, 16, .54), inset 0 1px 0 rgba(207, 250, 254, .22);
 }
 
 /* ── Theme: Rebellion (tungsten slot) ─────────────────────────────── */
@@ -716,6 +655,10 @@ nav.top .logo,
   --sw-paper: #181415;
   --sw-ink: #ff382e;
 }
+.cs-themes button[data-theme-choice="nyctophobia"],
+.cs-themes button[data-theme-choice="ocean"] {
+  display: none !important;
+}
 .cs-themes i {
   border: 2px solid var(--sw-ink) !important;
 }
@@ -727,63 +670,4 @@ nav.top .logo,
 }
 .cs-faces button[data-font-choice="space"] b {
   font-family: "Nunito V0", sans-serif !important;
-}
-
-/* ── Ocean Blue: deep-sea glass surfaces ───────────────────────────── */
-html[data-design="new"][data-theme="nyctophobia"],
-html[data-design="new"][data-theme="nyctophobia"] body {
-  background:
-    radial-gradient(1100px 720px at 12% -10%, rgba(14, 116, 144, .22), transparent 62%),
-    radial-gradient(900px 650px at 92% 16%, rgba(56, 189, 248, .12), transparent 60%),
-    linear-gradient(180deg, #04121f, #061d2e 55%, #04121f) !important;
-  background-attachment: scroll !important;
-}
-
-html[data-design="new"][data-theme="nyctophobia"] nav.top {
-  background: var(--ocean-glass-strong) !important;
-  backdrop-filter: blur(22px) saturate(165%) !important;
-  -webkit-backdrop-filter: blur(22px) saturate(165%) !important;
-  border-bottom: 1px solid var(--ocean-glass-line) !important;
-  box-shadow: 0 1px 0 var(--ocean-glass-hi), 0 12px 38px rgba(0, 8, 16, .38) !important;
-}
-
-html[data-design="new"][data-theme="nyctophobia"] .novel-card,
-html[data-design="new"][data-theme="nyctophobia"] .stack-card,
-html[data-design="new"][data-theme="nyctophobia"] .stat-card,
-html[data-design="new"][data-theme="nyctophobia"] .chapter-card,
-html[data-design="new"][data-theme="nyctophobia"] .chapter-grid .grid-item,
-html[data-design="new"][data-theme="nyctophobia"] .dict-result,
-html[data-design="new"][data-theme="nyctophobia"] .playlist,
-html[data-design="new"][data-theme="nyctophobia"] .terminal,
-html[data-design="new"][data-theme="nyctophobia"] .chapter-settings,
-html[data-design="new"][data-theme="nyctophobia"] .chapter-bar,
-html[data-design="new"][data-theme="nyctophobia"] .code-block,
-html[data-design="new"][data-theme="nyctophobia"] .novel-hero-quote,
-html[data-design="new"][data-theme="nyctophobia"] .playlist-item,
-html[data-design="new"][data-theme="nyctophobia"] .conn-notice {
-  background: var(--ocean-glass-bg) !important;
-  backdrop-filter: blur(18px) saturate(145%) !important;
-  -webkit-backdrop-filter: blur(18px) saturate(145%) !important;
-  border: 1px solid var(--ocean-glass-line) !important;
-  box-shadow: var(--ocean-glass-shadow) !important;
-}
-
-html[data-design="new"][data-theme="nyctophobia"] .novel-card:hover,
-html[data-design="new"][data-theme="nyctophobia"] .stack-card:hover,
-html[data-design="new"][data-theme="nyctophobia"] .stat-card:hover,
-html[data-design="new"][data-theme="nyctophobia"] .chapter-card:hover,
-html[data-design="new"][data-theme="nyctophobia"] .chapter-grid .grid-item:hover,
-html[data-design="new"][data-theme="nyctophobia"] .playlist-item:hover {
-  border-color: rgba(94, 234, 212, .52) !important;
-  box-shadow: var(--ocean-glass-shadow-hover) !important;
-}
-
-html[data-design="new"][data-theme="nyctophobia"] nav.top .logo,
-html[data-design="new"][data-theme="nyctophobia"] .nav-links a:hover {
-  color: #c8f2ff !important;
-}
-
-.cs-themes button[data-theme-choice="nyctophobia"] {
-  --sw-paper: #04121f;
-  --sw-ink: #38bdf8;
 }

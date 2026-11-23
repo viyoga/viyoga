@@ -474,6 +474,57 @@ html[data-theme="nyctophobia"] {
 }
 
 
+/* ── ocean blue — deep-sea glass — navy water, cyan light, seafoam edges. ── */
+html[data-theme="ocean"] {
+  --bg: #04121F;
+  --bg-elev: #08243A;
+  --fg: #E6F7FF;
+  --fg-dim: #94BFD4;
+  --accent: #38BDF8;
+  --accent-2: #2DD4BF;
+  --glass: rgba(8, 40, 60, .48);
+  --glass-hi: rgba(18, 74, 104, .68);
+  --line: rgba(56, 189, 248, .18);
+  --line-hi: rgba(94, 234, 212, .48);
+  --sheen: rgba(207, 250, 254, .08);
+  --grid: rgba(56, 189, 248, .07);
+  --glow: rgba(56, 189, 248, .30);
+  --halo-a: rgba(14, 116, 144, .18);
+  --halo-b: rgba(56, 189, 248, .10);
+  --blur: 18px;
+  --sat: 150%;
+  --bg-panel: #08243A;
+  --bg-panel-alt: #0D344F;
+  --bg-glow: #08243A;
+  --bg-core: #020B14;
+  --fg-muted: #6F9BB0;
+  --border: var(--line);
+  --border-strong: var(--line-hi);
+  --accent-bright: #A5F3FC;
+  --accent-soft: #2DD4BF;
+  --accent-dim: #0E7490;
+  --link: #67E8F9;
+  --link-hover: #CFFAFE;
+  --focus-ring: #38BDF8;
+  --grid-fade: #04121F;
+  --grid-line: rgba(56, 189, 248, .09);
+  --grid-dot: rgba(94, 234, 212, .30);
+  --bar-a: #38BDF8;
+  --bar-b: #2DD4BF;
+  --bar-c: #A5F3FC;
+  --orange: #2DD4BF;
+  --orange-deep: #0F766E;
+  --red: #FB7185;
+  --red-deep: #9F1239;
+  --cyan: #38BDF8;
+  --cyan-deep: #0E7490;
+  --yellow: #FCD34D;
+  --cat-dark: #075985;
+  --cat-mid: #0E7490;
+  --cat-base: #38BDF8;
+  --cat-light: #CFFAFE;
+}
+
 /* ── Scrollbar ── */
 ::-webkit-scrollbar { width: 8px; height: 8px; }
 ::-webkit-scrollbar-track { background: var(--bg); }
@@ -2100,6 +2151,7 @@ body.reading .chapter-body {
   .cs-themes button[data-theme-choice="mallow"]      { --sw-paper: #0A0712; --sw-ink: #C89BFF; }
   .cs-themes button[data-theme-choice="safelight"]   { --sw-paper: #0B0406; --sw-ink: #FF4D6A; }
   .cs-themes button[data-theme-choice="tungsten"]    { --sw-paper: #0A0A0C; --sw-ink: #F2F5FA; }
+  .cs-themes button[data-theme-choice="ocean"]       { --sw-paper: #04121F; --sw-ink: #38BDF8; }
   .cs-themes button[data-theme-choice="nyctophobia"] { --sw-paper: #0C1118; --sw-ink: #EA5562; }
   /* The two red themes need naming; small and quiet, not a legend. */
   .cs-theme-name {

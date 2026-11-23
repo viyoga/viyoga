@@ -5,13 +5,12 @@
 (function () {
   var root = document.documentElement;
   if (root.getAttribute("data-design") !== "new") return;
-  var THEMES = ["amber", "mallow", "safelight", "tungsten", "nyctophobia"];
+  var THEMES = ["amber", "mallow", "safelight", "tungsten"];
   var THEME_LABELS = {
     amber: "Caelus",
     mallow: "Catppuccin Mocha",
     safelight: "Gruvbox Material",
-    tungsten: "Rebellion",
-    nyctophobia: "Ocean Blue"
+    tungsten: "Rebellion"
   };
   var FONTS = ["maple", "iosevka", "space"];
   var FONT_LABELS = {
@@ -103,8 +102,14 @@
     setFont(FONTS[(FONTS.indexOf(f) + 1) % FONTS.length], true);
   });
 
-  /* Mobile sheet: relabel all five theme controls. chapter-settings.js already
-     captured these nodes, and its click handlers read the data-* attributes live. */
+  /* Mobile sheet: drop the theme that is not in the replica and relabel the
+     remaining controls. chapter-settings.js already captured these nodes, and
+     its click handlers read the data-* attributes live. */
+  var extras = document.querySelectorAll('[data-theme-choice="nyctophobia"], [data-theme-choice="ocean"]');
+  for (var i = 0; i < extras.length; i++) {
+    if (extras[i].parentNode) extras[i].parentNode.removeChild(extras[i]);
+  }
+
   var themeChoices = document.querySelectorAll("[data-theme-choice]");
   for (var j = 0; j < themeChoices.length; j++) {
     var themeKey = themeChoices[j].getAttribute("data-theme-choice");
