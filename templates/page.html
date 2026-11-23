@@ -74,10 +74,32 @@
   {% set_global next_page = page.higher %}
 {% endif %}
 
+{% set chapter_name = page.title %}
+{% set unit_l = unit | lower %}
+{% set colon_parts = page.title | split(pat=":") %}
+{% if colon_parts | length > 1 %}
+  {% set colon_prefix = colon_parts | first %}
+  {% set colon_word = colon_prefix | split(pat=" ") | first | lower %}
+  {% if colon_word == unit_l or colon_word == "ch" or colon_word == "ch." or colon_word == "ep" or colon_word == "ep." %}
+    {% set chapter_name = page.title | replace(from=colon_prefix ~ ":", to="") | trim %}
+  {% endif %}
+{% else %}
+  {% set dot_parts = page.title | split(pat=". ") %}
+  {% if dot_parts | length > 1 %}
+    {% set dot_prefix = dot_parts | first %}
+    {% set dot_word = dot_prefix | split(pat=" ") | first | lower %}
+    {% if dot_word == unit_l or dot_word == "ch" or dot_word == "ch." or dot_word == "ep" or dot_word == "ep." %}
+      {% set chapter_name = page.title | replace(from=dot_prefix ~ ". ", to="") | trim %}
+    {% endif %}
+  {% endif %}
+{% endif %}
+
 <div class="chapter-head">
 <header class="chapter-bar">
   <a class="back-btn chapter-bar-index" href="{{ index_path }}">&larr; {{ index_label }}</a>
-  <h1 class="chapter-bar-title" title="{{ page.title }}">{% if page.extra.chapter %}{{ unit }} {{ page.extra.chapter }}{% else %}{{ page.title }}{% endif %}</h1>
+  <h1 class="chapter-bar-title" title="{{ page.title }}">
+    {% if page.extra.chapter %}<span class="chapter-bar-num">{{ unit }} {{ page.extra.chapter }}</span>{% if chapter_name %}<span class="chapter-bar-name">{{ chapter_name }}</span>{% endif %}{% else %}{{ page.title }}{% endif %}
+  </h1>
   <nav class="chapter-bar-nav" aria-label="Chapter navigation">
     {% if prev_page %}
       <a class="back-btn chapter-bar-arrow chapter-bar-prev" href="{{ prev_page.path }}" title="Previous: {{ prev_page.title }}" aria-label="Previous chapter">&lsaquo;</a>
@@ -121,19 +143,6 @@
     </div>
   </div>
 </div>
-
-{% set chapter_name = "" %}
-{% set colon_parts = page.title | split(pat=":") %}
-{% if colon_parts | length > 1 %}
-  {% set colon_prefix = colon_parts | first %}
-  {% set chapter_name = page.title | replace(from=colon_prefix ~ ":", to="") | trim %}
-{% else %}
-  {% set dot_parts = page.title | split(pat=". ") %}
-  {% if dot_parts | length > 1 %}
-    {% set dot_prefix = dot_parts | first %}
-    {% set chapter_name = page.title | replace(from=dot_prefix ~ ". ", to="") | trim %}
-  {% endif %}
-{% endif %}
 
 <div class="chapter-body entry-content" itemprop="articleBody">
   {% if chapter_name %}<h2 class="chapter-name">{{ chapter_name }}</h2>{% endif %}
