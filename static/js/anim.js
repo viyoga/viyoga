@@ -27,19 +27,28 @@
     return;
   }
 
-  var io = new IntersectionObserver(function(entries) {
-    entries.forEach(function(entry) {
-      entry.target.classList.toggle('in', entry.isIntersecting);
-    });
-  }, { threshold: 0.01, rootMargin: '160px 0px 160px 0px' });
-
-  for (var k = 0; k < els.length; k++) {
-    var r = els[k].getBoundingClientRect();
-    if (r.top < window.innerHeight + 160 && r.bottom > -160) {
-      els[k].classList.add('in');
+  var ticking = false;
+  function updateReveals() {
+    ticking = false;
+    var vh = window.innerHeight;
+    for (var k = 0; k < els.length; k++) {
+      var r = els[k].getBoundingClientRect();
+      if (r.top < vh * 0.88 && r.bottom > 0) {
+        els[k].classList.add('in');
+      } else if (r.bottom < -80 || r.top > vh + 80) {
+        els[k].classList.remove('in');
+      }
     }
-    io.observe(els[k]);
   }
+  function onScroll() {
+    if (!ticking) {
+      ticking = true;
+      requestAnimationFrame(updateReveals);
+    }
+  }
+  window.addEventListener('scroll', onScroll, { passive: true });
+  window.addEventListener('resize', onScroll);
+  updateReveals();
 
   /* stat counters */
   var counts = doc.querySelectorAll('.stat-count');

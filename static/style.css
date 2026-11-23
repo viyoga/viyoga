@@ -3832,25 +3832,28 @@ body.reading .chapter-body {
   will-change: transform;
 }
 
-/* Reveal on scroll: a macOS-dock style spring, no fade.
-   Sections are always visible; they simply scale up from the bottom with a
-   small overshoot, like a window launching from the dock.
+/* Reveal on scroll: a pronounced macOS-dock launch, no fade.
+   Sections rise and scale up from the bottom edge with a visible settle,
+   like a window launching from the dock.
    (gated on html.anim-on, set by anim.js — pre-JS paint stays fully bright) */
 html.anim-on .reveal {
-  transform: scale(0.96) translateY(10px);
+  transform: scale(0.8) translateY(64px);
   transform-origin: 50% 100%;
 }
 
 html.anim-on .reveal.in {
   transform: none;
-  animation: reveal-dock 0.52s cubic-bezier(0.22, 0.9, 0.3, 1.12) backwards;
+  animation: reveal-dock 0.8s cubic-bezier(0.16, 1, 0.3, 1) backwards;
 }
 
 @keyframes reveal-dock {
-  from {
-    transform: scale(0.96) translateY(10px);
+  0% {
+    transform: scale(0.8) translateY(64px);
   }
-  to {
+  60% {
+    transform: scale(1.02) translateY(-6px);
+  }
+  100% {
     transform: scale(1) translateY(0);
   }
 }
