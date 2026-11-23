@@ -1,15 +1,16 @@
-/* Redesign: keep the old controls, relabel them to the three redesign
-   themes/fonts, and replace the desktop button handlers so the labels
-   always match. The old ids (amber/mallow/safelight, maple/iosevka/space)
-   stay in the DOM so the old CSS and chapter-settings.js keep working. */
+/* Redesign: keep the old controls, relabel them to the redesign themes/fonts,
+   and replace the desktop button handlers so the labels always match. The old
+   ids (amber/mallow/safelight/tungsten, maple/iosevka/space) stay in the DOM
+   so the old CSS and chapter-settings.js keep working. */
 (function () {
   var root = document.documentElement;
   if (root.getAttribute("data-design") !== "new") return;
-  var THEMES = ["amber", "mallow", "safelight"];
+  var THEMES = ["amber", "mallow", "safelight", "tungsten"];
   var THEME_LABELS = {
     amber: "Caelus",
     mallow: "Catppuccin Mocha",
-    safelight: "Dracula"
+    safelight: "Gruvbox Material",
+    tungsten: "Rebellion"
   };
   var FONTS = ["maple", "iosevka", "space"];
   var FONT_LABELS = {
@@ -101,12 +102,10 @@
     setFont(FONTS[(FONTS.indexOf(f) + 1) % FONTS.length], true);
   });
 
-  /* Mobile sheet: drop the two themes that are not in the replica and
-     relabel the remaining controls. chapter-settings.js already captured
-     these nodes, and its click handlers read the data-* attributes live. */
-  var extras = document.querySelectorAll(
-    '[data-theme-choice="tungsten"], [data-theme-choice="nyctophobia"]'
-  );
+  /* Mobile sheet: drop the theme that is not in the replica and relabel the
+     remaining controls. chapter-settings.js already captured these nodes, and
+     its click handlers read the data-* attributes live. */
+  var extras = document.querySelectorAll('[data-theme-choice="nyctophobia"]');
   for (var i = 0; i < extras.length; i++) {
     if (extras[i].parentNode) extras[i].parentNode.removeChild(extras[i]);
   }

@@ -37,7 +37,7 @@
   })();</script>
   <title>{% block title %}{{ config.title }}{% endblock title %}</title>
   <link rel="stylesheet" href="/style.css?v=20261119_01">
-  <link id="redesign-css" rel="stylesheet" href="/redesign.css?v=20261122c" disabled>
+  <link id="redesign-css" rel="stylesheet" href="/redesign.css?v=20261123a" disabled>
   <script>(function(){
     var root = document.documentElement;
     var params = null;
@@ -95,17 +95,20 @@
       });
     } catch (e) {}
 
-    var themes = ['amber', 'mallow', 'safelight'];
+    var themes = ['amber', 'mallow', 'safelight', 'tungsten'];
     window.__THEMES__ = themes;
     var theme = params ? params.get('theme') : null;
     var tmap = {
       caelus: 'amber',
       'catppuccin-mocha': 'mallow',
       dracula: 'safelight',
+      'gruvbox-material': 'safelight',
+      gruvbox: 'safelight',
+      rebellion: 'tungsten',
       amber: 'amber',
       mallow: 'mallow',
       safelight: 'safelight',
-      tungsten: 'amber',
+      tungsten: 'tungsten',
       nyctophobia: 'safelight'
     };
     if (!theme) { try { theme = localStorage.getItem('theme'); } catch (e) {} }
@@ -177,7 +180,7 @@
 <script defer src="/js/spotlight.js?v=20261025"></script>
 <script defer src="/js/flue.js?v=20261025"></script>
 {% block extrascripts %}<script defer src="/js/grid.js?v=20261025"></script>{% endblock extrascripts %}
-<script defer src="/js/design-override.js?v=20261122c"></script>
+<script defer src="/js/design-override.js?v=20261123a"></script>
 <script defer src="/js/design.js?v=20261122c"></script>
 </body>
 </html>
