@@ -13,11 +13,15 @@ chapter = 151
 
 <p>Screaming, Miho bit her teeth hard at the overwhelming orgasm, her body shuddering as her pupils rolled back toward her head. A shock and pleasure that felt like it would shatter her mind dominated her entire body at once. Stream after stream of his cum struck the inside of her pussy in succession. Each time, she reacted violently to the swirling orgasm, twisting her body.</p>
 
-<p>Han-pan also squeezed his eyes shut every time the cum left his body, feeling his mind turn white from the intense pleasure as he enjoyed his own catharsis. To Han-pan, this indescribable pleasure was an addictive sensation he could never get enough of. This moment, where the dopamine levels reaching from his head to his toes peaked, was the ultimate joy, pleasure, excitement, and immersion that a human could taste at the pinnacle of life.</p>
+<p>Han-pan also squeezed his eyes shut every time the cum left his body, feeling his mind turn white from the intense pleasure as he enjoyed his own catharsis. To Han-pan, this indescribable pleasure was an addictive sensation he could never get enough of.</p>
+
+<p>This moment, where the dopamine levels reaching from his head to his toes peaked, was the ultimate joy, pleasure, excitement, and immersion that a human could taste at the pinnacle of life.</p>
 
 <p>Especially pouring his cum into his own mom provided an unbelievably intense catharsis. He felt he could understand why various kings of ancient times repeatedly violated their mothers. After several streams of cum had been pumped into her body, the final trail flowed out.</p>
 
-<p>Afterward, Han-pan slowly collapsed over her body, gasping for breath. Miho, pinned beneath him, continued to tremble occasionally while enjoying the lingering afterglow of the orgasm. Realizing the difference between a man’s climax—where all pleasure is poured out in an instant and strength leaves the body—and a woman’s climax—where the afterglow lingers for a long time—he buried his face between her two massive breasts and smiled.</p>
+<p>Afterward, Han-pan slowly collapsed over her body, gasping for breath. Miho, pinned beneath him, continued to tremble occasionally while enjoying the lingering afterglow of the orgasm.</p>
+
+<p>Realizing the difference between a man’s climax—where all pleasure is poured out in an instant and strength leaves the body—and a woman’s climax—where the afterglow lingers for a long time—he buried his face between her two massive breasts and smiled.</p>
 
 <p>Looking at the achievement he had accomplished beneath him, he felt extremely satisfied. Making his mom climax twice in a row was a source of great satisfaction for him. A moment later, Miho’s hand wrapped around his back, stroking him gently. It was an expression of a woman’s adoration and respect for the man who had gifted her such an intense orgasm.</p>
 
@@ -85,7 +89,9 @@ chapter = 151
 
 <p>So-jo stood up and pulled him by the hand. She led him toward her room. Entering the room, Han-pan could see the clothes they had taken off earlier scattered messily on the floor. So-jo pushed him down onto the bed. Then, she found her cellphone and played some smooth jazz music. It was jazz, but it was quite romantic and erotic at the same time.</p>
 
-<p>Looking at him lying on the bed, she began to slowly twist her body to the music. All she was wearing was a simple, thin band-style garter belt around her waist, thin stockings held firmly by shining metal clips, and incredibly high, flashy high heels. It was an attire one would only see in a strip show. He thought that the public who saw her on the screen would never be able to imagine her like this.</p>
+<p>Looking at him lying on the bed, she began to slowly twist her body to the music. All she was wearing was a simple, thin band-style garter belt around her waist, thin stockings held firmly by shining metal clips, and incredibly high, flashy high heels. It was an attire one would only see in a strip show.</p>
+
+<p>He thought that the public who saw her on the screen would never be able to imagine her like this.</p>
 
 <p>“Masturbate for me.”</p>
 

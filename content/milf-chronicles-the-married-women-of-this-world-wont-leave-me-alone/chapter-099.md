@@ -25,7 +25,9 @@ chapter = 99
 
 <p>A moan naturally escaped Han-pan’s lips. After glancing at his reaction, Miho began to lick the glans intensely with her flickering tongue, while her other hand stroked his thigh. The sensation of her soft touch combined with her tongue on his cock was transmitted simultaneously, causing his cock to rapidly harden and grow larger.</p>
 
-<p>Miho ran her tongue long along the shaft of his cock, licking every nook and cranny. At the same time, Han-pan’s cock surged upward like a tall tree. Once his cock was sufficiently hard, Miho took it into her mouth and swallowed. She pushed it as far as she could into her throat, stimulating it incessantly with her tongue. With her hand still on his thigh, she moved it back and forth over the remaining length.</p>
+<p>Miho ran her tongue long along the shaft of his cock, licking every nook and cranny. At the same time, Han-pan’s cock surged upward like a tall tree. Once his cock was sufficiently hard, Miho took it into her mouth and swallowed. She pushed it as far as she could into her throat, stimulating it incessantly with her tongue.</p>
+
+<p>With her hand still on his thigh, she moved it back and forth over the remaining length.</p>
 
 <p>With the concentrated stimulation of her lips, tongue, and hand, Han-pan tasted rapturous bliss, his head naturally tilting back toward the ceiling. Miho tried to perform the deep throat she had failed at earlier, but it was still not easy.</p>
 
@@ -37,7 +39,9 @@ chapter = 99
 
 <p>“Ah… you fucking bitch… so wanton… a bitch like a dog sucking her son’s cock… do you like sucking your son’s cock? You fucking bitch? Huh? I’m going to spray your son’s cum all over the inside of your mouth… so suck it fast… you fucking bitch… I’ll fill your mouth with my cum… drink every drop of it… you hear me? Are you listening, you fucking bitch? You piece of shit.”</p>
 
-<p>As Han-pan spoke, he slapped one of her cheeks with his palm. The sensation of his cock filling her mouth was transmitted through her cheek to his palm. He noticed Miho’s eyes rolling back slightly. She looked up at him with slightly unfocused eyes and began to shake her head more aggressively than before. Han-pan realized his conjecture was correct—she was aroused by his cursing and the simultaneous acts of abuse.</p>
+<p>As Han-pan spoke, he slapped one of her cheeks with his palm. The sensation of his cock filling her mouth was transmitted through her cheek to his palm. He noticed Miho’s eyes rolling back slightly. She looked up at him with slightly unfocused eyes and began to shake her head more aggressively than before.</p>
+
+<p>Han-pan realized his conjecture was correct—she was aroused by his cursing and the simultaneous acts of abuse.</p>
 
 <p>“Ah, fuck!! Ah!! A bitch mother sucking her son’s cock!!! You fucking bitch!! Suck harder!!! You fucking bitch! From now on, you obey everything I say!!! I’ll make you scream with sex every day!! Ah!! Ah!!! You suck so fucking well!!! You fucking bitch!!!”</p>
 
@@ -53,7 +57,9 @@ chapter = 99
 
 <p>“Ah!!!! Mom!!!! I’m cumming!!!! Ah!!!!!!!! Mom!!!!!!!!”</p>
 
-<p>Han-pan poured a massive amount of cum, seemingly enough to fill a liter, into her mouth. It felt as if every bit of semen in his balls was escaping into her lips. The thick streams of cum, moving at an intense speed, struck her throat several times, and she shuddered every time it hit her uvula. Like parched, cracked earth receiving rain, her uvula became drenched in his cum, and she quickly swallowed it down her throat.</p>
+<p>Han-pan poured a massive amount of cum, seemingly enough to fill a liter, into her mouth. It felt as if every bit of semen in his balls was escaping into her lips. The thick streams of cum, moving at an intense speed, struck her throat several times, and she shuddered every time it hit her uvula.</p>
+
+<p>Like parched, cracked earth receiving rain, her uvula became drenched in his cum, and she quickly swallowed it down her throat.</p>
 
 <p>A moment later, after pouring his cum into her mouth, Han-pan felt dizzy. He momentarily placed both hands on her head to catch his balance. His thighs trembled, and a thrill ran through his entire body as he enjoyed the dizzying sensation after ejaculation.</p>
 
@@ -81,7 +87,9 @@ chapter = 99
 
 <p>Han-pan nodded and said, “Ah… I went a bit overboard…”</p>
 
-<p>Miho shook her head. “No, no… it’s not that… to be honest… I don’t understand it myself either… but hearing those words makes me incredibly aroused. How should I put it… there’s something boiling up inside that drives me crazy… It’s not that those words are wrong… but, um… I’m not a whore. I’m not a bitch, and I’m certainly not a fucking bitch… But all of this… I want you to know that I’ve never been like this with anyone but you. Do you understand?”</p>
+<p>Miho shook her head. “No, no… it’s not that… to be honest… I don’t understand it myself either… but hearing those words makes me incredibly aroused. How should I put it… there’s something boiling up inside that drives me crazy… It’s not that those words are wrong… but, um… I’m not a whore. I’m not a bitch, and I’m certainly not a fucking bitch… But all of this…</p>
+
+<p>I want you to know that I’ve never been like this with anyone but you. Do you understand?”</p>
 
 <p>Han-pan nodded vigorously at her long explanation.</p>
 

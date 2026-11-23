@@ -5,7 +5,9 @@ weight = 187
 chapter = 187
 +++
 
-<p>Han-pan wiped his mouth, which was smeared with Love Juice and saliva, with his arm before standing up. On the bed lay So-jo, gasping for breath after having tasted a powerful orgasm. She seemed to have lost all strength in her body, showing no sign of getting up. He leaned over her, grabbing both her breasts with his hands and flicking her nipples with his fingers. At that, So-jo’s body jolted as if struck by an electric current.</p>
+<p>Han-pan wiped his mouth, which was smeared with Love Juice and saliva, with his arm before standing up. On the bed lay So-jo, gasping for breath after having tasted a powerful orgasm. She seemed to have lost all strength in her body, showing no sign of getting up. He leaned over her, grabbing both her breasts with his hands and flicking her nipples with his fingers.</p>
+
+<p>At that, So-jo’s body jolted as if struck by an electric current.</p>
 
 <p>“Ah…”</p>
 
@@ -61,17 +63,25 @@ chapter = 187
 
 <p>“Same for me, Noona…”</p>
 
-<p>Han-pan and So-jo had been exceptionally close since they were young. The eldest daughter, Seo-ah, had been mature and quiet since childhood, fitting her role. She was always the thoughtful, quiet Noona and Eonni of the household. However, So-jo and Han-pan were full of mischief and caused a lot of trouble. They fought a lot and played together just as much. Since So-jo had grown up as something of a tomboy, she was like a brother and a sister at the same time to Han-pan. He could never have imagined developing this kind of relationship with her as an adult, but destiny had led them—no, the entire family—into an unknown world.</p>
+<p>Han-pan and So-jo had been exceptionally close since they were young. The eldest daughter, Seo-ah, had been mature and quiet since childhood, fitting her role. She was always the thoughtful, quiet Noona and Eonni of the household. However, So-jo and Han-pan were full of mischief and caused a lot of trouble. They fought a lot and played together just as much.</p>
 
-<p>As Han-pan’s Cock pushed completely into her uterus, his Balls swung heavily and slapped against So-jo’s Anus. With stimulation hitting her Jade Gate and Anus simultaneously, So-jo exhaled another deep sigh. The feeling of Han-pan’s Cock filling her body with such heavy weight provided an indescribable sensation. She couldn't bear to miss the uniqueness that only he could provide. It was an addiction in itself. She knew she would surely marry another man someday, but she intended to continue this relationship with him. She believed that no other man in the world could satisfy her the way he did.</p>
+<p>Since So-jo had grown up as something of a tomboy, she was like a brother and a sister at the same time to Han-pan. He could never have imagined developing this kind of relationship with her as an adult, but destiny had led them—no, the entire family—into an unknown world.</p>
 
-<p>Han-pan slowly pulled his Cock back and then lunged forward again. After a few repetitions, he gradually increased the speed. Every time his Cock entered her pussy completely, his Balls would bounce and strike her Anus. Since his Balls were of considerable size, just like his Cock, the Impact from their weight provided another layer of Pleasure. So-jo lifted her hands and legs, wrapping them around his body. Han-pan felt the cold touch of her high heels against his buttocks and began to swing his pelvis even faster. So-jo also moved her pelvis as if bouncing it up and down, adding rhythm to his movements.</p>
+<p>As Han-pan’s Cock pushed completely into her uterus, his Balls swung heavily and slapped against So-jo’s Anus. With stimulation hitting her Jade Gate and Anus simultaneously, So-jo exhaled another deep sigh. The feeling of Han-pan’s Cock filling her body with such heavy weight provided an indescribable sensation.</p>
+
+<p>She couldn't bear to miss the uniqueness that only he could provide. It was an addiction in itself. She knew she would surely marry another man someday, but she intended to continue this relationship with him. She believed that no other man in the world could satisfy her the way he did.</p>
+
+<p>Han-pan slowly pulled his Cock back and then lunged forward again. After a few repetitions, he gradually increased the speed. Every time his Cock entered her pussy completely, his Balls would bounce and strike her Anus. Since his Balls were of considerable size, just like his Cock, the Impact from their weight provided another layer of Pleasure.</p>
+
+<p>So-jo lifted her hands and legs, wrapping them around his body. Han-pan felt the cold touch of her high heels against his buttocks and began to swing his pelvis even faster. So-jo also moved her pelvis as if bouncing it up and down, adding rhythm to his movements.</p>
 
 <p>“Ah… ah… ah… ah…”</p>
 
 <p>“Huuuk… huuuk… huuuk…”</p>
 
-<p>Han-pan’s emotions intensified, and his speed rose accordingly. He lifted the hands he had placed beside her head and pressed down firmly on the tops of her shoulders, pinning her to the bed. So-jo responded to his rough movements, sliding the hands she had wrapped around his neck down to his buttocks, pulling him even closer to her. His Cock stimulated So-jo’s Clitoris even more intensely as it shoved deep into her pussy, and Han-pan’s Breath grew increasingly ragged.</p>
+<p>Han-pan’s emotions intensified, and his speed rose accordingly. He lifted the hands he had placed beside her head and pressed down firmly on the tops of her shoulders, pinning her to the bed. So-jo responded to his rough movements, sliding the hands she had wrapped around his neck down to his buttocks, pulling him even closer to her.</p>
+
+<p>His Cock stimulated So-jo’s Clitoris even more intensely as it shoved deep into her pussy, and Han-pan’s Breath grew increasingly ragged.</p>
 
 <p>“Heo-eok… heo-eok… heo-eok… heo-eok…”</p>
 
@@ -81,7 +91,9 @@ chapter = 187
 
 <p>“Tak! Tak! Tak! Tak!”</p>
 
-<p>The sound of their flesh colliding echoed loudly through the room. Romantic sex had vanished, replaced by the primal Lust of beasts dominating them both. Sweat began to bead on Han-pan’s back. After thrusting like that for a while, he pushed himself up and shoved her thighs back, lifting her legs toward the ceiling. The heels of So-jo’s high heels pointed straight up. He grabbed her sharp heels firmly, as if holding onto an exercise machine, and worked his pelvis.</p>
+<p>The sound of their flesh colliding echoed loudly through the room. Romantic sex had vanished, replaced by the primal Lust of beasts dominating them both. Sweat began to bead on Han-pan’s back. After thrusting like that for a while, he pushed himself up and shoved her thighs back, lifting her legs toward the ceiling. The heels of So-jo’s high heels pointed straight up.</p>
+
+<p>He grabbed her sharp heels firmly, as if holding onto an exercise machine, and worked his pelvis.</p>
 
 <p>“Haaang… haaang… haaang… haaang…”</p>
 
@@ -103,7 +115,9 @@ chapter = 187
 
 <p>“Aaaah… So-jo’s coming… Aaaaaaaaah!!!”</p>
 
-<p>With that cry, Convulsions wracked So-jo’s body once more. Han-pan, watching her tremble beneath him, felt a massive Sense of Fulfillment fill his body. He was also ready for Ejaculation. Leaving the convulsing So-jo behind, Han-pan moved his Cock even faster. And soon, he too felt an intense Pleasure hit him like an explosion of condensed energy. His Balls and Cock swelled further, and a powerful stream of Cum sprayed out.</p>
+<p>With that cry, Convulsions wracked So-jo’s body once more. Han-pan, watching her tremble beneath him, felt a massive Sense of Fulfillment fill his body. He was also ready for Ejaculation. Leaving the convulsing So-jo behind, Han-pan moved his Cock even faster. And soon, he too felt an intense Pleasure hit him like an explosion of condensed energy.</p>
+
+<p>His Balls and Cock swelled further, and a powerful stream of Cum sprayed out.</p>
 
 <p>“Aaaaaaaaaaaaaa….”</p>
 
@@ -117,7 +131,9 @@ chapter = 187
 
 <p>“Yeah, okay. Have a good one, Noona.”</p>
 
-<p>Han-pan waved at her while lying on his bed. Once So-jo closed the door and left, Han-pan sprawled out on the bed again. After a moment, the post-sex lethargy washed over him, and he drifted off to sleep. After sleeping for a short while, he woke up in a daze and looked at the group chat on his phone. He saw the messages going back and forth between his friends. It was just useless, trivial talk about daily life. As he scrolled through the chat, he suddenly wondered how Mi-ho’s morning had been.</p>
+<p>Han-pan waved at her while lying on his bed. Once So-jo closed the door and left, Han-pan sprawled out on the bed again. After a moment, the post-sex lethargy washed over him, and he drifted off to sleep. After sleeping for a short while, he woke up in a daze and looked at the group chat on his phone. He saw the messages going back and forth between his friends.</p>
+
+<p>It was just useless, trivial talk about daily life. As he scrolled through the chat, he suddenly wondered how Mi-ho’s morning had been.</p>
 
 <p>&lt;What are you doing?&gt;</p>
 

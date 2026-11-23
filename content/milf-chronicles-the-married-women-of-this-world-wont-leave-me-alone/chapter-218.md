@@ -15,11 +15,17 @@ chapter = 218
 
 <p>Standing at about 164cm, Oh Jeong-ah was a typical slender type with a striking, innocent beauty. Her pure expression, which perfectly matched her delicate features, made her the quintessential ideal type for high school boys.</p>
 
-<p>As an English teacher, Oh Jeong-ah had been incredibly popular at school. Being kind and thoughtful, she was loved by both male and female students, always surrounded by a crowd. Her style was always mature and composed. Seeing her in a long skirt or loose pants with a shirt was the very image of a classic teacher. Wearing thick horn-rimmed glasses, she looked exactly as she did back at school. With a face free of makeup and her long straight hair tucked back, she wore a light blue shirt, a long skirt, and flat shoes. She was the definition of pure.</p>
+<p>As an English teacher, Oh Jeong-ah had been incredibly popular at school. Being kind and thoughtful, she was loved by both male and female students, always surrounded by a crowd. Her style was always mature and composed. Seeing her in a long skirt or loose pants with a shirt was the very image of a classic teacher.</p>
 
-<p>In contrast, the tall Lee Ae-yeon was the complete opposite of Oh Jeong-ah. Back in high school, she was the homeroom teacher who had been completely at odds with Han-pan. She was a woman dedicated to disciplining students and had a high sense of self-esteem, tending to look down on others. Furthermore, being hot-tempered, her emotions fluctuated wildly, making her a woman people either loved or hated, unlike the more consistent Oh Jeong-ah.</p>
+<p>Wearing thick horn-rimmed glasses, she looked exactly as she did back at school. With a face free of makeup and her long straight hair tucked back, she wore a light blue shirt, a long skirt, and flat shoes. She was the definition of pure.</p>
 
-<p>Rumor had it she was the Chairperson’s daughter, so no one could control her, and she even dressed however she pleased. She also taught English but boasted a flashy style that was hard to believe for a high school teacher. As if to prove it today, she wore heavy makeup that contrasted sharply with Oh Jeong-ah’s, along with a dress featuring a vibrant silk pattern that reached down to her mid-calves. On top of that, she wore high heels, creating a significant height difference between her and Oh Jeong-ah. In those heels, she was taller than most men.</p>
+<p>In contrast, the tall Lee Ae-yeon was the complete opposite of Oh Jeong-ah. Back in high school, she was the homeroom teacher who had been completely at odds with Han-pan. She was a woman dedicated to disciplining students and had a high sense of self-esteem, tending to look down on others.</p>
+
+<p>Furthermore, being hot-tempered, her emotions fluctuated wildly, making her a woman people either loved or hated, unlike the more consistent Oh Jeong-ah.</p>
+
+<p>Rumor had it she was the Chairperson’s daughter, so no one could control her, and she even dressed however she pleased. She also taught English but boasted a flashy style that was hard to believe for a high school teacher.</p>
+
+<p>As if to prove it today, she wore heavy makeup that contrasted sharply with Oh Jeong-ah’s, along with a dress featuring a vibrant silk pattern that reached down to her mid-calves. On top of that, she wore high heels, creating a significant height difference between her and Oh Jeong-ah. In those heels, she was taller than most men.</p>
 
 <p>With her trademark cynical expression, she approached the students alongside Oh Jeong-ah, looking chic as ever. Though there was a smile on her lips, it carried a certain annoying, condescending vibe.</p>
 

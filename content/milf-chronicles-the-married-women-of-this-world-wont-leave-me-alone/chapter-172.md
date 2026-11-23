@@ -15,7 +15,9 @@ chapter = 172
 
 <p>While he was running at a brisk pace, Miho entered the gym. Han-pan turned his head and sent a bright smile her way. Miho responded with a smile of her own. After entering, Miho also began stretching slowly to warm up. Han-pan stopped running and stepped off the treadmill.</p>
 
-<p>Miho took the baton and started running on the treadmill. Han-pan picked up some barbells, admiring Miho’s luscious figure out of the corner of his eye. Feeling his gaze, Miho occasionally met his eyes and flashed a meaningful smile. An intense desire to have sex with her right then and there surged within Han-pan, but he suppressed it and focused on his workout. Miho also focused on her exercise without showing any particular reaction.</p>
+<p>Miho took the baton and started running on the treadmill. Han-pan picked up some barbells, admiring Miho’s luscious figure out of the corner of his eye. Feeling his gaze, Miho occasionally met his eyes and flashed a meaningful smile. An intense desire to have sex with her right then and there surged within Han-pan, but he suppressed it and focused on his workout.</p>
+
+<p>Miho also focused on her exercise without showing any particular reaction.</p>
 
 <p>After working out and sweating for a while, Han-pan reached his goal, caught his breath, and sat on the floor. Miho was also finishing up and stretching. Her buttocks, shaped like a full moon and encased in bright green leggings, were so luscious they made his head spin. He looked at her with a wide grin.</p>
 
@@ -55,7 +57,9 @@ chapter = 172
 
 <p>After finishing his meal, Han-pan returned to his room. He spent some time idly looking at his phone. After some time had passed, he heard the sound of high heels approaching his door. It was undoubtedly Miho.</p>
 
-<p>Soon, there was a knock, and Miho opened the door and entered the room. Today, she was styled in a cream-colored silk shirt with a faint reddish tint and an intense burgundy long skirt. On her feet, she wore high heels of the same color as her skirt. They were slightly lower than usual, but she still looked incredibly sexy. Even in a long skirt, her sexiness could not be hidden. He really liked how chic she looked today.</p>
+<p>Soon, there was a knock, and Miho opened the door and entered the room. Today, she was styled in a cream-colored silk shirt with a faint reddish tint and an intense burgundy long skirt. On her feet, she wore high heels of the same color as her skirt. They were slightly lower than usual, but she still looked incredibly sexy. Even in a long skirt, her sexiness could not be hidden.</p>
+
+<p>He really liked how chic she looked today.</p>
 
 <p>In particular, the silk shirt she was wearing emphasized her large breasts. It created the illusion that the lace-filled bra underneath was faintly visible.</p>
 

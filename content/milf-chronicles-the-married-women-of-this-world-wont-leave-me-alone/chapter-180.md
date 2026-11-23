@@ -15,7 +15,9 @@ chapter = 180
 
 <p>Soon, the sound of high heels echoed from the second floor. He turned his head toward the stairs. Miho was slowly descending into the living room. She had changed into a luxurious two-piece suit.</p>
 
-<p>On top, she wore a sophisticated cream-colored jacket with a subtle ivory tint. The cuffs looked as if she were wearing a white shirt underneath, but inside the jacket, she wore a thin, camisole-like top. It was a uniquely designed jacket. For her bottoms, she wore a coral-toned, quilted A-line skirt with two thin gold chains draped around her waist. The skirt exposed half of her thighs, and her legs shimmered with the subtle sheen of stockings.</p>
+<p>On top, she wore a sophisticated cream-colored jacket with a subtle ivory tint. The cuffs looked as if she were wearing a white shirt underneath, but inside the jacket, she wore a thin, camisole-like top. It was a uniquely designed jacket. For her bottoms, she wore a coral-toned, quilted A-line skirt with two thin gold chains draped around her waist.</p>
+
+<p>The skirt exposed half of her thighs, and her legs shimmered with the subtle sheen of stockings.</p>
 
 <p>To finish the look, she wore ivory high heels that matched her skirt. The heels themselves were a metallic gold, looking like sculptures forged from refined gold. A brand logo was visible in the middle of the heel; even at a glance, they looked incredibly high-end and expensive.</p>
 

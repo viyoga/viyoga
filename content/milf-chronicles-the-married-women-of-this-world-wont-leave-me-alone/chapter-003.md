@@ -12,12 +12,17 @@ She had large, round eyes without double eyelids, and her thick lips and circula
 
 <p>“Hello… it’s nice to meet you.”</p>
 
-<p>Han-pan bowed his head slightly and greeted her.<br>
-She was wearing a long, vibrantly colored dress, and he thought her fashion sense was excellent, especially with the thin belt wrapped sleekly around her waist. <br>
-Perhaps because the belt emphasized her slender waist so well, she had a classic glamorous style where her breasts and buttocks felt incredibly voluptuous.<br>
-He estimated her breasts were at least a D-cup.<br>
-There was an inexplicable allure in a physique that stood in such stark contrast to her refined impression.<br>
-He could understand why his father had remarried this woman.</p>
+<p>Han-pan bowed his head slightly and greeted her.</p>
+
+<p>She was wearing a long, vibrantly colored dress, and he thought her fashion sense was excellent, especially with the thin belt wrapped sleekly around her waist.</p>
+
+<p>Perhaps because the belt emphasized her slender waist so well, she had a classic glamorous style where her breasts and buttocks felt incredibly voluptuous.</p>
+
+<p>He estimated her breasts were at least a D-cup.</p>
+
+<p>There was an inexplicable allure in a physique that stood in such stark contrast to her refined impression.</p>
+
+<p>He could understand why his father had remarried this woman.</p>
 
 <p>Aware of his gaze quickly scanning her, she wore a faint smile. Flustered inwardly by that smile, Han-pan reflexively took the hand she offered and shook it.<br>
 Her skin was also remarkably soft and firm.</p>
@@ -37,12 +42,17 @@ An awkward atmosphere lingered for a moment until Kim Tae-sik cleared his throat
 
 <p>“Haha, this bastard, it’s fine!”</p>
 
-<p>Tae-sik pulled the suitcase anyway, as if he didn’t want to show that he had aged.<br>
-Watching this, Han-pan hesitated for a moment before entrusting his luggage to his father.<br>
-They left the airport waiting room and headed toward the parking lot.<br>
-The August heat greeted him with a humid atmosphere, completely different from the dry desert climate of the Middle East where he had been.<br>
-As the sweltering heat unique to Korea—which he had forgotten for a while—hit him, he could feel his body heating up instantly.<br>
-Despite the cloudy weather, the humidity was unavoidable.</p>
+<p>Tae-sik pulled the suitcase anyway, as if he didn’t want to show that he had aged.</p>
+
+<p>Watching this, Han-pan hesitated for a moment before entrusting his luggage to his father.</p>
+
+<p>They left the airport waiting room and headed toward the parking lot.</p>
+
+<p>The August heat greeted him with a humid atmosphere, completely different from the dry desert climate of the Middle East where he had been.</p>
+
+<p>As the sweltering heat unique to Korea—which he had forgotten for a while—hit him, he could feel his body heating up instantly.</p>
+
+<p>Despite the cloudy weather, the humidity was unavoidable.</p>
 
 <p>They headed to the car Tae-sik had parked. After loading the luggage into the trunk, Han-pan tried to sit in the back seat, but Hye-su stopped him and encouraged him to sit in the front.</p>
 
@@ -54,11 +64,15 @@ Despite the cloudy weather, the humidity was unavoidable.</p>
 
 <p>“Ah… yes… if that’s the case…”</p>
 
-<p>Han-pan shrugged and followed her suggestion, sitting in the front seat.<br>
-They left the airport and headed toward Seoul.<br>
-Han-pan enjoyed the scenery of Seoul, which he hadn’t seen in a long time, while sharing various stories about his recent life with Tae-sik.<br>
-It was a late lunch, but they ate at a famous restaurant in Gangnam.<br>
-After a pleasant meal, Han-pan spoke to Tae-sik as they left the establishment.</p>
+<p>Han-pan shrugged and followed her suggestion, sitting in the front seat.</p>
+
+<p>They left the airport and headed toward Seoul.</p>
+
+<p>Han-pan enjoyed the scenery of Seoul, which he hadn’t seen in a long time, while sharing various stories about his recent life with Tae-sik.</p>
+
+<p>It was a late lunch, but they ate at a famous restaurant in Gangnam.</p>
+
+<p>After a pleasant meal, Han-pan spoke to Tae-sik as they left the establishment.</p>
 
 <p>“Then I’ll take a taxi from here.”</p>
 
@@ -141,16 +155,25 @@ The dial tone rang, and soon Park Mi-ho’s slightly high-toned voice was heard.
 
 <p>『Okay, okay.』</p>
 
-<p>After hanging up, he looked out the window.<br>
-It felt strange that the bustling appearance of Gangnam felt somewhat unfamiliar.<br>
-Even just yesterday, he had been in a city that was all desert; to him, having moved through space, everything felt new.<br>
-The car, weaving through the forest of buildings in Gangnam, stopped in front of a car showroom on a corner of Dosan-daero.<br>
-Luxurious high-end cars were on display across the floors of the building, which was painted entirely in black.<br>
-He took his suitcase out of the taxi and slowly approached the entrance, where the showroom could be seen at a glance through large glass panes.<br>
-As he opened the door and stepped inside, the cold wind from the air conditioner greeted his face refreshingly.<br>
-At the same time, a woman at the desk looked at him with a questioning gaze.<br>
-He figured he was probably the first and last person to walk in wearing a military uniform.<br>
-The woman forced a smile and asked,</p>
+<p>After hanging up, he looked out the window.</p>
+
+<p>It felt strange that the bustling appearance of Gangnam felt somewhat unfamiliar.</p>
+
+<p>Even just yesterday, he had been in a city that was all desert; to him, having moved through space, everything felt new.</p>
+
+<p>The car, weaving through the forest of buildings in Gangnam, stopped in front of a car showroom on a corner of Dosan-daero.</p>
+
+<p>Luxurious high-end cars were on display across the floors of the building, which was painted entirely in black.</p>
+
+<p>He took his suitcase out of the taxi and slowly approached the entrance, where the showroom could be seen at a glance through large glass panes.</p>
+
+<p>As he opened the door and stepped inside, the cold wind from the air conditioner greeted his face refreshingly.</p>
+
+<p>At the same time, a woman at the desk looked at him with a questioning gaze.</p>
+
+<p>He figured he was probably the first and last person to walk in wearing a military uniform.</p>
+
+<p>The woman forced a smile and asked,</p>
 
 <p>“How can I help you?”</p>
 
@@ -160,12 +183,17 @@ The woman forced a smile and asked,</p>
 
 <p>“The CEO?”</p>
 
-<p>She asked back, her eyes widening.<br>
-The woman at the desk looked bewildered that a man in a military uniform suddenly wanted to see the CEO.<br>
-Just then, her eyes moved quickly to one side, and someone approached Han-pan’s side.<br>
-When Han-pan turned his head, a sharp-looking woman in a clean black suit was standing there with a gentle smile.<br>
-She was a woman with impressive black-rimmed glasses.<br>
-Han-pan remembered seeing her once or twice before.</p>
+<p>She asked back, her eyes widening.</p>
+
+<p>The woman at the desk looked bewildered that a man in a military uniform suddenly wanted to see the CEO.</p>
+
+<p>Just then, her eyes moved quickly to one side, and someone approached Han-pan’s side.</p>
+
+<p>When Han-pan turned his head, a sharp-looking woman in a clean black suit was standing there with a gentle smile.</p>
+
+<p>She was a woman with impressive black-rimmed glasses.</p>
+
+<p>Han-pan remembered seeing her once or twice before.</p>
 
 <p>“Kim Han-pan-ssi?”</p>
 
@@ -177,11 +205,15 @@ Han-pan remembered seeing her once or twice before.</p>
 
 <p>“Yes.”</p>
 
-<p>She turned and headed toward the elevator, and Han-pan followed her.<br>
-When they reached the top floor and the doors opened, Han-pan followed her out and was led to the room at the very end of the passage.<br>
-All the offices on the floor were made of glass; true to his mother, who loved communication, the office space was structured so that everyone could see each other.<br>
-However, when he arrived, the CEO’s room had the blinds drawn, hiding the interior.<br>
-The woman in the black-rimmed glasses knocked and opened the door first.</p>
+<p>She turned and headed toward the elevator, and Han-pan followed her.</p>
+
+<p>When they reached the top floor and the doors opened, Han-pan followed her out and was led to the room at the very end of the passage.</p>
+
+<p>All the offices on the floor were made of glass; true to his mother, who loved communication, the office space was structured so that everyone could see each other.</p>
+
+<p>However, when he arrived, the CEO’s room had the blinds drawn, hiding the interior.</p>
+
+<p>The woman in the black-rimmed glasses knocked and opened the door first.</p>
 
 <p>“CEO-nim, I’ve brought him.”</p>
 
@@ -191,16 +223,28 @@ The woman in the black-rimmed glasses knocked and opened the door first.</p>
 
 <p>“Mom!”</p>
 
-<p>Watching her stride toward him, Han-pan could instinctively tell that her body had changed significantly compared to the last time he saw her.<br>
-Her face and body had become quite slim, but conversely, her breasts appeared relatively more prominent, which felt a bit surreal.<br>
-Her hip line, following her lithe waist, was also more emphasized.<br>
-In contrast to the other employees who wore mostly simple black clothes, she was wearing something like a wrap dress with a flashy primary-colored orange and white pattern, which clung tightly to her entire body, showing off her figure without filter.<br>
-Han-pan wondered if it was an illusion created by the clothes, but in fact, this style was quite unfamiliar to him.<br>
-Especially the striking orange high heels.<br>
-Her makeup was more sophisticated than before; the makeup, which emphasized her characteristic deep gaze, sharp nose, thick lips that seemed to invite a kiss, and a sleek jawline, made her shine.<br>
-Her vibe, reminiscent of the Japanese actress Haruka Igawa, was elegant.<br>
-In particular, her long arms and legs looked firm, and despite her height of 168cm, it gave the effect of making her look even taller.<br>
-Though her body was slimmer, her shoulders looked broader.<br>
-From her exposed delicate collarbones, he could tell she had undergone intense dieting.<br>
-In that regard, the thought that no one would take her for a person who had given birth to three children crossed his mind, and Han-pan was momentarily flustered by a sensation he had never felt before creeping up in his heart, though he tried his best not to let it show.<br>
-Regardless of his thoughts, Park Mi-ho approached him, reaching out her arms.</p>
+<p>Watching her stride toward him, Han-pan could instinctively tell that her body had changed significantly compared to the last time he saw her.</p>
+
+<p>Her face and body had become quite slim, but conversely, her breasts appeared relatively more prominent, which felt a bit surreal.</p>
+
+<p>Her hip line, following her lithe waist, was also more emphasized.</p>
+
+<p>In contrast to the other employees who wore mostly simple black clothes, she was wearing something like a wrap dress with a flashy primary-colored orange and white pattern, which clung tightly to her entire body, showing off her figure without filter.</p>
+
+<p>Han-pan wondered if it was an illusion created by the clothes, but in fact, this style was quite unfamiliar to him.</p>
+
+<p>Especially the striking orange high heels.</p>
+
+<p>Her makeup was more sophisticated than before; the makeup, which emphasized her characteristic deep gaze, sharp nose, thick lips that seemed to invite a kiss, and a sleek jawline, made her shine.</p>
+
+<p>Her vibe, reminiscent of the Japanese actress Haruka Igawa, was elegant.</p>
+
+<p>In particular, her long arms and legs looked firm, and despite her height of 168cm, it gave the effect of making her look even taller.</p>
+
+<p>Though her body was slimmer, her shoulders looked broader.</p>
+
+<p>From her exposed delicate collarbones, he could tell she had undergone intense dieting.</p>
+
+<p>In that regard, the thought that no one would take her for a person who had given birth to three children crossed his mind, and Han-pan was momentarily flustered by a sensation he had never felt before creeping up in his heart, though he tried his best not to let it show.</p>
+
+<p>Regardless of his thoughts, Park Mi-ho approached him, reaching out her arms.</p>

@@ -9,7 +9,9 @@ chapter = 42
 
 <p>Won-cheol, sitting in the center of the sofa with his arms spread wide, had his hands on the backs of the two women sitting on either side of him. They were Eun-young and his fiancée, So-eun. Both were hunched over, their tongues flicking as they sucked on Won-cheol’s rock-hard, erect cock from both sides. Won-cheol had his eyes half-closed, his head tilted back as he savored their foreplay.</p>
 
-<p>Han-pan looked to the side and saw Mi-ho sprawled out next to Eun-young. She seemed to have fallen asleep, likely drunk. He turned his head back to the others, who were still engrossed in their intense foreplay. Han-pan couldn't believe the fact that a mother was sucking her own son’s cock alongside the woman who was about to become her daughter-in-law. He froze in place at the shocking sight. Yet, strangely, his own cock was reacting to the scene, standing tall.</p>
+<p>Han-pan looked to the side and saw Mi-ho sprawled out next to Eun-young. She seemed to have fallen asleep, likely drunk. He turned his head back to the others, who were still engrossed in their intense foreplay. Han-pan couldn't believe the fact that a mother was sucking her own son’s cock alongside the woman who was about to become her daughter-in-law.</p>
+
+<p>He froze in place at the shocking sight. Yet, strangely, his own cock was reacting to the scene, standing tall.</p>
 
 <p>Feeling Han-pan stiffen behind her, So-jo carefully closed the door. Han-pan watched the door close, feeling a lingering sense of regret as he straightened his posture. So-jo leaned in and whispered into his ear.</p>
 
@@ -39,7 +41,9 @@ chapter = 42
 
 <p>"Mmm... yeah... okay..."</p>
 
-<p>So-jo draped the unconscious Mi-ho’s arm over her neck, but she couldn't lift her easily. Han-pan stepped in to help, grabbing Mi-ho’s arm and putting it over his own neck before lifting her up at once. Mi-ho’s limp body hung heavily. Eun-young, who was nearby, helped her find her balance. After Eun-young slapped Mi-ho’s cheeks a few times, Mi-ho regained some consciousness and opened her eyes halfway.</p>
+<p>So-jo draped the unconscious Mi-ho’s arm over her neck, but she couldn't lift her easily. Han-pan stepped in to help, grabbing Mi-ho’s arm and putting it over his own neck before lifting her up at once. Mi-ho’s limp body hung heavily. Eun-young, who was nearby, helped her find her balance.</p>
+
+<p>After Eun-young slapped Mi-ho’s cheeks a few times, Mi-ho regained some consciousness and opened her eyes halfway.</p>
 
 <p>“Mmm... is that you, Han-pan?”</p>
 
@@ -59,7 +63,9 @@ chapter = 42
 
 <p>A moment later, their car arrived. Mi-ho and So-jo sat together in the back seat while Han-pan got into the passenger seat. Once the gisa arrived and was given the destination, the car started moving. After arriving home and sending the gisa away, Han-pan picked Mi-ho up in his arms again. He carried her to her room, and So-jo took over the rest.</p>
 
-<p>Han-pan went down to the living room, took off his jacket, and sat on the sofa. He let out a deep sigh. The drunkenness and exhaustion hit him all at once. He closed his eyes. A moment later, he heard the sound of high heels approaching. When he opened his eyes, So-jo was coming down to the living room. He thought her disheveled appearance was quite sexy. As he remembered the foreplay from earlier, blood began to rush to his cock.</p>
+<p>Han-pan went down to the living room, took off his jacket, and sat on the sofa. He let out a deep sigh. The drunkenness and exhaustion hit him all at once. He closed his eyes. A moment later, he heard the sound of high heels approaching. When he opened his eyes, So-jo was coming down to the living room. He thought her disheveled appearance was quite sexy.</p>
+
+<p>As he remembered the foreplay from earlier, blood began to rush to his cock.</p>
 
 <p>“How’s Mom?” Han-pan asked So-jo as she reached the living room.</p>
 
@@ -91,9 +97,13 @@ chapter = 42
 
 <p>“I’ll be the one to take those off…”</p>
 
-<p>Han-pan removed his hand, and So-jo leaned down to grab both sides of his panties. As she slowly pulled them down, his massive horse cock revealed its full majesty. So-jo was truly shocked to see something almost the same size as her dildo with her own eyes. She knew dildos were modeled after real men, but she had never imagined she would see one like this in person. She had never even considered that her own younger brother would have such a tool, but today was different.</p>
+<p>Han-pan removed his hand, and So-jo leaned down to grab both sides of his panties. As she slowly pulled them down, his massive horse cock revealed its full majesty. So-jo was truly shocked to see something almost the same size as her dildo with her own eyes. She knew dildos were modeled after real men, but she had never imagined she would see one like this in person.</p>
 
-<p>Moreover, the moment she imagined that thing entering her Jade Gate, she felt a thrilling stimulation surge through her entire body. She carefully removed his panties and tossed them aside. Then, she looked down at him intently. It felt like looking at a magnificent sculpture. His body wasn't just bulky like a gym rat; it felt delicately designed. The balance between his muscles was incredibly beautiful.</p>
+<p>She had never even considered that her own younger brother would have such a tool, but today was different.</p>
+
+<p>Moreover, the moment she imagined that thing entering her Jade Gate, she felt a thrilling stimulation surge through her entire body. She carefully removed his panties and tossed them aside. Then, she looked down at him intently. It felt like looking at a magnificent sculpture. His body wasn't just bulky like a gym rat; it felt delicately designed.</p>
+
+<p>The balance between his muscles was incredibly beautiful.</p>
 
 <p>But what captivated her most was, of course, his horse cock. The massive thing lay half-pressed against his belly, standing rock hard. It throbbed in time with his breathing, and his urethra was already slowly oozing clear nectar.</p>
 

@@ -15,11 +15,15 @@ chapter = 202
 
 <p>“It’s alright…”</p>
 
-<p>Han-pan approached her, pretending to give in.<br>
-Hye-su turned her body to face him.<br>
-He slowly unbuckled his belt and lowered his pants and drawers.<br>
-As he did, his slightly erect cock revealed its majesty.<br>
-Hye-su brought her hand to her mouth, wearing a look of surprise.</p>
+<p>Han-pan approached her, pretending to give in.</p>
+
+<p>Hye-su turned her body to face him.</p>
+
+<p>He slowly unbuckled his belt and lowered his pants and drawers.</p>
+
+<p>As he did, his slightly erect cock revealed its majesty.</p>
+
+<p>Hye-su brought her hand to her mouth, wearing a look of surprise.</p>
 
 <p>“Mmm… you’re quite large.”</p>
 
@@ -41,11 +45,15 @@ Hye-su brought her hand to her mouth, wearing a look of surprise.</p>
 
 <p>“Mmm… it’s too dark to see clearly… shall we go over there to take a look?”</p>
 
-<p>She stood up and headed toward the examination bed placed in the corner.<br>
-There was an oval-shaped LED light there, and she switched it on.<br>
-The examination bed was instantly bathed in bright light.<br>
-Han-pan liked how realistically she was playing the part.<br>
-He pulled his pants up slightly and waddled over to that side.</p>
+<p>She stood up and headed toward the examination bed placed in the corner.</p>
+
+<p>There was an oval-shaped LED light there, and she switched it on.</p>
+
+<p>The examination bed was instantly bathed in bright light.</p>
+
+<p>Han-pan liked how realistically she was playing the part.</p>
+
+<p>He pulled his pants up slightly and waddled over to that side.</p>
 
 <p>“Now… please sit down… and take off your pants and panties completely.”</p>
 
@@ -70,10 +78,13 @@ Hye-su reached her hand toward his cock and asked.</p>
 
 <p>“Ah, yes.”</p>
 
-<p>Han-pan spread his legs as wide as possible.<br>
-Hye-su leaned her head in to get a proper look at the affected area, her expression serious.<br>
-His cock was almost touching her head.<br>
-Hye-su gazed at it intently before speaking.</p>
+<p>Han-pan spread his legs as wide as possible.</p>
+
+<p>Hye-su leaned her head in to get a proper look at the affected area, her expression serious.</p>
+
+<p>His cock was almost touching her head.</p>
+
+<p>Hye-su gazed at it intently before speaking.</p>
 
 <p>“Usually, when a heat rash occurs, it doesn’t just appear in one spot… are there any other areas?”</p>
 
@@ -171,15 +182,23 @@ After watching him for about a minute, she spoke.</p>
 
 <p>“Good.”</p>
 
-<p>She slowly approached him and unbuttoned her long doctor’s gown one by one.<br>
-As she shrugged the garment off, the gown fell to the floor.<br>
-The figure revealed beneath the gown was a literal sex doll.<br>
-She was wearing a very thin, sleeveless turtleneck.<br>
-The cut was deep, exposing her cleavage, and surprisingly, she was wearing no bra, making her nipples clearly visible.<br>
-Her white skirt also seemed to be made of a thin nylon material, making it look almost translucent.<br>
-More than anything, what caught his gaze were the garter belt clips and the garter belt straps that hadn't been visible in the photo.<br>
-The long, connected garter belt straps rose vividly over her skirt.<br>
-Han-pan’s arousal heightened even further as he thought of her treating patients all day while wearing such obscene clothes.</p>
+<p>She slowly approached him and unbuttoned her long doctor’s gown one by one.</p>
+
+<p>As she shrugged the garment off, the gown fell to the floor.</p>
+
+<p>The figure revealed beneath the gown was a literal sex doll.</p>
+
+<p>She was wearing a very thin, sleeveless turtleneck.</p>
+
+<p>The cut was deep, exposing her cleavage, and surprisingly, she was wearing no bra, making her nipples clearly visible.</p>
+
+<p>Her white skirt also seemed to be made of a thin nylon material, making it look almost translucent.</p>
+
+<p>More than anything, what caught his gaze were the garter belt clips and the garter belt straps that hadn't been visible in the photo.</p>
+
+<p>The long, connected garter belt straps rose vividly over her skirt.</p>
+
+<p>Han-pan’s arousal heightened even further as he thought of her treating patients all day while wearing such obscene clothes.</p>
 
 <p>“Teacher, you look amazing…”</p>
 
@@ -205,20 +224,29 @@ Han-pan’s arousal heightened even further as he thought of her treating patien
 
 <p>“Ah, I see… that’s a good relationship.”</p>
 
-<p>He smirked at her.<br>
-Then Hye-su also smiled slowly and approached.<br>
-She grabbed the undersides of both his spread thighs and lifted them onto the bed.<br>
-This left his perineum completely exposed.<br>
-Not only his wrinkled testicles but even his anus vividly stimulated her eyes.</p>
+<p>He smirked at her.</p>
+
+<p>Then Hye-su also smiled slowly and approached.</p>
+
+<p>She grabbed the undersides of both his spread thighs and lifted them onto the bed.</p>
+
+<p>This left his perineum completely exposed.</p>
+
+<p>Not only his wrinkled testicles but even his anus vividly stimulated her eyes.</p>
 
 <p>“I need to provide a bit more stimulation… don’t be surprised…”</p>
 
-<p>After saying that, she leaned down and brought her face toward his perineum.<br>
-She softly blew air toward his anus.<br>
-The wind blowing against his perineum sent Han-pan’s arousal soaring.<br>
-After staring at his anus for a moment, Hye-su stuck out her tongue and first flicked it against his balls.<br>
-Then she slowly passed the perineum and headed toward the anus.<br>
-The moment her tongue touched his anus, Han-pan felt a jolt of electricity surge through his entire body.</p>
+<p>After saying that, she leaned down and brought her face toward his perineum.</p>
+
+<p>She softly blew air toward his anus.</p>
+
+<p>The wind blowing against his perineum sent Han-pan’s arousal soaring.</p>
+
+<p>After staring at his anus for a moment, Hye-su stuck out her tongue and first flicked it against his balls.</p>
+
+<p>Then she slowly passed the perineum and headed toward the anus.</p>
+
+<p>The moment her tongue touched his anus, Han-pan felt a jolt of electricity surge through his entire body.</p>
 
 <p>“Ah… Teacher…”</p>
 
@@ -231,11 +259,15 @@ Han-pan’s mind went hazy from her skilled rimjob.</p>
 
 <p>“Ahhh… Teacher… it feels too good… ahhh…”</p>
 
-<p>Han-pan screamed without realizing it.<br>
-Confirming his reaction, Hye-su extended one finger and pressed around the anal sphincter muscles as if giving a soft massage.<br>
-A moment later, Hye-su moved her lips to his balls, took them into her mouth, and sucked on them with a jjok sound.<br>
-At the same time, she slowly began to insert her index finger into his anus.<br>
-Han-pan said tensely.</p>
+<p>Han-pan screamed without realizing it.</p>
+
+<p>Confirming his reaction, Hye-su extended one finger and pressed around the anal sphincter muscles as if giving a soft massage.</p>
+
+<p>A moment later, Hye-su moved her lips to his balls, took them into her mouth, and sucked on them with a jjok sound.</p>
+
+<p>At the same time, she slowly began to insert her index finger into his anus.</p>
+
+<p>Han-pan said tensely.</p>
 
 <p>“Wait!”</p>
 
@@ -243,12 +275,17 @@ Han-pan said tensely.</p>
 
 <p>“It’s okay… trust me…”</p>
 
-<p>Han-pan could feel his cock expanding even further as his anus was stimulated by her finger.<br>
-It was an experience he was having for the very first time in his life.<br>
-At the same time, he felt a small sense of fear in this novel situation.<br>
-Hye-su rummaged through his anus with her finger until she found the protruding spot where the prostate was located.<br>
-She smirked and slowly scraped it with her finger.<br>
-Han-pan felt as if a powerful electric current was flowing through his entire body.</p>
+<p>Han-pan could feel his cock expanding even further as his anus was stimulated by her finger.</p>
+
+<p>It was an experience he was having for the very first time in his life.</p>
+
+<p>At the same time, he felt a small sense of fear in this novel situation.</p>
+
+<p>Hye-su rummaged through his anus with her finger until she found the protruding spot where the prostate was located.</p>
+
+<p>She smirked and slowly scraped it with her finger.</p>
+
+<p>Han-pan felt as if a powerful electric current was flowing through his entire body.</p>
 
 <p>“Ahhh… Teacher…”</p>
 
@@ -256,11 +293,15 @@ Han-pan felt as if a powerful electric current was flowing through his entire bo
 
 <p>“Uh… ah… I can’t explain this feeling…”</p>
 
-<p>While softly massaging his prostate with her finger like that, Hye-su positioned the beaker in front of his cock.<br>
-And as she strongly scraped the prostate with her finger, Han-pan’s mind instantly exploded.<br>
-At the same time, his balls contracted violently before releasing, sending a thick mass of liquid up through his urethral opening.<br>
-Like a dam bursting, streams of cum forcefully filled the beaker Hye-su was holding.<br>
-Han-pan’s body trembled violently from the prostate stimulation he was experiencing for the first time in his life.</p>
+<p>While softly massaging his prostate with her finger like that, Hye-su positioned the beaker in front of his cock.</p>
+
+<p>And as she strongly scraped the prostate with her finger, Han-pan’s mind instantly exploded.</p>
+
+<p>At the same time, his balls contracted violently before releasing, sending a thick mass of liquid up through his urethral opening.</p>
+
+<p>Like a dam bursting, streams of cum forcefully filled the beaker Hye-su was holding.</p>
+
+<p>Han-pan’s body trembled violently from the prostate stimulation he was experiencing for the first time in his life.</p>
 
 <p>“Ahhhhhhhhhhhhhhh…”</p>
 

@@ -5,11 +5,15 @@ weight = 129
 chapter = 129
 +++
 
-<p>Returning home, Han-pan found Miho sitting alone in the living room, watching TV.<br>
-Sensing his presence, Miho turned around and gave him a beaming smile as she saw him enter the house.<br>
-A movie was playing on the wall-mounted TV, and judging by the mood, it seemed to be a romantic one.<br>
-The thought that she might be feeling lonely suddenly flashed through his mind.<br>
-Han-pan smiled back and approached her.</p>
+<p>Returning home, Han-pan found Miho sitting alone in the living room, watching TV.</p>
+
+<p>Sensing his presence, Miho turned around and gave him a beaming smile as she saw him enter the house.</p>
+
+<p>A movie was playing on the wall-mounted TV, and judging by the mood, it seemed to be a romantic one.</p>
+
+<p>The thought that she might be feeling lonely suddenly flashed through his mind.</p>
+
+<p>Han-pan smiled back and approached her.</p>
 
 <p>“You were watching a movie…”</p>
 
@@ -100,11 +104,15 @@ After a moment, she stopped the kiss and spoke.</p>
 
 <p>“I think you’ve forgotten… Mom is in her mid-40s… You can’t really call me beautiful when you see the wrinkles around my eyes…”</p>
 
-<p>Han-pan looked at the corners of her eyes.<br>
-There were certainly faint wrinkles there, as was natural for her age, but her skin was exceptionally clean and possessed a smooth elasticity that couldn't even be compared to others her age.<br>
-Her face could easily pass for someone in her 30s, but that maturity held a different kind of immense charm.<br>
-Young women simply didn't possess the alluring, seductive charm that only a mature woman could provide.<br>
-Since it was something that couldn't be judged by the physical body alone, he felt it was a shame that she was so conscious of her age.</p>
+<p>Han-pan looked at the corners of her eyes.</p>
+
+<p>There were certainly faint wrinkles there, as was natural for her age, but her skin was exceptionally clean and possessed a smooth elasticity that couldn't even be compared to others her age.</p>
+
+<p>Her face could easily pass for someone in her 30s, but that maturity held a different kind of immense charm.</p>
+
+<p>Young women simply didn't possess the alluring, seductive charm that only a mature woman could provide.</p>
+
+<p>Since it was something that couldn't be judged by the physical body alone, he felt it was a shame that she was so conscious of her age.</p>
 
 <p>“Mom… the wrinkles around your eyes aren't a flaw; they’re nothing compared to everything you’ve achieved so far… I’m sure there’s a wonderful man out there who will love a wonderful woman like you…”</p>
 
@@ -147,12 +155,17 @@ Her eyes widened as she saw it.</p>
 
 <p>“Hmm… kids these days are quite bold…”</p>
 
-<p>Han-pan showed her other things as well.<br>
-Her wide-eyed shock soon turned into intrigue.<br>
-Han-pan handed his phone over to her.<br>
-Miho took the phone and began reading the captions and looking at the photos that had been uploaded with interest.<br>
-After watching her for a while, Han-pan stopped her finger, scrolled back up, and tapped the link at the very top.<br>
-The screen changed, connecting to an app.</p>
+<p>Han-pan showed her other things as well.</p>
+
+<p>Her wide-eyed shock soon turned into intrigue.</p>
+
+<p>Han-pan handed his phone over to her.</p>
+
+<p>Miho took the phone and began reading the captions and looking at the photos that had been uploaded with interest.</p>
+
+<p>After watching her for a while, Han-pan stopped her finger, scrolled back up, and tapped the link at the very top.</p>
+
+<p>The screen changed, connecting to an app.</p>
 
 <p>‘OnlyFans’</p>
 
@@ -231,11 +244,15 @@ Dressed in comfortable clothes, she looked at the two of them acting affectionat
 
 <p>“Ah, of course, with this…”</p>
 
-<p>He looked down at his cock.<br>
-Their gazes instinctively followed his.<br>
-Han-pan wondered if he had said something wrong.<br>
-For a moment, he looked back and forth between Miho and So-jo in confusion.<br>
-Miho closed her eyes and slumped her back against the sofa.</p>
+<p>He looked down at his cock.</p>
+
+<p>Their gazes instinctively followed his.</p>
+
+<p>Han-pan wondered if he had said something wrong.</p>
+
+<p>For a moment, he looked back and forth between Miho and So-jo in confusion.</p>
+
+<p>Miho closed her eyes and slumped her back against the sofa.</p>
 
 <p>“Ah, I don’t know anymore…”</p>
 

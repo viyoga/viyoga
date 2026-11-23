@@ -49,7 +49,9 @@ chapter = 193
 
 <p>Han-pan looked at her with a wide, beaming smile.</p>
 
-<p>Leaving the company, Han-pan and Miho drove for nearly an hour before arriving at a shopping mall in the metropolitan area. It was a massive, American-style mall. Miho was deeply conflicted by his request. Wearing such clothes in such a bright, public place was incredibly embarrassing. She had never imagined wearing something that was barely acceptable in a dark club in a place filled with ordinary people.</p>
+<p>Leaving the company, Han-pan and Miho drove for nearly an hour before arriving at a shopping mall in the metropolitan area. It was a massive, American-style mall. Miho was deeply conflicted by his request. Wearing such clothes in such a bright, public place was incredibly embarrassing.</p>
+
+<p>She had never imagined wearing something that was barely acceptable in a dark club in a place filled with ordinary people.</p>
 
 <p>She felt a sense of absurdity at her son’s demand, but deep down, an inexplicable arousal began to surge. She wanted to feel the gaze of men once more, just as she had this morning. Furthermore, the idea of exposure in such an open place was a massive stimulation for her. An angel and a demon began a fierce battle within her heart.</p>
 
@@ -99,9 +101,13 @@ chapter = 193
 
 <p>A powerful sexual aura radiated from her face. Her lips, freshly painted with lipstick, stood out vividly. Large gold hoop earrings dangled from her ears, and a matching necklace hung around her neck. Though he had just grabbed whatever he saw, he thought they suited her quite well.</p>
 
-<p>But the highlight was, of course, the completely see-through blouse and the extremely short micro-mini skirt. The inside of the blouse was fully visible, and beneath the lace-decorated demi-bra, her big tits swayed firmly with every step she took. The micro-mini skirt sitting on her hips revealed almost the entirety of her legs. It was so short that if she leaned over even slightly, her panties would be visible.</p>
+<p>But the highlight was, of course, the completely see-through blouse and the extremely short micro-mini skirt. The inside of the blouse was fully visible, and beneath the lace-decorated demi-bra, her big tits swayed firmly with every step she took. The micro-mini skirt sitting on her hips revealed almost the entirety of her legs.</p>
 
-<p>Because the skirt had a thick waistband, her already slender waist looked even smaller, further emphasizing her breasts and buttocks. It was incredibly precarious. At the end of her long legs, she wore pink sandal-style high heels. They were extremely high, forcing her ankles to bend at more than a 45-degree angle. They looked to be at least 12cm high, with very thin straps barely holding her feet in place. The white pedicure on her toenails felt incredibly erotic.</p>
+<p>It was so short that if she leaned over even slightly, her panties would be visible.</p>
+
+<p>Because the skirt had a thick waistband, her already slender waist looked even smaller, further emphasizing her breasts and buttocks. It was incredibly precarious. At the end of her long legs, she wore pink sandal-style high heels. They were extremely high, forcing her ankles to bend at more than a 45-degree angle.</p>
+
+<p>They looked to be at least 12cm high, with very thin straps barely holding her feet in place. The white pedicure on her toenails felt incredibly erotic.</p>
 
 <p>It was perfect.</p>
 

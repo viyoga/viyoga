@@ -95,7 +95,11 @@ chapter = 116
 
 <p>Miho nodded at her words.</p>
 
-<p>“Right, like I said yesterday, this provides our family with peace and love, as well as pleasure. As long as other people don't know, it doesn't harm anyone… Of course, it will be embarrassing for me to look at Ju-seobang’s face from now on, but that’s a matter you’ll have to handle well on your own… and… well, honestly… although it’s a problem that you had a relationship with Han-pan when you have a fiancé… well, since it’s a family matter, let’s just let it slide. Kim So-jo, Kim Han-pan! You two went too far yesterday… apologize to Seo-ah separately, understood?”</p>
+<p>“Right, like I said yesterday, this provides our family with peace and love, as well as pleasure. As long as other people don't know, it doesn't harm anyone…</p>
+
+<p>Of course, it will be embarrassing for me to look at Ju-seobang’s face from now on, but that’s a matter you’ll have to handle well on your own… and… well, honestly… although it’s a problem that you had a relationship with Han-pan when you have a fiancé… well, since it’s a family matter, let’s just let it slide. Kim So-jo, Kim Han-pan!</p>
+
+<p>You two went too far yesterday… apologize to Seo-ah separately, understood?”</p>
 
 <p>Seo-ah nodded at her words. Simultaneously, So-jo and Han-pan nodded as well. Looking at them, Miho spoke.</p>
 

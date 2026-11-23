@@ -85,7 +85,9 @@ chapter = 130
 
 <p>Han-pan hesitated for a moment. It was a question about how he would take responsibility for her loneliness, since his own time with a girlfriend would naturally decrease the time he spent with her.</p>
 
-<p>For a moment, he imagined her having a relationship with another man. Immediately, he felt a surge of jealousy. Because he had branded her as his own possession, the thought was clearly unpleasant. It had been a fleeting thought born from seeing her loneliness last night, but she was undoubtedly his possession and his everything. He also had to admit that the arousal and thrill he experienced with her couldn't be found with any other woman.</p>
+<p>For a moment, he imagined her having a relationship with another man. Immediately, he felt a surge of jealousy. Because he had branded her as his own possession, the thought was clearly unpleasant. It had been a fleeting thought born from seeing her loneliness last night, but she was undoubtedly his possession and his everything.</p>
+
+<p>He also had to admit that the arousal and thrill he experienced with her couldn't be found with any other woman.</p>
 
 <p>Han-pan shook his head and spoke.</p>
 

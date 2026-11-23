@@ -5,10 +5,13 @@ weight = 135
 chapter = 135
 +++
 
-<p>Won-cheol possessed a vigorous lust befitting his prime age. <br>
-However, it often manifested as a significant problem for him: he simply could not stop masturbating. <br>
-He had been seeing a woman until recently, but his massive cock frequently caused issues. <br>
-The problem was that she would cry out in pain every time they had sex because his cock was just too big.</p>
+<p>Won-cheol possessed a vigorous lust befitting his prime age.</p>
+
+<p>However, it often manifested as a significant problem for him: he simply could not stop masturbating.</p>
+
+<p>He had been seeing a woman until recently, but his massive cock frequently caused issues.</p>
+
+<p>The problem was that she would cry out in pain every time they had sex because his cock was just too big.</p>
 
 <p>Two days ago, on a Friday evening no different from any other, Won-cheol went straight to a motel after his date with her. <br>
 He attempted to have sex, but seeing her in pain again immediately after insertion, he couldn't find any enjoyment in it. <br>
@@ -26,23 +29,32 @@ As he let out a heavy sigh, she spoke up hesitantly.</p>
 
 <p>「Actually... I think I have to break up with you...」</p>
 
-<p>Won-cheol was flustered by the sudden notice of separation, but she calmly explained her feelings as she watched him. <br>
-The conclusion was that his cock was so large it was agonizing for her every single time. <br>
-Since graduating high school, he had met several women, but she was the first one he truly liked, making her breakup notice incredibly painful. <br>
-He wondered if other women had suffered as well, but since they were already in his past, there was no way to know.</p>
+<p>Won-cheol was flustered by the sudden notice of separation, but she calmly explained her feelings as she watched him.</p>
+
+<p>The conclusion was that his cock was so large it was agonizing for her every single time.</p>
+
+<p>Since graduating high school, he had met several women, but she was the first one he truly liked, making her breakup notice incredibly painful.</p>
+
+<p>He wondered if other women had suffered as well, but since they were already in his past, there was no way to know.</p>
 
 <p>And so, he eventually broke up with her. Though he felt greatly discouraged, his longing for sex remained unchanged. <br>
 Being under the rule of intense hormones, he had to masturbate constantly yesterday and today just to soothe his cock, which filled with semen every single day.</p>
 
-<p>He glanced sideways and looked at Eun-young. <br>
-His mom, Eun-young, was an incredibly attractive woman. <br>
-Her sleek figure, outstanding style, and recent attire that didn't match her age were rapidly shifting his interest toward her, but she was his mother. <br>
-He wondered what it would be like if she weren't his mom, but he immediately shook his head, telling himself it was a ridiculous thought, and turned his eyes back to the tablet.</p>
+<p>He glanced sideways and looked at Eun-young.</p>
 
-<p>The screen was filled with provocative thumbnails, and he felt resentful that he wasn't one of the men in them. <br>
-The men in the thumbnails all held long, massive cocks like horses, and the women enjoyed them with expressions of pure ecstasy. <br>
-He felt pathetic, watching porn when there was an attractive woman right next to him. <br>
-He let out a long sigh.</p>
+<p>His mom, Eun-young, was an incredibly attractive woman.</p>
+
+<p>Her sleek figure, outstanding style, and recent attire that didn't match her age were rapidly shifting his interest toward her, but she was his mother.</p>
+
+<p>He wondered what it would be like if she weren't his mom, but he immediately shook his head, telling himself it was a ridiculous thought, and turned his eyes back to the tablet.</p>
+
+<p>The screen was filled with provocative thumbnails, and he felt resentful that he wasn't one of the men in them.</p>
+
+<p>The men in the thumbnails all held long, massive cocks like horses, and the women enjoyed them with expressions of pure ecstasy.</p>
+
+<p>He felt pathetic, watching porn when there was an attractive woman right next to him.</p>
+
+<p>He let out a long sigh.</p>
 
 <p>「Haaa....」</p>
 
@@ -70,7 +82,9 @@ He let out a long sigh.</p>
 It was a scene of a white woman sucking a giant cock. Panicked, he quickly flipped the tablet over. <br>
 His face turned a deep shade of crimson.</p>
 
-<p>「Won-cheol, you're a full-grown adult, and I don't want to nag you for watching things like that... No, actually, it's fortunate. Being sexually active means you're healthy... But watching it like that while your mom is right here is a bit much... well... I'll let it slide with a laugh this time... My, you're quite bold, aren't you? Hohoho... Still, you know that porn is all staged and doesn't happen in reality, right?」</p>
+<p>「Won-cheol, you're a full-grown adult, and I don't want to nag you for watching things like that... No, actually, it's fortunate. Being sexually active means you're healthy... But watching it like that while your mom is right here is a bit much... well... I'll let it slide with a laugh this time... My, you're quite bold, aren't you? Hohoho...</p>
+
+<p>Still, you know that porn is all staged and doesn't happen in reality, right?」</p>
 
 <p>As she said that, she suddenly remembered the fact that she masturbated by inserting a cucumber into her anus. <br>
 She quickly changed the subject.</p>
@@ -95,10 +109,13 @@ She quickly changed the subject.</p>
 
 <p>「Hmm... it seems there's something more... Tell me... Mom might be able to help.」</p>
 
-<p>As she spoke, she put down her phone, approached him, and gave him a warm hug while patting his back. <br>
-When her breasts touched his face, Won-cheol's mood lifted. <br>
-Her voluptuous breasts and figure were the pinnacle of femininity. <br>
-She definitely had a body that would be more attractive than any other woman if she were stripped bare.</p>
+<p>As she spoke, she put down her phone, approached him, and gave him a warm hug while patting his back.</p>
+
+<p>When her breasts touched his face, Won-cheol's mood lifted.</p>
+
+<p>Her voluptuous breasts and figure were the pinnacle of femininity.</p>
+
+<p>She definitely had a body that would be more attractive than any other woman if she were stripped bare.</p>
 
 <p>「Hurry and tell me... Mom will help you.」</p>
 
@@ -147,10 +164,13 @@ Seeing him like that, Eun-young gently stroked his arm once more.</p>
 
 <p>「Tell me... son... talk to Mom...」</p>
 
-<p>She moved closer and hugged him tightly. <br>
-Eun-young's breasts pressed against his face again, and in that moment, Won-cheol could feel his heart beating rapidly. <br>
-He pushed her away slightly and spoke. <br>
-His face was still flushed deep red.</p>
+<p>She moved closer and hugged him tightly.</p>
+
+<p>Eun-young's breasts pressed against his face again, and in that moment, Won-cheol could feel his heart beating rapidly.</p>
+
+<p>He pushed her away slightly and spoke.</p>
+
+<p>His face was still flushed deep red.</p>
 
 <p>「Fine... Mom... but you have to keep it an absolute secret, okay?」</p>
 
@@ -171,10 +191,13 @@ She blinked, wondering if she had momentarily misheard the words that his cock w
 
 <p>「Uh... and that's the reason you broke up with your girlfriend?」</p>
 
-<p>He nodded again. <br>
-She thought of the cucumber sleeping in the refrigerator. <br>
-Having never seen a dick larger than that 20-30cm object, she didn't think a Korean man could possess such a cock. <br>
-She nodded and said.</p>
+<p>He nodded again.</p>
+
+<p>She thought of the cucumber sleeping in the refrigerator.</p>
+
+<p>Having never seen a dick larger than that 20-30cm object, she didn't think a Korean man could possess such a cock.</p>
+
+<p>She nodded and said.</p>
 
 <p>「Well... Won-cheol... first of all... Korean men's cocks aren't that big... so... it might not be what you think.」</p>
 

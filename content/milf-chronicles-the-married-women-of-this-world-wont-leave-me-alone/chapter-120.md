@@ -131,17 +131,27 @@ He changed the subject again.</p>
 
 <p>「Ah... really, Noona, you have so many questions today... just follow my lead!」</p>
 
-<p>When he showed a bit of frustration, she turned back to the dressing room without another word.<br>
-Han-pan left the room, went out to the living room, and plopped down on the sofa.<br>
-A moment later, Seo-ah came out after changing.<br>
-As he requested, she came out wearing a fairly short A-line skirt; it was a plain black design that came down to the middle of her thighs.<br>
-For her top, she wore a thin, short-sleeved blouse, which was filled with her signature elegance.<br>
-Seo-ah Noona's unique elegance was certainly charming, but it didn't give off the feeling of a woman trying to seduce a man in bed.<br>
-He wanted her to understand the vibe he was looking for.<br>
-But unexpectedly, in one hand, she held the black high heels she had been holding earlier.<br>
-Coming down while looking at him, Seo-ah gave a shy smile, and Han-pan smiled back as he stood up and headed for the first floor first.<br>
-Seo-ah had put on the high heels, but perhaps because she hadn't worn them in a while, she struggled to find her balance for a few steps.<br>
-Han-pan thought that side of his Noona was cute.</p>
+<p>When he showed a bit of frustration, she turned back to the dressing room without another word.</p>
+
+<p>Han-pan left the room, went out to the living room, and plopped down on the sofa.</p>
+
+<p>A moment later, Seo-ah came out after changing.</p>
+
+<p>As he requested, she came out wearing a fairly short A-line skirt; it was a plain black design that came down to the middle of her thighs.</p>
+
+<p>For her top, she wore a thin, short-sleeved blouse, which was filled with her signature elegance.</p>
+
+<p>Seo-ah Noona's unique elegance was certainly charming, but it didn't give off the feeling of a woman trying to seduce a man in bed.</p>
+
+<p>He wanted her to understand the vibe he was looking for.</p>
+
+<p>But unexpectedly, in one hand, she held the black high heels she had been holding earlier.</p>
+
+<p>Coming down while looking at him, Seo-ah gave a shy smile, and Han-pan smiled back as he stood up and headed for the first floor first.</p>
+
+<p>Seo-ah had put on the high heels, but perhaps because she hadn't worn them in a while, she struggled to find her balance for a few steps.</p>
+
+<p>Han-pan thought that side of his Noona was cute.</p>
 
 <p>「Now then, Noonim, let's go to the department store.」</p>
 
@@ -169,31 +179,51 @@ Han-pan remembered that he had rarely seen her wear a skirt that rose above her 
 
 <p>「Huh? Ah, okay... I get it...」</p>
 
-<p>In fact, not just So-jo but Seo-ah as well had inherited Mi-ho's genes well, so her figure was nearly perfect.<br>
-The difference was that while So-jo had a soft yet firm feel, Seo-ah's body, which she disciplined with daily exercise, was firmness itself.<br>
-The sleekly defined thigh muscles were very prominent, shaping the lines of her legs.<br>
-The two soon headed to a nearby department store, and before long, they parked in the department store's parking lot and headed to the women's shoe section.<br>
-Amidst the various types of women's shoes lined up, Han-pan headed to the luxury shoe section where imported brands were gathered.<br>
-There were more diverse high heels there than he had expected.<br>
-Han-pan recommended various types of high heels to her.<br>
-The colors and designs varied, but every single one was a kill heel that looked to be at least 12cm high.<br>
-She tried on the ones he recommended, but she seemed to have trouble keeping her balance.<br>
-However, she soon got used to walking in kill heels thanks to her natural sense of balance.<br>
-As expected, wearing high heels made her figure stand out significantly.<br>
-Her breasts looked even larger, and their outlines were clearly defined.<br>
-The same went for her buttocks line along with her tightened waistline.<br>
-Han-pan instinctively forgot the fact that she was his Noona and was seized by an impulse to push her somewhere and have intense sex with her just like yesterday.<br>
-Han-pan and Seo-ah tried on several pairs of kill heels and shared their opinions.<br>
-The prices ranged from at least several hundred thousand to several million won, but Seo-ah didn't hesitate and bought all the high heels he recommended.<br>
-After purchasing an armful of high heels, they looked around and soon discovered a lingerie shop with striking, flashy decorations.<br>
-The interior was very luxurious, and the items worn by the decorated mannequins were also incredibly flamboyant.</p>
+<p>In fact, not just So-jo but Seo-ah as well had inherited Mi-ho's genes well, so her figure was nearly perfect.</p>
+
+<p>The difference was that while So-jo had a soft yet firm feel, Seo-ah's body, which she disciplined with daily exercise, was firmness itself.</p>
+
+<p>The sleekly defined thigh muscles were very prominent, shaping the lines of her legs.</p>
+
+<p>The two soon headed to a nearby department store, and before long, they parked in the department store's parking lot and headed to the women's shoe section.</p>
+
+<p>Amidst the various types of women's shoes lined up, Han-pan headed to the luxury shoe section where imported brands were gathered.</p>
+
+<p>There were more diverse high heels there than he had expected.</p>
+
+<p>Han-pan recommended various types of high heels to her.</p>
+
+<p>The colors and designs varied, but every single one was a kill heel that looked to be at least 12cm high.</p>
+
+<p>She tried on the ones he recommended, but she seemed to have trouble keeping her balance.</p>
+
+<p>However, she soon got used to walking in kill heels thanks to her natural sense of balance.</p>
+
+<p>As expected, wearing high heels made her figure stand out significantly.</p>
+
+<p>Her breasts looked even larger, and their outlines were clearly defined.</p>
+
+<p>The same went for her buttocks line along with her tightened waistline.</p>
+
+<p>Han-pan instinctively forgot the fact that she was his Noona and was seized by an impulse to push her somewhere and have intense sex with her just like yesterday.</p>
+
+<p>Han-pan and Seo-ah tried on several pairs of kill heels and shared their opinions.</p>
+
+<p>The prices ranged from at least several hundred thousand to several million won, but Seo-ah didn't hesitate and bought all the high heels he recommended.</p>
+
+<p>After purchasing an armful of high heels, they looked around and soon discovered a lingerie shop with striking, flashy decorations.</p>
+
+<p>The interior was very luxurious, and the items worn by the decorated mannequins were also incredibly flamboyant.</p>
 
 <p>『Agent Provocateur』</p>
 
-<p>Han-pan recognized it as the brand he had seen on the lingerie Mi-ho was wearing.<br>
-The shop felt obscene, but it didn't look cheap at all.<br>
-He sensed that the vibe it gave off—reminiscent of a high-class call girl—was no ordinary thing.<br>
-As Han-pan's gaze lingered there, Seo-ah also looked at the shop.</p>
+<p>Han-pan recognized it as the brand he had seen on the lingerie Mi-ho was wearing.</p>
+
+<p>The shop felt obscene, but it didn't look cheap at all.</p>
+
+<p>He sensed that the vibe it gave off—reminiscent of a high-class call girl—was no ordinary thing.</p>
+
+<p>As Han-pan's gaze lingered there, Seo-ah also looked at the shop.</p>
 
 <p>「Oh... I know this place...」</p>
 

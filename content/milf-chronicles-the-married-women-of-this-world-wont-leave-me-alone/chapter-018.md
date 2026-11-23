@@ -79,7 +79,9 @@ chapter = 18
 
 <p>“Ah… I’m a bit dizzy…”</p>
 
-<p>She emptied her glass and held it out to Eun-young. Eun-young refilled the empty glass and said, “Think of it lightly… You can manage him, and it’s good for you too… You might get cursed at a bit, but if you look at it another way, you’re forming a new relationship with the healthiest, most reliable person in the world… so what’s the big deal? And you know… a mother has a duty to make her son into a healthy man. The core of health is the release of lust… What’s the problem with using that a little? Even if you don’t know it, Han-pan is at an age where his lust is building up like crazy… I bet he’s doing a ton of masturbation… My Won-cheol was no joke. Hohoho.”</p>
+<p>She emptied her glass and held it out to Eun-young. Eun-young refilled the empty glass and said, “Think of it lightly… You can manage him, and it’s good for you too… You might get cursed at a bit, but if you look at it another way, you’re forming a new relationship with the healthiest, most reliable person in the world… so what’s the big deal?</p>
+
+<p>And you know… a mother has a duty to make her son into a healthy man. The core of health is the release of lust… What’s the problem with using that a little? Even if you don’t know it, Han-pan is at an age where his lust is building up like crazy… I bet he’s doing a ton of masturbation… My Won-cheol was no joke. Hohoho.”</p>
 
 <p>“Eonni, was Won-cheol like that too? Our Hyeong-woo was having such a hard time as well…” Mi-jo said.</p>
 

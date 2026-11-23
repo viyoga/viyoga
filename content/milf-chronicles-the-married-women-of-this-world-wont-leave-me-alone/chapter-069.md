@@ -5,11 +5,17 @@ weight = 69
 chapter = 69
 +++
 
-<p>A violent torrent of cum, like a fierce waterfall, battered and poured into her womb. It filled her womb so forcefully that it was impossible to tell how many spurts there were. Han-pan’s entire body shook from the orgasm that surged as the energy of ejaculation exploded out of him. The fact that he had injected his cum into his own mother provided him with an immense sense of catharsis. Shaking in a crucible of excitement, he fired his cum again and again. Mi-ho’s body trembled at the sensation of his cum flooding into her countless times. It was a special feeling she had never experienced before.</p>
+<p>A violent torrent of cum, like a fierce waterfall, battered and poured into her womb. It filled her womb so forcefully that it was impossible to tell how many spurts there were. Han-pan’s entire body shook from the orgasm that surged as the energy of ejaculation exploded out of him.</p>
 
-<p>With his cock still buried inside her, Han-pan and Mi-ho both shuddered, savoring the ecstatic joy of the orgasm being transmitted through their joined bodies. It was a completely new dimension of orgasm that neither had ever felt in their entire lives. As the last of the cum drained from Han-pan’s body, he felt the strength leave his limbs. He carefully lowered her to the floor, having had her pinned against the wall like a specimen.</p>
+<p>The fact that he had injected his cum into his own mother provided him with an immense sense of catharsis. Shaking in a crucible of excitement, he fired his cum again and again. Mi-ho’s body trembled at the sensation of his cum flooding into her countless times. It was a special feeling she had never experienced before.</p>
 
-<p>As his grip loosened, Mi-ho placed one foot on the floor, followed cautiously by the other. Han-pan took a step back. His strength was gone, and his legs were wobbling. It was the most violent and powerful sex he had ever experienced. Mi-ho, too, felt her whole body shaking from the brief but incredibly intense sex. She could feel the cum leaking out of her pussy and running down her thighs. Catching her breath, she leaned forward with her arms on her knees and her head bowed. Han-pan also panted, feeling the sudden wave of fatigue that follows ejaculation.</p>
+<p>With his cock still buried inside her, Han-pan and Mi-ho both shuddered, savoring the ecstatic joy of the orgasm being transmitted through their joined bodies. It was a completely new dimension of orgasm that neither had ever felt in their entire lives. As the last of the cum drained from Han-pan’s body, he felt the strength leave his limbs.</p>
+
+<p>He carefully lowered her to the floor, having had her pinned against the wall like a specimen.</p>
+
+<p>As his grip loosened, Mi-ho placed one foot on the floor, followed cautiously by the other. Han-pan took a step back. His strength was gone, and his legs were wobbling. It was the most violent and powerful sex he had ever experienced. Mi-ho, too, felt her whole body shaking from the brief but incredibly intense sex.</p>
+
+<p>She could feel the cum leaking out of her pussy and running down her thighs. Catching her breath, she leaned forward with her arms on her knees and her head bowed. Han-pan also panted, feeling the sudden wave of fatigue that follows ejaculation.</p>
 
 <p>For a while, the two stood there in silence, catching their breath and reflecting on what they had just done. After a moment, Mi-ho was the first to speak.</p>
 
@@ -29,7 +35,9 @@ chapter = 69
 
 <p>“Well… I’m honored…”</p>
 
-<p>She said as she stood up. When their eyes met, they both felt a laugh bubbling up. For a while, the smiles didn't leave their faces. After laughing together for a bit, they began to clean up the mess around them. Mi-ho carefully wiped the cum flowing down her thighs with wet wipes, got dressed, gave him a smile, and disappeared into her room. Han-pan watched her retreating back with a smile on his face.</p>
+<p>She said as she stood up. When their eyes met, they both felt a laugh bubbling up. For a while, the smiles didn't leave their faces. After laughing together for a bit, they began to clean up the mess around them. Mi-ho carefully wiped the cum flowing down her thighs with wet wipes, got dressed, gave him a smile, and disappeared into her room.</p>
+
+<p>Han-pan watched her retreating back with a smile on his face.</p>
 
 <p>There wasn't much conversation at breakfast that morning, but So-jo kept smiling as if she knew something. After breakfast, Han-pan returned to his room, pulled up the photos of Ban Mi-jo, and began working on them. Just then, he heard a presence outside his door. Han-pan quickly switched the monitor screen to something else and pretended to be busy.</p>
 

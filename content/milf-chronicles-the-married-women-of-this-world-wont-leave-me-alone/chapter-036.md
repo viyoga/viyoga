@@ -9,7 +9,9 @@ chapter = 36
 
 <p>He shifted his gaze slightly to look at So-jo.</p>
 
-<p>Meeting his eyes, So-jo bowed her head slightly. She pulled her body back, making a gesture as if telling him to take a good look. However, since the sun had almost completely set, only the light leaking from the streetlights and buildings illuminated her through the window. Though it was relatively dark, the line of her breasts, protruding prominently due to the thin knit, was clearly visible. Seeing how they were quite perky, he wondered if her underwear was the kind that boosted her volume.</p>
+<p>Meeting his eyes, So-jo bowed her head slightly. She pulled her body back, making a gesture as if telling him to take a good look. However, since the sun had almost completely set, only the light leaking from the streetlights and buildings illuminated her through the window.</p>
+
+<p>Though it was relatively dark, the line of her breasts, protruding prominently due to the thin knit, was clearly visible. Seeing how they were quite perky, he wondered if her underwear was the kind that boosted her volume.</p>
 
 <p>“Hmm… it’s dark so I can’t see well, but I think Noona’s body is truly wonderful… You have the best body in our house, haha.”</p>
 
@@ -83,7 +85,9 @@ chapter = 36
 
 <p>So-jo laughed cheerfully, seemingly in a great mood.</p>
 
-<p>Thus, they left Gangnam and headed toward Hannam-dong, where the party was being held. As they approached the location So-jo had marked on the navigation, the traffic began to stall. In the distance, the venue was visible, crowded with cars. Han-pan felt a surge of arousal at coming to such a large event after a long time. He had thought it was no big deal a moment ago, but now that they had arrived, he understood why So-jo had been pestering him to go quickly.</p>
+<p>Thus, they left Gangnam and headed toward Hannam-dong, where the party was being held. As they approached the location So-jo had marked on the navigation, the traffic began to stall. In the distance, the venue was visible, crowded with cars. Han-pan felt a surge of arousal at coming to such a large event after a long time.</p>
+
+<p>He had thought it was no big deal a moment ago, but now that they had arrived, he understood why So-jo had been pestering him to go quickly.</p>
 
 <p>The cars were backed up in a long line, forming a massive cloud-like chain. It seemed the traffic was slow because each car was dropping people off right in front of the venue. Judging by the rows of large vans, it seemed quite a few celebrities had arrived as well. After waiting in line for dozens of minutes, it was finally their turn.</p>
 

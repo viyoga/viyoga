@@ -5,15 +5,23 @@ weight = 191
 chapter = 191
 +++
 
-<p>Han-pan had lunch with Hye-su and Su-ah, returned to the hospital, and parted ways after telling them he would see them tomorrow.<br>
-He headed to the underground parking lot and climbed into Miho’s car.<br>
-After starting the engine and checking the time, it was nearly 2:00 PM.<br>
-Since it was too early to go see Miho, he pondered how to kill the boring time when Kim Seo-ah came to mind.<br>
-He immediately drove his car toward her pilates center.<br>
-It took a little over thirty minutes to arrive at her center.<br>
-After parking the car in the building's basement, he went up to the center.<br>
-As he entered the first-floor entrance, the woman at the desk smiled brightly and greeted him.<br>
-She was a different woman than the one he had seen before.</p>
+<p>Han-pan had lunch with Hye-su and Su-ah, returned to the hospital, and parted ways after telling them he would see them tomorrow.</p>
+
+<p>He headed to the underground parking lot and climbed into Miho’s car.</p>
+
+<p>After starting the engine and checking the time, it was nearly 2:00 PM.</p>
+
+<p>Since it was too early to go see Miho, he pondered how to kill the boring time when Kim Seo-ah came to mind.</p>
+
+<p>He immediately drove his car toward her pilates center.</p>
+
+<p>It took a little over thirty minutes to arrive at her center.</p>
+
+<p>After parking the car in the building's basement, he went up to the center.</p>
+
+<p>As he entered the first-floor entrance, the woman at the desk smiled brightly and greeted him.</p>
+
+<p>She was a different woman than the one he had seen before.</p>
 
 <p>“Hello, how can I help you?”</p>
 
@@ -51,11 +59,15 @@ While he was killing time looking at his phone for a while, someone called his n
 
 <p>“Ah, Noona.”</p>
 
-<p>She was dressed exactly as she had been in the photo she sent earlier.<br>
-She was wearing a subtle pink sports bra and cream-colored leggings with a short rise that fully exposed her waist.<br>
-Her appearance, with her long hair neatly tied in a ponytail, was quite impressive.<br>
-His eyes naturally drifted toward her massive breasts and buttocks.<br>
-Aware of his gaze, Seo-ah gave a shy laugh.</p>
+<p>She was dressed exactly as she had been in the photo she sent earlier.</p>
+
+<p>She was wearing a subtle pink sports bra and cream-colored leggings with a short rise that fully exposed her waist.</p>
+
+<p>Her appearance, with her long hair neatly tied in a ponytail, was quite impressive.</p>
+
+<p>His eyes naturally drifted toward her massive breasts and buttocks.</p>
+
+<p>Aware of his gaze, Seo-ah gave a shy laugh.</p>
 
 <p>“What brings you here so suddenly without calling?”</p>
 
@@ -126,11 +138,15 @@ Han-pan looked at the cafe and said,</p>
 
 <p>“That’s what being hip is.”</p>
 
-<p>The two stepped inside the cafe.<br>
-There were quite a few people inside, and surprisingly, there were many men.<br>
-As Seo-ah entered, Han-pan could feel the eyes of several men who were talking with their groups glancing at her.<br>
-In that moment, his playful spirit was triggered.<br>
-Han-pan shrugged and stepped closer to her side.</p>
+<p>The two stepped inside the cafe.</p>
+
+<p>There were quite a few people inside, and surprisingly, there were many men.</p>
+
+<p>As Seo-ah entered, Han-pan could feel the eyes of several men who were talking with their groups glancing at her.</p>
+
+<p>In that moment, his playful spirit was triggered.</p>
+
+<p>Han-pan shrugged and stepped closer to her side.</p>
 
 <p>“What are you going to drink?”</p>
 
@@ -146,11 +162,15 @@ Han-pan shrugged and stepped closer to her side.</p>
 
 <p>“Give those guys a little treat.”</p>
 
-<p>Hesitating for a moment at his words, she glanced at the men, and after a few moments of hesitation, she slowly bent her body nearly 90 degrees, resting her palms on the glass of the cake showcase.<br>
-Her buttocks protruded prominently behind her.<br>
-Immediately, several men shifted their gaze to her buttocks mid-conversation.<br>
-She wiggled her body slightly, and the men’s eyes intensely fixated on her form.<br>
-After a few seconds like that, Han-pan looked at the menu and spoke.</p>
+<p>Hesitating for a moment at his words, she glanced at the men, and after a few moments of hesitation, she slowly bent her body nearly 90 degrees, resting her palms on the glass of the cake showcase.</p>
+
+<p>Her buttocks protruded prominently behind her.</p>
+
+<p>Immediately, several men shifted their gaze to her buttocks mid-conversation.</p>
+
+<p>She wiggled her body slightly, and the men’s eyes intensely fixated on her form.</p>
+
+<p>After a few seconds like that, Han-pan looked at the menu and spoke.</p>
 
 <p>“I’ll just have an iced Americano.”</p>
 
@@ -160,16 +180,25 @@ After a few seconds like that, Han-pan looked at the menu and spoke.</p>
 
 <p>“Two iced Americanos, please.”</p>
 
-<p>She ordered the coffee from the employee and held out her phone to make the payment.<br>
-Han-pan and Seo-ah moved to the area where they would receive their coffee.<br>
-While waiting for the coffee, Han-pan told her to sit at the very back of the cafe.<br>
-Seo-ah nodded, walked slowly toward the back, and sat at an empty table.<br>
-The men who had been watching her slowly turned their heads as she passed, stealing glances at her.<br>
-Soon, the ordered coffee was ready.<br>
-Han-pan tilted his head, urging her to head out.<br>
-As Seo-ah passed by, the men once again cast their gazes over her physique.<br>
-Han-pan handed the coffee to her as she approached and left the cafe with her.<br>
-Once outside, he took a long sip of his coffee.</p>
+<p>She ordered the coffee from the employee and held out her phone to make the payment.</p>
+
+<p>Han-pan and Seo-ah moved to the area where they would receive their coffee.</p>
+
+<p>While waiting for the coffee, Han-pan told her to sit at the very back of the cafe.</p>
+
+<p>Seo-ah nodded, walked slowly toward the back, and sat at an empty table.</p>
+
+<p>The men who had been watching her slowly turned their heads as she passed, stealing glances at her.</p>
+
+<p>Soon, the ordered coffee was ready.</p>
+
+<p>Han-pan tilted his head, urging her to head out.</p>
+
+<p>As Seo-ah passed by, the men once again cast their gazes over her physique.</p>
+
+<p>Han-pan handed the coffee to her as she approached and left the cafe with her.</p>
+
+<p>Once outside, he took a long sip of his coffee.</p>
 
 <p>“Ah, so refreshing.”</p>
 
@@ -238,11 +267,15 @@ At his words, her face turned quite red.</p>
 
 <p>“What does it matter? That day was incredible… You were amazing too, Noona, hehe.”</p>
 
-<p>After finishing his sentence, he looked around.<br>
-Confirming there were no people watching them, he firmly gripped Seo-ah’s buttocks with one hand.<br>
-He couldn’t feel any panty lines.<br>
-Confirming that she was either wearing no panties or string panties, a smile spread across Han-pan’s lips.<br>
-At the same time, he felt her firm gluteal muscles in his hand.</p>
+<p>After finishing his sentence, he looked around.</p>
+
+<p>Confirming there were no people watching them, he firmly gripped Seo-ah’s buttocks with one hand.</p>
+
+<p>He couldn’t feel any panty lines.</p>
+
+<p>Confirming that she was either wearing no panties or string panties, a smile spread across Han-pan’s lips.</p>
+
+<p>At the same time, he felt her firm gluteal muscles in his hand.</p>
 
 <p>“Hey!”</p>
 
@@ -255,13 +288,19 @@ It was stronger than he expected.</p>
 
 <p>“No, no, I’m just adapting quickly to the family… including you, Noona… When should we have our next education session?”</p>
 
-<p>Seeing her eyebrows slant into an inverted 'V' as she prepared to strike him again, Han-pan quickly ran ahead and entered the center.<br>
-Seo-ah watched his back view, let out a sigh, and followed him into the center.<br>
-Inside the center, the two shared various stories.<br>
-He talked about how he had recently started teaching exercise and his ambition to work on the visual-creation side of things in the future.<br>
-Of course, he chose his words carefully, restraining the obscene talk about things like OnlyFans as much as possible.<br>
-Seo-ah listened to his story seriously.<br>
-As time passed and her next lesson approached, she stood up from her seat.</p>
+<p>Seeing her eyebrows slant into an inverted 'V' as she prepared to strike him again, Han-pan quickly ran ahead and entered the center.</p>
+
+<p>Seo-ah watched his back view, let out a sigh, and followed him into the center.</p>
+
+<p>Inside the center, the two shared various stories.</p>
+
+<p>He talked about how he had recently started teaching exercise and his ambition to work on the visual-creation side of things in the future.</p>
+
+<p>Of course, he chose his words carefully, restraining the obscene talk about things like OnlyFans as much as possible.</p>
+
+<p>Seo-ah listened to his story seriously.</p>
+
+<p>As time passed and her next lesson approached, she stood up from her seat.</p>
 
 <p>“I should get going now.”</p>
 
@@ -295,15 +334,23 @@ As time passed and her next lesson approached, she stood up from her seat.</p>
 
 <p>“Weak? I’m offering to use my precious time for you, so you should be grateful.”</p>
 
-<p>After rolling her eyes for a moment, Seo-ah put on a shy expression and brought both hands to her waist.<br>
-Then, she tucked her fingers into the waistband where her leggings began.<br>
-Slowly, the waistband was pulled down, and Han-pan’s eyes were intensely fixed on her pelvis.<br>
-A moment later, beige string panties, the same color as the leggings he had seen in the photo, were revealed.<br>
-Seeing his bloodshot eyes, she twisted her body to show him the back as well.<br>
-It wasn't just string panties; it was a G-string where only a single line passed through.<br>
-Han-pan liked Seo-ah Noona’s rapid transformation.<br>
-No matter how modest she acted, she was ultimately Miho’s daughter and So-jo’s older sister.<br>
-Like mother, like sister, like Noona.</p>
+<p>After rolling her eyes for a moment, Seo-ah put on a shy expression and brought both hands to her waist.</p>
+
+<p>Then, she tucked her fingers into the waistband where her leggings began.</p>
+
+<p>Slowly, the waistband was pulled down, and Han-pan’s eyes were intensely fixed on her pelvis.</p>
+
+<p>A moment later, beige string panties, the same color as the leggings he had seen in the photo, were revealed.</p>
+
+<p>Seeing his bloodshot eyes, she twisted her body to show him the back as well.</p>
+
+<p>It wasn't just string panties; it was a G-string where only a single line passed through.</p>
+
+<p>Han-pan liked Seo-ah Noona’s rapid transformation.</p>
+
+<p>No matter how modest she acted, she was ultimately Miho’s daughter and So-jo’s older sister.</p>
+
+<p>Like mother, like sister, like Noona.</p>
 
 <p>“Hmm…”</p>
 

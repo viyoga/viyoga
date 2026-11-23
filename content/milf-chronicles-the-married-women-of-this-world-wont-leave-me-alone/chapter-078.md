@@ -5,12 +5,17 @@ weight = 78
 chapter = 78
 +++
 
-<p>Realizing he was all alone in the empty house upon arriving home, Han-pan went straight to his room.<br>
-Sitting in front of his computer, he logged onto a shooting game online for the first time in a while and enjoyed himself.<br>
-After some time had passed, he heard the sound of a car pulling into the driveway.<br>
-Intuiting that his mom had arrived, Han-pan stopped his game and went down to the living room.<br>
-There, he saw Mi-ho coming in, carrying various bags as if she had done a massive amount of grocery shopping.<br>
-He sprang into action, taking the luggage from her and placing it on the island table in the kitchen.</p>
+<p>Realizing he was all alone in the empty house upon arriving home, Han-pan went straight to his room.</p>
+
+<p>Sitting in front of his computer, he logged onto a shooting game online for the first time in a while and enjoyed himself.</p>
+
+<p>After some time had passed, he heard the sound of a car pulling into the driveway.</p>
+
+<p>Intuiting that his mom had arrived, Han-pan stopped his game and went down to the living room.</p>
+
+<p>There, he saw Mi-ho coming in, carrying various bags as if she had done a massive amount of grocery shopping.</p>
+
+<p>He sprang into action, taking the luggage from her and placing it on the island table in the kitchen.</p>
 
 <p>"As expected, my son is so strong!"</p>
 
@@ -94,12 +99,17 @@ Seeing him following, she asked with a questioning look,</p>
 
 <p>"Honestly, this boy... go to your room!"</p>
 
-<p>Seeing Mi-ho's strict motherly face emerge, Han-pan felt a prick of conscience.<br>
-Watching her alternate between being a mother and a woman, Han-pan read her mood and then headed to his own room.<br>
-Just then, he spotted So-jo, who had returned home.<br>
-He waved his hand at her as she was coming up from the living room to the second floor.<br>
-So-jo saw him and waved back with a bright smile.<br>
-She realized Mi-ho was back when she saw Mi-ho's handbag on the island table.</p>
+<p>Seeing Mi-ho's strict motherly face emerge, Han-pan felt a prick of conscience.</p>
+
+<p>Watching her alternate between being a mother and a woman, Han-pan read her mood and then headed to his own room.</p>
+
+<p>Just then, he spotted So-jo, who had returned home.</p>
+
+<p>He waved his hand at her as she was coming up from the living room to the second floor.</p>
+
+<p>So-jo saw him and waved back with a bright smile.</p>
+
+<p>She realized Mi-ho was back when she saw Mi-ho's handbag on the island table.</p>
 
 <p>"Where's Mom?"</p>
 
@@ -113,27 +123,43 @@ Han-pan flinched at her unexpected action.</p>
 
 <p>"Look at you getting startled... hohoho."</p>
 
-<p>She said that and disappeared into her room.<br>
-Han-pan looked at the passage where the two women had vanished, smiled, and turned back to his room.<br>
-Then, he resumed the game he had been playing earlier.<br>
-A short while passed.<br>
-Someone knocked on his door and entered.<br>
-Han-pan took off his headphones and looked at her.</p>
+<p>She said that and disappeared into her room.</p>
+
+<p>Han-pan looked at the passage where the two women had vanished, smiled, and turned back to his room.</p>
+
+<p>Then, he resumed the game he had been playing earlier.</p>
+
+<p>A short while passed.</p>
+
+<p>Someone knocked on his door and entered.</p>
+
+<p>Han-pan took off his headphones and looked at her.</p>
 
 <p>"Mom says it's time to eat."</p>
 
-<p>Han-pan checked the time.<br>
-Quite a bit of time had passed in the interim.<br>
-After turning off the game and heading down to the living room, he found Mi-ho preparing a delicious dinner.<br>
-She was wearing very short shorts and a thin white T-shirt.<br>
-So-jo was also wearing the black dolphin shorts she often wore, paired with a thin, pink short-sleeved shirt.<br>
-The three of them ate dinner just like any other day, as if nothing had happened.<br>
-They exchanged stories about various things that had occurred during their day.<br>
-Dinner ended.<br>
-Han-pan helped clean up after the meal and then went straight to his room.<br>
-He was very curious about what kind of feedback Ban Mi-jo would give regarding the photos she showed her husband today.<br>
-He checked his phone messages, but there was nothing special.<br>
-He sent a text to Park Hye-sun.</p>
+<p>Han-pan checked the time.</p>
+
+<p>Quite a bit of time had passed in the interim.</p>
+
+<p>After turning off the game and heading down to the living room, he found Mi-ho preparing a delicious dinner.</p>
+
+<p>She was wearing very short shorts and a thin white T-shirt.</p>
+
+<p>So-jo was also wearing the black dolphin shorts she often wore, paired with a thin, pink short-sleeved shirt.</p>
+
+<p>The three of them ate dinner just like any other day, as if nothing had happened.</p>
+
+<p>They exchanged stories about various things that had occurred during their day.</p>
+
+<p>Dinner ended.</p>
+
+<p>Han-pan helped clean up after the meal and then went straight to his room.</p>
+
+<p>He was very curious about what kind of feedback Ban Mi-jo would give regarding the photos she showed her husband today.</p>
+
+<p>He checked his phone messages, but there was nothing special.</p>
+
+<p>He sent a text to Park Hye-sun.</p>
 
 <p>&lt;Hello~! Hope you've been well?&gt;</p>
 
@@ -155,11 +181,15 @@ He sent a text to Park Hye-sun.</p>
 
 <p>&lt;I saw the photos you took with Mi-jo!&gt;</p>
 
-<p>Han-pan was momentarily surprised to realize that Ban Mi-jo had shared the photos with her.<br>
-That meant there was a high possibility that Eun-young had seen them too.<br>
-Han-pan conjectured that she might have posted the photos in their group chat.<br>
-Which meant it was safe to assume Mi-ho had seen them as well.<br>
-Feeling a bit nervous, Han-pan hesitated for a moment on how to respond before sending a text.</p>
+<p>Han-pan was momentarily surprised to realize that Ban Mi-jo had shared the photos with her.</p>
+
+<p>That meant there was a high possibility that Eun-young had seen them too.</p>
+
+<p>Han-pan conjectured that she might have posted the photos in their group chat.</p>
+
+<p>Which meant it was safe to assume Mi-ho had seen them as well.</p>
+
+<p>Feeling a bit nervous, Han-pan hesitated for a moment on how to respond before sending a text.</p>
 
 <p>&lt;Haha, I see... I wonder how much you saw...&gt;</p>
 
@@ -187,18 +217,29 @@ Feeling a bit nervous, Han-pan hesitated for a moment on how to respond before s
 
 <p>&lt;Sure, sure.&gt;</p>
 
-<p>After sending the text, Han-pan tossed his phone onto the bed.<br>
-The story seemed to be unfolding quite interestingly.<br>
-Han-pan didn't know exactly when Ban Mi-jo had shared the photos, but he thought it might have been around dinner time.<br>
-Han-pan suddenly wondered what the two women were doing.<br>
-He left his room and went down to the living room.<br>
-There, he found the two of them sitting side-by-side on the sofa, watching a movie.<br>
-It was a foreign film, seemingly a sci-fi piece.<br>
-The two of them seemed to be chatting amiably while drinking wine.<br>
-Han-pan walked over with long strides, and after glancing at him for a moment, they smiled and focused back on the movie.<br>
-He boldly pushed his way between the two women and sat down.<br>
-The two women laughed and made space so he could sit between them.<br>
-It looked like the movie hadn't been on for very long.</p>
+<p>After sending the text, Han-pan tossed his phone onto the bed.</p>
+
+<p>The story seemed to be unfolding quite interestingly.</p>
+
+<p>Han-pan didn't know exactly when Ban Mi-jo had shared the photos, but he thought it might have been around dinner time.</p>
+
+<p>Han-pan suddenly wondered what the two women were doing.</p>
+
+<p>He left his room and went down to the living room.</p>
+
+<p>There, he found the two of them sitting side-by-side on the sofa, watching a movie.</p>
+
+<p>It was a foreign film, seemingly a sci-fi piece.</p>
+
+<p>The two of them seemed to be chatting amiably while drinking wine.</p>
+
+<p>Han-pan walked over with long strides, and after glancing at him for a moment, they smiled and focused back on the movie.</p>
+
+<p>He boldly pushed his way between the two women and sat down.</p>
+
+<p>The two women laughed and made space so he could sit between them.</p>
+
+<p>It looked like the movie hadn't been on for very long.</p>
 
 <p>"What were you guys talking about?"</p>
 
@@ -218,26 +259,48 @@ Then Mi-ho spoke up.</p>
 
 <p>"Ha, I see."</p>
 
-<p>Han-pan boldly spread both arms and wrapped them around their shoulders.<br>
-The two women leaned into his embrace without any resistance.<br>
-The movie continued to play, but it didn't really register with Han-pan.<br>
-The same was true for Mi-ho and So-jo.<br>
-A moment later, So-jo's hand slid up his thigh.<br>
-Feeling her movement, Mi-ho watched for a second before placing her own hand on his thigh and slowly moving it toward his cock.<br>
-Han-pan looked back and forth between So-jo and Mi-ho's faces.<br>
-Both had smiles playing on their lips.<br>
-Han-pan moved his hand from the shoulder of So-jo, who was sitting on his left, grabbed the back of her head, and pulled her toward him.<br>
-Naturally, she puckered her lips, and Han-pan did the same.<br>
-Their lips met naturally.<br>
-Soon, their tongues emerged and became entangled.<br>
-After enjoying the kiss with So-jo for a few minutes, Mi-ho grabbed his chin and turned him toward her.<br>
-Then Han-pan shared a kiss with Mi-ho.<br>
-Their tongues intertwined.<br>
-In that manner, Han-pan alternated between the two, sharing kisses.<br>
-While they were kissing, Mi-ho and So-jo's hands stroked his cock, which stood rock-hard inside his pants.<br>
-After a while, Han-pan stopped the kissing, placed his hands on the backs of Mi-ho and So-jo's heads, and pulled them toward the center.<br>
-The two of them quickly understood the meaning.<br>
-Soon, Mi-ho and So-jo's lips met.<br>
-Their lips brushed against each other a few times before So-jo's tongue came out and entered Mi-ho's mouth.<br>
-Soon, they were swirling their tongues together.<br>
-Watching their passionate kiss, Han-pan reached down and fondled their breasts.</p>
+<p>Han-pan boldly spread both arms and wrapped them around their shoulders.</p>
+
+<p>The two women leaned into his embrace without any resistance.</p>
+
+<p>The movie continued to play, but it didn't really register with Han-pan.</p>
+
+<p>The same was true for Mi-ho and So-jo.</p>
+
+<p>A moment later, So-jo's hand slid up his thigh.</p>
+
+<p>Feeling her movement, Mi-ho watched for a second before placing her own hand on his thigh and slowly moving it toward his cock.</p>
+
+<p>Han-pan looked back and forth between So-jo and Mi-ho's faces.</p>
+
+<p>Both had smiles playing on their lips.</p>
+
+<p>Han-pan moved his hand from the shoulder of So-jo, who was sitting on his left, grabbed the back of her head, and pulled her toward him.</p>
+
+<p>Naturally, she puckered her lips, and Han-pan did the same.</p>
+
+<p>Their lips met naturally.</p>
+
+<p>Soon, their tongues emerged and became entangled.</p>
+
+<p>After enjoying the kiss with So-jo for a few minutes, Mi-ho grabbed his chin and turned him toward her.</p>
+
+<p>Then Han-pan shared a kiss with Mi-ho.</p>
+
+<p>Their tongues intertwined.</p>
+
+<p>In that manner, Han-pan alternated between the two, sharing kisses.</p>
+
+<p>While they were kissing, Mi-ho and So-jo's hands stroked his cock, which stood rock-hard inside his pants.</p>
+
+<p>After a while, Han-pan stopped the kissing, placed his hands on the backs of Mi-ho and So-jo's heads, and pulled them toward the center.</p>
+
+<p>The two of them quickly understood the meaning.</p>
+
+<p>Soon, Mi-ho and So-jo's lips met.</p>
+
+<p>Their lips brushed against each other a few times before So-jo's tongue came out and entered Mi-ho's mouth.</p>
+
+<p>Soon, they were swirling their tongues together.</p>
+
+<p>Watching their passionate kiss, Han-pan reached down and fondled their breasts.</p>

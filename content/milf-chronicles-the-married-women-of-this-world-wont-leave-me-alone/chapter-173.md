@@ -5,15 +5,23 @@ weight = 173
 chapter = 173
 +++
 
-<p>Hwang Yu-hui led Han-pan into the living room.<br>
-As he stepped inside, he was met with an incredibly spacious living area.<br>
-He scanned the interior.<br>
-For a pastor’s home, the decor was strikingly modern and boasted a significant scale.<br>
-Even for someone like him, who lived in a house others would envy, the sheer size of the place was intimidating.<br>
-The overall tone of the house was a sophisticated blend of black and grey, and the solid wood furniture placed throughout looked exceptionally high-end.<br>
-This wasn't just ordinary taste.<br>
-The mood of the house was so refined that it felt more appropriate to call it the home of a successful entrepreneur.<br>
-It seemed no one else was home besides her.</p>
+<p>Hwang Yu-hui led Han-pan into the living room.</p>
+
+<p>As he stepped inside, he was met with an incredibly spacious living area.</p>
+
+<p>He scanned the interior.</p>
+
+<p>For a pastor’s home, the decor was strikingly modern and boasted a significant scale.</p>
+
+<p>Even for someone like him, who lived in a house others would envy, the sheer size of the place was intimidating.</p>
+
+<p>The overall tone of the house was a sophisticated blend of black and grey, and the solid wood furniture placed throughout looked exceptionally high-end.</p>
+
+<p>This wasn't just ordinary taste.</p>
+
+<p>The mood of the house was so refined that it felt more appropriate to call it the home of a successful entrepreneur.</p>
+
+<p>It seemed no one else was home besides her.</p>
 
 <p>「The house is truly wonderful. The interior, especially, is so modern and stylish,」 Han-pan said, his voice slightly excited as he looked around the living room.</p>
 
@@ -38,21 +46,33 @@ It seemed no one else was home besides her.</p>
 
 <p>「Of course, just sit on the sofa and wait a moment.」</p>
 
-<p>She said with a bright smile.<br>
-Then, she turned her body and disappeared to one side.<br>
-As Han-pan sat down, he stared at her back view.<br>
-The silhouette of her backside as she turned away was incredibly sexy.<br>
-True to the Dongtan Missy look, the line of her dress as it traced down her entire body was fantastic.<br>
-With her hair swept up, the silhouette of her whole body stimulated him.<br>
-In particular, her hip line was substantial, creating the illusion that he was looking at a Latina woman’s curves.<br>
-With a perfect S-line, she possessed the allure that could only be felt from a fully mature woman.</p>
+<p>She said with a bright smile.</p>
 
-<p>After she disappeared, Han-pan looked around.<br>
-A large TV hung on one side, and on the opposite side, a massive glass wall allowed him to see outside.<br>
-The outdoor garden was very neatly manicured and was larger than he expected.<br>
-It was almost like a small park had been created there.<br>
-Han-pan wondered just how much Pastor Byeon’s income was.<br>
-Furthermore, since the business card he had previously received from Hwang Yu-hui held the title of CEO, he could guess from this house that she also had many sources of income.</p>
+<p>Then, she turned her body and disappeared to one side.</p>
+
+<p>As Han-pan sat down, he stared at her back view.</p>
+
+<p>The silhouette of her backside as she turned away was incredibly sexy.</p>
+
+<p>True to the Dongtan Missy look, the line of her dress as it traced down her entire body was fantastic.</p>
+
+<p>With her hair swept up, the silhouette of her whole body stimulated him.</p>
+
+<p>In particular, her hip line was substantial, creating the illusion that he was looking at a Latina woman’s curves.</p>
+
+<p>With a perfect S-line, she possessed the allure that could only be felt from a fully mature woman.</p>
+
+<p>After she disappeared, Han-pan looked around.</p>
+
+<p>A large TV hung on one side, and on the opposite side, a massive glass wall allowed him to see outside.</p>
+
+<p>The outdoor garden was very neatly manicured and was larger than he expected.</p>
+
+<p>It was almost like a small park had been created there.</p>
+
+<p>Han-pan wondered just how much Pastor Byeon’s income was.</p>
+
+<p>Furthermore, since the business card he had previously received from Hwang Yu-hui held the title of CEO, he could guess from this house that she also had many sources of income.</p>
 
 <p>A moment later, Hwang Yu-hui returned with a large glass in each hand, filled with ice and coffee.</p>
 
@@ -86,13 +106,19 @@ Seeing Han-pan’s puzzled expression, she smiled and continued.</p>
 
 <p>「Ah… yes…」</p>
 
-<p>Han-pan thought of Miho.<br>
-Miho also had a similar concept.<br>
-Han-pan felt that as women get older, they seem to seek out their youth once again.<br>
-Hwang Yu-hui already had a magnificent figure, but Han-pan wanted to know in detail what she truly desired.<br>
-Reading his expression, Hwang Yu-hui continued.</p>
+<p>Han-pan thought of Miho.</p>
 
-<p>「That’s why I’m asking… Han-pan-hyeongje, you’re part of the so-called MZ generation… so your age is good… I thought if you taught me the sensibilities of young people these days, I would look like someone who reads trends well… Exercise is exercise, but if there are parts that young friends like these days… no, parts that should be emphasized, please let me know actively and I will put in the effort.」</p>
+<p>Miho also had a similar concept.</p>
+
+<p>Han-pan felt that as women get older, they seem to seek out their youth once again.</p>
+
+<p>Hwang Yu-hui already had a magnificent figure, but Han-pan wanted to know in detail what she truly desired.</p>
+
+<p>Reading his expression, Hwang Yu-hui continued.</p>
+
+<p>「That’s why I’m asking… Han-pan-hyeongje, you’re part of the so-called MZ generation… so your age is good… I thought if you taught me the sensibilities of young people these days, I would look like someone who reads trends well…</p>
+
+<p>Exercise is exercise, but if there are parts that young friends like these days… no, parts that should be emphasized, please let me know actively and I will put in the effort.」</p>
 
 <p>「Ah… so to summarize, you’re saying you want to correct your physique to be sexy?」</p>
 
@@ -112,12 +138,17 @@ Reading his expression, Hwang Yu-hui continued.</p>
 
 <p>「You know it well… Recently, my husband and I decided to have an open relationship… We agreed to pursue our own pleasures… without interference… Besides, pleasure is a blessing given to humans by God… maximizing that is also our duty as humans… The religious reasons are bigger than you’d think.」</p>
 
-<p>Han-pan understood her words.<br>
-No matter how she phrased it, what she needed was simply a young man.<br>
-When the pastor’s wife boldly appealed to him that she needed a young man, he was flustered, but at the same time, a sense of pleasure rose within him.<br>
-The fact that this intellectual, charismatic, and strictly-vibe church Samo wanted a young man in front of him was ultimately a gesture that she wanted to have sex with him.<br>
-He wasn't certain, but he judged that he would be able to have sex with her.<br>
-Feeling that he should approach more cautiously, he quickly organized his thoughts and spoke.</p>
+<p>Han-pan understood her words.</p>
+
+<p>No matter how she phrased it, what she needed was simply a young man.</p>
+
+<p>When the pastor’s wife boldly appealed to him that she needed a young man, he was flustered, but at the same time, a sense of pleasure rose within him.</p>
+
+<p>The fact that this intellectual, charismatic, and strictly-vibe church Samo wanted a young man in front of him was ultimately a gesture that she wanted to have sex with him.</p>
+
+<p>He wasn't certain, but he judged that he would be able to have sex with her.</p>
+
+<p>Feeling that he should approach more cautiously, he quickly organized his thoughts and spoke.</p>
 
 <p>「I think you’re already sufficient as you are.」</p>
 
@@ -127,10 +158,13 @@ Feeling that he should approach more cautiously, he quickly organized his though
 
 <p>「Hmm… is that so?… But I feel like I’m still lacking a bit… Han-pan-hyeongje, could you take a closer look for me?」</p>
 
-<p>At his words, she gave a coy smile.<br>
-It was a smile he hadn't seen before.<br>
-It felt like the smile of a vixen from a pub.<br>
-Han-pan swallowed his saliva and spoke.</p>
+<p>At his words, she gave a coy smile.</p>
+
+<p>It was a smile he hadn't seen before.</p>
+
+<p>It felt like the smile of a vixen from a pub.</p>
+
+<p>Han-pan swallowed his saliva and spoke.</p>
 
 <p>「Hmm… then do you have some tight workout clothes? Like leggings…」</p>
 
@@ -144,32 +178,55 @@ Han-pan swallowed his saliva and spoke.</p>
 
 <p>「Yes, then I’ll see you in a moment.」</p>
 
-<p>At his words, she stood up, turned around, and headed to the second floor.<br>
-Han-pan watched her blankly for a moment before turning and heading to the room she had pointed out.<br>
-He opened the bag he had brought and took out his workout clothes.<br>
-His mind was complicated, but at the same time, an unknown arousal wrapped around his body, creating a pleasant tension.<br>
-Han-pan took off his pants, and as he was about to change into his trunks, he took off his underwear as well.<br>
-Immediately, his massive cock boasted its majestic presence.<br>
-He stroked his cock once before pulling on his trunks.<br>
-Since Hwang Yu-hui had already sent him enough signals, he thought there was nothing to hold back.<br>
-Vowing to just get a little taste today, he decided to gauge her intentions more carefully.<br>
-He folded his discarded clothes neatly and put them in his bag.<br>
-Then he returned to the living room and sat on the sofa to kill time.</p>
+<p>At his words, she stood up, turned around, and headed to the second floor.</p>
 
-<p>After waiting for a while, Hwang Yu-hui, who had come down from the second floor, approached him.<br>
-She was wearing a grey sports bra with matching grey leggings, and even white sneakers.<br>
-Her exposed arms and legs had quite a bit of firm muscle.<br>
-The most impressive part was her waistline.<br>
-The waistline between the sports bra and leggings, naturally exposed to Han-pan’s eyes, was incredibly attractive.<br>
-It was sleek enough to make her age irrelevant.<br>
-Han-pan was curious about Hwang Yu-hui’s age.<br>
-He guessed she was definitely older than Miho.<br>
-He could estimate her to be in her mid to late 40s, but considering her son’s age, she would be over 50.<br>
-However, her face and body absolutely did not look like those of a woman in her 50s.<br>
-In particular, the vixen-like vibe she possessed was different from Miho’s.<br>
-She was a mysterious woman where the intensity of a black storm and the freshness after a rain coexisted.<br>
-The strictness she showed at church had vanished, and the Hwang Yu-hui standing before him was nothing more and nothing less than a nympho in need of a vigorous young man.<br>
-Han-pan looked at her with a slight smile.</p>
+<p>Han-pan watched her blankly for a moment before turning and heading to the room she had pointed out.</p>
+
+<p>He opened the bag he had brought and took out his workout clothes.</p>
+
+<p>His mind was complicated, but at the same time, an unknown arousal wrapped around his body, creating a pleasant tension.</p>
+
+<p>Han-pan took off his pants, and as he was about to change into his trunks, he took off his underwear as well.</p>
+
+<p>Immediately, his massive cock boasted its majestic presence.</p>
+
+<p>He stroked his cock once before pulling on his trunks.</p>
+
+<p>Since Hwang Yu-hui had already sent him enough signals, he thought there was nothing to hold back.</p>
+
+<p>Vowing to just get a little taste today, he decided to gauge her intentions more carefully.</p>
+
+<p>He folded his discarded clothes neatly and put them in his bag.</p>
+
+<p>Then he returned to the living room and sat on the sofa to kill time.</p>
+
+<p>After waiting for a while, Hwang Yu-hui, who had come down from the second floor, approached him.</p>
+
+<p>She was wearing a grey sports bra with matching grey leggings, and even white sneakers.</p>
+
+<p>Her exposed arms and legs had quite a bit of firm muscle.</p>
+
+<p>The most impressive part was her waistline.</p>
+
+<p>The waistline between the sports bra and leggings, naturally exposed to Han-pan’s eyes, was incredibly attractive.</p>
+
+<p>It was sleek enough to make her age irrelevant.</p>
+
+<p>Han-pan was curious about Hwang Yu-hui’s age.</p>
+
+<p>He guessed she was definitely older than Miho.</p>
+
+<p>He could estimate her to be in her mid to late 40s, but considering her son’s age, she would be over 50.</p>
+
+<p>However, her face and body absolutely did not look like those of a woman in her 50s.</p>
+
+<p>In particular, the vixen-like vibe she possessed was different from Miho’s.</p>
+
+<p>She was a mysterious woman where the intensity of a black storm and the freshness after a rain coexisted.</p>
+
+<p>The strictness she showed at church had vanished, and the Hwang Yu-hui standing before him was nothing more and nothing less than a nympho in need of a vigorous young man.</p>
+
+<p>Han-pan looked at her with a slight smile.</p>
 
 <p>「You look wonderful.」</p>
 

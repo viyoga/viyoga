@@ -28,18 +28,29 @@ chapter = 58
 
 <p>"Hmm? It's almost finished... Only the highlights are left..."</p>
 
-<p>Ban Mi-jo said that as she opened a large suitcase.<br>
-Then she began to pull out the items inside.<br>
-Han-pan realized at a glance that it was underwear.<br>
-Judging by how they were neatly and carefully folded, he sensed they were quite high-end.<br>
-She placed them one by one on a small table next to the hanger and organized them.<br>
-Every single one was incredibly provocative lingerie, boasting flashy lace and intense colors.<br>
-Han-pan watched silently from the side, noting the wide variety of styles.<br>
-From demi-bras that emphasized the breasts, to shelf bras that did away with the cups entirely, and even bras designed to make the nipples pop out—the panties were just as diverse.<br>
-There were string panties, of course, as well as G-strings and even crotchless panties that left the pussy completely exposed. The colors and designs ranged from simple to flamboyant; it was truly a collection.<br>
-As if they were all sets, she matched the bras with the panties, and to some, she added garter belts and stockings.<br>
-Finally, after adding a few body stockings, she spread her arms and looked at him.<br>
-"Tada! This is my collection!"</p>
+<p>Ban Mi-jo said that as she opened a large suitcase.</p>
+
+<p>Then she began to pull out the items inside.</p>
+
+<p>Han-pan realized at a glance that it was underwear.</p>
+
+<p>Judging by how they were neatly and carefully folded, he sensed they were quite high-end.</p>
+
+<p>She placed them one by one on a small table next to the hanger and organized them.</p>
+
+<p>Every single one was incredibly provocative lingerie, boasting flashy lace and intense colors.</p>
+
+<p>Han-pan watched silently from the side, noting the wide variety of styles.</p>
+
+<p>From demi-bras that emphasized the breasts, to shelf bras that did away with the cups entirely, and even bras designed to make the nipples pop out—the panties were just as diverse.</p>
+
+<p>There were string panties, of course, as well as G-strings and even crotchless panties that left the pussy completely exposed. The colors and designs ranged from simple to flamboyant; it was truly a collection.</p>
+
+<p>As if they were all sets, she matched the bras with the panties, and to some, she added garter belts and stockings.</p>
+
+<p>Finally, after adding a few body stockings, she spread her arms and looked at him.</p>
+
+<p>"Tada! This is my collection!"</p>
 
 <p>Han-pan gave a short round of applause.<br>
 "It's impressive... It can't be easy to gather a collection like this... But wow, there are some pretty extreme things in here..."</p>
@@ -120,42 +131,69 @@ Her expression contrasted strangely with the diamond ring on her left hand.<br>
 
 <p>"Yes, understood."</p>
 
-<p>Han-pan thought he should start with the basics first to get a feel for things while doing a simple shoot.<br>
-The living room had excellent lighting.<br>
-The natural light coming through the living room door connected to the backyard and the light streaming in from various windows illuminated the room very brightly.<br>
-In the backyard, various cute props were scattered about for filming, and the area was enclosed by high walls on all sides for privacy.<br>
-It was a very good structure for a filming location.<br>
-While looking at the lighting equipment in the corner, he noticed a connector for playing music.<br>
-He plugged in his phone and started the music.<br>
-Soon, R&amp;B-style music echoed throughout the house.<br>
-He adjusted the volume to a suitable level to set the mood.<br>
-Then, when he flipped the switch on a very large light nearby, the light turned on and illuminated the entire room.<br>
-With the natural sunlight and the added lighting, the atmosphere was rendered quite nicely.<br>
-He set the mood of the room by tilting the direction of the lights here and there.<br>
-Then, from among the chairs in the corner, he picked up a very high stool, the kind you’d see at a cocktail bar, and placed it in the center of the living room.<br>
-It created a plausible feel.<br>
-Satisfied, Han-pan took his camera out of his bag and snapped a few shots.<br>
-They came out looking quite good.<br>
-Just then, Ban Mi-jo approached him.<br>
-"Oh, the room feels great?"</p>
+<p>Han-pan thought he should start with the basics first to get a feel for things while doing a simple shoot.</p>
 
-<p>Approaching his side, Ban Mi-jo looked around the living room.<br>
-The faint scent of her perfume was incredibly sweet.<br>
-She offered him the wine glass she was holding.<br>
-As he took the glass, she suggested a toast.<br>
-"To today's wonderful shots!"</p>
+<p>The living room had excellent lighting.</p>
 
-<p>As their glasses clinked, Han-pan cleanly finished his first glass.<br>
-It was a dry, crisp wine, and the taste was quite excellent.<br>
-As the energy of the wine circulated through his body, he felt himself loosening up.<br>
-"Ah, this is delicious."</p>
+<p>The natural light coming through the living room door connected to the backyard and the light streaming in from various windows illuminated the room very brightly.</p>
+
+<p>In the backyard, various cute props were scattered about for filming, and the area was enclosed by high walls on all sides for privacy.</p>
+
+<p>It was a very good structure for a filming location.</p>
+
+<p>While looking at the lighting equipment in the corner, he noticed a connector for playing music.</p>
+
+<p>He plugged in his phone and started the music.</p>
+
+<p>Soon, R&amp;B-style music echoed throughout the house.</p>
+
+<p>He adjusted the volume to a suitable level to set the mood.</p>
+
+<p>Then, when he flipped the switch on a very large light nearby, the light turned on and illuminated the entire room.</p>
+
+<p>With the natural sunlight and the added lighting, the atmosphere was rendered quite nicely.</p>
+
+<p>He set the mood of the room by tilting the direction of the lights here and there.</p>
+
+<p>Then, from among the chairs in the corner, he picked up a very high stool, the kind you’d see at a cocktail bar, and placed it in the center of the living room.</p>
+
+<p>It created a plausible feel.</p>
+
+<p>Satisfied, Han-pan took his camera out of his bag and snapped a few shots.</p>
+
+<p>They came out looking quite good.</p>
+
+<p>Just then, Ban Mi-jo approached him.</p>
+
+<p>"Oh, the room feels great?"</p>
+
+<p>Approaching his side, Ban Mi-jo looked around the living room.</p>
+
+<p>The faint scent of her perfume was incredibly sweet.</p>
+
+<p>She offered him the wine glass she was holding.</p>
+
+<p>As he took the glass, she suggested a toast.</p>
+
+<p>"To today's wonderful shots!"</p>
+
+<p>As their glasses clinked, Han-pan cleanly finished his first glass.</p>
+
+<p>It was a dry, crisp wine, and the taste was quite excellent.</p>
+
+<p>As the energy of the wine circulated through his body, he felt himself loosening up.</p>
+
+<p>"Ah, this is delicious."</p>
 
 <p>"Right? It’s one of my favorites, and I prepared it to drink on a day like this."</p>
 
-<p>She went back to where the luggage was and returned holding the whole bottle.<br>
-After filling her own glass, she refilled Han-pan’s glass as well.<br>
-Han-pan set his glass down and said,<br>
-"Shall we get started?"</p>
+<p>She went back to where the luggage was and returned holding the whole bottle.</p>
+
+<p>After filling her own glass, she refilled Han-pan’s glass as well.</p>
+
+<p>Han-pan set his glass down and said,</p>
+
+<p>"Shall we get started?"</p>
 
 <p>"Yeah..."</p>
 
@@ -163,27 +201,40 @@ Han-pan set his glass down and said,<br>
 
 <p>"Okay."</p>
 
-<p>Han-pan raised his camera toward her.<br>
-Ban Mi-jo looked at him and then headed toward a large stand with a big monitor attached in the corner.<br>
-She grabbed it and said,<br>
-"Han-pan, these days, we film while checking our poses on the screen immediately... Move this for me..."</p>
+<p>Han-pan raised his camera toward her.</p>
+
+<p>Ban Mi-jo looked at him and then headed toward a large stand with a big monitor attached in the corner.</p>
+
+<p>She grabbed it and said,</p>
+
+<p>"Han-pan, these days, we film while checking our poses on the screen immediately... Move this for me..."</p>
 
 <p>"Ah, yes..."</p>
 
-<p>Han-pan hung the camera around his neck and moved the stand with the monitor.<br>
-It moved easily since it had wheels.<br>
-He saw the terminal next to the monitor and attached it to the camera.<br>
-The size was a perfect fit.<br>
-When he turned on the monitor, the screen displayed a live feed.<br>
-"Oh, this is cool."</p>
+<p>Han-pan hung the camera around his neck and moved the stand with the monitor.</p>
+
+<p>It moved easily since it had wheels.</p>
+
+<p>He saw the terminal next to the monitor and attached it to the camera.</p>
+
+<p>The size was a perfect fit.</p>
+
+<p>When he turned on the monitor, the screen displayed a live feed.</p>
+
+<p>"Oh, this is cool."</p>
 
 <p>"Good... then let's begin."</p>
 
-<p>Ban Mi-jo sat on the stool he had placed and slowly struck a pose.<br>
-Like someone with significant broadcasting experience, she posed freely every time the shutter clicked.<br>
-Han-pan requested various poses while filming her, and she responded immediately.<br>
-She checked her poses on the monitor screen every time and adjusted them slightly; like a pro, she caught on very quickly.<br>
-When the filming reached a certain point, she spoke.<br>
-"Then the basic filming is done... Shall we try a different version now?"</p>
+<p>Ban Mi-jo sat on the stool he had placed and slowly struck a pose.</p>
+
+<p>Like someone with significant broadcasting experience, she posed freely every time the shutter clicked.</p>
+
+<p>Han-pan requested various poses while filming her, and she responded immediately.</p>
+
+<p>She checked her poses on the monitor screen every time and adjusted them slightly; like a pro, she caught on very quickly.</p>
+
+<p>When the filming reached a certain point, she spoke.</p>
+
+<p>"Then the basic filming is done... Shall we try a different version now?"</p>
 
 <p>"Sounds good."</p>

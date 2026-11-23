@@ -77,7 +77,9 @@ chapter = 1
 
 <p>At his stimulation, her body began to tremble even more violently. Soon, her arousal reached its peak, and he could feel something hot flowing down the shaft of his dick. Han-pan smiled as he looked up at his superior, who was squirming while impaled on his dick.</p>
 
-<p>She was older than his own sister and had been married for several years. Though in her early 30s, she possessed a magnificent body that rivaled any woman in her 20s. Through consistent body management even after childbirth, she had the most elastic physique in the unit, and it was common for all the soldiers to masturbate while thinking of her. In particular, the waistline and leg lines descending from her slender pelvis were incredibly charming.</p>
+<p>She was older than his own sister and had been married for several years. Though in her early 30s, she possessed a magnificent body that rivaled any woman in her 20s. Through consistent body management even after childbirth, she had the most elastic physique in the unit, and it was common for all the soldiers to masturbate while thinking of her.</p>
+
+<p>In particular, the waistline and leg lines descending from her slender pelvis were incredibly charming.</p>
 
 <p>Having met after he applied for the dispatch unit a year ago, they had already been enjoying themselves as sex partners for several months. Her half-closed eyes met Han-pan’s as he looked up at her. She flashed a lewd smile and threw her head back. Her pupils rolled upward from the surging pleasure. As intense pleasure overwhelmed her, her body began to shudder and shake.</p>
 

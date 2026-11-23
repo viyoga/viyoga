@@ -5,7 +5,9 @@ weight = 143
 chapter = 143
 +++
 
-<p>Han-pan could see her perfectly sculpted legs revealed through the long slit in the front of her skirt. The slit climbed nearly halfway up her thigh, allowing him an explicit view of her bare skin. The line of her legs, glimpsed with every step she took, gave him a secret, illicit thrill, and he found that he liked it very much. Conscious of his gaze filled with intrigue, Hwang Yu-hui approached them and spoke.</p>
+<p>Han-pan could see her perfectly sculpted legs revealed through the long slit in the front of her skirt. The slit climbed nearly halfway up her thigh, allowing him an explicit view of her bare skin. The line of her legs, glimpsed with every step she took, gave him a secret, illicit thrill, and he found that he liked it very much.</p>
+
+<p>Conscious of his gaze filled with intrigue, Hwang Yu-hui approached them and spoke.</p>
 
 <p>“You two look close. Have you gotten to know each other a bit?”</p>
 
@@ -89,9 +91,13 @@ chapter = 143
 
 <p>Mi-ho happily accepted his goodwill as she stepped out of the car. The sight of her long, shapely legs extending from beneath her dangerously short miniskirt was enough to make his head spin.</p>
 
-<p>The three of them entered the restaurant. The clean, modern design of the restaurant had lighting that was dimmer than expected, and the booth-style layout was unique. Since it was late, many seats were empty here and there. The Maenijeo who greeted them at the entrance checked the number of people and led them to a table. So-jo wanted an inner seat, and the Maenijeo smiled and guided them to a secluded corner in the back.</p>
+<p>The three of them entered the restaurant. The clean, modern design of the restaurant had lighting that was dimmer than expected, and the booth-style layout was unique. Since it was late, many seats were empty here and there. The Maenijeo who greeted them at the entrance checked the number of people and led them to a table.</p>
 
-<p>As he led them past several tables, men glanced over at Mi-ho and So-jo. Some seemed to recognize So-jo. Han-pan felt his shoulders square with pride at the envy he felt in their gazes as they saw him with the celebrities. Naturally, he could feel the gazes of the women as well, though those felt more like looks of jealousy. He thought it was only natural to be the center of attention when walking around with two such stunning women.</p>
+<p>So-jo wanted an inner seat, and the Maenijeo smiled and guided them to a secluded corner in the back.</p>
+
+<p>As he led them past several tables, men glanced over at Mi-ho and So-jo. Some seemed to recognize So-jo. Han-pan felt his shoulders square with pride at the envy he felt in their gazes as they saw him with the celebrities. Naturally, he could feel the gazes of the women as well, though those felt more like looks of jealousy.</p>
+
+<p>He thought it was only natural to be the center of attention when walking around with two such stunning women.</p>
 
 <p>The three of them were seated in a fairly secluded spot under the Maenijeo’s guidance. It was an L-shaped booth that provided a decent amount of privacy. The lighting was subtle, with only a small lamp on the table barely illuminating their faces, and Han-pan understood why So-jo had wanted to come here. Both of them were quite drunk, their expressions very relaxed.</p>
 

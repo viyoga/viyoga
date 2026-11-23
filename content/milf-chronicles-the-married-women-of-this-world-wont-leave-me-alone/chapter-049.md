@@ -7,7 +7,9 @@ chapter = 49
 
 <p>Han-pan was in a bind.</p>
 
-<p>During his time in the army, he had hung out with other athletic guys, experimenting with various exercises to create his own unique workout routine. However, teaching someone else was a completely different matter. It was a burden and uncomfortable to teach someone—especially someone whose true intentions were entirely unreadable. When Han-pan avoided giving a direct answer, his face clouded with hesitation, Miho also looked troubled.</p>
+<p>During his time in the army, he had hung out with other athletic guys, experimenting with various exercises to create his own unique workout routine. However, teaching someone else was a completely different matter. It was a burden and uncomfortable to teach someone—especially someone whose true intentions were entirely unreadable.</p>
+
+<p>When Han-pan avoided giving a direct answer, his face clouded with hesitation, Miho also looked troubled.</p>
 
 <p>Samo-nim simply stared at him with a calm expression, offering no particular reaction. Amidst the awkward aura flowing between them, Miho leaned in and whispered into his ear.</p>
 

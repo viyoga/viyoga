@@ -21,7 +21,9 @@ chapter = 123
 
 <p>As he did, his massive upper body muscles were revealed.</p>
 
-<p>Seo-ah-nuna was somewhat startled by his sudden action, but she quickly composed her expression. They were truly magnificent muscles. She hadn't been able to see them properly yesterday because things were so chaotic, but looking at them again, she found them incredibly attractive. There were plenty of fit men at the fitness center, but Han-pan possessed a level of physical power that was beyond comparison.</p>
+<p>Seo-ah-nuna was somewhat startled by his sudden action, but she quickly composed her expression. They were truly magnificent muscles. She hadn't been able to see them properly yesterday because things were so chaotic, but looking at them again, she found them incredibly attractive.</p>
+
+<p>There were plenty of fit men at the fitness center, but Han-pan possessed a level of physical power that was beyond comparison.</p>
 
 <p>Han-pan took a step toward her and asked.</p>
 

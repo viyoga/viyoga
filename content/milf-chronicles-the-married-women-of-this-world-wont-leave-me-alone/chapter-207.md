@@ -5,10 +5,13 @@ weight = 207
 chapter = 207
 +++
 
-<p>On Thursday morning, amidst the brightly shining sunlight, Han-pan was pouring all his concentration into his workout.<br>
-Right on the mat next to him was Mi-ho, focusing all her energy while holding a yoga pose.<br>
-After concentrating for a long while, Mi-ho let out a heavy breath and sat down, loosening her body.<br>
-She looked at Han-pan and spoke.</p>
+<p>On Thursday morning, amidst the brightly shining sunlight, Han-pan was pouring all his concentration into his workout.</p>
+
+<p>Right on the mat next to him was Mi-ho, focusing all her energy while holding a yoga pose.</p>
+
+<p>After concentrating for a long while, Mi-ho let out a heavy breath and sat down, loosening her body.</p>
+
+<p>She looked at Han-pan and spoke.</p>
 
 <p>“Did you have fun with your friend last night?”</p>
 
@@ -18,21 +21,29 @@ She looked at Han-pan and spoke.</p>
 
 <p>“Hmm… I was bored because my son wasn’t here… You’re going to spend some fun time with Mom today too, right?”</p>
 
-<p>Mi-ho had been unable to control the lust rising within her the previous evening and had to resort to masturbating with a dildo.<br>
-She knew Han-pan had returned home late that night, but she didn’t want to go running to him like a woman crazed with carnal desire.<br>
-She thought she had to act cool.<br>
-It was like the last shred of her pride.<br>
-Since she couldn't bring herself to beg him for sex, she had to soothe her sorrow by holding her breath and thrusting the dildo deep into her Jade Gate.</p>
+<p>Mi-ho had been unable to control the lust rising within her the previous evening and had to resort to masturbating with a dildo.</p>
+
+<p>She knew Han-pan had returned home late that night, but she didn’t want to go running to him like a woman crazed with carnal desire.</p>
+
+<p>She thought she had to act cool.</p>
+
+<p>It was like the last shred of her pride.</p>
+
+<p>Since she couldn't bring herself to beg him for sex, she had to soothe her sorrow by holding her breath and thrusting the dildo deep into her Jade Gate.</p>
 
 <p>Han-pan, who had been watching her for a moment, stood up, walked over to her side, and said,</p>
 
 <p>“Hmm… My schedule is a bit busy today, but… well… if Mother asks… then of course… hehe.”</p>
 
-<p>Mi-ho took a yoga pose, closed her eyes, and focused on her breathing.<br>
-Then, she opened her eyes and slowly released the pose.<br>
-Han-pan watched her calmly.<br>
-Mi-ho lay down on the mat and steadied her breath.<br>
-Looking at his cock, which was slowly swelling as he watched her, she spoke.</p>
+<p>Mi-ho took a yoga pose, closed her eyes, and focused on her breathing.</p>
+
+<p>Then, she opened her eyes and slowly released the pose.</p>
+
+<p>Han-pan watched her calmly.</p>
+
+<p>Mi-ho lay down on the mat and steadied her breath.</p>
+
+<p>Looking at his cock, which was slowly swelling as he watched her, she spoke.</p>
 
 <p>“My son is quite energetic since this morning… Do you like me that much? Hohoho. Anyway, play in moderation… You have to leave some for Mom too… don’t you?”</p>
 
@@ -141,11 +152,15 @@ It weighed on his mind that Eun-young had caught him meeting Hye-su the previous
 However, So-jo suggested that they invite people over on Saturday to enjoy the last weekend of summer together, and Mi-ho nodded, saying she agreed.<br>
 Han-pan agreed as well.</p>
 
-<p>After finishing breakfast, Han-pan returned to his room and checked the feedback on the images he had posted on X.<br>
-More people than he expected were enjoying them.<br>
-Just as Han-pan was thinking he should create more content, he heard the sound of high heels and someone knocked on his door.<br>
-The one who opened the door and entered was Mi-ho.<br>
-She walked into the room wearing a sleeveless, pleated silk dress with a green turtleneck.</p>
+<p>After finishing breakfast, Han-pan returned to his room and checked the feedback on the images he had posted on X.</p>
+
+<p>More people than he expected were enjoying them.</p>
+
+<p>Just as Han-pan was thinking he should create more content, he heard the sound of high heels and someone knocked on his door.</p>
+
+<p>The one who opened the door and entered was Mi-ho.</p>
+
+<p>She walked into the room wearing a sleeveless, pleated silk dress with a green turtleneck.</p>
 
 <p>“Going to work?”</p>
 
@@ -162,11 +177,15 @@ Seeing the photos of her own exposure at the mall, she spoke with interest.</p>
 
 <p>“Of course… look at the comments here.”</p>
 
-<p>Han-pan pushed his chair back, and Mi-ho leaned toward the monitor to read the comments.<br>
-Most of them were filled with praise, saying they wanted more and that her figure was stunning.<br>
-Hearing people’s praise for her body made Mi-ho feel incredibly good.<br>
-It felt as if she had become a star.<br>
-At the same time, arousal stirred within her.</p>
+<p>Han-pan pushed his chair back, and Mi-ho leaned toward the monitor to read the comments.</p>
+
+<p>Most of them were filled with praise, saying they wanted more and that her figure was stunning.</p>
+
+<p>Hearing people’s praise for her body made Mi-ho feel incredibly good.</p>
+
+<p>It felt as if she had become a star.</p>
+
+<p>At the same time, arousal stirred within her.</p>
 
 <p>“Hmm… it’s good…”</p>
 
@@ -191,15 +210,23 @@ Rolling her eyes, Mi-ho remembered the thrilling exposure and the sex that follo
 
 <p>“Ah, okay, I get it.”</p>
 
-<p>Saying so, Han-pan stared blankly at her.<br>
-Mi-ho also looked down at him sitting in the chair.<br>
-Han-pan flashed a smile.<br>
-It was a smile uniquely his, full of innocence.<br>
-Finding herself melting into that smile, Mi-ho let out a sigh.<br>
-His relationships with women seemed quite complicated, but the situation had long since slipped out of her hands.<br>
-It was truly an out-of-control situation.<br>
-Mi-ho sighed again.<br>
-At her sigh, Han-pan asked,</p>
+<p>Saying so, Han-pan stared blankly at her.</p>
+
+<p>Mi-ho also looked down at him sitting in the chair.</p>
+
+<p>Han-pan flashed a smile.</p>
+
+<p>It was a smile uniquely his, full of innocence.</p>
+
+<p>Finding herself melting into that smile, Mi-ho let out a sigh.</p>
+
+<p>His relationships with women seemed quite complicated, but the situation had long since slipped out of her hands.</p>
+
+<p>It was truly an out-of-control situation.</p>
+
+<p>Mi-ho sighed again.</p>
+
+<p>At her sigh, Han-pan asked,</p>
 
 <p>“What’s up? Why are you sighing?”</p>
 
@@ -214,10 +241,13 @@ Then, wrapping his arms around her waist, he looked at her.</p>
 
 <p>“Mom just needs to trust me and follow me, okay?”</p>
 
-<p>He looked at her deeply.<br>
-Mi-ho found herself falling for him.<br>
-Without either of them knowing who started it, they both leaned in with their lips.<br>
-Then, their tongues emerged from their mouths, hovering in the empty space, sucking and flickering against each other’s tongues.</p>
+<p>He looked at her deeply.</p>
+
+<p>Mi-ho found herself falling for him.</p>
+
+<p>Without either of them knowing who started it, they both leaned in with their lips.</p>
+
+<p>Then, their tongues emerged from their mouths, hovering in the empty space, sucking and flickering against each other’s tongues.</p>
 
 <p>Han-pan pulled her into his chest and brought both hands to her buttocks.<br>
 Beneath the smooth sensation of the silk, he could feel the firm texture of Mi-ho’s ass.<br>
@@ -247,16 +277,25 @@ When he felt the strap of the thong resting on her waist at his fingertips, Han-
 
 <p>While the sound of their laughter filled the room, the hot August sunlight poured into his room.</p>
 
-<p>Throughout the morning, Han-pan updated a few more images he had shot on X and OnlyFans.<br>
-Then, after a simple lunch, he packed his things and headed to Hwang Yu-hui’s house.<br>
-When he rang the bell, the door opened, and as he entered the house, Hwang Yu-hui welcomed him, opening the living room door.<br>
-Han-pan grinned as he saw her dressed in workout clothes.<br>
-It was an attire he liked very much.<br>
-She was wearing a black sports top and leggings, and the exposure of the top was considerable.<br>
-The top itself was firmly pressing against her upper body, gathering her breasts toward the center and significantly exposing her cleavage and her tits.<br>
-Furthermore, she was wearing no bra, so the outline of her nipples stimulated his gaze.<br>
-The leggings were also very tight, tracing the line of her pelvis and the contour of her buttocks, extending long from her thighs to her ankles.<br>
-Her firm waist was exposed, and some soft abdominal muscles were starting to take shape.</p>
+<p>Throughout the morning, Han-pan updated a few more images he had shot on X and OnlyFans.</p>
+
+<p>Then, after a simple lunch, he packed his things and headed to Hwang Yu-hui’s house.</p>
+
+<p>When he rang the bell, the door opened, and as he entered the house, Hwang Yu-hui welcomed him, opening the living room door.</p>
+
+<p>Han-pan grinned as he saw her dressed in workout clothes.</p>
+
+<p>It was an attire he liked very much.</p>
+
+<p>She was wearing a black sports top and leggings, and the exposure of the top was considerable.</p>
+
+<p>The top itself was firmly pressing against her upper body, gathering her breasts toward the center and significantly exposing her cleavage and her tits.</p>
+
+<p>Furthermore, she was wearing no bra, so the outline of her nipples stimulated his gaze.</p>
+
+<p>The leggings were also very tight, tracing the line of her pelvis and the contour of her buttocks, extending long from her thighs to her ankles.</p>
+
+<p>Her firm waist was exposed, and some soft abdominal muscles were starting to take shape.</p>
 
 <p>“You look wonderful.”</p>
 

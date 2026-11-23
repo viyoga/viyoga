@@ -199,7 +199,9 @@ chapter = 19
 
 <p>「Even ditch water has an order... I'll take the lead first. Let's go! Han-pan, hohoho.」</p>
 
-<p>At those words, Han-pan was dazed as he was dragged to the nearby restroom while holding her hand. Following her footsteps into the ladies' restroom, Han-pan stood behind her as she entered first. The restroom was incredibly clean and luxurious. A subtle scent wafted through the air, and it was a large space that could easily fit four or five people. After closing the door, Eun-young turned around and said,</p>
+<p>At those words, Han-pan was dazed as he was dragged to the nearby restroom while holding her hand. Following her footsteps into the ladies' restroom, Han-pan stood behind her as she entered first. The restroom was incredibly clean and luxurious. A subtle scent wafted through the air, and it was a large space that could easily fit four or five people.</p>
+
+<p>After closing the door, Eun-young turned around and said,</p>
 
 <p>「Now, show me.」</p>
 

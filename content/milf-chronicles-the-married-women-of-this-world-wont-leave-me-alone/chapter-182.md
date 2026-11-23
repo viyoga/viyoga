@@ -7,7 +7,9 @@ chapter = 182
 
 <p>Mi-ho and Han-pan looked at So-jo at the same time.</p>
 
-<p>So-jo looked at them and the filming equipment spread across the living room with startled eyes. It was a very familiar sight to her, but she never expected to see it at home. Mi-ho and So-jo's eyes met. At that moment, Mi-ho realized exactly what state she was in. She quickly pulled up the panties hanging around her ankles, covered her body with the jacket she had set aside, and bolted to the second floor. Since she was wearing high heels, the sound of her heels striking the floor echoed loudly through the room as she ran. Han-pan and So-jo, who remained, watched her retreating back. She headed for her room at lightning speed.</p>
+<p>So-jo looked at them and the filming equipment spread across the living room with startled eyes. It was a very familiar sight to her, but she never expected to see it at home. Mi-ho and So-jo's eyes met. At that moment, Mi-ho realized exactly what state she was in.</p>
+
+<p>She quickly pulled up the panties hanging around her ankles, covered her body with the jacket she had set aside, and bolted to the second floor. Since she was wearing high heels, the sound of her heels striking the floor echoed loudly through the room as she ran. Han-pan and So-jo, who remained, watched her retreating back. She headed for her room at lightning speed.</p>
 
 <p>Dumbfounded, So-jo stared at the second floor where Mi-ho had vanished before turning her head to Han-pan and speaking.</p>
 
@@ -59,7 +61,9 @@ chapter = 182
 
 <p>“Want to see more?”</p>
 
-<p>He clicked the cursor and showed the results of the shoot one by one. The photos were incredibly lewd, yet some possessed a certain artistic quality. They hovered on the ambiguous border between eroticism and pornography. Because of Mi-ho’s inherent elegance, they didn’t feel low-class or filthy. So-jo stared at them until her eyes nearly popped out. After a while, when the photos reached the first shot, Han-pan spoke.</p>
+<p>He clicked the cursor and showed the results of the shoot one by one. The photos were incredibly lewd, yet some possessed a certain artistic quality. They hovered on the ambiguous border between eroticism and pornography. Because of Mi-ho’s inherent elegance, they didn’t feel low-class or filthy. So-jo stared at them until her eyes nearly popped out.</p>
+
+<p>After a while, when the photos reached the first shot, Han-pan spoke.</p>
 
 <p>“That’s all.”</p>
 
@@ -161,7 +165,9 @@ chapter = 182
 
 <p>“Mom, you don’t have to be so embarrassed… We’re family, isn’t this within the realm of understanding and belief?”</p>
 
-<p>So-jo spoke as if it were no big deal, but Mi-ho didn’t feel that way. Mi-ho didn’t answer. She silently prepared dinner as if nothing had happened. Han-pan sighed after looking at her. Seeing her constantly switching roles from mother to nympho and back again, he thought he should be used to it by now, but it seemed she still needed a little more time. Han-pan felt the day was over and began to slowly fold up the lights he had set up.</p>
+<p>So-jo spoke as if it were no big deal, but Mi-ho didn’t feel that way. Mi-ho didn’t answer. She silently prepared dinner as if nothing had happened. Han-pan sighed after looking at her. Seeing her constantly switching roles from mother to nympho and back again, he thought he should be used to it by now, but it seemed she still needed a little more time.</p>
+
+<p>Han-pan felt the day was over and began to slowly fold up the lights he had set up.</p>
 
 <p>So-jo approached him and spoke quietly.</p>
 
@@ -195,4 +201,6 @@ chapter = 182
 
 <p>“Uh-huh.”</p>
 
-<p>Han-pan nodded, then wondered where to put the filming equipment left in the living room before moving it to a corner of the basement. Since they were quite heavy, it took some time to move them. After moving the last piece of equipment and going back up to the living room, Mi-ho and So-jo were standing side by side. So-jo seemed to be saying this and that to Mi-ho, and the atmosphere wasn’t bad. He let out a sigh of relief and approached them.</p>
+<p>Han-pan nodded, then wondered where to put the filming equipment left in the living room before moving it to a corner of the basement. Since they were quite heavy, it took some time to move them. After moving the last piece of equipment and going back up to the living room, Mi-ho and So-jo were standing side by side.</p>
+
+<p>So-jo seemed to be saying this and that to Mi-ho, and the atmosphere wasn’t bad. He let out a sigh of relief and approached them.</p>

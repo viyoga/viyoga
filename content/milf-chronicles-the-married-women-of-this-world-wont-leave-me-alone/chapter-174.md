@@ -5,12 +5,17 @@ weight = 174
 chapter = 174
 +++
 
-<p>Han-pan, who followed her into the gym, found his eyes widening.<br>
-The scale was much larger than he had expected.<br>
-It was at a level comparable to a professional gym.<br>
-There were many machines, various barbells, and even the mats on the floor were laid out in a very clean, well-made space.<br>
-Most of the walls were covered with mirrors, and a massive fan on the ceiling was moving along with the system air conditioner, circulating the air.<br>
-He wore a satisfied expression as he gave his impression.</p>
+<p>Han-pan, who followed her into the gym, found his eyes widening.</p>
+
+<p>The scale was much larger than he had expected.</p>
+
+<p>It was at a level comparable to a professional gym.</p>
+
+<p>There were many machines, various barbells, and even the mats on the floor were laid out in a very clean, well-made space.</p>
+
+<p>Most of the walls were covered with mirrors, and a massive fan on the ceiling was moving along with the system air conditioner, circulating the air.</p>
+
+<p>He wore a satisfied expression as he gave his impression.</p>
 
 <p>“This is truly wonderful… I’m envious. With a setup like this, I feel like even someone who hates exercising would do it consistently every day.”</p>
 
@@ -22,12 +27,17 @@ He wore a satisfied expression as he gave his impression.</p>
 
 <p>“No, Samo-nim… a professional? Haha… I’m embarrassed. I just happen to like exercising quite a bit.”</p>
 
-<p>Han-pan certainly wasn’t a professional, but during his military service, he had been trained by people who were better at exercising than any professional. Moreover, having completed special military training, he had considerable confidence in his body.<br>
-It was his pride—not quite a boast, but a deep-seated pride in his well-forged physique.<br>
-Entering the room, Han-pan walked around in a circle, meticulously checking the various equipment and machines.<br>
-Everything was brand new, so even the smell was different.<br>
-He pondered in his mind what he should start with.<br>
-In any case, from this moment on, he was in a position where he could handle her however he pleased.</p>
+<p>Han-pan certainly wasn’t a professional, but during his military service, he had been trained by people who were better at exercising than any professional. Moreover, having completed special military training, he had considerable confidence in his body.</p>
+
+<p>It was his pride—not quite a boast, but a deep-seated pride in his well-forged physique.</p>
+
+<p>Entering the room, Han-pan walked around in a circle, meticulously checking the various equipment and machines.</p>
+
+<p>Everything was brand new, so even the smell was different.</p>
+
+<p>He pondered in his mind what he should start with.</p>
+
+<p>In any case, from this moment on, he was in a position where he could handle her however he pleased.</p>
 
 <p>“Erm… shall we start with a body check first?”</p>
 
@@ -53,17 +63,27 @@ He smiled and readily agreed.</p>
 
 <p>“Now… shall we start with the body check first?”</p>
 
-<p>As he said that, he positioned her in the area where the barbells were gathered.<br>
-After having her do some simple stretching, he had her perform a few bodyweight exercises while he observed her current athletic state.<br>
-She obediently moved her body according to his instructions.<br>
-Han-pan watched her closely as she moved, admiring her figure.<br>
-Since she was wearing a sports bra, her breasts were firmly sealed away, making it impossible to measure their exact size, but they looked to be at least an E-cup.<br>
-Her cleavage was substantial.<br>
-Her breast size was massive enough to hold its own even against Miho, and her buttocks had an incredible shape that matched her chest.<br>
-Regarding her buttocks, they were so firm and formed such a round, full-moon shape that one could say they were much thicker than Miho’s, reminiscent of the voluptuous bodies of Latin women.<br>
-The highlight was her thin waistline that defied her age; it was truly a gifted physique.<br>
-Han-pan wondered what it would feel like to have sex with a woman with a body like this.<br>
-He couldn’t understand for what reason Pastor Byeon would leave a woman like this alone to have sex with his daughter-in-law, but it was clear that neither of them was normal.</p>
+<p>As he said that, he positioned her in the area where the barbells were gathered.</p>
+
+<p>After having her do some simple stretching, he had her perform a few bodyweight exercises while he observed her current athletic state.</p>
+
+<p>She obediently moved her body according to his instructions.</p>
+
+<p>Han-pan watched her closely as she moved, admiring her figure.</p>
+
+<p>Since she was wearing a sports bra, her breasts were firmly sealed away, making it impossible to measure their exact size, but they looked to be at least an E-cup.</p>
+
+<p>Her cleavage was substantial.</p>
+
+<p>Her breast size was massive enough to hold its own even against Miho, and her buttocks had an incredible shape that matched her chest.</p>
+
+<p>Regarding her buttocks, they were so firm and formed such a round, full-moon shape that one could say they were much thicker than Miho’s, reminiscent of the voluptuous bodies of Latin women.</p>
+
+<p>The highlight was her thin waistline that defied her age; it was truly a gifted physique.</p>
+
+<p>Han-pan wondered what it would feel like to have sex with a woman with a body like this.</p>
+
+<p>He couldn’t understand for what reason Pastor Byeon would leave a woman like this alone to have sex with his daughter-in-law, but it was clear that neither of them was normal.</p>
 
 <p>Hwang Yu-hui was at her peak when she performed squats.<br>
 With her arms crossed and her legs spread, the way her buttocks, contained within the tight leggings, stretched as she lowered herself possessed an indescribable sexiness.<br>
@@ -99,14 +119,21 @@ Hwang Yu-hui’s breath became somewhat ragged.</p>
 
 <p>“Uh… I feel it… Huuu… huuu…”</p>
 
-<p>Han-pan wondered how far she would allow his touch.<br>
-He slowly stroked his hands further up toward her buttocks.<br>
-As his thumb and index finger brushed very close to her pussy, her breathing grew even rougher.<br>
-Furthermore, she didn’t resist his touch at all.<br>
-Han-pan cheered inwardly.<br>
-They continued the squats for a few more minutes, and Hwang Yu-hui’s stamina was quite good.<br>
-She did squats for several more minutes, and Han-pan moved his hands softly, continuously stroking her thighs.<br>
-As Hwang Yu-hui’s breathing became even more labored, Han-pan took his hands off her thighs, stood up, and said,</p>
+<p>Han-pan wondered how far she would allow his touch.</p>
+
+<p>He slowly stroked his hands further up toward her buttocks.</p>
+
+<p>As his thumb and index finger brushed very close to her pussy, her breathing grew even rougher.</p>
+
+<p>Furthermore, she didn’t resist his touch at all.</p>
+
+<p>Han-pan cheered inwardly.</p>
+
+<p>They continued the squats for a few more minutes, and Hwang Yu-hui’s stamina was quite good.</p>
+
+<p>She did squats for several more minutes, and Han-pan moved his hands softly, continuously stroking her thighs.</p>
+
+<p>As Hwang Yu-hui’s breathing became even more labored, Han-pan took his hands off her thighs, stood up, and said,</p>
 
 <p>“You’re doing great. Let’s stop the squats here.”</p>
 
@@ -115,10 +142,13 @@ He saw a lat pulldown machine.</p>
 
 <p>“Now… take a moment to catch your breath…”</p>
 
-<p>He stepped toward her, placed both hands on her belly and back, and slowly pushed her belly in on the inhale and relaxed his hands on the exhale.<br>
-Her body was firmer than he had imagined, and the intensity of that firmness was much better than Miho’s.<br>
-Her body was very muscular.<br>
-Han-pan spoke in admiration.</p>
+<p>He stepped toward her, placed both hands on her belly and back, and slowly pushed her belly in on the inhale and relaxed his hands on the exhale.</p>
+
+<p>Her body was firmer than he had imagined, and the intensity of that firmness was much better than Miho’s.</p>
+
+<p>Her body was very muscular.</p>
+
+<p>Han-pan spoke in admiration.</p>
 
 <p>“Noona, you have quite the abdominal muscles. This is no joke.”</p>
 
@@ -235,9 +265,14 @@ He slowly moved both hands up and down as if foreplaying her.</p>
 
 <p>“Huuu… huuu… huuu…”</p>
 
-<p>She focused on the exercise while panting, and Han-pan focused on her body.<br>
-Han-pan’s gaze was fixed on the leggings below, wondering what type of panties she was wearing.<br>
-What was certain was that since no panty lines were visible, he wondered if she was wearing string panties or perhaps an even thinner G-string type.<br>
-And as he lowered his head to steal a glance at her cleavage, the depth of that valley was also top-tier.<br>
-Han-pan swallowed his saliva inwardly.<br>
-And he could feel his cock slowly hardening.</p>
+<p>She focused on the exercise while panting, and Han-pan focused on her body.</p>
+
+<p>Han-pan’s gaze was fixed on the leggings below, wondering what type of panties she was wearing.</p>
+
+<p>What was certain was that since no panty lines were visible, he wondered if she was wearing string panties or perhaps an even thinner G-string type.</p>
+
+<p>And as he lowered his head to steal a glance at her cleavage, the depth of that valley was also top-tier.</p>
+
+<p>Han-pan swallowed his saliva inwardly.</p>
+
+<p>And he could feel his cock slowly hardening.</p>

@@ -90,7 +90,9 @@ chapter = 164
 
 <p>“Aaaaaah!! Aaaah!!! Fuck!! Fuck!! Fuck!! Fuck!! Ah!!”</p>
 
-<p>After a while, she seemed exhausted as her movements slowed, but Han-pan wanted to make her finish. He thrust his cock in as if launching a fierce attack, bucking his hips even more intensely. Han-pan took a deep breath. He moved his hands from her breasts to beneath her buttocks, lifting her as he moved his waist. Hye-su felt an overwhelming pleasure spreading through her body, and as she shook her head, she could feel the prelude to an orgasm beginning.</p>
+<p>After a while, she seemed exhausted as her movements slowed, but Han-pan wanted to make her finish. He thrust his cock in as if launching a fierce attack, bucking his hips even more intensely. Han-pan took a deep breath. He moved his hands from her breasts to beneath her buttocks, lifting her as he moved his waist.</p>
+
+<p>Hye-su felt an overwhelming pleasure spreading through her body, and as she shook her head, she could feel the prelude to an orgasm beginning.</p>
 
 <p>“Ah! I’m gonna cum! I’m cumming!! I’m cumming!!! Ah!! Fuck, that cock is sending me!! Ah!!! Goddammit!!!”</p>
 
@@ -131,11 +133,15 @@ chapter = 164
 
 <p>Hye-su got up and lay on her side, letting out a deep breath. Then she moved down and positioned herself between his legs. She reached out and stroked his cock, which was drenched in Love Juice, up and down. Han-pan propped himself up slightly on his elbows and looked down. He really liked the look in Hye-su’s eyes, which were glistening with lewdness.</p>
 
-<p>Hye-su put his cock back into her mouth and moved it up and down. Han-pan reached out and wound her hair around his hand again. Quickly realizing the meaning, Hye-su stopped her movement. Han-pan smirked and forcefully drove her head down. Then he lifted his hips and shoved his cock in all the way before pulling it out. He repeated that movement, and every time the glans hit her throat, a sound came from her mouth.</p>
+<p>Hye-su put his cock back into her mouth and moved it up and down. Han-pan reached out and wound her hair around his hand again. Quickly realizing the meaning, Hye-su stopped her movement. Han-pan smirked and forcefully drove her head down. Then he lifted his hips and shoved his cock in all the way before pulling it out.</p>
+
+<p>He repeated that movement, and every time the glans hit her throat, a sound came from her mouth.</p>
 
 <p>“Kwak-kwak-kwak-kwak.”</p>
 
-<p>One, two, three, four times—Han-pan frantically shoved his cock deep into her mouth. After a moment, he drove her head down with all his might and stopped moving. His entire cock was inside her mouth. Her plump lips against his pubic bone and her tongue beneath his cock moved slowly, stimulating him. Saliva drooled from between Hye-su’s lips, soaking his pubic bone. But soon, as she made a gagging sound, he released his strength.</p>
+<p>One, two, three, four times—Han-pan frantically shoved his cock deep into her mouth. After a moment, he drove her head down with all his might and stopped moving. His entire cock was inside her mouth. Her plump lips against his pubic bone and her tongue beneath his cock moved slowly, stimulating him. Saliva drooled from between Hye-su’s lips, soaking his pubic bone.</p>
+
+<p>But soon, as she made a gagging sound, he released his strength.</p>
 
 <p>As Hye-su quickly pulled his cock out of her mouth, a long strand of saliva connected her lips to the tip of his cock, stretching out like a silken strand. Hye-su smacked her lips, gathered saliva in her mouth, and spat on his cock once more. It was a considerable amount.</p>
 

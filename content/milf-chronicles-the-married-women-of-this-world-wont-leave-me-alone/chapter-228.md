@@ -66,10 +66,13 @@ So-jo prepared wooden chopsticks, wrote numbers on them, held them in one hand, 
 <p>After rolling her eyes for a moment, So-eun said,<br>
 “Number 1 and Number 4, do a sexy dance together for one minute!”</p>
 
-<p>People looked around to see who Number 1 and Number 4 were.<br>
-Mi-ho and Han-pan raised their hands.<br>
-Eun-young smiled brightly, looking back and forth between Han-pan and Mi-ho, and said,<br>
-“The mother and son got picked! Don’t back out, let’s make it hot!”</p>
+<p>People looked around to see who Number 1 and Number 4 were.</p>
+
+<p>Mi-ho and Han-pan raised their hands.</p>
+
+<p>Eun-young smiled brightly, looking back and forth between Han-pan and Mi-ho, and said,</p>
+
+<p>“The mother and son got picked! Don’t back out, let’s make it hot!”</p>
 
 <p>Han-pan nodded, stood up, and headed to the center of the group, and Mi-ho also took her place in front of him.</p>
 
@@ -81,11 +84,15 @@ Han-pan also felt awkward dancing while everyone was watching, but he moved clos
 
 <p>“Ah, this is too weak, too weak!!”</p>
 
-<p>So-jo shouted.<br>
-At those words, Han-pan stepped closer to Mi-ho and wrapped his hands around her waist.<br>
-Mi-ho also reacted to his touch, placing her own hands on his chest as she moved her body.<br>
-In that way, the two became one, engrossed in the dance.<br>
-They rubbed their bodies against each other to a moderate degree, but they couldn't help the fact that it was quite awkward having everyone staring at them.</p>
+<p>So-jo shouted.</p>
+
+<p>At those words, Han-pan stepped closer to Mi-ho and wrapped his hands around her waist.</p>
+
+<p>Mi-ho also reacted to his touch, placing her own hands on his chest as she moved her body.</p>
+
+<p>In that way, the two became one, engrossed in the dance.</p>
+
+<p>They rubbed their bodies against each other to a moderate degree, but they couldn't help the fact that it was quite awkward having everyone staring at them.</p>
 
 <p>“End!”</p>
 
@@ -109,11 +116,15 @@ This time, Mi-ho became the King.</p>
 
 <p>“Fine… um, then… Number 1 and Number 2, kiss for one minute!”</p>
 
-<p>So-eun and Seo-ah were picked.<br>
-The two stood up, walked to the center, and faced each other.<br>
-Compared to the confident So-eun, Seo-ah looked somewhat hesitant.<br>
-Seeing that, So-eun said,<br>
-“Don’t worry, eonni. Just follow my lead, hehe.”</p>
+<p>So-eun and Seo-ah were picked.</p>
+
+<p>The two stood up, walked to the center, and faced each other.</p>
+
+<p>Compared to the confident So-eun, Seo-ah looked somewhat hesitant.</p>
+
+<p>Seeing that, So-eun said,</p>
+
+<p>“Don’t worry, eonni. Just follow my lead, hehe.”</p>
 
 <p>Seo-ah nodded, but she was incredibly awkward.<br>
 Kissing a woman who wasn't family, and doing it for a full minute, was a first for her.</p>
@@ -124,10 +135,13 @@ Kissing a woman who wasn't family, and doing it for a full minute, was a first f
 Seo-ah closed her eyes as she watched her, and So-eun brought her lips to hers, slowly touching them.<br>
 As So-eun’s soft lips touched hers, Seo-ah reacted and lightly accepted it.</p>
 
-<p>However, a moment later, So-eun wrapped both hands around her neck, and her tongue curled inside Seo-ah’s lips.<br>
-It wasn't Seo-ah's first time with a lesbian experience, but she couldn't shake the shame of being watched.<br>
-But So-eun’s kissing technique was exceptionally good.<br>
-She softly curled her tongue, and following her lead, Seo-ah slowly moved her own tongue.</p>
+<p>However, a moment later, So-eun wrapped both hands around her neck, and her tongue curled inside Seo-ah’s lips.</p>
+
+<p>It wasn't Seo-ah's first time with a lesbian experience, but she couldn't shake the shame of being watched.</p>
+
+<p>But So-eun’s kissing technique was exceptionally good.</p>
+
+<p>She softly curled her tongue, and following her lead, Seo-ah slowly moved her own tongue.</p>
 
 <p>“Mmm…”</p>
 
@@ -179,11 +193,15 @@ This drew everyone else’s attention.</p>
 
 <p>“Hahaha, I love it.”</p>
 
-<p>Han-pan very much liked Eun-young’s provocative behavior.<br>
-The atmosphere was gradually ripening.<br>
-The chopsticks went around again, and the next King was Eun-young.<br>
-She said with an obscene smile,<br>
-“Number 5, use your tongue to perform foreplay on Number 3’s breasts for three minutes!”</p>
+<p>Han-pan very much liked Eun-young’s provocative behavior.</p>
+
+<p>The atmosphere was gradually ripening.</p>
+
+<p>The chopsticks went around again, and the next King was Eun-young.</p>
+
+<p>She said with an obscene smile,</p>
+
+<p>“Number 5, use your tongue to perform foreplay on Number 3’s breasts for three minutes!”</p>
 
 <p>“That long?”</p>
 

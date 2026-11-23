@@ -91,7 +91,9 @@ chapter = 210
 
 <p>Han-pan stepped inside, wondering what was going on. The interior had changed somewhat since the last time he spent time here with Mi-ho, Eun-young, and the other women. A massive L-shaped sofa was placed in the center, and between it sat a fairly large, sturdy-looking round solid wood coffee table.</p>
 
-<p>Han-pan looked at Eun-young. She was wearing a long dress made of elegant silk. It was a black dress with a fancy brand logo patterned in white all over it. The length, which stopped halfway down her calves, was enough to represent her glamour. Ornate metal accessories were draped around her neck, and her high heels were a sandal style with sturdy straps crossing her instep and ankles. The heels were shaped like the brand’s logo, which was quite unique and sparkled as they caught the light.</p>
+<p>Han-pan looked at Eun-young. She was wearing a long dress made of elegant silk. It was a black dress with a fancy brand logo patterned in white all over it. The length, which stopped halfway down her calves, was enough to represent her glamour.</p>
+
+<p>Ornate metal accessories were draped around her neck, and her high heels were a sandal style with sturdy straps crossing her instep and ankles. The heels were shaped like the brand’s logo, which was quite unique and sparkled as they caught the light.</p>
 
 <p>“Hey, I hope I’m not intruding...”</p>
 

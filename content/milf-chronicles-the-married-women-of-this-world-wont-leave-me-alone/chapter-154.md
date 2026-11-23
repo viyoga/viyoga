@@ -21,7 +21,9 @@ chapter = 154
 
 <p>「Aaaaaaaah!! I'm going crazy!! Crazy!! Fuck!!!!」</p>
 
-<p>Her body repeatedly contracted and relaxed, shaking wildly as she pressed her Jade Gate hard against Han-pan's face, almost rubbing it in. Han-pan wore a joyful smile as he drank the white foam being discharged from her body. The creamy foam, mixed with the unique, sharp taste of Miho's Love Juice, pushed his Arousal to the limit. Whether it was the effect of the Pheromones or not, the scent wafting from her Jade Gate was more than enough to drive him wild.</p>
+<p>Her body repeatedly contracted and relaxed, shaking wildly as she pressed her Jade Gate hard against Han-pan's face, almost rubbing it in. Han-pan wore a joyful smile as he drank the white foam being discharged from her body. The creamy foam, mixed with the unique, sharp taste of Miho's Love Juice, pushed his Arousal to the limit.</p>
+
+<p>Whether it was the effect of the Pheromones or not, the scent wafting from her Jade Gate was more than enough to drive him wild.</p>
 
 <p>Han-pan pulled his face away to look at her. Miho's body continued to maintain a steady trembling, twitching occasionally, while So-jo-nim's hand moved busily, as if violating the inside of her pussy. After a while, when her trembling subsided, So-jo-nim finally withdrew her hand, put her fingers in her mouth, and sucked them with a jjup-jjup sound.</p>
 
@@ -107,11 +109,15 @@ chapter = 154
 
 <p>「Ah...」</p>
 
-<p>Only then did Miho realize what Han-pan wanted to do. She hesitated for a moment, standing awkwardly next to So-jo-nim, looking back and forth between him and her daughter, before slowly assuming the same posture. The fact that she was in the same position as her biological daughter, having her Fucking Cunt compared to the woman right next to her, felt a bit of Disgrace, but she wanted to do it because it was what he desired.</p>
+<p>Only then did Miho realize what Han-pan wanted to do. She hesitated for a moment, standing awkwardly next to So-jo-nim, looking back and forth between him and her daughter, before slowly assuming the same posture.</p>
+
+<p>The fact that she was in the same position as her biological daughter, having her Fucking Cunt compared to the woman right next to her, felt a bit of Disgrace, but she wanted to do it because it was what he desired.</p>
 
 <p>Like So-jo-nim, she lowered her upper body and turned her head to look at him. Han-pan couldn't believe the sight of two beautiful, sexy women spreading their pussies wide for him at the same time. He vowed that next time, he would definitely have to prepare for Filming as he stroked his half-erect Cock.</p>
 
-<p>No, the scent wafting from the pussies, which looked like two beautiful flower wings, intoxicated him, and his Cock quickly became rock hard. Their pussies were already glistening and wet, as if expecting his Cock to enter. Han-pan felt a catharsis beyond mere stimulation at the sight of these two females waiting for his Cock. It was a different feeling from the frantic Threesome they had earlier. He could now engrave the fact that these two women were completely his.</p>
+<p>No, the scent wafting from the pussies, which looked like two beautiful flower wings, intoxicated him, and his Cock quickly became rock hard. Their pussies were already glistening and wet, as if expecting his Cock to enter. Han-pan felt a catharsis beyond mere stimulation at the sight of these two females waiting for his Cock.</p>
+
+<p>It was a different feeling from the frantic Threesome they had earlier. He could now engrave the fact that these two women were completely his.</p>
 
 <p>So-jo-nim looked at Miho and said that since Miho had just reached an Orgasm, it was now her turn.</p>
 
@@ -127,7 +133,9 @@ chapter = 154
 
 <p>「Should I play with So-jo-nim's breasts in the meantime?」</p>
 
-<p>Miho said, grabbing a pillow to rest her chest on, then reaching out to squeeze and fondle So-jo-nim's breasts. Meanwhile, Han-pan grabbed his Cock and slowly aimed it at So-jo-nim's pussy. Then, he slowly slid it into her Fucking Cunt. Thanks to the Cunt Juice, his Cock slid inside smoothly. As the warmth was transmitted to his Cock, the sensation of being wrapped in a soft, velvet-like cloth felt incredibly good.</p>
+<p>Miho said, grabbing a pillow to rest her chest on, then reaching out to squeeze and fondle So-jo-nim's breasts. Meanwhile, Han-pan grabbed his Cock and slowly aimed it at So-jo-nim's pussy. Then, he slowly slid it into her Fucking Cunt. Thanks to the Cunt Juice, his Cock slid inside smoothly.</p>
+
+<p>As the warmth was transmitted to his Cock, the sensation of being wrapped in a soft, velvet-like cloth felt incredibly good.</p>
 
 <p>Simultaneously, So-jo-nim's lips parted, and a small Moan escaped.</p>
 
@@ -137,4 +145,6 @@ chapter = 154
 
 <p>「Ah... yes... like that... ah... this is the taste... it's so good... ah... ah... ah...」</p>
 
-<p>After moving his pelvis gently for a bit, once he caught the rhythm, he began to move his waist rapidly, thrusting into her intensely. With every forward thrust of his Cock, her body moved as if being pushed forward by the Impact. Han-pan placed both hands on her buttocks to hold her in place, increasing his speed violently as if violating her Fucking Cunt, and So-jo-nim's moaning sounds only grew louder.</p>
+<p>After moving his pelvis gently for a bit, once he caught the rhythm, he began to move his waist rapidly, thrusting into her intensely. With every forward thrust of his Cock, her body moved as if being pushed forward by the Impact.</p>
+
+<p>Han-pan placed both hands on her buttocks to hold her in place, increasing his speed violently as if violating her Fucking Cunt, and So-jo-nim's moaning sounds only grew louder.</p>

@@ -47,11 +47,15 @@ chapter = 10
 
 <p>“Uh… yeah, Mom… have a good day.”</p>
 
-<p>Miho hurriedly turned around, left his room, and headed to the company. After arriving at work, Miho tried to focus on her tasks, but it wasn't as easy as she thought. Wondering if Han-pan’s presence was really this large, his existence didn't leave her mind all day long. Her head was filled with the image of him she had seen that morning. She had to struggle quite a bit to shake her head and focus on her work.</p>
+<p>Miho hurriedly turned around, left his room, and headed to the company. After arriving at work, Miho tried to focus on her tasks, but it wasn't as easy as she thought. Wondering if Han-pan’s presence was really this large, his existence didn't leave her mind all day long. Her head was filled with the image of him she had seen that morning.</p>
+
+<p>She had to struggle quite a bit to shake her head and focus on her work.</p>
 
 <p>Time passed, and when afternoon came and she finished all her important tasks, Miho looked at the clock. It was already nearing 3 PM. Her heart was already fluttering at the thought of going home quickly to see Han-pan. She stood up, packed her bag, informed her secretary that she was leaving early for a schedule, and left the company.</p>
 
-<p>While walking to the parking lot, she enjoyed the gazes of the male subordinates who recognized her and greeted her. She took great pleasure in receiving the gazes of men. However, the gaze Han-pan gave her was the most enjoyable. Thinking of herself as a lustful bitch who enjoyed her son’s lecherous gaze, she felt a thrill of pleasure, like a jolt of electricity. She hummed as she drove her car toward home. She wanted to see her son as soon as possible.</p>
+<p>While walking to the parking lot, she enjoyed the gazes of the male subordinates who recognized her and greeted her. She took great pleasure in receiving the gazes of men. However, the gaze Han-pan gave her was the most enjoyable. Thinking of herself as a lustful bitch who enjoyed her son’s lecherous gaze, she felt a thrill of pleasure, like a jolt of electricity.</p>
+
+<p>She hummed as she drove her car toward home. She wanted to see her son as soon as possible.</p>
 
 <p>Upon arriving home and stepping into the living room, she found Han-pan playing in the pool. She opened the large window and went outside. The humid air of mid-August greeted her. She slowly watched her son, who was swimming hard, cutting through the water. With the muscles of his entire body bulging as he moved forward rapidly like a killer whale, he was the epitome of an alpha male.</p>
 
@@ -77,9 +81,13 @@ chapter = 10
 
 <p>“Oh, alright.”</p>
 
-<p>Han-pan said that and climbed out of the pool, and Miho let out a gasp as she felt the lingering feeling from the morning connect again at the sight of his broad shoulders and body line. His body, soaked with moisture, was sparkling in the sunlight, which accentuated his physique even more. While admiring his body, she was suddenly startled; it was the size of her son’s Cock, which was faintly visible through his wet triangle swimsuit.</p>
+<p>Han-pan said that and climbed out of the pool, and Miho let out a gasp as she felt the lingering feeling from the morning connect again at the sight of his broad shoulders and body line. His body, soaked with moisture, was sparkling in the sunlight, which accentuated his physique even more.</p>
 
-<p>In an instant, she could tell it was quite a Monster Cock, and she couldn't understand why she hadn't noticed such a thing before. Shaking the water off his body as he slowly approached her, Han-pan was the very image of a man with a magnificent body, as if carved from a statue of David, and an excellent size to boot. She couldn't believe he was her son. And she guessed that the feelings she felt were definitely not wrong.</p>
+<p>While admiring his body, she was suddenly startled; it was the size of her son’s Cock, which was faintly visible through his wet triangle swimsuit.</p>
+
+<p>In an instant, she could tell it was quite a Monster Cock, and she couldn't understand why she hadn't noticed such a thing before. Shaking the water off his body as he slowly approached her, Han-pan was the very image of a man with a magnificent body, as if carved from a statue of David, and an excellent size to boot. She couldn't believe he was her son.</p>
+
+<p>And she guessed that the feelings she felt were definitely not wrong.</p>
 
 <p>Miho closed her eyes and took a deep breath before turning away from Han-pan as he approached and entering the house. She slowly walked to the sofa, set her bag down on the coffee table in front of it, leaned her entire body diagonally across the sofa, and placed her legs on a cushion in the corner.</p>
 
@@ -111,7 +119,9 @@ chapter = 10
 
 <p>As soon as she finished speaking, Han-pan began to slowly touch her calves in earnest. Moans occasionally escaped Miho’s mouth whenever his hands applied pressure to the muscles, and it was a very good feeling.</p>
 
-<p>Meanwhile, as Han-pan touched her smooth legs, it felt like he was touching a mass of milk and butter mixed together. Her legs were very straight, soft, and supple. After touching the calf muscles for a while, he slowly removed the high heels she was wearing, revealing her small but beautifully lined toes and white-painted pedicure. And as he lifted her feet and slowly applied stimulation to each one, the moans coming from Miho’s mouth grew stronger.</p>
+<p>Meanwhile, as Han-pan touched her smooth legs, it felt like he was touching a mass of milk and butter mixed together. Her legs were very straight, soft, and supple. After touching the calf muscles for a while, he slowly removed the high heels she was wearing, revealing her small but beautifully lined toes and white-painted pedicure.</p>
+
+<p>And as he lifted her feet and slowly applied stimulation to each one, the moans coming from Miho’s mouth grew stronger.</p>
 
 <p>“Ah… ah… Son… you’re so skilled. Where did you learn this? Do they teach foot massages in the army too?”</p>
 

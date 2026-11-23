@@ -123,7 +123,9 @@ chapter = 74
 
 <p>“Of course…”</p>
 
-<p>At his words, Miho took his cock into her mouth and began to move her head up and down. A few minutes later, her mouth was soon filled with his cum. After sitting up, she smiled at him and swallowed the mouthful of cum down her throat in one gulp. Then, she stuck out her tongue to lick the cum smeared around her lips, took his cock deep into her mouth one last time, shook it to steal the very last drop of cum, and stood up while smacking her lips.</p>
+<p>At his words, Miho took his cock into her mouth and began to move her head up and down. A few minutes later, her mouth was soon filled with his cum. After sitting up, she smiled at him and swallowed the mouthful of cum down her throat in one gulp.</p>
+
+<p>Then, she stuck out her tongue to lick the cum smeared around her lips, took his cock deep into her mouth one last time, shook it to steal the very last drop of cum, and stood up while smacking her lips.</p>
 
 <p>“It’s perfect as a protein shake to have before exercising… mmm…”</p>
 
@@ -151,7 +153,9 @@ chapter = 74
 
 <p>Her eyes went wide as she took off the thin robe she was wearing. Then, her body, wearing only a thin slip, was revealed. Since she was in a no-bra state, her breasts and explicit nipples were clearly revealed through the silhouette of the slip. At the same time, she sat on the bed and took off her panties. Then, she slowly crawled toward the head of the bed where his face was positioned.</p>
 
-<p>After giving his lips a short kiss, she carefully positioned her legs next to his head, gripped the headboard of the bed firmly with both hands, and leaned her body against the wall. Her buttocks were thrust toward his face, and in Han-pan’s eyes, her fucking cunt, already soaking wet inside the slip, was clearly visible. Miho, subconsciously mindful of the words he spat out about eating her, spoke.</p>
+<p>After giving his lips a short kiss, she carefully positioned her legs next to his head, gripped the headboard of the bed firmly with both hands, and leaned her body against the wall. Her buttocks were thrust toward his face, and in Han-pan’s eyes, her fucking cunt, already soaking wet inside the slip, was clearly visible.</p>
+
+<p>Miho, subconsciously mindful of the words he spat out about eating her, spoke.</p>
 
 <p>“Son, eat Mom… make me come…”</p>
 

@@ -35,7 +35,9 @@ chapter = 157
 
 <p>The two greeted each other with bright, happy smiles. As Miho-ssi’s family and Ban Mi-jo-nim’s family exchanged greetings, Han-pan looked at Ban Mi-jo-nim with a faint smile. She responded by shooting him a brief but intense, piercing gaze. So-jo-ssi immediately noticed the look and gave Han-pan a light nudge in the ribs.</p>
 
-<p>They continued their friendly conversation. Meanwhile, Park Hye-seon’s family appeared from somewhere and joined the group. They quickly exchanged greetings and engaged in small talk. The subject of the conversation shifted rapidly from one thing to another, but Han-pan’s eyes were constantly and quickly stealing glances at Jo Su-yeon-ssi, fully conscious of her. So-jo-ssi watched him with a questioning look.</p>
+<p>They continued their friendly conversation. Meanwhile, Park Hye-seon’s family appeared from somewhere and joined the group. They quickly exchanged greetings and engaged in small talk. The subject of the conversation shifted rapidly from one thing to another, but Han-pan’s eyes were constantly and quickly stealing glances at Jo Su-yeon-ssi, fully conscious of her.</p>
+
+<p>So-jo-ssi watched him with a questioning look.</p>
 
 <p>As the flow of people leaving the hall began to thin out, Han-pan decided he should show So-jo-ssi something interesting. He didn't have a guarantee they would show up like last time, but he had a premonition they would appear again. Han-pan leaned toward So-jo-ssi and whispered quietly into her ear.</p>
 
@@ -91,7 +93,9 @@ chapter = 157
 
 <p>So-jo-ssi nodded and observed Su-yeon-ssi. She was wearing a refreshing coral-colored dress that reached her knees, with a modest U-shaped neckline that elegantly framed her delicate collarbone. The full A-line skirt flared out from her hips, creating an image of grace and nobility. She looked exactly like the kind of sister who would be popular at church.</p>
 
-<p>However, as So-jo-ssi’s gaze traveled downward, she discovered something interesting. Unlike the other women, she was wearing dizzyingly high kill heels. So-jo-ssi felt those shoes defined her character. She instinctively sensed that this woman was the type to play the innocent while being quite the fox behind the scenes. The heels were a simple design but perfectly shaped, clearly from a luxury French brand. They were the same coral shade as her dress. The sharp V-shaped toe and the dangerously thin, awl-like 12cm heels were breathtakingly steep.</p>
+<p>However, as So-jo-ssi’s gaze traveled downward, she discovered something interesting. Unlike the other women, she was wearing dizzyingly high kill heels. So-jo-ssi felt those shoes defined her character. She instinctively sensed that this woman was the type to play the innocent while being quite the fox behind the scenes.</p>
+
+<p>The heels were a simple design but perfectly shaped, clearly from a luxury French brand. They were the same coral shade as her dress. The sharp V-shaped toe and the dangerously thin, awl-like 12cm heels were breathtakingly steep.</p>
 
 <p>Su-yeon-ssi looked around the room. Han-pan and So-jo-ssi instinctively crouched lower, pressing themselves into the piles of luggage. Fortunately, she didn't notice them. Soon, another set of footsteps approached. Su-yeon-ssi turned toward the door as Byeon Gap-tae entered.</p>
 
@@ -127,7 +131,9 @@ chapter = 157
 
 <p>“Hmph, as if,” So-jo-ssi countered quietly.</p>
 
-<p>While they whispered their commentary, Byeon Gap-tae and Jo Su-yeon-ssi, unaware of their audience, grew even more fervent. A moment later, Byeon Gap-tae turned her around. Jo Su-yeon-ssi quickly leaned over toward the frosted window pane, thrusting her buttocks out. She lowered her body smoothly, positioning her ass perfectly against the spot where Gap-tae’s dick was. It was a posture and form that only came from experience.</p>
+<p>While they whispered their commentary, Byeon Gap-tae and Jo Su-yeon-ssi, unaware of their audience, grew even more fervent. A moment later, Byeon Gap-tae turned her around. Jo Su-yeon-ssi quickly leaned over toward the frosted window pane, thrusting her buttocks out. She lowered her body smoothly, positioning her ass perfectly against the spot where Gap-tae’s dick was.</p>
+
+<p>It was a posture and form that only came from experience.</p>
 
 <p>“Ho... they’re amazing. They must have had sex for a long time... their positioning is a work of art.”</p>
 

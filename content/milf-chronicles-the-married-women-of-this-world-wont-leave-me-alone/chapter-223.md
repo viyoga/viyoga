@@ -9,23 +9,33 @@ chapter = 223
 Even though the last day of August had long passed the start of autumn, the sweltering heat showed no signs of subsiding.<br>
 However, the fairly cool breeze blowing in the evening was signaling the beginning of fall.</p>
 
-<p>The morning sunlight filled Han-pan’s room.<br>
-Opening his eyes, he stretched his limbs wide, fully opening his body.<br>
-Memories of the delightful times with Lee Ae-yeon and the lesbian play between Miho and So-jo flooded his mind.<br>
-Greeting the morning wood, his cock stood tall and proud, fueled by the morning's energy.<br>
-He pulled his cock out and gave it a few strokes up and down.<br>
-It felt good.</p>
+<p>The morning sunlight filled Han-pan’s room.</p>
+
+<p>Opening his eyes, he stretched his limbs wide, fully opening his body.</p>
+
+<p>Memories of the delightful times with Lee Ae-yeon and the lesbian play between Miho and So-jo flooded his mind.</p>
+
+<p>Greeting the morning wood, his cock stood tall and proud, fueled by the morning's energy.</p>
+
+<p>He pulled his cock out and gave it a few strokes up and down.</p>
+
+<p>It felt good.</p>
 
 <p>He was looking forward to today’s pool party with immense anticipation.<br>
 He knew all too well that it would inevitably end as a sex party.<br>
 With a smirk, he got out of bed, stretched, and followed his usual routine—going to the kitchen to gulp down some cold water before heading to the home gym.</p>
 
-<p>Miho was already there, stretching and preparing for her workout.<br>
-Dressed in leggings and a sports bra, her body possessed curves that were perfectly sculpted.<br>
-Her breasts thrust forward prominently, her waist nipped in sharply, and her buttocks protruded voluptuously in the back.<br>
-Sensing Han-pan’s presence as he admired her figure, Miho turned around.<br>
-Seeing the delighted expression on his face, she gave a bashful smile.<br>
-He greeted her cheerfully.</p>
+<p>Miho was already there, stretching and preparing for her workout.</p>
+
+<p>Dressed in leggings and a sports bra, her body possessed curves that were perfectly sculpted.</p>
+
+<p>Her breasts thrust forward prominently, her waist nipped in sharply, and her buttocks protruded voluptuously in the back.</p>
+
+<p>Sensing Han-pan’s presence as he admired her figure, Miho turned around.</p>
+
+<p>Seeing the delighted expression on his face, she gave a bashful smile.</p>
+
+<p>He greeted her cheerfully.</p>
 
 <p>“Good morning, Mom!”</p>
 
@@ -51,10 +61,13 @@ Miho was flustered by his sudden action but didn't let it show.</p>
 
 <p>“Ah… just let that one slide… you weren't there, and one thing led to another… hmmm…”</p>
 
-<p>Miho’s face turned slightly red.<br>
-Han-pan thought she was adorable.<br>
-He released his hold on her and began stretching by her side.<br>
-He changed the subject.</p>
+<p>Miho’s face turned slightly red.</p>
+
+<p>Han-pan thought she was adorable.</p>
+
+<p>He released his hold on her and began stretching by her side.</p>
+
+<p>He changed the subject.</p>
 
 <p>“By the way… about the pool party today, what time did you tell Eun-young-ajumma to come over?”</p>
 
@@ -94,10 +107,13 @@ He changed the subject.</p>
 
 <p>“Of course, of course.”</p>
 
-<p>With that, the two focused on their workout.<br>
-Han-pan stole glances at Miho as she exercised beside him.<br>
-Her firm, bouncy figure stimulated him.<br>
-He felt a desperate urge to have sex, but he forced himself to endure it and finished his workout, fearing that having sex every single morning would ruin his routine.</p>
+<p>With that, the two focused on their workout.</p>
+
+<p>Han-pan stole glances at Miho as she exercised beside him.</p>
+
+<p>Her firm, bouncy figure stimulated him.</p>
+
+<p>He felt a desperate urge to have sex, but he forced himself to endure it and finished his workout, fearing that having sex every single morning would ruin his routine.</p>
 
 <p>The two soon headed to their respective shower rooms. By the time Han-pan finished showering and came down to the kitchen, So-jo was already awake and helping Miho prepare breakfast.</p>
 
@@ -105,20 +121,31 @@ He felt a desperate urge to have sex, but he forced himself to endure it and fin
 
 <p>“Yeah, good morning to you too, Noona.”</p>
 
-<p>Han-pan stood by their side and assisted in preparing the meal.<br>
-Soon, the three sat down and began breakfast, engaging in light conversation.<br>
-After finishing the meal, Han-pan helped clear the table and returned to his room, flopping down onto the bed.<br>
-He logged into X and OnlyFans to update a few posts he had prepared in advance.<br>
-Once finished, he set his phone aside and stared blankly at the ceiling.</p>
+<p>Han-pan stood by their side and assisted in preparing the meal.</p>
 
-<p>At that moment, he remembered the packages that had arrived yesterday.<br>
-He hurriedly got out of bed, picked up the stack of packages piled at the entrance of the living room in one go, and returned to his room.<br>
-He tore open the wrappers and boxes one by one.<br>
-A smile spread across his face as he inspected each item.<br>
-He neatly organized the various types of dildos, vibrators, and BDSM tools he had ordered online and arranged them on the shelf.<br>
-He thought he needed a box or a bag to keep them in.<br>
-Rummaging through his room, he found a case and packed them away carefully.<br>
-He hadn't realized it when ordering, but the variety was quite extensive.</p>
+<p>Soon, the three sat down and began breakfast, engaging in light conversation.</p>
+
+<p>After finishing the meal, Han-pan helped clear the table and returned to his room, flopping down onto the bed.</p>
+
+<p>He logged into X and OnlyFans to update a few posts he had prepared in advance.</p>
+
+<p>Once finished, he set his phone aside and stared blankly at the ceiling.</p>
+
+<p>At that moment, he remembered the packages that had arrived yesterday.</p>
+
+<p>He hurriedly got out of bed, picked up the stack of packages piled at the entrance of the living room in one go, and returned to his room.</p>
+
+<p>He tore open the wrappers and boxes one by one.</p>
+
+<p>A smile spread across his face as he inspected each item.</p>
+
+<p>He neatly organized the various types of dildos, vibrators, and BDSM tools he had ordered online and arranged them on the shelf.</p>
+
+<p>He thought he needed a box or a bag to keep them in.</p>
+
+<p>Rummaging through his room, he found a case and packed them away carefully.</p>
+
+<p>He hadn't realized it when ordering, but the variety was quite extensive.</p>
 
 <p>While he was wearing a satisfied smile, he heard a knock on the door.</p>
 
@@ -130,10 +157,13 @@ He hadn't realized it when ordering, but the variety was quite extensive.</p>
 
 <p>“Yeah, come in. Since when did you need permission?”</p>
 
-<p>Miho entered the room with a smile.<br>
-Wearing a sky-blue camisole, short denim shorts, and white sneakers, she looked very lively.<br>
-Han-pan smiled, and when their eyes met, she beamed at him.<br>
-However, her eyes widened in shock when she saw the contents of the case sitting in front of Han-pan.</p>
+<p>Miho entered the room with a smile.</p>
+
+<p>Wearing a sky-blue camisole, short denim shorts, and white sneakers, she looked very lively.</p>
+
+<p>Han-pan smiled, and when their eyes met, she beamed at him.</p>
+
+<p>However, her eyes widened in shock when she saw the contents of the case sitting in front of Han-pan.</p>
 
 <p>“Eh? What are all those?”</p>
 
@@ -145,17 +175,25 @@ However, her eyes widened in shock when she saw the contents of the case sitting
 
 <p>“Hehe… Mom, don't say anything and just follow my lead… it’s not like you’re seeing these for the first time.”</p>
 
-<p>Han-pan spoke while remembering the dildo he had seen in So-jo’s room the night before.<br>
-Miho felt like her head was spinning.<br>
-Even though she enjoyed it herself, it was absurd that her son was buying sex toys like dildos.<br>
-Miho couldn't predict how far Han-pan intended to go.<br>
-She couldn't fathom how he planned to use those sex toys on his own mother.</p>
+<p>Han-pan spoke while remembering the dildo he had seen in So-jo’s room the night before.</p>
 
-<p>But they had already come too far to turn back. She started to say something but then closed her mouth.<br>
-Miho still drifted between the roles of a mother and a sex partner.<br>
-The emotions were complex because he was her child whom she had to care for, while simultaneously being the one who fulfilled her desires.<br>
-Clearly, she thought of herself as a failure as a good mother.<br>
-By satisfying her desires one by one, she had somehow ended up here.</p>
+<p>Miho felt like her head was spinning.</p>
+
+<p>Even though she enjoyed it herself, it was absurd that her son was buying sex toys like dildos.</p>
+
+<p>Miho couldn't predict how far Han-pan intended to go.</p>
+
+<p>She couldn't fathom how he planned to use those sex toys on his own mother.</p>
+
+<p>But they had already come too far to turn back. She started to say something but then closed her mouth.</p>
+
+<p>Miho still drifted between the roles of a mother and a sex partner.</p>
+
+<p>The emotions were complex because he was her child whom she had to care for, while simultaneously being the one who fulfilled her desires.</p>
+
+<p>Clearly, she thought of herself as a failure as a good mother.</p>
+
+<p>By satisfying her desires one by one, she had somehow ended up here.</p>
 
 <p>She let out a long sigh, then looked at him and smiled.<br>
 Since she had come this far, she decided to see just how far they could go.</p>
@@ -164,10 +202,13 @@ Since she had come this far, she decided to see just how far they could go.</p>
 
 <p>“Keke, Mom, you enjoy it too… why the feigned innocence… I get it. If you don't like something, tell me anytime… but hasn't it been good so far?”</p>
 
-<p>Certainly, the dizzying arousal until now had been wonderful.<br>
-Instead of an answer, she replied with a smile.<br>
-Sex with her children, which far exceeded the boundaries of the forbidden, as well as bold acts like exposure, were things she could never have experienced in her normal life.<br>
-These acts, a series of plays that made her heart literally tighten, were incredibly fun and intriguing.</p>
+<p>Certainly, the dizzying arousal until now had been wonderful.</p>
+
+<p>Instead of an answer, she replied with a smile.</p>
+
+<p>Sex with her children, which far exceeded the boundaries of the forbidden, as well as bold acts like exposure, were things she could never have experienced in her normal life.</p>
+
+<p>These acts, a series of plays that made her heart literally tighten, were incredibly fun and intriguing.</p>
 
 <p>“Um… anyway, I get it… let’s go grocery shopping… get ready…”</p>
 
@@ -191,23 +232,36 @@ These acts, a series of plays that made her heart literally tighten, were incred
 
 <p>“Mmm…”</p>
 
-<p>Miho left his room without saying much else.<br>
-After she disappeared, Han-pan changed his clothes.<br>
-He checked the post he had uploaded a moment ago.<br>
-In that short time, several comments had been posted.<br>
-The majority were asking for the next update quickly.<br>
-Han-pan’s heart raced with excitement.<br>
-Exposing his mother and sharing sexual acts with others provided an unknown sense of catharsis.</p>
+<p>Miho left his room without saying much else.</p>
 
-<p>When Han-pan came out to the living room, he found Miho sitting on the sofa, looking at her phone.<br>
-She was wearing the denim shorts he had requested, which showed off her entire legs.<br>
-Han-pan hadn't expected her to own something like that, but she had put them on regardless, and to satisfy him further, she was wearing gold-colored high heels.<br>
-The sandal-style heels had two straps gripping her instep and ankle.<br>
-She must have applied perfume in the meantime, as a fragrant scent wafted from her.</p>
+<p>After she disappeared, Han-pan changed his clothes.</p>
 
-<p>Seeing him come down, Miho put her phone in her handbag and stood up.<br>
-She had styled her hair into curls and was wearing large circular earrings encrusted with cubic zirconia.<br>
-Han-pan wore a satisfied smile and politely gestured toward the underground garage with both hands.<br>
-Miho found her son’s flattery amusing.</p>
+<p>He checked the post he had uploaded a moment ago.</p>
+
+<p>In that short time, several comments had been posted.</p>
+
+<p>The majority were asking for the next update quickly.</p>
+
+<p>Han-pan’s heart raced with excitement.</p>
+
+<p>Exposing his mother and sharing sexual acts with others provided an unknown sense of catharsis.</p>
+
+<p>When Han-pan came out to the living room, he found Miho sitting on the sofa, looking at her phone.</p>
+
+<p>She was wearing the denim shorts he had requested, which showed off her entire legs.</p>
+
+<p>Han-pan hadn't expected her to own something like that, but she had put them on regardless, and to satisfy him further, she was wearing gold-colored high heels.</p>
+
+<p>The sandal-style heels had two straps gripping her instep and ankle.</p>
+
+<p>She must have applied perfume in the meantime, as a fragrant scent wafted from her.</p>
+
+<p>Seeing him come down, Miho put her phone in her handbag and stood up.</p>
+
+<p>She had styled her hair into curls and was wearing large circular earrings encrusted with cubic zirconia.</p>
+
+<p>Han-pan wore a satisfied smile and politely gestured toward the underground garage with both hands.</p>
+
+<p>Miho found her son’s flattery amusing.</p>
 
 <p>Miho<br></p>

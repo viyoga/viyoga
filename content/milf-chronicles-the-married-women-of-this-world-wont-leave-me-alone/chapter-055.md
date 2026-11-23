@@ -5,12 +5,17 @@ weight = 55
 chapter = 55
 +++
 
-<p>&lt;Right, then I’ll pick you up around 12:00 tomorrow.&gt;<br>
-&lt;Yes, I understand!&gt;<br>
-&lt;Oh! And the studio I know is closed tomorrow for a holiday... but I’m close with the director there, so I asked for a favor and he gladly agreed! I think it’ll be a comfortable place for us to film.&gt;<br>
-&lt;Oh, that’s even better!&gt;<br>
-&lt;Great then! See you tomorrow! Bye-bye.&gt;<br>
-&lt;See you tomorrow! ^^&gt;</p>
+<p>&lt;Right, then I’ll pick you up around 12:00 tomorrow.&gt;</p>
+
+<p>&lt;Yes, I understand!&gt;</p>
+
+<p>&lt;Oh! And the studio I know is closed tomorrow for a holiday... but I’m close with the director there, so I asked for a favor and he gladly agreed! I think it’ll be a comfortable place for us to film.&gt;</p>
+
+<p>&lt;Oh, that’s even better!&gt;</p>
+
+<p>&lt;Great then! See you tomorrow! Bye-bye.&gt;</p>
+
+<p>&lt;See you tomorrow! ^^&gt;</p>
 
 <p>Han-pan let out a sigh and tossed his phone to the side. He lay spread-eagle on the bed, propping his head up with both arms. He reflected on the Sunday, thinking about how many things had happened. A flurry of thoughts raced through his mind.</p>
 
@@ -172,7 +177,9 @@ chapter = 55
 
 <p>So-jo-ssi spoke with a stern expression.</p>
 
-<p>“Little brother, I understand that you don’t want to take sides, and that’s your freedom, so it’s not my place to interfere. But as a woman, there are things that just don’t sit right. You’re a man, so you might not understand, but there’s a certain aura between women. Just hating someone for no reason… Ah, anyway, Mom must be really pissed off. It’s going to be low pressure around here for a while.”</p>
+<p>“Little brother, I understand that you don’t want to take sides, and that’s your freedom, so it’s not my place to interfere. But as a woman, there are things that just don’t sit right. You’re a man, so you might not understand, but there’s a certain aura between women. Just hating someone for no reason… Ah, anyway, Mom must be really pissed off.</p>
+
+<p>It’s going to be low pressure around here for a while.”</p>
 
 <p>“…”</p>
 

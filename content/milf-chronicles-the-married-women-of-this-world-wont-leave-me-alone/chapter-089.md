@@ -7,30 +7,51 @@ chapter = 89
 
 <p>"!!!!!!"</p>
 
-<p>Han-pan felt a sensation completely different from yesterday.<br>
-Though she was wearing a similar style of lingerie, she felt undeniably different.<br>
-Unlike yesterday, her energy was overflowing, and he felt the same.<br>
-The dazzling lace lingerie wrapping her body was a white bra embroidered with intricate red Arabesque patterns.<br>
-Because it was a see-through style, her pink nipples were clearly visible through the flashy lace.<br>
-The bra, which couldn't properly contain her two large breasts, was barely supporting her massive chest.<br>
-The dazzling red lace contrasted sharply with her fair skin, obscuring his vision with its provocative stimulation.<br>
-The garter belt resting on her slender waist and the bra seemed to be a set, sharing the same pattern. The lower straps of the garter belt extended downward, firmly fastened to her white stockings with metal clips.<br>
-The matching panties were a g-string style, so small they barely covered her pussy.<br>
-Han-pan felt a wave of dizziness as he looked at her panties, which were smaller than the palm of his hand, and the matching lace pattern decorating them.<br>
-Seeing her sense of style in wearing the panties over the garter belt, just like yesterday, his eyes widened.<br>
-Miho, noticing his desire-filled gaze, gave a satisfied smile while still holding her phone, waiting for someone to answer.<br>
-A moment later, a voice could be heard from the other side.</p>
+<p>Han-pan felt a sensation completely different from yesterday.</p>
 
-<p>"It's me... Yeah... I'm not feeling very well today... so I'm going to rest at home... Right... Yeah... That matter from yesterday was settled well, right?... Yeah... Yeah... Okay... Right... Right... I understand... Yeah... Call me immediately if anything happens... I'll be resting at home... I'll see how I feel and come in the afternoon if I can... Right... Tell Executive Director Oh to handle the rest... Yeah, yeah... I'm counting on you..."</p>
+<p>Though she was wearing a similar style of lingerie, she felt undeniably different.</p>
 
-<p>After saying that, she firmly pressed the end button on her phone with her finger, turned around to head toward his desk, and placed the phone down.<br>
-Han-pan could see her from behind, and it was just as dizzying as the front.<br>
-He could clearly see the T-shape of the g-string cutting across her buttocks.<br>
-In particular, a very small ring in the center connected the two strings around her waist and the single line that divided her pussy.<br>
-Below that, the other parts of the garter belt held her stockings firmly with metal clips, and the red soles of the high heels worn over her white stockings stimulated his gaze in a disorienting way.<br>
-Han-pan's heart pounded violently as he watched her turn back around and approach him.<br>
-As his heart raced, he felt all his blood rushing toward his cock.<br>
-Miho smiled playfully, clearly pleased with Han-pan's reaction.</p>
+<p>Unlike yesterday, her energy was overflowing, and he felt the same.</p>
+
+<p>The dazzling lace lingerie wrapping her body was a white bra embroidered with intricate red Arabesque patterns.</p>
+
+<p>Because it was a see-through style, her pink nipples were clearly visible through the flashy lace.</p>
+
+<p>The bra, which couldn't properly contain her two large breasts, was barely supporting her massive chest.</p>
+
+<p>The dazzling red lace contrasted sharply with her fair skin, obscuring his vision with its provocative stimulation.</p>
+
+<p>The garter belt resting on her slender waist and the bra seemed to be a set, sharing the same pattern. The lower straps of the garter belt extended downward, firmly fastened to her white stockings with metal clips.</p>
+
+<p>The matching panties were a g-string style, so small they barely covered her pussy.</p>
+
+<p>Han-pan felt a wave of dizziness as he looked at her panties, which were smaller than the palm of his hand, and the matching lace pattern decorating them.</p>
+
+<p>Seeing her sense of style in wearing the panties over the garter belt, just like yesterday, his eyes widened.</p>
+
+<p>Miho, noticing his desire-filled gaze, gave a satisfied smile while still holding her phone, waiting for someone to answer.</p>
+
+<p>A moment later, a voice could be heard from the other side.</p>
+
+<p>"It's me... Yeah... I'm not feeling very well today... so I'm going to rest at home... Right... Yeah... That matter from yesterday was settled well, right?... Yeah... Yeah... Okay... Right... Right... I understand... Yeah... Call me immediately if anything happens... I'll be resting at home... I'll see how I feel and come in the afternoon if I can... Right...</p>
+
+<p>Tell Executive Director Oh to handle the rest... Yeah, yeah... I'm counting on you..."</p>
+
+<p>After saying that, she firmly pressed the end button on her phone with her finger, turned around to head toward his desk, and placed the phone down.</p>
+
+<p>Han-pan could see her from behind, and it was just as dizzying as the front.</p>
+
+<p>He could clearly see the T-shape of the g-string cutting across her buttocks.</p>
+
+<p>In particular, a very small ring in the center connected the two strings around her waist and the single line that divided her pussy.</p>
+
+<p>Below that, the other parts of the garter belt held her stockings firmly with metal clips, and the red soles of the high heels worn over her white stockings stimulated his gaze in a disorienting way.</p>
+
+<p>Han-pan's heart pounded violently as he watched her turn back around and approach him.</p>
+
+<p>As his heart raced, he felt all his blood rushing toward his cock.</p>
+
+<p>Miho smiled playfully, clearly pleased with Han-pan's reaction.</p>
 
 <p>"Do you like it?"</p>
 
@@ -85,17 +106,27 @@ Miho looked at him for a moment, paused, and then spoke.</p>
 
 <p>"But... your body's reaction seems slow... Are you just going to keep watching like that? Or are you going to strip me?"</p>
 
-<p>At her words, Han-pan sprang up as if a spring had pushed his body and charged toward her.<br>
-He embraced her tightly with both arms, and Miho also wrapped her arms around his neck and back.<br>
-Their bodies immediately rubbed together intensely, and their lips met passionately.<br>
-Soon, their tongues tangled and entwined as they rubbed their bodies hard against each other.<br>
-Intense sensual friction occurred between them, and the heat became fierce.<br>
-Their foreplay was as fierce as the intense heat, but they did not rush.<br>
-Enjoying every moment, they felt each other's sensation with their entire bodies.<br>
-A moment later, their lips parted as they inhaled deeply, slowing the tempo.<br>
-They looked at each other.<br>
-Han-pan didn't want to break the atmosphere, but there was one thing he was curious about.<br>
-He didn't necessarily need to ask, but he wanted to know.</p>
+<p>At her words, Han-pan sprang up as if a spring had pushed his body and charged toward her.</p>
+
+<p>He embraced her tightly with both arms, and Miho also wrapped her arms around his neck and back.</p>
+
+<p>Their bodies immediately rubbed together intensely, and their lips met passionately.</p>
+
+<p>Soon, their tongues tangled and entwined as they rubbed their bodies hard against each other.</p>
+
+<p>Intense sensual friction occurred between them, and the heat became fierce.</p>
+
+<p>Their foreplay was as fierce as the intense heat, but they did not rush.</p>
+
+<p>Enjoying every moment, they felt each other's sensation with their entire bodies.</p>
+
+<p>A moment later, their lips parted as they inhaled deeply, slowing the tempo.</p>
+
+<p>They looked at each other.</p>
+
+<p>Han-pan didn't want to break the atmosphere, but there was one thing he was curious about.</p>
+
+<p>He didn't necessarily need to ask, but he wanted to know.</p>
 
 <p>"Is there a specific reason you decided not to go to work today?"</p>
 
@@ -112,12 +143,17 @@ Han-pan realized his question had been a mistake.</p>
 
 <p>"Why else? It's because I wanted to have a good time with my son..."</p>
 
-<p>She said that and gently pressed her lips against his cheek.<br>
-It was a very soft kiss.<br>
-Han-pan could feel her heart.<br>
-Han-pan leaned his head forward and lightly pressed his lips to her forehead.<br>
-Miho's face flushed slightly at his kiss.<br>
-She reached down, gripped his cock, and said,</p>
+<p>She said that and gently pressed her lips against his cheek.</p>
+
+<p>It was a very soft kiss.</p>
+
+<p>Han-pan could feel her heart.</p>
+
+<p>Han-pan leaned his head forward and lightly pressed his lips to her forehead.</p>
+
+<p>Miho's face flushed slightly at his kiss.</p>
+
+<p>She reached down, gripped his cock, and said,</p>
 
 <p>"What I need right now is this... not company work..."</p>
 
@@ -150,24 +186,44 @@ It was something else entirely, on a different dimension from being completely n
 
 <p>"Yes, ma'am!!!"</p>
 
-<p>Sensing his intense desire, Miho took a step back from the bed.<br>
-She turned around, walked to the desk, picked up her phone, and searched for something.<br>
-Soon, a fairly fast hip-hop club track began to flow out.<br>
-She smiled and walked in front of him.<br>
-Then, she slowly bent her knees, placed both hands on them, pushed out her buttocks, and shook them.<br>
-As she did, she slowly made a half-turn to the rhythm.<br>
-Her back view appeared.<br>
-Her voluptuous buttocks shook up and down according to her movements, and Han-pan found himself becoming even more aroused each time they did.<br>
-She stretched both hands upward and straightened her body, then turned her head to look at him, continuing to dance to the rhythm with a smile.<br>
-Then she leaned over again, simultaneously bending her knees and pushing her buttocks toward him before shaking them.<br>
-Han-pan could see the mounds of her Jade Gate area, which were plumply protruding and wrapped in the g-string. The fact that it was covered by such a tiny piece of cloth excited him even more.<br>
-Miho continued her dance.<br>
-Twisting and leaning her body, she shook her breasts and buttocks as much as possible.<br>
-Following those movements, the flesh of her breasts and buttocks surged and swayed.<br>
-Han-pan had to suppress the impulse to jump out immediately, embrace her, and have sex.<br>
-For now, he wanted to enjoy this moment with his eyes.<br>
-Her pupils were filled with desire and love for him.<br>
-Han-pan quickly pulled down his boxers, took them off, and threw them to one side.<br>
-Pre-cum was already spraying from his cock.<br>
-Seeing that, Miho slowly approached him while moving to the rhythm.<br>
-Han-pan's mouth fell open, and a wide smile spread across his face.</p>
+<p>Sensing his intense desire, Miho took a step back from the bed.</p>
+
+<p>She turned around, walked to the desk, picked up her phone, and searched for something.</p>
+
+<p>Soon, a fairly fast hip-hop club track began to flow out.</p>
+
+<p>She smiled and walked in front of him.</p>
+
+<p>Then, she slowly bent her knees, placed both hands on them, pushed out her buttocks, and shook them.</p>
+
+<p>As she did, she slowly made a half-turn to the rhythm.</p>
+
+<p>Her back view appeared.</p>
+
+<p>Her voluptuous buttocks shook up and down according to her movements, and Han-pan found himself becoming even more aroused each time they did.</p>
+
+<p>She stretched both hands upward and straightened her body, then turned her head to look at him, continuing to dance to the rhythm with a smile.</p>
+
+<p>Then she leaned over again, simultaneously bending her knees and pushing her buttocks toward him before shaking them.</p>
+
+<p>Han-pan could see the mounds of her Jade Gate area, which were plumply protruding and wrapped in the g-string. The fact that it was covered by such a tiny piece of cloth excited him even more.</p>
+
+<p>Miho continued her dance.</p>
+
+<p>Twisting and leaning her body, she shook her breasts and buttocks as much as possible.</p>
+
+<p>Following those movements, the flesh of her breasts and buttocks surged and swayed.</p>
+
+<p>Han-pan had to suppress the impulse to jump out immediately, embrace her, and have sex.</p>
+
+<p>For now, he wanted to enjoy this moment with his eyes.</p>
+
+<p>Her pupils were filled with desire and love for him.</p>
+
+<p>Han-pan quickly pulled down his boxers, took them off, and threw them to one side.</p>
+
+<p>Pre-cum was already spraying from his cock.</p>
+
+<p>Seeing that, Miho slowly approached him while moving to the rhythm.</p>
+
+<p>Han-pan's mouth fell open, and a wide smile spread across his face.</p>

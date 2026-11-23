@@ -49,7 +49,9 @@ chapter = 31
 
 <p>“I see.”</p>
 
-<p>Having opened up, the two shared stories about various light topics around them. Soon, the food arrived one by one, and they talked a lot while sharing the meal. They had more similar hobbies than expected, so the conversation flowed. In particular, since Hye-su liked watching movies, she communicated quite well with him on that subject. She talked about the types of movies she liked, and they matched his preferences well. Knowing his father’s personality—someone who didn’t like going to movie theaters—he guessed she had been looking for someone to talk to about such things.</p>
+<p>Having opened up, the two shared stories about various light topics around them. Soon, the food arrived one by one, and they talked a lot while sharing the meal. They had more similar hobbies than expected, so the conversation flowed. In particular, since Hye-su liked watching movies, she communicated quite well with him on that subject.</p>
+
+<p>She talked about the types of movies she liked, and they matched his preferences well. Knowing his father’s personality—someone who didn’t like going to movie theaters—he guessed she had been looking for someone to talk to about such things.</p>
 
 <p>Thus, the two continued their conversation quite pleasantly while sharing the food that filled the full table. She didn’t have children, but judging by her intentions, she seemed to want them. Han-pan wondered if he might end up with a half-sibling. The meal ended as the conversation continued. Soon, dessert and tea were served. The conversation paused for a moment as they both sipped their tea.</p>
 

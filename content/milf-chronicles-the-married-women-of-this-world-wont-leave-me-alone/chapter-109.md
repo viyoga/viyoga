@@ -131,7 +131,9 @@ chapter = 109
 
 <p>“Anyway... one thing I can tell you is that a few things happened in this house while you were gone, hohoho.”</p>
 
-<p>Han-pan thought So-jo was going a bit too far. He was incredibly worried about how to explain the recent series of events to her, given her conservative attitude. Han-pan decided to just silently follow the direction So-jo was leading. The thought that he might actually be able to do it with Seo-ah -nim, his object of admiration, flashed through his mind. He had already had sex with So-jo -nim and Mom at the same time; there was no rule saying Seo-ah -nim had to be left out.</p>
+<p>Han-pan thought So-jo was going a bit too far. He was incredibly worried about how to explain the recent series of events to her, given her conservative attitude. Han-pan decided to just silently follow the direction So-jo was leading. The thought that he might actually be able to do it with Seo-ah -nim, his object of admiration, flashed through his mind.</p>
+
+<p>He had already had sex with So-jo -nim and Mom at the same time; there was no rule saying Seo-ah -nim had to be left out.</p>
 
 <p>The three of them chatted about various sexual topics for a while, and soon they heard the sound of a car entering the underground parking lot. It seemed Miho -nim had arrived home. As soon as they heard the car, they all looked toward the stairs leading up from the garage to the living room.</p>
 

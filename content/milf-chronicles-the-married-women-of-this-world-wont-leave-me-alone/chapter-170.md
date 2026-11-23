@@ -5,7 +5,9 @@ weight = 170
 chapter = 170
 +++
 
-<p>Returning to the sales team, Hong Jin-woo sat vacantly at his desk. For a moment, he spaced out, the image of Kim Ha-na-ssi’s legs flickering in his mind. They were truly incredible legs. Just thinking about them made his araetdori feel heavy and thick without him even realizing it. He felt like he needed to rush home and jerk off immediately. It was a time of pure torture for him. He shook his head and squeezed his eyes shut. After focusing his mind, he spent the time looking through the company’s work manual sitting on his desk.</p>
+<p>Returning to the sales team, Hong Jin-woo sat vacantly at his desk. For a moment, he spaced out, the image of Kim Ha-na-ssi’s legs flickering in his mind. They were truly incredible legs. Just thinking about them made his araetdori feel heavy and thick without him even realizing it. He felt like he needed to rush home and jerk off immediately.</p>
+
+<p>It was a time of pure torture for him. He shook his head and squeezed his eyes shut. After focusing his mind, he spent the time looking through the company’s work manual sitting on his desk.</p>
 
 <p>Before long, Kim Ha-na-ssi returned to her seat. Hong Jin-woo looked at her and spoke.</p>
 
@@ -63,7 +65,9 @@ chapter = 170
 
 <p>“Great, then let’s go before the crowds get there!”</p>
 
-<p>Kim Ha-na-ssi stood up and walked out, and Hong Jin-woo followed her. As he walked behind her, his gaze was naturally drawn to her firm buttocks and the long legs stretching out beneath them. Because of her tight skirt and the length that reached her knees, the way the fabric stretched taut with every step she took was incredibly erotic. Moreover, because it was a pale pink color, the intensity was even greater. It was a fresh stimulation he had never experienced before. He felt his araetdori rapidly growing heavy again and quickly turned his head away.</p>
+<p>Kim Ha-na-ssi stood up and walked out, and Hong Jin-woo followed her. As he walked behind her, his gaze was naturally drawn to her firm buttocks and the long legs stretching out beneath them. Because of her tight skirt and the length that reached her knees, the way the fabric stretched taut with every step she took was incredibly erotic.</p>
+
+<p>Moreover, because it was a pale pink color, the intensity was even greater. It was a fresh stimulation he had never experienced before. He felt his araetdori rapidly growing heavy again and quickly turned his head away.</p>
 
 <p>Just then, Kim Ha-na-ssi turned her head to look at him.</p>
 
@@ -157,7 +161,11 @@ chapter = 170
 
 <p>She stood up from her seat as she spoke. It wasn’t her first time directly asking a man she met for the first time on a date, but she could feel herself being seized by an unknown sensation. Hong Jin-woo stood up as well. He tried to pay for his own meal first, but she insisted on paying, telling him to buy dinner instead. He nodded and readily agreed.</p>
 
-<p>The two of them returned to the office and spent the afternoon busy. Since Hong Jin-woo had a solid knowledge of cars, he understood the work quickly, and Kim Ha-na-ssi liked that about him very much. Hong Jin-woo learned the tasks rapidly, grasping two things for every one she taught him. Usually, men spent their time trying to figure out how to get with her, but he wasn’t like that; he seriously mastered everything she taught him one by one. She thought that if he kept this up, she could sufficiently teach him the basics of being a dealer within a week. He was certainly unrefined, but that was charming. The thought that she finally understood what "unrefined charm" meant floated through her head. It was the moment the blunt but pure heart of a country man captured her.</p>
+<p>The two of them returned to the office and spent the afternoon busy. Since Hong Jin-woo had a solid knowledge of cars, he understood the work quickly, and Kim Ha-na-ssi liked that about him very much. Hong Jin-woo learned the tasks rapidly, grasping two things for every one she taught him.</p>
+
+<p>Usually, men spent their time trying to figure out how to get with her, but he wasn’t like that; he seriously mastered everything she taught him one by one. She thought that if he kept this up, she could sufficiently teach him the basics of being a dealer within a week. He was certainly unrefined, but that was charming.</p>
+
+<p>The thought that she finally understood what "unrefined charm" meant floated through her head. It was the moment the blunt but pure heart of a country man captured her.</p>
 
 <p>The afternoon passed quickly, and as the showroom closed, their clock-out time approached. Stretching widely, Kim Ha-na-ssi looked at Hong Jin-woo beside her and spoke.</p>
 
@@ -169,7 +177,9 @@ chapter = 170
 
 <p>“Yes, understood.”</p>
 
-<p>The two of them stood up, grabbed their clothes, and walked out. Other employees were also leaving, and in the 1st-floor lobby, he could see Park Mi-ho-nim, whom he had seen that morning. Beside her was a young man with a youthful face who looked like he had just entered university, but his body was incredibly well-built. He had dark, tanned skin and a likable face, giving off a very sophisticated vibe. Hong Jin-woo felt a sense of envy toward him for some reason.</p>
+<p>The two of them stood up, grabbed their clothes, and walked out. Other employees were also leaving, and in the 1st-floor lobby, he could see Park Mi-ho-nim, whom he had seen that morning. Beside her was a young man with a youthful face who looked like he had just entered university, but his body was incredibly well-built.</p>
+
+<p>He had dark, tanned skin and a likable face, giving off a very sophisticated vibe. Hong Jin-woo felt a sense of envy toward him for some reason.</p>
 
 <p>“What are you looking at?”</p>
 

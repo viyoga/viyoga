@@ -7,14 +7,21 @@ chapter = 177
 
 <p>“Then I’ll see you Thursday.”</p>
 
-<p>After finishing his shower and stepping into the living room, Han-pan met Hwang Yu-hui a moment later. <br>
-She had finished her shower faster than expected, changed her clothes, and even applied light makeup. <br>
-With the light makeup and her glasses on, she had transformed into the image of a typical, modest Samo-nim one would always see at church. <br>
-The lewd gaze he had seen just a moment ago had vanished, replaced by a calm, cold stare. <br>
-Moreover, because she was wearing thin, gold-rimmed glasses, that coldness was even more pronounced. <br>
-Dressed in a clean-cut, navy-colored two-piece suit that subtly hugged her lines, she held a handbag in one hand and a pair of high heels in the other. <br>
-Even if she appeared ordinary, she was a woman who insisted on wearing exceptionally high heels. <br>
-Looking at him, she spoke.</p>
+<p>After finishing his shower and stepping into the living room, Han-pan met Hwang Yu-hui a moment later.</p>
+
+<p>She had finished her shower faster than expected, changed her clothes, and even applied light makeup.</p>
+
+<p>With the light makeup and her glasses on, she had transformed into the image of a typical, modest Samo-nim one would always see at church.</p>
+
+<p>The lewd gaze he had seen just a moment ago had vanished, replaced by a calm, cold stare.</p>
+
+<p>Moreover, because she was wearing thin, gold-rimmed glasses, that coldness was even more pronounced.</p>
+
+<p>Dressed in a clean-cut, navy-colored two-piece suit that subtly hugged her lines, she held a handbag in one hand and a pair of high heels in the other.</p>
+
+<p>Even if she appeared ordinary, she was a woman who insisted on wearing exceptionally high heels.</p>
+
+<p>Looking at him, she spoke.</p>
 
 <p>“How are you getting there?”</p>
 
@@ -30,33 +37,51 @@ Looking at him, she spoke.</p>
 
 <p>“Yes.”</p>
 
-<p>The two of them left the house. <br>
-A massive SUV had already arrived in front of the building. <br>
-It was a luxury SUV that looked expensive even at a glance, and the driver waiting by the door bowed politely the moment he saw her, opening the door. <br>
-As Hwang Yu-hui walked toward the car, she turned her head to look at Han-pan.</p>
+<p>The two of them left the house.</p>
+
+<p>A massive SUV had already arrived in front of the building.</p>
+
+<p>It was a luxury SUV that looked expensive even at a glance, and the driver waiting by the door bowed politely the moment he saw her, opening the door.</p>
+
+<p>As Hwang Yu-hui walked toward the car, she turned her head to look at Han-pan.</p>
 
 <p>“Let’s stay in touch.”</p>
 
-<p>He gave a broad smile and waved his hand as he saw her off. <br>
-A moment later, after the car had departed and Han-pan was left alone, he pulled out his phone and called a taxi. <br>
-The taxi arrived quickly. <br>
-After entering the address for his home, Han-pan sank into thought. <br>
-He needed to clean up the rapid developments around him—especially his relationships with women—and find his own work. <br>
-He pondered what he should do. <br>
-Returning to school to finish his studies was an option, but before that, he wanted to try something interesting that he was capable of doing. <br>
-An idea suddenly struck him.</p>
+<p>He gave a broad smile and waved his hand as he saw her off.</p>
+
+<p>A moment later, after the car had departed and Han-pan was left alone, he pulled out his phone and called a taxi.</p>
+
+<p>The taxi arrived quickly.</p>
+
+<p>After entering the address for his home, Han-pan sank into thought.</p>
+
+<p>He needed to clean up the rapid developments around him—especially his relationships with women—and find his own work.</p>
+
+<p>He pondered what he should do.</p>
+
+<p>Returning to school to finish his studies was an option, but before that, he wanted to try something interesting that he was capable of doing.</p>
+
+<p>An idea suddenly struck him.</p>
 
 <p>“Mister, I’m sorry, but would it be alright if I changed the destination address?”</p>
 
-<p>He told the driver the new destination. <br>
-Burying himself back into the seat, Han-pan crossed his arms and fell into deep thought. <br>
-His mind was a mess, but he decided to just go where his heart led him for now. <br>
-He had many things he could do, and he certainly had the ability. <br>
-Since it was late afternoon and nearing the end of the workday, the traffic on Gangnam-daero was a bit congested, but the taxi carrying Han-pan eventually pulled up in front of a building. <br>
-Han-pan thanked the driver, stepped out, and approached the building. <br>
-It was Miho’s company, standing out with a modern and sophisticated design painted in matte black. <br>
-He walked quickly into the building. <br>
-A woman at the information desk and a male dealer standing beside her approached him.</p>
+<p>He told the driver the new destination.</p>
+
+<p>Burying himself back into the seat, Han-pan crossed his arms and fell into deep thought.</p>
+
+<p>His mind was a mess, but he decided to just go where his heart led him for now.</p>
+
+<p>He had many things he could do, and he certainly had the ability.</p>
+
+<p>Since it was late afternoon and nearing the end of the workday, the traffic on Gangnam-daero was a bit congested, but the taxi carrying Han-pan eventually pulled up in front of a building.</p>
+
+<p>Han-pan thanked the driver, stepped out, and approached the building.</p>
+
+<p>It was Miho’s company, standing out with a modern and sophisticated design painted in matte black.</p>
+
+<p>He walked quickly into the building.</p>
+
+<p>A woman at the information desk and a male dealer standing beside her approached him.</p>
 
 <p>“How can we help you?”</p>
 
@@ -78,11 +103,15 @@ A woman at the information desk and a male dealer standing beside her approached
 
 <p>“Ah, yes.”</p>
 
-<p>He nodded. <br>
-After waiting for a few minutes, he saw Ha Jeong-eun stepping out of the elevator. <br>
-She was a woman who looked incredibly good in thick, black horn-rimmed glasses. <br>
-She was wearing a crisp white shirt and a skirt that reached her knees, but it was quite tight, giving him a perfect view of her pelvic line. The sound of her high heels echoing off the marble floor made him feel a surge of arousal. <br>
-He thought she truly looked the part of the CEO’s direct subordinate.</p>
+<p>He nodded.</p>
+
+<p>After waiting for a few minutes, he saw Ha Jeong-eun stepping out of the elevator.</p>
+
+<p>She was a woman who looked incredibly good in thick, black horn-rimmed glasses.</p>
+
+<p>She was wearing a crisp white shirt and a skirt that reached her knees, but it was quite tight, giving him a perfect view of her pelvic line. The sound of her high heels echoing off the marble floor made him feel a surge of arousal.</p>
+
+<p>He thought she truly looked the part of the CEO’s direct subordinate.</p>
 
 <p>“Hello, Han-pan-ssi.”</p>
 
@@ -113,10 +142,13 @@ She knocked on the door of the CEO’s office and then looked at him.</p>
 
 <p>“Yes.”</p>
 
-<p>Han-pan stepped inside the office. <br>
-There, he saw Miho buried under piles of various documents, working away. <br>
-She remained immersed in her work for a moment before lifting her head to look at Han-pan. <br>
-Her expression was tired, but her eyes were sharp and full of life.</p>
+<p>Han-pan stepped inside the office.</p>
+
+<p>There, he saw Miho buried under piles of various documents, working away.</p>
+
+<p>She remained immersed in her work for a moment before lifting her head to look at Han-pan.</p>
+
+<p>Her expression was tired, but her eyes were sharp and full of life.</p>
 
 <p>“Oh my, son… what brings you here?”</p>
 
@@ -207,13 +239,19 @@ Han-pan also smiled as he received the iced Americano she handed him.</p>
 
 <p>“Thank you, Ha-gwajang-nim.”</p>
 
-<p>She gave a bright smile, bowed silently to Miho, and left the room. <br>
-And so, Han-pan spent time silently looking at his phone while sitting across from her, and Miho continued her work, flipping through the remaining documents. <br>
-After about twenty minutes, Miho raised both arms, stretched, and stood up from her seat. <br>
-The sleeves of the long-sleeved silk shirt she was wearing were rolled up to her elbows. <br>
-She was the quintessential image of a CEO hard at work. <br>
-The high heels she had been wearing when she left were nowhere to be seen; instead, she was wearing comfortable-looking slippers. <br>
-Han-pan chuckled at her somewhat amusing attire and spoke.</p>
+<p>She gave a bright smile, bowed silently to Miho, and left the room.</p>
+
+<p>And so, Han-pan spent time silently looking at his phone while sitting across from her, and Miho continued her work, flipping through the remaining documents.</p>
+
+<p>After about twenty minutes, Miho raised both arms, stretched, and stood up from her seat.</p>
+
+<p>The sleeves of the long-sleeved silk shirt she was wearing were rolled up to her elbows.</p>
+
+<p>She was the quintessential image of a CEO hard at work.</p>
+
+<p>The high heels she had been wearing when she left were nowhere to be seen; instead, she was wearing comfortable-looking slippers.</p>
+
+<p>Han-pan chuckled at her somewhat amusing attire and spoke.</p>
 
 <p>“The slippers are impressive…”</p>
 
@@ -223,11 +261,15 @@ Han-pan chuckled at her somewhat amusing attire and spoke.</p>
 
 <p>“On days like today when I’m doing paperwork, I just want to be comfortable…”</p>
 
-<p>After saying that, she went back to her desk and changed into her high heels. <br>
-Immediately, her height shot up. <br>
-As her waist straightened, her breasts became prominently large, and her buttocks protruded provocatively behind her. <br>
-Han-pan grinned. <br>
-This was the alluring Miho he remembered.</p>
+<p>After saying that, she went back to her desk and changed into her high heels.</p>
+
+<p>Immediately, her height shot up.</p>
+
+<p>As her waist straightened, her breasts became prominently large, and her buttocks protruded provocatively behind her.</p>
+
+<p>Han-pan grinned.</p>
+
+<p>This was the alluring Miho he remembered.</p>
 
 <p>“High heels really suit you, Mom… How should I put it? It feels like the beginning and the end.”</p>
 

@@ -5,9 +5,11 @@ weight = 140
 chapter = 140
 +++
 
-<p>Miho’s lips, tightly clamped around Han-pan’s cock which was erect and hard as cast iron, moved rapidly up and down, intensely stimulating him. <br>
-Added to the movement of her soft lips and tongue, the inside of her mouth—overflowing with wetness from her salivary glands that acted like lubricant—was more than enough to drive him wild. <br>
-Her tongue and lips licked and sucked his dick’s shaft like someone possessed by madness, desperate to give him even the slightest bit of stronger stimulation.</p>
+<p>Miho’s lips, tightly clamped around Han-pan’s cock which was erect and hard as cast iron, moved rapidly up and down, intensely stimulating him.</p>
+
+<p>Added to the movement of her soft lips and tongue, the inside of her mouth—overflowing with wetness from her salivary glands that acted like lubricant—was more than enough to drive him wild.</p>
+
+<p>Her tongue and lips licked and sucked his dick’s shaft like someone possessed by madness, desperate to give him even the slightest bit of stronger stimulation.</p>
 
 <p>“Ah... ah... ah... you fucking bitch... you suck so fucking well... seriously...”</p>
 
@@ -22,47 +24,71 @@ The sight of her lewdly sucking his dick in a space where many people were prese
 
 <p>“Ah... fuck... you dog-like, lewd bitch... you suck so fucking well... ah... ah... ah...”</p>
 
-<p>At his words, she raised the tempo even further. Biting down firmly with her lips, she moved skillfully up and down the shaft of his dick, adding more speed. <br>
-Han-pan wore a wide smile and reached down to gently stroke her rapidly moving hair. <br>
-His soft touch was delicate, as if he were handling a cute puppy. <br>
-Feeling the affectionate stroke on her hair, Miho fell into the illusion that her heart was fluttering. <br>
-His pleasure was her pleasure at the same time.</p>
+<p>At his words, she raised the tempo even further. Biting down firmly with her lips, she moved skillfully up and down the shaft of his dick, adding more speed.</p>
 
-<p>Miho sucked his dick with all her heart, using everything she could to stimulate him. <br>
-In particular, she focused her attack on his urethral opening, pressing against it by making her tongue stiff and stabbing at it. <br>
-Every time she did, Han-pan’s body flinched, reacting like a man being electrocuted. <br>
-Miho felt an intense thrill every time he reacted.</p>
+<p>Han-pan wore a wide smile and reached down to gently stroke her rapidly moving hair.</p>
 
-<p>Feeling the intensifying stimulation, Han-pan grabbed a handful of her hair firmly. <br>
-He lifted his buttocks slightly, thrusting forward while simultaneously pulling her head onto his dick. <br>
-With that, his dick slid deep into her mouth. <br>
-Unlike before, Miho skillfully swallowed his dick into her throat. <br>
-His dickhead touched her throat, and she quickly breathed through her nose, pushing his dick even deeper inside. <br>
-Almost the entire dick disappeared into her mouth, and after Han-pan wore a satisfied smile, he pulled it back out. <br>
-As the dick withdrew, a mouthful of saliva spilled out from between her lips and trickled down.</p>
+<p>His soft touch was delicate, as if he were handling a cute puppy.</p>
+
+<p>Feeling the affectionate stroke on her hair, Miho fell into the illusion that her heart was fluttering.</p>
+
+<p>His pleasure was her pleasure at the same time.</p>
+
+<p>Miho sucked his dick with all her heart, using everything she could to stimulate him.</p>
+
+<p>In particular, she focused her attack on his urethral opening, pressing against it by making her tongue stiff and stabbing at it.</p>
+
+<p>Every time she did, Han-pan’s body flinched, reacting like a man being electrocuted.</p>
+
+<p>Miho felt an intense thrill every time he reacted.</p>
+
+<p>Feeling the intensifying stimulation, Han-pan grabbed a handful of her hair firmly.</p>
+
+<p>He lifted his buttocks slightly, thrusting forward while simultaneously pulling her head onto his dick.</p>
+
+<p>With that, his dick slid deep into her mouth.</p>
+
+<p>Unlike before, Miho skillfully swallowed his dick into her throat.</p>
+
+<p>His dickhead touched her throat, and she quickly breathed through her nose, pushing his dick even deeper inside.</p>
+
+<p>Almost the entire dick disappeared into her mouth, and after Han-pan wore a satisfied smile, he pulled it back out.</p>
+
+<p>As the dick withdrew, a mouthful of saliva spilled out from between her lips and trickled down.</p>
 
 <p>“Huu-uk...”</p>
 
-<p>Han-pan caught his breath and looked down at her. <br>
-Her pupils were unfocused and dilated. <br>
-Han-pan lowered his hips back onto the toilet, and Miho buried her head again, shoving his dick between her lips as if attacking it, moving her head rapidly. <br>
-Han-pan let out moans of satisfaction at her movements, which perfectly suited his lust.</p>
+<p>Han-pan caught his breath and looked down at her.</p>
+
+<p>Her pupils were unfocused and dilated.</p>
+
+<p>Han-pan lowered his hips back onto the toilet, and Miho buried her head again, shoving his dick between her lips as if attacking it, moving her head rapidly.</p>
+
+<p>Han-pan let out moans of satisfaction at her movements, which perfectly suited his lust.</p>
 
 <p>“Haah... haah... ah... seriously... now... fuck... you’ve become a total whore... you’re so fucking good... ah... Mom... Mom... ah... ah...”</p>
 
-<p>Han-pan felt an intense orgasm spreading through his body, sensing that the moment of ejaculation was near. <br>
-He placed both hands on the left and right sides of the toilet, lifted his buttocks slightly, and moved his pelvis. <br>
-As the friction between the two reached its extreme, Han-pan’s pleasure hit its peak. <br>
-At the same time, something moved rapidly along his urethra. <br>
-Enveloped in intense ecstasy, Han-pan screamed.</p>
+<p>Han-pan felt an intense orgasm spreading through his body, sensing that the moment of ejaculation was near.</p>
+
+<p>He placed both hands on the left and right sides of the toilet, lifted his buttocks slightly, and moved his pelvis.</p>
+
+<p>As the friction between the two reached its extreme, Han-pan’s pleasure hit its peak.</p>
+
+<p>At the same time, something moved rapidly along his urethra.</p>
+
+<p>Enveloped in intense ecstasy, Han-pan screamed.</p>
 
 <p>“Ah, fuck, I’m cumming!!! Fuck!!!!!! Ahhhhhhhhhhhhhh!!!!!!!”</p>
 
-<p>Simultaneously with his scream, ejaculation began rapidly. <br>
-Thick, dense, soup-like white cum mercilessly pelted her throat and slid down into her gullet. <br>
-Miho quickly stuck out her tongue and stabbed the urethral opening again, right where the cum was surging out. <br>
-Han-pan’s pleasure stimulated his entire body even more intensely. <br>
-He spoke while twisting his face in a grimace.</p>
+<p>Simultaneously with his scream, ejaculation began rapidly.</p>
+
+<p>Thick, dense, soup-like white cum mercilessly pelted her throat and slid down into her gullet.</p>
+
+<p>Miho quickly stuck out her tongue and stabbed the urethral opening again, right where the cum was surging out.</p>
+
+<p>Han-pan’s pleasure stimulated his entire body even more intensely.</p>
+
+<p>He spoke while twisting his face in a grimace.</p>
 
 <p>“Oh! Fuck!! Fuck!! Ah!!! You fucking bitch!!! You’re so fucking good!!! You goddamn fucking bitch!!!! You bitch-ass slut!!! You shitty bitch!!!!!!!! Ahhhh!!!!”</p>
 
@@ -74,26 +100,37 @@ He spoke while twisting his face in a grimace.</p>
 
 <p>Kkul-geok, kkul-geok.</p>
 
-<p>The sound of her gulping down his thick cum reached Han-pan’s ears. <br>
-And after the last strand passed down her throat, Han-pan let out a heavy sigh and leaned his body back. <br>
-The sensation of the cold tile pressed against his back. <br>
-He panted for breath, and Miho continued to suck his shrinking dick, acting as if she would wring out every last drop of cum into her mouth, sucking with a jjok, jjok sound.</p>
+<p>The sound of her gulping down his thick cum reached Han-pan’s ears.</p>
+
+<p>And after the last strand passed down her throat, Han-pan let out a heavy sigh and leaned his body back.</p>
+
+<p>The sensation of the cold tile pressed against his back.</p>
+
+<p>He panted for breath, and Miho continued to suck his shrinking dick, acting as if she would wring out every last drop of cum into her mouth, sucking with a jjok, jjok sound.</p>
 
 <p>A moment later, she caught her breath, leaving the war-like oral sex behind, and slowly stood up.</p>
 
 <p>“Huu...”</p>
 
-<p>She closed her eyes like someone who had finished a job, catching her breath while savoring the lingering thrill after the oral sex. <br>
-Han-pan looked up at her with a satisfied smile. <br>
-Aware of him watching her, Miho slowly spread her legs, climbed on top of him, and lowered her body. <br>
-Their bodies overlapped naturally, and they wrapped their arms around each other, rubbing their skin together. <br>
-The warm sensation was transmitted between them.</p>
+<p>She closed her eyes like someone who had finished a job, catching her breath while savoring the lingering thrill after the oral sex.</p>
 
-<p>As they were catching their breath for a moment, the phone inside Miho’s handbag rang. <br>
-Startled, Miho quickly snapped back to her senses and pulled the cellphone out of the bag. <br>
-It was So-jo. <br>
-She steadied her breathing and pressed the call button. <br>
-Then, she answered calmly as if nothing had happened.</p>
+<p>Han-pan looked up at her with a satisfied smile.</p>
+
+<p>Aware of him watching her, Miho slowly spread her legs, climbed on top of him, and lowered her body.</p>
+
+<p>Their bodies overlapped naturally, and they wrapped their arms around each other, rubbing their skin together.</p>
+
+<p>The warm sensation was transmitted between them.</p>
+
+<p>As they were catching their breath for a moment, the phone inside Miho’s handbag rang.</p>
+
+<p>Startled, Miho quickly snapped back to her senses and pulled the cellphone out of the bag.</p>
+
+<p>It was So-jo.</p>
+
+<p>She steadied her breathing and pressed the call button.</p>
+
+<p>Then, she answered calmly as if nothing had happened.</p>
 
 <p>「Yeah, So-jo... yeah... ah... I’m with Han-pan right now... yeah... here?... uh... the 2nd floor... yeah... oh, we were just looking around here and there... yeah... yeah... I got it... I’ll head down soon... yeah... okay...」</p>
 
@@ -107,13 +144,19 @@ Then, she answered calmly as if nothing had happened.</p>
 
 <p>「Oh, okay...」</p>
 
-<p>Miho put the phone back into her handbag, turned around, and tidied up her quite disheveled body in front of the mirror. <br>
-Then, she took out a red lipstick from her handbag and reapplied it to her lips. <br>
-Han-pan, leaning one hand on the sink with his legs crossed, felt that the sight of her applying lipstick was incredibly erotic. <br>
-The leg line revealed beneath her extremely short mini-skirt and the sensation of her dizzying kill heels made his head spin. <br>
-He stood up while adjusting his pants and stepped up behind her. <br>
-Then, he reached out, grabbed her breasts with both hands, and squeezed them lightly. <br>
-Miho’s lips parted as she was applying lipstick, and a short moan escaped.</p>
+<p>Miho put the phone back into her handbag, turned around, and tidied up her quite disheveled body in front of the mirror.</p>
+
+<p>Then, she took out a red lipstick from her handbag and reapplied it to her lips.</p>
+
+<p>Han-pan, leaning one hand on the sink with his legs crossed, felt that the sight of her applying lipstick was incredibly erotic.</p>
+
+<p>The leg line revealed beneath her extremely short mini-skirt and the sensation of her dizzying kill heels made his head spin.</p>
+
+<p>He stood up while adjusting his pants and stepped up behind her.</p>
+
+<p>Then, he reached out, grabbed her breasts with both hands, and squeezed them lightly.</p>
+
+<p>Miho’s lips parted as she was applying lipstick, and a short moan escaped.</p>
 
 <p>“Mmm... So-jo said to come down quickly...”</p>
 
@@ -138,16 +181,23 @@ Miho’s lips parted as she was applying lipstick, and a short moan escaped.</p>
 <p>Saying that, she closed the lid of the finished lipstick, packed it in her handbag, took his hand, and led him toward the door. <br>
 Han-pan followed behind her like a child being dragged away against his will.</p>
 
-<p>They quickly descended to the 1st floor. <br>
-Most people didn’t give them any special looks, but occasionally, a few men would stare at her dizzyingly exposed legs and massive breasts before looking at Han-pan with envious eyes. <br>
-Han-pan could feel a fairly large sense of dominance from their gazes. <br>
-He thought that no one could possibly imagine that this woman had just given him oral sex.</p>
+<p>They quickly descended to the 1st floor.</p>
 
-<p>A moment later, they easily found So-jo on the 1st floor. <br>
-Surrounded by a group of people and engaged in conversation, she stood out like a swan among crows. <br>
-Other celebs were appearing here and there, but in terms of beauty alone, few were as provocative and stimulating as her. <br>
-The two approached her, and Miho tapped her on the shoulder. <br>
-She turned her head and looked at Miho and Han-pan.</p>
+<p>Most people didn’t give them any special looks, but occasionally, a few men would stare at her dizzyingly exposed legs and massive breasts before looking at Han-pan with envious eyes.</p>
+
+<p>Han-pan could feel a fairly large sense of dominance from their gazes.</p>
+
+<p>He thought that no one could possibly imagine that this woman had just given him oral sex.</p>
+
+<p>A moment later, they easily found So-jo on the 1st floor.</p>
+
+<p>Surrounded by a group of people and engaged in conversation, she stood out like a swan among crows.</p>
+
+<p>Other celebs were appearing here and there, but in terms of beauty alone, few were as provocative and stimulating as her.</p>
+
+<p>The two approached her, and Miho tapped her on the shoulder.</p>
+
+<p>She turned her head and looked at Miho and Han-pan.</p>
 
 <p>「Where were you?」</p>
 

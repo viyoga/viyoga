@@ -19,7 +19,9 @@ chapter = 6
 
 <p>Walking a few steps ahead, Mi-ho opened the door leading to the first floor of the house and stepped inside. As she disappeared up the stairs, Han-pan hurriedly followed her.</p>
 
-<p>Han-pan could see her figure as she climbed the stairs; her curvaceous lines were revealed without filter through the wrap dress. Every time she took a step, the fabric stretched tight, and his gaze remained pinned particularly on her pelvis and ass. Noticing that not a single panty line was visible through her clothes, the thought that she might be wearing something like a thong made him feel the blood rush violently to his crotch.</p>
+<p>Han-pan could see her figure as she climbed the stairs; her curvaceous lines were revealed without filter through the wrap dress. Every time she took a step, the fabric stretched tight, and his gaze remained pinned particularly on her pelvis and ass.</p>
+
+<p>Noticing that not a single panty line was visible through her clothes, the thought that she might be wearing something like a thong made him feel the blood rush violently to his crotch.</p>
 
 <p>Han-pan thought he was being especially strange today, but since he hadn't realized his mother’s body was this incredible, he felt mentally conflicted about how to process this new impression of her. Feeling sexual desire for his own mother was quite shameful, but he felt he couldn't help where his emotions were drifting.</p>
 
@@ -47,7 +49,9 @@ chapter = 6
 
 <p>There was also a black recliner, which looked incredibly comfortable, tilted at the perfect angle for reading a book or taking a nap. On the wall hung a massive TV, easily 100 inches—practically movie theater quality—and beside it, furniture designed to store her hobby of imported tea cups was arranged on both sides.</p>
 
-<p>Furthermore, almost all the walls had been opened up to turn the entire first floor into a single open space, allowing him to see everything, including the kitchen, at a glance. Next to the kitchen stood a long kitchen table that could easily seat six people, also unified in black. Except for the area in the center leading to the second floor, everything was opened up so it could be seen from one spot.</p>
+<p>Furthermore, almost all the walls had been opened up to turn the entire first floor into a single open space, allowing him to see everything, including the kitchen, at a glance. Next to the kitchen stood a long kitchen table that could easily seat six people, also unified in black.</p>
+
+<p>Except for the area in the center leading to the second floor, everything was opened up so it could be seen from one spot.</p>
 
 <p>“Want me to show you something even better?”</p>
 
@@ -61,7 +65,9 @@ chapter = 6
 
 <p>Mi-ho looked at him with a proud face and said, “Isn’t it cool?”</p>
 
-<p>Han-pan walked toward the window and looked out at the swimming pool. The neat, rectangular pool situated at the back of the house was very striking. The pool, lined with clean blue tiles, was filled with azure water, and beside it stood a row of beach chairs for lounging, complete with parasols that looked quite impressive. The fact that such a pool existed in the middle of the city felt quite fresh to him.</p>
+<p>Han-pan walked toward the window and looked out at the swimming pool. The neat, rectangular pool situated at the back of the house was very striking. The pool, lined with clean blue tiles, was filled with azure water, and beside it stood a row of beach chairs for lounging, complete with parasols that looked quite impressive.</p>
+
+<p>The fact that such a pool existed in the middle of the city felt quite fresh to him.</p>
 
 <p>He turned his head to look at his mother and asked, “Why did you build a pool?”</p>
 
@@ -103,7 +109,9 @@ chapter = 6
 
 <p>Seo-ah nuna was the woman closest to his ideal type. Not only did she have a warm personality, but she had also boasted exceptional beauty since she was young. If the younger older sister, So-jo, was a goddess of physique, Seo-ah was a goddess of atmosphere. Her unique charisma and her considerate nature toward others gave her a truly great reputation among those around her.</p>
 
-<p>She had received many suggestions to enter the entertainment industry, but she chose to properly learn Pilates, which she had always enjoyed, and opened her own center, which was very well-received. She had also gathered many followers as an influencer on Instagram and occasionally appeared on broadcasts to promote her Pilates. Now, she had turned her name into a brand of considerable scale, franchising it and running a fitness center for comprehensive exercise.</p>
+<p>She had received many suggestions to enter the entertainment industry, but she chose to properly learn Pilates, which she had always enjoyed, and opened her own center, which was very well-received. She had also gathered many followers as an influencer on Instagram and occasionally appeared on broadcasts to promote her Pilates.</p>
+
+<p>Now, she had turned her name into a brand of considerable scale, franchising it and running a fitness center for comprehensive exercise.</p>
 
 <p>At twenty-six, she had achieved quite a success.</p>
 

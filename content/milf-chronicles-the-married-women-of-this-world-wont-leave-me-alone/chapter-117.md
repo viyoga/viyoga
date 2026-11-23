@@ -5,27 +5,47 @@ weight = 117
 chapter = 117
 +++
 
-<p>Morning passed, and the women who had been in the house left one by one to attend to their schedules.<br>
-Rolling around in the room, Han-pan lay on the bed and thought deeply about everything that had happened recently.<br>
-No matter how much he thought about it, the events were so unbelievable that he still couldn't tell if he was dreaming or awake. However, one thing was certain: he was living a joyful life surrounded by attractive women.<br>
-In particular, he was excited about what would happen next with Miho and So-jo, with whom he had shared intense sex, followed by Yu Eun-young and Ban Mi-jo.<br>
-Images of their naked bodies flickered through his mind like flames sparkling on Christmas decorations.<br>
-Each of them possessed a unique charm as well as stunning beauty.<br>
-As the lingering emotions he felt while having sex with them overlapped with their individual characters, he smirked.<br>
-He thought that someday, he wanted to gather them all in one place and have sex with everyone at once.<br>
-After killing time like that, he had a simple lunch, relaxed a bit more, got dressed, and left the house.<br>
-The first thought in his mind was that he wanted to see Miho.<br>
-He headed to her company and walked through the door.<br>
-The woman at the desk he had seen before remembered him and welcomed him.<br>
-Recognizing him, she gave a short bow, and Han-pan returned the gesture before heading toward the elevator.<br>
-Reaching the floor where Miho’s office was located, he went to the room where her secretary was and knocked.<br>
-A voice from inside told him to enter, and he opened the door and stepped in.<br>
-In the room were two other men who appeared to be colleagues of the woman who had guided him before.<br>
-Everyone focused their attention on him as he entered, and Miho’s secretary, recognizing him, stood up from her seat with a smile.<br>
-She gave him a polite bow.<br>
-Han-pan also greeted her as he approached.<br>
-He saw a nameplate that read 'Ha Jeong-eun.'<br>
-It was the first time he had learned her name.</p>
+<p>Morning passed, and the women who had been in the house left one by one to attend to their schedules.</p>
+
+<p>Rolling around in the room, Han-pan lay on the bed and thought deeply about everything that had happened recently.</p>
+
+<p>No matter how much he thought about it, the events were so unbelievable that he still couldn't tell if he was dreaming or awake. However, one thing was certain: he was living a joyful life surrounded by attractive women.</p>
+
+<p>In particular, he was excited about what would happen next with Miho and So-jo, with whom he had shared intense sex, followed by Yu Eun-young and Ban Mi-jo.</p>
+
+<p>Images of their naked bodies flickered through his mind like flames sparkling on Christmas decorations.</p>
+
+<p>Each of them possessed a unique charm as well as stunning beauty.</p>
+
+<p>As the lingering emotions he felt while having sex with them overlapped with their individual characters, he smirked.</p>
+
+<p>He thought that someday, he wanted to gather them all in one place and have sex with everyone at once.</p>
+
+<p>After killing time like that, he had a simple lunch, relaxed a bit more, got dressed, and left the house.</p>
+
+<p>The first thought in his mind was that he wanted to see Miho.</p>
+
+<p>He headed to her company and walked through the door.</p>
+
+<p>The woman at the desk he had seen before remembered him and welcomed him.</p>
+
+<p>Recognizing him, she gave a short bow, and Han-pan returned the gesture before heading toward the elevator.</p>
+
+<p>Reaching the floor where Miho’s office was located, he went to the room where her secretary was and knocked.</p>
+
+<p>A voice from inside told him to enter, and he opened the door and stepped in.</p>
+
+<p>In the room were two other men who appeared to be colleagues of the woman who had guided him before.</p>
+
+<p>Everyone focused their attention on him as he entered, and Miho’s secretary, recognizing him, stood up from her seat with a smile.</p>
+
+<p>She gave him a polite bow.</p>
+
+<p>Han-pan also greeted her as he approached.</p>
+
+<p>He saw a nameplate that read 'Ha Jeong-eun.'</p>
+
+<p>It was the first time he had learned her name.</p>
 
 <p>“Is the CEO-nim busy?”</p>
 
@@ -47,14 +67,21 @@ It was the first time he had learned her name.</p>
 
 <p>“Of course.”</p>
 
-<p>She answered with a bright smile.<br>
-He thought she was a woman with a beautiful smile.<br>
-Han-pan gave her a short nod, left the room, and entered Miho’s office.<br>
-He went straight to the sofa, sat down, and spent time on his cellphone.<br>
-A moment later, Ha Jeong-eun came in and placed the iced coffee in front of him.<br>
-Her figure, dressed in a fairly tight black two-piece suit, was quite impressive.<br>
-Han-pan felt a definite sense of liking toward her.<br>
-Beyond her sophisticated appearance, her excellent manners and bright smile had something about them that captured the hearts of those who saw her.</p>
+<p>She answered with a bright smile.</p>
+
+<p>He thought she was a woman with a beautiful smile.</p>
+
+<p>Han-pan gave her a short nod, left the room, and entered Miho’s office.</p>
+
+<p>He went straight to the sofa, sat down, and spent time on his cellphone.</p>
+
+<p>A moment later, Ha Jeong-eun came in and placed the iced coffee in front of him.</p>
+
+<p>Her figure, dressed in a fairly tight black two-piece suit, was quite impressive.</p>
+
+<p>Han-pan felt a definite sense of liking toward her.</p>
+
+<p>Beyond her sophisticated appearance, her excellent manners and bright smile had something about them that captured the hearts of those who saw her.</p>
 
 <p>“It probably isn't easy working with my mother, so thank you for everything.”</p>
 
@@ -68,18 +95,29 @@ Beyond her sophisticated appearance, her excellent manners and bright smile had 
 
 <p>“Yes, I understand. Thank you.”</p>
 
-<p>She said that, turned around, and left the room. Han-pan’s gaze was fixed on her buttocks.<br>
-'A magnificent body,' Han-pan thought.<br>
-Han-pan continued to kill time on his cellphone.<br>
-After some time had passed, the door opened and Miho entered the room.<br>
-She looked surprised to see him sitting in her office, but after closing the door, she slowly and silently approached him and stood before him, looking down.<br>
-Han-pan smirked and looked up at her in greeting without saying a word.<br>
-Wearing a high-end, pale pink jacket and a clean navy-colored tight two-piece skirt suit, she looked like the quintessential business woman, with a thin white blouse underneath.<br>
-The toes of her high heels, which were the same pale pink as her jacket, were sophisticatedly pointed, and the lines of her slingback-style shoes fell elegantly.<br>
-She was bare-legged, but perhaps because she had applied plenty of cream, they were glistening.<br>
-Seeing her like this in the setting of a company, looking so delicious, reminded him of the love they had shared that morning.<br>
-Miho, looking down at him silently, was thinking something similar.<br>
-Han-pan stood up without a word, went to the desk where she performed her official duties, and sat in her chair.</p>
+<p>She said that, turned around, and left the room. Han-pan’s gaze was fixed on her buttocks.</p>
+
+<p>'A magnificent body,' Han-pan thought.</p>
+
+<p>Han-pan continued to kill time on his cellphone.</p>
+
+<p>After some time had passed, the door opened and Miho entered the room.</p>
+
+<p>She looked surprised to see him sitting in her office, but after closing the door, she slowly and silently approached him and stood before him, looking down.</p>
+
+<p>Han-pan smirked and looked up at her in greeting without saying a word.</p>
+
+<p>Wearing a high-end, pale pink jacket and a clean navy-colored tight two-piece skirt suit, she looked like the quintessential business woman, with a thin white blouse underneath.</p>
+
+<p>The toes of her high heels, which were the same pale pink as her jacket, were sophisticatedly pointed, and the lines of her slingback-style shoes fell elegantly.</p>
+
+<p>She was bare-legged, but perhaps because she had applied plenty of cream, they were glistening.</p>
+
+<p>Seeing her like this in the setting of a company, looking so delicious, reminded him of the love they had shared that morning.</p>
+
+<p>Miho, looking down at him silently, was thinking something similar.</p>
+
+<p>Han-pan stood up without a word, went to the desk where she performed her official duties, and sat in her chair.</p>
 
 <p>“Come here…”</p>
 
@@ -91,11 +129,15 @@ Han-pan stood up without a word, went to the desk where she performed her offici
 
 <p>“I don’t know about that…”</p>
 
-<p>She said that, but she slowly walked toward the door and lowered the blinds.<br>
-Then, after firmly locking the door, she walked toward him.<br>
-The way her skirt and the line of her hips tightened and shifted with every step was incredibly provocative.<br>
-Han-pan thought that the male employees at the company must find it very difficult to work with her.<br>
-She slowly walked up to him, looked at his cock which was already half-erect, and spoke.</p>
+<p>She said that, but she slowly walked toward the door and lowered the blinds.</p>
+
+<p>Then, after firmly locking the door, she walked toward him.</p>
+
+<p>The way her skirt and the line of her hips tightened and shifted with every step was incredibly provocative.</p>
+
+<p>Han-pan thought that the male employees at the company must find it very difficult to work with her.</p>
+
+<p>She slowly walked up to him, looked at his cock which was already half-erect, and spoke.</p>
 
 <p>“Did you come because of this?”</p>
 
@@ -113,10 +155,13 @@ She slowly walked up to him, looked at his cock which was already half-erect, an
 
 <p>“I can’t… then it’ll be too obvious later…”</p>
 
-<p>She took off her jacket and tossed it to one side.<br>
-When she did, her voluptuous breasts came clearly into his view.<br>
-Because it was a thin white shirt, her bra was quite clearly visible through it.<br>
-Han-pan stood up, and Miho looked at him with a smile.</p>
+<p>She took off her jacket and tossed it to one side.</p>
+
+<p>When she did, her voluptuous breasts came clearly into his view.</p>
+
+<p>Because it was a thin white shirt, her bra was quite clearly visible through it.</p>
+
+<p>Han-pan stood up, and Miho looked at him with a smile.</p>
 
 <p>“I really can’t stop you…”</p>
 
@@ -130,12 +175,17 @@ Han-pan stood up, and Miho looked at him with a smile.</p>
 
 <p>“Yeah. I’m going to make you feel just how much of a wanton woman you are while your employees are out there working…”</p>
 
-<p>As soon as he finished speaking, he pressed his lips against hers.<br>
-Miho accepted his lips as if she had been waiting, and at the same time, she thrust her tongue into his mouth.<br>
-Her arms wrapped around his neck, and he grabbed her voluptuous buttocks with both hands, pulling her toward him.<br>
-Miho felt his rock-hard, erect cock piercing against her body, and Han-pan felt her voluptuous breasts pressing against his chest.<br>
-While kissing her, Han-pan slowly tried to pull her skirt up, but it was so tight that it didn't go up easily.<br>
-However, when the skirt finally reached her waist, a pink g-string panty, barely the size of a palm and covered in lace, was revealed.</p>
+<p>As soon as he finished speaking, he pressed his lips against hers.</p>
+
+<p>Miho accepted his lips as if she had been waiting, and at the same time, she thrust her tongue into his mouth.</p>
+
+<p>Her arms wrapped around his neck, and he grabbed her voluptuous buttocks with both hands, pulling her toward him.</p>
+
+<p>Miho felt his rock-hard, erect cock piercing against her body, and Han-pan felt her voluptuous breasts pressing against his chest.</p>
+
+<p>While kissing her, Han-pan slowly tried to pull her skirt up, but it was so tight that it didn't go up easily.</p>
+
+<p>However, when the skirt finally reached her waist, a pink g-string panty, barely the size of a palm and covered in lace, was revealed.</p>
 
 <p>“Lustful bitch… wearing such erotic underwear to the office…”</p>
 
@@ -143,12 +193,17 @@ However, when the skirt finally reached her waist, a pink g-string panty, barely
 
 <p>“Don’t you like it when I’m lustful? …Son?”</p>
 
-<p>Han-pan smirked and turned her around.<br>
-He picked her up and carefully laid her down on the desk.<br>
-He reached down, grabbed both her ankles, and lifted them toward the ceiling. The panties covering her Jade Gate stimulated his eyes, making them dizzy with desire.<br>
-Han-pan undid the hook of his pants and pushed his pants and underwear down at the same time.<br>
-Immediately, his cock, already standing stiff, revealed its majesty.<br>
-Miho smiled, lifted her head, and looked at his cock.</p>
+<p>Han-pan smirked and turned her around.</p>
+
+<p>He picked her up and carefully laid her down on the desk.</p>
+
+<p>He reached down, grabbed both her ankles, and lifted them toward the ceiling. The panties covering her Jade Gate stimulated his eyes, making them dizzy with desire.</p>
+
+<p>Han-pan undid the hook of his pants and pushed his pants and underwear down at the same time.</p>
+
+<p>Immediately, his cock, already standing stiff, revealed its majesty.</p>
+
+<p>Miho smiled, lifted her head, and looked at his cock.</p>
 
 <p>“Aren't you excited?”</p>
 
@@ -170,12 +225,17 @@ Miho smiled, lifted her head, and looked at his cock.</p>
 
 <p>“Oh, is that so?”</p>
 
-<p>Han-pan released her ankles, and she turned her body around, positioning her head toward his cock and pouting her lips.<br>
-As if he had been waiting, Han-pan thrust his cock into her mouth.<br>
-The softness of her warm lips and the heat inside her mouth were transmitted to his entire cock.<br>
-It was a feeling that felt good no matter when he experienced it.<br>
-A natural moan escaped Han-pan’s mouth.<br>
-While Miho sucked his cock, Han-pan leaned over, inserted a finger between her buttocks, pushed the panties aside, and rubbed her pussy as if violating it.</p>
+<p>Han-pan released her ankles, and she turned her body around, positioning her head toward his cock and pouting her lips.</p>
+
+<p>As if he had been waiting, Han-pan thrust his cock into her mouth.</p>
+
+<p>The softness of her warm lips and the heat inside her mouth were transmitted to his entire cock.</p>
+
+<p>It was a feeling that felt good no matter when he experienced it.</p>
+
+<p>A natural moan escaped Han-pan’s mouth.</p>
+
+<p>While Miho sucked his cock, Han-pan leaned over, inserted a finger between her buttocks, pushed the panties aside, and rubbed her pussy as if violating it.</p>
 
 <p>“Mmmph…”</p>
 
