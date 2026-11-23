@@ -4346,3 +4346,33 @@ nav.top .logo:focus-visible,
                 0 16px 44px -34px color-mix(in srgb, var(--flare-bloom) 45%, transparent);
   }
 }
+
+/* ── Persistent chapter bar ──
+   Sticks below the site nav on desktop and at the viewport edge on phones.
+   Double-press empty bar space toggles auto-hide; otherwise it stays put. */
+body.chapter-page .chapter-head {
+  position: sticky;
+  top: var(--chapter-sticky-top, 0px);
+  z-index: 900;
+  background: var(--glass-bg);
+  backdrop-filter: blur(12px) saturate(var(--sat, 155%));
+  -webkit-backdrop-filter: blur(12px) saturate(var(--sat, 155%));
+  border-bottom: 1px solid color-mix(in srgb, var(--fg) 14%, transparent);
+  box-shadow: 0 6px 22px rgba(0, 0, 0, 0.22);
+  transition: transform 0.26s cubic-bezier(0.16, 1, 0.3, 1);
+  will-change: transform;
+}
+body.chapter-page .chapter-head.is-tucked {
+  transform: translateY(calc(-100% - var(--chapter-sticky-top, 0px)));
+  pointer-events: none;
+}
+body.chapter-page .chapter-bar {
+  margin: 0 auto;
+  border-bottom: 0;
+  background: transparent;
+  box-shadow: none;
+  touch-action: manipulation;
+}
+@media (prefers-reduced-motion: reduce) {
+  body.chapter-page .chapter-head { transition: none; }
+}
