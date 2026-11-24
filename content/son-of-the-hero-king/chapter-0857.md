@@ -1,5 +1,5 @@
 +++
-title = "Chapter 857"
+title = "Chapter 857: Karma Sat on the Edge of Space and Time"
 weight = 857
 [extra]
 chapter = 857

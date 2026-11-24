@@ -1,5 +1,5 @@
 +++
-title = "Chapter 520"
+title = "Chapter 520: When Setsuna Finished Her Story"
 weight = 520
 [extra]
 chapter = 520

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 149"
+title = "Chapter 149: Lith Stopped as He Reached in Front of the Goons"
 weight = 149
 [extra]
 chapter = 149

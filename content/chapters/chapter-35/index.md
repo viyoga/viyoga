@@ -1,5 +1,5 @@
 +++
-title = "Chapter 35"
+title = "Chapter 35: Y Ou Know Perhaps Yes I Told You Myself Began"
 date = 2026-07-04
 [extra]
 chapter = 35

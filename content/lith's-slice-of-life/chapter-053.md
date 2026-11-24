@@ -1,5 +1,5 @@
 +++
-title = "Chapter 53"
+title = "Chapter 53: Lucy Grabbed Lith’s Waist and Directly Cast Short Jump"
 weight = 53
 [extra]
 chapter = 53

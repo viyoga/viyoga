@@ -1,5 +1,5 @@
 +++
-title = "Chapter 435"
+title = "Chapter 435: 『 Zone: Deus Ex Machina 』"
 weight = 435
 [extra]
 chapter = 435

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 163"
+title = "Chapter 163: …Permanently Removed from the Reincarnation Cycle"
 weight = 163
 [extra]
 chapter = 163

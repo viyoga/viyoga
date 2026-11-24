@@ -1,5 +1,5 @@
 +++
-title = "Chapter 642"
+title = "Chapter 642: The Next Day Shuten Doji Could Be Seen Entering"
 weight = 642
 [extra]
 chapter = 642

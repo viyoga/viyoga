@@ -1,5 +1,5 @@
 +++
-title = "Chapter 323"
+title = "Chapter 323: 323 CH 292: KIYOHIME(6"
 weight = 323
 [extra]
 chapter = 323

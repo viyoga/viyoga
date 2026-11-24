@@ -1,5 +1,5 @@
 +++
-title = "Chapter 619"
+title = "Chapter 619: One of the Most Important Functions of Gae Assail"
 weight = 619
 [extra]
 chapter = 619

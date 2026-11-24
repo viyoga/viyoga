@@ -1,5 +1,5 @@
 +++
-title = "Chapter 49"
+title = "Chapter 49: There Were Only Three Legendary Ranks Since Time Immemorial"
 weight = 49
 [extra]
 chapter = 49

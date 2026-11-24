@@ -1,5 +1,5 @@
 +++
-title = "Chapter 201"
+title = "Chapter 201: Gunther and the Trio Walked in the Direction the Signboard"
 weight = 201
 [extra]
 chapter = 201

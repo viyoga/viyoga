@@ -1,5 +1,5 @@
 +++
-title = "Chapter 147"
+title = "Chapter 147: AN Those Events Happened after Sol Left Camelia and Went"
 weight = 147
 [extra]
 chapter = 147

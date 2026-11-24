@@ -1,5 +1,5 @@
 +++
-title = "Chapter 783"
+title = "Chapter 783: The News That Five of the Six Current Supreme Daughters"
 weight = 783
 [extra]
 chapter = 783

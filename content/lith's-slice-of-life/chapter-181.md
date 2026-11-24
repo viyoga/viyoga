@@ -1,5 +1,5 @@
 +++
-title = "Chapter 181"
+title = "Chapter 181: After the Initial Shock, Lucas Attempted to Calm Himself Down"
 weight = 181
 [extra]
 chapter = 181

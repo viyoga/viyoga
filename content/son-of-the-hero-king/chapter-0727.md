@@ -1,5 +1,5 @@
 +++
-title = "Chapter 727"
+title = "Chapter 727: Anubis Crow Considered Officially as One of the Strongest Demigods"
 weight = 727
 [extra]
 chapter = 727

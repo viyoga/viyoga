@@ -1,5 +1,5 @@
 +++
-title = "Chapter 362"
+title = "Chapter 362: When the Trident Finally Made Contact with Sol's Hand"
 weight = 362
 [extra]
 chapter = 362

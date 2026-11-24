@@ -1,5 +1,5 @@
 +++
-title = "Chapter 11"
+title = "Chapter 11: Zossimov Was a Tall Fat Man with a Puffy Colourless"
 date = 2026-07-04
 [extra]
 chapter = 11

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 275"
+title = "Chapter 275: Fafnir and the Other Two Dragon Kings Stood Up"
 weight = 275
 [extra]
 chapter = 275

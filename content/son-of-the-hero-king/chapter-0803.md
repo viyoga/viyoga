@@ -1,5 +1,5 @@
 +++
-title = "Chapter 803"
+title = "Chapter 803: After His Big Reveal Anubis Immediately Seized the Old Demon"
 weight = 803
 [extra]
 chapter = 803

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 572"
+title = "Chapter 572: All Divine Powers Are Different Yet at the Same Time"
 weight = 572
 [extra]
 chapter = 572

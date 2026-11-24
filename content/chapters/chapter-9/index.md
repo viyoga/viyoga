@@ -1,5 +1,5 @@
 +++
-title = "Chapter 9"
+title = "Chapter 9: A Nd What If There Has Been a Search Already"
 date = 2026-07-04
 [extra]
 chapter = 9

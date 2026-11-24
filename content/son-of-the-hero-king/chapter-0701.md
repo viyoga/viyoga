@@ -1,5 +1,5 @@
 +++
-title = "Chapter 701"
+title = "Chapter 701: As Kiyohime and Persephone Gazed at Each Other"
 weight = 701
 [extra]
 chapter = 701

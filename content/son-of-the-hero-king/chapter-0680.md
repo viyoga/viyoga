@@ -1,5 +1,5 @@
 +++
-title = "Chapter 680"
+title = "Chapter 680: Persephone Was Neither a Good Person Nor Was She Gentle"
 weight = 680
 [extra]
 chapter = 680

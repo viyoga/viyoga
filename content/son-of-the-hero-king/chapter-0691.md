@@ -1,5 +1,5 @@
 +++
-title = "Chapter 691"
+title = "Chapter 691: Kiyohime Did Not Let the Element of Surprise Go"
 weight = 691
 [extra]
 chapter = 691

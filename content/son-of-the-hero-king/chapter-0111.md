@@ -1,5 +1,5 @@
 +++
-title = "Chapter 111"
+title = "Chapter 111: This Universe Was Composed of Thousands Upon Thousands of Little"
 weight = 111
 [extra]
 chapter = 111

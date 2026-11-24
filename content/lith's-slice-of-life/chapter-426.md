@@ -1,5 +1,5 @@
 +++
-title = "Chapter 426"
+title = "Chapter 426: Ling the Sect Master of the Shadow River Sect Charged"
 weight = 426
 [extra]
 chapter = 426

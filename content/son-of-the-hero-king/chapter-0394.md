@@ -1,5 +1,5 @@
 +++
-title = "Chapter 394"
+title = "Chapter 394: Kali Intervention Had Managed to Help Ambrosia Get Back"
 weight = 394
 [extra]
 chapter = 394

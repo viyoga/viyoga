@@ -1,5 +1,5 @@
 +++
-title = "Chapter 169"
+title = "Chapter 169: Watching Persephone Swipe Some of His Cream from Her Breasts"
 weight = 169
 [extra]
 chapter = 169

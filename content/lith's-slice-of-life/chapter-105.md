@@ -1,5 +1,5 @@
 +++
-title = "Chapter 105"
+title = "Chapter 105: Council of the Neutral Continent"
 weight = 105
 [extra]
 chapter = 105

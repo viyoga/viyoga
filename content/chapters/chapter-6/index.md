@@ -1,5 +1,5 @@
 +++
-title = "Chapter 6"
+title = "Chapter 6: Later on Raskolnikov Happened to Find Out Why the Huckster"
 date = 2026-07-04
 [extra]
 chapter = 6

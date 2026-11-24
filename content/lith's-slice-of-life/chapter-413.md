@@ -1,5 +1,5 @@
 +++
-title = "Chapter 413"
+title = "Chapter 413: Elven Customs, Valiyer International Teleportation Circle"
 weight = 413
 [extra]
 chapter = 413

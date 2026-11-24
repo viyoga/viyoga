@@ -1,5 +1,5 @@
 +++
-title = "Chapter 404"
+title = "Chapter 404: Arachne Milaris Was Slowly Cast Aside as Sol and Pandora"
 weight = 404
 [extra]
 chapter = 404

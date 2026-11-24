@@ -1,5 +1,5 @@
 +++
-title = "Chapter 42"
+title = "Chapter 42: The Riot Cops Pressed Up Against the Border of Rotwood"
 weight = 42
 [extra]
 chapter = 42

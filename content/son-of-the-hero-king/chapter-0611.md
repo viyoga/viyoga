@@ -1,5 +1,5 @@
 +++
-title = "Chapter 611"
+title = "Chapter 611: Skuld’s Intuition Was Not Wrong in Deducting That Someone"
 weight = 611
 [extra]
 chapter = 611

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 232"
+title = "Chapter 232: <<Dragon Roar: Phoebus Catastrophe>>"
 weight = 232
 [extra]
 chapter = 232

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 669"
+title = "Chapter 669: Once She Pushed His Penis Deep Inside Her Leaking Folds"
 weight = 669
 [extra]
 chapter = 669

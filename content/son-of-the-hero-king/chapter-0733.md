@@ -1,5 +1,5 @@
 +++
-title = "Chapter 733"
+title = "Chapter 733: AN: This Happened after Nefertiti Entered Sol's Dream"
 weight = 733
 [extra]
 chapter = 733

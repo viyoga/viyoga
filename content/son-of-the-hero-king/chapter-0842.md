@@ -1,5 +1,5 @@
 +++
-title = "Chapter 842"
+title = "Chapter 842: The Largest Meteor Immolating Itself and the Very Air Surrounding"
 weight = 842
 [extra]
 chapter = 842

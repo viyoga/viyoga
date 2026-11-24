@@ -1,5 +1,5 @@
 +++
-title = "Chapter 127"
+title = "Chapter 127: Under the Moonlight in the Zone Belonging to the Gorfard"
 weight = 127
 [extra]
 chapter = 127

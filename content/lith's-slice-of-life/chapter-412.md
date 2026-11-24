@@ -1,5 +1,5 @@
 +++
-title = "Chapter 412"
+title = "Chapter 412: Kenzal Clan, Redstone City"
 weight = 412
 [extra]
 chapter = 412

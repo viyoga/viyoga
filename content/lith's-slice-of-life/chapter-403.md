@@ -1,5 +1,5 @@
 +++
-title = "Chapter 403"
+title = "Chapter 403: Wan and Ling Got Back after Discussing Things and Wan"
 weight = 403
 [extra]
 chapter = 403

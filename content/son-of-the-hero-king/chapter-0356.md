@@ -1,5 +1,5 @@
 +++
-title = "Chapter 356"
+title = "Chapter 356: When Isis’s Consciousness Began to Rise on the Surface"
 weight = 356
 [extra]
 chapter = 356

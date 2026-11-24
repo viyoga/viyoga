@@ -1,5 +1,5 @@
 +++
-title = "Chapter 13"
+title = "Chapter 13: Druxsellaic Endures!” the Drow Blacksmith Shouted"
 weight = 13
 [extra]
 chapter = 13

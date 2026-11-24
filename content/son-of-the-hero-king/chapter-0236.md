@@ -1,5 +1,5 @@
 +++
-title = "Chapter 236"
+title = "Chapter 236: While Tiamat Was Discussing with Yggdrasil"
 weight = 236
 [extra]
 chapter = 236

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 24"
+title = "Chapter 24: Ayara Insisted on Helping Me Install the New Gate When"
 weight = 24
 [extra]
 chapter = 24

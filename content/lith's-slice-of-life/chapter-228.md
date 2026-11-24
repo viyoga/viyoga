@@ -1,5 +1,5 @@
 +++
-title = "Chapter 228"
+title = "Chapter 228: Abalax Sky Island, Espat"
 weight = 228
 [extra]
 chapter = 228

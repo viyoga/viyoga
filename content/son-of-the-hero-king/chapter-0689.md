@@ -1,5 +1,5 @@
 +++
-title = "Chapter 689"
+title = "Chapter 689: Kiyohime Serpentine Form Coiled in the Air"
 weight = 689
 [extra]
 chapter = 689

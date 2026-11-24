@@ -1,5 +1,5 @@
 +++
-title = "Chapter 637"
+title = "Chapter 637: Kiku the Supreme Daughter of Patientia Closed Her Eyes"
 weight = 637
 [extra]
 chapter = 637

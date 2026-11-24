@@ -1,5 +1,5 @@
 +++
-title = "Chapter 36"
+title = "Chapter 36: Ayara Was Just as Dismayed by Ishikana’s Findings as We"
 weight = 36
 [extra]
 chapter = 36

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 401"
+title = "Chapter 401: Shadow River Sect"
 weight = 401
 [extra]
 chapter = 401

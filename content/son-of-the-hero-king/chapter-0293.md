@@ -1,5 +1,5 @@
 +++
-title = "Chapter 293"
+title = "Chapter 293: If the War Currently Going on Outside of the Territory"
 weight = 293
 [extra]
 chapter = 293

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 79"
+title = "Chapter 79: The Mana User Needed Six Steps in Order to Reach"
 weight = 79
 [extra]
 chapter = 79

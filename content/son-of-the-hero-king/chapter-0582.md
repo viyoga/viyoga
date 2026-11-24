@@ -1,5 +1,5 @@
 +++
-title = "Chapter 582"
+title = "Chapter 582: Unlike Lilin, Setsuna Was Not Accompanied by Her Knight Group"
 weight = 582
 [extra]
 chapter = 582

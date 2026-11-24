@@ -1,5 +1,5 @@
 +++
-title = "Chapter 242"
+title = "Chapter 242: Kaiser Superbia the Grandson of One of the Four Dragon"
 weight = 242
 [extra]
 chapter = 242

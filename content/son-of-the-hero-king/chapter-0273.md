@@ -1,5 +1,5 @@
 +++
-title = "Chapter 273"
+title = "Chapter 273: What Did It Mean to Be a Dimensional Mage"
 weight = 273
 [extra]
 chapter = 273

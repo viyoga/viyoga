@@ -1,5 +1,5 @@
 +++
-title = "Chapter 554"
+title = "Chapter 554: 554 CH 514: SIMPLICITY"
 weight = 554
 [extra]
 chapter = 554

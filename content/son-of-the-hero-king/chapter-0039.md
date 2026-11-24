@@ -1,5 +1,5 @@
 +++
-title = "Chapter 39"
+title = "Chapter 39: The World Gaia Was Divided into Seven Superkingdoms and Seven"
 weight = 39
 [extra]
 chapter = 39

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 751"
+title = "Chapter 751: The Silence That Followed Asura’s Death"
 weight = 751
 [extra]
 chapter = 751

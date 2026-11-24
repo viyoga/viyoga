@@ -1,5 +1,5 @@
 +++
-title = "Chapter 404"
+title = "Chapter 404: World Tree, Alfheim"
 weight = 404
 [extra]
 chapter = 404

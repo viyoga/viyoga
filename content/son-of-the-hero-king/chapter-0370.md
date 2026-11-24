@@ -1,5 +1,5 @@
 +++
-title = "Chapter 370"
+title = "Chapter 370: When Tiamat Heard Sol’s Words"
 weight = 370
 [extra]
 chapter = 370

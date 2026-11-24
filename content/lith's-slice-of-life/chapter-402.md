@@ -1,5 +1,5 @@
 +++
-title = "Chapter 402"
+title = "Chapter 402: SKCT, Redstone City"
 weight = 402
 [extra]
 chapter = 402

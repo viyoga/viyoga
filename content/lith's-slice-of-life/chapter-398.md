@@ -1,5 +1,5 @@
 +++
-title = "Chapter 398"
+title = "Chapter 398: Darkwing Country, Vampire Continent"
 weight = 398
 [extra]
 chapter = 398

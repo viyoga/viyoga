@@ -1,5 +1,5 @@
 +++
-title = "Chapter 598"
+title = "Chapter 598: God Called the Expanse \"sky.\" and There"
 weight = 598
 [extra]
 chapter = 598

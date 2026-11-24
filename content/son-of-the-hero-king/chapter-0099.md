@@ -1,5 +1,5 @@
 +++
-title = "Chapter 99"
+title = "Chapter 99: After Pushing Out Ketia from the Room and Letting Out"
 weight = 99
 [extra]
 chapter = 99

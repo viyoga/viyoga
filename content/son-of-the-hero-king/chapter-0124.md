@@ -1,5 +1,5 @@
 +++
-title = "Chapter 124"
+title = "Chapter 124: Watching the Prince Kill Loki in Cold Blood and Hearing"
 weight = 124
 [extra]
 chapter = 124

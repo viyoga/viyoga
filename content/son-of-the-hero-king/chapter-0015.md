@@ -1,5 +1,5 @@
 +++
-title = "Chapter 15"
+title = "Chapter 15: Not Dense, Unlike Your Average Harem Protagonist, Sol"
 weight = 15
 [extra]
 chapter = 15

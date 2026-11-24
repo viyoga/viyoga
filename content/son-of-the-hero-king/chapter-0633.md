@@ -1,5 +1,5 @@
 +++
-title = "Chapter 633"
+title = "Chapter 633: In the Distance Zwei and Lilith Faced Each Other"
 weight = 633
 [extra]
 chapter = 633

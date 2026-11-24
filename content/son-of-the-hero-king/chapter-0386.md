@@ -1,5 +1,5 @@
 +++
-title = "Chapter 386"
+title = "Chapter 386: When Sol Reached Lilith’s Bedroom"
 weight = 386
 [extra]
 chapter = 386

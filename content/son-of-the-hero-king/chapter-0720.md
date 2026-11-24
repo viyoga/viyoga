@@ -1,5 +1,5 @@
 +++
-title = "Chapter 720"
+title = "Chapter 720: Jasmine Approached Sol, Almost Spellbound,"
 weight = 720
 [extra]
 chapter = 720

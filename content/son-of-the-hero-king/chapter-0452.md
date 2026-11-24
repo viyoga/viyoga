@@ -1,5 +1,5 @@
 +++
-title = "Chapter 452"
+title = "Chapter 452: The Song of Birds and the Laughter of the Nuns"
 weight = 452
 [extra]
 chapter = 452

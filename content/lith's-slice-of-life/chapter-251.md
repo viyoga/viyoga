@@ -1,5 +1,5 @@
 +++
-title = "Chapter 251"
+title = "Chapter 251: Ralph’s Mother Avelyn Called Him Out and Ran Towards Him"
 weight = 251
 [extra]
 chapter = 251

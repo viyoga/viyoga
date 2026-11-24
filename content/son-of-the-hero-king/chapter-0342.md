@@ -1,5 +1,5 @@
 +++
-title = "Chapter 342"
+title = "Chapter 342: The Pocket Dimension Was Created by Ambrosia in Order"
 weight = 342
 [extra]
 chapter = 342

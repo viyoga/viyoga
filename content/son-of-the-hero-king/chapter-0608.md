@@ -1,5 +1,5 @@
 +++
-title = "Chapter 608"
+title = "Chapter 608: Starting from the Root Chakra Located at the End"
 weight = 608
 [extra]
 chapter = 608
