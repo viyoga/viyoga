@@ -4395,10 +4395,11 @@ body.chapter-page .chapter-bar {
   body.chapter-page .chapter-head { transition: none; }
 }
 
-/* ── Startpage rule polish ──
-   Three separator families now share the page instead of one hairline:
-   a frosted beam under chapter names, prism chips between hero plates, and
-   the original hairline for structural edges and stat cards. */
+/* ── Original divider language ──
+   Three hand-built seams replace the supplied samples:
+   a split plate edge, a thread-and-bead hero connector, and a diamond
+   lumen under chapter names. Structural edges keep the original hairline. */
+.section-header { min-width: 0; }
 .section-heading,
 .section-badge {
   position: relative;
@@ -4410,7 +4411,7 @@ body.chapter-page .chapter-bar {
 }
 .section-heading { padding: 7px 15px 8px; }
 .section-badge { padding: 5px 11px 6px; letter-spacing: 0.1em; }
-/* Mini frosted beam: the lit core of divider 1, scaled to a plate edge. */
+/* Split plate edge: two lit segments with a quiet gap at the centre. */
 .section-heading::after,
 .section-badge::after {
   content: "";
@@ -4418,15 +4419,16 @@ body.chapter-page .chapter-bar {
   left: 10px;
   right: 10px;
   bottom: 0;
-  height: 2px;
-  border-radius: 99px;
+  height: 1px;
   background: linear-gradient(90deg,
     transparent 0%,
-    color-mix(in srgb, var(--accent) 75%, transparent) 25%,
-    color-mix(in srgb, var(--accent-bright) 95%, transparent) 50%,
-    color-mix(in srgb, var(--accent) 75%, transparent) 75%,
+    color-mix(in srgb, var(--accent) 48%, transparent) 16%,
+    color-mix(in srgb, var(--accent-bright) 78%, transparent) 38%,
+    transparent 46%,
+    transparent 54%,
+    color-mix(in srgb, var(--accent-bright) 78%, transparent) 62%,
+    color-mix(in srgb, var(--accent) 48%, transparent) 84%,
     transparent 100%);
-  box-shadow: 0 0 8px color-mix(in srgb, var(--accent) 42%, transparent);
   opacity: 0.82;
   pointer-events: none;
 }
@@ -4458,100 +4460,96 @@ body.chapter-page .chapter-bar {
 .stat-card .value { letter-spacing: -0.015em; }
 .stat-card .label { margin-top: 5px; letter-spacing: 0.1em; }
 
-/* ── Divider 3: prism chips ──
-   The hero connector between a section plate and its count. Five slanted
-   glass shards with one live centre, fading into the gutters. */
-.section-line.prism-rule {
+/* Hero connector: thread-and-bead.
+   A fading hairline, two small glass beads and one longer lit core. */
+.section-line.hero-rule {
   position: relative;
   display: flex;
+  flex: 1 1 0;
   align-items: center;
-  gap: 8px;
-  height: 16px;
-  padding: 0 5px;
+  gap: 7px;
+  min-width: 0;
+  height: 18px;
+  padding: 0 3px;
   background: none;
   background-image: none;
   opacity: 1;
-  overflow: visible;
+  overflow: hidden;
 }
-.section-line.prism-rule::after {
-  content: "";
-  position: absolute;
-  left: 8%;
-  right: 8%;
-  bottom: 0;
+.hero-rule .rule-thread {
+  flex: 1 1 0;
+  min-width: 0;
   height: 1px;
+  border-radius: 99px;
+}
+.hero-rule .rule-thread-a {
+  background: linear-gradient(90deg, transparent, color-mix(in srgb, var(--accent) 58%, transparent));
+}
+.hero-rule .rule-thread-b {
+  background: linear-gradient(270deg, transparent, color-mix(in srgb, var(--accent) 58%, transparent));
+}
+.hero-rule .rule-bead {
+  flex: 0 1 12px;
+  min-width: 4px;
+  height: 3px;
+  border-radius: 99px;
+  background: color-mix(in srgb, var(--accent) 58%, transparent);
+  box-shadow: 0 0 7px color-mix(in srgb, var(--accent) 42%, transparent);
+}
+.hero-rule .rule-core {
+  flex: 0 1 48px;
+  min-width: 18px;
+  height: 5px;
+  border-radius: 99px;
   background: linear-gradient(90deg,
-    transparent,
-    color-mix(in srgb, var(--accent-bright) 42%, transparent),
-    transparent);
-  opacity: 0.55;
-  pointer-events: none;
-}
-.prism-rule span {
-  display: block;
-  height: 11px;
-  border: 1px solid color-mix(in srgb, var(--accent) 22%, transparent);
-  border-radius: 3px;
-  background: linear-gradient(180deg,
-    color-mix(in srgb, var(--fg) 13%, transparent),
-    color-mix(in srgb, var(--fg) 4%, transparent));
-  box-shadow: inset 0 1px 0 var(--glass-hi);
-  backdrop-filter: blur(7px);
-  -webkit-backdrop-filter: blur(7px);
-}
-.prism-rule .prism-a,
-.prism-rule .prism-c,
-.prism-rule .prism-s,
-.prism-rule .prism-hot { transform: skewX(-32deg); }
-.prism-rule .prism-a {
-  flex: 1;
-  -webkit-mask: linear-gradient(90deg, transparent, #000 70%);
-  mask: linear-gradient(90deg, transparent, #000 70%);
-}
-.prism-rule .prism-c {
-  flex: 1;
-  -webkit-mask: linear-gradient(270deg, transparent, #000 70%);
-  mask: linear-gradient(270deg, transparent, #000 70%);
-}
-.prism-rule .prism-s { width: 18px; }
-.prism-rule .prism-hot {
-  width: clamp(38px, 9vw, 64px);
-  height: 14px;
-  border-color: color-mix(in srgb, var(--accent-bright) 70%, transparent);
-  background: linear-gradient(180deg,
-    color-mix(in srgb, var(--accent-bright) 78%, transparent),
+    color-mix(in srgb, var(--accent) 28%, transparent),
+    color-mix(in srgb, var(--accent) 92%, transparent) 28%,
+    color-mix(in srgb, var(--accent-bright) 100%, transparent) 50%,
+    color-mix(in srgb, var(--accent) 92%, transparent) 72%,
     color-mix(in srgb, var(--accent) 28%, transparent));
-  box-shadow: inset 0 1px 0 rgba(255, 255, 255, 0.7),
-    0 0 20px color-mix(in srgb, var(--accent) 55%, transparent);
+  box-shadow: 0 0 13px color-mix(in srgb, var(--accent) 52%, transparent);
 }
 
-/* ── Divider 1: frosted beam ──
-   A short glass rail with a lit core under each chapter name. It keeps the
-   reading column feeling like a physical surface without repeating the hero
-   chips or the structural hairline. */
+/* Chapter seam: a diamond lumen on a one-pixel thread. The diamond is a fixed
+   twenty-pixel facet, so it stays jewellery-sized on both phone and desktop. */
 body.chapter-page .chapter-name::after {
-  height: 12px;
-  margin: 1em -36px 0;
-  border: 1px solid color-mix(in srgb, var(--accent) 24%, transparent);
-  border-radius: 99px;
-  background:
-    linear-gradient(100deg,
-      transparent 0 35%,
-      rgba(255, 255, 255, 0.16) 45%,
-      transparent 55%) center / 100% 100% no-repeat,
-    linear-gradient(90deg,
-      transparent 0%,
-      color-mix(in srgb, var(--accent) 85%, transparent) 25%,
-      color-mix(in srgb, var(--accent-bright) 95%, transparent) 50%,
-      color-mix(in srgb, var(--accent) 85%, transparent) 75%,
-      transparent 100%) center / 90% 2px no-repeat,
-    linear-gradient(180deg, rgba(255, 255, 255, 0.16), rgba(255, 255, 255, 0.03));
-  box-shadow: inset 0 1px 0 rgba(255, 255, 255, 0.38),
-    inset 0 -5px 9px color-mix(in srgb, var(--accent) 14%, transparent),
-    0 10px 24px -14px color-mix(in srgb, var(--accent) 55%, transparent);
-  opacity: 1;
-  backdrop-filter: blur(10px);
-  -webkit-backdrop-filter: blur(10px);
+  height: 14px;
+  margin: 1.05em -36px 0;
+  background: linear-gradient(90deg,
+    transparent 0%,
+    color-mix(in srgb, var(--accent) 34%, transparent) 12%,
+    color-mix(in srgb, var(--accent) 76%, transparent) 36%,
+    color-mix(in srgb, var(--accent-bright) 96%, transparent) 50%,
+    color-mix(in srgb, var(--accent) 76%, transparent) 64%,
+    color-mix(in srgb, var(--accent) 34%, transparent) 88%,
+    transparent 100%);
+  -webkit-clip-path: polygon(
+    0 calc(50% - 0.5px),
+    calc(50% - 10px) calc(50% - 0.5px),
+    50% 0,
+    calc(50% + 10px) calc(50% - 0.5px),
+    100% calc(50% - 0.5px),
+    100% calc(50% + 0.5px),
+    calc(50% + 10px) calc(50% + 0.5px),
+    50% 100%,
+    calc(50% - 10px) calc(50% + 0.5px),
+    0 calc(50% + 0.5px)
+  );
+  clip-path: polygon(
+    0 calc(50% - 0.5px),
+    calc(50% - 10px) calc(50% - 0.5px),
+    50% 0,
+    calc(50% + 10px) calc(50% - 0.5px),
+    100% calc(50% - 0.5px),
+    100% calc(50% + 0.5px),
+    calc(50% + 10px) calc(50% + 0.5px),
+    50% 100%,
+    calc(50% - 10px) calc(50% + 0.5px),
+    0 calc(50% + 0.5px)
+  );
+  filter: drop-shadow(0 0 4px color-mix(in srgb, var(--accent) 55%, transparent))
+    drop-shadow(0 0 12px color-mix(in srgb, var(--accent) 24%, transparent));
+  opacity: 0.9;
 }
 
 body.chapter-page .chapter-head {
@@ -4575,6 +4573,15 @@ body.chapter-page .chapter-head::after {
   background: var(--divider-rule);
   opacity: 0.9;
   pointer-events: none;
+}
+
+@media (max-width: 480px) {
+  .section-header { gap: 10px; }
+  .section-heading { font-size: 1rem; padding: 6px 11px; }
+  .section-badge { font-size: 0.625rem; padding: 4px 8px; letter-spacing: 0.08em; }
+  .section-line.hero-rule { gap: 5px; padding: 0 2px; }
+  .hero-rule .rule-bead { flex-basis: 10px; height: 2px; }
+  .hero-rule .rule-core { flex-basis: 34px; height: 4px; }
 }
 @media (max-width: 768px) {
   body.chapter-page .chapter-bar {

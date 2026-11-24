@@ -681,8 +681,9 @@ body.chapter-page .chapter-name::after {
   opacity: 0.85;
 }
 
-/* Startpage-rule polish for the replica design: flat plates, three separator
-   families, and a lit edge instead of a repeated hairline. */
+/* Original divider language for the replica design: flat plates, split
+   edges, thread-and-bead connectors, and the diamond chapter seam. */
+.section-header { min-width: 0; }
 .section-heading,
 .section-badge {
   position: relative;
@@ -700,10 +701,17 @@ body.chapter-page .chapter-name::after {
   left: 9px;
   right: 9px;
   bottom: 0;
-  height: 2px;
-  border-radius: 99px;
-  background: var(--divider-rule) !important;
-  background-image: var(--divider-rule) !important;
+  height: 1px;
+  background: linear-gradient(90deg,
+    transparent 0%,
+    var(--primary) 16%,
+    var(--tertiary) 38%,
+    transparent 46%,
+    transparent 54%,
+    var(--tertiary) 62%,
+    var(--primary) 84%,
+    transparent 100%) !important;
+  background-image: none !important;
   opacity: 0.82;
   pointer-events: none;
 }
@@ -731,37 +739,36 @@ body.chapter-page .chapter-name::after {
   opacity: 1;
 }
 
-.section-line.prism-rule {
+.section-line.hero-rule {
   background: none !important;
   background-image: none !important;
 }
-.section-line.prism-rule::after {
-  background: var(--divider-rule) !important;
-  background-image: var(--divider-rule) !important;
+.hero-rule .rule-thread-a {
+  background: linear-gradient(90deg, transparent, var(--primary)) !important;
 }
-.section-line.prism-rule span {
-  background: var(--surface-variant) !important;
-  background-image: none !important;
-  border-color: var(--outline-variant) !important;
+.hero-rule .rule-thread-b {
+  background: linear-gradient(270deg, transparent, var(--primary)) !important;
+}
+.hero-rule .rule-bead {
+  background: var(--tertiary) !important;
   box-shadow: none !important;
-  backdrop-filter: none !important;
-  -webkit-backdrop-filter: none !important;
 }
-.section-line.prism-rule .prism-hot {
-  background: var(--tertiary-container) !important;
-  border-color: var(--tertiary) !important;
+.hero-rule .rule-core {
+  background: linear-gradient(90deg, var(--primary), var(--tertiary), var(--primary)) !important;
+  box-shadow: none !important;
 }
 
 body.chapter-page .chapter-name::after {
-  background:
-    linear-gradient(90deg,
-      transparent 0%,
-      color-mix(in srgb, var(--primary) 85%, transparent) 25%,
-      color-mix(in srgb, var(--tertiary) 95%, transparent) 50%,
-      color-mix(in srgb, var(--primary) 85%, transparent) 75%,
-      transparent 100%) center / 90% 2px no-repeat,
-    var(--surface-variant) !important;
-  border: 1px solid var(--outline-variant) !important;
+  background: linear-gradient(90deg,
+    transparent 0%,
+    var(--primary) 12%,
+    var(--tertiary) 36%,
+    var(--primary) 50%,
+    var(--tertiary) 64%,
+    var(--primary) 88%,
+    transparent 100%) !important;
+  filter: drop-shadow(0 0 6px color-mix(in srgb, var(--primary) 55%, transparent)) !important;
+  border: 0 !important;
   box-shadow: none !important;
   backdrop-filter: none !important;
   -webkit-backdrop-filter: none !important;
