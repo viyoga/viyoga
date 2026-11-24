@@ -25,9 +25,11 @@
   btn.addEventListener('click', function() {
     var idx = VALID.indexOf(current);
     current = VALID[(idx + 1) % VALID.length];
-    html.setAttribute('data-theme', current);
-    try { localStorage.setItem('theme', current); } catch (err) {}
-    describe();
-    document.dispatchEvent(new Event('themechange'));
+    (window.__themeSwap || function (fn) { fn(); })(function () {
+      html.setAttribute('data-theme', current);
+      try { localStorage.setItem('theme', current); } catch (err) {}
+      describe();
+      document.dispatchEvent(new Event('themechange'));
+    });
   });
 })();

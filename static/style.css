@@ -4599,3 +4599,266 @@ body.chapter-page .chapter-head::after {
     -webkit-backdrop-filter: none;
   }
 }
+
+/* ── Library shelf: monograms, one metadata voice, resume marks ── */
+.novel-card {
+  --card-accent: var(--accent);
+}
+.novel-card:nth-child(6n + 1) { --card-accent: var(--accent); }
+.novel-card:nth-child(6n + 2) { --card-accent: var(--accent-2); }
+.novel-card:nth-child(6n + 3) { --card-accent: var(--cyan); }
+.novel-card:nth-child(6n + 4) { --card-accent: var(--yellow); }
+.novel-card:nth-child(6n + 5) { --card-accent: var(--red); }
+.novel-card:nth-child(6n + 6) { --card-accent: var(--accent-bright); }
+.novel-card-top {
+  align-items: center;
+}
+.novel-mark {
+  width: 30px;
+  height: 30px;
+  display: grid;
+  place-items: center;
+  flex-shrink: 0;
+  border: 1px solid color-mix(in srgb, var(--card-accent) 55%, transparent);
+  background: linear-gradient(135deg,
+    color-mix(in srgb, var(--card-accent) 24%, transparent),
+    transparent 72%);
+  box-shadow: inset 0 1px 0 var(--glass-hi);
+  color: var(--card-accent);
+  font-size: 0.75rem;
+  font-weight: 800;
+  letter-spacing: 0.02em;
+  text-transform: uppercase;
+  transition: border-color 0.18s ease, background 0.18s ease, color 0.18s ease;
+}
+.novel-card:hover .novel-mark {
+  border-color: var(--card-accent);
+  background: linear-gradient(135deg,
+    color-mix(in srgb, var(--card-accent) 34%, transparent),
+    transparent 76%);
+  color: var(--accent-bright);
+}
+.novel-title {
+  flex: 1;
+  min-width: 0;
+}
+.novel-meta {
+  display: flex;
+  align-items: center;
+  flex-wrap: wrap;
+  gap: 6px;
+  margin: 2px 0 6px;
+  color: var(--fg-muted);
+  font-size: 0.6875rem;
+  letter-spacing: 0.04em;
+  font-variant-numeric: tabular-nums;
+  font-feature-settings: "tnum" 1;
+}
+.novel-author {
+  color: var(--fg-dim);
+  font-weight: 700;
+}
+.novel-meta-sep { color: color-mix(in srgb, var(--fg-muted) 60%, transparent); }
+.novel-meta-stat { color: var(--fg-muted); }
+.novel-resume {
+  margin-top: 10px;
+  padding-top: 8px;
+  border-top: 1px solid color-mix(in srgb, var(--accent) 20%, transparent);
+  color: var(--accent);
+  font-size: 0.625rem;
+  font-weight: 700;
+  letter-spacing: 0.09em;
+  text-transform: uppercase;
+}
+
+/* Corner registration ticks: one quiet seam per card, not another divider. */
+.novel-card::before,
+.stack-card::before,
+.chapter-card::before,
+.chapter-grid .grid-item::before {
+  content: "";
+  position: absolute;
+  top: 8px;
+  left: 8px;
+  width: 7px;
+  height: 7px;
+  border-top: 1px solid color-mix(in srgb, var(--accent) 55%, transparent);
+  border-left: 1px solid color-mix(in srgb, var(--accent) 55%, transparent);
+  opacity: 0.35;
+  z-index: 3;
+  pointer-events: none;
+  transition: width 0.22s cubic-bezier(0.16, 1, 0.3, 1),
+    height 0.22s cubic-bezier(0.16, 1, 0.3, 1),
+    border-color 0.22s ease, opacity 0.22s ease;
+}
+.novel-card:hover::before,
+.novel-card:focus-visible::before,
+.stack-card:hover::before,
+.stack-card:focus-visible::before,
+.chapter-card:hover::before,
+.chapter-card:focus-visible::before,
+.chapter-grid .grid-item:hover::before,
+.chapter-grid .grid-item:focus-visible::before {
+  width: 12px;
+  height: 12px;
+  border-color: var(--accent-bright);
+  opacity: 0.9;
+}
+
+/* ── Chapter discovery: filter, order, count ── */
+.chapter-toolbar {
+  display: none;
+  align-items: center;
+  gap: 10px;
+  flex-wrap: wrap;
+  margin: -8px 0 18px;
+}
+.chapter-toolbar.is-ready { display: flex; }
+.chapter-search {
+  flex: 1 1 240px;
+  min-width: 0;
+  display: flex;
+  align-items: center;
+  gap: 8px;
+  padding: 6px 10px;
+  background: var(--glass-bg);
+  border: 1px solid color-mix(in srgb, var(--fg) 14%, transparent);
+  box-shadow: var(--glass-shadow), var(--glass-bevel-top);
+}
+.chapter-search-sym {
+  color: var(--accent);
+  font-weight: 800;
+  line-height: 1;
+}
+.chapter-search input {
+  width: 100%;
+  min-width: 0;
+  padding: 2px 0;
+  border: 0;
+  outline: 0;
+  background: none;
+  color: var(--fg);
+  font: inherit;
+  font-size: var(--text-xs);
+  letter-spacing: 0.04em;
+}
+.chapter-search input::placeholder {
+  color: var(--fg-muted);
+  opacity: 0.85;
+}
+.chapter-sort {
+  display: inline-flex;
+  align-items: center;
+  gap: 7px;
+  padding: 7px 11px;
+  background: var(--glass-bg);
+  border: 1px solid color-mix(in srgb, var(--fg) 14%, transparent);
+  box-shadow: var(--glass-shadow), var(--glass-bevel-top);
+  color: var(--fg-dim);
+  font: inherit;
+  font-size: 0.6875rem;
+  font-weight: 700;
+  letter-spacing: 0.06em;
+  text-transform: uppercase;
+  cursor: pointer;
+  transition: color 0.15s ease, border-color 0.15s ease, background 0.15s ease;
+}
+.chapter-sort:hover,
+.chapter-sort:focus-visible {
+  color: var(--accent);
+  border-color: color-mix(in srgb, var(--accent) 45%, transparent);
+}
+.chapter-sort-arrow { color: var(--accent); }
+.chapter-result-count {
+  margin-left: auto;
+  color: var(--fg-muted);
+  font-size: 0.625rem;
+  letter-spacing: 0.08em;
+  text-transform: uppercase;
+  white-space: nowrap;
+  font-variant-numeric: tabular-nums;
+  font-feature-settings: "tnum" 1;
+}
+.chapter-empty {
+  margin: 20px 0;
+  color: var(--fg-muted);
+  font-size: var(--text-xs);
+  text-align: center;
+}
+@media (max-width: 640px) {
+  .chapter-search { flex-basis: 100%; }
+  .chapter-result-count { margin-left: 0; }
+}
+
+/* ── Reading progress: a lit seam under the chapter bar ── */
+.chapter-bar { position: relative; }
+.chapter-bar-title {
+  display: flex;
+  align-items: baseline;
+  justify-content: center;
+  gap: 8px;
+}
+.chapter-bar-title-main {
+  min-width: 0;
+  overflow: hidden;
+  text-overflow: ellipsis;
+}
+.chapter-bar-count {
+  flex-shrink: 0;
+  color: var(--fg-muted);
+  font-size: 0.625rem;
+  font-weight: 600;
+  letter-spacing: 0.08em;
+  text-transform: uppercase;
+  font-variant-numeric: tabular-nums;
+  font-feature-settings: "tnum" 1;
+}
+body.chapter-page .chapter-head::before {
+  content: "";
+  position: absolute;
+  left: 0;
+  bottom: 0;
+  height: 1px;
+  width: var(--chapter-progress, 0%);
+  background: linear-gradient(90deg,
+    transparent 0%,
+    var(--accent) 12%,
+    var(--accent-bright) 88%,
+    transparent 100%);
+  opacity: 0.95;
+  z-index: 2;
+  pointer-events: none;
+  transition: width 0.3s cubic-bezier(0.16, 1, 0.3, 1);
+}
+@media (max-width: 480px) {
+  .chapter-bar-title {
+    flex-direction: column;
+    gap: 1px;
+    line-height: 1.05;
+  }
+  .chapter-bar-count {
+    font-size: 0.5rem;
+    letter-spacing: 0.06em;
+  }
+}
+
+/* ── Theme switch: a quiet 180ms crossfade, plus a fallback for the mark ── */
+@media (prefers-reduced-motion: no-preference) {
+  ::view-transition-old(root),
+  ::view-transition-new(root) {
+    animation-duration: 180ms;
+    animation-timing-function: ease;
+  }
+  .logo-planet [fill],
+  .logo-planet [stroke],
+  .logo-planet stop {
+    transition: fill 0.18s ease, stroke 0.18s ease,
+      stop-color 0.18s ease, opacity 0.18s ease;
+  }
+  nav.top,
+  .section-heading,
+  .section-badge {
+    transition: border-color 0.18s ease, box-shadow 0.18s ease,
+      background-color 0.18s ease, color 0.18s ease;
+  }
+}

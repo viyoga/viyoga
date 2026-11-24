@@ -6,7 +6,7 @@
    `chapter-page` additionally swaps the site nav for the chapter bar on phones. #}
 {% block body_class %}reading chapter-page{% endblock body_class %}
 
-{% block extrascripts %}{{ super() }}<script defer src="/js/chapter-settings.js"></script><script defer src="/js/chapter-bar.js?v=20261123a"></script>{% endblock extrascripts %}
+{% block extrascripts %}{{ super() }}<script defer src="/js/chapter-settings.js?v=20261125a"></script><script defer src="/js/chapter-bar.js?v=20261123a"></script>{% endblock extrascripts %}
 
 {% block content %}
 {% set ancestors = page.ancestors %}
@@ -22,9 +22,14 @@
 {% set_global prev_page = false %}
 {% set_global next_page = false %}
 {% set_global unit = "Chapter" %}
+{% set_global novel_path = "" %}
+{% set_global novel_title = "" %}
+{% set_global total_chapters = 0 %}
 {% if ancestors | length >= 2 %}
   {% set novel = get_section(path=ancestors[1]) %}
   {% set_global unit = novel.extra.unit | default(value="Chapter") %}
+  {% set_global novel_path = novel.path %}
+  {% set_global novel_title = novel.title %}
   {% set_global prev_page = page.lower %}
   {% set_global next_page = page.higher %}
   {% if novel.subsections %}
@@ -69,9 +74,23 @@
       {% endif %}
     {% endfor %}
   {% endif %}
+  {% if novel.subsections %}
+    {% for sub in novel.subsections %}
+      {% set sub_sec = get_section(path=sub) %}
+      {% set_global total_chapters = total_chapters + sub_sec.pages | length %}
+    {% endfor %}
+  {% else %}
+    {% set_global total_chapters = novel.pages | length %}
+  {% endif %}
 {% else %}
   {% set_global prev_page = page.lower %}
   {% set_global next_page = page.higher %}
+{% endif %}
+
+{% set chapter_number = page.extra.chapter | default(value=0) %}
+{% set progress = 0 %}
+{% if total_chapters > 0 and chapter_number > 0 %}
+  {% set progress = chapter_number * 100 / total_chapters %}
 {% endif %}
 
 {% set chapter_name = page.title %}
@@ -94,10 +113,14 @@
   {% endif %}
 {% endif %}
 
-<div class="chapter-head">
+<div class="chapter-head" style="--chapter-progress: {{ progress }}%;"
+     {% if novel_path %}data-reading-novel="{{ novel_path }}" data-reading-path="{{ page.path }}" data-reading-label="{% if page.extra.chapter %}{{ unit }} {{ page.extra.chapter }}{% else %}{{ page.title }}{% endif %}" data-reading-number="{{ chapter_number }}" data-reading-total="{{ total_chapters }}"{% endif %}>
 <header class="chapter-bar">
   <a class="back-btn chapter-bar-index" href="{{ index_path }}">&larr; {{ index_label }}</a>
-  <h1 class="chapter-bar-title" title="{{ page.title }}">{% if page.extra.chapter %}{{ unit }} {{ page.extra.chapter }}{% else %}{{ page.title }}{% endif %}</h1>
+  <h1 class="chapter-bar-title" title="{{ page.title }}">
+    <span class="chapter-bar-title-main">{% if page.extra.chapter %}{{ unit }} {{ page.extra.chapter }}{% else %}{{ page.title }}{% endif %}</span>
+    {% if chapter_number > 0 and total_chapters > 0 %}<span class="chapter-bar-count" data-count-label="{{ chapter_number }}" data-count-total="{{ total_chapters }}">{{ chapter_number }} / {{ total_chapters }}</span>{% endif %}
+  </h1>
   <nav class="chapter-bar-nav" aria-label="Chapter navigation">
     {% if prev_page %}
       <a class="back-btn chapter-bar-arrow chapter-bar-prev" href="{{ prev_page.path }}" title="Previous: {{ prev_page.title }}" aria-label="Previous chapter">&lsaquo;</a>

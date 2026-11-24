@@ -35,10 +35,21 @@
       document.head.appendChild(link);
     }
     root.classList.add('js');
-  })();</script>
+  })();
+  window.__themeSwap = function (apply) {
+    var reduced = false;
+    try { reduced = window.matchMedia('(prefers-reduced-motion: reduce)').matches; } catch (e) {}
+    if (!reduced && document.startViewTransition) {
+      try {
+        document.startViewTransition(apply);
+        return;
+      } catch (e) {}
+    }
+    apply();
+  };</script>
   <title>{% block title %}{{ config.title }}{% endblock title %}</title>
-  <link rel="stylesheet" href="/style.css?v=20261124e">
-  <link id="redesign-css" rel="stylesheet" href="/redesign.css?v=20261124e" disabled>
+  <link rel="stylesheet" href="/style.css?v=20261125a">
+  <link id="redesign-css" rel="stylesheet" href="/redesign.css?v=20261125a" disabled>
   <script>(function(){
     var root = document.documentElement;
     var params = null;
@@ -135,10 +146,10 @@
     root.setAttribute('data-font', font);
     try { localStorage.setItem('font', font); } catch (e) {}
   })();</script>
-  <link rel="icon" href="/favicon.svg?v=20261124f" type="image/svg+xml">
-  <link rel="alternate icon" href="/favicon.ico?v=20261124f">
-  <link rel="apple-touch-icon" href="/apple-touch-icon.png?v=20261124f">
-  <link rel="manifest" href="/site.webmanifest?v=20261124f">
+  <link rel="icon" href="/favicon.svg?v=20261125a" type="image/svg+xml">
+  <link rel="alternate icon" href="/favicon.ico?v=20261125a">
+  <link rel="apple-touch-icon" href="/apple-touch-icon.png?v=20261125a">
+  <link rel="manifest" href="/site.webmanifest?v=20261125a">
   <link rel="alternate" type="application/atom+xml" title="{{ config.title }}" href="/atom.xml">
   <meta name="description" content="{{ config.description }}">
 {% block head %}{% endblock head %}
@@ -176,13 +187,14 @@
 <script defer src="/js/vendor/lenis.min.js"></script>
 <script defer src="/js/smooth.js"></script>
 <script defer src="/js/copy.js"></script>
-<script defer src="/js/theme.js?v=20261024"></script>
+<script defer src="/js/theme.js?v=20261125a"></script>
 <script defer src="/js/font.js"></script>
-<script defer src="/js/anim.js?v=20261123i"></script>
+<script defer src="/js/anim.js?v=20261125a"></script>
 <script defer src="/js/spotlight.js?v=20261025"></script>
 <script defer src="/js/flue.js?v=20261025"></script>
 {% block extrascripts %}<script defer src="/js/grid.js?v=20261025"></script>{% endblock extrascripts %}
-<script defer src="/js/design-override.js?v=20261123a"></script>
+<script defer src="/js/design-override.js?v=20261125a"></script>
 <script defer src="/js/design.js?v=20261122c"></script>
+<script defer src="/js/reading-progress.js?v=20261125a"></script>
 </body>
 </html>

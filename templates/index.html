@@ -36,36 +36,38 @@
   </div>
 </div>
 
+{% set chapters = get_section(path="chapters/_index.md") %}
+{% set white_nights = get_section(path="white-nights/_index.md") %}
+{% set notes = get_section(path="notes-from-underground/_index.md") %}
+{% set metamorphosis = get_section(path="metamorphosis/_index.md") %}
+{% set trial = get_section(path="the-trial/_index.md") %}
+{% set shelves = [chapters, white_nights, notes, metamorphosis, trial] %}
 <section id="notes" class="wrap reveal">
   <div class="section-header">
     <h2 class="section-heading"><span class="heading-sym">~/</span>novels</h2>
     {% include "partials/hero-rule.html" %}
-    <span class="section-badge">1 book</span>
+    <span class="section-badge">{{ shelves | length }} classics</span>
   </div>
-  {% set chapters = get_section(path="chapters/_index.md") %}
-  {% set lith = get_section(path="lith's-slice-of-life/_index.md") %}
-  {% set shotk = get_section(path="son-of-the-hero-king/_index.md") %}
-  {% set hearth = get_section(path="hearthomancy-vol-1/_index.md") %}
-  {% set ima = get_section(path="i-am-a-mage-but-with-milf-system/_index.md") %}
-  {% set tcdg = get_section(path="the-corruption-dragon-god-lust-system/_index.md") %}
-  {% set golden = get_section(path="the-golden-lord-sss-rank-summoning-system/_index.md") %}
-  {% set asc = get_section(path="ascendant-path-of-a-lustful-vampire/_index.md") %}
-  {% set friendly = get_section(path="creating-a-friendly-family/_index.md") %}
-  {% set primordial = get_section(path="primordial-chaos-dragon-tower-harem-system/_index.md") %}
-  {% set shelves = [chapters] %}
   <div class="novels-grid">
     {% for shelf in shelves %}
-    <a href="{{ shelf.path }}" class="novel-card">
+    {% set card_pages = shelf.pages | length %}
+    <a href="{{ shelf.path }}" class="novel-card" data-resume-novel="{{ shelf.path }}">
       <div class="novel-card-top">
+        <span class="novel-mark" aria-hidden="true">{{ shelf.title | truncate(length=1, end="") }}</span>
         <div class="novel-title">{{ shelf.title }}</div>
-        <span class="novel-tag">Book {{ loop.index }}</span>
+        <span class="novel-tag">Book {{ shelf.extra.book_number | default(value=loop.index) }}</span>
       </div>
-      {% if shelf.extra.author %}
-      <div class="novel-author-meta">
-        <span class="novel-author">{{ shelf.extra.author }}</span>
-        {% if shelf.extra.year %}<span class="novel-year">· {{ shelf.extra.year }}</span>{% elif shelf.extra.chapters %}<span class="novel-year">· {{ shelf.extra.chapters }}</span>{% endif %}
+      <div class="novel-meta">
+        <span class="novel-author">{{ shelf.extra.author | default(value="Unknown") }}</span>
+        <span class="novel-meta-sep" aria-hidden="true">·</span>
+        <span class="novel-meta-stat">
+          {% if shelf.extra.year %}{{ shelf.extra.year }}
+          {% elif shelf.extra.chapters %}{{ shelf.extra.chapters }}
+          {% elif card_pages > 0 %}{{ card_pages }} ch
+          {% elif shelf.subsections %}{{ shelf.subsections | length }} books
+          {% else %}—{% endif %}
+        </span>
       </div>
-      {% endif %}
       <div class="novel-summary">{{ shelf.extra.summary | default(value="") }}</div>
     </a>
     {% endfor %}
@@ -188,7 +190,7 @@
   <div class="section-header">
     <h2 class="section-heading"><span class="heading-sym">~/</span>stats</h2>
     {% include "partials/hero-rule.html" %}
-    <span class="section-badge">live metrics</span>
+    <span class="section-badge">site metrics</span>
   </div>
   <div class="stats-grid">
     {% set chapters = get_section(path="chapters/_index.md") %}
@@ -257,9 +259,10 @@
     {% set family_reunion_n = family_reunion.pages | length %}
     {% set ch_n = chapters.pages | length %}
     {% set all_n = ch_n + wn_n + nfu_n + meta_n + trial_n + lith_n + shotk_n + hearth_n + ima_n + tcdg_n + golden_n + asc_n + friendly_n + primordial_n + villain_heroines_n + system_villain_n + reborn_n + dominator_n + necromancer_n + demonic_pornstar_n + primordial_villain_harem_n + evil_ntr_n + perfect_harem_n + ntr_barbarian_n + lust_system_n + milf_village_n + dare_mother_n + milf_chronicles_n + apprentice_witch_n + family_reunion_n %}
+    {% set root_section = get_section(path="_index.md") %}
     <div class="stat-card">
       <div class="stat-top-bar">Archive</div>
-      <div class="value">31+8</div>
+      <div class="value">{{ root_section.subsections | length }}+8</div>
       <div class="label">Novels &amp; Tools</div>
     </div>
     <div class="stat-card">

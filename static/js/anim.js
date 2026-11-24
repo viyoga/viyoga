@@ -24,7 +24,7 @@
       if (start === null) start = now;
       var t = Math.min((now - start) / dur, 1);
       var eased = 1 - Math.pow(1 - t, 3);
-      targetEl.textContent = Math.round(eased * target);
+      targetEl.textContent = Math.round(eased * target).toLocaleString('en-US');
       if (t < 1) requestAnimationFrame(frame);
     }
     requestAnimationFrame(frame);

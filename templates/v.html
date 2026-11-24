@@ -1,6 +1,7 @@
 {% extends "base.html" %}
 
 {% block title %}v — {{ config.title }}{% endblock title %}
+{% block head %}<meta name="robots" content="noindex, nofollow">{% endblock head %}
 
 {% block content %}
 
@@ -72,17 +73,24 @@
   </div>
   <div class="novels-grid">
     {% for shelf in shelves %}
-    <a href="{{ shelf.path }}" class="novel-card">
+    {% set card_pages = shelf.pages | length %}
+    <a href="{{ shelf.path }}" class="novel-card" data-resume-novel="{{ shelf.path }}">
       <div class="novel-card-top">
+        <span class="novel-mark" aria-hidden="true">{{ shelf.title | truncate(length=1, end="") }}</span>
         <div class="novel-title">{{ shelf.title }}</div>
-        <span class="novel-tag">Book {{ shelf.extra.book_number }}</span>
+        <span class="novel-tag">Book {{ shelf.extra.book_number | default(value=loop.index) }}</span>
       </div>
-      {% if shelf.extra.author %}
-      <div class="novel-author-meta">
-        <span class="novel-author">{{ shelf.extra.author }}</span>
-        {% if shelf.extra.year %}<span class="novel-year">· {{ shelf.extra.year }}</span>{% elif shelf.extra.chapters %}<span class="novel-year">· {{ shelf.extra.chapters }}</span>{% endif %}
+      <div class="novel-meta">
+        <span class="novel-author">{{ shelf.extra.author | default(value="Unknown") }}</span>
+        <span class="novel-meta-sep" aria-hidden="true">·</span>
+        <span class="novel-meta-stat">
+          {% if shelf.extra.year %}{{ shelf.extra.year }}
+          {% elif shelf.extra.chapters %}{{ shelf.extra.chapters }}
+          {% elif card_pages > 0 %}{{ card_pages }} ch
+          {% elif shelf.subsections %}{{ shelf.subsections | length }} books
+          {% else %}—{% endif %}
+        </span>
       </div>
-      {% endif %}
       <div class="novel-summary">{{ shelf.extra.summary | default(value="") }}</div>
     </a>
     {% endfor %}

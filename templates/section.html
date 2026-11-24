@@ -28,6 +28,12 @@
     {% endif %}
   {% endif %}
 {% endfor %}
+{% set_global list_count = pages | length %}
+{% if section.subsections %}
+  {% set_global list_count = section.subsections | length %}
+{% elif chapter_count > 0 %}
+  {% set_global list_count = chapter_count %}
+{% endif %}
 
 <div class="novel-hero wrap">
   <div class="terminal novel-hero-terminal">
@@ -70,8 +76,8 @@
       {% endif %}
       {% if not section.subsections and first_chapter_page %}
         <div class="novel-hero-action">
-          <a href="{{ first_chapter_page.path }}" class="novel-start-btn">
-            start reading &rarr;
+          <a href="{{ first_chapter_page.path }}" class="novel-start-btn" data-resume-novel="{{ section.path }}">
+            <span data-resume-label>start reading</span><span aria-hidden="true">&rarr;</span>
           </a>
         </div>
       {% endif %}
@@ -95,11 +101,23 @@
       {% endif %}
     </span>
   </div>
+  {% if list_count > 24 %}
+  <div class="chapter-toolbar" data-chapter-toolbar>
+    <label class="chapter-search">
+      <span class="chapter-search-sym" aria-hidden="true">/</span>
+      <input type="search" data-chapter-search placeholder="filter chapters…" aria-label="Filter chapters" autocomplete="off" spellcheck="false">
+    </label>
+    <button type="button" class="chapter-sort" data-chapter-sort aria-pressed="false" title="Reverse chapter order">
+      <span data-chapter-sort-label>oldest first</span><span class="chapter-sort-arrow" aria-hidden="true" data-chapter-sort-arrow>↑</span>
+    </button>
+    <span class="chapter-result-count" data-chapter-count aria-live="polite">{{ list_count }} shown</span>
+  </div>
+  {% endif %}
   <div class="chapter-grid">
     {% if section.subsections %}
       {% for sub in section.subsections | sort %}
         {% set sub_sec = get_section(path=sub) %}
-        <a href="{{ sub_sec.path | safe }}" class="chapter-card">
+        <a href="{{ sub_sec.path | safe }}" class="chapter-card" data-chapter-card data-order="{{ loop.index }}" data-chapter-text="{{ sub_sec.title }} book {{ loop.index }}">
           <div class="chapter-card-top">
             <span class="chapter-num">{% if sub_sec.extra.label %}{{ sub_sec.extra.label }}{% else %}BOOK {{ loop.index }}{% endif %}</span>
             <span class="chapter-arrow">&nearr;</span>
@@ -112,7 +130,7 @@
       {% endfor %}
     {% else %}
       {% for page in pages %}
-        <a href="{{ page.path | safe }}" class="chapter-card">
+        <a href="{{ page.path | safe }}" class="chapter-card" data-chapter-card data-order="{{ page.extra.chapter | default(value=loop.index) }}" data-chapter-text="{{ page.title }} ch {{ page.extra.chapter | default(value=loop.index) }}">
           <div class="chapter-card-top">
             <span class="chapter-num">
               {% if page.extra.badge %}
@@ -137,5 +155,8 @@
       {% endfor %}
     {% endif %}
   </div>
+  <p class="chapter-empty" data-chapter-empty hidden>no chapters match that filter.</p>
 </section>
 {% endblock content %}
+
+{% block extrascripts %}{{ super() }}<script defer src="/js/chapter-tools.js?v=20261125a"></script>{% endblock extrascripts %}

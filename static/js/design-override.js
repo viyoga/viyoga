@@ -72,10 +72,12 @@
 
   function setTheme(name, announce) {
     if (THEMES.indexOf(name) < 0) name = "amber";
-    root.setAttribute("data-theme", name);
-    store("theme", name);
-    paintTheme();
-    if (announce) document.dispatchEvent(new Event("themechange"));
+    (window.__themeSwap || function (fn) { fn(); })(function () {
+      root.setAttribute("data-theme", name);
+      store("theme", name);
+      paintTheme();
+      if (announce) document.dispatchEvent(new Event("themechange"));
+    });
   }
   function setFont(name, announce) {
     if (FONTS.indexOf(name) < 0) name = "iosevka";

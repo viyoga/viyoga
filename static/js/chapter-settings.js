@@ -53,10 +53,12 @@
   }
   function setTheme(name, announce) {
     if (THEMES.indexOf(name) < 0) name = 'safelight';
-    root.setAttribute('data-theme', name);
-    store('theme', name);
-    paintTheme(name);
-    if (announce) document.dispatchEvent(new Event('themechange'));
+    (window.__themeSwap || function (fn) { fn(); })(function () {
+      root.setAttribute('data-theme', name);
+      store('theme', name);
+      paintTheme(name);
+      if (announce) document.dispatchEvent(new Event('themechange'));
+    });
   }
 
   /* ── Size ──

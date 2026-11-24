@@ -474,7 +474,7 @@ nav.top .logo { color: var(--on-surface) !important; }
 .novel-title, .chapter-card-title, .chapter-card-title a, .chapter-bar-title,
 .stat-card .value, .terminal-body h1, .novel-hero-title,
 .dict-word, .dict-word-row { color: var(--on-surface) !important; }
-.novel-author, .novel-year, .novel-summary, .chapter-card-meta,
+.novel-author, .novel-year, .novel-meta, .novel-meta-stat, .novel-meta-sep, .novel-summary, .chapter-card-meta,
 .stat-card .label, .stat-top-bar, .novel-hero-desc, .stack-card p,
 .dict-def, .dict-example { color: var(--on-surface-variant) !important; }
 
@@ -756,4 +756,48 @@ body.chapter-page .chapter-head::after {
     border-bottom: 0 !important;
     box-shadow: none !important;
   }
+}
+
+
+/* Library shelf, chapter tools, and reading progress in the flat design. */
+.novel-mark {
+  background: var(--surface-variant) !important;
+  background-image: none !important;
+  border-color: var(--outline-variant) !important;
+  color: var(--primary) !important;
+  box-shadow: none !important;
+}
+.novel-card:hover .novel-mark {
+  border-color: var(--primary) !important;
+  background: var(--primary-container) !important;
+  color: var(--on-primary-container) !important;
+}
+.novel-resume {
+  border-top-color: var(--outline-variant) !important;
+  color: var(--primary) !important;
+}
+.chapter-search,
+.chapter-sort {
+  background: var(--surface-variant) !important;
+  background-image: none !important;
+  border-color: var(--outline-variant) !important;
+  box-shadow: none !important;
+}
+.chapter-search input { color: var(--on-surface) !important; }
+.chapter-search input::placeholder { color: var(--outline) !important; }
+.chapter-sort { color: var(--on-surface-variant) !important; }
+.chapter-sort:hover,
+.chapter-sort:focus-visible {
+  background: var(--primary-container) !important;
+  border-color: var(--primary) !important;
+  color: var(--on-primary-container) !important;
+}
+.chapter-sort-arrow { color: var(--primary) !important; }
+.chapter-result-count { color: var(--outline) !important; }
+.chapter-empty { color: var(--on-surface-variant) !important; }
+.chapter-bar-count { color: var(--on-surface-variant) !important; }
+body.chapter-page .chapter-head::before {
+  background: var(--primary) !important;
+  background-image: none !important;
+  opacity: 0.9;
 }
