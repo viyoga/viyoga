@@ -4396,9 +4396,9 @@ body.chapter-page .chapter-bar {
 }
 
 /* ── Startpage rule polish ──
-   Section plates, stat cards and the persistent chapter bar now borrow the
-   same hairline physics as the chapter-name divider: glass at rest, one lit
-   filament along the lower edge. No floating dots, no chunky shadows. */
+   Three separator families now share the page instead of one hairline:
+   a frosted beam under chapter names, prism chips between hero plates, and
+   the original hairline for structural edges and stat cards. */
 .section-heading,
 .section-badge {
   position: relative;
@@ -4410,16 +4410,24 @@ body.chapter-page .chapter-bar {
 }
 .section-heading { padding: 7px 15px 8px; }
 .section-badge { padding: 5px 11px 6px; letter-spacing: 0.1em; }
+/* Mini frosted beam: the lit core of divider 1, scaled to a plate edge. */
 .section-heading::after,
 .section-badge::after {
   content: "";
   position: absolute;
-  left: 9px;
-  right: 9px;
+  left: 10px;
+  right: 10px;
   bottom: 0;
-  height: 1px;
-  background: var(--divider-rule);
-  opacity: 0.9;
+  height: 2px;
+  border-radius: 99px;
+  background: linear-gradient(90deg,
+    transparent 0%,
+    color-mix(in srgb, var(--accent) 75%, transparent) 25%,
+    color-mix(in srgb, var(--accent-bright) 95%, transparent) 50%,
+    color-mix(in srgb, var(--accent) 75%, transparent) 75%,
+    transparent 100%);
+  box-shadow: 0 0 8px color-mix(in srgb, var(--accent) 42%, transparent);
+  opacity: 0.82;
   pointer-events: none;
 }
 
@@ -4443,24 +4451,108 @@ body.chapter-page .chapter-bar {
 .stat-top-bar {
   position: relative;
   gap: 0;
-  margin: 0 0 9px;
-  padding-bottom: 9px;
+  margin: 0 0 6px;
   letter-spacing: 0.16em;
   color: var(--fg-muted);
 }
-.stat-top-bar::after {
-  content: "";
-  position: absolute;
-  left: 23%;
-  right: 23%;
-  bottom: 0;
-  height: 1px;
-  background: var(--divider-rule);
-  opacity: 0.62;
-  pointer-events: none;
-}
 .stat-card .value { letter-spacing: -0.015em; }
 .stat-card .label { margin-top: 5px; letter-spacing: 0.1em; }
+
+/* ── Divider 3: prism chips ──
+   The hero connector between a section plate and its count. Five slanted
+   glass shards with one live centre, fading into the gutters. */
+.section-line.prism-rule {
+  position: relative;
+  display: flex;
+  align-items: center;
+  gap: 8px;
+  height: 16px;
+  padding: 0 5px;
+  background: none;
+  background-image: none;
+  opacity: 1;
+  overflow: visible;
+}
+.section-line.prism-rule::after {
+  content: "";
+  position: absolute;
+  left: 8%;
+  right: 8%;
+  bottom: 0;
+  height: 1px;
+  background: linear-gradient(90deg,
+    transparent,
+    color-mix(in srgb, var(--accent-bright) 42%, transparent),
+    transparent);
+  opacity: 0.55;
+  pointer-events: none;
+}
+.prism-rule span {
+  display: block;
+  height: 11px;
+  border: 1px solid color-mix(in srgb, var(--accent) 22%, transparent);
+  border-radius: 3px;
+  background: linear-gradient(180deg,
+    color-mix(in srgb, var(--fg) 13%, transparent),
+    color-mix(in srgb, var(--fg) 4%, transparent));
+  box-shadow: inset 0 1px 0 var(--glass-hi);
+  backdrop-filter: blur(7px);
+  -webkit-backdrop-filter: blur(7px);
+}
+.prism-rule .prism-a,
+.prism-rule .prism-c,
+.prism-rule .prism-s,
+.prism-rule .prism-hot { transform: skewX(-32deg); }
+.prism-rule .prism-a {
+  flex: 1;
+  -webkit-mask: linear-gradient(90deg, transparent, #000 70%);
+  mask: linear-gradient(90deg, transparent, #000 70%);
+}
+.prism-rule .prism-c {
+  flex: 1;
+  -webkit-mask: linear-gradient(270deg, transparent, #000 70%);
+  mask: linear-gradient(270deg, transparent, #000 70%);
+}
+.prism-rule .prism-s { width: 18px; }
+.prism-rule .prism-hot {
+  width: clamp(38px, 9vw, 64px);
+  height: 14px;
+  border-color: color-mix(in srgb, var(--accent-bright) 70%, transparent);
+  background: linear-gradient(180deg,
+    color-mix(in srgb, var(--accent-bright) 78%, transparent),
+    color-mix(in srgb, var(--accent) 28%, transparent));
+  box-shadow: inset 0 1px 0 rgba(255, 255, 255, 0.7),
+    0 0 20px color-mix(in srgb, var(--accent) 55%, transparent);
+}
+
+/* ── Divider 1: frosted beam ──
+   A short glass rail with a lit core under each chapter name. It keeps the
+   reading column feeling like a physical surface without repeating the hero
+   chips or the structural hairline. */
+body.chapter-page .chapter-name::after {
+  height: 12px;
+  margin: 1em -36px 0;
+  border: 1px solid color-mix(in srgb, var(--accent) 24%, transparent);
+  border-radius: 99px;
+  background:
+    linear-gradient(100deg,
+      transparent 0 35%,
+      rgba(255, 255, 255, 0.16) 45%,
+      transparent 55%) center / 100% 100% no-repeat,
+    linear-gradient(90deg,
+      transparent 0%,
+      color-mix(in srgb, var(--accent) 85%, transparent) 25%,
+      color-mix(in srgb, var(--accent-bright) 95%, transparent) 50%,
+      color-mix(in srgb, var(--accent) 85%, transparent) 75%,
+      transparent 100%) center / 90% 2px no-repeat,
+    linear-gradient(180deg, rgba(255, 255, 255, 0.16), rgba(255, 255, 255, 0.03));
+  box-shadow: inset 0 1px 0 rgba(255, 255, 255, 0.38),
+    inset 0 -5px 9px color-mix(in srgb, var(--accent) 14%, transparent),
+    0 10px 24px -14px color-mix(in srgb, var(--accent) 55%, transparent);
+  opacity: 1;
+  backdrop-filter: blur(10px);
+  -webkit-backdrop-filter: blur(10px);
+}
 
 body.chapter-page .chapter-head {
   background:
