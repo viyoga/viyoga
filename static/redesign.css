@@ -795,7 +795,6 @@ body.chapter-page .chapter-head::after {
 .chapter-sort-arrow { color: var(--primary) !important; }
 .chapter-result-count { color: var(--outline) !important; }
 .chapter-empty { color: var(--on-surface-variant) !important; }
-.chapter-bar-count { color: var(--on-surface-variant) !important; }
 body.chapter-page .chapter-head::before {
   background: var(--primary) !important;
   background-image: none !important;

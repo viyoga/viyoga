@@ -12,17 +12,6 @@
     }
   }
 
-  function fmt(n) {
-    return Number(n).toLocaleString('en-US');
-  }
-
-  var barCount = document.querySelector('[data-count-label]');
-  if (barCount) {
-    var label = parseInt(barCount.getAttribute('data-count-label'), 10);
-    var total = parseInt(barCount.getAttribute('data-count-total'), 10);
-    if (!isNaN(label) && !isNaN(total)) barCount.textContent = fmt(label) + ' / ' + fmt(total);
-  }
-
   var head = document.querySelector('[data-reading-novel]');
   if (head) {
     var novelPath = head.getAttribute('data-reading-novel');

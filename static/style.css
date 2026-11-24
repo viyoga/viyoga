@@ -4796,22 +4796,11 @@ body.chapter-page .chapter-head::after {
   display: flex;
   align-items: baseline;
   justify-content: center;
-  gap: 8px;
 }
 .chapter-bar-title-main {
   min-width: 0;
   overflow: hidden;
   text-overflow: ellipsis;
-}
-.chapter-bar-count {
-  flex-shrink: 0;
-  color: var(--fg-muted);
-  font-size: 0.625rem;
-  font-weight: 600;
-  letter-spacing: 0.08em;
-  text-transform: uppercase;
-  font-variant-numeric: tabular-nums;
-  font-feature-settings: "tnum" 1;
 }
 body.chapter-page .chapter-head::before {
   content: "";
@@ -4830,18 +4819,6 @@ body.chapter-page .chapter-head::before {
   pointer-events: none;
   transition: width 0.3s cubic-bezier(0.16, 1, 0.3, 1);
 }
-@media (max-width: 480px) {
-  .chapter-bar-title {
-    flex-direction: column;
-    gap: 1px;
-    line-height: 1.05;
-  }
-  .chapter-bar-count {
-    font-size: 0.5rem;
-    letter-spacing: 0.06em;
-  }
-}
-
 /* ── Theme switch: a quiet 180ms crossfade, plus a fallback for the mark ── */
 @media (prefers-reduced-motion: no-preference) {
   ::view-transition-old(root),

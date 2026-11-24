@@ -119,7 +119,6 @@
   <a class="back-btn chapter-bar-index" href="{{ index_path }}">&larr; {{ index_label }}</a>
   <h1 class="chapter-bar-title" title="{{ page.title }}">
     <span class="chapter-bar-title-main">{% if page.extra.chapter %}{{ unit }} {{ page.extra.chapter }}{% else %}{{ page.title }}{% endif %}</span>
-    {% if chapter_number > 0 and total_chapters > 0 %}<span class="chapter-bar-count" data-count-label="{{ chapter_number }}" data-count-total="{{ total_chapters }}">{{ chapter_number }} / {{ total_chapters }}</span>{% endif %}
   </h1>
   <nav class="chapter-bar-nav" aria-label="Chapter navigation">
     {% if prev_page %}
