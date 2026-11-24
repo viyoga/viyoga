@@ -671,3 +671,12 @@ nav.top .logo,
 .cs-faces button[data-font-choice="space"] b {
   font-family: "Nunito V0", sans-serif !important;
 }
+
+
+/* Match the chapter-name and section dividers to the startpage panel rule. */
+.section-line,
+body.chapter-page .chapter-name::after {
+  background: var(--divider-rule) !important;
+  background-image: var(--divider-rule) !important;
+  opacity: 0.85;
+}

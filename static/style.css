@@ -192,6 +192,16 @@ html.lenis, html.lenis body { height: auto; }
     transparent 100%);
 }
 
+/* Hairline divider borrowed from the mobile startpage panel rule. */
+:root {
+  --divider-rule: linear-gradient(90deg,
+    transparent 0%,
+    color-mix(in srgb, var(--accent) 55%, transparent) 25%,
+    color-mix(in srgb, var(--accent-bright) 85%, transparent) 50%,
+    color-mix(in srgb, var(--accent) 55%, transparent) 75%,
+    transparent 100%);
+}
+
 /* Iosevka runs small, and Maple and Space Mono match its companions here —
    so the root scales up under any of the three fonts (Iosevka a touch more). */
 html[data-font="maple"] {
@@ -1111,9 +1121,9 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
 }
 .section-line {
   flex: 1;
-  height: 2px;
-  background: linear-gradient(90deg, var(--accent) 0%, color-mix(in srgb, var(--accent) 40%, transparent) 25%, var(--border) 60%, transparent 100%);
-  box-shadow: 0 1px 0 rgba(0, 0, 0, 0.4);
+  height: 1px;
+  background: var(--divider-rule);
+  opacity: 0.85;
 }
 .section-badge {
   font-size: var(--text-xs);
@@ -1513,8 +1523,8 @@ body.reading .chapter-body {
 }
 .chapter-name {
   margin: 0 0 1.5em;
-  padding: 0 0 0.85em;
-  border-bottom: 1px solid color-mix(in srgb, var(--fg) 16%, transparent);
+  padding: 0;
+  border-bottom: 0;
   color: var(--fg);
   font-family: var(--font-mono);
   font-size: clamp(1.25rem, 3.4vw, 1.75rem);
@@ -1527,6 +1537,14 @@ body.reading .chapter-body {
   content: "λ ";
   color: var(--accent);
   font-weight: 800;
+}
+.chapter-name::after {
+  content: "";
+  display: block;
+  height: 1px;
+  margin: 0.9em -36px 0;
+  background: var(--divider-rule);
+  opacity: 0.85;
 }
 .chapter-body p { margin-bottom: 1.4em; }
 /* Scene breaks in the scraped novels arrive as runs of dashes or asterisks.
