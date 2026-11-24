@@ -4394,3 +4394,102 @@ body.chapter-page .chapter-bar {
 @media (prefers-reduced-motion: reduce) {
   body.chapter-page .chapter-head { transition: none; }
 }
+
+/* ── Startpage rule polish ──
+   Section plates, stat cards and the persistent chapter bar now borrow the
+   same hairline physics as the chapter-name divider: glass at rest, one lit
+   filament along the lower edge. No floating dots, no chunky shadows. */
+.section-heading,
+.section-badge {
+  position: relative;
+  overflow: hidden;
+  background: var(--glass-bg);
+  text-shadow: none;
+  border-color: color-mix(in srgb, var(--fg) 12%, transparent);
+  box-shadow: inset 0 1px 0 var(--glass-hi), 0 12px 30px -28px rgba(0, 0, 0, 0.95);
+}
+.section-heading { padding: 7px 15px 8px; }
+.section-badge { padding: 5px 11px 6px; letter-spacing: 0.1em; }
+.section-heading::after,
+.section-badge::after {
+  content: "";
+  position: absolute;
+  left: 9px;
+  right: 9px;
+  bottom: 0;
+  height: 1px;
+  background: var(--divider-rule);
+  opacity: 0.9;
+  pointer-events: none;
+}
+
+.stat-card {
+  padding: 18px 16px 16px;
+  background: var(--glass-bg);
+  border-color: color-mix(in srgb, var(--fg) 11%, transparent);
+  box-shadow: inset 0 1px 0 var(--glass-hi), 0 16px 38px -34px rgba(0, 0, 0, 0.95);
+}
+.stat-card::after {
+  height: 1px;
+  background: var(--divider-rule);
+  opacity: 0.55;
+  clip-path: inset(0 34% 0 34%);
+  transition: clip-path 0.3s cubic-bezier(0.16, 1, 0.3, 1), opacity 0.2s ease;
+}
+.stat-card:hover::after {
+  clip-path: inset(0 0 0 0);
+  opacity: 1;
+}
+.stat-top-bar {
+  position: relative;
+  gap: 0;
+  margin: 0 0 9px;
+  padding-bottom: 9px;
+  letter-spacing: 0.16em;
+  color: var(--fg-muted);
+}
+.stat-top-bar::after {
+  content: "";
+  position: absolute;
+  left: 23%;
+  right: 23%;
+  bottom: 0;
+  height: 1px;
+  background: var(--divider-rule);
+  opacity: 0.62;
+  pointer-events: none;
+}
+.stat-card .value { letter-spacing: -0.015em; }
+.stat-card .label { margin-top: 5px; letter-spacing: 0.1em; }
+
+body.chapter-page .chapter-head {
+  background:
+    linear-gradient(180deg, rgba(255, 255, 255, 0.055), transparent 54%),
+    linear-gradient(180deg,
+      color-mix(in srgb, var(--bg-panel) 76%, transparent),
+      color-mix(in srgb, var(--bg-panel) 58%, transparent));
+  backdrop-filter: blur(18px) saturate(var(--sat, 155%));
+  -webkit-backdrop-filter: blur(18px) saturate(var(--sat, 155%));
+  border-bottom: 0;
+  box-shadow: inset 0 1px 0 var(--glass-hi), 0 16px 36px -30px rgba(0, 0, 0, 0.95);
+}
+body.chapter-page .chapter-head::after {
+  content: "";
+  position: absolute;
+  left: 0;
+  right: 0;
+  bottom: 0;
+  height: 1px;
+  background: var(--divider-rule);
+  opacity: 0.9;
+  pointer-events: none;
+}
+@media (max-width: 768px) {
+  body.chapter-page .chapter-bar {
+    background: transparent;
+    border-bottom: 0;
+    box-shadow: none;
+    backdrop-filter: none;
+    -webkit-backdrop-filter: none;
+  }
+}
