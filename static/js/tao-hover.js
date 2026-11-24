@@ -3,7 +3,7 @@
  * TAO (道) ASCIILOGO — INTERACTIVE FLUID HARMONIC HOVER & WAVE PHYSICS
  * ══════════════════════════════════════════════════════════════════════════════
  * Colors:
- *   - Strictly honors each theme's active palette (Amber, Mallow, Gruvbox, Safelight, Tungsten)
+ *   - Strictly honors each theme's active palette (Amber, Zeel, Gruvbox, Safelight, Tungsten)
  *   - At rest: theme --accent
  *   - In motion/hover: dynamic theme --accent-2 and luminous theme --cat-light
  *   - Zero generic white override
@@ -31,11 +31,11 @@
       glow: '#FFB07A',
       border: 'rgba(10, 8, 6, 0.9)'
     },
-    'mallow': {
-      accent: '#C89BFF',
-      accent2: '#FF84C0',
-      glow: '#E2B8FF',
-      border: 'rgba(10, 7, 18, 0.9)'
+    'zeel': {
+      accent: '#B38BD1',
+      accent2: '#D174D8',
+      glow: '#E2C7FF',
+      border: 'rgba(8, 5, 19, 0.9)'
     },
     'safelight': {
       accent: '#FF4D6A',

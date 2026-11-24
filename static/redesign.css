@@ -106,83 +106,59 @@ html[data-theme="caelus"] {
   --c-cat-light: var(--c-brown-light);
 }
 
-/* ── Theme: Catppuccin Mocha (mallow slot) ────────────────────────── */
-html[data-theme="mallow"],
-html[data-theme="catppuccin-mocha"] {
-  --c-rosewater: #f5e0dc;
-  --c-flamingo: #f2cdcd;
-  --c-pink: #f5c2e7;
-  --c-mauve: #cba6f7;
-  --c-red: #f38ba8;
-  --c-maroon: #eba0ac;
-  --c-peach: #fab387;
-  --c-yellow: #f9e2af;
-  --c-green: #a6e3a1;
-  --c-teal: #94e2d5;
-  --c-sky: #89dceb;
-  --c-sapphire: #74c7ec;
-  --c-blue: #89b4fa;
-  --c-lavender: #b4befe;
-  --c-text: #cdd6f4;
-  --c-subtext1: #bac2de;
-  --c-subtext0: #a6adc8;
-  --c-overlay2: #9399b2;
-  --c-overlay1: #7f849c;
-  --c-overlay0: #6c7086;
-  --c-surface2: #585b70;
-  --c-surface1: #45475a;
-  --c-surface0: #313244;
-  --c-base: #1e1e2e;
-  --c-mantle: #181825;
-  --c-crust: #11111b;
+/* ── Theme: Zeel ──────────────────────────────────────────────────── */
+html[data-theme="zeel"] {
+  --c-bg: #080513;
+  --c-surface: #0F0A22;
+  --c-surface-variant: #1B1240;
+  --c-surface-2: #261A55;
+  --c-on-surface: #EFE9FF;
+  --c-on-surface-variant: #AA9ACD;
+  --c-outline: #7C6C9E;
+  --c-outline-variant: #2C2056;
 
-  --c-bg: var(--c-base);
-  --c-surface: var(--c-mantle);
-  --c-surface-variant: var(--c-surface0);
-  --c-surface-2: var(--c-surface1);
-  --c-on-surface: var(--c-text);
-  --c-on-surface-variant: var(--c-subtext0);
-  --c-outline: var(--c-overlay1);
-  --c-outline-variant: var(--c-surface2);
-
-  --c-primary: var(--c-peach);
-  --c-on-primary: var(--c-base);
-  --c-primary-container: var(--c-surface1);
-  --c-on-primary-container: var(--c-peach);
-  --c-secondary: var(--c-pink);
-  --c-on-secondary: var(--c-base);
-  --c-secondary-container: var(--c-surface0);
-  --c-on-secondary-container: var(--c-pink);
-  --c-tertiary: var(--c-mauve);
-  --c-on-tertiary: var(--c-base);
-  --c-tertiary-container: var(--c-surface0);
-  --c-on-tertiary-container: var(--c-mauve);
-  --c-error: var(--c-red);
-  --c-on-error: var(--c-base);
-  --c-error-container: var(--c-surface1);
-  --c-on-error-container: var(--c-red);
-  --c-success: var(--c-green);
-  --c-warning: var(--c-yellow);
-  --c-info: var(--c-sapphire);
-  --c-info-container: var(--c-surface1);
-  --c-link: var(--c-blue);
-  --c-link-hover: var(--c-teal);
-  --c-hover: var(--c-surface0);
-  --c-on-hover: var(--c-rosewater);
-  --c-shadow: var(--c-crust);
-  --c-scrim: var(--c-crust);
-  --c-inverse-surface: var(--c-text);
-  --c-inverse-on-surface: var(--c-base);
-  --c-inverse-primary: var(--c-maroon);
-  --c-surface-tint: var(--c-peach);
-  --c-cat-dark: var(--c-surface2);
-  --c-cat-mid: var(--c-maroon);
-  --c-cat-base: var(--c-peach);
-  --c-cat-light: var(--c-yellow);
-  --c-orange: var(--c-peach);
-  --c-orange-deep: var(--c-maroon);
-  --c-cyan: var(--c-sky);
-  --c-cyan-deep: var(--c-teal);
+  --c-primary: #B38BD1;
+  --c-on-primary: #080513;
+  --c-primary-container: #3A2666;
+  --c-on-primary-container: #E9DCFF;
+  --c-secondary: #D174D8;
+  --c-on-secondary: #080513;
+  --c-secondary-container: #4B1D51;
+  --c-on-secondary-container: #FFD8F5;
+  --c-tertiary: #7C8BE0;
+  --c-on-tertiary: #080513;
+  --c-tertiary-container: #293A7A;
+  --c-on-tertiary-container: #D9E2FF;
+  --c-error: #FF6B8A;
+  --c-on-error: #080513;
+  --c-error-container: #56182E;
+  --c-on-error-container: #FFD9E2;
+  --c-success: #8CD8C0;
+  --c-warning: #E2C7FF;
+  --c-info: #7C8BE0;
+  --c-info-container: #293A7A;
+  --c-link: #8FA2FF;
+  --c-link-hover: #D9E2FF;
+  --c-hover: #1B1240;
+  --c-on-hover: #F4EEFF;
+  --c-shadow: #05030D;
+  --c-scrim: #000000;
+  --c-inverse-surface: #EFE9FF;
+  --c-inverse-on-surface: #080513;
+  --c-inverse-primary: #6A4A9E;
+  --c-surface-tint: #B38BD1;
+  --c-cat-dark: #2A1B56;
+  --c-cat-mid: #7356B8;
+  --c-cat-base: #B38BD1;
+  --c-cat-light: #E2C7FF;
+  --c-orange: #D174D8;
+  --c-orange-deep: #713C78;
+  --c-cyan: #7C8BE0;
+  --c-cyan-deep: #293A7A;
+  --c-yellow: #E2C7FF;
+  --c-red: #FF6B8A;
+  --c-red-deep: #56182E;
+  --c-green: #8CD8C0;
 }
 
 /* ── Theme: Gruvbox Material (safelight slot) ─────────────────────── */
@@ -643,9 +619,9 @@ nav.top .logo,
   --sw-paper: #0f0f0f;
   --sw-ink: #ef934d;
 }
-.cs-themes button[data-theme-choice="mallow"] {
-  --sw-paper: #1e1e2e;
-  --sw-ink: #fab387;
+.cs-themes button[data-theme-choice="zeel"] {
+  --sw-paper: #080513;
+  --sw-ink: #B38BD1;
 }
 .cs-themes button[data-theme-choice="safelight"] {
   --sw-paper: #282828;

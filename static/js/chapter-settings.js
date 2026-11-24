@@ -12,14 +12,14 @@
   var FONTS = ['maple', 'iosevka', 'space'];
   var THEMES = (window.__THEMES__ && window.__THEMES__.length)
     ? window.__THEMES__.slice()
-    : ['amber', 'mallow', 'safelight', 'tungsten', 'ocean', 'nyctophobia'];
+    : ['amber', 'zeel', 'safelight', 'tungsten', 'ocean', 'nyctophobia'];
 
   var fontBtns = panel.querySelectorAll('[data-font-choice]');
   var themeBtns = panel.querySelectorAll('[data-theme-choice]');
   var range = document.getElementById('cs-size');
   var themeName = document.getElementById('cs-theme-name');
   var THEME_LABELS = {
-    amber: 'Amber', mallow: 'Mallow', safelight: 'Safelight',
+    amber: 'Amber', zeel: 'Zeel', safelight: 'Safelight',
     tungsten: 'Tungsten', ocean: 'Ocean Blue', nyctophobia: 'Nyctophobia'
   };
 

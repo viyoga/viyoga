@@ -218,7 +218,7 @@ html[data-font="space"] {
   --font-read: "Space Mono", monospace;
 }
 
-/* Themes: amber, mallow, safelight, tungsten, nyctophobia. */
+/* Themes: amber, zeel, safelight, tungsten, nyctophobia. */
 :root {
   --cat-dark: #6B2A0E;
   --cat-mid: #B24A1A;
@@ -275,57 +275,69 @@ html[data-theme="amber"] {
   --cat-base: #FF8A4D;
   --cat-light: #FFB07A;
 }
-/* ── mallow — Dusk, not neon — indigo base, orchid and rose. The softest edge of the three. ── */
-html[data-theme="mallow"] {
-  --bg: #0A0712;
-  --bg-elev: #120C1E;
-  --fg: #E7DDF6;
-  --fg-dim: #9184A8;
-  --accent: #C89BFF;
-  --accent-2: #FF84C0;
-  --glass: rgba(28, 18, 44, .48);
-  --glass-hi: rgba(40, 26, 62, .64);
-  --line: rgba(196, 156, 255, .16);
-  --line-hi: rgba(214, 180, 255, .46);
-  --sheen: rgba(232, 214, 255, .08);
-  --grid: rgba(190, 150, 255, .07);
-  --glow: rgba(200, 155, 255, .30);
-  --halo-a: rgba(170, 110, 255, .15);
-  --halo-b: rgba(255, 110, 170, .11);
-  --blur: 16px;
-  --sat: 140%;
-  --bg-panel: #120C1E;
-  --bg-panel-alt: #1E1430;
-  --bg-glow: #120C1E;
-  --bg-core: #05030A;
-  --fg-muted: #8274A0;
+/* ── zeel — Liquid violet drawn from Zeel_Gradient_liquid: near-black plum,
+   orchid, periwinkle and petal pink. ── */
+html[data-theme="zeel"] {
+  --bg: #080513;
+  --bg-elev: #0F0A22;
+  --fg: #EFE9FF;
+  --fg-dim: #AA9ACD;
+  --accent: #B38BD1;
+  --accent-2: #D174D8;
+  --glass: rgba(20, 13, 44, .50);
+  --glass-hi: rgba(38, 26, 74, .66);
+  --line: rgba(179, 139, 209, .18);
+  --line-hi: rgba(208, 176, 240, .48);
+  --sheen: rgba(230, 210, 255, .08);
+  --grid: rgba(179, 139, 209, .07);
+  --glow: rgba(179, 139, 209, .28);
+  --halo-a: rgba(112, 80, 200, .16);
+  --halo-b: rgba(209, 116, 216, .10);
+  --blur: 18px;
+  --sat: 150%;
+  --bg-panel: #0F0A22;
+  --bg-panel-alt: #1B1240;
+  --bg-glow: #0C0820;
+  --bg-core: #05030D;
+  --fg-muted: #7C6C9E;
   --border: var(--line);
   --border-strong: var(--line-hi);
-  --accent-bright: #E2B8FF;
-  --accent-soft: #FF84C0;
-  --accent-dim: #8A5FC0;
-  --link: #FF84C0;
-  --link-hover: #C89BFF;
-  --focus-ring: #C89BFF;
-  --grid-fade: #0A0712;
-  --grid-line: rgba(190, 150, 255, .09);
-  --grid-dot: rgba(200, 155, 255, .30);
-  --bar-a: #C89BFF;
-  --bar-b: #FF84C0;
-  --bar-c: #E2B8FF;
-  --orange: #FF84C0;
-  --orange-deep: #8A4A6E;
-  --red: #FF6B6B;
-  --red-deep: #C44545;
-  --cyan: #C89BFF;
-  --cyan-deep: #8A5FC0;
-  --yellow: #E2B8FF;
-  --cat-dark: #4A3670;
-  --cat-mid: #8360C2;
-  --cat-base: #C89BFF;
-  --cat-light: #E2B8FF;
+  --accent-bright: #E2C7FF;
+  --accent-soft: #D174D8;
+  --accent-dim: #6A4A9E;
+  --link: #8FA2FF;
+  --link-hover: #E2C7FF;
+  --focus-ring: #B38BD1;
+  --grid-fade: #080513;
+  --grid-line: rgba(179, 139, 209, .09);
+  --grid-dot: rgba(209, 116, 216, .30);
+  --bar-a: #B38BD1;
+  --bar-b: #D174D8;
+  --bar-c: #8FA2FF;
+  --orange: #D174D8;
+  --orange-deep: #713C78;
+  --red: #FF6B8A;
+  --red-deep: #B03055;
+  --cyan: #8FA2FF;
+  --cyan-deep: #4659A8;
+  --yellow: #E2C7FF;
+  --cat-dark: #2A1B56;
+  --cat-mid: #7356B8;
+  --cat-base: #B38BD1;
+  --cat-light: #E2C7FF;
 }
 
+/* Liquid light: pink blooms at the top left, periwinkle at the top right,
+   and a plum undertow runs through the middle of the page. */
+html[data-theme="zeel"] body {
+  background:
+    radial-gradient(1100px 560px at 12% -8%, rgba(209, 116, 216, .14), transparent 66%),
+    radial-gradient(1000px 600px at 88% 4%, rgba(124, 139, 224, .13), transparent 68%),
+    radial-gradient(900px 700px at 52% 62%, rgba(92, 72, 186, .10), transparent 72%),
+    radial-gradient(ellipse 120% 90% at 50% 35%, var(--bg-core) 0%, var(--bg) 55%, var(--bg-glow) 100%);
+  background-color: var(--bg);
+  background-attachment: fixed;
+}
 
 /* ── safelight — Darkroom red. Almost no blue light in it, and the dimmest of the six. ── */
 html[data-theme="safelight"] {
@@ -2166,7 +2178,7 @@ body.reading .chapter-body {
   }
   .cs-themes button:active { transform: scale(0.92); }
   .cs-themes button[data-theme-choice="amber"]       { --sw-paper: #0B0906; --sw-ink: #FF8A4D; }
-  .cs-themes button[data-theme-choice="mallow"]      { --sw-paper: #0A0712; --sw-ink: #C89BFF; }
+  .cs-themes button[data-theme-choice="zeel"]        { --sw-paper: #080513; --sw-ink: #B38BD1; }
   .cs-themes button[data-theme-choice="safelight"]   { --sw-paper: #0B0406; --sw-ink: #FF4D6A; }
   .cs-themes button[data-theme-choice="tungsten"]    { --sw-paper: #0A0A0C; --sw-ink: #F2F5FA; }
   .cs-themes button[data-theme-choice="ocean"]       { --sw-paper: #04121F; --sw-ink: #38BDF8; }

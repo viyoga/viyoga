@@ -6,7 +6,7 @@
   // this file can never reject a newly added theme.
   var VALID = (window.__THEMES__ && window.__THEMES__.length)
     ? window.__THEMES__.slice()
-    : ['amber', 'mallow', 'safelight', 'tungsten', 'ocean', 'nyctophobia'];
+    : ['amber', 'zeel', 'safelight', 'tungsten', 'ocean', 'nyctophobia'];
   var DEF = 'safelight';
   var current = html.getAttribute('data-theme') || DEF;
   if (VALID.indexOf(current) < 0) {

@@ -1,14 +1,14 @@
 /* Redesign: keep the old controls, relabel them to the redesign themes/fonts,
    and replace the desktop button handlers so the labels always match. The old
-   ids (amber/mallow/safelight/tungsten, maple/iosevka/space) stay in the DOM
+   ids (amber/zeel/safelight/tungsten, maple/iosevka/space) stay in the DOM
    so the old CSS and chapter-settings.js keep working. */
 (function () {
   var root = document.documentElement;
   if (root.getAttribute("data-design") !== "new") return;
-  var THEMES = ["amber", "mallow", "safelight", "tungsten"];
+  var THEMES = ["amber", "zeel", "safelight", "tungsten"];
   var THEME_LABELS = {
     amber: "Caelus",
-    mallow: "Catppuccin Mocha",
+    zeel: "Zeel",
     safelight: "Gruvbox Material",
     tungsten: "Rebellion"
   };

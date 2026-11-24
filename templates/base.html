@@ -8,10 +8,11 @@
     var params = null;
     try { params = new URLSearchParams(window.location.search); } catch (e) {}
     var get = function (key) { return params ? params.get(key) : null; };
-    var themes = ['amber', 'mallow', 'safelight', 'tungsten', 'ocean', 'nyctophobia'];
+    var themes = ['amber', 'zeel', 'safelight', 'tungsten', 'ocean', 'nyctophobia'];
     window.__THEMES__ = themes;
     var theme = get('theme');
     if (!theme) { try { theme = localStorage.getItem('theme'); } catch (e) {} }
+    if (theme === 'mallow') theme = 'zeel';
     if (themes.indexOf(theme) < 0) theme = 'safelight';
     root.setAttribute('data-theme', theme);
     var fonts = ['maple', 'iosevka', 'space'];
@@ -36,8 +37,8 @@
     root.classList.add('js');
   })();</script>
   <title>{% block title %}{{ config.title }}{% endblock title %}</title>
-  <link rel="stylesheet" href="/style.css?v=20261124c">
-  <link id="redesign-css" rel="stylesheet" href="/redesign.css?v=20261124c" disabled>
+  <link rel="stylesheet" href="/style.css?v=20261124d">
+  <link id="redesign-css" rel="stylesheet" href="/redesign.css?v=20261124d" disabled>
   <script>(function(){
     var root = document.documentElement;
     var params = null;
@@ -95,18 +96,19 @@
       });
     } catch (e) {}
 
-    var themes = ['amber', 'mallow', 'safelight', 'tungsten'];
+    var themes = ['amber', 'zeel', 'safelight', 'tungsten'];
     window.__THEMES__ = themes;
     var theme = params ? params.get('theme') : null;
     var tmap = {
       caelus: 'amber',
-      'catppuccin-mocha': 'mallow',
+      'catppuccin-mocha': 'zeel',
       dracula: 'safelight',
       'gruvbox-material': 'safelight',
       gruvbox: 'safelight',
       rebellion: 'tungsten',
       amber: 'amber',
-      mallow: 'mallow',
+      mallow: 'zeel',
+      zeel: 'zeel',
       safelight: 'safelight',
       tungsten: 'tungsten',
       nyctophobia: 'safelight'
