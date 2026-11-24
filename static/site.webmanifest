@@ -2,10 +2,10 @@
   "name": "Viyoga",
   "short_name": "Viyoga",
   "icons": [
-    { "src": "/android-chrome-192x192.png", "sizes": "192x192", "type": "image/png" },
-    { "src": "/android-chrome-512x512.png", "sizes": "512x512", "type": "image/png" }
+    { "src": "/android-chrome-192x192.png?v=20261124f", "sizes": "192x192", "type": "image/png", "purpose": "any maskable" },
+    { "src": "/android-chrome-512x512.png?v=20261124f", "sizes": "512x512", "type": "image/png", "purpose": "any maskable" }
   ],
-  "theme_color": "#0B0906",
-  "background_color": "#0B0906",
+  "theme_color": "#080513",
+  "background_color": "#080513",
   "display": "standalone"
 }
