@@ -1,0 +1,81 @@
+<svg class="logo-mark logo-planet" viewBox="0 0 512 512" width="20" height="20" aria-hidden="true" focusable="false">
+  <defs>
+    <filter id="vyl-b2" filterUnits="userSpaceOnUse" x="-50" y="-50" width="612" height="612"><feGaussianBlur stdDeviation="2"/></filter>
+    <filter id="vyl-b4" filterUnits="userSpaceOnUse" x="-50" y="-50" width="612" height="612"><feGaussianBlur stdDeviation="4"/></filter>
+    <filter id="vyl-b8" filterUnits="userSpaceOnUse" x="-50" y="-50" width="612" height="612"><feGaussianBlur stdDeviation="8"/></filter>
+    <filter id="vyl-b14" filterUnits="userSpaceOnUse" x="-50" y="-50" width="612" height="612"><feGaussianBlur stdDeviation="14"/></filter>
+    <radialGradient id="vyl-base" cx="0.32" cy="0.28" r="0.85">
+      <stop offset="0" stop-color="var(--logo-light)"/>
+      <stop offset="0.4" stop-color="var(--logo-base)"/>
+      <stop offset="0.8" stop-color="var(--logo-mid)"/>
+      <stop offset="1" stop-color="var(--logo-deep)"/>
+    </radialGradient>
+    <linearGradient id="vyl-ring" x1="0" y1="0" x2="1" y2="0">
+      <stop offset="0" stop-color="var(--logo-ring-a)"/>
+      <stop offset="0.3" stop-color="var(--logo-ring-b)"/>
+      <stop offset="0.55" stop-color="var(--logo-ring-c)"/>
+      <stop offset="0.8" stop-color="var(--logo-ring-d)"/>
+      <stop offset="1" stop-color="var(--logo-ring-a)"/>
+    </linearGradient>
+    <linearGradient id="vyl-tube" x1="0" y1="0" x2="0" y2="1">
+      <stop offset="0" stop-color="#fff" stop-opacity="0.55"/>
+      <stop offset="0.4" stop-color="#fff" stop-opacity="0"/>
+      <stop offset="0.7" stop-color="var(--logo-deep)" stop-opacity="0.1"/>
+      <stop offset="1" stop-color="var(--logo-deep)" stop-opacity="0.5"/>
+    </linearGradient>
+    <linearGradient id="vyl-rim" x1="0" y1="0" x2="1" y2="1">
+      <stop offset="0" stop-color="var(--logo-rim)"/>
+      <stop offset="1" stop-color="var(--logo-storm)"/>
+    </linearGradient>
+    <linearGradient id="vyl-pit" x1="0" y1="0" x2="1" y2="1">
+      <stop offset="0" stop-color="var(--logo-storm-deep)"/>
+      <stop offset="1" stop-color="var(--logo-storm)"/>
+    </linearGradient>
+    <clipPath id="vyl-cp"><circle cx="256" cy="252" r="170"/></clipPath>
+    <path id="vyl-donut" fill-rule="evenodd" d="M-100 -100H612V612H-100Z M86 252a170 170 0 1 0 340 0a170 170 0 1 0 -340 0Z"/>
+  </defs>
+
+  <ellipse cx="256" cy="452" rx="130" ry="16" fill="var(--logo-deep)" opacity="0.4" filter="url(#vyl-b8)"/>
+  <circle cx="256" cy="252" r="170" fill="url(#vyl-base)"/>
+
+  <g clip-path="url(#vyl-cp)">
+    <g fill="none" stroke-linecap="round">
+      <g transform="translate(4 7)" stroke="var(--logo-deep)" stroke-opacity="0.45" filter="url(#vyl-b4)">
+        <path d="M60 128 Q256 100 460 140" stroke-width="30"/>
+        <path d="M60 188 Q256 168 460 200" stroke-width="22"/>
+        <path d="M60 318 Q256 334 460 312" stroke-width="40"/>
+        <path d="M60 378 Q256 392 460 372" stroke-width="22"/>
+      </g>
+      <path d="M60 128 Q256 100 460 140" stroke="var(--logo-ring-a)" stroke-width="30"/>
+      <path d="M60 188 Q256 168 460 200" stroke="var(--logo-ring-b)" stroke-width="22"/>
+      <path d="M60 318 Q256 334 460 312" stroke="var(--logo-ring-c)" stroke-width="40"/>
+      <path d="M60 378 Q256 392 460 372" stroke="var(--logo-ring-d)" stroke-width="22"/>
+      <g transform="translate(-2 -4)" stroke="#fff" stroke-opacity="0.5" filter="url(#vyl-b2)">
+        <path d="M70 122 Q256 94 450 134" stroke-width="8"/>
+        <path d="M70 184 Q256 164 450 196" stroke-width="6"/>
+        <path d="M70 308 Q256 324 450 302" stroke-width="10"/>
+        <path d="M70 372 Q256 386 450 366" stroke-width="6"/>
+      </g>
+    </g>
+
+    <g transform="rotate(-12 312 334)">
+      <ellipse cx="316" cy="342" rx="60" ry="42" fill="var(--logo-deep)" opacity="0.5" filter="url(#vyl-b4)"/>
+      <ellipse cx="312" cy="334" rx="58" ry="40" fill="url(#vyl-rim)"/>
+      <ellipse cx="312" cy="334" rx="42" ry="27" fill="url(#vyl-pit)"/>
+      <ellipse cx="312" cy="334" rx="11" ry="19" fill="var(--logo-storm-deep)"/>
+      <ellipse cx="309" cy="326" rx="3" ry="6" fill="#fff" opacity="0.6" filter="url(#vyl-b2)"/>
+      <ellipse cx="296" cy="312" rx="24" ry="7" transform="rotate(-18 296 312)" fill="#fff" opacity="0.45" filter="url(#vyl-b2)"/>
+    </g>
+
+    <use href="#vyl-donut" transform="translate(-18 -20)" fill="var(--logo-deep)" opacity="0.75" filter="url(#vyl-b14)"/>
+    <use href="#vyl-donut" transform="translate(14 16)" fill="#fff" opacity="0.5" filter="url(#vyl-b8)"/>
+    <ellipse cx="190" cy="140" rx="70" ry="38" transform="rotate(-30 190 140)" fill="#fff" opacity="0.4" filter="url(#vyl-b14)"/>
+    <ellipse cx="172" cy="124" rx="26" ry="12" transform="rotate(-34 172 124)" fill="#fff" opacity="0.5" filter="url(#vyl-b8)"/>
+    <rect x="40" y="262" width="432" height="26" fill="var(--logo-deep)" opacity="0.5" filter="url(#vyl-b8)"/>
+  </g>
+
+  <rect x="36" y="238" width="440" height="32" rx="16" fill="var(--logo-deep)" opacity="0.35" transform="translate(0 8)" filter="url(#vyl-b8)"/>
+  <rect x="36" y="236" width="440" height="32" rx="16" fill="url(#vyl-ring)"/>
+  <rect x="36" y="236" width="440" height="32" rx="16" fill="url(#vyl-tube)"/>
+  <rect x="58" y="241" width="396" height="7" rx="3.5" fill="#fff" opacity="0.6" filter="url(#vyl-b2)"/>
+</svg>

@@ -526,30 +526,10 @@ nav.top .logo { color: var(--on-surface) !important; }
 .conn-notice { color: var(--error) !important; border-color: var(--error) !important; }
 .studio-warn, .compress-result-info { color: var(--warning) !important; }
 
-.site-cat .cat-face { box-shadow: 29px 0 0 var(--surface) !important; }
-.site-cat .cat-whiskers,
-.site-cat .cat-whiskers::after { box-shadow: 0 7px 0 var(--cat-light) !important; }
-.site-cat .cat-paw::after { box-shadow: 7px 0 0 var(--cyan-deep), 14px 0 0 var(--cyan-deep) !important; }
 
 ::-webkit-scrollbar { background: var(--surface); }
 ::-webkit-scrollbar-thumb { background: var(--primary); }
 
-/* The pixel kitty is drawn with box-shadow pixels; keep those. */
-.site-cat .cat-face {
-  box-shadow: 29px 0 0 var(--bg) !important;
-}
-.site-cat .cat-whiskers {
-  box-shadow: 0 7px 0 var(--cat-light) !important;
-}
-.site-cat .cat-whiskers::after {
-  box-shadow: 0 7px 0 var(--cat-light) !important;
-}
-.site-cat .cat-paw::after {
-  box-shadow: 7px 0 0 var(--cyan-deep), 14px 0 0 var(--cyan-deep) !important;
-}
-.logo-mark {
-  filter: none !important;
-}
 
 /* Hardcoded gradients on the nav and controls become flat panels. */
 .nav-links a,
