@@ -4930,18 +4930,12 @@ body.chapter-page .chapter-head::after {
   }
 }
 
-/* ── Mobile smoothness pass ──
-   Large glass panes are expensive to re-blur every scroll frame. On phones
-   and touch screens we keep the reflective borders, sheen and shadows but
-   drop the backdrop blur, backing the translucent fill with a near-solid
-   panel colour so the surface still reads as glass. */
+/* ── Mobile glass, lighter ──
+   Keep the frosted look and the shader behind it, but blur at a lower radius
+   than desktop. The canvases freeze during scroll, so the remaining blur has
+   the frame budget to itself. */
 @media (max-width: 768px), (hover: none) and (pointer: coarse) {
   html:not([data-design="new"]) :is(
-    nav.top,
-    body.chapter-page .chapter-head,
-    body.chapter-page .chapter-bar,
-    .chapter-settings,
-    .chapter-body,
     .terminal,
     .novel-card,
     .stack-card,
@@ -4955,11 +4949,17 @@ body.chapter-page .chapter-head::after {
     .code-block,
     .dict-result
   ) {
-    -webkit-backdrop-filter: none !important;
-    backdrop-filter: none !important;
-    background-color: color-mix(in srgb, var(--bg-panel) 90%, transparent) !important;
+    -webkit-backdrop-filter: blur(5px) saturate(var(--sat, 155%));
+    backdrop-filter: blur(5px) saturate(var(--sat, 155%));
   }
-  html:not([data-design="new"]) .chapter-body {
-    background-color: color-mix(in srgb, var(--bg-panel) 96%, transparent) !important;
+  html:not([data-design="new"]) :is(
+    nav.top,
+    body.chapter-page .chapter-head,
+    body.chapter-page .chapter-bar,
+    .chapter-body,
+    .chapter-settings
+  ) {
+    -webkit-backdrop-filter: blur(8px) saturate(var(--sat, 155%));
+    backdrop-filter: blur(8px) saturate(var(--sat, 155%));
   }
 }
