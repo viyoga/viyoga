@@ -4790,8 +4790,6 @@ body.chapter-page .chapter-head::after {
   .chapter-result-count { margin-left: 0; }
 }
 
-/* ── Reading progress: a lit seam under the chapter bar ── */
-.chapter-bar { position: relative; }
 .chapter-bar-title {
   display: flex;
   align-items: baseline;
@@ -4801,23 +4799,6 @@ body.chapter-page .chapter-head::after {
   min-width: 0;
   overflow: hidden;
   text-overflow: ellipsis;
-}
-body.chapter-page .chapter-head::before {
-  content: "";
-  position: absolute;
-  left: 0;
-  bottom: 0;
-  height: 1px;
-  width: var(--chapter-progress, 0%);
-  background: linear-gradient(90deg,
-    transparent 0%,
-    var(--accent) 12%,
-    var(--accent-bright) 88%,
-    transparent 100%);
-  opacity: 0.95;
-  z-index: 2;
-  pointer-events: none;
-  transition: width 0.3s cubic-bezier(0.16, 1, 0.3, 1);
 }
 /* ── Theme switch: a quiet 180ms crossfade, plus a fallback for the mark ── */
 @media (prefers-reduced-motion: no-preference) {

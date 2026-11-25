@@ -113,7 +113,7 @@
   {% endif %}
 {% endif %}
 
-<div class="chapter-head" style="--chapter-progress: {{ progress }}%;"
+<div class="chapter-head"
      {% if novel_path %}data-reading-novel="{{ novel_path }}" data-reading-path="{{ page.path }}" data-reading-label="{% if page.extra.chapter %}{{ unit }} {{ page.extra.chapter }}{% else %}{{ page.title }}{% endif %}" data-reading-number="{{ chapter_number }}" data-reading-total="{{ total_chapters }}"{% endif %}>
 <header class="chapter-bar">
   <a class="back-btn chapter-bar-index" href="{{ index_path }}">&larr; {{ index_label }}</a>
