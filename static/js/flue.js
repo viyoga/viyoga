@@ -368,7 +368,7 @@ void main() {
     requestAnimationFrame(frame);
     const raw = now - prevT;
     prevT = now;
-    if (document.hidden) return;
+    if (document.hidden || document.documentElement.classList.contains('is-scrolling')) return;
     // Clamped interval drives both the shader clock and every spring:
     // an alt-tab costs a pause, never a lurch.
     const ms = raw > 50 ? 50 : raw < 4.167 ? 4.167 : raw;

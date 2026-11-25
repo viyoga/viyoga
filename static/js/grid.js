@@ -196,8 +196,15 @@
     }
   }
 
+  let clock = 0;
+  let lastFrame = performance.now();
   function tick() {
+    requestAnimationFrame(tick);
     const now = performance.now();
+    const elapsed = Math.min(now - lastFrame, 50);
+    lastFrame = now;
+    if (document.hidden || document.documentElement.classList.contains('is-scrolling')) return;
+    clock += elapsed;
     for (let i = 0; i < pts.length; i++) {
       const p = pts[i];
       const dx = p.ox - mx;
@@ -209,8 +216,8 @@
         p.vx += Math.cos(angle) * force;
         p.vy += Math.sin(angle) * force;
       }
-      const ax = p.ox + Math.sin(now * 0.001 + p.ox * 0.02) * 7;
-      const ay = p.oy + Math.cos(now * 0.0012 + p.oy * 0.02) * 7;
+      const ax = p.ox + Math.sin(clock * 0.001 + p.ox * 0.02) * 7;
+      const ay = p.oy + Math.cos(clock * 0.0012 + p.oy * 0.02) * 7;
       p.vx += (ax - p.x) * SPRING;
       p.vy += (ay - p.y) * SPRING;
       p.vx *= DAMP;
@@ -219,13 +226,12 @@
       p.y += p.vy;
     }
 
-    draw(now);
+    draw(clock);
     if (!live) {
       live = true;
       // First live frame drawn — fade out the static CSS underlay.
       document.documentElement.classList.add('grid-live');
     }
-    requestAnimationFrame(tick);
   }
 
   // Cursor bloom + dot push follow a fine pointer only. On touch there is no

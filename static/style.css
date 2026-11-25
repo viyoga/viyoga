@@ -4538,7 +4538,6 @@ body.chapter-page .chapter-bar {
   opacity: 0;
   pointer-events: none;
   z-index: 2;
-  mix-blend-mode: screen;
 }
 .section-header.is-sheen .section-heading::before {
   animation: plate-sheen 1.05s cubic-bezier(0.16, 1, 0.3, 1) 1;
@@ -4660,7 +4659,6 @@ body.chapter-page .chapter-bar {
     color-mix(in srgb, var(--accent-bright) 52%, transparent) 50%,
     transparent 62%);
   opacity: 0.6;
-  mix-blend-mode: screen;
   transform: translateX(-100%);
   animation: hero-scan 7s linear infinite;
 }
@@ -4929,5 +4927,39 @@ body.chapter-page .chapter-head::after {
   .section-badge {
     transition: border-color 0.18s ease, box-shadow 0.18s ease,
       background-color 0.18s ease, color 0.18s ease;
+  }
+}
+
+/* ── Mobile smoothness pass ──
+   Large glass panes are expensive to re-blur every scroll frame. On phones
+   and touch screens we keep the reflective borders, sheen and shadows but
+   drop the backdrop blur, backing the translucent fill with a near-solid
+   panel colour so the surface still reads as glass. */
+@media (max-width: 768px), (hover: none) and (pointer: coarse) {
+  html:not([data-design="new"]) :is(
+    nav.top,
+    body.chapter-page .chapter-head,
+    body.chapter-page .chapter-bar,
+    .chapter-settings,
+    .chapter-body,
+    .terminal,
+    .novel-card,
+    .stack-card,
+    .stat-card,
+    .chapter-card,
+    .chapter-grid .grid-item,
+    .section-heading,
+    .section-badge,
+    .page-header h2,
+    .playlist,
+    .code-block,
+    .dict-result
+  ) {
+    -webkit-backdrop-filter: none !important;
+    backdrop-filter: none !important;
+    background-color: color-mix(in srgb, var(--bg-panel) 90%, transparent) !important;
+  }
+  html:not([data-design="new"]) .chapter-body {
+    background-color: color-mix(in srgb, var(--bg-panel) 96%, transparent) !important;
   }
 }
