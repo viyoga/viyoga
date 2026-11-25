@@ -760,18 +760,6 @@ body.chapter-page .chapter-head::after {
 
 
 /* Library shelf, chapter tools, and reading progress in the flat design. */
-.novel-mark {
-  background: var(--surface-variant) !important;
-  background-image: none !important;
-  border-color: var(--outline-variant) !important;
-  color: var(--primary) !important;
-  box-shadow: none !important;
-}
-.novel-card:hover .novel-mark {
-  border-color: var(--primary) !important;
-  background: var(--primary-container) !important;
-  color: var(--on-primary-container) !important;
-}
 .novel-resume {
   border-top-color: var(--outline-variant) !important;
   color: var(--primary) !important;

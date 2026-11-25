@@ -4600,48 +4600,7 @@ body.chapter-page .chapter-head::after {
   }
 }
 
-/* ── Library shelf: monograms, one metadata voice, resume marks ── */
-.novel-card {
-  --card-accent: var(--accent);
-}
-.novel-card:nth-child(6n + 1) { --card-accent: var(--accent); }
-.novel-card:nth-child(6n + 2) { --card-accent: var(--accent-2); }
-.novel-card:nth-child(6n + 3) { --card-accent: var(--cyan); }
-.novel-card:nth-child(6n + 4) { --card-accent: var(--yellow); }
-.novel-card:nth-child(6n + 5) { --card-accent: var(--red); }
-.novel-card:nth-child(6n + 6) { --card-accent: var(--accent-bright); }
-.novel-card-top {
-  align-items: center;
-}
-.novel-mark {
-  width: 30px;
-  height: 30px;
-  display: grid;
-  place-items: center;
-  flex-shrink: 0;
-  border: 1px solid color-mix(in srgb, var(--card-accent) 55%, transparent);
-  background: linear-gradient(135deg,
-    color-mix(in srgb, var(--card-accent) 24%, transparent),
-    transparent 72%);
-  box-shadow: inset 0 1px 0 var(--glass-hi);
-  color: var(--card-accent);
-  font-size: 0.75rem;
-  font-weight: 800;
-  letter-spacing: 0.02em;
-  text-transform: uppercase;
-  transition: border-color 0.18s ease, background 0.18s ease, color 0.18s ease;
-}
-.novel-card:hover .novel-mark {
-  border-color: var(--card-accent);
-  background: linear-gradient(135deg,
-    color-mix(in srgb, var(--card-accent) 34%, transparent),
-    transparent 76%);
-  color: var(--accent-bright);
-}
-.novel-title {
-  flex: 1;
-  min-width: 0;
-}
+/* ── Library shelf: one metadata voice, resume marks ── */
 .novel-meta {
   display: flex;
   align-items: center;
@@ -4669,40 +4628,6 @@ body.chapter-page .chapter-head::after {
   font-weight: 700;
   letter-spacing: 0.09em;
   text-transform: uppercase;
-}
-
-/* Corner registration ticks: one quiet seam per card, not another divider. */
-.novel-card::before,
-.stack-card::before,
-.chapter-card::before,
-.chapter-grid .grid-item::before {
-  content: "";
-  position: absolute;
-  top: 8px;
-  left: 8px;
-  width: 7px;
-  height: 7px;
-  border-top: 1px solid color-mix(in srgb, var(--accent) 55%, transparent);
-  border-left: 1px solid color-mix(in srgb, var(--accent) 55%, transparent);
-  opacity: 0.35;
-  z-index: 3;
-  pointer-events: none;
-  transition: width 0.22s cubic-bezier(0.16, 1, 0.3, 1),
-    height 0.22s cubic-bezier(0.16, 1, 0.3, 1),
-    border-color 0.22s ease, opacity 0.22s ease;
-}
-.novel-card:hover::before,
-.novel-card:focus-visible::before,
-.stack-card:hover::before,
-.stack-card:focus-visible::before,
-.chapter-card:hover::before,
-.chapter-card:focus-visible::before,
-.chapter-grid .grid-item:hover::before,
-.chapter-grid .grid-item:focus-visible::before {
-  width: 12px;
-  height: 12px;
-  border-color: var(--accent-bright);
-  opacity: 0.9;
 }
 
 /* ── Chapter discovery: filter, order, count ── */

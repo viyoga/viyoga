@@ -76,7 +76,6 @@
     {% set card_pages = shelf.pages | length %}
     <a href="{{ shelf.path }}" class="novel-card" data-resume-novel="{{ shelf.path }}">
       <div class="novel-card-top">
-        <span class="novel-mark" aria-hidden="true">{{ shelf.title | truncate(length=1, end="") }}</span>
         <div class="novel-title">{{ shelf.title }}</div>
         <span class="novel-tag">Book {{ shelf.extra.book_number | default(value=loop.index) }}</span>
       </div>
