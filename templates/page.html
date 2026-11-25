@@ -165,7 +165,13 @@
 </div>
 
 <div class="chapter-body entry-content" itemprop="articleBody">
-  {% if chapter_name %}<h2 class="chapter-name">{{ chapter_name }}</h2>{% endif %}
+  {% if chapter_name %}
+  <h2 class="chapter-name">{{ chapter_name }}</h2>
+  <div class="chapter-divider" aria-hidden="true">
+    <span class="cd-sq"></span><span class="cd-sq"></span><span class="cd-sq"></span>
+    <span class="cd-line"></span>
+  </div>
+  {% endif %}
   {{ page.content | safe }}
 </div>
 

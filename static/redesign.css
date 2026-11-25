@@ -630,8 +630,7 @@ nav.top .logo,
 
 
 /* Match the chapter-name and section dividers to the startpage panel rule. */
-.section-line,
-body.chapter-page .chapter-name::after {
+.section-line {
   background: var(--divider-rule) !important;
   background-image: var(--divider-rule) !important;
   opacity: 0.85;
@@ -714,21 +713,6 @@ body.chapter-page .chapter-name::after {
   box-shadow: none !important;
 }
 
-body.chapter-page .chapter-name::after {
-  background: linear-gradient(90deg,
-    transparent 0%,
-    var(--primary) 12%,
-    var(--tertiary) 36%,
-    var(--primary) 50%,
-    var(--tertiary) 64%,
-    var(--primary) 88%,
-    transparent 100%) !important;
-  filter: drop-shadow(0 0 6px color-mix(in srgb, var(--primary) 55%, transparent)) !important;
-  border: 0 !important;
-  box-shadow: none !important;
-  backdrop-filter: none !important;
-  -webkit-backdrop-filter: none !important;
-}
 
 body.chapter-page .chapter-head {
   background: var(--surface) !important;
