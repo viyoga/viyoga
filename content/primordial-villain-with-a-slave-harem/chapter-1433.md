@@ -1,5 +1,5 @@
 +++
-title = "Chapter 1433 Declaration of War"
+title = "Chapter 1433 Declaration of War [18+]"
 weight = 1433
 [extra]
 chapter = 1433

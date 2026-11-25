@@ -1,5 +1,5 @@
 +++
-title = "Chapter 261: Double Homerun 1 [Bonus]"
+title = "Chapter 261: Double Homerun 1 [Bonus] [18+]"
 weight = 261
 [extra]
 chapter = 261

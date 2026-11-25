@@ -1,5 +1,5 @@
 +++
-title = "Chapter 388: Ayame’s Unjust Treatment"
+title = "Chapter 388: Ayame’s Unjust Treatment [18+]"
 weight = 388
 [extra]
 chapter = 388

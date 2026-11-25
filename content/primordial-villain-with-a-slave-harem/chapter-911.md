@@ -1,5 +1,5 @@
 +++
-title = "Chapter 911: Pain of Exile [Bonus]"
+title = "Chapter 911: Pain of Exile [Bonus] [18+]"
 weight = 911
 [extra]
 chapter = 911

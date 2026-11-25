@@ -1,5 +1,5 @@
 +++
-title = "Chapter 386: Blossom has a very good internal clock!"
+title = "Chapter 386: Blossom has a very good internal clock! [18+]"
 weight = 386
 [extra]
 chapter = 386

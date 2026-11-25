@@ -1,5 +1,5 @@
 +++
-title = "Chapter 1224: Why Serika?"
+title = "Chapter 1224: Why Serika? [18+]"
 weight = 1224
 [extra]
 chapter = 1224

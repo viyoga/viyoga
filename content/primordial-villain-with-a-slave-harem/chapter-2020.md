@@ -1,5 +1,5 @@
 +++
-title = "Chapter 2020: Time for Discipline"
+title = "Chapter 2020: Time for Discipline [18+]"
 weight = 2020
 [extra]
 chapter = 2020

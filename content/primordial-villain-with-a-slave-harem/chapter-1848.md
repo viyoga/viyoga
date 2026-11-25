@@ -1,5 +1,5 @@
 +++
-title = "Chapter 1848: The Primordial Villain and his Proud Samurai"
+title = "Chapter 1848: The Primordial Villain and his Proud Samurai [18+]"
 weight = 1848
 [extra]
 chapter = 1848
