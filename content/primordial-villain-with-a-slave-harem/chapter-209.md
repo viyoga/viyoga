@@ -34,7 +34,7 @@ chapter = 209
 <p>I can already tell that a overblown drama session is about happen down there.</p>
 <p>Suddenly she begins banging her right fist on the wooden floorboards and cursing like a seasoned sailor.</p>
 <p>'Yep, it's here.'</p>
-<p>"Fuck! Fuck-fuck-fuck! I just know it… This shameless bastard will keep leveling this shitty class up- no, it will be ME leveling it up for him- and will get more and more slave buffing abilities… I will… Fuck… I already know it…! ṛ₳𝐍𝙤BЕ𝒮</p>
+<p>"Fuck! Fuck-fuck-fuck! I just know it… This shameless bastard will keep leveling this shitty class up- no, it will be ME leveling it up for him- and will get more and more slave buffing abilities… I will… Fuck… I already know it…!</p>
 <p>In the end it will be me who declines freedom when it's presented to me with my own free will for the benefits of being his slave… I'm basically cursing myself to remaining his property just by winning my own battles because it gives him Slave Master XP…!!! There's just no justice when it comes to this guy! The Goddess is simping after him or something, I don't know!</p>
 <p>And I can't even vent my frustrations by hitting these floorboards properly because I would fall to the room below… Someone just… put me out of my misery…" She whines and wails with much more theatrics than warranted.</p>
 <p>Instead of calming down she begins straight up shrieking like a crazed banshee while holding her hands to her ears. "AAAAAAAAAAAAAAAAAAAAAAAAHHH!"</p>

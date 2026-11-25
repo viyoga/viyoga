@@ -31,7 +31,7 @@ chapter = 602
 <p>Again, I thought of birds.</p>
 <p>They didn’t just drift aimlessly—they made choices. They used subtle shifts in their bodies to redirect, diving into updrafts, twisting against downdrafts, always finding the next current to ride.</p>
 <p>I focused on the wind around me.</p>
-<p>There were layers to it: some streams rushed violently, others moved in slow, rolling gusts. Instead of treating it as a single force, I had to see it as a network of paths, each one leading to a different destination. ŗάNỒΒËS̩</p>
+<p>There were layers to it: some streams rushed violently, others moved in slow, rolling gusts. Instead of treating it as a single force, I had to see it as a network of paths, each one leading to a different destination.</p>
 <p>I adjusted my posture again by angling myself downward.</p>
 <p>Immediately, I felt a shift. I was dropping faster—not because I was falling, but because I had caught a downdraft. I didn’t allow myself to panic. Instead, I shifted my posture once again by rolling my shoulders back. I felt an updraft and—</p>
 <p>*Whoosh*</p>

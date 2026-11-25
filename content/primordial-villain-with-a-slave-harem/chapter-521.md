@@ -29,7 +29,7 @@ chapter = 521
 <p>He chuckled, and while observing the desecrated corpse of the woman, he muttered, "Barely level 30… No wonder you were relegated to driver duties. Once I become a Necromancer, you shall know what true purpose feels like, Eve."</p>
 <p>He then turned his head toward the artifact carriage, where the twins emerged while hiding behind the form of Sylvaris.</p>
 <p>They decided that it was best if they fought in the open instead of waiting for the man to destroy them inside the vehicle. To that effect, the twins grabbed their staves - because of course, they were both Wizard-classed, which were often the favored class nobles bestowed upon their children.</p>
-<p>Before stepping out, though, the two bombarded Sylvaris with dozens of orders, which forced her to protect the two of them to the best of her ability, while doing her utmost to defeat the man and any other enemies. Ṟâ𐌽ǒ𝐛Ɛş</p>
+<p>Before stepping out, though, the two bombarded Sylvaris with dozens of orders, which forced her to protect the two of them to the best of her ability, while doing her utmost to defeat the man and any other enemies.</p>
 <p>"… I always hoped to meet you, but not in these circumstances." The man greeted with a subtle bow of his head toward the elven matriarch.</p>
 <p>Sylvaris returned the gesture with a similar bow. "I’ll have to do my utmost to kill you, but I hope you win from the bottom of my heart. Don’t hold back."</p>
 <p>"You aren’t allowed to converse either until we say otherwise!" Amara shouted with a mix of fury and fright.</p>

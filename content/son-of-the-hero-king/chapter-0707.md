@@ -26,7 +26,7 @@ chapter = 707
 <p>Sol realized just how unforgiving the sport was. This went beyond simple matters of talent. It was simply a grueling amount of work with minimum results to show for it in a short time.</p>
 <p>Throwing a ball properly was no joke.</p>
 <p>Hitting one cleanly was even worse.</p>
-<p>What shocked him most was how hard and heavy the baseball felt. Throwing it with full force left his elbows and shoulders feeling like they were being ground down in real time. ＲåＮꝊꞖÊș</p>
+<p>What shocked him most was how hard and heavy the baseball felt. Throwing it with full force left his elbows and shoulders feeling like they were being ground down in real time.</p>
 <p>Stolen novel; please report.</p>
 <p>And then there were curveballs and sliders.</p>
 <p>After watching tutorial videos and trying to throw them himself, Sol felt like his wrists were being ground down too from the act alone.</p>

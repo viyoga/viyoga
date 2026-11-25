@@ -26,7 +26,7 @@ chapter = 1075
 <p>Her reputation was a bit akin to Black Fang’s, just a lot more favorable to the average citizen. Lilith was an adventurer who mostly hunted monsters, while Black Fang was an infamous criminal who mostly killed humans. As such, Black Fang’s reputation was far more notorious than Lilith’s.</p>
 <p>The whispers and stares followed them all the way until Scar suddenly froze. Her head snapped to the side, gaze honing in on a narrow alley.</p>
 <p>"What do you sense?" Jallen asked, instantly alert, her hand hovering near her spear.</p>
-<p>Scar didn’t move for several long seconds. Her sharp eyes combed the shadows, tracking something unseen. Finally, she muttered, "... It’s nothing. Just a dogkin rogue. Passing through." ŕ𝒶ŊÖＢĚs</p>
+<p>Scar didn’t move for several long seconds. Her sharp eyes combed the shadows, tracking something unseen. Finally, she muttered, "... It’s nothing. Just a dogkin rogue. Passing through."</p>
 <p>"Just a dogkin rogue?" Bronnya’s hand twitched toward her axe.</p>
 <p>Scar nodded. "She’s good. I barely felt her presence due to the giant crowd all around us, but she noticed us and averted her path. She has outstanding senses, far better than most assassins I’ve met."</p>
 <p>"Should we prepare for a fight?" Bronnya asked, itching for action.</p>

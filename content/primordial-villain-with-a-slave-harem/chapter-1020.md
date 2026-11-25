@@ -32,7 +32,7 @@ chapter = 1020
 <p>The official voice of the hall’s herald interrupted their thoughts.</p>
 <p>"Duke Alastair Greenvale of the Eastern Territories, his wife Lady Isolde, and their daughters, Ladies Amara and Vivienne Greenvale."</p>
 <p>The side doors opened wide, and Alastair strode in with confident ease, head held high as if the entire hall existed purely to welcome him.</p>
-<p>He was flanked by his coldly elegant wife, a tall woman with aristocratic bearing, and the twin daughters—Amara and Vivienne—both clad in identical dresses tailored to flatter. The girls looked ahead blankly, never once glancing at Quinlan’s table. 𝑅åΝȮ฿Êŝ</p>
+<p>He was flanked by his coldly elegant wife, a tall woman with aristocratic bearing, and the twin daughters—Amara and Vivienne—both clad in identical dresses tailored to flatter. The girls looked ahead blankly, never once glancing at Quinlan’s table.</p>
 <p>They had no choice in the matter. The moment he had enslaved them, his [Primordial Subjugator] class took effect. His orders could not be resisted. ’Do not look. Do not even glance.’ And so they didn’t.</p>
 <p>Lucille, seated beside Ayame, sat still and quiet as the Greenvale family passed. Her eyes never blinked behind the mask. Her nails pressed hard into the armrest of her chair.</p>
 <p>That woman.</p>

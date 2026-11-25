@@ -25,7 +25,7 @@ chapter = 240
 <p>"Lord Quinlan, should we also…?"</p>
 <p>"That's for you to decide. Aurora is facing the same dilemma as well, you can speak with her if you wish. If you decide to be my slaves, we can write a non-sale clause into your contracts if that's what you're on the fence about. Consider it and come to me if you've decided, or wish to ask something."</p>
 <p>Two heads nod, their minds occupied with inner thoughts.</p>
-<p>Afterward, I detailed my expectations towards the stronghold, how it would be built in bumfuck nowhere, only approachable by my gate spell. How it will be protected by the veil of a legendary artifact and a monster that's rarer than a dragon. How the two girls will have to care for the said creature in our absence, and so on. ɽἈꞐȯᛒĘʂ</p>
+<p>Afterward, I detailed my expectations towards the stronghold, how it would be built in bumfuck nowhere, only approachable by my gate spell. How it will be protected by the veil of a legendary artifact and a monster that's rarer than a dragon. How the two girls will have to care for the said creature in our absence, and so on.</p>
 <p>Upon learning everything, both Ronan and Iselda had gained an immense desire to design a base of operations better than I could dream of, according to their words, while the twins decided to learn botanics in their free time to better care for Geim when the time came.</p>
 <p>It's good to see that we have such dedicated servants.</p>
 <p>"So, with that out of the way, how about you twins also tell us about yourselves, your father, the gang that you were sold to, and whatever else you deem good for us to be aware of." Ayame instructed, wishing to progress the meeting.</p>

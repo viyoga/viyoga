@@ -26,7 +26,7 @@ chapter = 122
 <p>Then, with a graceful leap, Ayame dives into the fray, her acrobatic movements more like a dancer's than a warrior's. Her sword flashes in the dim light as she spins and twirls through the orc ranks. The blade cuts through the air with precision while parrying incoming attacks effortlessly.</p>
 <p>Her movements are fluid, almost hypnotic, drawing the attention of the orcs as she weaves through their numbers, slashing through them with her extremely agile and flexible body.</p>
 <p>As the orcs turn to face her, they unwittingly expose their flanks, giving us our cue.</p>
-<p>"Let us get started as well." I whisper to Blossom, activating my [Lesser Evasion] skill to heighten my reflexes. The forest around us is dense, providing plenty of cover for our approach. ȒΑℕȯＢΕṧ</p>
+<p>"Let us get started as well." I whisper to Blossom, activating my [Lesser Evasion] skill to heighten my reflexes. The forest around us is dense, providing plenty of cover for our approach.</p>
 <p>"Yes, Master!" Blossom whispers back, her eyes gleaming with determination.</p>
 <p>We move.</p>
 <p>Blossom is a shadow, slipping behind distracted orcs with swift, silent steps. Her dagger glints briefly before plunging into the back of an unsuspecting orc, her attack quick and lethal. Before her target can even react, she vanishes, using the chaos of the battlefield to her advantage, then moves onto her next victim.</p>

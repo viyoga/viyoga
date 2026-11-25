@@ -32,7 +32,7 @@ chapter = 1022
 <p>Even the herald’s voice, while boisterous, lacked warmth. His cadence was perfunctory, like a bureaucrat listing out names in court. Thornhollow’s delegation marched in with the typical solemn pride. It seemed they were used to a lack of flourishing presentation in the king’s court.</p>
 <p>But then...</p>
 <p>A brighter fanfare of trumpets sounded. Louder. Sharper. Heroic.</p>
-<p>"Announcing, House Ravenshade! Duke Tharion Ravenshade, Duchess Maerina, Lady Selendra, and Lord Ardent!" The herald’s tone swelled with amazement. "The House that stood against the tides! The victors of the Battle of Twilight Glen! The family that repelled the Alliance of Elvardia! Heroes of our time!" ṘАＮ𝔬₿ËS̩</p>
+<p>"Announcing, House Ravenshade! Duke Tharion Ravenshade, Duchess Maerina, Lady Selendra, and Lord Ardent!" The herald’s tone swelled with amazement. "The House that stood against the tides! The victors of the Battle of Twilight Glen! The family that repelled the Alliance of Elvardia! Heroes of our time!"</p>
 <p>Applause erupted with newfound energy.</p>
 <p>Ravenshade entered in full stride.</p>
 <p>Duke Tharion walked with the swagger of a man who knew his name would be recorded in history books. Duchess Maerina’s back was so straight it could’ve served as a measuring rod. And Selendra, their bratty daughter, outright glowed in the attention. They basked in it.</p>

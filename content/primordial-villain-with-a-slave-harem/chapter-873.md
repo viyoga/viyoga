@@ -33,7 +33,7 @@ chapter = 873
 <p>Her rage faltered. For the first time in minutes, her heart stopped roaring. And then she looked at her father.</p>
 <p>Truly looked.</p>
 <p>The years had ravaged him.</p>
-<p>The Rykar Vael she remembered—the unyielding anvil of the Fire Nation, the father whose back had never once bowed—was now a shadow of that man. Four mechanical limbs, each groaning with metallic weight. Burn scars running up his neck. Shoulders hunched ever so slightly beneath the weight of sacrifice. ṘάƝö₿Ě𝐬</p>
+<p>The Rykar Vael she remembered—the unyielding anvil of the Fire Nation, the father whose back had never once bowed—was now a shadow of that man. Four mechanical limbs, each groaning with metallic weight. Burn scars running up his neck. Shoulders hunched ever so slightly beneath the weight of sacrifice.</p>
 <p>Her breath hitched.</p>
 <p>She didn’t know whether it was pity or grief… or guilt.</p>
 <p>He met her gaze only once.</p>

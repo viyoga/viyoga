@@ -26,7 +26,7 @@ chapter = 713
 <p>Lyra, the unshakable Juggernaut, stepped forward first. She was the wall. The spearhead. She'd ditched her old shield to be replaced by an enormous tower shield that she slammed into the ground with a taunting thud, daring the enemy to come at her.</p>
 <p>Lucille and Ayame flanked her sides, ready to carve through any who slipped past Lyra's guard. Aurora, Kitsara, and Seraphiel took position behind them.</p>
 <p>And Blossom? She was already gone. A shadow among the chaos, a dagger poised at the throat of the unsuspecting.</p>
-<p>As Seraphiel checked their formation, her gaze drifted back to Sylvaris, who was hunched over, panting as she wiped sweat from her brow. The Moonblessed Warden had drained herself of mana by keeping up the bombardment for so long, drinking mana potions to keep the onslaught going. But even with that… she was reaching her limit. ṘÀŊỖᛒË𝙎</p>
+<p>As Seraphiel checked their formation, her gaze drifted back to Sylvaris, who was hunched over, panting as she wiped sweat from her brow. The Moonblessed Warden had drained herself of mana by keeping up the bombardment for so long, drinking mana potions to keep the onslaught going. But even with that… she was reaching her limit.</p>
 <p>Seraphiel clicked her tongue. "Mom, you can't hog all the glory! Sit down on the grass to collect yourself!"</p>
 <p>Sylvaris gave her a weak scoff of resistance before collapsing onto one knee, watching as the younger generation took to the field.</p>
 <p>Kaelira and her own squad adjusted into formation.. Meanwhile, Iris, now that she wasn't needed to be the frontliner due to Lyra's arrival, took the opportunity to approach combat as she felt best, which was striding toward her enemies with confident steps.</p>

@@ -26,7 +26,7 @@ chapter = 360
 <p>"Young lady. We will protect you with our lives."</p>
 <p>"Young lady. Your father loves you very much."</p>
 <p>"Young lady. Your mother is in a better place now. The Goddess will take care of her."</p>
-<p>Every military personnel she passed by saluted at her with respect and said a few words of encouragement. By now Gilbert had amassed a truly respectable force for a lowly, impoverished baron. So much so that he had not enough tasks for them, thus he began sending them to conduct illicit activities in the territories of the barons he didn't like. ŔÀNóΒÊ𝓢</p>
+<p>Every military personnel she passed by saluted at her with respect and said a few words of encouragement. By now Gilbert had amassed a truly respectable force for a lowly, impoverished baron. So much so that he had not enough tasks for them, thus he began sending them to conduct illicit activities in the territories of the barons he didn't like.</p>
 <p>As night fell the nearly four-year-old Iris managed to sneak into the kitchen unnoticed, grabbed a knife, and headed for her father's room.</p>
 <p>Her heart could no longer shed tears. She had steeled her resolve; this man didn't deserve to live. He was responsible for all the pain they'd endured, and it was time to finally pay up his dues.</p>
 <p>As she crept closer and closer to the master bedroom's entrance, she could see two guards standing at attention. With so many personnel at his disposal, it was only natural to protect himself day and night. Stay updated via</p>

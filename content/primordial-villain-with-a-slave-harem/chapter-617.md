@@ -23,7 +23,7 @@ chapter = 617
 <p>There’s a widespread belief that claims ’undead hate life,’ which is true in a sense. In abandoned, unkept cemeteries and old battlefields where many soldiers lay dead, rogue undead can be born. Their sole purpose is to erase life, it’s in their nature to do so."</p>
 <p>Vex didn’t need to complete her statement for me to understand. "Since the undead don’t depend on their master’s mana to live, if the necromancer were to die, they would become rogue undead, despising life itself."</p>
 <p>After receiving a bow of her head, I turned toward Raika. "Can you kill the necromancer?"</p>
-<p>No matter how badly I wanted to be the main character who dealt the final blow, I didn’t harbor misconceptions about my power level. I was a brutal AoE fighter to face, but my single target damage was lacking, especially when compared to this woman whose sole schtick was punching her enemies undead until they died. ȑÅNổ฿Ε𝐬</p>
+<p>No matter how badly I wanted to be the main character who dealt the final blow, I didn’t harbor misconceptions about my power level. I was a brutal AoE fighter to face, but my single target damage was lacking, especially when compared to this woman whose sole schtick was punching her enemies undead until they died.</p>
 <p>"I can kill any mage."</p>
 <p>Raika did not display a single shred of a doubt regarding her capabilities. "Alright, let’s work together, the three of us. I have a simple but effective plan."</p>
 <p>"Future hubby, you did not just refer to me and my little sis as the ’handy tools to make use of this time around,’ would you?"</p>

@@ -57,7 +57,7 @@ chapter = 730
 <p>Vex’s eyes gleamed with interest.</p>
 <p>Silver, for once, looked concerned instead of offended.</p>
 <p>Even Rajah’s perpetual frown had deepened.</p>
-<p>The beastkin were not familiar with the Covenant and their dark magic, for that syndicate had lain low up until recently and quietly gathered their strength for many millennia, only causing minor issues to the Ravenshade Duke, whose territory they occupied. ℝàＮ𝐨𐌱ЕȘ</p>
+<p>The beastkin were not familiar with the Covenant and their dark magic, for that syndicate had lain low up until recently and quietly gathered their strength for many millennia, only causing minor issues to the Ravenshade Duke, whose territory they occupied.</p>
 <p>"Despite the resistance, we triumphed.</p>
 <p>We lost five thousand Consortium members, but for every one we lost, they lost hundreds.</p>
 <p>Creating undead on that scale isn’t easy.</p>

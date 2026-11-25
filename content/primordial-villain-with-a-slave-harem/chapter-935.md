@@ -33,7 +33,7 @@ chapter = 935
 <p>That wide, innocent grin returned, gleaming with mischief and wonder. She turned toward her fairy-tale tree, which still pulsed with ancient magic, and gave a little giggle.</p>
 <p>Then, in the softest, cutest voice imaginable, she shouted:</p>
 <p>"Ai!"</p>
-<p>She clapped her hands together. The moment she did, a beam of raw soul-light exploded forth from her palms. It wasn’t loud. It didn’t scream or crackle. But it was powerful, so damned powerful. ṘãN𝘰ᛒËs</p>
+<p>She clapped her hands together. The moment she did, a beam of raw soul-light exploded forth from her palms. It wasn’t loud. It didn’t scream or crackle. But it was powerful, so damned powerful.</p>
 <p>The beam connected with the tree.</p>
 <p>And the tree—her tree—responded.</p>
 <p>The bark shivered. The leaves exploded in radiant bloom, thousands unfurling at once, flowers blossoming in an instant from its highest boughs to its lowest roots.</p>

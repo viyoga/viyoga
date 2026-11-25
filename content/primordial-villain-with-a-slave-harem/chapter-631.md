@@ -25,7 +25,7 @@ chapter = 631
 <p>A woman. Or rather, what was left of her.</p>
 <p>Her torso lay on a bloodied bedsheet, completely detached from any limbs. No arms, no legs. And yet… she was breathing—her torso rose and fell in shallow, uneven breaths. Her skin was sickly and thin, stretched tightly over sharp bones.</p>
 <p>Over her, Ignis stood watch, guarding our fallen enemy.</p>
-<p>Next to the necromancer, Raika lay on a separate cot. Her eyelids parted upon sensing our approach. She turned her head with great difficulty, and before she could speak, another presence entered the scene. ṙ𝖆ℕОＢĚꞩ</p>
+<p>Next to the necromancer, Raika lay on a separate cot. Her eyelids parted upon sensing our approach. She turned her head with great difficulty, and before she could speak, another presence entered the scene.</p>
 <p>Vex. The middle disciple moved swiftly to her fallen junior's side. Not with worry… but amused smugness.</p>
 <p>"How are you holding up?" Vex asked after crouching down beside her.</p>
 <p>"Can't move," Raika grunted frustratedly. She was not a woman of many words, never has been, but her current attitude was more annoyed than usual.</p>

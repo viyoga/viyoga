@@ -32,7 +32,7 @@ chapter = 21
 <p>[Wisdom: 10]</p>
 <p>[Unused Skill Points: 0]</p>
 <p>[Unused Attribute Points: 0]</p>
-<p>Oh, great, I finally received a fighter class. I put Warrior as my Primary Class and say goodbye to Commoner, hopefully forever. Or maybe it's hidden OP? Perhaps a bit of experimentation is needed… Ꞧ₳Ŋ𝐨BЁS̈</p>
+<p>Oh, great, I finally received a fighter class. I put Warrior as my Primary Class and say goodbye to Commoner, hopefully forever. Or maybe it's hidden OP? Perhaps a bit of experimentation is needed…</p>
 <p>Anyways, the Warrior class gives me the minor effect of extra Strength, which means I lose my Agility point from having Thief as Primary Class. It has a basic skill called 'Power Surge' which increases my Strength by another 10% for 5 minutes for 12 mana. Nothing amazing, but it's a start.</p>
 <p>As I stated on the day of my transportation, I prefer to grind over getting gifted overwhelming personal might right out of the box.</p>
 <p>Slowly but surely I'm going to increase my personal combat power.</p>

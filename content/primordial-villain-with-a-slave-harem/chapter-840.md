@@ -41,7 +41,7 @@ chapter = 840
 <p>He blurred past, barreling toward the far gates.</p>
 <p>"Close them! Close the gates now!" someone bellowed.</p>
 <p>But they were too late.</p>
-<p>Quinlan dropped into a slide, cradling Feng close, and called upon fire, using the devastating attack the old man had taught him before his betrayal. Flames erupted in a ring around the enemies to break the formation ahead. Guards stumbled back, blinded by light and heat. 𝐑₳𐌽О𝖇Ɛs̩</p>
+<p>Quinlan dropped into a slide, cradling Feng close, and called upon fire, using the devastating attack the old man had taught him before his betrayal. Flames erupted in a ring around the enemies to break the formation ahead. Guards stumbled back, blinded by light and heat.</p>
 <p>Wind. He burst upward from the slide with his legs pushing off the air like a hawk catching a thermal.</p>
 <p>Earth. His body absorbed another blow mid-air—a water blade exploding against his shoulder this time around.</p>
 <p>Water. He conjured a slick sheen of defensive flow to twist aside another chain.</p>

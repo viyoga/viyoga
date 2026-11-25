@@ -27,7 +27,7 @@ chapter = 912
 <p>Another round of synchronized sighs escaped the pair, their maternal hearts fluttering with love and helpless affection. Despite their words, neither of the pair could’ve been one bit happier about the situation, evidenced by their giant, motherly smiles and tender eyes.</p>
 <p>"Well... what do we do now?" Mearie asked breathlessly, biting her lip, trying her best not to orgasm for the umpteenth time.</p>
 <p>"We... we let him drink as much as he wants, of course..." Luminara murmured, stroking his hair gently once more. "We should gather our information using ’that...’"</p>
-<p>"Right! Then Quinnie can continue his meal, and we don’t have to die from curiosity due to ’someone’ refusing to tell us just what happened!!" Miri slapped her forehead as she realized she’d forgotten the obvious solution to their problem. ṛàΝŎᛒÈ𝒮</p>
+<p>"Right! Then Quinnie can continue his meal, and we don’t have to die from curiosity due to ’someone’ refusing to tell us just what happened!!" Miri slapped her forehead as she realized she’d forgotten the obvious solution to their problem.</p>
 <p>Without another word, both mothers leaned forward in perfect synchrony, lovingly planting their smooth, warm foreheads against Quinlan’s.</p>
 <p>Their skin met his, and with a soft hum of familial magic, the subtle link between them formed instantly.</p>
 <p>Quinlan, eyes still closed, smiled softly around his mouthful and gently guided the connection, welcoming them into the stream of his memories.</p>

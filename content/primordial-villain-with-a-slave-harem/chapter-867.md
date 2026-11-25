@@ -35,7 +35,7 @@ chapter = 867
 <p>A moment of silence passed.</p>
 <p>Then…</p>
 <p>*Boom!*</p>
-<p>The arena exploded outward in a cloud of dust. Through it surged dozens of battle-scarred monks, robed in earthen hues, their faces calm, their qi harmonized like a single living organism. They poured in behind the Invader and his corrupted disciples, ready for battle. 𝖗ＡℕꝊ𐌱ЁS</p>
+<p>The arena exploded outward in a cloud of dust. Through it surged dozens of battle-scarred monks, robed in earthen hues, their faces calm, their qi harmonized like a single living organism. They poured in behind the Invader and his corrupted disciples, ready for battle.</p>
 <p>"You’ll not stand alone, my lord!” one of them cried.</p>
 <p>Then, with a gust of flame and wind, Serika appeared beside Quinlan, landing in a crouch.</p>
 <p>She gripped his shoulder and pulled him up. “Are you alright?”</p>

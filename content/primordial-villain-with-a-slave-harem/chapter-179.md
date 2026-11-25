@@ -25,7 +25,7 @@ chapter = 179
 <p>Though, Blossom isn't sure if using the Goddess' name to his advantage is something Master would be willing to do… NovelFire-your-story-source</p>
 <p>"Aid is on its way, but it will take time for them to reach this remote location. Time we do not have if we don't face this monster calamity together!"</p>
 <p>The werewolves seem to have heard enough as they begin to close in, but Stormlord does not waver in the face of their menacing fangs and hostile growls.</p>
-<p>"Any soldier who fights until the reinforcements arrive will be pardoned of their crimes! You will be allowed back into the army, your honor restored, and your place in the Vraven Kingdom secured!" ṙá𐌽Ő𝐁ЁS̩</p>
+<p>"Any soldier who fights until the reinforcements arrive will be pardoned of their crimes! You will be allowed back into the army, your honor restored, and your place in the Vraven Kingdom secured!"</p>
 <p>"But," Stormlord's voice turns cold as he delivers the ultimatum, "anyone who flees this battle, anyone who turns their back on their comrades in this great hour of need will not just face execution. Your families- your wives, parents, siblings, children- will be dragged to the public square and executed on a platform for all to see."</p>
 <p>A collective gasp runs through the ranks. Blossom isn't sure such a threat fits into the motivational speech… I can't help but comment. I must admit, watching this scene has gripped my attention very well. Blossom only wishes she had some chunks of meat left to enjoy alongside the show.</p>
 <p>Blossom really wants to see what happens next… I murmur while dangling my legs on the tree branch back and forth enthusiastically.</p>

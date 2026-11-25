@@ -33,7 +33,7 @@ chapter = 196
 <p>"Understood, then please follow me."</p>
 <p>I do as told and soon find myself faced with hundreds of different collars. He wasn't lying about their vast array of selectable items. The walls are lined with racks displaying hundreds of them, ranging from practical to downright eccentric.</p>
 <p>What's immediately clear is that while these collars are designed with aesthetics in mind, they're also built to last- each reinforced to ensure they can't be easily removed or damaged.</p>
-<p>Their sturdiness is very important for combat slaves especially, as if the collar is destroyed, the contract magic will no longer be in effect, but will paralyze the 'freed' slave as a last ditch effort to let the master reclaim their property. ř𝐀NＯβĘ𝓢</p>
+<p>Their sturdiness is very important for combat slaves especially, as if the collar is destroyed, the contract magic will no longer be in effect, but will paralyze the 'freed' slave as a last ditch effort to let the master reclaim their property.</p>
 <p>It's ideal for non-combat slaves, as chances are, they themselves somehow managed to pry it off. However, in the case of combat slaves, the enemy can destroy it and have an opponent that is out of the fight instantly.</p>
 <p>If I were to buy some ultra-comfy silk collar for Ayame, and a simple fire attack reaches it that isn't even strong enough to prickle her skin, she will just fall headfirst onto the ground.</p>
 <p>Thus, the collars must be as sturdy as possible.</p>

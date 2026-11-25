@@ -33,7 +33,7 @@ chapter = 936
 <p>Twice...</p>
 <p>And then poked Serika’s bicep with a curious finger.</p>
 <p>Tap tap.</p>
-<p>"...Rosie’s ninth mommy is very strong! Wow!" she squealed at last, eyes wide excitedly in nothing but admiration. "Teach Rosie how to become strong, please!" ʀ𝘈𝐍ỐβÈṦ</p>
+<p>"...Rosie’s ninth mommy is very strong! Wow!" she squealed at last, eyes wide excitedly in nothing but admiration. "Teach Rosie how to become strong, please!"</p>
 <p>Serika, having already been through this dance before, shook her head. "You’re mistaken, Rosie. I’m Quinlan’s comrade, his battle partner perhaps, but certainly not his wife."</p>
 <p>Rosie blinked up at the woman as if she’d just said something rather dumb. Then waved a hand with dramatic boredom, fingers flapping. "Yeah, yeah."</p>
 <p>Before Serika could correct her again, the little dryad had already zipped away in a flutter of green light and leafy sparkles.</p>

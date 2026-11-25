@@ -26,7 +26,7 @@ chapter = 1004
 <p>Quinlan didn’t bother glancing up. "Yes."</p>
 <p>Selendra blinked. "A black cat... asleep... on your head?"</p>
 <p>"Yes," he confirmed again, entirely unfazed. "Is there an issue? She wanted to come with us, and I didn’t have it in me to refuse."</p>
-<p>She stared a second longer before laughing aloud, releasing a delicate, amused, and intrigued sound. "Alright... yes, I definitely would’ve remembered you." ṞάŊọᛒĘꞩ</p>
+<p>She stared a second longer before laughing aloud, releasing a delicate, amused, and intrigued sound. "Alright... yes, I definitely would’ve remembered you."</p>
 <p>He offered a faint, amused smile and bowed his head slightly. "The name’s Black. A pleasure to make your acquaintance."</p>
 <p>At that, Selendra’s brow arched. "Lord Black?" she repeated. "Masks and aliases in the noble district? Didn’t you read the invitation letter? And I see a beast as well as an elf in your group, you do realize they have to be collared at all times, correct? It’s beyond rude to the king to bring slaves to his birthday party. You might even lose your heads."</p>
 <p>"We’re... special guests of sorts," Quinlan replied smoothly, ignoring most of her remarks.</p>

@@ -27,7 +27,7 @@ chapter = 989
 <p>"You know..." Quinlan murmured while reaching for the underside of her chin with a single finger and pulling it up so he could bask in her overtly sexy face that was full of ruined makeup and tears of joy, "Far be it from me to complain, but don’t you have somewhere to be? You joined us to fight Sareth Greenvale, which happened hours ago. Didn’t you abandon an important location to do so?"</p>
 <p>Her eyes widened.</p>
 <p>A beat passed.</p>
-<p>And then, slowly—reluctantly—Vex blinked as the haze of lust gave way to memory. She sat back on her heels, lips still wet, but at least her breathing was slowly steadying. ɌＡ₦ȎʙĘṩ</p>
+<p>And then, slowly—reluctantly—Vex blinked as the haze of lust gave way to memory. She sat back on her heels, lips still wet, but at least her breathing was slowly steadying.</p>
 <p>"Oh... fuck me."</p>
 <p>"Later."</p>
 <p>Still kneeling, she looked up at him with fire still dancing behind her lashes. "You know I didn’t mean it like that, but good. I’ll hold you to it. As for your words... I’ll go back soon. I just needed to be here. To see it. Jasmine’s revenge... It’s beautiful."</p>

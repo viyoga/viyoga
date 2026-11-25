@@ -25,7 +25,7 @@ chapter = 1013
 <p>Feng’s eye twitched. Her fingers curled into fists so tight the knuckles whitened.</p>
 <p>Quinlan suppressed a laugh as Ayame let out a quiet snicker, accompanied by many others. Aurora, Kitsara, Lucille, Jasmine... Even Serika and Vex joined in.</p>
 <p>They might’ve been older than the rest, but having such simplistic fun was new to them.</p>
-<p>The only ones who remained silent were Blossom and Iris. Blossom, because she rarely laughed for some reason, her brain was working on far too different wavelengths to find the same things funny as the others had. Ȑ₳ＮO͍ʙЕŝ</p>
+<p>The only ones who remained silent were Blossom and Iris. Blossom, because she rarely laughed for some reason, her brain was working on far too different wavelengths to find the same things funny as the others had.</p>
 <p>As for Iris... the woman was still in shock from experiencing the King’s show of force.</p>
 <p>But, well, she wouldn’t have laughed even if that wasn’t the case.</p>
 <p>That was when Felicity suddenly popped into view directly in front of Iris, bending at the waist with a curious look on her face. She did not appear suddenly because she moved with blinding speed or used some magic trick, but simply because Iris had been so deep in her headspace that she hadn’t noticed the princess walking over.</p>

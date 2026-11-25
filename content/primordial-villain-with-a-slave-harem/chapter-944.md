@@ -24,7 +24,7 @@ chapter = 944
 <p>Feng didnt reply. But her silence was answer enough.</p>
 <p>Ayames tone didnt change as she continued. Still composed, still calm. But there was something oddly firm in the way she spoke next. "I never felt that way. Never needed to. Im beautiful as I am. You dont need giant fat reserves bouncing off your chest and behind to feel good about yourself."</p>
 <p>Fengs jaw nearly dropped at that phrasing.</p>
-<p>"The attention I got from men when I was your age already told me that. And now... these so-called modest assets of mine have successfully enchanted the literal man touted by the universe as the God Slayer. The Primordial Villain. The Harbinger of Ruin." 𝘙ά𐌽𝙤𐌱ĘṦ</p>
+<p>"The attention I got from men when I was your age already told me that. And now... these so-called modest assets of mine have successfully enchanted the literal man touted by the universe as the God Slayer. The Primordial Villain. The Harbinger of Ruin."</p>
 <p>Feng opened her mouth to respond, then closed it again. She tried a second time, and still nothing came.</p>
 <p>Ayame smirked victoriously. "Yeah. Thats what I thought. You and I should have some chats later. I might be able to help you get over those self-image burdens youre carrying for no reason whatsoever."</p>
 <p>Feng nodded. Hard.</p>

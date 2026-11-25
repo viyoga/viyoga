@@ -30,7 +30,7 @@ chapter = 968
 <p>Without another word, both shot forward. Eve led the ground assault with heavy, punishing strides while Veyrin vanished into the treetops, his bow already drawn and glowing with spectral arrows.</p>
 <p>The hundred lionkin fell into perfect formation behind Eve. A tide of spectral, unstoppable death.</p>
 <p>"Now..." Quinlan turned toward Blossom, Kitsara, and Feng while collecting the level 42 soul he’d slain and said, "... let’s finish our job."</p>
-<p>Blossom’s ears fanned as her pupils narrowed into slits, her senses flooding her with a torrent of data. Her Void Stalker instincts filtered through the noise of war; the distant clashes of Ayame’s forces, the thunder of spectral feet as Eve’s soul legion tore through the forest. They all became minor notes. 𝘳𝒶𝐍ȯＢĚṥ</p>
+<p>Blossom’s ears fanned as her pupils narrowed into slits, her senses flooding her with a torrent of data. Her Void Stalker instincts filtered through the noise of war; the distant clashes of Ayame’s forces, the thunder of spectral feet as Eve’s soul legion tore through the forest. They all became minor notes.</p>
 <p>"... Left, ninety meters. Blossom senses something strange! Something like a mana pulse... Blossom thinks it’s a cleverly placed trap artifact!"</p>
 <p>Her tail stiffened. "Another defense item is ahead, Master! Based on the smell, it might be something akin to a pressure plate!"</p>
 <p>Kitsara’s golden eyes gleamed. "Not a problem. I’ll disable the traps, you just tell me where to look, Blossom."</p>

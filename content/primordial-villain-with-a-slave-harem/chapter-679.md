@@ -31,7 +31,7 @@ chapter = 679
 <p>"I knew this creature reminded me of something…" Yoruha muttered while observing the Geim, completely disconnected from our conversation with her maid.</p>
 <p>In the next moment, Yoruha’s form shimmered as her sexy foxkin body dissolved into a wave of midnight mist. The dark vapor coiled around for a moment before expanding, reshaping itself into a towering, ethereal figure. When the mist settled, there she stood, in the glory of her (theorized) true form.</p>
 <p>She was enormous just as I remembered, her height in this form was now rivaling the slumbering tree entity.</p>
-<p>&lt;How beautiful…&gt; Sylvaris exclaimed with wonderment, she wasn’t there when Yoruha transformed back during the summit. &lt;I’ve never seen anything like this, but I heard many elven legends about Yoruha the Nine-Tailed Sorceress. Our records don’t give justice to the sheer existence of this mythical being.&gt; ɽάℕó𝐛Ê𐌔</p>
+<p>&lt;How beautiful…&gt; Sylvaris exclaimed with wonderment, she wasn’t there when Yoruha transformed back during the summit. &lt;I’ve never seen anything like this, but I heard many elven legends about Yoruha the Nine-Tailed Sorceress. Our records don’t give justice to the sheer existence of this mythical being.&gt;</p>
 <p>&lt;She’s one of the strongest people in the continent…&gt; Kitsara replied with a tone full of marvel. It wasn’t hard to guess she idolized this woman. &lt;Lady Yoruha is so ancient our oldest history books are younger than her… She was mentioned by name in the first official royal textbook of the foxkin people, which is a hundred thousand years old.&gt;</p>
 <p>*Sniff. Sniff.*</p>
 <p>Yoruha inhaled deeply before exhaling in amusement.</p>

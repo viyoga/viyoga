@@ -33,7 +33,7 @@ chapter = 837
 <p>"The formation isn’t responding! It’s jammed! Someone destroyed the release pattern!"</p>
 <p>"W-what?! That’s impossible! No one should be able to release such a devastating attack...!"</p>
 <p>"Did that monster in a woman’s skin, Serika Vael, invade us?!"</p>
-<p>Fists pounded against the door. Water attacks crackled off the outer defenses. All of it was no good. Water wasn’t the element of destruction. Its users lacked the overwhelming power of fire cultivators. ℝãＮô𐌱Ε§</p>
+<p>Fists pounded against the door. Water attacks crackled off the outer defenses. All of it was no good. Water wasn’t the element of destruction. Its users lacked the overwhelming power of fire cultivators.</p>
 <p>Inside, Quinlan had already turned away from the door.</p>
 <p>He walked calmly back toward the crystalline dais, but the elegant display cases were no longer transparent.</p>
 <p>Heavy metallic plates had sealed over them, enchanted to resist forceful removal.</p>

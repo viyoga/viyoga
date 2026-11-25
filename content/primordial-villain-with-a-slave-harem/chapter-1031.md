@@ -33,7 +33,7 @@ chapter = 1031
 <p>"I see."</p>
 <p>The countess’ fan snapped shut with a sharp *clack!* The sound was akin to a slap across her sons’ faces. Her glare was furious, piercing. She didn’t speak a word, but the shame radiating from her eyes said enough.</p>
 <p>Her sons had walked straight into a trap. A trap that was concocted by two teenage girls.</p>
-<p>Count Vexmore’s throat bobbed as he swallowed. Slowly, his eyes drifted toward Duke Tharion Ravenshade, silently pleading for some kind of support. As his lord, he could intervene in his place and use his authority to negotiate peace between the two parties. ꞦΑ₦ỗBĚṤ</p>
+<p>Count Vexmore’s throat bobbed as he swallowed. Slowly, his eyes drifted toward Duke Tharion Ravenshade, silently pleading for some kind of support. As his lord, he could intervene in his place and use his authority to negotiate peace between the two parties.</p>
 <p>Or so it should’ve been.</p>
 <p>But the duke only sipped from his wine glass and shook his head.</p>
 <p>No help would come from him.</p>

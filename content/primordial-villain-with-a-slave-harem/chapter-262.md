@@ -33,7 +33,7 @@ chapter = 262
 <p>"From behind." She responded, confident in her answer.</p>
 <p>"Oh, I didn't know you were into the dog position. It probably won't come as a big surprise but that's our resident assassin's favorite as well."</p>
 <p>She snorted, "hmph. Don't bring up other women in this situation."</p>
-<p>Oh. I suppose Lucille isn't yet used to having to share her lover. It's something she will have to get used to, but I can also understand that me speaking about Blossom while getting ready to ravage her isn't a very romantic gesture on my part. "My bad." I admitted before continuing. "Push your butt out, I'm rearing to go." 𝘳ΆŊỒꞖËŝ</p>
+<p>Oh. I suppose Lucille isn't yet used to having to share her lover. It's something she will have to get used to, but I can also understand that me speaking about Blossom while getting ready to ravage her isn't a very romantic gesture on my part. "My bad." I admitted before continuing. "Push your butt out, I'm rearing to go."</p>
 <p>Her jealousy rapidly evaporated thankfully, replaced by an excited grin as she went to the edge of the bath, and leaned out of it with her hands resting on the cold stone outside, then Lucille wiggled her behind in front of my face enticingly, as if she were calling for a mate. Well, that is exactly what she was doing.</p>
 <p>Lucille's insides were just as divine as I had hoped for, though she also needed time to adjust to my size. Once she did, loud sploshing sounds filled the space, accompanied by her feminine shrieks. It turns out that she is much more of a moaner than Aurora, so I had to use my hand to silence her. Once I put a finger in her mouth to suck on, she quieted down thankfully.</p>
 <p>I wasn't in the mood to deal with getting found out by the bath owners.</p>

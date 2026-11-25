@@ -29,7 +29,7 @@ chapter = 708
 <p>His soldiers scrambled for their weapons, but just when he finally hit the ground from his earlier explosion-induced flight with a practiced roll, his sharp eyes caught yet another nightmare unfolding.</p>
 <p>A second mage, clad in ornate robes, lifted her staff into the air.</p>
 <p>Var'Zhul didn't recognize the spell, but he recognized its effects.</p>
-<p>Shields, massive and glowing with layered energy, encased the riders and their spectral mounts. Every single one of them received a protective barrier; even the mounts' hooves were in the range of protection. 𝑅₳₦ȯʙÈ𝘴</p>
+<p>Shields, massive and glowing with layered energy, encased the riders and their spectral mounts. Every single one of them received a protective barrier; even the mounts' hooves were in the range of protection.</p>
 <p>The thrown javelins that hit their mark squarely were useless. They bounced off as if they were twigs striking solid stone.</p>
 <p>What the fuck kind of enchanter was this?! He'd never heard of an Enchanter-classed mage casting this many strong and large shields all at once!</p>
 <p>And then, the killing began.</p>

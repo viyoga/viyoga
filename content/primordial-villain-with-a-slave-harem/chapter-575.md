@@ -26,7 +26,7 @@ chapter = 575
 <p>Ignis wasn’t having it. "Accepting responsibility is admirable, young man, but you and your team disobeyed your leader’s order during a critical situation. It’s not a small mistake you can just apologize for."</p>
 <p>I was wondering how he even knew what Vex told us to do as he was fighting the lionkin when she did it, but then I realized they must’ve conversed a bit while watching my fight. I finished last, after all.</p>
 <p>Ryker nodded. Resolution shined in his eyes as he said, "I accept whatever punishment I’m given."</p>
-<p>"Alright. I’ll be sure to include this incident in the final report of the mission." Vex accepted his words before turning toward the black-haired beauty next to her. ℞άℕ𝙤₿Ę§</p>
+<p>"Alright. I’ll be sure to include this incident in the final report of the mission." Vex accepted his words before turning toward the black-haired beauty next to her.</p>
 <p>"Raika, punish."</p>
 <p>I couldn’t help but snicker inside. What is this, caveman language? It felt like Vex released her bulldog from its restraints.</p>
 <p>My amusement died down when Raika’s form immediately erupted from where she stood with so much speed it looked like she straight-up teleported.</p>

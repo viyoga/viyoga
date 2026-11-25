@@ -26,7 +26,7 @@ chapter = 51
 <p>Would you be interested in purchasing them from me?"</p>
 <p>He looks at me thoughtfully for a few seconds before replying positively. We then send Mr smartypants lawyer into the cave to get an estimate of the price. He comes back in a few minutes while visibly struggling to hold a torrent of his stomach from coming out. Yeah, that cave is not a sight for the faint of heart.</p>
 <p>I'm actually quite surprised at how easily I'm taking in all the horrors of this new world.</p>
-<p>Perhaps my race switch into a primordial is the cause behind it? They are said to be the masters of adaptability after all, based on the system's description. ṝÄɴố𝖇Еş</p>
+<p>Perhaps my race switch into a primordial is the cause behind it? They are said to be the masters of adaptability after all, based on the system's description.</p>
 <p>"My Lord, the wares inside the cave are pretty much worthless. Looking at the monster corpses, they are also very disfigured. Goblin carcasses are worthless in general, hobgoblins are in a bad shape and the war troll is also injured all over its body, furthermore, according to the combatants' testimonies, his system is full of bile poison.</p>
 <p>I say that all of these items are worth about 30 silver coins, but if we calculate the cost of transporting them back to Aldoria you might as well not pay them a dime."</p>
 <p>… Wow. fuck you, dude. I knew I would be low balled, and it's a fact that Ayame took the best wares to my secret stash, but still. That war troll corpse is enormous… Can't you make stuff out of its tusks and bones and shit? I don't know, grind it into powder and make some alchemy products or whatever.</p>

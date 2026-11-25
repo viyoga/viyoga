@@ -28,7 +28,7 @@ chapter = 208
 <p>"Well, yeah, I don't exactly hate it either… Anyways, I've been meaning to ask, how does it feel to squirt so much at once? I honestly can't even begin to imagine it. Also, how long does it take you to get him to ejaculate if you try your hardest? I wanted to do it as quickly as possible, but he wouldn't release for like a good fifteen minutes… My feet almost got cramps…"</p>
 <p>Blossom's eyes flutter wide open as she yelps; "f-f-feet?!"</p>
 <p>Ayame sighs once again, "yeah, I know… I still can't tell what got into me last night. Anyways, here's what I did…"</p>
-<p>And, as such, our morning was spent with the two ladies going through their first real girls' talk with me being a silent observer. I didn't really find a way for me to join the talk without being completely obnoxious, so instead I was just grateful that I was allowed to listen in. Ȑ𝘢𐌽ȏ𐌱Èṥ</p>
+<p>And, as such, our morning was spent with the two ladies going through their first real girls' talk with me being a silent observer. I didn't really find a way for me to join the talk without being completely obnoxious, so instead I was just grateful that I was allowed to listen in.</p>
 <p>After all, it's rare for the conversation's subject to have the privilege of hearing what is being said in real time, so I just continued examining their shapely bodies while laying back comfortably.</p>
 <p>It was quite entertaining to hear what they thought about me during the time they spent with me.</p>
 <p>A few hours had passed in this blissful atmosphere, and after a while I decided to finally check out my gains I've neglected thus far, namely the new spells I should be able to unlock from my three evil classes reaching level 10 and above.</p>

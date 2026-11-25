@@ -25,7 +25,7 @@ chapter = 232
 <p>&lt;Quinlan, I know it's very tempting, but we should think more about this.&gt;</p>
 <p>&lt;Ayame, they said they would pay three times the normal rate.&gt;</p>
 <p>&lt;... I heard.&gt;</p>
-<p>&lt;This is a goldmine for us. It won't take more than a few minutes of our time.&gt; Naturally, we couldn't come back instantly, as that would be very suspicious, but we could complete a delivery once a week easily and just claim to have good mounts or something. ＲÃＮоВƐŜ</p>
+<p>&lt;This is a goldmine for us. It won't take more than a few minutes of our time.&gt; Naturally, we couldn't come back instantly, as that would be very suspicious, but we could complete a delivery once a week easily and just claim to have good mounts or something.</p>
 <p>"Do you have a shopping list prepared for us, and what's your weekly upper limit you could pay?" I asked, eliciting a happy smile from the middle aged married couple.</p>
 <p>Sylvie stands and walks to a cabinet nearby, and brings us a parchment. On it, I can see hundreds of materials listed, most having a number next to them, indicating the quantity they want. "The market price of these should be about ten gold coins altogether. If you procure everything on this list, we are willing to reward you with thirty-five gold coins."</p>
 <p>Fuck. That's the generational wealth well-off commoners couldn't even dream of. It's in the range that I imagine not even a baron family has freely lying around in their treasury unless they are hoarders.</p>

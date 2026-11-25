@@ -25,7 +25,7 @@ chapter = 570
 <p>The battlefield around me transformed into an arena of raw devastation. The cost, however, was steep—casting so many high-tier spells in rapid succession drained my mana reserves at an alarming rate.</p>
 <p>Still, it was worth it.</p>
 <p>Through the haze of destruction, I caught sight of multiple lion-kin collapsing amidst the mayhem. Three kill confirmations echoed in my system, followed by another for the beast whose chest was adorned with a gaping, deep gash from my saber’s strike I delivered while she was gawking at the display of my elemental might. Blood pooled beneath her twitching form before she lay still.</p>
-<p>Five were dead, ten more remained, most already showing signs of injury. Burns, frostbite, and fractures marred their bodies. Their wild eyes had lost some of the fervor granted by their leader’s roar, replaced by desperation and pain. 𝐑άΝóʙĚ§</p>
+<p>Five were dead, ten more remained, most already showing signs of injury. Burns, frostbite, and fractures marred their bodies. Their wild eyes had lost some of the fervor granted by their leader’s roar, replaced by desperation and pain.</p>
 <p>From this point, it was just a matter of cleanup.</p>
 <p>I moved methodically, blending spells with precise strikes from my blade. Some fell to the crackling bolts of lightning, others to my saber. One by one, they fell.</p>
 <p>[Level: 27. XP 44,640/91,733] -&gt; [Level: 27. XP 86,172/91,733]</p>

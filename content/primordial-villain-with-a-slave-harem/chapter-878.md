@@ -35,7 +35,7 @@ chapter = 878
 <p>He swung wildly, but now every strike was met with a redirection. A kick. A shove. A saber slash.</p>
 <p>Each motion wasn’t meant to damage him.</p>
 <p>It was meant to ruin his flow.</p>
-<p>"You’re sturdy… Is this what it means to have the body of a god? No wonder you’re so damned strong Quinlan muttered during a fierce exchange, eyes narrowing as he locked blades with one of the god’s four arms, and felt the unnatural weight behind it. The pressure wasn’t from strength alone. 𝙧𝙖ƝỌ฿ĘṠ</p>
+<p>"You’re sturdy… Is this what it means to have the body of a god? No wonder you’re so damned strong Quinlan muttered during a fierce exchange, eyes narrowing as he locked blades with one of the god’s four arms, and felt the unnatural weight behind it. The pressure wasn’t from strength alone.</p>
 <p>He thought that it must’ve been from divinity, from the structure of a mighty god.</p>
 <p>Perhaps even from the laws themselves.</p>
 <p>Venthros’s eyes snapped wide open.</p>

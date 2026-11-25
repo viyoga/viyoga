@@ -31,4 +31,4 @@ chapter = 95
 <p>The tension in the room thickens, a palpable weight pressing down on us. The studs exchange confused glances, momentarily distracted by our verbal sparring. They should really start getting used to this by now. Or are they new ones? I don't keep count nor memorize their faces.</p>
 <p>Julia lets out a frustrated growl, her facade slipping for just a moment. "I hope she's worth it, Jonathan. If you think I care about what you do with your broken toys, you're sorely mistaken."</p>
 <p>I smirk, the corners of my mouth twitching upwards. "Oh, I'm sure you don't care at all, Julia, that's why you are bitching right now."</p>
-<p>Our eyes lock in a silent battle, each trying to outdo the other in this mock contest of wills. Despite our mutual loathing, there's an odd satisfaction in this back-and-forth, a twisted dance we both know too well. ʀÂꞐÖ𝐁ЕŠ</p>
+<p>Our eyes lock in a silent battle, each trying to outdo the other in this mock contest of wills. Despite our mutual loathing, there's an odd satisfaction in this back-and-forth, a twisted dance we both know too well.</p>

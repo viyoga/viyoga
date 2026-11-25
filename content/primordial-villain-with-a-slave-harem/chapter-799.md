@@ -33,7 +33,7 @@ chapter = 799
 <p>The young girl's words echoed in Quinlan's mind as the pain intensified. His vision blurred. Everything burned.</p>
 <p>It reminded him, horribly, vividly, of the time he swallowed a Primordial Fire Elixir.</p>
 <p>But this was worse. That time, letting go and surrendering to the flame had saved him. This time, that would kill him.</p>
-<p>As such, all he could do was grit his teeth and hold on. Resist with all he had while opening his damned tunnels or whatever the squeaker was squeaking about. ȓ𝔞ＮＯꞖËṡ</p>
+<p>As such, all he could do was grit his teeth and hold on. Resist with all he had while opening his damned tunnels or whatever the squeaker was squeaking about.</p>
 <p>The fire-qi was akin to a beast that was caged in his flesh, thrashing violently to break free. It slammed against his insides like a wild animal, too large for his vessel to contain, too violent for his organs to resist. His skin seared, glowing beneath the surface, and every heartbeat felt like a forge hammer against an anvil.</p>
 <p>His awareness tunneled.</p>
 <p>Quinlan no longer felt the grass beneath him. The wind vanished. Even Feng Jiai's frantic screaming faded.</p>

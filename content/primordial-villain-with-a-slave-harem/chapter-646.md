@@ -29,7 +29,7 @@ chapter = 646
 <p>&lt;Blossom doesn't know what an illusionist is.&gt;</p>
 <p>&lt;I'll explain it later.&gt;</p>
 <p>&lt;Okay!&gt;</p>
-<p>Lucille's coy voice sounded next. &lt;Miss second-in-command, are you telling me you're not getting butterflies in your stomach at the thought of becoming an Elysiar?&gt; Ȓα𐌽ՕBЕs</p>
+<p>Lucille's coy voice sounded next. &lt;Miss second-in-command, are you telling me you're not getting butterflies in your stomach at the thought of becoming an Elysiar?&gt;</p>
 <p>Ayame wasn't having it. &lt;That's neither here nor there! It's about how this man of ours decided to bring the topic of marriage up! Can't you see his manipulative ways? And he plans to take me as wife? Hmph!&gt;</p>
 <p>&lt;Wait, are you the samurai who beat this bastard up with a training sword?! I heard about the story, it was amazing! I didn't have such a good laugh in the last decade for sure.&gt;</p>
 <p>I could see a cunning glint shine in Kitsara's eyes as she focused on honeying Ayame up. She was living up to her foxkin nature.</p>

@@ -26,4 +26,4 @@ chapter = 9
 <p>With her strength, laborious jobs will also be finished in a breeze."</p>
 <p>He gestures to a dejected young woman that has eyes devoid of any hope with his hand and I can see a wooden plate hanging from her neck, sitting on top of her bare, perky breasts with a few numbers carved on it. I can only chuckle wryly at the ingenious but utterly cruel and dehumanizing marketing strategy. She costs a lot; 5 gold and 35 silver.</p>
 <p>If the exchange rate is the same between gold and silver as it is with silver and bronze then she costs 535 silver or 53500 bronze. Way out of my budget. Besides, I want my slave to be more feisty, with a strong will to live. This one would likely jump into harm's way the first chance she gets.</p>
-<p>"I'm interested in someone who can assist with protection and perhaps help me level up safely," I explain. "I've heard that some slaves are magically bound to ensure their loyalty. Is that true?" ř𝓪NỖ₿ÈṠ</p>
+<p>"I'm interested in someone who can assist with protection and perhaps help me level up safely," I explain. "I've heard that some slaves are magically bound to ensure their loyalty. Is that true?"</p>

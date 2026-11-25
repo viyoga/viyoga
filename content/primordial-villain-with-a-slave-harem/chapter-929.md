@@ -36,7 +36,7 @@ chapter = 929
 <p>"You should return home to your family, Quinnie."</p>
 <p>Mearie’s voice was velvet steel.</p>
 <p>Luminara’s was lighter, but no less firm. "You’ve been away for far too long."</p>
-<p>Quinlan raised a brow, his lips quirking upward into the kind of amused expression only a son could make when observing the silly actions of his mother(s). 𝐑𝐀ＮՕ𝖇Êš</p>
+<p>Quinlan raised a brow, his lips quirking upward into the kind of amused expression only a son could make when observing the silly actions of his mother(s).</p>
 <p>"Back before I departed on the trial, it was you two who insisted I couldn’t leave until the divine density started hurting me. Did we forget that already?"</p>
 <p>The mothers didn’t blink.</p>
 <p>Luminara placed a graceful hand over her chest, tilting her chin in mock thought.</p>

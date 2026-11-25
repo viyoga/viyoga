@@ -29,7 +29,7 @@ chapter = 479
 <p>Iris no longer resembled a pure swordsman, her brutal, ruthless nature was allowed to blossom due to the extra stats she was gifted.</p>
 <p>She was not going to let the woman breathe, so she rained down a flurry of strikes with her blade moving so quickly it seemed to blur in the air. Each swing carried not only strength but an unrelenting intent to dominate.</p>
 <p>Azura deflected and parried with a precision that only decades of experience could hone.</p>
-<p>A lesser swordsman would have been overwhelmed instantly due to the extreme numerical advantage that Iris enjoyed due to Quinlan's buffing of her, but Azura held her ground admirably well, and she even countered when openings presented themselves. 𝙍АꞐŎꞖĘᶊ</p>
+<p>A lesser swordsman would have been overwhelmed instantly due to the extreme numerical advantage that Iris enjoyed due to Quinlan's buffing of her, but Azura held her ground admirably well, and she even countered when openings presented themselves.</p>
 <p>Her blade lashed out like a serpent, aiming for weak spots in Iris's defenses.</p>
 <p>But Iris wasn't a novice either.</p>
 <p>She had trained relentlessly, pushing herself to the brink time and time again ever since she escaped her father's captivity at 13 years of age. Her newfound strength only amplified the skills she already possessed, letting them bloom like never before.</p>

@@ -33,7 +33,7 @@ chapter = 818
 <p>It was like dancing with the devil that whispered in his ears:</p>
 <p>"Burn brighter. Burn harder. But most importantly... Burn how you want."</p>
 <p>2</p>
-<p>More bandits spilled from the camp, steel in hand and panic behind their eyes. Shouts filled the air as the alarm spread: this wasn’t a rogue cultivator skirmishing for food or coin. This was slaughter. One-sided. ŕÄＮȏBËS</p>
+<p>More bandits spilled from the camp, steel in hand and panic behind their eyes. Shouts filled the air as the alarm spread: this wasn’t a rogue cultivator skirmishing for food or coin. This was slaughter. One-sided.</p>
 <p>A single figure pushed his way through the crowd, the firelight casting shadows off his jagged saber and barrel-sized chest. He was tall, grotesquely wide, with a single eye glaring out from a scar-strewn face. The other socket was a dark, sunken void. His presence silenced the others like a dagger to the throat.</p>
 <p>"Form ranks, you damn cowards!" he barked. "We outnumber him! He’s just one man!"</p>
 <p>That was the moment Quinlan smiled.</p>

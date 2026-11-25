@@ -28,7 +28,7 @@ chapter = 89
 <p>There was something tantalizing, almost intoxicating about the way she embraced the fight. Her fierce expression, filled with exhilaration and bloodlust, struck me as incredibly gorgeous. It was a side of Ayame that was raw, powerful, and undeniably sexy. I had only seen this side of her once before, when she was massacring Grunt and his slave women. Watching her, I felt a shiver run down my spine.</p>
 <p>She was in her element, a true warrior, and the Direwolf had no idea what kind of trouble found herself in its chamber.</p>
 <p>Naturally, her crazed expression never left her features for a second during the fight either.</p>
-<p>Ayame picks up the huge claw monster drop and puts it into our bag, and I'm very happy to see that the bag is nearly bursting apart from all the goodies that are stuffed inside. After decimating five floors in a single go I hope we will make some big bucks. řäꞐŐ𝐛ЁṦ</p>
+<p>Ayame picks up the huge claw monster drop and puts it into our bag, and I'm very happy to see that the bag is nearly bursting apart from all the goodies that are stuffed inside. After decimating five floors in a single go I hope we will make some big bucks.</p>
 <p>We move down towards the 6th floor and the safe chamber greets us, where the exit portal is located.</p>
 <p>As we emerge from the portal, the bustling sounds of the labyrinth's entrance greet us. Adventurers and merchants mingle, exchanging stories of their exploits and the treasures they've gathered. The air is filled with a mix of excitement and fatigue, the atmosphere buzzing with energy.</p>
 <p>"We should head to the slave market before it gets too late," I say, scanning the crowd. "We need to reach the old bones at the market before he slithers off into the night."</p>

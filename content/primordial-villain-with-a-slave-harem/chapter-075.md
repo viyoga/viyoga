@@ -25,7 +25,7 @@ chapter = 75
 <p>She looks even more fragile and withdrawn than before, her eyes vacant and spirit visibly eroding. It's clear that her mental health is deteriorating rapidly under these conditions, making her an unsellable asset to many.</p>
 <p>This merchant might be the perfect target for our plan. I decide to approach the topic carefully. As I strike up a casual conversation with him, I tactfully steer the dialogue towards the possibility of obtaining a slave contract service. I inquire if he provides such services and how much they would cost.</p>
 <p>He nods, confirming that he does indeed offer slave contract services, quoting his rates with a practiced nonchalance.</p>
-<p>Naturally, I have no intention of paying. Bringing Blossom here would be a grave mistake, and even if I could get this guy to come to our inn room, we would still be legally required to pay Blossom's market price besides his service fee. 𝖗𝖆ɴọ₿Ěṥ</p>
+<p>Naturally, I have no intention of paying. Bringing Blossom here would be a grave mistake, and even if I could get this guy to come to our inn room, we would still be legally required to pay Blossom's market price besides his service fee.</p>
 <p>Our plan is to follow him to his home and force him to do our bidding. Sadly the day is early, and I don't suspect he will be gone until late evening, which leaves us with a lot of free time.</p>
 <p>We leave the slave district, Ayame finally releasing my hand.</p>
 <p>"What should we do? Check out the adventurer's guild, visit the labyrinth, or go for our hidden stash? We will have to sort it out too after Blossom's business is done… For the time being we can get the pouch you hid there with the greenskin coins in it." I list our options.</p>

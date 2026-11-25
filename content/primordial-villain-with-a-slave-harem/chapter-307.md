@@ -28,7 +28,7 @@ chapter = 307
 <p>"You certainly have an attitude. Devil was it?" Selene asked dryly. She wasn't overly happy about my previous statement.</p>
 <p>"Yep. Pleased to meet you."</p>
 <p>"I wish I could say the same, but alas…" Her grimace said all I needed to hear. "Anyways, we wanted to talk to you about your team joining our group."</p>
-<p>"Don't you already have 100 Phenoms?" I questioned with pretend puzzlement. Of course they don't. After all, we just killed a couple of them. However, it was time I stopped giving them an attitude. They still had the numbers to mow us down. ʀà𝐍ŎꞖĘŠ</p>
+<p>"Don't you already have 100 Phenoms?" I questioned with pretend puzzlement. Of course they don't. After all, we just killed a couple of them. However, it was time I stopped giving them an attitude. They still had the numbers to mow us down.</p>
 <p>"Not anymore… What do you say?"</p>
 <p>"Your team will for sure lose against the other alliance. They seem much stronger and significantly more organized. I believe you to also be aware of this fact, so you have a backup plan. Let's hear it before we go any further." I refuse to be their chess piece while they weasel their way to victory.</p>
 <p>Selene sighed frustratedly, glanced around, then leaned in closer. She explained how they will betray their allies. The cold woman wanted me to help them kill members of the other alliance to ensure that enough Phenoms die among the enemy's ranks since she saw how good we are.</p>

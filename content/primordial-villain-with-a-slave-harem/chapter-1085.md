@@ -24,7 +24,7 @@ chapter = 1085
 <p>In an instant, they broke through.</p>
 <p>The shabby flooring of a tavern exploded in a storm of dust and flying planks. Quinlan soared into the smoke-filled air.</p>
 <p>Kitsara leapt from his head immediately, twisting gracefully in the air, and before her small body could land, her form shimmered into illusion.</p>
-<p>Where the fox had been, now stood King Alexios Valorian himself, regal and proud. A single tail detached mid-shift, unraveling into the second illusion. Queen Morgana Ravenshade, as cold as ever. ℞₳Νó₿Ёṣ</p>
+<p>Where the fox had been, now stood King Alexios Valorian himself, regal and proud. A single tail detached mid-shift, unraveling into the second illusion. Queen Morgana Ravenshade, as cold as ever.</p>
 <p>A perfect ruse. If guards lay a second trap inside the room where Jasmine’s mom stayed, hesitation was guaranteed if it was their king and queen who walked in instead of nasty criminal intruders.</p>
 <p>Of course, any competent soldier would sense that something was wrong soon enough, as to why the king and queen were entering a shabby inn that was surrounded by chaos all around.</p>
 <p>But even a few seconds of hesitation would be more than enough to give them the advantage of the first move.</p>

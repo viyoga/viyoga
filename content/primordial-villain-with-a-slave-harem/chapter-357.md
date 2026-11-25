@@ -29,7 +29,7 @@ chapter = 357
 <p>"My lady… I brought you two a meal." Sarah, the headmaid said after knocking on the door.</p>
 <p>"Just leave it there…" Vernice replied in a fragile, dejected murmur.</p>
 <p>"… Understood."</p>
-<p>The pair had moved to the guest room. Iris didn't want to stay in her room because she shared the same space with Damian, so being there was a constant reminder of her beloved brother who she lost. ℝ𝙖ɴ𝙤₿ËS̩</p>
+<p>The pair had moved to the guest room. Iris didn't want to stay in her room because she shared the same space with Damian, so being there was a constant reminder of her beloved brother who she lost.</p>
 <p>Vernice in the meantime refused to even lay her eyes on her husband let alone speak to him, so the master bedroom was also out of the question.</p>
 <p>In the meantime, according to Sarah's reports, Gilbert had become an alcoholic. He'd personally traveled to the duke for a meeting, and when he revealed what happened, he was brushed off with a 'we'll look into this' answer. It was clear that nothing major would come of their investigations, thus he was consumed in not only his grief but extreme guilt.</p>
 <p>It was his mistake that caused Damian to go to the Goddess' side the early and horrendous way he did, and they all knew and blamed him for it.</p>

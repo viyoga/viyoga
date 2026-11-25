@@ -35,7 +35,7 @@ chapter = 1034
 <p>"Before you think otherwise, let me declare that it was the doggy who proposed this devious plan."</p>
 <p>"N-nooo!!" Blossom cried.</p>
 <p>She looked moments away from tearing up. Nevermind. She was already teary-eyed.</p>
-<p>&lt;This doggy is truly a much bigger schemer than she let on...&gt; Kitsara giggled, using [Master’s Link] this time. &lt;She knows I transformed my tail to that of an illusion right before it was grabbed by the dude... I had enough time to prepare because Blossom was attacked first.&gt; ꞦâNƟ฿Èṣ</p>
+<p>&lt;This doggy is truly a much bigger schemer than she let on...&gt; Kitsara giggled, using [Master’s Link] this time. &lt;She knows I transformed my tail to that of an illusion right before it was grabbed by the dude... I had enough time to prepare because Blossom was attacked first.&gt;</p>
 <p>&lt;Wait... So what he touched wasn’t your tail?&gt; Aurora asked with a sharp intake of breath.</p>
 <p>&lt;It was mine in the sense that I made it. But no, not my biological tail. Hehe! Who do you take me for? I might be many things, but a loose woman who lets random men touch her tail isn’t one of them.&gt;</p>
 <p>&lt;... You two are something else,&gt; Lucille chuckled.</p>

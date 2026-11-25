@@ -34,5 +34,5 @@ chapter = 68
 <p>"Hmm? Now's not the time for this… I got 466. You?"</p>
 <p>"784."</p>
 <p>"Damn cheater..."</p>
-<p>As I thought, she received a lot more than I did. If we were to apply my 3x multiplier to her, she received almost 1400 XP. What a big, fat XP pack this Grunt guy was... Amazing. ⱤἁＮ𝘰𝐁Ęȿ</p>
+<p>As I thought, she received a lot more than I did. If we were to apply my 3x multiplier to her, she received almost 1400 XP. What a big, fat XP pack this Grunt guy was... Amazing.</p>
 <p>"Ahh! My heroes! Thank you so much! I will sing your praises for years to come!" The piggy speaks up finally, now that the threat has been neutralized.</p>

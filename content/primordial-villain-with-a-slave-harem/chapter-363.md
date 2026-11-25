@@ -28,5 +28,5 @@ chapter = 363
 <p>Iris once again curled up into the fetal position as she desperately hugged her legs to her chest and cried herself into sleep.</p>
 <p>…</p>
 <p>"Meow."</p>
-<p>Both Iris and I awoke sometime later to a warm sensation. It quickly became evident that it was caused by the tongue of a cat. "Whiskers…" Iris whispered. Р𝒶NО𝔟ЁŜ</p>
+<p>Both Iris and I awoke sometime later to a warm sensation. It quickly became evident that it was caused by the tongue of a cat. "Whiskers…" Iris whispered.</p>
 <p>This cat was the animal Sarah, the head maid, kept around as her personal pet. In her free time, she would train Whiskers who I must admit had well above normal levels of intelligence for a simple domesticated cat.</p>

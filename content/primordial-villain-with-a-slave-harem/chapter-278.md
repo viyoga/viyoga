@@ -33,7 +33,7 @@ chapter = 278
 <p>Scourge's growl deepened and she glanced back toward her leader, the man who likely orchestrated this entire slaughter with cold precision.</p>
 <p>"How about a deal?" he suggested all of a sudden. "If you beat her, you're free to go."</p>
 <p>Katie didn't react for a while, instead, she eyed the masked man. Her was gaze dull and defeated.</p>
-<p>"I know that I'm already done…" Katie finally spoke up, shaking her head. "Win or lose, it makes no difference. Just end my suffering or spare my life. I don't wish to be toyed with in my final moments. I beg you, please grant me this small mercy." ŖαℕổＢΕS̩</p>
+<p>"I know that I'm already done…" Katie finally spoke up, shaking her head. "Win or lose, it makes no difference. Just end my suffering or spare my life. I don't wish to be toyed with in my final moments. I beg you, please grant me this small mercy."</p>
 <p>Time seemed to stretch on forever as he weighed her words. Her request was hanging in the air as the last, faint hope of a broken woman.</p>
 <p>Finally, he nodded. "Alright. Scourge, she's yours. I want to hunt more badly prepared parties like this one, so hurry it up." He said simply.</p>
 <p>Hearing the decree Katie closed her eyes and she noticed that her heart was oddly calm despite being handed the death sentence a second ago. She opened her arms wide, welcoming what was to come. The sharp scent of blood filled her nostrils, but she didn't mind. This was the end she had always feared would come in her line of work.</p>

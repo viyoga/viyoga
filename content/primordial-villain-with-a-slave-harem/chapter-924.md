@@ -34,7 +34,7 @@ chapter = 924
 <p>"I hate you so incredibly much..." she muttered through gritted teeth, while eyeing her crush of a lifetime nearly dropping to his floor amid his mad laughter at her expense. How incredibly rude could this guy get? Why did she have such horrible taste in men?</p>
 <p>Unlike her self-proclaimed—and infuriatingly smug—future husband, the two primordial mothers were far kinder souls.</p>
 <p>"Oh, don’t let rude boys get to you, sweetheart... You know how they are when they’re young..." Mearie cooed, giving Feng a reassuring smile.</p>
-<p>"It sounds like a perfect class to me. Unconventional. The element of surprise is often worth more than raw power alone." Luminara added, her tone warm and sincere. "Try inspecting it. There should be a description to further explain its functions." Ṝ𝙖ΝоΒË𝘴</p>
+<p>"It sounds like a perfect class to me. Unconventional. The element of surprise is often worth more than raw power alone." Luminara added, her tone warm and sincere. "Try inspecting it. There should be a description to further explain its functions."</p>
 <p>Still burning with embarrassment, Feng huffed before she did as told, focusing inwardly on the class window. The details shimmered into view before her.</p>
 <p>✨ GREMLORD OF CHAOS ✨</p>
 <p>[Class Type: Support / Disruption / RNG-Aligned]</p>

@@ -32,7 +32,7 @@ chapter = 572
 <p>"Nah, I’d win."</p>
 <p>"Hehe!" She giggled merrily at my reply, thinking I’m jesting. That was until Seraphiel voiced her thoughts, "It’s about the same size."</p>
 <p>"No, Devil’s is slightly bigger." Lucille spoke up in my defense.</p>
-<p>"If you say so." Sera accepted Lucille’s opinion without fuss, knowing full well how knowledgeable my caramel-haired lover was when it came to my member. No one had studied it as much and from as close as she did. ṝἈŊꝊᛒĚ𝘚</p>
+<p>"If you say so." Sera accepted Lucille’s opinion without fuss, knowing full well how knowledgeable my caramel-haired lover was when it came to my member. No one had studied it as much and from as close as she did.</p>
 <p>"Even if it isn’t bigger, it’s certainly much more handsome! This beast’s member just looks plain disgusting. I have to throw up." Aurora added with obvious distaste in her tone.</p>
 <p>"Damn son! I thought I was packing a monster, but it seems I was beaten once again!" Ignis shouted while hitting me on the back before erupting into his boisterous laughter.</p>
 <p>"Oh dear." Vex, on the other hand, was no longer smiling. Instead, she was examining the lion’s member wryly.</p>

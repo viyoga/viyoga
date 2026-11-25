@@ -31,7 +31,7 @@ chapter = 176
 <p>I can't help but breathe a small sigh of relief. This means that I was correct in my belief that the fighting isn't over at all, but sadly this woman had some great intuition and managed to sniff our ploy out.</p>
 <p>I decide to speak up; "I see how it is. May I ask how loyal are you to the kingdom, my would-be murderer? What would it take to make you look the other way?"</p>
 <p>If possible I would like to avoid wasting time on this confrontation, time is of the essence and we are severely lacking in that particular resource right now, not to mention that time is not the only issue here, she is an extremely strong opponent, after all.</p>
-<p>She scoffs dismissively. "I may've been exiled to this dump but I'm not a criminal scum like the rest of the degenerates present here, or you two for that matter. Anyways, it's been a while since I had the pleasure of executing one of you weirdos who fetishizes those overpraised Fuji-something blades… So, honestly, I'm not interested in a peaceful solution at all." 𝐑𝖆ΝŎ𝖇Εş</p>
+<p>She scoffs dismissively. "I may've been exiled to this dump but I'm not a criminal scum like the rest of the degenerates present here, or you two for that matter. Anyways, it's been a while since I had the pleasure of executing one of you weirdos who fetishizes those overpraised Fuji-something blades… So, honestly, I'm not interested in a peaceful solution at all."</p>
 <p>With Ayame's mask, her oriental features are not on display, so this Iris woman just called her this world's equivalent of the term 'weeb', thinking she was a local who bought their eastern blade.</p>
 <p>Oh boy.</p>
 <p>"I will take care of this bitch, you go finish our mission."</p>

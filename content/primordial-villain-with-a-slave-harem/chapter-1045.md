@@ -27,7 +27,7 @@ chapter = 1045
 <p>Each click of her heels echoed in the high-vaulted hall, growing louder, more domineering, until they seemed to drown out every other sound.</p>
 <p>That was when her presence shifted. It was no longer the cold, professional duchess offering polite congratulations.</p>
 <p>"What?!" Alastair gasped.</p>
-<p>Kaede’s aura exploded outward like an icy tide, each step pressing down on the hall with an invisible weight. Nobles stiffened in their seats. Soldiers shifted uneasily. Even the candle flames seemed to hesitate. ȓà₦Ò𝔟Еṣ</p>
+<p>Kaede’s aura exploded outward like an icy tide, each step pressing down on the hall with an invisible weight. Nobles stiffened in their seats. Soldiers shifted uneasily. Even the candle flames seemed to hesitate.</p>
 <p>And then, steel sang.</p>
 <p>In her hand, with no clear motion of drawing or unsheathing, a katana materialized.</p>
 <p>The blade’s mirrored steel gleamed as though it had been quenched in moonlight itself. The hilt was wrapped in deep violet silk, and a single snow-white tassel swayed from the pommel. But it wasn’t the weapon’s beauty that froze the air. It was the aura.</p>

@@ -32,7 +32,7 @@ chapter = 877
 <p>They never had a chance.</p>
 <p>"You talk too damned much,” Serika spat at Venthros.</p>
 <p>Then she launched.</p>
-<p>Her body was a streak of flame cutting through water. She landed in the heart of the enemy formation with an eruption of fire that split stone and boiled blood in an instant. Each punch turned bodies to ash. Each kick split the ground. ṞÂNօᛒЕŜ</p>
+<p>Her body was a streak of flame cutting through water. She landed in the heart of the enemy formation with an eruption of fire that split stone and boiled blood in an instant. Each punch turned bodies to ash. Each kick split the ground.</p>
 <p>One, two, five, ten, fifty, hundred soldiers vanished under her fury.</p>
 <p>A whip of flame spun around her like a serpent of judgment, incinerating the next wave before they could even scream. When the smoke cleared, there was no trace of them. Only scorched, ruined earth.</p>
 <p>The Flame Sovereign stood at the center, bathed in light.</p>

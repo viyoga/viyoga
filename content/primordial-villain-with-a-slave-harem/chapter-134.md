@@ -26,7 +26,7 @@ chapter = 134
 <p>It hurts…</p>
 <p>Instead of answering her I turn to the only 'normal' person I know who lives in the household. "Marjorie, I don't know how to say this gently, but could you help restrain your husband? He is trying to corrupt my Blossom into getting a sugar addiction!"</p>
 <p>She, alongside the two other wives, glance between me and Broderick rapidly. Then, all three at the same time, in complete sync, slam both of their hands on the table and shout at my ex-friend; "Husband!!!"</p>
-<p>He shudders slightly and huddles down in his seat while grimacing my way. "Bro, it's really not manly to be like that! You never bring women into the battle of men, that's basic knowledge!" ṚÄƝ𝘰βÊṦ</p>
+<p>He shudders slightly and huddles down in his seat while grimacing my way. "Bro, it's really not manly to be like that! You never bring women into the battle of men, that's basic knowledge!"</p>
 <p>"You are one to talk, which one of us was it who put 20k calories in front of my airhead girl knowing full well that she wouldn't be aware of the vile trap? That she would consume them until she realizes that she is, in fact, no longer a dog-kin but a boar-kin!"</p>
 <p>"Bahahaha! Alright, bro. I tried enlightening you about the glory of the curves, but if you won't bite I will stop pushing. Let's call it even."</p>
 <p>I'm flabbergasted at his shamelessness. Even? Even what?</p>

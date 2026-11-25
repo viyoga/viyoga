@@ -26,7 +26,7 @@ chapter = 187
 <p>You would need a high level Beast Tamer for a monster of this caliber, but gaining the help of one for the kingdom is not a big hurdle, of course. It can't come any closer unless we step into its territory or attack it."</p>
 <p>Blossom sniffs the air cautiously, her ears twitching. "It's aware of us. Smelled us long before B-Ghost smelled it."</p>
 <p>"That's the problem," Ayame continues. "If we aggro the thing, it's likely going to roar loud enough to send a signal to any remaining soldiers. These things are meant to not only protect but also to alert. It probably has some ways to alert its owners even through its magical binding array."</p>
-<p>I rub my chin thoughtfully. "So not only do we have to beat this thing to get to the good stuff it guards, we also have to do it without letting it make a sound… Easier said than done." R̃ÂꞐỐ₿ËꞨ</p>
+<p>I rub my chin thoughtfully. "So not only do we have to beat this thing to get to the good stuff it guards, we also have to do it without letting it make a sound… Easier said than done."</p>
 <p>"It's definitely a high level one, I don't think we stand a chance here, even in a proper fight without our added limitations of secrecy. Let's return to Braedon." Ayame adds.</p>
 <p>I sigh, trying to come up with a plan. "Let me think for a few seconds…"</p>
 <p>There's simply no way we can beat such a mythical beast without it even making a sound. I guess it should be at least level 30, even if its main function is to alert the Aegis Vanguard members and not to solo defend the [Geimroot]. It makes no sense to use a monster that can easily be one-shot killed by a mage or archer from this distance.</p>

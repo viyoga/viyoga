@@ -32,7 +32,7 @@ chapter = 392
 <p>[Magic: 85 -&gt; 100]</p>
 <p>[Unused Skill Points: 0]</p>
 <p>[Unused Attribute Points: 20]</p>
-<p>These are the results of what the Vesper Phenom Trials had given me up until today. Thus far, participating had turned out to be a risky but very worthwhile decision on my end. Р𝖆ɴοᛒĘ𝐬</p>
+<p>These are the results of what the Vesper Phenom Trials had given me up until today. Thus far, participating had turned out to be a risky but very worthwhile decision on my end.</p>
 <p>I made several observations as I glanced at my status screen while resting my head on Aurora's unmoving, plump butt. She was purring in her sleep very cutely and with clear satisfaction.</p>
 <p>All the girls were unconscious. I was not a smoker but I lit a tasty, rich cigar just for the mood. I worked very hard to reach this heavenly result of being surrounded by four merrily snoozing women, so I deserved it.</p>
 <p>Where did I get it? I didn't, Lucille bought the cigars for me before inviting me over, thinking I might enjoy a smoke. She was Goddess-damned right.</p>

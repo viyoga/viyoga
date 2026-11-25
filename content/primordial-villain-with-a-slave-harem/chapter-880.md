@@ -33,7 +33,7 @@ chapter = 880
 <p>A shockwave of force erupted near his left ankle.</p>
 <p>Then a second one, perfectly timed on his right knee joint.</p>
 <p>Two blurs danced in tandem.</p>
-<p>Rykar had launched Rongtai forward like a spear propelled by explosions. The old monk’s limbs glowed with earthy qi as he rotated his body, with his palm forming the shape of an open lotus. ṛàＮȱ𝐁ĘꞨ</p>
+<p>Rykar had launched Rongtai forward like a spear propelled by explosions. The old monk’s limbs glowed with earthy qi as he rotated his body, with his palm forming the shape of an open lotus.</p>
 <p>Rongtai slammed his strike directly into a joint veiled beneath the lava-like skin.</p>
 <p>The effects were immediate.</p>
 <p>The god’s massive frame shuddered, his balance tipping.</p>

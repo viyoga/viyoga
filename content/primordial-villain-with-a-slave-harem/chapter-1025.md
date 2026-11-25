@@ -31,7 +31,7 @@ chapter = 1025
 <p>A princess marrying a count was rare, yes. But not impossible. Not with an aging king, a restless court, and a younger daughter whose political value was being quietly reconsidered now that a new ruler would soon take over. A marriage to her wouldn’t make one of them a duke. But it would make their house immensely strong. The most influential count family in the kingdom. A heartbeat away from becoming the next great power bloc.</p>
 <p>That’s what this banquet was for.</p>
 <p>That’s what their family had prepared for.</p>
-<p>And that’s why they had all come together. Three eligible noblemen, three equally polished smiles, each representing the same bloodline. As long as one of them earned her favor, the House of Vexmore would rise. 𝐑ÀΝŐꞖÈṩ</p>
+<p>And that’s why they had all come together. Three eligible noblemen, three equally polished smiles, each representing the same bloodline. As long as one of them earned her favor, the House of Vexmore would rise.</p>
 <p>Of course, competition was fierce. Felicity was no easy target to woo. And recently... too recently... they’d heard troubling whispers coming from the servants in the palace.</p>
 <p>Her attention was focused on a foreigner with whom she was allowed to chat.</p>
 <p>A noble called Black.</p>

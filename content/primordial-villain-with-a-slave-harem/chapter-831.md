@@ -37,7 +37,7 @@ chapter = 831
 <p>...</p>
 <p>Inside Quinlan’s Mind</p>
 <p>While Feng Jiai was suffering from an existential crisis, Quinlan was smiling on the outside, but inwardly... things weren’t easy.</p>
-<p>The qi trickling into his body was sluggish and unruly, like a foreign guest unwelcome in a home of fire. His meridians groaned as the first threads of water qi seeped into them. His dantian recoiled violently, the flame in his core rising like a beast stirred from sleep. 𝐫аɴȏʙĘṢ</p>
+<p>The qi trickling into his body was sluggish and unruly, like a foreign guest unwelcome in a home of fire. His meridians groaned as the first threads of water qi seeped into them. His dantian recoiled violently, the flame in his core rising like a beast stirred from sleep.</p>
 <p>His body resisted it instinctively. Months of cultivating flame had left his meridians charred and quick, honed for explosive release, not the smooth flow of water, the rigid stability of earth, or the aloof nature of wind.</p>
 <p>The water entered, and the fire lashed out. Sparks surged through his body, his inner world a storm of steam, pressure, and elemental conflict.</p>
 <p>His breath hitched.</p>

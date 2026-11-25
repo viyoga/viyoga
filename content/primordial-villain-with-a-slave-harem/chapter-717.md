@@ -24,7 +24,7 @@ chapter = 717
 <p>I heard Blossom growl under her breath.</p>
 <p>Ignis stepped forward and knelt beside the nearest cell, gripping the iron bars so strongly they broke apart under the pressure. His voice was low, almost soft.</p>
 <p>"…Bastards."</p>
-<p>As a hardened criminal, he must've seen quite a lot of horrible things. The fact that he reacted like this to the sight before us told me how brutal it truly was. ṜÁΝổΒЁʂ</p>
+<p>As a hardened criminal, he must've seen quite a lot of horrible things. The fact that he reacted like this to the sight before us told me how brutal it truly was.</p>
 <p>A sudden movement caught my eye, but I didn't react because it was an older elven woman who threw herself forward, her frail body collapsing at Seraphiel's feet. Her fingers clutched at the dirt in front of my elven lover with so much strength that her knuckles went white out of pure desperation. Tears streaked down her sunken cheeks, and her voice was raw with terror.</p>
 <p>"Please! My daughter! My little girl! The lionkin took her! They said... they said the city lord was angry and would only calm down if he got to feast on the flesh of a beautiful elf!"</p>
 <p>Her words sliced through the heavy silence like a blade, making Seraphiel flinch. I saw her throat bob as she swallowed hard, her lips pressing together in an attempt to stop herself from breaking down on the spot. Tears welled in her golden eyes, glistening with sorrow.</p>

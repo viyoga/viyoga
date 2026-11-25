@@ -52,7 +52,7 @@ chapter = 2
 <p>As I'm looking I notice that I also have Health and Mana meters.</p>
 <p>[Health Points: 110/110]</p>
 <p>[Mana Points: 100/100]</p>
-<p>I don't know how health points work in this game-like reality though. What if I lose an arm? Do I still regenerate to 110 HP after a while, do I have less maximum HP, or does my arm regenerate somehow? There's a lot of stuff that requires further investigation. 𝔯ÂƝꝊβËꞩ</p>
+<p>I don't know how health points work in this game-like reality though. What if I lose an arm? Do I still regenerate to 110 HP after a while, do I have less maximum HP, or does my arm regenerate somehow? There's a lot of stuff that requires further investigation.</p>
 <p>Cool. Now let's see… How do I ask for descriptions?</p>
 <p>Just as I thought that, an additional screen appeared.</p>
 <p>[Primordial: A unique race believed to be the ancestors of all others, Primordials are unmatched in adaptability. Gain three additional class slots and each class gains experience at 3x rate. Only the Primary Class gives attribute bonuses. Gain stat 'Primordial Level' which also receives the 3x increased growth rate. Increase 'Primordial Level' to gain Skill and Attribute Points.</p>

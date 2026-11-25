@@ -26,7 +26,7 @@ chapter = 738
 <p>That thing wasn’t meant to be alive.</p>
 <p>It was a curse wearing bones, a true monster.</p>
 <p>Leohtar grunted, breaking the silence. “Well? Speak, Razeon.”</p>
-<p>The officer swallowed hard, trying not to look directly at the lich again. “S-sir. From the beast pens. Two… dogkin slaves. They-” he hesitated for a moment, trying his utmost to calm his violently pounding heart, “-they vanished. Disappeared. Not a trace. Like they turned into thin air.” 𝑅ÂＮƟВЁs</p>
+<p>The officer swallowed hard, trying not to look directly at the lich again. “S-sir. From the beast pens. Two… dogkin slaves. They-” he hesitated for a moment, trying his utmost to calm his violently pounding heart, “-they vanished. Disappeared. Not a trace. Like they turned into thin air.”</p>
 <p>Leohtar’s brows didn’t even twitch.</p>
 <p>"So?” he asked flatly.</p>
 <p>The lich’s voice drifted through the chamber like the rustle of withered leaves, each word laced with ancient scorn. “Perhaps those mongrels consumed one another. It would not surprise me. You mortals are ever slaves to your base hungers: flesh, fear, desperation. So fragile. So predictable.”</p>

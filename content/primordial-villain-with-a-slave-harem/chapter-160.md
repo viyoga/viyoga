@@ -29,7 +29,7 @@ chapter = 160
 <p>After getting ready and both me and Ayame drilling it into her that she must come back if she sses ev the smallest hint of danger, Blossom sets off.</p>
 <p>Afterwards I trust Aurora with a small pouch so that she can purchase the ingredits and tools we will be needing to concoct the wizard potion, and th I glance at my smirking Ayame with a wry smile of my own. "It's time to finally begin, huh?"</p>
 <p>"Indeed it is, Quinlan. Don't worry, I will be gtle…"</p>
-<p>"Do your worst, woman. The faster I become stronger than you, the sooner I can finally lay waste to your rude and severely misbehaving butt. What you've just se me to do Blossom won't ev register in your brain as a proper smack after I'm done with you." ℞åNοBЁṦ</p>
+<p>"Do your worst, woman. The faster I become stronger than you, the sooner I can finally lay waste to your rude and severely misbehaving butt. What you've just se me to do Blossom won't ev register in your brain as a proper smack after I'm done with you."</p>
 <p>"... I couldn't help but notice that you have a serious obsession with butts, Quinlan."</p>
 <p>"I do."</p>
 <p>She scoffs, "no shame whatsoever, huh? Unluckily for you, I'm not as stuffed down there as Blossom and Aurora, so I don't understand your evidt fascination with my rear-d as well."</p>

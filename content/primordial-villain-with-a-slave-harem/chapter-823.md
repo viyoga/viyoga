@@ -39,7 +39,7 @@ chapter = 823
 <p>More.</p>
 <p>MORE!</p>
 <p>Quinlan would not settle for anything but the very best core a cultivator could obtain.</p>
-<p>Every drop of qi from his meridians funneled inward, folding into the unstable mass. It began to solidify, brightening up like an illuminated crystal ball. But he didn’t stop. The orb pulsed, threatened to crack... ŔåＮȪβÊS</p>
+<p>Every drop of qi from his meridians funneled inward, folding into the unstable mass. It began to solidify, brightening up like an illuminated crystal ball. But he didn’t stop. The orb pulsed, threatened to crack...</p>
 <p>But he roared within his soul, forcing still more qi into the forming core. It began to glow, not just with energy, but with identity. His essence. His path. His will.</p>
 <p>From mist to core.</p>
 <p>A storm sealed in a sphere.</p>

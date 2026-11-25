@@ -23,7 +23,7 @@ chapter = 529
 <p>But then…</p>
 <p>"Both of you twins are forbidden from harming my subordinates, allies, and lovers in any shape or form. You’ll listen to all their commands and obey without issue." The man’s orders were enough to force her into compliance: her punch froze mid-swing, and then her hands limply fell to her sides.</p>
 <p>"Follow me, M’lady. I’ll introduce you to the boys." Ronan purred and turned around after bowing many times toward the man for good measure.</p>
-<p>"No! Please! Black! I mean, Lord Black! Pleaseee!!! I’ll do anythingggg!!!" Her screeching sounded even after Ronan slammed the door behind himself, but it quietened with every passing moment. Ȑ𝘢ΝöᛒĚ𝐒</p>
+<p>"No! Please! Black! I mean, Lord Black! Pleaseee!!! I’ll do anythingggg!!!" Her screeching sounded even after Ronan slammed the door behind himself, but it quietened with every passing moment.</p>
 <p>"I’ll leave you two in your lonesome, Lucille. I’m sure you have a lot to go over with this wonderful human specimen. Once you’re done and there’s still some time of the night left, ask Selene or Blackjack if they have some steam to vent. However, ensure that she remains functional… both in mind and body. I plan to return the two by morning."</p>
 <p>"Sure!" Lucille’s beaming smile welcomed the man’s words, who chuckled dryly before turning around and leaving the room.</p>
 <p>…</p>

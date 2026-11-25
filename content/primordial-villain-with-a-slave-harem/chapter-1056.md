@@ -35,7 +35,7 @@ chapter = 1056
 <p>Did he mean to challenge for the vacant duchy?</p>
 <p>He all but confirmed it now!</p>
 <p>Quinlan ignored the whispers. His gaze turned fully upon King Alexios once again.</p>
-<p>"These criminals deserved it. But what of the wife of a criminal? A woman who allegedly benefited from her husband’s wealth, yet with no proof of her involvement? I have not heard any particular offenses from Lord Alastair. From what I can tell, she is only here due to association." ŖãN𝙤𝐛Ěꞩ</p>
+<p>"These criminals deserved it. But what of the wife of a criminal? A woman who allegedly benefited from her husband’s wealth, yet with no proof of her involvement? I have not heard any particular offenses from Lord Alastair. From what I can tell, she is only here due to association."</p>
 <p>He let his eyes roam the hall now, catching the attention of every young and impressionable noblewoman present. His voice, when it came, was smooth, persuasive, impossible to ignore.</p>
 <p>"Perhaps she married him when they were both simple commoners, long before his rise in crime. What I want to ask is as such: should the wife of a criminal truly be held responsible for the crimes committed by the husband...?"</p>
 <p>Several noblewomen leaned forward in their seats, fans lowering just enough to show the wide-eyed uncertainty on their faces. The law was clear, and yet...</p>

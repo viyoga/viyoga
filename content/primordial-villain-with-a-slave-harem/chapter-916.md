@@ -28,7 +28,7 @@ chapter = 916
 <p>"I’m coming too!" she declared aloud, even though her heart raced.</p>
 <p>Quinlan’s voice rumbled with a low, amused chuckle, heard clearly in her mind.</p>
 <p>"Hah... What a brave little girl this Feng Jiai is."</p>
-<p>Feng refused to respond, her face burning with righteous fury toward the rude man as she stalked forward and slipped into the shimmering bridge after Serika. ṛＡℕоBÈṢ</p>
+<p>Feng refused to respond, her face burning with righteous fury toward the rude man as she stalked forward and slipped into the shimmering bridge after Serika.</p>
 <p>...</p>
 <p>In the treehouse, the moment Serika’s figure began to emerge through the thin veil of light, Malakar’s lazy, exhausted eyes sharpened, regaining their youthful, predatory glint.</p>
 <p>Before any of the raw divinity in the air could so much as lick her skin, the old primordial slammed his staff against the wooden floor with a resonant *THOOM!*</p>

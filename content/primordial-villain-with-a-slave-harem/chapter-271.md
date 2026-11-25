@@ -34,7 +34,7 @@ chapter = 271
 <p>[Magic: 115]</p>
 <p>[Unused Skill Points: 11]</p>
 <p>[Unused Attribute Points: 0]</p>
-<p>Damn. Those Magic and MP numbers are insane. Her Rare rarity class, Healer, gave her a 25% attribute bonus to Magic and 50% to MP. Her Strength was abysmal considering that she got 1 point automatically each time she leveled up, which means she would be at 6 if she were level 1. For reference, I would be at 15 Strength if I were to lose my points and return to being level 1, while Ayame would be 9. ŗἁ𐌽ȪＢЁ𝐬</p>
+<p>Damn. Those Magic and MP numbers are insane. Her Rare rarity class, Healer, gave her a 25% attribute bonus to Magic and 50% to MP. Her Strength was abysmal considering that she got 1 point automatically each time she leveled up, which means she would be at 6 if she were level 1. For reference, I would be at 15 Strength if I were to lose my points and return to being level 1, while Ayame would be 9.</p>
 <p>This meant that she was incredibly weak physically. I'm happy to see that she put some points into Agility and Vitality, at least. Nonetheless, she was still a fragile backliner whose safety I would have to look out for.</p>
 <p>Here are my numbers, the culmination of the 6 weeks of effort I put in since my arrival to this wonderful world.</p>
 <p>[Name: Quinlan Noir]</p>

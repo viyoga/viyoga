@@ -27,7 +27,7 @@ chapter = 722
 <p>Furthermore, this was the wrong hole. Its presence and the great pressure should have only filled her with fear, revulsion, and pain. Yet…</p>
 <p>“Ah…! ahhhn…!!”</p>
 <p>“Nngh. Sounds like it’s started feeling good for you.” He whispered with a snicker into her ear, but she could only glare back with utter bitterness in her eyes.</p>
-<p>That glare held no strength behind it, however, as her lovely slanted eyes were filled with feminine moisture. As he stickily rubbed against her anal walls, somewhat seductive tones escaped her small, pointed nose. ȐÀ₦Ô฿Ę𝐒</p>
+<p>That glare held no strength behind it, however, as her lovely slanted eyes were filled with feminine moisture. As he stickily rubbed against her anal walls, somewhat seductive tones escaped her small, pointed nose.</p>
 <p>Sol groaned. His massive erection was finally entirely buried inside her up to the very hilt.</p>
 <p>This felt entirely different from a vagina. The pressure felt like it was going to crush his dick. It was not unpleasant in any way though. Just… unique. It provided a different sort of pleasure from being inside a vagina.</p>
 <p>If you find this story on Amazon, be aware that it has been stolen. Please report the infringement.</p>

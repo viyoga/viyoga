@@ -28,7 +28,7 @@ chapter = 526
 <p>I snickered a bit and then cleared her misunderstanding up; "That’s a story for another time. Complications occurred, but please treat me as an adult."</p>
 <p>Sylvaris voiced her thoughts next; "When Boyfriend cast his strange door-shaped spell, I knew something was strange. But for it to be like this… Primordial Villain…"</p>
 <p>Somehow my name became Boyfriend.</p>
-<p>"This makes me a bit sad…" Jasmine sighed with grief. "I knew you would outlive me because you were a strong combatant, but you won’t die unless killed… Please, don’t forget me. Can I live on in your memories?" ℟аNộᛒЕⱾ</p>
+<p>"This makes me a bit sad…" Jasmine sighed with grief. "I knew you would outlive me because you were a strong combatant, but you won’t die unless killed… Please, don’t forget me. Can I live on in your memories?"</p>
 <p>I grabbed her hand firmly in my palm and squeezed reassuringly. "Jasmine, when I started my journey I promised myself I would only go for strong women not only because I thought them to be hot, but also because I didn’t want to lose them to time. That’s why I only accepted Aurora and Lucille after they showed signs of wishing to be combatants. However, I accepted you, and I don’t want you to become a combatant - at least not to the degree my other women are. Instead, I want you to manage my realms and assets while me and my warrior wives go on to fight in mighty battles. How does that sound to you?"</p>
 <p>"I would love it!" She cheered her acceptance, but then her droopy mood returned. "I will still die in a few decades, though…"</p>
 <p>A new status screen flashed in front of their eyes, and Seraphiel immediately began giggling when she realized which one it was.</p>

@@ -26,7 +26,7 @@ chapter = 453
 <p>He slowly, measuredly drew his pitch-black saber and aimed it in front of him to a point where multiple monsters and teams were congregated at.</p>
 <p>"[Bouncing Flames]"</p>
 <p>A burning projectile erupted from the tip of the black saber, streaking toward its unsuspecting victim. It struck the nearest goblin and ignited its body in an instant. The fire didn't stop there - it was just starting.</p>
-<p>As the name implied, it leaped from the goblin's writhing form to a nearby hobgoblin, wrapping around it like a whip of pure destruction. The hobgoblin shrieked as the flames tore through its armor and flesh before bounding again, leaving only a charred corpse in its wake. 𝐑ÀΝ𝘰ВƐŜ</p>
+<p>As the name implied, it leaped from the goblin's writhing form to a nearby hobgoblin, wrapping around it like a whip of pure destruction. The hobgoblin shrieked as the flames tore through its armor and flesh before bounding again, leaving only a charred corpse in its wake.</p>
 <p>Each leap of the fire was faster than the last as it raced across the battlefield. From goblins to ogres, it moved like a predator, devouring everything it touched. An orc bellowed as the flames engulfed its torso with the fire searing through its muscles and charring its bones before it could even swing its weapon.</p>
 <p>The inferno ricocheted to a pack of werewolves whose speed proved useless against the relentless magic. Their nature to work in packs was their downfall because they were too close proximity to each other to dodge in time.</p>
 <p>One after another, they fell. Their fur and flesh were consumed by the unyielding blaze.</p>

@@ -34,7 +34,7 @@ chapter = 842
 <p>After a brief pause, she turned.</p>
 <p>"Send word to all River Bastions. Tighten the Mist Curtain. No foreign cultivator crosses our borders without scrutiny."</p>
 <p>She handed the scroll back.</p>
-<p>"And the Avatar... find him. Guard him. He may yet be the key to surviving what comes next. Send word that we pardon him of any legal troubles that could arise from his actions against the Seastone Clan’s Jiai family." 𝔯₳ΝŎꞖΕ𝙨</p>
+<p>"And the Avatar... find him. Guard him. He may yet be the key to surviving what comes next. Send word that we pardon him of any legal troubles that could arise from his actions against the Seastone Clan’s Jiai family."</p>
 <p>Her voice was low, gentle, and unshakable, like a deep current beneath a calm surface.</p>
 <p>"We must not fight the storm blindly. We must flow around it, and when the time is right... drown it."</p>
 <p>The servant hesitated before retreating, his gaze lingering on the queen with quiet admiration.</p>

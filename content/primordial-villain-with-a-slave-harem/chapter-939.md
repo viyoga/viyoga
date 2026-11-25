@@ -32,7 +32,7 @@ chapter = 939
 <p>Her knees buckled instantly. Her breath hitched.</p>
 <p>"... It’s really you..." she whispered, voice cracking, eyes glistening.</p>
 <p>"Of course it is," came the reply, voice deep and amused. "Miss me?"</p>
-<p>"Stop asking such dumb questions or you’ll regret it!!" she laughed out loud with a choked sob of pure joy tearing free from her throat. "I need to see you now." ṙ𝓪Nồ𝔟Ěś</p>
+<p>"Stop asking such dumb questions or you’ll regret it!!" she laughed out loud with a choked sob of pure joy tearing free from her throat. "I need to see you now."</p>
 <p>"Sorry, sorry... The feeling is mutual, my sexy Hexwitch. Where are you?"</p>
 <p>"Deep in Greenvale trenches. But Xyrenis City is close."</p>
 <p>"Good. Signal me when you’re in range. I’ll open a [Warp Gate] in one of the alleys."</p>

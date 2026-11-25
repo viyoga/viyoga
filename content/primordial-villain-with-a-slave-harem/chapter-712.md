@@ -26,7 +26,7 @@ chapter = 712
 <p>The gates of Emberfang burst open.</p>
 <p>And the hunters became the hunted.</p>
 <p>Var'Zhul's smirk widened when he saw Prince Darius' amusement vanish.</p>
-<p>The cocky ease drained from the dogkin prince's face, replaced by the cold, honed focus of a warrior. His muscles tensed as he brandished his weapon, his fellow elites falling in beside him, ready to meet the charge. ℞Å₦ỒᛒƐṠ</p>
+<p>The cocky ease drained from the dogkin prince's face, replaced by the cold, honed focus of a warrior. His muscles tensed as he brandished his weapon, his fellow elites falling in beside him, ready to meet the charge.</p>
 <p>Yes.</p>
 <p>This was the right decision.</p>
 <p>Var'Zhul shot a glance over his shoulder.</p>

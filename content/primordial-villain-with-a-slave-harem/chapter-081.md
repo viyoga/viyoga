@@ -32,7 +32,7 @@ chapter = 81
 <p>Increased Intelligence (Medium)</p>
 <p>Increased Wisdom (Medium)]</p>
 <p>Just how beautiful is this sight? Especially compared to my Assassin class's [Increased Agility (Minor)] single buff.</p>
-<p>As for the class's unlock progression, I'm making heavy strides towards reaching the goal. I only need to level three evil classes to level 10. Both Assassin and Slave Master are level 7, with thief being comfortably stuck at level 2 since the first day of my transmigration. I will have to begin working on that one as well. ṘàƝỐβĚＳ</p>
+<p>As for the class's unlock progression, I'm making heavy strides towards reaching the goal. I only need to level three evil classes to level 10. Both Assassin and Slave Master are level 7, with thief being comfortably stuck at level 2 since the first day of my transmigration. I will have to begin working on that one as well.</p>
 <p>The main reason as to why I refrained from stealing even after knowing that I must reach at least level 10 is that I'm worried about the detection abilities of the people of this world. I don't want some strange artifact detecting me as soon as I sneak into someone's house or something.</p>
 <p>Furthermore, I didn't have much time to focus on this particular activity, as getting stronger as a combatant is enjoying a significantly higher priority on my to-do list.</p>
 <p>I refocus on the present, we have a cute little trio to brutally murder in cold blood, after all. Seeing the inaction of my lovely companion, it is evident that she wants me to experience this fight alone.</p>

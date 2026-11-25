@@ -29,7 +29,7 @@ chapter = 812
 <p>At that thought, Quinlan smiled. ’Trust my girls? But of course I do! They’re the most awesome beings in existence!’</p>
 <p>So, with a steady heart and calm mind, he didn’t stop. With the sun overhead and the sounds of the wind rustling through the plateau, Quinlan Elysiar gathered Qi for hours.</p>
 <p>Time passed on the wind-blasted plateau.</p>
-<p>Days blurred into one another beneath the ever-burning sun and starlit skies. Each morning began the same: a cold breeze, gruff orders from the old man, and brutal training that left Quinlan sore to the bone. After lunch hours were spent gathering Qi in still silence, it was time for a second round of training in the afternoons. The nights brought tasteless meals of charred meat and barely edible roots that Feng foraged. 𝑅𝘼ƝỔʙΕŞ</p>
+<p>Days blurred into one another beneath the ever-burning sun and starlit skies. Each morning began the same: a cold breeze, gruff orders from the old man, and brutal training that left Quinlan sore to the bone. After lunch hours were spent gathering Qi in still silence, it was time for a second round of training in the afternoons. The nights brought tasteless meals of charred meat and barely edible roots that Feng foraged.</p>
 <p>It was a hard life.</p>
 <p>But it was also simple. Focused.</p>
 <p>Quinlan would lie if he said he wasn’t having fun. Slowly building his dantian and core muscles filled him with a sense of achievement, and while Feng Jiai was certainly a handful, the one thing she most certainly wasn’t was ’boring.’ Her presence made his mundane days more colorful.</p>

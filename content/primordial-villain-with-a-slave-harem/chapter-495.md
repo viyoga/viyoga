@@ -31,4 +31,4 @@ chapter = 495
 <p>The only exception to the taxation of the lowborn were the members of the Mage's and Adventurer's Guilds. They were scarcely taxed beyond what was reasonable because no one wanted strong individuals to go rogue and become vigilantes or outright criminals like yours truly.</p>
 <p>In front of them sat the 50 gold gang, these ones saw some big-shot mages and adventurers as well as mostly families of counts and wealthy barons.</p>
 <p>Next came the 100-coin group. This was where the count families who were doing well for themselves sat.</p>
-<p>The 200 gold coin gang was the final one before mine, and although I hadn't met them before, I instantly recognized the famous Adamantite team; Scarlet Lilies in this row. I didn't have to look far, because they were sitting right behind me while glaring daggers at yours truly. ṝäŊ𝐨ВĚṦ</p>
+<p>The 200 gold coin gang was the final one before mine, and although I hadn't met them before, I instantly recognized the famous Adamantite team; Scarlet Lilies in this row. I didn't have to look far, because they were sitting right behind me while glaring daggers at yours truly.</p>

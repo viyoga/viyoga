@@ -36,7 +36,7 @@ chapter = 1082
 <p>Steel clashed against stone as the phantom army bore down on the heart of the capital.</p>
 <p>...</p>
 <p>A short while ago.</p>
-<p>Deep beneath Valorian’s radiant streets, where no light could reach, the earth had been carved hollow by a single man’s will. Quinlan Elysiar’s earth magic had sculpted a cavern wide enough to house a small settlement. RᴀꞐŐʙËṨ</p>
+<p>Deep beneath Valorian’s radiant streets, where no light could reach, the earth had been carved hollow by a single man’s will. Quinlan Elysiar’s earth magic had sculpted a cavern wide enough to house a small settlement.</p>
 <p>Its walls were still raw with claw-like grooves of freshly moved stone. The air reeked of damp soil and crushed minerals, sharp and heavy in the lungs.</p>
 <p>The only light came from the eyes of his women. Bright, burning, defiant, each a star in the suffocating dark. It was less a hideout, more an underworld council. A mafia den built beneath the capital itself, and none above had the faintest clue.</p>
 <p>Quinlan stood in the center, head lowered for a moment right before he lifted it, elemental eyes igniting in the gloom. Their glow was sharper, fiercer than anyone else’s. Red fire, deep ocean, raging storm, and whispering stone all flicker in his irises. In the pitch-black cavern, the sight of the Elysiar family was outright otherworldly.</p>

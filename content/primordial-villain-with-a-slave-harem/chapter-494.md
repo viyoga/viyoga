@@ -26,7 +26,7 @@ chapter = 494
 <p>Jasmine, on the other hand, had seated herself beside me. We chatted about the various districts of the capital, and some other similarly light topics. Her tone was measured but sprinkled with a great deal of affection to sell the illusion that she was my beloved, albeit very spoiled wife.</p>
 <p>I couldn't help but think that she enjoyed this role of hers much more than what was reasonable.</p>
 <p>And yes, that's right, I was a talented multitasker; I could easily flirt with two women at once.</p>
-<p>It took us about thirty minutes to arrive, and as we approached the towering gates of the acutely named Grand Auction Hall, my attention was drawn to the structure's majesty. ℞Ａ𐌽∅𐌱ÊȘ</p>
+<p>It took us about thirty minutes to arrive, and as we approached the towering gates of the acutely named Grand Auction Hall, my attention was drawn to the structure's majesty.</p>
 <p>The building was unlike anything else I'd seen thus far in my time as a transmigrator.</p>
 <p>It was a monolith of gorgeous, polished white stone. Tall, intricate pillars lined its entrance, carved with depictions of legendary artifacts and mythical beasts. A golden dome sat atop the hall, reflecting light like a miniature sun, marking it as the crown jewel of the kingdom's trade and culture.</p>
 <p>The entrance was a sea of activity. Nobles dressed in silks and jewels paraded toward the gate with their entourages bustling behind them. Merchants showcased their wealth by flaunting their guards and artifacts, while adventurers bragged loudly as they flashed their scars as proof of their "worthiness." The hall's prestige was palpable, and even from the outside, one could feel the allure of unimaginable treasures within.</p>

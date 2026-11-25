@@ -30,7 +30,7 @@ chapter = 695
 <p>“Grand Priest. Will you share your wisdom?” Satella asked and the Grand Priest let out a sigh before clearing his throat.</p>
 <p>Satella’s eyes seemed to sparkle with hope. After all, he would at least have some shred of reason and talk about the important topics, right?</p>
 <p>Sadly her hopes were ruthlessly destroyed.</p>
-<p>“The problem seems to be about the best way to represent a new religious figure. Because of his identity and origin, finding the most accurate representation seems complicated, and settling for his hybrid form would seem like a half-hearted work.” The Grand Priest started. Ȓα𝐍ỖβĚȘ</p>
+<p>“The problem seems to be about the best way to represent a new religious figure. Because of his identity and origin, finding the most accurate representation seems complicated, and settling for his hybrid form would seem like a half-hearted work.” The Grand Priest started.</p>
 <p>No this is not the fucking problem! Argh!! She screamed inwardly, but did not have the energy and will to project her frustrations outwards.</p>
 <p>The other elves, not knowing Satella's inner thoughts, simply nodded at the wise words of the elder.</p>
 <p>This was the crux of the matter. Elves did not care about hybrids or whatnot. Sol had proven that he was a full dragon in every way possible. But how to represent him was now a problem.</p>

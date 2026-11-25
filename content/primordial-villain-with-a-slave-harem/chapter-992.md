@@ -37,7 +37,7 @@ chapter = 992
 <p>Quinlan said nothing at first. Then he nodded.</p>
 <p>"You’re right."</p>
 <p>Rykar nodded back. "I’m not the type to offer apologies. Never have I been. But if you want my head, I won’t resist."</p>
-<p>Quinlan couldn’t help but shake his head while chuckling amusedly. "And what good would a grumpy old man’s head do for me? I don’t collect relics. Plus, Serika would hate me if I did that. You’re not at all worth having my beloved Solar Fist hate my guts. Not one bit." ŔἈƝǑʙËȿ</p>
+<p>Quinlan couldn’t help but shake his head while chuckling amusedly. "And what good would a grumpy old man’s head do for me? I don’t collect relics. Plus, Serika would hate me if I did that. You’re not at all worth having my beloved Solar Fist hate my guts. Not one bit."</p>
 <p>Rykar grunted in acknowledgment. "True enough."</p>
 <p>He let that sit a beat before continuing.</p>
 <p>"I won’t apologize," he repeated. "But I do have something that might help balance the scale, even if only a tiny bit. A gift, of sorts... if you want it."</p>

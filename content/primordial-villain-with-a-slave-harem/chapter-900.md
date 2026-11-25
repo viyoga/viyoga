@@ -33,7 +33,7 @@ chapter = 900
 <p>But they felt it.</p>
 <p>This was still Quinlan.</p>
 <p>And more.</p>
-<p>"Did you really think..." he murmured, voice low, teasing, "that I, Quinlan Elysiar, would let myself get overtaken by some measly invaders of the soul? That I would leave you behind on your own?" ṚåꞐ∅𝖇Êṣ</p>
+<p>"Did you really think..." he murmured, voice low, teasing, "that I, Quinlan Elysiar, would let myself get overtaken by some measly invaders of the soul? That I would leave you behind on your own?"</p>
 <p>He smirked. "Please. They’ve been neutralized. Subjugated. I’m the one in charge."</p>
 <p>Feng let out a sharp little gasp and then cried out fully. "You dummy!"</p>
 <p>In an instant, she collapsed onto him, hugging his head fiercely to her flat chest. "You scared me so bad! Right after we won! I thought that-"</p>

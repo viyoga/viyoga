@@ -28,7 +28,7 @@ chapter = 331
 <p>"What a gentleman you are. I bet you can’t keep the ladies off your lap, they must be desperately begging for your attention." Vex’s cute giggling escaped her lips.</p>
 <p>"I’ve heard enough." Draven stated and dashed at Vex. However, before he could reach her he was stopped in place.</p>
 <p>"Black Fang can’t plan you said… Hehehe! Maybe even an age-old entity like her can change her ways!" Vex’s smug laugh reverberated through the battlefield.</p>
-<p>A newcomer stopped Draven’s charge completely. The man was like a tank barreling towards Vex, but now he was standing still while simply eyeing the woman in front of him. Your next chapter is on ṚâƝ𝖔ΒÊs</p>
+<p>A newcomer stopped Draven’s charge completely. The man was like a tank barreling towards Vex, but now he was standing still while simply eyeing the woman in front of him. Your next chapter is on</p>
 <p>And what a woman she was.</p>
 <p>She had long, dark hair that ended in a ponytail, with a few strands falling loosely around her face. Her features were extremely striking. She wore elegant earrings with intricate designs that dangled beside her face. She had a black top that revealed a detailed tattoo covering her back and arms that extended down to her lower back. Due to her choice of wearing a crop top, her alluring belly that was adorned by a chiseled six-pack and her lower back were completely bare. I didn’t know who she was, but she didn’t strike me as a woman dressed for combat.</p>
 <p>(Picture)</p>

@@ -31,5 +31,5 @@ chapter = 157
 <p>Afterwards we move back to Broderick's mansion to lose our robes and masks and to inform them that we will be sleeping in town for the time being, after which we move towards the inn where Blossom and I had a heartfelt session of bodily discussion.</p>
 <p>Naturally, we are not novices enough to show Aurora the hidden pathway to their home, so she was instructed to wait for us in front of the inn.</p>
 <p>When I step in front of her, she looks me up and down disinterestedly. "Who are you? Get on with your day!" She gives me the cold shoulder with a cold, bitchy attitude.</p>
-<p>It's very reassuring to see that our mask and robe combo is having such profound success. Without its height manipulation I'm sure she would've realized that it's me, but now that I've suddenly grown significantly taller she thinks I'm a stranger. ɽ𝓪ꞐꝊ𝖇Εʂ</p>
+<p>It's very reassuring to see that our mask and robe combo is having such profound success. Without its height manipulation I'm sure she would've realized that it's me, but now that I've suddenly grown significantly taller she thinks I'm a stranger.</p>
 <p>I grin and begin in a mocking tone, "you've already forgotten about me? And I thought that I left a rather profound mark behind."</p>

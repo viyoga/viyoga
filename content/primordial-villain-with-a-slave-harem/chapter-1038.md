@@ -34,7 +34,7 @@ chapter = 1038
 <p>...</p>
 <p>In the noble stands, silence reigned supreme</p>
 <p>It was no longer a match but a warzone.</p>
-<p>Even the most regal of nobles, and even those men and women who’d watched hundreds of arena bouts, found their hands gripped tightly on their knees. Hearts were racing. Palms sweating. ṞΆꞐÖꞖЕŜ</p>
+<p>Even the most regal of nobles, and even those men and women who’d watched hundreds of arena bouts, found their hands gripped tightly on their knees. Hearts were racing. Palms sweating.</p>
 <p>How couldn’t they be captivated? This was no illusion, nor a friendly spar. Real blood was being shed. Noble blood.</p>
 <p>And it wasn’t just the violence that gripped their attention so fiercely.</p>
 <p>It was the spectacle of it. The precision. The sheer, breath-stealing force of the execution.</p>

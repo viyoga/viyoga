@@ -29,7 +29,7 @@ chapter = 644
 <p>"Breaking news, the princess of the dogkin people hurled a dildo from the skies, hitting one of her citizens in the head, killing the child immediately. His loving mother and hardworking father are overcome with grief as they struggle to come to terms with the tragic loss of their little boy."</p>
 <p>My words instantly made her yelp and reach after the item, but it was too late. I watched her reactions amusedly before creating a gust of wind and pushing the dildo's landing spot far from the city.</p>
 <p>Seeing this, she turned back toward me with a strong growl. "You truly are a son of a bitch…"</p>
-<p>It didn't last long, however, as she once again bit into her lower lip with a great need written all over her existence. This woman was dying to get dicked down. ℝ₳NȫꞖĘṩ</p>
+<p>It didn't last long, however, as she once again bit into her lower lip with a great need written all over her existence. This woman was dying to get dicked down.</p>
 <p>"Why don't you go for a rodeo with a young stud down there? Based on what I'd seen, even loyal married dogkin men would happily make a mistake if it were with you."</p>
 <p>Kitsara strongly shook her head, "I'm not stupid! I know arrogant men like you. Even though I'm not your woman, if I were to lay with another man, I would ruin my chances with you!"</p>
 <p>"What's the issue with that?"</p>

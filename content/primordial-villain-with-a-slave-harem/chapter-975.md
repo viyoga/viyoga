@@ -35,7 +35,7 @@ chapter = 975
 <p>Now, all of it responded.</p>
 <p>Not as four elements.</p>
 <p>But as one.</p>
-<p>A deep, reverberating resonance bloomed inside him, like strings plucked from a grand cosmic instrument. Flame, Tide, Stone, and Gale curled together, threads in a greater design. ŔÅ₦ǒBƐṢ</p>
+<p>A deep, reverberating resonance bloomed inside him, like strings plucked from a grand cosmic instrument. Flame, Tide, Stone, and Gale curled together, threads in a greater design.</p>
 <p>Not for destruction.</p>
 <p>Not for expression.</p>
 <p>Not for balance.</p>

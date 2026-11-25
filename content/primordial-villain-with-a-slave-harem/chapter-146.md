@@ -26,7 +26,7 @@ chapter = 146
 <p>His face is ruggedly handsome, with sharp features and eyes that seem to pierce right through me.</p>
 <p>I swallow hard, feeling my cheeks flush as I struggle to maintain eye contact. But then, as if drawn by some magnetic force, my gaze drops lower... and lower... until I'm staring straight at... Oh Goddess. My eyes widen in shock as I take in the sight of his, um, giant appendage, hanging between his legs like some kind of...</p>
 <p>Well, giant serpent monster!</p>
-<p>Before I can stop myself, I let out a tiny yelp, my voice high-pitched and squeaky. To my horror, the... serpent twitches in response, almost like it's greeting me, and I'm suddenly very aware of how out of my element I am up here with this man. ȐάꞐóᛒÊṤ</p>
+<p>Before I can stop myself, I let out a tiny yelp, my voice high-pitched and squeaky. To my horror, the... serpent twitches in response, almost like it's greeting me, and I'm suddenly very aware of how out of my element I am up here with this man.</p>
 <p>My mind races, and I start muttering nonsense under my breath, my words tumbling out in a flustered, jumbled mess. "Oh no, I-I didn't mean to-um, I'm just-uh, the drinks! Yes, the drinks! I, uh, brought them for you, and, um, please don't be mad, I didn't mean to-"</p>
 <p>The man lets out a deep, rumbling chuckle, the sound sending shivers down my spine. He seems completely unfazed by my flustered state, his lips curving into a smile that I can't help but feel is mocking me.</p>
 <p>As I stand there, paralyzed by the sheer intensity of the situation, the man reaches out and effortlessly takes the tray from my trembling hands. His fingers brush against mine, and I notice the contrast between his large, powerful fingers and my thin, delicate ones.</p>

@@ -23,7 +23,7 @@ chapter = 407
 <p>Anyhow.</p>
 <p>With my musings done, it was time to begin. "My cherished Ascendants, today we will invade an entire barony and the lowlifes living on their premises. You already know the plan so act accordingly. We have three main goals that we need to achieve today.</p>
 <p>First, resources. We will take all valuables these shady, horrible people have accumulated in their treasuries by exploiting innocent weaklings. Coins, artifacts, jewelry, weapons, armor, all are welcome.</p>
-<p>Second, rescue the innocents like Dorothy. It has become abundantly clear to me that not only are the Vraven Kingdom's royal family unable to protect their citizens, but so are the aristocrats working under them. We will seize the workforce and relocate them to our stronghold where they will enjoy our protection and we will enjoy the fruits of their labor. 𝙍Ἀ𝐍Ο𝐛Ê𝘚</p>
+<p>Second, rescue the innocents like Dorothy. It has become abundantly clear to me that not only are the Vraven Kingdom's royal family unable to protect their citizens, but so are the aristocrats working under them. We will seize the workforce and relocate them to our stronghold where they will enjoy our protection and we will enjoy the fruits of their labor.</p>
 <p>Lastly, enrich the combat forces of the Ascendants. At any point, if you are in the position to capture instead of kill, then do so. Combatants are even more important to acquire than laborers but remember, your keeping your lives is on a much higher position on the list of priorities so kill if you deem it necessary. Blossom, come. Elven archers, come."</p>
 <p>"Yes, Master!"</p>
 <p>"Yes, Lord!"</p>

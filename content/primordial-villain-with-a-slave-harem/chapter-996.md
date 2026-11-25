@@ -46,7 +46,7 @@ chapter = 996
 <p>And failed.</p>
 <p>Then a fourth.</p>
 <p>And a fifth.</p>
-<p>By the sixth, he was snarling like a dog denied a bone. "You ungrateful child! Are you mocking my legacy?! Is this some part of your dumb plan to humiliate me?!" ŔÄƝǑВÊ𝙎</p>
+<p>By the sixth, he was snarling like a dog denied a bone. "You ungrateful child! Are you mocking my legacy?! Is this some part of your dumb plan to humiliate me?!"</p>
 <p>"I’m telling you-!"</p>
 <p>But Quinlan stopped mid-sentence. His brows furrowed, then rose. Slowly, a spark of realization crossed his face.</p>
 <p>"Wait..."</p>

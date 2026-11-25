@@ -23,7 +23,7 @@ chapter = 191
 <p>Nightvision, farsight, and maybe even more.</p>
 <p>I give a wicked grin. "I've been upgraded once again."</p>
 <p>[Primordial Villain class unlocked.]</p>
-<p>[Description: The Primordial Villain is the embodiment of all that is evil. It is the supreme class of the evil path, designed to assimilate and amplify every form of darkness within the host. No longer bound by the limitations of individual evil classes, the Primordial Villain unifies them, offering unmatched power and versatility to those who embrace its sinister nature.] 𝖗ÄＮộ𝔟Ɛ𝙨</p>
+<p>[Description: The Primordial Villain is the embodiment of all that is evil. It is the supreme class of the evil path, designed to assimilate and amplify every form of darkness within the host. No longer bound by the limitations of individual evil classes, the Primordial Villain unifies them, offering unmatched power and versatility to those who embrace its sinister nature.]</p>
 <p>[Assimilating host's evil classes… Thief Level 22. Assassin Level 10. Slave Master Level 10...]</p>
 <p>[Assimilation complete. From this point onward, all evil classes will remain active indefinitely as long as Primordial Villain remains the Primary Class.]</p>
 <p>What the…? I equip it into the primary slot and check, and all three classes are there under it, as if they became its subordinates, or secondary classes of the class itself.</p>

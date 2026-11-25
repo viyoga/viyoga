@@ -23,7 +23,7 @@ chapter = 1042
 <p>&lt;Is this how it works?&gt;</p>
 <p>Feng’s voice rang through the newly forged bond. She sounded giddy, extremely curious, and excited.</p>
 <p>Jasmine blinked in surprise. &lt;Wait, you already figured out how to use [Master’s Link]?!&gt;</p>
-<p>&lt;She did it faster than the rest of us,&gt; Kitsara admitted with a hint of begrudging admiration. &lt;We all needed guidance from Quinlan when we were first [Subjugated].&gt; ɽΑƝố𝐁ĚS</p>
+<p>&lt;She did it faster than the rest of us,&gt; Kitsara admitted with a hint of begrudging admiration. &lt;We all needed guidance from Quinlan when we were first [Subjugated].&gt;</p>
 <p>Hearing the foxkin’s statement, Feng couldn’t help but tilt her chin up smugly. Her mental tone dripped with satisfaction. &lt;What can I say? I’m not only a nation-toppling jade beauty, but also a terrifying genius! Bow before my excellence!&gt;</p>
 <p>Feng’s smug little declaration, complete with her chin tilted high like an empress expecting worship, was cut short by a sharp smack to the back of her head.</p>
 <p>"Ow! What was that for?!" she yelped while both of her hands flew up to cradle the offended spot.</p>

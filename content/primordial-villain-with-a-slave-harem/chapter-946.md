@@ -37,7 +37,7 @@ chapter = 946
 <p>And though there was pain in it... There was strength, too.</p>
 <p>"...Got it," she whispered. "Ill grow up into someone amazing. For my sake alone."</p>
 <p>Then, before the tears could slip free, she turned on her heel. "Please give a minute... Ill go walk a bit alone."</p>
-<p>She didnt wait for permission, just walked off, shoulders stiff and hands curled into fists at her sides, displaying the effort it took to hold herself together. ŕ𝘼Ŋŏ𐌱Ęš</p>
+<p>She didnt wait for permission, just walked off, shoulders stiff and hands curled into fists at her sides, displaying the effort it took to hold herself together.</p>
 <p>Quinlan watched her for a long moment. Then turned his head.</p>
 <p>"Lyra."</p>
 <p>The pink-haired knight straightened immediately, tone becoming formal. "My lord?"</p>

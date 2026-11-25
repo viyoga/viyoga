@@ -27,7 +27,7 @@ chapter = 235
 <p>There are two women, all thanks to Ayame's wishes, two human men and a dwarf man.</p>
 <p>I look at the dwarf the longest, mostly because this is my first time seeing one. Well, I've seen a few in the open market when I initially visited it in Aldoria, but didn't pay much attention because I knew I couldn't afford one.</p>
 <p>The dutchy of Greenveil borders the Beastman Confederation, so there are a lot of beast-kin slaves everywhere, but the Alliance of Elvardia, which is the nation that is jointly ruled by both elves and dwarves is some distance away, so they're much more of a rarity over here, and they are just less in numbers and demand more of a price in general.</p>
-<p>Honestly, I don't like this dwarf. He is incredibly depressed and looks at me with eyes that are full of hate. I can tell that he is a stubborn one just from a single glance. Even if I treat him well, he might not appreciate anything I do. ⱤÅ𝐍ȮʙЁṩ</p>
+<p>Honestly, I don't like this dwarf. He is incredibly depressed and looks at me with eyes that are full of hate. I can tell that he is a stubborn one just from a single glance. Even if I treat him well, he might not appreciate anything I do.</p>
 <p>&lt;Ayame, are dwarfs inherently better at designing buildings?&gt;</p>
 <p>&lt;What? No, stop being racist. Just because you're not a human any longer you're not allowed to look down on my species!&gt;</p>
 <p>&lt;It's a stereotype from my old world, I wasn't trying to be rude.&gt;</p>

@@ -30,7 +30,7 @@ chapter = 821
 <p>Then, her figure flickered and vanished, teleporting without hesitation. Sol watched her go, then turned his eyes to the others.</p>
 <p>“What about you?”</p>
 <p>“I need to go! Now! This is the greatest chance to witness the birth of a god!” Echidna’s voice shook with feverish hunger.</p>
-<p>He could somewhat understand her. He knew how obsessed Echidna was with the ascension and birth of a literal god. The only felt left for her to accomplish in her otherwise miserable life. ℝᴀNỗΒЕꞩ</p>
+<p>He could somewhat understand her. He knew how obsessed Echidna was with the ascension and birth of a literal god. The only felt left for her to accomplish in her otherwise miserable life.</p>
 <p>The simple fact that she could still wait here was a testament to her personal growth through the time she spent with Sol. The Echidna he first met would have broken out long ago.</p>
 <p>This tale has been unlawfully lifted from Royal Road; report any instances of this story if found elsewhere.</p>
 <p>I guess even someone as hopeless as her can change in the end.</p>

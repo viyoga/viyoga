@@ -32,7 +32,7 @@ chapter = 874
 <p>"You betrayed your very world!”</p>
 <p>Her foot struck the ground, launching her forward like a meteor. “So I’ll burn a wretched parasite like you out of it!”</p>
 <p>Fire met water in a storm of steam and light, the entire battlefield trembling beneath their duel.</p>
-<p>Nalai’s fingers carved sharp arcs through the air as she materialized one of her strongest combat arts. It cost so much qi and had such an external effect that this might as well have been a proper magic spell. R̃άŊỒВЕṧ</p>
+<p>Nalai’s fingers carved sharp arcs through the air as she materialized one of her strongest combat arts. It cost so much qi and had such an external effect that this might as well have been a proper magic spell.</p>
 <p>Dozens—if not hundreds—of water blades burst outward as a result.</p>
 <p>It should have overwhelmed anyone.</p>
 <p>It had always overwhelmed anyone.</p>

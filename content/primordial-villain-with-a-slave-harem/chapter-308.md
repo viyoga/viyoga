@@ -32,7 +32,7 @@ chapter = 308
 <p>"We are losing…" Andrea said after examining the first few dozen seconds of the clash. Indeed, but we already knew this would happen. However, Miss Assassin of course wasn't privy to this info. She likely believed that it was do or die. Which for her, was likely true as well. After all, Selene only wanted to keep herself and Cedric alive from the Alliance.</p>
 <p>"We have to make a move now! Charge at their backline!" She ordered hurriedly.</p>
 <p>Already? They barely even started. We should be waiting for a more opportunate moment.</p>
-<p>Nonetheless, my opinion wasn't important for the petite professional killer. She began urging us to rush towards their backline with daggers in both hands. I accepted without making a fuss and began running at the front of the group with Ayame Lucille, Blossom, and Ambition next to me. The six assassins followed, and after them were our five elf archers, Seraphiel and Aurora. ṚаΝỗꞖÊs</p>
+<p>Nonetheless, my opinion wasn't important for the petite professional killer. She began urging us to rush towards their backline with daggers in both hands. I accepted without making a fuss and began running at the front of the group with Ayame Lucille, Blossom, and Ambition next to me. The six assassins followed, and after them were our five elf archers, Seraphiel and Aurora.</p>
 <p>Stay updated through .com</p>
 <p>However, sadly for Andrea and her teammates, I had other plans in mind than to throw myself and my team into the fray desperately so that our 'allies' would have a better chance at victory. I opened my [Master's Link] with all three of my slaves, and commanded;</p>
 <p>&lt;Execute Order 66.&gt;</p>

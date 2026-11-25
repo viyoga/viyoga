@@ -33,7 +33,7 @@ chapter = 902
 <p>Still slumped over the blood-soaked body of her sister.</p>
 <p>A choked sound escaped Serika’s throat.</p>
 <p>"No... no, no, no..."</p>
-<p>Her expression contorted into one of extreme disgust and self loathing and as she turned away from Quinlan, one hand rose to her face at breakneck speed. ṛἁꞐȎ𝔟Ès</p>
+<p>Her expression contorted into one of extreme disgust and self loathing and as she turned away from Quinlan, one hand rose to her face at breakneck speed.</p>
 <p>*Slap!*</p>
 <p>She struck herself hard across the cheek, leaving a deep red imprint.</p>
 <p>Then again.</p>

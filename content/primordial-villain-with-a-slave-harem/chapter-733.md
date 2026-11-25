@@ -29,7 +29,7 @@ chapter = 733
 <p>&lt;They’re here!&gt; I whispered, with my voice trembling as I instinctively began rushing toward their scent. &lt;They’re alive… They’re alive! Master!!&gt;</p>
 <p>&lt;Wait!&gt; Kitsara hissed sharply in my mind. &lt;Don’t move. Look.&gt;</p>
 <p>I blinked through blurry vision and glanced around.</p>
-<p>Detection wards. Everywhere. Dozens of them. Enchantment sigils carved into the dirt, magical tripwires crisscrossing the air, illusion arrays hidden under pebbles and leaves. ℝаN𝐎ΒΕS</p>
+<p>Detection wards. Everywhere. Dozens of them. Enchantment sigils carved into the dirt, magical tripwires crisscrossing the air, illusion arrays hidden under pebbles and leaves.</p>
 <p>&lt;They’ve turned this place into a net,&gt; Kitsara muttered grimly.</p>
 <p>I argued weakly, still desperate to rush to my mother’s and sister’s side.</p>
 <p>I bit my lip so hard I tasted blood.</p>

@@ -27,7 +27,7 @@ chapter = 178
 <p>"Compared to my what?" one of the females snaps, her voice dripping with venom.</p>
 <p>"Uh, your, uh, w-wet dog smell?" he stammers, realizing too late the grave mistake he's made.</p>
 <p>The female's eyes narrow to dangerous slits, and before he can react, she swipes a clawed hand across his face, leaving deep scratches that ooze blood and possibly blinds him in one eye. "Hmph!" She snorts, snapping her head away in evident disgust.</p>
-<p>The other females crowd around, their ears twitching and their hackles raised, glaring daggers at the males who dared to run after a random "slut" while they were also in heat. Ř𝖆ƝỒ₿Êṥ</p>
+<p>The other females crowd around, their ears twitching and their hackles raised, glaring daggers at the males who dared to run after a random "slut" while they were also in heat.</p>
 <p>Meanwhile, I'm having a full-blown nervous breakdown. My hands tremble, and sweat beads on my forehead. "Master told Blossom to bait a few monsters to the outpost…" I mutter frantically under my breath. "The fifty male werewolves were already way beyond the quota, but now… now there's an extra hundred and fifty females here too!"</p>
 <p>I swallow hard, feeling my heart trying to escape the confines presented by my chest as my ears droop low in shame. Blossom absolutely failed her most important mission. This wasn't supposed to happen! All because she got horny, she ruined the plan… Master… Blossom is so sorry…</p>
 <p>No matter how mighty the strongest humans might be, against these werewolf numbers they stand little chance. They will be overrun in a couple of minutes.</p>

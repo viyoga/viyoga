@@ -23,7 +23,7 @@ chapter = 706
 <p>"That elf looks tender enough. Always did prefer them over the dwarves. Less stringy."</p>
 <p>"You've got no taste for the gourmet stuff, brother! Dwarves stay in Elvardia, locked away in their smithies and breweries. They're the rarest type of meat."</p>
 <p>"Rare or not, I just want to eat tasty food. The fancy lords can have their dwarves."</p>
-<p>Laughter followed. A clawed hand reached through the bars, gripping a young man's jaw, tilting his head from side to side as if inspecting the quality of a fruit before purchase. The man didn't resist. He just stood there, eyes blank, accepting his fate. Ꞧ₳ＮοＢÈS</p>
+<p>Laughter followed. A clawed hand reached through the bars, gripping a young man's jaw, tilting his head from side to side as if inspecting the quality of a fruit before purchase. The man didn't resist. He just stood there, eyes blank, accepting his fate.</p>
 <p>Kitsara exhaled slowly, doing her utmost to steady her breath. She couldn't afford to look like a person who'd never seen such a sight before.</p>
 <p>Vargis was a protective father, but not so much that he would shelter this half-century-old woman from the knowledge that lionkin liked to farm humanoids for their meat. Be that as it may… &lt;I knew things like this existed… but seeing it for the first time with my own eyes is very difficult.&gt;</p>
 <p>&lt;Breath in and out, Kitsara. I'm here with you.&gt;</p>

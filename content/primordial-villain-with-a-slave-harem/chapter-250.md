@@ -41,7 +41,7 @@ chapter = 250
 <p>[Magic: 60 → 75]</p>
 <p>[Unused Skill Points: 9]</p>
 <p>[Unused Attribute Points: -]</p>
-<p>I enjoy fighting as a Wizard the most, and I've decided that I will pretend to be one during the trials, which means alongside my saber I'm also wielding a wand we bought since non-primordial Wizards do seem to need it to cast spells effectively. Back when we registered at the Adventurer's Guild when we were spying on Ian, Blossom's old owner, I showed myself as an Assassin. 𝙧άΝȰᛒÊ𝐒</p>
+<p>I enjoy fighting as a Wizard the most, and I've decided that I will pretend to be one during the trials, which means alongside my saber I'm also wielding a wand we bought since non-primordial Wizards do seem to need it to cast spells effectively. Back when we registered at the Adventurer's Guild when we were spying on Ian, Blossom's old owner, I showed myself as an Assassin.</p>
 <p>While it is certainly strange for a Wizard to have levels in such a class, it's not the end of the world, they will just think of me as a weirdo who enjoys the dual life of a killer and a mage should they come to learn that I can cast magic spells.</p>
 <p>Sadly this means I won't be able to use my [Power Strike] [Backstab] [Stealth] and such spells during the trials unless our lives are in danger or we are sure that no one is spying on us from the Consortium's side.</p>
 <p>Now, then, it's time to get rich- I mean go to Aldoria and get the items from the shopping list. I can't wait to have 35 gold- well, 25 in pure profit- in my hands. Together with Luke's charitable donation, we will be very close to hitting the 50 gold coin mark.</p>

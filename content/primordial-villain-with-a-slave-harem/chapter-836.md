@@ -31,7 +31,7 @@ chapter = 836
 <p>"With pleasure."</p>
 <p>Once the maid was laid gently back onto the bed, gagged with a strip of silk and swaddled in blankets to look unconscious, Quinlan unlocked the door from the inside before he jumped.</p>
 <p>This way, they would think that the bastard son was the one who bound her, should they open the door on her. They must’ve at least had an inkling that he was a rapist. As for where Renyuan could potentially be... Well, since the door was now open, he must’ve left somewhere in his rage, ignoring the ceremony and his mother’s summons.</p>
-<p>In a blink, Quinlan landed silently in the ceiling rafters with Feng on his back and dragged Renyuan’s limp body with his left hand. They vanished into the wooden maze above, navigating the beams. ṟἈＮꝋBЕS̈</p>
+<p>In a blink, Quinlan landed silently in the ceiling rafters with Feng on his back and dragged Renyuan’s limp body with his left hand. They vanished into the wooden maze above, navigating the beams.</p>
 <p>Their destination?</p>
 <p>The Jiai Treasury.</p>
 <p>The reason they’d dragged the limp weight of Renyuan with them was simple: access.</p>

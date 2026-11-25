@@ -38,7 +38,7 @@ chapter = 788
 <p>"…A hole?"</p>
 <p>"Mhm! A biiiiiig pit! And they've been punching and yelling in it for, like, hours!"</p>
 <p>"Hours?"</p>
-<p>"Rosie will show Daddy!" she declared, seating herself on my shoulder like a tiny queen. She wrapped her arms around my head for support and began dangling her legs against my chest. "Go that way!" RäɴȰᛒЁs</p>
+<p>"Rosie will show Daddy!" she declared, seating herself on my shoulder like a tiny queen. She wrapped her arms around my head for support and began dangling her legs against my chest. "Go that way!"</p>
 <p>She pointed dramatically, as if I couldn't already hear the violent symphony of curses, fists, and cracking bones echoing from the distance.</p>
 <p>Still, I humored her, acting like her royal chariot.</p>
 <p>We walked together, moving through the outskirts of the stronghold and past the mansion. The sounds of combat grew louder with every step, all the while Rosie was humming merrily as if we were going to watch a fun puppet play instead of a brutal brawl.</p>

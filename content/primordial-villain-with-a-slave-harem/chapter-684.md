@@ -31,7 +31,7 @@ chapter = 684
 <p>"Not much, truth be told," she murmured after getting comfortable. Her velvety voice carried the aura of timeless wisdom.</p>
 <p>"I believed your kind to have gone extinct from this world entirely. When I was born—just over one hundred and ten millennia ago—primordials existed only in myths, spoken of in bardic tales and whispered legends. Not once in my youth did I meet one, nor did anyone else. Throughout the centuries, I observed their names fading into near complete obscurity, as if time itself sought to erase them."</p>
 <p>She sighed, making the warmth of her breath tickle my scalp. "I would wager there are but a handful of souls left in this world who even remember what the word primordial once meant."</p>
-<p>"Phew…" I couldn't help but sigh with relief as the sudden and extremely heavy tension left my body, letting me breathe properly. She did not turn hostile, thank everything that is holy. Ɍ𝓪Ｎ𝘰𐌱ÊṦ</p>
+<p>"Phew…" I couldn't help but sigh with relief as the sudden and extremely heavy tension left my body, letting me breathe properly. She did not turn hostile, thank everything that is holy.</p>
 <p>As for her statement, it made sense. As far as I knew, the primordials were forced into that pact of theirs or whatever it was that bound them about a million years ago. Yoruha was old, but she was only a little girl compared to the real oldheads of Thalorind.</p>
 <p>"Daddy…" Rosie spoke up all of a sudden, grabbing our attention. Her tone was very shy, nervous even.</p>
 <p>"Yes?" I gave her a reassuring pat on her trunk, letting my warmth seep into her.</p>

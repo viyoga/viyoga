@@ -29,7 +29,7 @@ chapter = 943
 <p>Jasmine, still listening from her dim prison, whispered so softly it almost got lost in the connection:</p>
 <p>&lt;...Thank you, Vex.&gt;</p>
 <p>The Hexwitch tilted her head to the side with a soft smile blooming on her lips.</p>
-<p>&lt;Dont be silly. I might want to monopolize Quin all to myself from time to time, but Im also a proud member of the Elysiar gang. I fully accept you girls as my sisters, and let it be known that Id rather die than abandon any of you.&gt; R̃àΝộ𐌱Ě𝙎</p>
+<p>&lt;Dont be silly. I might want to monopolize Quin all to myself from time to time, but Im also a proud member of the Elysiar gang. I fully accept you girls as my sisters, and let it be known that Id rather die than abandon any of you.&gt;</p>
 <p>Next, her tender tone hardened, becoming cold and resolute:</p>
 <p>&lt;And if Black Fang refuses for one reason or another, Ill dig up your mothers location myself. I have my own web of ears. Ill find her.&gt;</p>
 <p>Quinlan met her eyes then. There was no raging, wrathful inferno boiling in his gaze this time. Only gratitude. Pure, raw affection radiated from his elemental eyes.</p>

@@ -34,7 +34,7 @@ chapter = 848
 <p>It was Serika.</p>
 <p>Wearing nothing but black underwear and a lazy smile.</p>
 <p>Dragging a struggling, red-faced Feng behind her like a mother lugging an unwilling child to the doctor.</p>
-<p>"I said no!" Feng hissed while kicking her feet on the grassy ground. She tried to hold the woman back with all her might, but her results were rather lackluster. Serika moved like she didn’t even feel her resistance. As such, Feng was forced to shout once again. "This is indecent! He’s naked!" ＲäꞐ∅𝔟Èȿ</p>
+<p>"I said no!" Feng hissed while kicking her feet on the grassy ground. She tried to hold the woman back with all her might, but her results were rather lackluster. Serika moved like she didn’t even feel her resistance. As such, Feng was forced to shout once again. "This is indecent! He’s naked!"</p>
 <p>Serika blinked, utterly unfazed. "We’re just taking a bath."</p>
 <p>"Yeah, together! While being naked! A grown man and a woman! That’s the indecent part!" ƒ</p>
 <p>"Calm down, Feng Jiai. You’ll scare the poor animals."</p>

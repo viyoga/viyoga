@@ -28,7 +28,7 @@ chapter = 813
 <p>Stolen from its original source, this story is not meant to be on Amazon; report any sightings.</p>
 <p>Camelia turned toward the entrance of the chapel, lifting her staff.</p>
 <p>“Bring forth the groom.”</p>
-<p>The doors at the rear opened, and Sol, clad in his regal, flowing black robe, entered the room— a confident smile on his face and his stride matched that emotion. ȐÂŊꝋ฿Еṩ</p>
+<p>The doors at the rear opened, and Sol, clad in his regal, flowing black robe, entered the room— a confident smile on his face and his stride matched that emotion.</p>
 <p>His appearance was his normal human self. No horns nor the reptilian eyes that announced his draconic heritage.</p>
 <p>Now, that did not mean he was rejecting his draconic heritage now. No, it was a more fundamental reason, a change in his very nature itself, as now, there was simply no difference between his human and draconic appearances.</p>
 <p>As Sol Dragona Luxuria stepped into the chapel, the air seemed to have shifted instantly.</p>

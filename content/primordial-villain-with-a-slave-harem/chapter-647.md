@@ -34,7 +34,7 @@ chapter = 647
 <p>"If I don't stop, I'll drown in pussy juice."</p>
 <p>"So crude! I'm still a princess, you know?! You should treat me like a noble lady."</p>
 <p>"I'll treat you as if you were my woman, Kitsara, because that's exactly what you are. Nothing more, nothing less."</p>
-<p>Upon her brain registering my words, a jolt of electricity traveled from the top of her spine all the way to her toes as she trembled uncontrollably for a moment. 𝙍𝓪ꞐÔBƐȿ</p>
+<p>Upon her brain registering my words, a jolt of electricity traveled from the top of her spine all the way to her toes as she trembled uncontrollably for a moment.</p>
 <p>Then, without warning, I flexed my arms and launched her skyward again.</p>
 <p>Her startled yelp melted into delighted laughter as she soared upward with her fluffy tail fluttering like a banner behind her. The wind caught her, lifting her lithe body even higher.</p>
 <p>I reached for my own attire.</p>

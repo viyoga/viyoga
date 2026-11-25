@@ -32,7 +32,7 @@ chapter = 114
 <p>"105 kilograms." she announces, her voice steady and filled with pride as she continues to carry me with ease.</p>
 <p>Just as Ayame begins to lower me back to the ground, Blossom suddenly bursts out, her voice filled with excitement, "Blossom wants to carry Master too!"</p>
 <p>There's no mention of measuring my weight- she just wants to hold me, her enthusiasm clear in both her voice and the eager wag of her tail.</p>
-<p>So far, I've been the one who enjoyed exclusive dominance in our relationship, I can afford to indulge her for a bit. Blossom is so submissive anyways that I know this won't get into her head, she literally just finds it fun and wants to play with me. 𝙧äƝȎ𝔟ËꞨ</p>
+<p>So far, I've been the one who enjoyed exclusive dominance in our relationship, I can afford to indulge her for a bit. Blossom is so submissive anyways that I know this won't get into her head, she literally just finds it fun and wants to play with me.</p>
 <p>"Sure, but only for a few minutes. We really should start our day if we want to leave the city today.</p>
 <p>"Okay!"</p>
 <p>I then spent the next ten minutes of my life in the arms of my new dashing prince who couldn't stop herself from merrily giggling throughout the entirety of the act.</p>

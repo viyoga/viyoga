@@ -32,7 +32,7 @@ chapter = 706
 <p>It didn’t take them long to understand that the elves did not actually need saving and that their screams were certainly not screams of pain. Far from it.</p>
 <p>“I did not think I would ever witness Lady Kiyohime in such a shameful position. Also, why use that hole? What kind of sordid acts is he teaching her? ” Satella covered her eyes, feeling like the faith and illusions she held of her queen's lofty figure were being crumbled into dust.</p>
 <p>It was one thing to watch her idol lose against another dragon. It was another to witness said idol lick the phallus of a man with utter delight. Then kneel before opening her own butt for him to penetrate her asshole.</p>
-<p>Such actions were incomprehensible for Satella. However, the obvious look of delight and pleasure Kiyohime was showing was proof enough that she was not being coerced into something she did not want. 𝔯ἈɴＯ𐌱Ę𝐬</p>
+<p>Such actions were incomprehensible for Satella. However, the obvious look of delight and pleasure Kiyohime was showing was proof enough that she was not being coerced into something she did not want.</p>
 <p>“Ugh…” She groaned while trying to control her pounding heart. Satella was not ignorant about sex. She had even been courted many times before. The ones courting her simply lost and thus were not able to become her mate.</p>
 <p>Because of their large lifespan, elves in general were pretty direct when it came to union.</p>
 <p>Weddings in themselves were pretty rare. However, when it happened, elves would stay loyal to their spouses for life no matter what outside of such sacred union made under the blessing of a world tree. It wasn’t rare for two elves to simply join in order to conceive and then break up.</p>

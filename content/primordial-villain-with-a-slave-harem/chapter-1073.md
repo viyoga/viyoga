@@ -25,7 +25,7 @@ chapter = 1073
 <p>Before he could ask what she meant, her warmth slipped away. Only her ominous parting words remained, echoing in the hollow spaces she left behind.</p>
 <p>Quinlan blinked his eyes open.</p>
 <p>The warmth that had been pressing against his mind vanished, leaving him feeling strangely hollow, and only then did he notice the strained air in the courtyard.</p>
-<p>Dozens of feminine gazes were fixed on him. His lovers, as well as Feng, Felicity, and Rosie, stared intently, their expressions full of worry and confusion. The maids weren’t much better, whispering in hushed voices, glancing at him as if they were worried he might collapse any second. ȑÄΝ𝔬₿È𝐒</p>
+<p>Dozens of feminine gazes were fixed on him. His lovers, as well as Feng, Felicity, and Rosie, stared intently, their expressions full of worry and confusion. The maids weren’t much better, whispering in hushed voices, glancing at him as if they were worried he might collapse any second.</p>
 <p>Quinlan hadn’t even realized what was happening around him. He’d been so absorbed in what was happening in his head that the world had blurred away.</p>
 <p>"Daddy!" Rosie zipped around his head. She circled once, twice, three times, eyes wide and frantic as she scanned him from every angle.</p>
 <p>"Nothing... nothing, nothing, nothing..." she muttered, sounding more desperate each time the word left her mouth. Finally, she floated up to his forehead and gave it a few sharp, rapid taps with her little palm. "Rosie sees nothing wrong! But Daddy is visibly in pain!"</p>

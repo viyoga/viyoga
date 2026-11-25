@@ -27,7 +27,7 @@ chapter = 458
 <p>"Some of you are still standing, huh. Monsters are truly no joke, I really want to see how your stat windows look. If you have one that is…"</p>
 <p>I raised my hand to the sky and flames began coiling around my arm like a serpent ready to strike. Heat radiated outward as my mana surged.</p>
 <p>"[Pyroclasm Burst]!"</p>
-<p>The flames erupted violently from my core, expanding in a searing ring of crimson fire that swept outward in all directions. The shockwave detonated with a thunderous roar after which a tidal wave of flame rolled across the already devastated battlefield. ɽÁΝＯ𐌱Ë𝒮</p>
+<p>The flames erupted violently from my core, expanding in a searing ring of crimson fire that swept outward in all directions. The shockwave detonated with a thunderous roar after which a tidal wave of flame rolled across the already devastated battlefield.</p>
 <p>Monsters caught in its path were obliterated. The flames consumed everything - fur, flesh, armor, weapons - all reduced to ash in a heartbeat. The weaker beasts didn't even have time to scream as I forcefully removed them from existence. The stronger ones fared just a little better. Those lucky enough to survive the flames were sent flying into molten pits or fractured craters.</p>
 <p>The firestorm swept through a good portion of the arena in the form of a wave of absolute devastation. Even the contestants clinging to life on the fringes of my range were caught in the blast. Before they could die, however, the strange artifact of the Consortium blinked them to safety in flashes of light, leaving only their charred weapons or gear behind as evidence of them having been here.</p>
 <p>I inhaled deeply with satisfaction.</p>

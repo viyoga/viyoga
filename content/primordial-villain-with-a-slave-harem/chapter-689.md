@@ -57,7 +57,7 @@ chapter = 689
 <p>Ayame's fingers clenched into fists.</p>
 <p>…</p>
 <p>Iris awoke to fire and death.</p>
-<p>The air was thick with rot and decay; the scent of charred flesh and smoldering metal assaulted her nostrils. The battlefield stretched endlessly before her. Even calling it a battlefield was generous. In reality, it seemed more like a ruined graveyard full of shattered weapons and desecrated corpses. 𝑅ÁＮổᛒЁS</p>
+<p>The air was thick with rot and decay; the scent of charred flesh and smoldering metal assaulted her nostrils. The battlefield stretched endlessly before her. Even calling it a battlefield was generous. In reality, it seemed more like a ruined graveyard full of shattered weapons and desecrated corpses.</p>
 <p>And then…</p>
 <p>A sound.</p>
 <p>A horrible, wet gurgling.</p>

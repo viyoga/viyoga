@@ -31,7 +31,7 @@ chapter = 550
 <p>&lt;The reason you’re acting so adorably.&gt;</p>
 <p>&lt;Is everything I do adorable to you? I’m displeased and thus irritated, not adorable!&gt;</p>
 <p>My noble samurai was just so cute. I understood what the issue was.</p>
-<p>I reached for her hand, and we treaded the path toward the entrance of Shadowhold hand in hand. She let go an adorable growl, &lt;… Quinlan? What are you doing? You know the forest is infested by greenskin monsters, right? We have to be ready at all times.&gt; ⱤÂꞐŏＢËᶊ</p>
+<p>I reached for her hand, and we treaded the path toward the entrance of Shadowhold hand in hand. She let go an adorable growl, &lt;… Quinlan? What are you doing? You know the forest is infested by greenskin monsters, right? We have to be ready at all times.&gt;</p>
 <p>&lt;I finally see the issue. You’d been helping me the most out of all my women, yet I was neglecting you. I kept flirting with Jasmine and Seraphiel as well as the others in the harem while you were off doing your utmost to make Miri Town into a respectable settlement and not a complete administrative disaster.&gt;</p>
 <p>She scoffed once again, &lt;Hmph! Don’t be so presumptuous; I’m not clingy like the others. My world doesn’t revolve around you 24/7 - I’m my own person.&gt;</p>
 <p>&lt;I see. So Miss Independent would say no to a private date just between the two of us? I have to correct my mistake by showering you with my endless affection.&gt;</p>

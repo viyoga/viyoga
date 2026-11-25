@@ -24,7 +24,7 @@ chapter = 556
 <p>I looked at the woman with a wry smile hidden by my mask. Ambrosia sat behind her polished mahogany desk.</p>
 <p>Her appearance radiated a strong mix of feminine charms and pure malevolence. She wore a fitted cheongsam-style dress; it was of a pristine white color with intricate black and red floral patterns climbing along the fabric like creeping vines.</p>
 <p>Her platinum-white hair was framing her face, and the soft waves of her hair served as a sharp contrast against her piercing, blood-red eyes.</p>
-<p>Just like the three disciples, she was also tattooed. Well, to be fair, I didn’t know if Vex was, as she tended to wear kendo-style clothes that hid her skin below the neck level. ŔÂℕÔꞖЁṨ</p>
+<p>Just like the three disciples, she was also tattooed. Well, to be fair, I didn’t know if Vex was, as she tended to wear kendo-style clothes that hid her skin below the neck level.</p>
 <p>However, I wouldn’t be surprised if she had tattoos; she seemed to be like a woman who would get inked just because her ’sisters’ were inked too.</p>
 <p>Thus, I believed all of Black Fang’s disciples were not mere baddies but inked baddies.</p>
 <p>(Picture)</p>

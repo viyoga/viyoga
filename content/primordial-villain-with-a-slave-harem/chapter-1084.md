@@ -28,7 +28,7 @@ chapter = 1084
 <p>"And it’s all because of him...! Ahahaha!" With her hands above her heart, Vex’s entire body trembled. "I love him so much I can’t bear it!! It physically hurts!!!"</p>
 <p>She ground her hips shamelessly against the silver construct she rode, shaking with her manic fervor from head to toe.</p>
 <p>The women around the Hexwitch stared in a wave of deadpan looks that locked onto the display. For a moment, the only sound was the wind whistling past.</p>
-<p>Then, one by one, muffled giggles started to slip through. Serika shook her head with a helpless smile while Lucille covered her lips to stifle a laugh, and even Ayame’s cheeks puffed as she fought to keep her composure. 𝙍á𝐍ộΒĘş</p>
+<p>Then, one by one, muffled giggles started to slip through. Serika shook her head with a helpless smile while Lucille covered her lips to stifle a laugh, and even Ayame’s cheeks puffed as she fought to keep her composure.</p>
 <p>Because no matter how insane Vex was, her words rang true. They were making history today.</p>
 <p>And that truth painted every face with the same thing: contentment with what they already had, and excitement toward all that they would have in the future.</p>
 <p>"Vexie will fall off her ride if she keeps... doing what she is doing..." Jasmine shook her head with a chuckle.</p>

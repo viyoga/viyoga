@@ -31,7 +31,7 @@ chapter = 506
 <p>"Didn’t you just say it was for saving your life?" Lilith grumbled annoyedly.</p>
 <p>"Is your life only worth 30 gold? Kekeke!" Scar, the rogue of the group snickered.</p>
 <p>"No… but now that I think about it… my life wasn’t even in danger…"</p>
-<p>"You were bleeding from hundreds of wounds and the horde was about to tear you apart! Bahaha!" It was the tanker who rebutted Void as she began laughing boisterously. 𝘙ÄꞐÓΒΕṥ</p>
+<p>"You were bleeding from hundreds of wounds and the horde was about to tear you apart! Bahaha!" It was the tanker who rebutted Void as she began laughing boisterously.</p>
 <p>"… Lies…"</p>
 <p>"Sigh, leave this shameless woman alone, she will never spend so much on anyone but herself…" Lilith murmured.</p>
 <p>"… Very ugly lies…"</p>

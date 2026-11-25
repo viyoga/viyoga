@@ -33,7 +33,7 @@ chapter = 533
 <p>"Alright."</p>
 <p>I reached into my storage ring and retrieved a simple hourglass. "Each of us gets ten minutes to do as we please with the other before our turn ends. If no orgasm happens, no point will be gained."</p>
 <p>Seraphiel swallowed hard with her cheeks turning rosy red before nodding her understanding and acceptance.</p>
-<p>"Kya!" she squealed as I scooped her into a princess carry and brought her to the large bed where I placed her down and flipped the hourglass on its head; my ten minutes had begun. Ṛ𝓪₦𝙤ΒÈŝ</p>
+<p>"Kya!" she squealed as I scooped her into a princess carry and brought her to the large bed where I placed her down and flipped the hourglass on its head; my ten minutes had begun.</p>
 <p>I sat down beside the bashful elf and saw her eyes darting between my hands and face as she lay on the bed, eager to see where I would begin.</p>
 <p>There was no need to deliberate on how I’d spend my first ten minutes. Though she was dressed in what could only be considered proper clothing for an elf, their concept of "proper" left one part of the body tantalizingly bare. My eyes naturally drifted to that exposed, vulnerable spot: her feet.</p>
 <p>I wasn’t a foot person - or so I’d always thought - but elves were a different breed entirely. Their feet were free of imperfections or grime despite endless travels through forests thanks to its magical nature.</p>

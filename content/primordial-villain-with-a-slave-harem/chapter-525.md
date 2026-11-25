@@ -28,7 +28,7 @@ chapter = 525
 <p>"He is?" Jasmine asked at the same time I did.</p>
 <p>"I don’t understand this new generation… So brazen and shameless." Sylvaris sighed dramatically.</p>
 <p>"Lose your droopy eyes, I’m not in the mood for this pretend play of yours," Seraphiel announced annoyedly.</p>
-<p>"I risk everything for my daughter and this is the ungrateful treatment I receive… Can you believe it?" The recipient of her question was none other than me. řＡΝȯʙÊṡ</p>
+<p>"I risk everything for my daughter and this is the ungrateful treatment I receive… Can you believe it?" The recipient of her question was none other than me.</p>
 <p>"No, I can’t. You’re being too harsh on your mother. Very few people would have the bravery to do what she did for their children."</p>
 <p>My statement received a strong pout and eyes that spoke volumes of her perceived betrayal, but then Sera sighed and went to hug her mother. "Thank you, Mom… You’re the best."</p>
 <p>"I know." Sylvaris’ words might’ve been arrogant, but her tone was anything but. She hugged her daughter close to herself and her voice cracked due to her strong feelings of relief.</p>

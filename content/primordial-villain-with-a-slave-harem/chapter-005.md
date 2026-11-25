@@ -26,7 +26,7 @@ chapter = 5
 <p>He's saying 10 bronze, not 1 silver- my fears are confirmed. I have 24 bronze and 2 silver coins if I pay the entrance tax. Should be enough to get by for a while.</p>
 <p>I don't press further; guards are trained to sniff out trouble. I pay and receive my certificate. It's not a parchment but a touch on my hand. After which, I get the notification,</p>
 <p>[Lifelong personal entrance permit to the city of Aldoria received.]</p>
-<p>They then inform me that I only need to present my arm, and a guard will use an artifact to embed the entry permit in my system. I wondered how many people lose their certificates and pay this exorbitant entrance fee multiple times, but it seems they found a neat solution as you can't exactly lose this type of permit. Ɍ𝔞ŊŏᛒƐȘ</p>
+<p>They then inform me that I only need to present my arm, and a guard will use an artifact to embed the entry permit in my system. I wondered how many people lose their certificates and pay this exorbitant entrance fee multiple times, but it seems they found a neat solution as you can't exactly lose this type of permit.</p>
 <p>I really shouldn't underestimate the inhabitants of this world.</p>
 <p>...</p>
 <p>[Apologies for the shorter chapter, I've decided to cut some content to make the story flow better.]</p>

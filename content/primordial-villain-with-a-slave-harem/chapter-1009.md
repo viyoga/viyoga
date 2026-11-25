@@ -55,7 +55,7 @@ chapter = 1009
 <p>"That I myself might be curious?"</p>
 <p>Quinlan’s heartbeat picked up.</p>
 <p>"What if I choose to unearth everything about you?"</p>
-<p>"To turn over every stone, call upon every seer, press every noble, perhaps even bring in my most talented torturers until your secrets bleed into the light?" R̃ἁ₦Ȏ₿Ëṥ</p>
+<p>"To turn over every stone, call upon every seer, press every noble, perhaps even bring in my most talented torturers until your secrets bleed into the light?"</p>
 <p>There was no outburst of mana. No physical escalation. But the threat in those simple words was suffocating.</p>
 <p>Quinlan wanted to leave the palace, the capital, perhaps even the country itself. Go anywhere this creature can’t find him. .</p>
 <p>Not by walking away, neither by excusing himself. His heart told him to just make a mad dash for the exit and not look back.</p>

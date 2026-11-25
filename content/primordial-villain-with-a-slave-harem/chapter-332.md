@@ -24,7 +24,7 @@ chapter = 332
 <p>It might sound like she was vulnerable during the process, but it only took a few moments from start to finish, and the plant didn’t seem to be feeble at all. I bet it could withstand some good hits.</p>
 <p>With a final radiant flare, the petals peeled back to reveal a woman stepping out gracefully from within.</p>
 <p>Damn, Black Fang is surrounded by absolute bombshells. Now I’m truly curious to see how the big boss herself looks. I wonder if the master was outshone by her disciples in the beauty department or if she is some truly otherworldly woman, as she would have to be a near-divine entity to have a fighting chance against this trio.</p>
-<p>I turned my attention to the newest arrival. The girl sported a very delicate appearance, being by far the most fragile-looking of the three disciples. ꞦÄŊ𝔬ᛒЕs̈</p>
+<p>I turned my attention to the newest arrival. The girl sported a very delicate appearance, being by far the most fragile-looking of the three disciples.</p>
 <p>She had gorgeous pink hair and her head was adorned with intricate floral ornaments as well as colorful ribbons. Her attire was beautifully patterned. It was an oriental-style robe featuring floral motifs, flowing sleeves, and a decorative belt tied at her waist.</p>
 <p>However, her robe opened up above her waist, revealing her gorgeous, fair-skinned back that was tattoed just like Raika’s, though it featured other depictions. Her gaze was intense and her posture exuded extreme grace.</p>
 <p>(Picture)</p>

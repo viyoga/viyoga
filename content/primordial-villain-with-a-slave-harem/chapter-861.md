@@ -32,7 +32,7 @@ chapter = 861
 <p>"Be water?” Serika finished for her. She smiled. “It’s rare, but not impossible. There are children born with powerful elemental bloodlines who end up manifesting an affinity outside of it. Call it spiritual drift, or fate, or just cruel irony. Nalai was one of those few.”</p>
 <p>Feng nodded slowly. “I figured it had to be something like that. But</p>
 <p>She glanced again at the arena, where Nalai now stepped calmly across the marble floor like a tide measuring the shore.</p>
-<p>"How did she become a Sovereign in a foreign nation? Someone like Lord Rykar letting his daughter go off and study water cultivation sounds… insane. His daughter would be immediately captured and used as blackmail material.” Ṙ𝔞₦οᛒΕṣ</p>
+<p>"How did she become a Sovereign in a foreign nation? Someone like Lord Rykar letting his daughter go off and study water cultivation sounds… insane. His daughter would be immediately captured and used as blackmail material.”</p>
 <p>Serika didn’t respond for a moment.</p>
 <p>Then she sighed. It wasn’t her usual loud or dramatic breath. This one was soft. Quiet. Almost regretful.</p>
 <p>"You’re right. It was insane. And dangerous. When it became clear Nalai’s qi was water-aligned, Father had two options. Let her stay in Vulkaris and try to cultivate with whatever little help he could find for her, which, trust me, would’ve been pathetic. Or</p>

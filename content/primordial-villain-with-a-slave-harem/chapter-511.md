@@ -24,7 +24,7 @@ chapter = 511
 <p>&lt;Who do you think I am, Seraphiel? There’s no need for you to plead, neither will you have to give me anything in return. I wanted to introduce myself to my mother-in-law anyway."</p>
 <p>&lt;Hmph… Thank you…&gt; I’d never heard this happen before, but she was crying into my mind.</p>
 <p>The wrenching of my heart due to her fright was more than enough to steel my resolve.</p>
-<p>Her mother, meanwhile, held herself tall, despite the chains and the humiliation. She looked over the crowd with a cold, defiant gaze, refusing to let them see her pain. This woman was the embodiment of my idea of ’elven nobility’. My perpetually mischievous healer didn’t quite manage to deliver on the serenity I had in my mind when I thought of a noble elven woman. 𐍂åℕồꞖƐ𐌔</p>
+<p>Her mother, meanwhile, held herself tall, despite the chains and the humiliation. She looked over the crowd with a cold, defiant gaze, refusing to let them see her pain. This woman was the embodiment of my idea of ’elven nobility’. My perpetually mischievous healer didn’t quite manage to deliver on the serenity I had in my mind when I thought of a noble elven woman.</p>
 <p>However, Sylvaris’, Seraphiel’s mother’s eyes continued their scanning of the crowd until they landed on us, namely on the babe sitting comfortably on my right thigh.</p>
 <p>&lt;Shit! Quickly, signal her not to react!&gt; I shouted into Sera’s mind.</p>
 <p>Seraphiel right now was just a no-name sex slave. If the slavers knew of Sylvaris’ noble background and learned that my slave was her daughter, it wouldn’t be overly difficult to track her down and potentially even ruin my Lord Black persona, since I legally owned Seraphiel under the name Quinlan Noir.</p>

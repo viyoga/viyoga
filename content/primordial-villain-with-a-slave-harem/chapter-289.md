@@ -36,7 +36,7 @@ chapter = 289
 <p>&lt;Master, Blossom won't dislike Master even if Master wants to explore…&gt; My beloved dog-kin said in a supportive tone.</p>
 <p>Aurora and Lucille were not my slaves so they couldn't join in. Thankfully.</p>
 <p>"I didn't mean it that way. Just a slight slip of the tongue. You all should know which way I swing very well." I rushed in to clarify.</p>
-<p>Jasmine for some reason had an energetic, happy smile on her face. "So that's why my seduction attempts weren't working. I see things clearly now. I'll let Aurelion know that he should start looking for pretty skirts and hair removal products. I got your back, Devil. You can count on me." She said with a playful wink. R̃ÃΝꝋ𝐁Ɛṣ</p>
+<p>Jasmine for some reason had an energetic, happy smile on her face. "So that's why my seduction attempts weren't working. I see things clearly now. I'll let Aurelion know that he should start looking for pretty skirts and hair removal products. I got your back, Devil. You can count on me." She said with a playful wink.</p>
 <p>Yikes.</p>
 <p>The joke was not funny at all, so I was very glad when the ladies got over it, and especially when Jasmine left the building, letting us breathe a bit.</p>
 <p>I debated about going home for a while, but it would've been stupid. I don't plan on using the Warp Gate when we're this deep in Consortium territory unless absolutely necessary. They might be able to sense it somehow, or just simply come and check on me like Wrinkle did, and find the house empty. That would be rather awkward.</p>

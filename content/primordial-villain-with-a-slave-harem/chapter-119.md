@@ -28,7 +28,7 @@ chapter = 119
 <p>What. The. Fuck.</p>
 <p>What a horrible adventurer team name.</p>
 <p>This Broderick dude has some serious issues in multiple aspects.</p>
-<p>Hold the phone for a second, did she just say mithril?! The third highest rank on the ladder? The guy with a fat fetish and his morbidly obese wives? Did I cum so much in Blossom that I'm hallucinating? This has to be a fever dream… ṚάNŏ₿Ě𝓢</p>
+<p>Hold the phone for a second, did she just say mithril?! The third highest rank on the ladder? The guy with a fat fetish and his morbidly obese wives? Did I cum so much in Blossom that I'm hallucinating? This has to be a fever dream…</p>
 <p>Marjorie shifts her bulk, causing the earth beneath us to tremble slightly. "We accepted an Orc subjugation quest out of Braedon," she explains, her voice brimming. "But I had a bit too much greasy food for breakfast... and, well, nature called."</p>
 <p>A bit too much?</p>
 <p>"I had to take care of business in the bushes," she continues, waving a hand toward the forest. "Unfortunately, it took longer than expected- about an hour, give or take. I suppose I overindulged at breakfast."</p>

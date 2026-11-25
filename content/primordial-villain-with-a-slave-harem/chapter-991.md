@@ -24,7 +24,7 @@ chapter = 991
 <p>The green girl blinked. "Me?"</p>
 <p>"Yes, you. I wouldn’t know what name would suit someone like her... After all, we only ever had humans in Zhenwu. But she’s something new to me, just like you are. Something fairy-like. What would fit a being like her in your opinion?"</p>
 <p>Rosie’s eyes lit up like a lantern.</p>
-<p>She leapt to her feet, still on Quinlan’s shoulders, and struck a dramatic thinking pose, stroking her chin at lightning speed, so fast it began to generate a visible haze of friction. "Hmmmm..." ℟ã𐌽Ǒ𝔟Èᶊ</p>
+<p>She leapt to her feet, still on Quinlan’s shoulders, and struck a dramatic thinking pose, stroking her chin at lightning speed, so fast it began to generate a visible haze of friction. "Hmmmm..."</p>
 <p>Then, *snap!* she pointed a triumphant finger at the little fairy girl.</p>
 <p>"Forget-Me-Not!"</p>
 <p>Everyone stared at her.</p>

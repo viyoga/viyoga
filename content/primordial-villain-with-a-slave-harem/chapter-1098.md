@@ -29,7 +29,7 @@ chapter = 1098
 <p>The man stumbled to obey, legs shaking violently beneath him, caught between terror and despair as he realized he was about to be dragged into a nightmare worse than anything he could have imagined.</p>
 <p>...</p>
 <p>Teral’s premonition came to be right on the money.</p>
-<p>His arms were stretched wide, nailed into the beams of a wooden cross. His legs were pinned the same way, iron driven through flesh and bone to keep him upright, no matter how much he sagged under the agony. A strip of cloth was tied tightly around his head, blindfolding him. His ears were plugged with enchanted wax, blocking even the faintest sound. ℞аΝòᛒËṦ</p>
+<p>His arms were stretched wide, nailed into the beams of a wooden cross. His legs were pinned the same way, iron driven through flesh and bone to keep him upright, no matter how much he sagged under the agony. A strip of cloth was tied tightly around his head, blindfolding him. His ears were plugged with enchanted wax, blocking even the faintest sound.</p>
 <p>And still, Quinlan wasn’t satisfied.</p>
 <p>The air around Teral thickened, becoming a dome of compressed wind that closed in until it sealed him away from the rest of the room. He would not even breathe the same air as the naked woman pressed against Quinlan’s chest. His hatred burned too brightly, too hot, for him to allow even that small contamination.</p>
 <p>Never again.</p>

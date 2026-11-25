@@ -22,7 +22,7 @@ chapter = 217
 <p>I was so happy that I could dress up again for the first time in decades that I overdid it. Not that the feast was lackluster, not at all, I just remembered the fancy balls of my childhood and wanted to relive the good memories. I think.</p>
 <p>*Sigh*</p>
 <p>I'm happy that at least I didn't try to seduce Quinlan in my desperation, that would've been the lowest point of my adult life.</p>
-<p>Not at all because he is an unsightly man that I find appalling, but because I'm a married woman who is older than him by 15 years… At least if we go by looks. You can never truly tell with combatants. However, what really matters are appearances. They dictate human perception, first impressions, and general opinions. 𝘙ἈNǒᛒÊ𝘚</p>
+<p>Not at all because he is an unsightly man that I find appalling, but because I'm a married woman who is older than him by 15 years… At least if we go by looks. You can never truly tell with combatants. However, what really matters are appearances. They dictate human perception, first impressions, and general opinions.</p>
 <p>He probably thinks of me as some old wench, even if he himself is the older one in reality.</p>
 <p>Maybe I should try to get him to accept Mavena into his harem. She would have a chance to escape this life at least. But, then again, she isn't someone who would happily leave Robert, me and the inn behind, especially not to go with a group of combatants.</p>
 <p>*Sigh*</p>

@@ -31,7 +31,7 @@ chapter = 440
 <p>"Granted. If someone tries to force themselves on you, turn the bastard into a woman. I know that for some reason, the women of Thalorind just love cutting jewel sacks off of men, so I'm sure you'll feel right at home."</p>
 <p>"!!!"</p>
 <p>"I would like to read books!" Liora decreed shyly while blinking rapidly at Quinlan as if she were a begging puppy.</p>
-<p>"Stop looking at me like that, woman. Are you trying to give me a heart attack? You can get your books. In fact, all of you will get a monthly salary of thirty silver, you can spend it on whatever fancies your interest. But I'm a bit strapped for cash at this point in time, so this will only come into effect at the end of next month." ꞦΆＮοꞖĘʂ</p>
+<p>"Stop looking at me like that, woman. Are you trying to give me a heart attack? You can get your books. In fact, all of you will get a monthly salary of thirty silver, you can spend it on whatever fancies your interest. But I'm a bit strapped for cash at this point in time, so this will only come into effect at the end of next month."</p>
 <p>"Kyaaa!!!" Liora shouted victoriously while she was pumping her hands toward the air.</p>
 <p>"What about equipment?"</p>
 <p>"You will get whatever you need to be most effective, within reason of course. As I said before, we have an alchemist, so potions will not be an issue. We also have an Epic-classed artificer, I hope to set her up with a smithy in the coming days so that she can begin producing her masterpieces."</p>

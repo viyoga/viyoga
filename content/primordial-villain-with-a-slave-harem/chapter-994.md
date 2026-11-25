@@ -25,7 +25,7 @@ chapter = 994
 <p>"Wipe that amused grin off your face. I believe this might be a good opportunity to learn more, maybe my revenge can progress one step. The Ravenshade duke should be there. I don’t plan to talk with him, but perhaps just looking at the man will tell me if he’s affiliated with the scums of the Covenant of Eternity, whom I expect to be behind my family’s demise..."</p>
 <p>It wasn’t the most airtight reasoning.</p>
 <p>In fact, it was flimsy as hell.</p>
-<p>But no one called her out on it. Because beneath the cold logic, it revealed something real: how deeply the death of her little brother still burned within her. She’d follow even the faintest trail of smoke, make use of even the minutest of opportunities, hoping it led back to the fire that destroyed her world. R𝐀𝐍Ȱ฿Ęṡ</p>
+<p>But no one called her out on it. Because beneath the cold logic, it revealed something real: how deeply the death of her little brother still burned within her. She’d follow even the faintest trail of smoke, make use of even the minutest of opportunities, hoping it led back to the fire that destroyed her world.</p>
 <p>Quinlan gave a sigh and reached out, intent on giving her a gentle pat. "Sure. I’d be glad to have you-"</p>
 <p>But before he could reach her scalp, his head was swatted away, accompanied by an icy glare. "No headpats."</p>
 <p>"... Can’t blame a man for trying. But, dearest Iris, you know the invitation was for me and my wives, right? I’m not sure how they’d react if I asked them to let in my warrior friend as well."</p>

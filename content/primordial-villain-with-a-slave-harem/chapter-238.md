@@ -30,7 +30,7 @@ chapter = 238
 <p>"Don't worry about it, Boss. As long as the food is great, all will be perfect!"</p>
 <p>"I don't know if I can fully agree with my colleague."</p>
 <p>"Let's go in, time to eat finally. Anna, Beatrice, the food is ready I hope."</p>
-<p>The two girls have been vividly observing our two newcomers and even showed a hint of dislike towards Iselda for dissing their savior's current lodgings. I can't fault the woman, though. She is a luxury home designer after all, and this one is just straight-up shit if we're being honest. It almost collapsed when I was poking Blossom's womb with my lance a few days ago. ᚱἁ₦ồ₿ΕṠ</p>
+<p>The two girls have been vividly observing our two newcomers and even showed a hint of dislike towards Iselda for dissing their savior's current lodgings. I can't fault the woman, though. She is a luxury home designer after all, and this one is just straight-up shit if we're being honest. It almost collapsed when I was poking Blossom's womb with my lance a few days ago.</p>
 <p>"Yes, Lord Quinlan! We worked as diligently as we could on your dishes, but please consider that we've just begun our training under the innkeeper family's guidance." Anna replied worriedly to my sentence.</p>
 <p>I know that they did their best, and that's what truly matters. Expertise will come with experience.</p>
 <p>We then had a hearty meal afterward in the common room this time, as things would've gotten way too cramped in our room. Afterward, it was time to introduce everyone to each other, to clarify who exactly they were working for, and to hear the twin's story about the father who sold them into child prostitution, and the gang that is probably still waiting for us to come out of the labyrinth's gate.</p>

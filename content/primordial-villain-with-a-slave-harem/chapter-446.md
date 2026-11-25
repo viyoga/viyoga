@@ -31,7 +31,7 @@ chapter = 446
 <p>&lt;Master is so good at getting the crowd going! Blossom's heart is beating so fast!&gt; I heard my adorable dog-girl decree with childlike excitement.</p>
 <p>&lt;He certainly has a way… His enemy is a nobody who doesn't even want to fight.&gt; Ayame murmured.</p>
 <p>&lt;This is just an execution, but a pretty sensational one at that. No wonder the audience likes it.&gt; Lucille added.</p>
-<p>&lt;You humans are still barbaric cavemen I see. Maybe I should've been worried about master hitting me in the back of my head and dragging me away to his cave all this time…&gt; Seraphiel chuckled. ℞àƝȰВËs</p>
+<p>&lt;You humans are still barbaric cavemen I see. Maybe I should've been worried about master hitting me in the back of my head and dragging me away to his cave all this time…&gt; Seraphiel chuckled.</p>
 <p>Another roar of approval erupted as I approached his writhing form. He reached out with trembling hands as his fingers dug into the dirt in a futile attempt to pull himself forward. I stepped on one of his hands, pinning it beneath my boot. His terrorized screams were music to the crowd.</p>
 <p>With a flick of my saber, I severed his hand at the wrist. Blood spurted in every direction, painting the ground in crimson streaks. I stepped back to let him flail around helplessly. It was a miserable sight to observe.</p>
 <p>Eugene tried to crawl again while sobbing and babbling incoherently. "No! I surrender! No! Please, I'll do anything! Mercy! I surrender! MERCY!"</p>

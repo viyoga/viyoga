@@ -29,7 +29,7 @@ chapter = 1040
 <p>&lt;Don’t...&gt; Jasmine’s voice cut in sharply, and a firm grip closed around the elf’s wrist.</p>
 <p>Seraphiel’s head snapped toward her. Tears formed in her eyes. &lt;What are you doing?! He’s about to die! Let me go right this moment. I can heal him!&gt;</p>
 <p>&lt;I know you can, Sera. I know it very well... But you shouldn’t.&gt;</p>
-<p>The brunette bit into her lip out of pure frustration. A bead of blood trickled down her chin, and the sting only deepened her loathing. Loathing, which was aimed at herself. 𐍂ἁΝỗᛒË𝓢</p>
+<p>The brunette bit into her lip out of pure frustration. A bead of blood trickled down her chin, and the sting only deepened her loathing. Loathing, which was aimed at herself.</p>
 <p>She wanted nothing more than to shove Seraphiel forward, to tell her to save their man no matter the cost. But...</p>
 <p>She saw it.</p>
 <p>She understood.</p>

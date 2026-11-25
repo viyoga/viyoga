@@ -27,7 +27,7 @@ chapter = 953
 <p>Ayames eyes widened, becoming glassy with sudden emotion. Her breath trembled, lips parting in a soundless gasp as she tilted her chin just enough to meet his gaze.</p>
 <p>Tears welledhot, unrestrainedbut before they could spill, Quinlans fingers brushed gently beneath her eyes, wiping the forming droplets away with the softest caress.</p>
 <p>"Dont you dare ruin that perfect makeup," he whispered with a playful grin, thumb tracing her flushed cheek.</p>
-<p>Then, lowering his head, he pressed a kiss into her silky, midnight-black hair. Ayame closed her eyes as her hands gripped his arms, leaning fully into his warmth for just a moment longer. 𝐑𝓪𝐍оВÊ𝙎</p>
+<p>Then, lowering his head, he pressed a kiss into her silky, midnight-black hair. Ayame closed her eyes as her hands gripped his arms, leaning fully into his warmth for just a moment longer.</p>
 <p>But only a moment, because movement in the corner of his vision snagged his attention.</p>
 <p>His gaze flicked elsewhere.</p>
 <p>And there stood Kitsara.</p>

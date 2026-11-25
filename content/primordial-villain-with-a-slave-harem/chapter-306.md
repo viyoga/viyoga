@@ -24,7 +24,7 @@ chapter = 306
 <p>All five spells seemed amazing, and I was very happy with my decision. However, that didn't change the fact that I was about to make a very big gamble. I could only curse my lack of foresight. I thought that keeping such a distance from the alliance would be enough, but alas it seems I was too greedy. We got too close while chasing easy kills. I had to reap what I sowed. Greed has been a big enemy of mine for a long time. Find your next adventure on .com</p>
 <p>I sighed while raising my pitch-black sealed blade towards the ceiling, calling upon the storm. "[Storm-]"</p>
 <p>Before I could finish the incantation, a feminine voice entered my ears. "Wait! Everyone, stop! We wish to negotiate."</p>
-<p>The battlefield stilled, as if frozen in time. I had to give credit where credit was due; they listened to her. As for who 'her' is, I don't know, because I couldn't see the speaker from the horde in front of me. ʀÃɴo͍ΒЕś</p>
+<p>The battlefield stilled, as if frozen in time. I had to give credit where credit was due; they listened to her. As for who 'her' is, I don't know, because I couldn't see the speaker from the horde in front of me.</p>
 <p>"Lady Selene?! We finally reached them! It's time to kill!" Dozens of them voiced their disapproval.</p>
 <p>Selene? That name was somewhat familiar. Might've been a pornstar from back Earth, though.</p>
 <p>"Make way already!" A man shouted from behind the front ranks.</p>

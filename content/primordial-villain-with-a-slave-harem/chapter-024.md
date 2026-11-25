@@ -27,5 +27,5 @@ chapter = 24
 <p>She freezes completely, like a deer surrounded by a pack of starving wolves.</p>
 <p>The Samurai girl looks at me with wide, unbelieving eyes for a few long seconds before averting her eyes and instead going back to her previous state of resting her head on my chest as if she was hiding, then I hear a very flustered, timid voice, "w-w-what are you doing?! You know I can beat your butt if I want now, right?"</p>
 <p>I grin, "oh, really? Go ahead then."</p>
-<p>A long silence ensues that is only interrupted by my barely audible strokes of her hair. "Ayame, I know that you are an extremely strong, talented, and ambitious woman. 𝖗а𝐍Ꝋ₿ƐS</p>
+<p>A long silence ensues that is only interrupted by my barely audible strokes of her hair. "Ayame, I know that you are an extremely strong, talented, and ambitious woman.</p>
 <p>I can also tell that you are dealing with some deep-seated trauma, so I would like to let you know that you can hug me or talk to me or whatever you find comforting should you wish to, however, I want to make something very clear to you." This gets her to once again look into my eyes, "I have no, or to be more accurate and plain, I have absolutely, utterly zero interest in becoming your friend or big brother figure."</p>

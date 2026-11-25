@@ -24,7 +24,7 @@ chapter = 492
 <p>"Yes, yes! So get your ugly masked asses out of here!!" The bratty one yelled with an arrogant grin.</p>
 <p>"Aren't you two severely under-dressed kids the daughters of the Greenvale duke?" Jasmine spoke up. She used her given spoiled persona as well, but I could sense apprehension in her entire body. She was just a criminal merchant girl who was currently talking to two high nobles, with a condescending tone as well.</p>
 <p>This was trouble.</p>
-<p>If there was one crime worse than assaulting a noble - either in a physical or verbal manner - it would have to be commoners pretending to be nobility. 𝐫Ａ𐌽ȏβΕŚ</p>
+<p>If there was one crime worse than assaulting a noble - either in a physical or verbal manner - it would have to be commoners pretending to be nobility.</p>
 <p>Our current actions were worse than slaughtering an entire village of commoners, according to the laws of the kingdom, thus Jasmine couldn't help but feel worried. Explore more at empire</p>
 <p>The sight of their guards didn't give me much confidence either. They must've been around my level at least.</p>
 <p>"I'm not an under-dressed kid, bitch, but that's right! The Greenvale Duke is none other than Papa!" The bratty one shot back, confirming Jasmine's thoughts.</p>

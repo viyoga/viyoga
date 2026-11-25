@@ -23,7 +23,7 @@ chapter = 702
 <p>Next to him, Kaiser and Nidhogg wore complicated expressions. As the two Dragons with the highest potential to become King, it would be hard to explain what they were feeling at the moment in mere words.</p>
 <p>The breadth of their emotions intensified further knowing that Nefertiti had done very little training and yet reached such a state. She had devoted most of her time to preaching and yet… she had surpassed them.</p>
 <p>Nefertiti did not seek the power of a King. She was content with staying a Duke. In combat, both of them were sure they could win without a shadow of a doubt.</p>
-<p>Yet the one they thought was inferior to them was now ascending to heights they dreamed every day of reaching. A new level they could only observe with envy. 𝘳₳Ŋó𝖇Еᶊ</p>
+<p>Yet the one they thought was inferior to them was now ascending to heights they dreamed every day of reaching. A new level they could only observe with envy.</p>
 <p>This narrative has been unlawfully taken from Royal Road. If you see it on Amazon, please report it.</p>
 <p>The one who was the most affected was none other than Nidhogg. After all, she was a hybrid like Nefertiti and a perfect one at that. She might not have some great lineage but she was still born between a Singularity who could have become a Demigod and the direct daughter of Hydra, a Dragon King.</p>
 <p>She looked down at her hands, clenching her fists hard enough that they could pierce her dragon skin.</p>

@@ -29,7 +29,7 @@ chapter = 1070
 <p>Her somber moment was abruptly shattered when a tiny, bright voice rang out:</p>
 <p>"Mommy Aurora!! Why are you sad?!"</p>
 <p>Aurora blinked, startled, as a blur of green shot through the air. Rosie, the little dryad, zipped straight at her like a leafy comet. She landed against Aurora’s chest with a soft pomf, after which her big, round eyes instantly snapped up to peer at her with innocent concern. Tiny fingers clutched Aurora’s hand like she was holding onto the most precious thing in the world.</p>
-<p>Aurora froze. Rosie had always rushed into Quinlan’s arms first. Always Quinlan’s little shadow, a true daddy’s girl through and through. But now, in this moment, she had chosen her. ř𝘈ℕ𝐨ＢĘs</p>
+<p>Aurora froze. Rosie had always rushed into Quinlan’s arms first. Always Quinlan’s little shadow, a true daddy’s girl through and through. But now, in this moment, she had chosen her.</p>
 <p>And... yes. Aurora was her mommy now.</p>
 <p>They had talked about it before. Aurora once tried to tell Rosie to treat her like a big sister because she didn’t want to give up being Quinlan’s plump little princess, his spoiled lover. But the moment Rosie came into their lives, that role was no longer hers. It belonged to the child. And Aurora... had grown out of it. She asked Rosie to see her as a mother instead. An adoptive one, like the others.</p>
 <p>"...I’m not sad, little one," Aurora whispered, quickly wiping her cheek. "Just happy it’s all over. I was... stressed."</p>

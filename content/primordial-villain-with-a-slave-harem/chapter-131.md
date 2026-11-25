@@ -28,7 +28,7 @@ chapter = 131
 <p>We spend the day and night in peace. After all, who would dare ambush us with two mithril ranked bodyguards? The sight of the turbo muscular Broderick with his giant greatsword sitting on top of his flying carpet is probably all the reason highwaymen need to remain hidden in their bushes.</p>
 <p>- Day 8 -</p>
 <p>My first week in this brand new beautiful world has officially ended as the second one began.</p>
-<p>We soon reach our destination and the guards approach us, but when Broderick tells them that we are with them, they not only don't check our wares but even give us a free entry certificate. Р𝘼₦ọβƐ𝒮</p>
+<p>We soon reach our destination and the guards approach us, but when Broderick tells them that we are with them, they not only don't check our wares but even give us a free entry certificate.</p>
 <p>[Lifelong personal entrance permit to the city of Braedon received.]</p>
 <p>However, knowing that we will be possibly dealing with a criminal syndicate the three of us donned the hooded garbs we used on the night of the slaver household's massacre so that the guards and bystanders can't remember our appearances. It's best to remain as inconspicuous as possible for now.</p>
 <p>Once we are inside I'm pleasantly surprised at how pristine the town appears to be. There's just as much order here as there was in Aldoria. You would never guess that it's a town run by hardcore criminals.</p>

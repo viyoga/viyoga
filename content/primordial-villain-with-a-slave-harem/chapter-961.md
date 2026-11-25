@@ -28,7 +28,7 @@ chapter = 961
 <p>Yoruha stretched on her branch, arms shooting high into the sky. She even closed her eyes to enjoy the stretches in full. "Let’s begin."</p>
 <p>Both women stared at her expectantly. Not a word. Not a blink.</p>
 <p>Feng sighed. Long. Heavy. Shoulders slumping. "... Fine. I’ll talk. Brooding on my own isn’t working anyway."</p>
-<p>Her fingers fiddled with the hem of her sleeve. "It’s just... ugh... my dumb heart malfunctioned, okay? And somehow... somehow... I ended up... liking that dumb brute." ṝ𝘈ɴÒВÊȘ</p>
+<p>Her fingers fiddled with the hem of her sleeve. "It’s just... ugh... my dumb heart malfunctioned, okay? And somehow... somehow... I ended up... liking that dumb brute."</p>
 <p>Yoruha gave a slow, solemn nod, stroking her chin with theatrical seriousness. "Mmm... Many such cases."</p>
 <p>Feng slumped further. "...I know, right? Ugh... it’s so annoying. It’s like my brain is screaming ’No, bad idea!’ but my heart’s just... throwing rice at the imaginary wedding already."</p>
 <p>Iris exhaled sharply through her nose. "..I still don’t get it."</p>

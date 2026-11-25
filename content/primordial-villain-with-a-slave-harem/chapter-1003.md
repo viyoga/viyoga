@@ -32,7 +32,7 @@ chapter = 1003
 <p>She placed herself squarely in their way, her lips curled into a faux-polite smile. "And just who do we have here, I wonder" she purred.</p>
 <p>...</p>
 <p>Quinlan was surprised to have already met such a high-profile person even before they entered the noble district.</p>
-<p>He didn’t know much about Selendra Ravenshade, but easily recognized the woman based on the portraits he’d been shown of her during their little research of the notable participants of the celebration. 𝐑Ã𐌽ỗ𝐁Ěꞩ</p>
+<p>He didn’t know much about Selendra Ravenshade, but easily recognized the woman based on the portraits he’d been shown of her during their little research of the notable participants of the celebration.</p>
 <p>What he knew was that she was a low-level, pampered person who didn’t have to worry about a single thing in her entire life. The few levels she gained were, naturally, gathered while being escorted by high-level guards, just like the Greenvale twins.</p>
 <p>And just like the aforementioned lovely pair, Selendra was giving off immense bratty vibes as well. But whether her heart was as wretched as the twins’ or was just an entitled woman who never had a proper father figure present in her entire childhood, he didn’t know.</p>
 <p>But there was one thing he found curious. Selendra looked eerily similar to Iris. He already knew it from the portraits he’d seen, but now that he met the woman in person, the similarities were truly unmistakable.</p>

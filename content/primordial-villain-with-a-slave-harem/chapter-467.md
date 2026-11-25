@@ -38,7 +38,7 @@ chapter = 467
 <p>[Abysswalker: ???]</p>
 <p>[???: ???]</p>
 <p>---</p>
-<p>Would you look at that, I think I just found the class of my mental patient of a future wife. To be fair, since it seems very likely that I will be having multiple mentally unwell women in my harem in the future, I should specify that I was referring to Vex in this instance. She has the epithet of 'Hexblade', which was also one of the listed classes here. 𝘳𝐀ɴổβΕš</p>
+<p>Would you look at that, I think I just found the class of my mental patient of a future wife. To be fair, since it seems very likely that I will be having multiple mentally unwell women in my harem in the future, I should specify that I was referring to Vex in this instance. She has the epithet of 'Hexblade', which was also one of the listed classes here.</p>
 <p>Vex held truly strange powers, she could manipulate shadows and curse people, so it was a class that likely offered abilities along those lines. Of course, it was also possible that it was just her title and she had an entirely different class.</p>
 <p>As for the many question marks, it seems I'll have to grow stronger or meet other, unspecified requirements to even gain the privilege of seeing their unlock requirements.</p>
 <p>Thankfully Necromancer and Blood Mage were different. They were ready to be unlocked.</p>

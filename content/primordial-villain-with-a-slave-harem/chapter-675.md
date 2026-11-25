@@ -32,7 +32,7 @@ chapter = 675
 <p>Before slowing the body's aging down, its age would be checked. If a child managed to reach level 10, such as Vex thanks to Black Fang throwing her into a forest teeming with monsters, she would still age until reaching her physical peak form, which usually happened between ages 18-22 for most humans. Slowing her body's aging down when she wasn't even a teenager would've been restrictive on her combat prospects.</p>
 <p>Old age was very kind to combatants as well. There was a reason why Skarn shuddered when thinking of a 900-year-old version of me. That was the age widely accepted as a top-tier combatant's peak years because they would not appear as senile old fools but middle-aged men in their top form.</p>
 <p>Instead, once the limit was reached, a rapid aging process would begin, usually between ages 950 and 970 for the highest-leveled people. The age-slowing mechanic would be lifted, and they would age just like a level 1 human would.</p>
-<p>For some reason, this process hadn't begun for Alexios despite his 999 years of age, making the Consortium's upper management believe he had discovered a way to elongate his life. ɌÂΝÖʙËś</p>
+<p>For some reason, this process hadn't begun for Alexios despite his 999 years of age, making the Consortium's upper management believe he had discovered a way to elongate his life.</p>
 <p>Anyhow.</p>
 <p>Knowing he spited slavery with all his being, I thought I had a way to earn myself his good graces.</p>
 <p>"Princess Felicity, I have an admission to make," I said with a heavy tone as if I were to confess to being a wanted criminal.</p>

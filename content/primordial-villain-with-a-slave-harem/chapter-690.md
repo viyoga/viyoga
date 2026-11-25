@@ -36,7 +36,7 @@ chapter = 690
 <p>Each time, she failed.</p>
 <p>She wasn't strong enough.</p>
 <p>…</p>
-<p>"Just what the hell is going on?" I asked, worried. Everyone who inhaled Rosie's gifts lost their consciousness besides myself. I jumped to my feet and rushed to check their condition. But before I could touch anyone, Yoruha spoke up. ȐἁN∅𝐛ÊŞ</p>
+<p>"Just what the hell is going on?" I asked, worried. Everyone who inhaled Rosie's gifts lost their consciousness besides myself. I jumped to my feet and rushed to check their condition. But before I could touch anyone, Yoruha spoke up.</p>
 <p>"I don't recommend moving them. They're experiencing something… unique." She then glanced down at the girl shivering in my arms, and with a sly tone, she mused,</p>
 <p>"Rosie wouldn't harm her mothers and friends, would she?"</p>
 <p>"O-of course she wouldn't! Rosie loves her mothers and friends!" the little driad cried with a nervous voice. She was jitterish all over her body, with small trembles traversing along her spine.</p>

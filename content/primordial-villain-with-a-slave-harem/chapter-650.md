@@ -30,7 +30,7 @@ chapter = 650
 <p>"If that day ever comes, I will present my heart to you on a silver platter."</p>
 <p>A beat of silence passed between the two men as they continued staring into each other's eyes.</p>
 <p>Then, with mutual understanding, their hands finally met in a firm shake—one of respect and acceptance.</p>
-<p>"Yep, exactly the kind of macho stuff I had in mind…" Kitsara squealed with rosy red cheeks. Witnessing this moment made her heart beat with excitement. R̃ἁＮȰʙĚȿ</p>
+<p>"Yep, exactly the kind of macho stuff I had in mind…" Kitsara squealed with rosy red cheeks. Witnessing this moment made her heart beat with excitement.</p>
 <p>"Son-in-law, I'll warn you ahead of time. Most of the leaders have already arrived, the summit is about to begin. As far as I'm aware, you're the diplomatic leader of your group, so you should put your mind in the right place. Most of the beastkin leaders are arrogant, especially the apexes. I recommend you don't anger them needlessly."</p>
 <p>Quinlan shook his head, "I appreciate your warning, Vargis, but I'm not just representing myself, but the ancient and illustrious organization called Vesper Consortium. I could look the other way if they barked insults at my person, but I'm not allowed to do so as long as I represent the syndicate."</p>
 <p>"I see… Well, you will have my support. Daughter, you should get dressed as well… After taking a thorough bath. You stink like a used-up prostitute at the end of her shift."</p>

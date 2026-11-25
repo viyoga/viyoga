@@ -31,7 +31,7 @@ chapter = 913
 <p>"Yes, yes, you’re worried," Luminara chimed in, voice thick with emotion. "And rightly so: of course, mortals would be overwhelmed here... the density of divine energies in this plane is fatal to them..."</p>
 <p>Her voice softened, and her smile grew impossibly warm.</p>
 <p>"But, darling... There is a way."</p>
-<p>Mearie nodded fervently, squeezing her son’s shoulder gently. "A temporary one... it would only last a short while... but it would let us see them! Let us hold them! Let us... talk to them after all this time of painful isolation..." ȑАɴօΒÊs</p>
+<p>Mearie nodded fervently, squeezing her son’s shoulder gently. "A temporary one... it would only last a short while... but it would let us see them! Let us hold them! Let us... talk to them after all this time of painful isolation..."</p>
 <p>Their voices cracked with emotion.</p>
 <p>Then they both leaned down, foreheads pressed once more lovingly to Quinlan’s temple, breath mingling warmly.</p>
 <p>"Can you try, Quinnie?" they whispered as one.</p>

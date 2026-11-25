@@ -26,7 +26,7 @@ chapter = 398
 <p>"Furious? This is what you call 'furious'? More like he just got his hands on his eternal nemesis."</p>
 <p>The laborer slaves discussed among themselves while applying the paint on the building's exterior since their master had brought them the needed materials.</p>
 <p>What was the reason for their concern?</p>
-<p>"MERCYYYYY!!!" The feminine wailing that had been going on for hours now, was accompanied by their master's extremely cruel, gleeful shouting. When he bought them, they were all very apprehensive due to his ominous looks, and of course, also simply because their lives were his to do with as he pleased. However, after that, he was nothing but amicable. Like a good boss, even better than what most of them had while they were free citizens. ȑ𝖆Ɲô𝐛Еṩ</p>
+<p>"MERCYYYYY!!!" The feminine wailing that had been going on for hours now, was accompanied by their master's extremely cruel, gleeful shouting. When he bought them, they were all very apprehensive due to his ominous looks, and of course, also simply because their lives were his to do with as he pleased. However, after that, he was nothing but amicable. Like a good boss, even better than what most of them had while they were free citizens.</p>
 <p>Today, they were reminded of the harsh reality. Their master was a sadistic, revenge-driven man who enjoyed tormenting his enemies. The reason he was kind to them was that they had done nothing to earn his ire. Should that change…</p>
 <p>"Sera, her vocal cords are doing rather badly. I can barely hear her. Heal her."</p>
 <p>"Of course, master."</p>

@@ -30,7 +30,7 @@ chapter = 1
 <p>One minute?</p>
 <p>Easy.</p>
 <p>As soon as I say that, I puke blood. My organs are bleeding. My bones are breaking. My skin is tearing.</p>
-<p>So the quest wasn't as simple as I had thought. Fuck me. This pain is agonizing. I'm just a normal guy; throwing such a challenge at me without warning is just plain cruel. Ꞧ₳Ɲ𝔬ᛒÈᶊ</p>
+<p>So the quest wasn't as simple as I had thought. Fuck me. This pain is agonizing. I'm just a normal guy; throwing such a challenge at me without warning is just plain cruel.</p>
 <p>I try to scream, but nothing comes out.</p>
 <p>I can't move any of my limbs because all my bones are getting pulverized.</p>
 <p>I can't see because my eyes literally melted.</p>

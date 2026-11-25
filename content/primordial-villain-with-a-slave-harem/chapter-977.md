@@ -29,7 +29,7 @@ chapter = 977
 <p>The air became more troublesome as they moved further in, their figures gradually fading into the darkness ahead.</p>
 <p>Quinlan exhaled.</p>
 <p>His body ached.</p>
-<p>He was still missing an arm. His vision swam. He was dangerously low on blood, and Vex looked no better, holding a palm over her ruined eye socket, blood streaming through her torn kendo attire, body leaning against a fractured column for support. ʀàΝŎʙЁS</p>
+<p>He was still missing an arm. His vision swam. He was dangerously low on blood, and Vex looked no better, holding a palm over her ruined eye socket, blood streaming through her torn kendo attire, body leaning against a fractured column for support.</p>
 <p>They had minutes at best before they collapsed.</p>
 <p>And that meant no more time to waste.</p>
 <p>Quinlan turned.</p>

@@ -28,7 +28,7 @@ chapter = 33
 <p>"Gobbo no speak woman! Gobbo breed woman!" His unexpectedly misogynist response destroys Ayame's serene expression for a brief moment before she swiftly regains her cool. She is clearly way above getting offended by a goblin.</p>
 <p>Wow. Perhaps some modern feminist ideology is in desperate need of being introduced into goblin society.</p>
 <p>I stab my spear into its shoulder. "Gobbo yes speak woman!" I shout at him with a certain amount of amusement in my tone. It's more fun to speak like a stupid little goblin than I expected.</p>
-<p>He cries out with an ear piercing scream, clutching his other hand at my still embedded spear, desperately attempting to pull it out. "AAAAAAH! Ok! Gobbo speak woman!!!" ℝ𝘼₦ǑᛒÈş</p>
+<p>He cries out with an ear piercing scream, clutching his other hand at my still embedded spear, desperately attempting to pull it out. "AAAAAAH! Ok! Gobbo speak woman!!!"</p>
 <p>I hurry him along kindly, "answer then, you retarded midget." I don't pull out my spear because he is getting somewhat relaxed once again and I know that doing so would pain him even further.</p>
 <p>He then looks inwardly and begins counting one by one as he remembers them, "Gob one, Gub two, Gib three…"</p>
 <p>My and Ayame's eyes meet during his recounting session and I can see tiredness in her gaze. I find this whole situation kinda funny but for some reason she doesn't. Perhaps she is eager to save the captives so she can't enjoy the moment. Or maybe she had already dealt with enough goblins in her life.</p>

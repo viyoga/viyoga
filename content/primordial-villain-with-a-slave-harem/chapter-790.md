@@ -28,7 +28,7 @@ chapter = 790
 <p>"What?"</p>
 <p>He nodded. "Yes. You see, I'm a hopeless homosexual."</p>
 <p>I blinked again.</p>
-<p>"I was able to do the dirty with her back when we were created because I didn't know any better. I hadn't yet felt the wonderful embrace of another man back then, so we made it work. But over time, as I wandered the world, I discovered the truth." 𝙍Ά𐌽ÖꞖΕᶊ</p>
+<p>"I was able to do the dirty with her back when we were created because I didn't know any better. I hadn't yet felt the wonderful embrace of another man back then, so we made it work. But over time, as I wandered the world, I discovered the truth."</p>
 <p>He placed his hands over his chest like he was proclaiming a holy vow. "Women… their soft, curvy bodies… they repulse me. I find them utterly revolting."</p>
 <p>My deadpan could've flattened planets.</p>
 <p>"You're telling me you're one of the oldest beings in creation. A primordial. Born to help shape and populate the world. To birth and lead your kind. And your bloodline died out because you couldn't get it up?"</p>

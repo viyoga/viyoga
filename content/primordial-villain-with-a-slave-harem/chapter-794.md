@@ -31,7 +31,7 @@ chapter = 794
 <p>But it was final.</p>
 <p>"Stop your screeching, you effeminate little twink."</p>
 <p>Zhang Yong's mouth snapped shut like a trap.</p>
-<p>Even Feng Jiai, still on the ground, felt her skin crawl. It wasn't the insult that chilled her. It was how casually he delivered it. Like violence was simply part of his daily routine. It felt in her heart as if she was staring at a cold-blooded mass murderer who had so much blood in his hands that a whole city could be drowned in it. ℞𝐀𐌽ỘβĘ𐌔</p>
+<p>Even Feng Jiai, still on the ground, felt her skin crawl. It wasn't the insult that chilled her. It was how casually he delivered it. Like violence was simply part of his daily routine. It felt in her heart as if she was staring at a cold-blooded mass murderer who had so much blood in his hands that a whole city could be drowned in it.</p>
 <p>The young master stood up from the ground stiffly, red-faced and trembling. Not with power, but with the volatile cocktail of shame and impotent rage. He jabbed a finger toward the stranger as if trying to regain control through sheer noise.</p>
 <p>"Y-You… You dare?! You dare to insult this Young Master with such vulgarity?! Have you no eyes?! No sense of self-preservation?!"</p>
 <p>The man tilted his head. Slowly. As if weighing the value of Zhang Yong's life and finding it beneath trash.</p>

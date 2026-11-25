@@ -32,7 +32,7 @@ chapter = 388
 <p>"We are all very sorry. So, what is your gift for me?" I asked.</p>
 <p>"Now I don't feel like giving you anything besides a slap. Hmph!"</p>
 <p>Seeing her extreme brooding, I knew that it was time to act thus I stood and walked up to her with my willy freely dangling with every step I took. I enveloped her with both of my arms as I pulled the sulking girl in for a firm hug. "You know that I love you, right? None of us have any ill will toward you. We just got a bit overeager in the heat of the moment. If you're still harboring resentment at the end of today then we'll get on our knees and beg for forgiveness. For now, let's not ruin this wonderful mood, can you do that for me?"</p>
-<p>By now I knew very well how to deal with this amazing woman and her mood swings. A good, firm hug, ideally with my hands resting on her buttocks and giving them a strong squeeze from time to time, me saying that she is not wrong while still not at all agreeing to whatever ridiculous demands she might make, and top it all off with me whispering a lot of niceties into her ears. 𐍂ÃŊ𝐎ВÊȿ</p>
+<p>By now I knew very well how to deal with this amazing woman and her mood swings. A good, firm hug, ideally with my hands resting on her buttocks and giving them a strong squeeze from time to time, me saying that she is not wrong while still not at all agreeing to whatever ridiculous demands she might make, and top it all off with me whispering a lot of niceties into her ears.</p>
 <p>"… Alright. But I'll hold you to that promise of yours." She relented while firmly pouting.</p>
 <p>"Sure. Can you tell me what your gift is now?"</p>
 <p>"…" She paused her pouting as she slowly looked up into my eyes bashfully, with rosy red cheeks adorning her heavenly visage.</p>

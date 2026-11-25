@@ -34,7 +34,7 @@ chapter = 985
 <p>Flame for raw power.</p>
 <p>Stone to block and parry.</p>
 <p>Tide to empower his fluidity and magical potency.</p>
-<p>If that wasn’t deadly enough already, he used his magical prowess in sync with the new stances he gained from the martial world of Zhenwu. His elemental magic, gained when he unlocked the Avatar of the Elements class, worked in perfect tandem with his new martial abilities. ȑ𝘈NꝊ𝐛ЁⱾ</p>
+<p>If that wasn’t deadly enough already, he used his magical prowess in sync with the new stances he gained from the martial world of Zhenwu. His elemental magic, gained when he unlocked the Avatar of the Elements class, worked in perfect tandem with his new martial abilities.</p>
 <p>It was a seamless cycle of devastation, offense, defense, and recovery.</p>
 <p>Walls exploded. Bars melted. Floors cracked. Cells collapsed.</p>
 <p>One by one, prisoners blinked as their doors burst open. Some cried out in confusion. Others wept. But all stared at the black-coated figure with the ghostly saber and crimson eyes.</p>

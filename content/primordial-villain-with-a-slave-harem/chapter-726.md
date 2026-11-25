@@ -32,7 +32,7 @@ chapter = 726
 <p>"You son of a bitch!</p>
 <p>I’ll-”</p>
 <p>Iris didn’t even get to finish the sentence.</p>
-<p>The force of the blast had completely drenched her, making the woman look like a very pissed-off drowned cat that someone had tried to baptize with a fire hose. ṟἁΝȱβÈᶊ</p>
+<p>The force of the blast had completely drenched her, making the woman look like a very pissed-off drowned cat that someone had tried to baptize with a fire hose.</p>
 <p>Despite that, she pushed herself upright with sheer might, her spine straightening as she refused to lose.</p>
 <p>Her glare alone could have cracked stone.</p>
 <p>"Give me a twirl,” I cooed, grinning.</p>

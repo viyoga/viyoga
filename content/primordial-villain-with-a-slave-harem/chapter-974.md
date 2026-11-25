@@ -30,7 +30,7 @@ chapter = 974
 <p>Her lips curved into a victorious smirk. "Got you."</p>
 <p>It hadn’t been a miscalculation on her part, but a trap within a trap. She had counted on their intervention. Their protective instincts. Their desire to protect their ally, even if it would cost them dearly.</p>
 <p>And she punished them for this weakness of theirs.</p>
-<p>With impossible fluidity, she twisted her halberd along the parried axis, rotating it. The blade’s edge scraped past Vex’s guard, then flashed upward, catching her across the face. Ŗ𝓪Ｎ𝐎฿Εṡ</p>
+<p>With impossible fluidity, she twisted her halberd along the parried axis, rotating it. The blade’s edge scraped past Vex’s guard, then flashed upward, catching her across the face.</p>
 <p>*SLASH!*</p>
 <p>"Agh!"</p>
 <p>A grunt of agony burst from the hexwitch as a red line tore through her right eye.</p>

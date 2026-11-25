@@ -24,7 +24,7 @@ chapter = 1018
 <p>Weylon rolled his eyes and huffed. "So what? I’m speaking about a slave... I did nothing illegal or even rude."</p>
 <p>Still, he spoke less loudly now, though not by much. His eyes never left Seraphiel’s bountiful feminine assets.</p>
 <p>At the same time, two more of his friends ogled Blossom and Kitsara, respectively, harboring similar thoughts.</p>
-<p>Quinlan, meanwhile, said nothing, though his possessive heart was beginning to feel emotions he truly shouldn’t entertain in this dangerous setting. As the king so magnanimously let them know, they were outside their element here. The Quinlan Elysiar, or rather Devil, who could go all out any time he so desired while also enjoying the backing of not only the drug department led by Black Fang but also the dogkin people, didn’t exist here. ṝ𝔞₦Ȯ𝔟Èŝ</p>
+<p>Quinlan, meanwhile, said nothing, though his possessive heart was beginning to feel emotions he truly shouldn’t entertain in this dangerous setting. As the king so magnanimously let them know, they were outside their element here. The Quinlan Elysiar, or rather Devil, who could go all out any time he so desired while also enjoying the backing of not only the drug department led by Black Fang but also the dogkin people, didn’t exist here.</p>
 <p>He was Lord Black, a noble from dubious origins.</p>
 <p>As such, he forced himself to smile beneath his mask, no matter how difficult he found it to. Blossom’s, Kitsara’s, and Seraphiel’s words, ringing in his mind about them not caring for their crude remarks, only helped a little bit.</p>
 <p>The girls could already sense where the night was headed.</p>

@@ -26,7 +26,7 @@ chapter = 723
 <p>The way she giggled after saying it drew out surprised laughter. The kind that only came after too much pain and too little joy.</p>
 <p>A few more minutes of walking brought them into a wide clearing. The air smelled of earth and fresh growth. It was quiet. Peaceful. Sacred.</p>
 <p>Seraphiel turned, glancing at the group behind her. "I think you'll love it here."</p>
-<p>Letting them explore to their heart's content, she slowly made her way over to Elirya, who stood near the edge of the clearing, clutching her daughter's body like it was her only tether to this world. Her eyes were red, but no tears fell, for she had cried too much already. ℝά𝐍𝖔ʙЕṦ</p>
+<p>Letting them explore to their heart's content, she slowly made her way over to Elirya, who stood near the edge of the clearing, clutching her daughter's body like it was her only tether to this world. Her eyes were red, but no tears fell, for she had cried too much already.</p>
 <p>Seraphiel placed a gentle hand on her back.</p>
 <p>"Elirya," she said softly. "Back when he lifted all of us with the wind… you saw it, right?"</p>
 <p>The woman didn't look at her, but her chin dipped slightly. A nod.</p>

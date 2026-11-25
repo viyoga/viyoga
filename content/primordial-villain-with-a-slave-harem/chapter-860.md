@@ -34,7 +34,7 @@ chapter = 860
 <p>Serika met it head-on.</p>
 <p>Palm to palm.</p>
 <p>A clash.</p>
-<p>Wind howled. Fire screamed. The pressure cracked the tiles under their feet. For a heartbeat, their energies warred, locked in mid-air like clashing titans. ȓ₳𝐍О𝐁ĚȘ</p>
+<p>Wind howled. Fire screamed. The pressure cracked the tiles under their feet. For a heartbeat, their energies warred, locked in mid-air like clashing titans.</p>
 <p>Quinlan’s muscles bulged, trying to overpower her.</p>
 <p>But Serika… Serika moved.</p>
 <p>She didn’t stop the blow. She twisted her wrist, redirected the force, spun on the ball of her foot, and unraveled his attack like silk between fingers.</p>

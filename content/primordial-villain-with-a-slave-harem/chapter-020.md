@@ -25,7 +25,7 @@ chapter = 20
 <p>She continues, "Also, be aware that other labyrinth clearers will be present, especially on the lower floors. We have to be cautious around them. It's rare for explorers to fight each other, but it does happen."</p>
 <p>She pauses for a moment then continues, "there's an unwritten rule among explorers: each party must wait outside the next corridor until the current party defeats the monster inside. Once the monster respawns, it's their turn to fight. However, since this is an actual labyrinth with many possible routes, if we see a crowd waiting somewhere, we can always just take another path."</p>
 <p>"Got it."</p>
-<p>We continue through the labyrinth, the sound of distant battles occasionally echoing through the corridors. The first chamber we approach is empty, allowing us to advance without delay. I grip my weapon tightly, ready for my first real fight. 𝙧ÁƝ𝙤𝖇Ɛ𝓢</p>
+<p>We continue through the labyrinth, the sound of distant battles occasionally echoing through the corridors. The first chamber we approach is empty, allowing us to advance without delay. I grip my weapon tightly, ready for my first real fight.</p>
 <p>"Stay close to me," Ayame instructs. "I'll guide you through the basics of combat. Just remember what we discussed earlier."</p>
 <p>We step into the next corridor, the tension building in me as we prepare to face whatever challenge lies ahead.</p>
 <p>Ayame abruptly stops and holds up a hand, signaling me to be quiet. We hear a low, guttural growl echoing through the corridor. "Be ready," she whispers. "This will be your first battle."</p>

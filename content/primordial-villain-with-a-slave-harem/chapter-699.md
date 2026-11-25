@@ -36,7 +36,7 @@ chapter = 699
 <p>It was a hard choice. Both had many pros and cons.</p>
 <p>Vex cleared her throat with a sly smirk. "Khm! The Consortium will most likely be facing the Covenant and their giant undead hordes."</p>
 <p>"I and my allies strongly suggest we stay with the beastkin."</p>
-<p>My instant reply earned me an amused giggle from the white-haired babe sitting in front of us. "Mr. Devil, I feel like your decision has something to do with your knowledge that undead minions grant no XP." ȑÂ𐌽O͍ᛒЕṢ</p>
+<p>My instant reply earned me an amused giggle from the white-haired babe sitting in front of us. "Mr. Devil, I feel like your decision has something to do with your knowledge that undead minions grant no XP."</p>
 <p>"A wild and wholly baseless accusation."</p>
 <p>"Is that so…? Well, you won't find me complaining. I would much rather butcher lionkin than crush undead monstrosities."</p>
 <p>The two of us nodded at each other in sync, reaching a state of perfect mutual agreement.</p>

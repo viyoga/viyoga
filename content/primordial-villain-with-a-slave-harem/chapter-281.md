@@ -30,7 +30,7 @@ chapter = 281
 <p>If that failed she could just inform me over our link and I would settle things in a way the perpetrators wouldn't appreciate.</p>
 <p>The food available to them was also bad, with beef jerky and the other preserved foods making their diet up.</p>
 <p>Find new worlds at</p>
-<p>Naturally, for Ronan and Iselda I provided a private tent and also left them with better meals and drinks, as well as hygiene products. The general slaves shared 5 shabby tents, with 5 men in each. The smell must've been lovely, especially because there was no river nearby. ŘàＮоＢЁ𝙎</p>
+<p>Naturally, for Ronan and Iselda I provided a private tent and also left them with better meals and drinks, as well as hygiene products. The general slaves shared 5 shabby tents, with 5 men in each. The smell must've been lovely, especially because there was no river nearby.</p>
 <p>I did bring them some water barrels and rags to wipe their bodies down, but after a grueling day of construction work, it likely wasn't very much enough.</p>
 <p>I didn't make any promises to them thus far, I didn't even introduce myself properly. As far as they knew, they would be worked to the bone in inhumane conditions, without ever getting to see their loved ones, enjoy good food and drinks, and the warm embrace of a hot woman.</p>
 <p>I planned to postpone speaking to them until we finished the trials, but seeing how bad the morale was already on just day 2 of them being my property I couldn't keep it as it was.</p>

@@ -32,7 +32,7 @@ chapter = 700
 <p>“Well…” Kiyohime glanced around, searching for the right words. She was burning with embarrassment.</p>
 <p>With Sol absent, the heat that had been clouding her mind had all but dissipated, however, the warmth stirring her loin was particularly distracting.</p>
 <p>She realized just how reckless and shameful she acted the very moment she appeared in this realm.</p>
-<p>Fighting with Sol with so many people close by and officially becoming his mate. She was sure that the elves who had ways to contact the Astral Realm must have already sent the news up. ℟𝒶ΝồΒÊṩ</p>
+<p>Fighting with Sol with so many people close by and officially becoming his mate. She was sure that the elves who had ways to contact the Astral Realm must have already sent the news up.</p>
 <p>Was Tiamat rolling on the ground and laughing her ass off? What about Fafnir or Welsh and Hydra?</p>
 <p>Stupid. Idiot. Dumbass.</p>
 <p>She groaned and scolded herself. All she wished now was to roll on the bed and act like it was all a dream.</p>

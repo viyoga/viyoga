@@ -24,7 +24,7 @@ chapter = 1111
 <p>The air shattered as he met her head-on. His knuckles slammed against her own. The resulting collision detonated like a thunderclap across the skies. Wind tore outward in every direction. Any bird that thought of flying through the skies in their direction immediately changed any such plans.</p>
 <p>For an instant, they were locked. Fist to fist. Power against power.</p>
 <p>"Grr!" And Raika snarled.</p>
-<p>This was where she thrived. Not dancing around spells. Not dodging beams or weaving through trickery. But here, where skin, bone, and willpower collided to decide the victor using the most primal of measures. 𝙍𝘈Ɲ∅𝖇Ɛș</p>
+<p>This was where she thrived. Not dancing around spells. Not dodging beams or weaving through trickery. But here, where skin, bone, and willpower collided to decide the victor using the most primal of measures.</p>
 <p>Her tattoos blazed alive as she pushed harder. The raw force of her body was doing its best to overwhelm the finely honed mana in Quinlan’s strike. Inch by inch, her punch began to shove his back.</p>
 <p>"The Brutalizer... Truly, that title fits you far too well."</p>
 <p>Logic dictated that this should have been her victory. According to Vex, Quinlan had about the same amount of stats as Raika, if not slightly more. But he poured much of his stats into magic, becoming a hybrid. His body was not specialized to contend with monsters like her, only using physical might.</p>

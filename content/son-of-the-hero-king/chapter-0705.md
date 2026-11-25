@@ -31,7 +31,7 @@ chapter = 705
 <p>[When I died a part of the world died with me, to speak in simple terms. The one who could keep the world cycle continuing was Eve.]</p>
 <p>Unauthorized duplication: this narrative has been taken without consent. Report sightings.</p>
 <p>“So, the world started to break?”</p>
-<p>Adam scoffed, [As if the world I created could break that easily. In fact, killing all those gods gave back so much mana that the world would have been able to continue with no problem for a few hundred billion years more honestly.] ȑ𝔞ɴo͍ΒĘṨ</p>
+<p>Adam scoffed, [As if the world I created could break that easily. In fact, killing all those gods gave back so much mana that the world would have been able to continue with no problem for a few hundred billion years more honestly.]</p>
 <p>He sounded almost insulted when he answered.</p>
 <p>[The problem wasn’t my world. The problem was those little girls creating Divine Beasts.]</p>
 <p>The world Adam created worked on a simple principle. Give and take.</p>

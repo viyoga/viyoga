@@ -27,7 +27,7 @@ chapter = 923
 <p>Multiple veins throbbed on Quinlan’s forehead.</p>
 <p>The Soul Records message still glowed innocently in his vision.</p>
 <p>Feng’s smirk only grew wider as the pair conducted a silent staredown between one another that stretched on for a long time, silent and intense.</p>
-<p>Feng’s expression remained cocky and unrepentant throughout it all, her bright eyes daring him to snap. Quinlan, on the other hand, was utterly still... too still, in fact. That dangerous kind of calm that said trouble was brewing. ȐἁΝǒβÊŚ</p>
+<p>Feng’s expression remained cocky and unrepentant throughout it all, her bright eyes daring him to snap. Quinlan, on the other hand, was utterly still... too still, in fact. That dangerous kind of calm that said trouble was brewing.</p>
 <p>Another vein bulged.</p>
 <p>Then...</p>
 <p>*Whoosh!*</p>

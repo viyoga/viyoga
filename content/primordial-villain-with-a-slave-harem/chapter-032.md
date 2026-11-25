@@ -37,7 +37,7 @@ chapter = 32
 <p>Well, she at least has an innate skill which Primordial Villain lacks, but otherwise…</p>
 <p>I let out a defeated sigh, "shiiit. Ayame, I think I might just have to become a villain." I tactfully inform my companion.</p>
 <p>She doesn't reply for a good ten seconds before I hear a tired grunt, "...huh?"</p>
-<p>I'm too stunned by all the new information to elaborate properly and soon I hear a defeated sigh from my lovely companion who then completely ignores me for the rest of the night. ŗÀ₦𝘖ᛒÊ𝐬</p>
+<p>I'm too stunned by all the new information to elaborate properly and soon I hear a defeated sigh from my lovely companion who then completely ignores me for the rest of the night.</p>
 <p>—</p>
 <p>- Day 3 -</p>
 <p>We wake up in the early morning refreshed and quite energetic. I can tell from Ayame's expression that she is very happy to finally sleep in a bed without being chained to it. Her serene smile, softened by the morning light, is a welcome change from the guarded look she wore when we first met.</p>

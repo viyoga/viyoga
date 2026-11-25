@@ -30,7 +30,7 @@ chapter = 355
 <p>Damian understood that his life depended on his sister relaying this to their father, though, so he calmed her and got her to memorize the words.</p>
 <p>"Bruwder back if father pay!" She cried the info she was meant to know amid her teary sobs.</p>
 <p>"Yes. Good girl! I'll see you soon, so don't cry so much. I'm only going away for a little while."</p>
-<p>His attempts at calming her were very unsuccessful. The men quickly lost patience and after a minute or so grabbed onto him. Within a few blinks they were already out of Iris' range of sight. Rᴀ𝐍ŏBƐṢ</p>
+<p>His attempts at calming her were very unsuccessful. The men quickly lost patience and after a minute or so grabbed onto him. Within a few blinks they were already out of Iris' range of sight.</p>
 <p>She cried for a few more minutes before I could feel a drastic shift in her mental state. She steeled her resolve, and with the fastest steps she'd ever taken she rushed back to the mansion.</p>
 <p>"Young lady?!" Sarah, the old headmaid shouted when she saw the little girl barreling down towards the mansion's entrance. She kneeled in front of the girl and began inspecting her body for any injuries. There were none, though her clothes did get muddy, and her eyes were deep red from all the crying.</p>
 <p>"Bruwder taken! Father pay money, get him back!" She was incredibly resolute, so much so that her mental strength even made me believe that Damian could easily be saved. After all, a noble should have numerous assets he could liquidate at a moment's notice, right? Paintings, sculptures, artifacts, arms, and armor just to name a few.</p>

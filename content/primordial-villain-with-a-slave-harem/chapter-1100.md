@@ -25,7 +25,7 @@ chapter = 1100
 <p>Before he could offer the woman a second vial, the silence was shattered with a hiss of displaced air as Vex stormed into the room. Her frantic red eyes darted about, scanning the room, instantly noticing the blood stains on the floor, and finally... Black Fang. In less than a heartbeat, her gaze settled on the two limp bodies dangling from the woman’s shoulders.</p>
 <p>"Your home was attacked, Master?" Vex asked.</p>
 <p>"Yes," Black Fang said flatly, giving no elaboration.</p>
-<p>Vex’s eyes then locked onto Orianna in particular. Quinlan’s chest tightened when he noticed the difference. Raika stirred faintly, breathing shallowly. Orianna... didn’t. Her chest was still, lips pale, eyes closed in what seemed to be finality. ℞ΆꞐȰʙĚ𐌔</p>
+<p>Vex’s eyes then locked onto Orianna in particular. Quinlan’s chest tightened when he noticed the difference. Raika stirred faintly, breathing shallowly. Orianna... didn’t. Her chest was still, lips pale, eyes closed in what seemed to be finality.</p>
 <p>A pang of worry pierced Quinlan. Not for Orianna herself, but for Vex. He knew how much this woman meant to her. Officially an elder disciple, but so much more than that. An elder sister, perhaps even a mother-figure. A thorn in her side, yes, but still family.</p>
 <p>"I’ll call for help," Quinlan said, moving to connect to Liora and Seraphiel.</p>
 <p>"Don’t bother, Hubby," Vex stopped him with an almost eerie calm. Her eyes didn’t leave Orianna.</p>

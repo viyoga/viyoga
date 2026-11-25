@@ -25,7 +25,7 @@ chapter = 692
 <p>It turned to her next.</p>
 <p>Her own death came quickly. The pain meant nothing compared to the utter agony of failure.</p>
 <p>Seraphiel couldn't care less about her own death. As soon as Quinlan died, she would stop resisting. Why?</p>
-<p>Because if she failed to save him, continuing life was an utterly worthless endeavor. Seraphiel knew Quinlan would want her to continue living her life if he were to perish… řà𐌽ȰＢƐ𐌔</p>
+<p>Because if she failed to save him, continuing life was an utterly worthless endeavor. Seraphiel knew Quinlan would want her to continue living her life if he were to perish…</p>
 <p>But her heart was heavy. Every time she saw his death, tears welled in her eyes, and she screamed with pain, even though her brain now understood it was not exactly reality. Yet, her heart was just as taxed as before the realization dawned on her.</p>
 <p>The battlefield reset.</p>
 <p>Seraphiel burst into pained sobs, her hands trembling around her staff.</p>

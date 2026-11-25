@@ -26,7 +26,7 @@ chapter = 346
 <p>Indeed, the land upon which the three countries, namely the Vraven Kingdom, The Alliance of Elvardia, and the Beastman Confederation lay is sealed. No one can come or go, save for the Fujimori clan who somehow found a way in many thousands of years ago but their secrets are not open to the public at all, and there’s a good chance it was either pure coincidence or the knowledge got lost somewhere down the line even in their household, since I doubt the king would allow them to keep such a secret.</p>
 <p>Luminara had a sour expression while replying. "Sorry, Quinnie, we can’t tell you that. This accursed pact is forcing our silence."</p>
 <p>I couldn’t do much besides accept it. There was no need to throw a tantrum fit at their inability to help me, especially because these two kind souls have suffered much more due to it than I ever would.</p>
-<p>"Don’t worry about it. You’ve already blessed me with a lot of valuable information." I said while tightening my grip around their hands, eliciting a small, thankful giggle from both. ṚáꞐՕＢË𝒮</p>
+<p>"Don’t worry about it. You’ve already blessed me with a lot of valuable information." I said while tightening my grip around their hands, eliciting a small, thankful giggle from both.</p>
 <p>"Can I call you Lumi? Your name is too long." I asked a more lighthearted question.</p>
 <p>The busty elf beamed as she threw herself at me in a fervent hug. "Of course! You can call Mommy whatever you prefer as long as it’s a cute name!"</p>
 <p>I felt my other mother tug at my hand expectantly.</p>

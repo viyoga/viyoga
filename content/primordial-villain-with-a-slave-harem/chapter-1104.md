@@ -27,7 +27,7 @@ chapter = 1104
 <p>"And this is how you repay him? By standing in his home and ordering him around like some errand boy?"</p>
 <p>The disciple’s chest heaved, but she didn’t back down. Not an inch.</p>
 <p>"When you address the man before you, you’re not just speaking to your Vesper Phenom subordinate, Black Fang."</p>
-<p>She jabbed a finger against her own chest, and her voice rose as a challenge that was hurled straight at the woman who had once shaped her. "You’re speaking to my husband, and I demand you show him respect or leave our home." 𝘙âℕÒᛒĚʂ</p>
+<p>She jabbed a finger against her own chest, and her voice rose as a challenge that was hurled straight at the woman who had once shaped her. "You’re speaking to my husband, and I demand you show him respect or leave our home."</p>
 <p>As the tension between the two women thickened, Quinlan leaned forward in his seat, placed his elbows on his knees, and began thinking inwardly.</p>
 <p>Sending Black Fang to confront Morgana was the definition of a double-edged sword.</p>
 <p>It had far too many pros and cons; he had to think it over.</p>

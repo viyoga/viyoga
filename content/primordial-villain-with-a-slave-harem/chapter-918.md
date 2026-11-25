@@ -35,7 +35,7 @@ chapter = 918
 <p>It was a place untouched by time.</p>
 <p>A place Quinlan had never been to before.</p>
 <p>His steps slowed. "...Mothers? What is this place?"</p>
-<p>Luminara glanced over her shoulder with a cheeky little smile. "This is the Sanctuary of Slumbering Lords. A resting place of our kindred spirits, the Primordial Vampires." Ꞧ𝐚Ꞑo͍BΕʂ</p>
+<p>Luminara glanced over her shoulder with a cheeky little smile. "This is the Sanctuary of Slumbering Lords. A resting place of our kindred spirits, the Primordial Vampires."</p>
 <p>Even Serika paused mid-step.</p>
 <p>"...Vampires?"</p>
 <p>The pale-skinned bloodsuckers have even made their legends traverse into the sealed-off world of Zhenwu without being physically present.</p>

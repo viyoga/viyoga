@@ -29,7 +29,7 @@ chapter = 942
 <p>&lt;...And now?&gt;</p>
 <p>&lt;Now, he sees his chances slipping. With the outbreak of open conflict against the Greenvale Duke family and their vassals, the entire Vesper Consortium has been forced to break out of its shell.&gt;</p>
 <p>Her voice tightened, the bitterness becoming heavier with each word.</p>
-<p>&lt;Were no longer just a shadowy force pulling strings behind the curtain. The Consortium is fighting a war, Quin. A real, public war. One were losing. And as you can probably guess...&gt; ṜÃŊ𝙤𝐛ЁⱾ</p>
+<p>&lt;Were no longer just a shadowy force pulling strings behind the curtain. The Consortium is fighting a war, Quin. A real, public war. One were losing. And as you can probably guess...&gt;</p>
 <p>She gave a quiet, mirthless laugh.</p>
 <p>&lt;...the value of merchants and gold goes down in wartime. Drastically. We become secondary to the fighters and mages on the front lines. Even those crafting gear or maintaining the supply lines shoot up in value significantly. Contributions in coin mean less than the blood spilled for the cause. No ones interested in profit reports when the skies are burning.&gt;</p>
 <p>Her words painted a grim truth only insiders could fully understand.</p>

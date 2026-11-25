@@ -29,7 +29,7 @@ chapter = 638
 <p>"You're right! Please, follow me. I'll show you that the saying you brought up is most certainly true!"</p>
 <p>"I'll be in your care."</p>
 <p>With that, our little journey across Canisgard began.</p>
-<p>"Canisgard is separated into three layers," Kitsara said while walking next to me. She leaned closer and whispered, "Some people call them the Alpha, Beta, and Omega layers, but those are not official names. If you talk with Father, make sure not to mention them, he hates these names." ℞ΑΝȯβĘṨ</p>
+<p>"Canisgard is separated into three layers," Kitsara said while walking next to me. She leaned closer and whispered, "Some people call them the Alpha, Beta, and Omega layers, but those are not official names. If you talk with Father, make sure not to mention them, he hates these names."</p>
 <p>"Thanks for the heads up. What's the function of the layers?"</p>
 <p>"The first layer, which is the innermost section, houses the ruling caste, the elite warriors, and our most skilled hunters. The second layer, the middle section, is all about trade—it's filled with markets and craftsman quarters. This is the largest area, and during the day, it gets so busy! I once got separated from my father in the bustling street when I was young…"</p>
 <p>Based on her wry expression, it wasn't hard to guess what happened. "You cried?"</p>

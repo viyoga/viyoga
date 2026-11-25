@@ -26,7 +26,7 @@ chapter = 507
 <p>A noble declared from a few rows behind me. He was quickly squashed by another, "Ten gold!"</p>
 <p>"Fifteen."</p>
 <p>"Twenty!"</p>
-<p>I decided to raise my voice to silence the masses, "One hundred gold." I knew they would keep going back and forth using such small amounts, so it was best to just get rid of the poor. 𝘳Ά𐌽öВƐŚ</p>
+<p>I decided to raise my voice to silence the masses, "One hundred gold." I knew they would keep going back and forth using such small amounts, so it was best to just get rid of the poor.</p>
 <p>The auctioneer grinned, "Ah, we have an eager bidder! One hundred gold from Lord Black!"</p>
 <p>Instant shouts of disbelief and annoyed murmurs sounded from all around the vast building. I was betting on strange consumables that looked very cool for sure, but none had a clue as to what were their actual uses.</p>
 <p>The fact that they were consumables also raised many eyes. You drank them and then they were gone. In general, people tended to value artifacts much higher than elixirs due to their nature to remain useful forever.</p>

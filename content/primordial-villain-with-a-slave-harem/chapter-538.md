@@ -32,7 +32,7 @@ chapter = 538
 <p>Our lovemaking was intense yet tender, a delicate balancing act.</p>
 <p>As our passion reached its peak, Seraphiel leaned forward, but not enough for our lips to connect. She merely wished to look into my eyes from closer. Our gazes attached to each other’s, becoming inseparable.</p>
 <p>She lowered herself on my length one final time, before a final, earth-shattering climax came over the both of us, after which she collapsed onto my chest.</p>
-<p>"My win." Sera purred merrily before nuzzling her head into my neck in a rather needy manner. It didn’t take a genius to see that her heart was overcome with happy emotions. ŕ𝘢ɴòβΕs̈</p>
+<p>"My win." Sera purred merrily before nuzzling her head into my neck in a rather needy manner. It didn’t take a genius to see that her heart was overcome with happy emotions.</p>
 <p>"That it is."</p>
 <p>She giggled, "Hehe! Now my previous self seems like a fool for being so nervous about getting intimate with you."</p>
 <p>I stroked her tender back lovingly as I replied, "And it’s not like we can’t keep flirting just because we had sex. I don’t want to lose our playful exchanges just because we became an item."</p>

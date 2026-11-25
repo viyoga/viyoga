@@ -34,7 +34,7 @@ chapter = 1094
 <p>"See you in eighty-six years, when the contract demands it."</p>
 <p>But then she visibly brightened as an idea sparked across her expression.</p>
 <p>"Actually, scratch that. Just send me your sperm and I’ll take care of it."</p>
-<p>She let go of an unhinged giggle, after which, with deliberate flair, she lifted her crown off her head and flicked it with a finger. Wind magic carried it from her hold, spinning in the air before clattering to the floor at Alexios’s feet. 𝖗𝘼𐌽𝐨𐌱ÊŠ</p>
+<p>She let go of an unhinged giggle, after which, with deliberate flair, she lifted her crown off her head and flicked it with a finger. Wind magic carried it from her hold, spinning in the air before clattering to the floor at Alexios’s feet.</p>
 <p>"Bye, Husband" she sang with an excited tone, excited to get her hands dirty in the hunt for Devil.</p>
 <p>She turned and opened the door, already calling:</p>
 <p>"Andre, Cassandra, follow me. Ready the other squad captains, we’re moving out. Oh, and I wonder what my sister is up to...?"</p>

@@ -34,7 +34,7 @@ chapter = 830
 <p>Serika didn’t move.</p>
 <p>She just stood there, staring at the picture as if she’d found a ghost she’d been chasing for a lifetime.</p>
 <p>Quinlan gave her a moment before continuing.</p>
-<p>"He took me in as his student, though he never said why. The bastard didn’t even give the two of us room in his shack, made us sleep outside... We didn’t talk much. Most of our time was spent training. He was an extremely harsh teacher. Brutal hours in the sun, fists bleeding, muscles torn. He didn’t teach through words but pain and repetition." 𝙧𝔞ƝO͍ВΕS̩</p>
+<p>"He took me in as his student, though he never said why. The bastard didn’t even give the two of us room in his shack, made us sleep outside... We didn’t talk much. Most of our time was spent training. He was an extremely harsh teacher. Brutal hours in the sun, fists bleeding, muscles torn. He didn’t teach through words but pain and repetition."</p>
 <p>He glanced down at Feng, still sleeping soundly against his chest.</p>
 <p>"I stayed for months. I was too stubborn to leave despite him being a terribly rude person. Deep down, I knew I was learning something priceless."</p>
 <p>Serika finally smiled at his words and muttered tenderly, "Sounds just like him..." Her hands tightened over the pocketwatch as she next asked, "Do you remember where this took place?"</p>

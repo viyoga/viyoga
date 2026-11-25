@@ -25,7 +25,7 @@ chapter = 927
 <p>Not at all.</p>
 <p>But she was a 200-year-old battle-hardened cultivator who had spent nearly her entire life training, fighting, and surviving in a ruthless world. Her mother had died when she was barely out of infancy, and the man who raised her, Rykar Vael, was more stone than flesh when it came to emotions. His parenting philosophy had been simple:</p>
 <p>’If you’re breathing, you should be training.’</p>
-<p>So now, here she was... being bathed, massaged, and cooed over like a delicate princess. The two warm, soft, terrifyingly loving women had shown her more physical affection in a day than she’d received in two centuries. 𝘙𝔞N𝔬ʙÊ𐌔</p>
+<p>So now, here she was... being bathed, massaged, and cooed over like a delicate princess. The two warm, soft, terrifyingly loving women had shown her more physical affection in a day than she’d received in two centuries.</p>
 <p>It made her feel... warm.</p>
 <p>Soft.</p>
 <p>And so very exposed.</p>

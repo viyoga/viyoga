@@ -27,7 +27,7 @@ chapter = 314
 <p>"Isn't that against the rules?" I asked though hope had already left my soul.</p>
 <p>"No. The others will be doing missions given by the heads too, just drawn from a lottery instead of specifically selected for them."</p>
 <p>Figures.</p>
-<p>"Anyhow. You are to rest today and meet up at a specific coordinate where the rest of the team will be at. They are candidates who passed the first round at other locations. Also, your examiner will be Black Fang's personal pupil who is of the Veil Walker rank." Ꞧ𝙖₦ＯВÊş</p>
+<p>"Anyhow. You are to rest today and meet up at a specific coordinate where the rest of the team will be at. They are candidates who passed the first round at other locations. Also, your examiner will be Black Fang's personal pupil who is of the Veil Walker rank."</p>
 <p>Great. Amazing even.</p>
 <p>"Can you tell us what the mission is about?" Ambition asked this time around, evidently not overly bothered by the revelations.</p>
 <p>"Yes. Lady Black Fang's drug empire has been under attack on the west part of the duchy by Silverwind's biggest syndicate, the Phantom League. They are a similarly giant-sized organization like our Vesper Consortium and have been aggressively invading our territories and wreaking havoc, especially targeting our drug operations. You are to show them that the Consortium is not to be trifled with by returning the favor. You will spearhead an invasion into their territory and cause as much damage as you possibly can. That's all."</p>

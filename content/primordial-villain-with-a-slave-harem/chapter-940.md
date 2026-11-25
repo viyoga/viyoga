@@ -32,7 +32,7 @@ chapter = 940
 <p>"You didn’t... really get that much stronger, right? Or did my handsome hubby truly turn into someone so terrifying while I wasn’t looking?"</p>
 <p>Quinlan said nothing.</p>
 <p>He simply smirked.</p>
-<p>Then, with a slap on her butt for dramatic effect, he materialized the System Window, a semi-transparent blue interface that shimmered with layered data. 𝑅𝐚ɴǑᛒЕⱾ</p>
+<p>Then, with a slap on her butt for dramatic effect, he materialized the System Window, a semi-transparent blue interface that shimmered with layered data.</p>
 <p>Vex’s eyes locked onto it.</p>
 <p>And widened.</p>
 <p>"...No fucking way."</p>

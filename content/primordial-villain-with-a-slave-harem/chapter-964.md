@@ -32,7 +32,7 @@ chapter = 964
 <p>He just stared and examined the faces of the two women.</p>
 <p>The lazy, half-lidded glow in his eyes shifted.</p>
 <p>And then...</p>
-<p>The ground beneath him trembled. Air collapsed inward. Reality itself seemed to pulse like a heartbeat as his aura ignited, an abyssal flare of soul-warping dominance. ȐάＮòᛒÈṧ</p>
+<p>The ground beneath him trembled. Air collapsed inward. Reality itself seemed to pulse like a heartbeat as his aura ignited, an abyssal flare of soul-warping dominance.</p>
 <p>Alongside his outburst, a low hum resonated, as though the universe itself remembered exactly who stood here.</p>
 <p>Amara and Vivienne instantly froze.</p>
 <p>Their lungs seized.</p>

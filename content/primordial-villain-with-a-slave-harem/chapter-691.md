@@ -53,7 +53,7 @@ chapter = 691
 <p>"Let me tell you a tale, Ayame. A tale of our great ancestor. A warrior unlike any other. A woman whose blade cut through the heavens themselves."</p>
 <p>She had been a child then, sitting beside her father under the cherry blossoms, her tiny hands curled around a wooden training sword.</p>
 <p>She had listened, wide-eyed.</p>
-<p>This woman, whose name has been shamefully lost to time over the many generations that have passed since her death, was a warrior of unparalleled elegance and might. 𝘙Α𝐍ổBËş</p>
+<p>This woman, whose name has been shamefully lost to time over the many generations that have passed since her death, was a warrior of unparalleled elegance and might.</p>
 <p>A legend who wielded lightning as an extension of her very soul.</p>
 <p>"She moved like the storm, struck like divine judgment."</p>
 <p>"Where others wielded swords, she wielded thunder itself."</p>

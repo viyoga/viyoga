@@ -27,5 +27,5 @@ chapter = 666
 <p>"You drive a hard bargain, human warrior," Gorruk replied after a few seconds. He looked around, silently asking the opinion of his fellow beastkin allies. They each nodded their heads. They've been warring against the Greenvales for time immemorial, our ask to have them invade their lands was right up their alley. Their reluctance stemmed from being worried about being used by us. Humans had a strong stigma of being sneaky and good, opportunistic liars. These honorable fighters didn't like us much.</p>
 <p>However, if the Consortium committed over 30,000 of their warriors to their cause, it was a deal that benefited them more than well, showing the sincerity of the syndicate.</p>
 <p>But then, it was none other than Rajah and Skarn who spoke up in unison. They were on the same wavelength, and what they would say shocked every single member present.</p>
-<p>"We're only willing to entertain this pact if Grim Reaper of the Skies—or Devil as you call this creature—signs a separate non-aggression pact with us, the Beastman Confederation, lasting a millennia." Ṝàɴŏ𝖇ЁⱾ</p>
+<p>"We're only willing to entertain this pact if Grim Reaper of the Skies—or Devil as you call this creature—signs a separate non-aggression pact with us, the Beastman Confederation, lasting a millennia."</p>
 <p>"… What?"</p>

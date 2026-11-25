@@ -30,7 +30,7 @@ chapter = 466
 <p>&lt;Child of Agony 8 -&gt; 10&gt;</p>
 <p>[Unused Skill Points: 3 -&gt; 9]</p>
 <p>[Unused Attribute Points: 0 -&gt; 10]</p>
-<p>I elected not to invest my attribute points into any of my stats because I feared that someone might notice me leveling up too much if I had to go all out in one of my fights since if they were observant, they could see that I had more stats than before even without a status window telling them that. 𝐫𝒶ƝöᛒΕṢ</p>
+<p>I elected not to invest my attribute points into any of my stats because I feared that someone might notice me leveling up too much if I had to go all out in one of my fights since if they were observant, they could see that I had more stats than before even without a status window telling them that.</p>
 <p>Leveling up once was one thing, but twice…? At my level that should not be possible without my 3 times XP multiplier because it costs just so damn much XP to level up.</p>
 <p>Speaking of, my Primordial Villain class had finally reached level 25.</p>
 <p>This was the class I technically shouldn't have, according to my primordial mommies. Every primordial had only one Primordial-named, Unique-tier class and that class should be the perfect encapsulation of their entire being. Drangar with his berserker class and the slimy (and heavily deranged) Karl with his shapeshifter one.</p>

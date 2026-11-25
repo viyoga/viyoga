@@ -23,7 +23,7 @@ chapter = 598
 <p>It was purposeful.</p>
 <p>And perhaps that was what I had failed to see.</p>
 <p>I let out a slow breath, feeling the heat sear my skin.</p>
-<p>If I wanted to master this fire, I could not fear it. I could not simply cage it within me and hope that it counted as control. That was not mastery but mere ignorance coupled with cowardice. ℞ＡꞐỒ𝐛ЁS</p>
+<p>If I wanted to master this fire, I could not fear it. I could not simply cage it within me and hope that it counted as control. That was not mastery but mere ignorance coupled with cowardice.</p>
 <p>If I wanted to truly claim this power as my own, then there was only one thing I could do.</p>
 <p>Merely observing the flames all around me would not be sufficient.</p>
 <p>I had to let it go.</p>

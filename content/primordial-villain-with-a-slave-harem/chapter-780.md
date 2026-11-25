@@ -23,7 +23,7 @@ chapter = 780
 <p>"Eve," I said aloud, more in realization than greeting.</p>
 <p>The bodyguard of the Greenvale twins. I'd killed her cleanly when I ambushed their ride traveling back home from the Grand Auction in the royal capital. I remembered how she'd stepped between me and her charges without hesitation. Noble-spirited. Loyal. Unquestioning. And now, she was here.</p>
 <p>"Take off your helmet," I ordered.</p>
-<p>The soul obeyed without hesitation, with one hand lifting the phantom helm and letting it fall away into the ether. It seemed they could summon and de-summon their equipment. R𝐀ŊőΒËṡ</p>
+<p>The soul obeyed without hesitation, with one hand lifting the phantom helm and letting it fall away into the ether. It seemed they could summon and de-summon their equipment.</p>
 <p>Her face became clearer—well, as clear as a ghost could be. No doubt remained.</p>
 <p>It was her.</p>
 <p>"Do you understand me?"</p>

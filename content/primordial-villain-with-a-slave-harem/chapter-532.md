@@ -29,7 +29,7 @@ chapter = 532
 <p>The resulting loud bangs of my actions reverberated through the entire establishment, silencing the previously cheerful chatter within. Multiple heads turned toward me with their expressions ranging from curiosity to outright irritation at my arrogant entrance. I ignored them all and strolled toward the reception desk.</p>
 <p>"I need your best room," I declared without mincing my words, before adding; "And make sure we’re not disturbed. I’m not in the mood to kill anyone tonight."</p>
 <p>As far as I was concerned, I was the only man who had the right to see my women naked, so if a man walked in on us I would be forced to continue the tradition by eliminating him from the ranks of the living.</p>
-<p>Her brow arched at the threat, but the woman merely nodded as she opened a thick ledger and began scribbling. "The VIP suite is available. Top floor, far end of the hall. It’s soundproofed, fully stocked, and comes with its own pool with heated water. Will that suffice?" ȑÂ𝐍Ộ₿Ε𝓢</p>
+<p>Her brow arched at the threat, but the woman merely nodded as she opened a thick ledger and began scribbling. "The VIP suite is available. Top floor, far end of the hall. It’s soundproofed, fully stocked, and comes with its own pool with heated water. Will that suffice?"</p>
 <p>I nodded. "Perfect."</p>
 <p>"The rate is-"</p>
 <p>"Change it for me," I interrupted by flicking a gold coin at her, which she caught. The woman glanced at the shiny metal with a greedy expression before pocketing it and giving me the change in silver coins. Then, she handed me a key with an ornate crest engraved on it.</p>

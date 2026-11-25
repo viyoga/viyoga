@@ -28,7 +28,7 @@ chapter = 928
 <p>"Oh, and if you think Kitsara was unhinged..." he purred, sitting up slightly between them, elemental eyes gleaming with pure mischief.</p>
 <p>"...Just wait until you meet number eight."</p>
 <p>The moment Quinlan purred those ominous words, both mothers stiffened.</p>
-<p>Luminara and Mearie gulped in unison, eyes narrowing at the sheer darkness—and thrill—in their son’s voice. That twisted smirk, those eyes that shimmered with mischief and elemental clarity... This wasn’t just a tease. This was a warning. 𐍂ÅN𝔬฿Ёš</p>
+<p>Luminara and Mearie gulped in unison, eyes narrowing at the sheer darkness—and thrill—in their son’s voice. That twisted smirk, those eyes that shimmered with mischief and elemental clarity... This wasn’t just a tease. This was a warning.</p>
 <p>A glance passed between them. Silent, wordless, and deeply motherly.</p>
 <p>’We have to see.’</p>
 <p>’We must correct Quinnie if this one’s truly horrible.’</p>

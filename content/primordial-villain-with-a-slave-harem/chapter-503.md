@@ -25,7 +25,7 @@ chapter = 503
 <p>However, it quickly became evident to me that this Lady Marietta only bought slave girls who were stripped of their rights as human beings to the utmost, as the fat noble who bought the cook had a gleeful grin and was already in the middle of inviting his friends to taste the girl together with him.</p>
 <p>How disgusting.</p>
 <p>I had the urge to spit.</p>
-<p>I glanced at the princess and saw that her poker face was slipping as she heard the very same vile things being uttered as I did. It took a great deal of self-control on her part not to tremble. ṘåΝỘᛒÈʂ</p>
+<p>I glanced at the princess and saw that her poker face was slipping as she heard the very same vile things being uttered as I did. It took a great deal of self-control on her part not to tremble.</p>
 <p>The head maid who told me to stop kissing my Jasmine in front of Felicity walked up to the girl to hand her a cup of tea with some biscuits, which helped draw her attention away from the still-boasting man.</p>
 <p>The culinary maid who got sold watched on from the podium with utterly ashen features before she was dragged off. The eight other women eyed her departure with a mixture of sorrow for the woman they spent a lot of time together with, and with increased anxiety for their own fate.</p>
 <p>As for the teen, she was too scared to even look at the departing woman. She was just looking at her feet while sobbing, which only increased in intensity when the host spoke up again.</p>

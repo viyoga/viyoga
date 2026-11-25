@@ -28,7 +28,7 @@ chapter = 863
 <p>A shift in the wind. The courtyard banners fluttered, and a playful breeze tousled his hair.</p>
 <p>Then came the sound—fwip fwip fwip—soft and rhythmic, like a reed dancing across water.</p>
 <p>And from the clouds above, he saw him.</p>
-<p>A lone figure drifting downward in a slow spiral, standing atop a narrow wooden board no wider than a roof tile. His robes were loose, windswept, half open at the chest. One hand behind his head, the other resting lazily on his hip, the young man yawned mid-glide like the journey itself had been an inconvenience. 𝙧ᴀɴÓᛒÊŜ</p>
+<p>A lone figure drifting downward in a slow spiral, standing atop a narrow wooden board no wider than a roof tile. His robes were loose, windswept, half open at the chest. One hand behind his head, the other resting lazily on his hip, the young man yawned mid-glide like the journey itself had been an inconvenience.</p>
 <p>He looked barely twenty, with messy sea-salt hair and eyes that didn’t seem to care what they were looking at.</p>
 <p>The wind gathered around him gently, like it didn’t want to disturb his mood.</p>
 <p>The elders all bowed as he finally descended and touched down at the edge of the courtyard. He didn’t speak. Didn’t bow. He scratched his stomach and stared at the palace roof.</p>

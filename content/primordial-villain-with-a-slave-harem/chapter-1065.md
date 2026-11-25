@@ -33,7 +33,7 @@ chapter = 1065
 <p>"Relax. I disabled it."</p>
 <p>Yoruha’s voice. Feminine. Playful. But it carried with crystalline sharpness, echoing across the stronghold as though she stood among them. Yet everyone knew she wasn’t here, probably already curled up into a ball somewhere, busy being pampered by Celeste, her handmaiden.</p>
 <p>"The necklace is veiled now," the foxkin continued. "It’s nothing more than a communicator. No location-sharing, no tracking, no listening ears. I made sure of that much."</p>
-<p>Quinlan froze, his fingers still wrapped around the jewel, the portal swirling hungrily beside him. Slowly, he exhaled, retracting his arm before releasing the chain. The portal snapped shut with a heavy thoom. ꭆÂ₦ỗＢЁṠ</p>
+<p>Quinlan froze, his fingers still wrapped around the jewel, the portal swirling hungrily beside him. Slowly, he exhaled, retracting his arm before releasing the chain. The portal snapped shut with a heavy thoom.</p>
 <p>Felicity staggered back a step, pale as chalk. Her eyes were wide, utterly lost as to why they had nearly torn her throat open without warning. She trusted this group a great deal. One could easily argue that she trusted them far, far too much. But such was the mind of a child. Logic wasn’t always their strong suit.</p>
 <p>Her lips parted in confusion until Yoruha’s words clicked in her brain.</p>
 <p>The princess’s trembling eased as understanding dawned.</p>

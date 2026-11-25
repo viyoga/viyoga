@@ -28,7 +28,7 @@ chapter = 914
 <p>Both women gasped, cheeks flushing red with anger in unison.</p>
 <p>"That is entirely beside the point, young man! This simply won’t do!" they cried together.</p>
 <p>Without further ado, they marched over to the bed, grabbed a wrist and an ankle each, and dragged their son bodily from the silken pile, ignoring his amused, indulgent chuckles.</p>
-<p>"Come now, come now!" Mearie chirped, voice trembling with excitement. "As your mothers, it’s become apparent we didn’t teach you proper manners, Quinnie!" ř₳ΝО𝖇ĘṤ</p>
+<p>"Come now, come now!" Mearie chirped, voice trembling with excitement. "As your mothers, it’s become apparent we didn’t teach you proper manners, Quinnie!"</p>
 <p>"Indeed!" Luminara agreed, nodding so fervently that her long elven ear bounced along with her head. "We refuse to let our son be a son of a b- who thinks he can be lazy and indifferent after bedding a girl!"</p>
 <p>She flicked his forehead. *Flick!*</p>
 <p>"A proper gentleman," she continued his lecturing, her voice taking on that classic mother-lecture tone, "will treat his women as if they are on their first date, even if it is their millionth. He will show them that their presence, their affection, their very existence, still makes his heart race with joy and anticipation!"</p>

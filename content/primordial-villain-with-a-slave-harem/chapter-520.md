@@ -26,7 +26,7 @@ chapter = 520
 <p>"I’d always wanted to do this…"</p>
 <p>He murmured in a strangely excited tone, then he let go of his saber which hovered in the air as if patiently waiting for him to finish and grab onto it once again, and he aimed his two hands at Eve, with his ten fingers outstretched.</p>
 <p>She knew that a spell was coming, so she bolted in his direction, intent on cutting him down before he could cast whatever it was.</p>
-<p>The man then parted his lips and in a deep, ominous tone, he decreed; "Your feeble skills are no match for the power of the Dark Side. [Shock Lightning]!" ŗаＮȱ𝐁ЁŚ</p>
+<p>The man then parted his lips and in a deep, ominous tone, he decreed; "Your feeble skills are no match for the power of the Dark Side. [Shock Lightning]!"</p>
 <p>Eve’s boots thundered against the terrain as she charged forward. Her heart pounded like a war drum, and she fixed her gaze on him, trying to ignore the gnawing sense of dread that clung to her like a second skin.</p>
 <p>Then it happened.</p>
 <p>A flash of crackling light erupted from each of his ten outstretched fingers. The lightning danced and writhed like a living thing, an uncontrollable torrent of raw power. It struck her mid-charge in the form of a direct hit to her torso and her limbs, stopping Eve in her tracks. A searing pain shot through her body as her muscles began convulsing uncontrollably and her scream of agony ripped through the air.</p>

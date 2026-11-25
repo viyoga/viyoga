@@ -27,7 +27,7 @@ chapter = 643
 <p>Her hands shimmered before morphing into graceful, semi-transparent wings. They weren't real—merely an optical trick given form—but they worked. Kitsara's illusions had always leaned toward deception, yet they weren't entirely false either.</p>
 <p>She had already demonstrated an ability to elongate her ears and tail at will, subtly shifting parts of her body through illusion magic that bent reality rather than simply disguising it. Her wings followed a similar principle. They weren't flesh and bone, but the magic supporting them wasn't just for show—it manipulated the air itself, allowing her to stay aloft.</p>
 <p>It wasn't true shapeshifting. Not yet. But it hinted at the potential lurking within her magic. If she kept developing, her illusions might one day become more than just tricks of the eye. I firmly believed they could become real.</p>
-<p>Kitsara flapped her wings hard against the air, wildly struggling to stabilize herself. At first, she spiraled out of control, nearly crashing into a tall building. But she gritted her teeth and corrected her posture. Slowly, her descent evened out, turning into a shaky glide. RἈ𐌽ȏβΕ𝘴</p>
+<p>Kitsara flapped her wings hard against the air, wildly struggling to stabilize herself. At first, she spiraled out of control, nearly crashing into a tall building. But she gritted her teeth and corrected her posture. Slowly, her descent evened out, turning into a shaky glide.</p>
 <p>Then, with a determined grin, she soared back up toward me. Her golden eyes were burning with the desire for revenge.</p>
 <p>"Oh-ho?" I raised an amused eyebrow at the sight. "The little foxy wants payback?"</p>
 <p>Just as she got within striking distance, I casually parted my arms—</p>

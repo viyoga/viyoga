@@ -30,7 +30,7 @@ chapter = 225
 <p>"I'm running low on stamina."</p>
 <p>"Need mana too… My apologies, master."</p>
 <p>The underlings speak up one after the other. Looks like the hyena monster got them good.</p>
-<p>"Argh!" The noble punches the chamber wall frustratedly, but relaxes afterwards. "Alright… You useless fucks. Ten minutes." They sit on the ground opposite of us. R𝘼Ŋ𝔬βÈș</p>
+<p>"Argh!" The noble punches the chamber wall frustratedly, but relaxes afterwards. "Alright… You useless fucks. Ten minutes." They sit on the ground opposite of us.</p>
 <p>I don't see what's the issue is of this angry loser. Isn't one of the main advantages of the labyrinth is that you can take the challenge at your own pace? Why rush? Is there a speedrunning competition going on outside or what?</p>
 <p>&lt;Quinlan, I smell trouble.&gt; Ayame notifies me.</p>
 <p>&lt;If there is, try not to damage that beautiful armor or sword. We barely have cash, you girls are way too high maintenance for this poor, innocent guy. We gotta pawn it off using the Consortium's connections.&gt;</p>

@@ -31,7 +31,7 @@ chapter = 530
 <p>*Slap!*</p>
 <p>I slapped her perky behind which was easy to do, as it was right next to my face due to the position I hauled her over my shoulder in.</p>
 <p>"Kya! Quinlan ’The Caveman’ Noir, what do you think you’re doing?!"</p>
-<p>"What does it seem like I’m doing? I’m educating my disobedient woman who is making an unnecessary scene. Didn’t you hear your mother? You’re mine in body and soul." ṙΆ₦Ố𐌱Ε§</p>
+<p>"What does it seem like I’m doing? I’m educating my disobedient woman who is making an unnecessary scene. Didn’t you hear your mother? You’re mine in body and soul."</p>
 <p>"Agh!! Not you too!" She shouted and began hitting my back with her fists. Although she did her best to break free of my firm hold, I couldn’t help but think her to be truly adorable right now.</p>
 <p>*Slap!*</p>
 <p>I simply had to deliver another slap to her butt, eliciting another cute yelp.</p>

@@ -27,7 +27,7 @@ chapter = 857
 <p>She blinked once.</p>
 <p>Twice.</p>
 <p>Then slowly turned her head toward Quinlan, her expression one of betrayed horror.</p>
-<p>Her hands gently placed her teacup down with grave care. And then, like knives drawn in silence, her eyes began boring holes into the side of his head. ℞á𝐍∅ＢƐş</p>
+<p>Her hands gently placed her teacup down with grave care. And then, like knives drawn in silence, her eyes began boring holes into the side of his head.</p>
 <p>Quinlan, of course, smiled. That particular, infuriatingly gentle smile of his.</p>
 <p>And continued sipping his tea.</p>
 <p>She kept staring. He kept ignoring.</p>

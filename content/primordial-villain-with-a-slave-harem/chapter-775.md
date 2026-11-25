@@ -31,7 +31,7 @@ chapter = 775
 <p>Aurora then began murmuring under her breath with a troubled tone, “Honestly… ever since Rosie was born, I can’t bring myself to call Quinlan ‘Daddy’ anymore. It makes me feel like a weirdo.”</p>
 <p>Ayame gave a polite, almost professional cough into her hand, but it didn’t hide the sly undertone in which she wordlessly told her, “That’s because you are a weirdo, Aurora. We’ve all thought so for a long time.”</p>
 <p>The women around the blanket burst into merry laughter, and even Poppy joined in, as she quickly found herself liking this odd group of ladies her little sister had found herself in a harem with.</p>
-<p>"Hey!” Aurora cried out in annoyance, glaring at them all with eyes that told tales about the betrayal she was feeling right now. Her pout was so theatrical that it only made everyone laugh harder. ŕ𝐀₦𝘰ᛒΕ§</p>
+<p>"Hey!” Aurora cried out in annoyance, glaring at them all with eyes that told tales about the betrayal she was feeling right now. Her pout was so theatrical that it only made everyone laugh harder.</p>
 <p>Well… not everyone.</p>
 <p>Iris was far too preoccupied with shoving a frightening amount of food into her mouth, so much so that her cheeks bulged like a chipmunk’s. If one saw her current state, they would think this black-haired woman hadn’t eaten anything in weeks.</p>
 <p>The maids had outdone themselves for the picnic, and she seemed determined to personally demolish half the banquet in one sitting.</p>

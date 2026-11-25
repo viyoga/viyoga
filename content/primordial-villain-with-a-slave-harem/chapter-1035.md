@@ -32,7 +32,7 @@ chapter = 1035
 <p>"PATHETIC!"</p>
 <p>The world cracked.</p>
 <p>A deafening explosion split the air as the arena was painted in fire.</p>
-<p>The stage, meant to contain the contestants from harming the spectators, shattered outward like glass under a hammer. Shockwaves screamed from the epicenter, a dome of fire expanding with a rage that tore up stone and steel alike. 𝐑ä𝐍ȫＢËs̩</p>
+<p>The stage, meant to contain the contestants from harming the spectators, shattered outward like glass under a hammer. Shockwaves screamed from the epicenter, a dome of fire expanding with a rage that tore up stone and steel alike.</p>
 <p>The protective barrier around the arena flared, trembling under the sheer force of his unleashed wrath.</p>
 <p>Three separate pulses of light blinked into being on the barrier’s surface. These were emergency reinforcement seals. The outer defensive mages, caught off guard, scrambled as the first few layers of protection disintegrated.</p>
 <p>A wave of heat washed over the spectators, causing them to recoil. Gasps echoed across the coliseum as the explosion bloomed outward in a blinding inferno, flames devouring the center of the arena in seconds.</p>

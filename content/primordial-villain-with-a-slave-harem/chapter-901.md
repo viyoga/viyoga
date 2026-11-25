@@ -34,7 +34,7 @@ chapter = 901
 <p>"Hmph!"</p>
 <p>Another stomp, harder this time. "Bastard!!"</p>
 <p>Yet another. "Hmph!!"</p>
-<p>She stood there in the middle of the soul realm, with a glorious sky stretching above, tranquil rivers winding in the distance, elemental winds brushing her cheeks, and glared in every direction, cheeks puffed so hard her whole face trembled. ṜＡɴỒΒÈS</p>
+<p>She stood there in the middle of the soul realm, with a glorious sky stretching above, tranquil rivers winding in the distance, elemental winds brushing her cheeks, and glared in every direction, cheeks puffed so hard her whole face trembled.</p>
 <p>She screamed again. "NOT FAIR!"</p>
 <p>But no matter how many times she yelled, how many times she huffed, stomped, or tried to demand release from this "divine prison," all she ever got in return...</p>
 <p>Was that smug, endlessly amused laughter echoing faintly across the realm.</p>

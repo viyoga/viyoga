@@ -27,7 +27,7 @@ chapter = 476
 <p>She raised an eyebrow in shock, "you're a father?"</p>
 <p>"I meant my cock."</p>
 <p>"… Oh!" Realization hit her before she burst into laughter.</p>
-<p>While she was having her laughing fit, I glanced at the spot where Kael once was and noticed that his luxurious staff remained intact. When a person holds a weapon in their hand, my primordial eyes are not privy to its information, but now that it was without its owner, I could see that it was an Epic rarity staff made from adamantite, the strongest metal in the world. 𝐫𝘼ℕÓ₿Ě𝓢</p>
+<p>While she was having her laughing fit, I glanced at the spot where Kael once was and noticed that his luxurious staff remained intact. When a person holds a weapon in their hand, my primordial eyes are not privy to its information, but now that it was without its owner, I could see that it was an Epic rarity staff made from adamantite, the strongest metal in the world.</p>
 <p>It must cost an entire fortune, especially due to the imbued skills that restore mana over time and also refund 20% of mana spent on every spell cast. Now I could tell that making Kael exhaust his mana reserves would've been a plan that was destined to fail from the start.</p>
 <p>"Future wife, I wish to obtain my spoils of war." I declared to the woman who was finally coming out of her fit.</p>
 <p>Vex curiously followed the direction where my eyes were looking before landing on the ownerless staff. "Future husband, you are not participating in war but in an organized competition, that staff is the property of the Consortium. Kael received it for a century of excellent service, but it was never an item he owned. Ah-"</p>

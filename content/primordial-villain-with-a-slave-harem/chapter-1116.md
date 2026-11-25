@@ -30,7 +30,7 @@ chapter = 1116
 <p>"You have my gratitude. Speaking of your husband, is he available?"</p>
 <p>Ayame opened her mouth to answer, which would’ve been ’No, but I’ll look for him.’</p>
 <p>But before she could relay those words, a sharp, guttural hiss cut her off. The noise grew into a growl, followed by the sound of frantic flailing.</p>
-<p>Across the stronghold, Quinlan emerged with arms that were full of one very angry, very broken woman. Raika thrashed weakly in his grasp, clawing at his shoulders and snarling. ᚱ𝒶Νồ𝐁Еṩ</p>
+<p>Across the stronghold, Quinlan emerged with arms that were full of one very angry, very broken woman. Raika thrashed weakly in his grasp, clawing at his shoulders and snarling.</p>
 <p>"Release me immediately! I demand a rematch right now!"</p>
 <p>Her voice broke halfway through, more pitiful than terrifying. Her fists thumped against his chest and shoulders, but with her utterly ruined exterior and interior, the strikes were feather-light.</p>
 <p>Quinlan endured it with the calm of a statue, walking forward with a perfectly straight poker face, which only served to infuriate the woman even further.</p>

@@ -29,7 +29,7 @@ chapter = 1062
 <p>"I’ll resist you with everything I’ve got."</p>
 <p>The fox stared down at him for a long moment, her violet eyes flickering with irritation... then resignation. She sighed with reluctance.</p>
 <p>"...A willing pillow is much better, I suppose."</p>
-<p>Quinlan received a nasty side-eye glance when Yoruha turned her head to glare back at him. It was the kind of look only women who’ve been truly annoyed could produce. " 𝐑𝔞Ŋ∅ВЕṥ</p>
+<p>Quinlan received a nasty side-eye glance when Yoruha turned her head to glare back at him. It was the kind of look only women who’ve been truly annoyed could produce. "</p>
 <p>Now I know where that little green devil got her evil nature from. She inherited it."</p>
 <p>Then the immortal foxkin’s paw-turned-claw struck the floor as she stepped forward. The chamber groaned under her weight, the purple light across her tails burning brighter with each sway.</p>
 <p>Morgana and Lilith now stood side by side. The air around them was charged and suffocating.</p>

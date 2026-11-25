@@ -34,7 +34,7 @@ chapter = 197
 <p>I also could've easily dodged her and Aurora's punch, but decided not to bother.</p>
 <p>"You…! It's always you!" She shrieks while 'stabbing' my stomach with her index finger as she points at me accusatorily multiple times.</p>
 <p>I grab her hand. "Calm down. Let's start at the beginning. What's your name? I'm Quinlan, by the way."</p>
-<p>She looks at me with eyes full of hate. I'm really confused as to what I've done. Sure, I sent her on a fetch quest, but I said I would pay a premium as compensation. Instead of being angry, she should be happy to house well-paying customers. 𝙧ᴀŊöꞖЕṩ</p>
+<p>She looks at me with eyes full of hate. I'm really confused as to what I've done. Sure, I sent her on a fetch quest, but I said I would pay a premium as compensation. Instead of being angry, she should be happy to house well-paying customers.</p>
 <p>"... Mavena." She replies after a while of trying to free her hand from my grasp with the other one and realizing that I won't release her.</p>
 <p>"And, Mavena, pray tell, what's the issue?"</p>
 <p>"You! You are the issue. When you first met my mother, you, for whatever reason, made her compare you to my father, and well, I hate to admit it but physically you are ever so slightly better. Probably just due to your age difference." She states dismissively with complete delusion.</p>

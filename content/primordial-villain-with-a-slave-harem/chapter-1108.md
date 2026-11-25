@@ -27,7 +27,7 @@ chapter = 1108
 <p>With a flick of her wrist, she waved at Black Fang like one might shoo away a bothersome guest. "You can leave now, though. I’m feeling sleepy."</p>
 <p>She returned to her bed and sprawled out lazily, eyes turning half-lidded, her voice dipped into a honey-sweet purr as she added, "Run along, little fang. I’ll continue bothering you once I wake up."</p>
 <p>Black Fang stared at the foxkin who now fully closed her eyelids for a long, dangerous second. Her grip on the blade was outright dangerous. But then... her gaze shifted.</p>
-<p>First, to Quinlan, who stood still with a dry expression. He didn’t appreciate the old fox poking the bear, but at the same time, he couldn’t really fault her for doing so, either, considering their shared history. РἈNóBЁꞩ</p>
+<p>First, to Quinlan, who stood still with a dry expression. He didn’t appreciate the old fox poking the bear, but at the same time, he couldn’t really fault her for doing so, either, considering their shared history.</p>
 <p>Then, her eyes moved further, sliding to Vex.</p>
 <p>The disciple stiffened and immediately began whistling and looking at her feet like she had suddenly discovered it to be the most fascinating thing in existence.</p>
 <p>Black Fang’s voice was a quiet, poisonous dagger. "Was there anything else you ’forgot’ to report to me, disciple?"</p>

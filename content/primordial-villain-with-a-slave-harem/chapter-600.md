@@ -36,7 +36,7 @@ chapter = 600
 <p>Return.</p>
 <p>My dominion over fire reached the stage where I no longer needed to call the names of my spells out.</p>
 <p>Like stars reversing their collapse, the scattered particles surged toward me in a spiraling blaze, drawn by the gravity of my will.</p>
-<p>They wrapped around my skin before sinking deep into my core. Heat surged through my veins. Not in the form of a burn but a resonance. A connection. Discover hidden stories at ṙå𐌽ꝋ𝐁ЕṦ</p>
+<p>They wrapped around my skin before sinking deep into my core. Heat surged through my veins. Not in the form of a burn but a resonance. A connection. Discover hidden stories at</p>
 <p>The moment it fully integrated, something within me shifted. A pulse of understanding. The fire was no longer a force I wielded, for it was a part of me, my existence.</p>
 <p>I glanced at the flames obstructing my path.</p>
 <p>The storm of fire that had been doing its utmost to erase this world, the all-consuming blaze meant to bring about its end, trembled. A sea of flames towered before me, roaring their anger arrogantly.</p>

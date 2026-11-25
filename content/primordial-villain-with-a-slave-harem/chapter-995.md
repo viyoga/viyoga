@@ -28,7 +28,7 @@ chapter = 995
 <p>"A perfect challenge to test what I can do without the bastard’s influence holding me back."</p>
 <p>Quinlan nodded happily once he saw her confidence.</p>
 <p>Then he turned his gaze toward Lyra, the only other woman in the room who remained besides Kaelira.</p>
-<p>"Lyra, please take Kaelira’s team and act as Jasmine’s team of guards. She will not only carry a truly immense amount of gold on her person, but I have a feeling she didn’t get the ’Tyrant’ added to her class by being a nice player. She’ll anger many opponents. You’ll have your work cut out for you." 𝔯₳ＮȏᛒЁꞨ</p>
+<p>"Lyra, please take Kaelira’s team and act as Jasmine’s team of guards. She will not only carry a truly immense amount of gold on her person, but I have a feeling she didn’t get the ’Tyrant’ added to her class by being a nice player. She’ll anger many opponents. You’ll have your work cut out for you."</p>
 <p>"... Whatever could you mean?" Jasmine whistled innocently. She was thoroughly ignored.</p>
 <p>"My Lord, may I ask why I was selected for the role of leading Miss Kaelira’s team?" the pink-haired tanker asked.</p>
 <p>"Miss dwarf-hater will have something else to do."</p>

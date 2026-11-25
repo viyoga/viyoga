@@ -42,7 +42,7 @@ chapter = 746
 <p>My hands trembled just as Lyra spat a large amount of blood onto my back.</p>
 <p>I didn’t even know when I panicked this badly.</p>
 <p>Maybe the war troll fight. Back when I met Blossom. Back when I was nothing but a low-level newbie swinging around a simple Common-rarity iron spear.</p>
-<p>Sure, I’ve had plenty of close calls since that fight where my life was hanging by a thread more times than I could count, but in those moments, I always saw the light at the end of the tunnel. A way out. A thread of hope. A chance for victory. Or Vex. 𝑅𝓪𝐍ốʙЁŝ</p>
+<p>Sure, I’ve had plenty of close calls since that fight where my life was hanging by a thread more times than I could count, but in those moments, I always saw the light at the end of the tunnel. A way out. A thread of hope. A chance for victory. Or Vex.</p>
 <p>Gods… Vex.</p>
 <p>The deranged, brilliant lunatic who’d become the eye of my storm. I just now realized how much I’d relied on her. Her mere presence was enough to calm me. Together, we’d faced so many troublesome events on this mission, especially when considering it’s only been a few days since we even set out.</p>
 <p>But now?</p>

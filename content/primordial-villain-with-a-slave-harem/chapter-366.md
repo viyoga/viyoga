@@ -28,7 +28,7 @@ chapter = 366
 <p>She knew that such a small boost was not at all enough to pry the bars open. 10 was the Strength value of a normal healthy adult male, after all.</p>
 <p>'Cause extreme pain all over my body and turn it into Strength!'</p>
 <p>[Strength: 9 -&gt; 19]</p>
-<p>Her small frame cried out in alarm from the sudden, as the unnatural hurt began assaulting her all over, but thanks to her father's years of cruel torture she'd long since built up enough resistance to remain in control of her body. She didn't cry or even shout; she merely winced for but a single moment. ℞αɴ𝙤𝖇Е𝙨</p>
+<p>Her small frame cried out in alarm from the sudden, as the unnatural hurt began assaulting her all over, but thanks to her father's years of cruel torture she'd long since built up enough resistance to remain in control of her body. She didn't cry or even shout; she merely winced for but a single moment.</p>
 <p>Gilbert sensed that something was terribly wrong due to the sudden change in the atmosphere. Iris went from a little ball of adorable rage to an eerily silent person hell-bent on snapping the bars of her cell. If that was all, he would've chalked it up to his daughter being weird as usual, but this time he instinctively understood that things were different. He couldn't help but realize:</p>
 <p>'I feel like I'm in grave danger! But why?!'</p>
 <p>In the meantime, Iris wasn't done just yet.</p>

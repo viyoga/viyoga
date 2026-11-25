@@ -29,7 +29,7 @@ chapter = 218
 <p>I feel like a bucket of cold water has been splashed onto me. "Have I not thought of that…? Of course I have! But things aren't that black and white! Your worldview is way too idealistic, it feels like I'm talking to a literal child!"</p>
 <p>"Then entertain me. What's so wrong about what I said? You are a weak woman who doesn't know where to start? You will get killed before you even get a single XP? No one will want to help a middle-aged innkeeper's wife like you start out?"</p>
 <p>"Exactly! And not everyone is cut out for bloody battles! I think I would freeze up on the spot should I have to fight for my life… I'm so damn miserable…" I begin tearing up. "Please, just stop making me feel even more depressed than I already am!" I yell at him.</p>
-<p>*Smack!* And I get slapped. Right across the face. Huh?! Did he seriously backhand me just now?! It hurts so much! "Q-Quinlan?!" I begin taking steps back as I watch him for any signs of further aggression. ꭆάΝò𝐁Еṣ</p>
+<p>*Smack!* And I get slapped. Right across the face. Huh?! Did he seriously backhand me just now?! It hurts so much! "Q-Quinlan?!" I begin taking steps back as I watch him for any signs of further aggression.</p>
 <p>"Hahahaha!" He suddenly erupts into a boisterous laughter. "I knew there was more to you, foolish woman!"</p>
 <p>"W-what? Have you gone completely mad?!"</p>
 <p>"Looks like you aren't completely hopeless. You are ready to fight for your life, after all!"</p>

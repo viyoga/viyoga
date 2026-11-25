@@ -33,7 +33,7 @@ chapter = 66
 <p>We can't let this plan go through. I wouldn't have cared, or rather preferred if Grunt took care of Ian, but he will keep the pig alive as his captive. Ian must die for Operation Fluffy Liberation's second part to even begin, so we must act.</p>
 <p>I look towards Ayame who nods. We walk away from the window towards the door so that we can come from the alley entrance, this way we will look like random passersby who happened to see their kidnapping attempt. If we simply jump out of the window it will be obvious that we were up to no good.</p>
 <p>"Hey! What's going on here?!" I shout and walk towards them with Ayame next to me while acting out my best good guy NPC impression.</p>
-<p>All of them freeze in their tracks and turn towards us. Even Ian forgets to struggle to escape. I couldn't see anything from the window but now everything is in clear view. The slave women duo are holding his two arms while attempting to tie them together with a rope with Grunt just watching the spectacle unfold. ℝÃΝ𝘰฿Ɛš</p>
+<p>All of them freeze in their tracks and turn towards us. Even Ian forgets to struggle to escape. I couldn't see anything from the window but now everything is in clear view. The slave women duo are holding his two arms while attempting to tie them together with a rope with Grunt just watching the spectacle unfold.</p>
 <p>"Help! Heeeelp!" Ian's gears begin to turn once more and begins begging for assistance.</p>
 <p>"Who are these two?" Grunt questions, and one of the slaves replies, "Quinlan and Hana, two recent iron ranks."</p>
 <p>Oh, it seems we are quite popular already.</p>

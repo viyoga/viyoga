@@ -26,7 +26,7 @@ chapter = 378
 <p>…</p>
 <p>Iris and Abudha traveled in muted silence next to each other toward the battle site which they left with the strange man's teleport spell.</p>
 <p>They did not speak a single word to each other, for their minds were heavily occupied.</p>
-<p>Iris had just met a random man who was not a human but a member of a mythical race, and he happened to witness every moment of her childhood. No, not just witness, but live through it. She had so damn much to think about. 𝔯𝐚ℕоʙΕꞨ</p>
+<p>Iris had just met a random man who was not a human but a member of a mythical race, and he happened to witness every moment of her childhood. No, not just witness, but live through it. She had so damn much to think about.</p>
 <p>Truth be told, Iris hated such complicated situations. She heavily preferred problems she could cut with her sword compared to these difficult dilemmas that had no clear right or wrong answer.</p>
 <p>Abudha, on the other hand, found himself enslaved by said legendary creature. He understood the reason for Devil's actions, but that didn't mean he felt good about it. Nevertheless, he knew very well that no one asked how he felt.</p>
 <p>Based on his new owner's antics, he at least seemed to be amicable. Maybe he would prove to be what Abudha had been searching for all along.</p>

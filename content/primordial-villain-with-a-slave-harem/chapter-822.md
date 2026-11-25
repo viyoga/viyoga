@@ -38,7 +38,7 @@ chapter = 822
 <p>1</p>
 <p>He sighed and waved her off as if she were an annoying mosquito.</p>
 <p>They made the journey for Zhaokun on foot.</p>
-<p>The travel took a day and a half, with the rescued women and children resting under makeshift tents when night fell. Quinlan kept to the edges of the camp, watching the perimeter and ensuring no beasts—or worse, men—threatened them again. 𝖗𝘼₦ộＢЁ𐌔</p>
+<p>The travel took a day and a half, with the rescued women and children resting under makeshift tents when night fell. Quinlan kept to the edges of the camp, watching the perimeter and ensuring no beasts—or worse, men—threatened them again.</p>
 <p>When they finally reached the southern gates of Zhaokun, the city guards were immediately on edge. It wasn’t every day a war-stained man with blood-blackened robes marched into town with a small procession of battered villagers and orphans trailing behind him.</p>
 <p>Thankfully, Feng Jiai handled the introductions.</p>
 <p>"Here are a village’s worth of women we rescued after devastating a large outlaw camp. The big oaf has the boss’s head, which should serve as proof. Where do we collect our bounty?"</p>

@@ -25,7 +25,7 @@ chapter = 37
 <p>Yes, I could unlock some charge-like spells before like [Bull Rush], but I needed something to evade enemy strikes, not rush at them.</p>
 <p>I spent 2 Unused Skill Points to unlock;</p>
 <p>[Lesser Evasion]</p>
-<p>[Evade hostile attacks with graceful movements. Jump, roll, flip or simply step out of harm's way tactfully and swiftly. Slightly increases the spell caster's maneuvering ability at the cost of 40 mana and lasts for 10 minutes.] Ɍâ𐌽𝔬ΒƐʂ</p>
+<p>[Evade hostile attacks with graceful movements. Jump, roll, flip or simply step out of harm's way tactfully and swiftly. Slightly increases the spell caster's maneuvering ability at the cost of 40 mana and lasts for 10 minutes.]</p>
 <p>I like that unlike with [Power Strike] I can just activate the spell and forget about it for the next ten minutes because once I activate [Lesser Evasion] it will passively increase my dodging ability. But, on the other hand, it costs eight times more mana.</p>
 <p>With my current 12 Wisdom attribute, which equates to having 120 Mana, I can only keep it active for half an hour, and that is only if I don't use [Power Strike], a spell I've grown very fond of already.</p>
 <p>After walking for another ten minutes we hear the first signs of having arrived at the close vicinity of the encampment as we are greeted by loud screeches which they basically use as their preferred communication method.</p>

@@ -30,7 +30,7 @@ chapter = 668
 <p>Sol raised an eyebrow at her abrupt series of actions, “Are you sure you want to try this again? The last time, you lost quite miserably.”</p>
 <p>Pandora blushed in utter shame as she remembered how she nearly passed out just by gulping down his cum. Now that he was even stronger than back then, she could only imagine how much energy his body could contain.</p>
 <p>He obtained some divinity, right?</p>
-<p>Pandora gulped hard, a mixture of fear and anticipation catfighting in her heart for dominance. She was starting to reconsider the whole situation. Just how good would he taste? How much of a mess would he reduce her to if they were to continue? Was she even ready for this? ṛ𝓪ꞐО𐌱Ёṣ</p>
+<p>Pandora gulped hard, a mixture of fear and anticipation catfighting in her heart for dominance. She was starting to reconsider the whole situation. Just how good would he taste? How much of a mess would he reduce her to if they were to continue? Was she even ready for this?</p>
 <p>Her memory of their first time was now faint, but the overwhelming pleasure she felt back then was practically carved into her mind and soul. She could never forget that.</p>
 <p>Well, there is no way to escape anyway.</p>
 <p>She rationalized, trying to convince herself, even though she knew very well that Sol would not force her if she just told him to stop.</p>

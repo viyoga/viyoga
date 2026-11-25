@@ -29,7 +29,7 @@ chapter = 608
 <p>The very fabric of reality trembled in response to his call.</p>
 <p>From the depths of the void, a dazzling light erupted, forcing me to shield my eyes. Then, a golden sword materialized in his grasp. The blade radiated sheer majesty; its edge was so impossibly sharp the surrounding air hissed as if cut apart.</p>
 <p>But it was not just the blade that changed.</p>
-<p>The frail, old primordial I’d been dissing all this while underwent a complete transformation. His thin frame, sagging skin, and weary bones began to right themselves. 𝐑Ã₦ȯ𝖇ΕŠ</p>
+<p>The frail, old primordial I’d been dissing all this while underwent a complete transformation. His thin frame, sagging skin, and weary bones began to right themselves.</p>
 <p>The wrinkles that lined his face melted away, and the age that had visibly weighed down his body was erased in mere moments as his spine straightened.</p>
 <p>Malakar’s sunken cheeks filled with life, his white beard receded as if he’d just shaven, and his thinning hair darkened into a cascade of golden locks, radiant just like his blade.</p>
 <p>His robes no longer fit his body because the body itself was now something else entirely. His frame expanded while his muscles forged themselves into a physique that was sculpted to perfection.</p>

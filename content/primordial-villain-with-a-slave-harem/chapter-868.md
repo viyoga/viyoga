@@ -32,7 +32,7 @@ chapter = 868
 <p>But Venthros didn’t even look.</p>
 <p>His four arms rose into the sky.</p>
 <p>Fire. Water. Wind. Earth.</p>
-<p>All four elements exploded outward, not separately, but as one devastating funnel of destruction—a chaotic, roaring maelstrom shaped by corrupted divine will. The sheer pressure warped the very fabric of qi around it, forming a spiraling column of raw devastation. 𝐑ＡΝòꞖΕ𝐬</p>
+<p>All four elements exploded outward, not separately, but as one devastating funnel of destruction—a chaotic, roaring maelstrom shaped by corrupted divine will. The sheer pressure warped the very fabric of qi around it, forming a spiraling column of raw devastation.</p>
 <p>The explosion vaporized the upper airspace, turning clouds into smoke and the sky into a glowing wound that bled light and shadow in violent pulses.</p>
 <p>From a stone terrace overlooking the arena, Feng barely had a heartbeat to react.</p>
 <p>Her eyes widened, and then she leapt back. The shockwave smashed into the terrace, destroying chunks of marble and nearly knocking her off her feet.</p>

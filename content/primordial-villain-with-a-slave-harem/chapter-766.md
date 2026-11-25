@@ -33,7 +33,7 @@ chapter = 766
 <p>"Oh, someone’s getting impatient the old hag grumbled under her breath with a chuckle.</p>
 <p>"Told you he’s an arrogant thug! But it seems we’ll have to finish this conversation later… See you, Matilda!”</p>
 <p>"Have fun, girl the old hag grinned.</p>
-<p>And with that, we’d arrived at Vex’s home. It was a luxurious, Victorian-style mansion with a big, elegant garden full of neatly trimmed trees and bushes. She clearly spent a small fortune on keeping this property tidy. RÂΝОΒЁṠ</p>
+<p>And with that, we’d arrived at Vex’s home. It was a luxurious, Victorian-style mansion with a big, elegant garden full of neatly trimmed trees and bushes. She clearly spent a small fortune on keeping this property tidy.</p>
 <p>But even before stepping inside, an unexpected surprise awaited us.</p>
 <p>I have the most awesome readers!!! I never ever dared to hope I’d get 5 supergifts in a single day, two of which were spacecrafts and one gachapon.</p>
 <p>Sadly, I just released 8 chapters yesterday, so I can’t repay all the bonus chapters I already owe you guys, but I’ll do my best! To me, quality is very important, so I don’t want to rush out chapters if they feel half-assed. I hope you understand and thank you for all the amazing support!</p>

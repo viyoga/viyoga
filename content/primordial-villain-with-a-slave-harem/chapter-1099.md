@@ -28,7 +28,7 @@ chapter = 1099
 <p>"Lady Black Fang," Kitsara purred, "are you asking my beloved to open a portal for you?"</p>
 <p>"Yes."</p>
 <p>The response was instant. Robotic. Emotionless.</p>
-<p>Kitsara’s lips curved against Quinlan’s skin in a knowing smile. The white-haired foxkin lay one long, loving smooch on his back, then, "Where to?" she asked silkily while her hands moved forward until they found Quinlan’s member, which she patted a few times in an ’outstanding job, rest well,’ gesture. ℟áƝο𐌱Èš</p>
+<p>Kitsara’s lips curved against Quinlan’s skin in a knowing smile. The white-haired foxkin lay one long, loving smooch on his back, then, "Where to?" she asked silkily while her hands moved forward until they found Quinlan’s member, which she patted a few times in an ’outstanding job, rest well,’ gesture.</p>
 <p>"Same spot."</p>
 <p>"Mm," Kitsara’s voice dipped to a sensual hum as her fingers moved on to his jewel sack to show her gratitude and sincere congratulations for producing so much white paint to properly decorate her baby room.</p>
 <p>Then, she got on her knees and lifted her delicate lips right to Quinlan’s ears. "She must mean the place you opened when you brought her to Lionheart..."</p>

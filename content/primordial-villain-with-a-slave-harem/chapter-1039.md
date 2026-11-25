@@ -33,7 +33,7 @@ chapter = 1039
 <p>Combined with his armor and high Vitality stat, it should have made him all but immune to any fire-based attack.</p>
 <p>But this wasn’t the same conventional fire that fire mages cast.</p>
 <p>This was wrath made real. A devouring element unleashed by something not quite human.</p>
-<p>"ARGHHH!" Quinlan screamed as his own body was being ruined. His organs twisted. His nerves sang in agony. The spearhead still pierced him. He was forcing the fire outward through pain-choked focus, converting the torment into power. ℝÄΝՕ𝖇Е𝐒</p>
+<p>"ARGHHH!" Quinlan screamed as his own body was being ruined. His organs twisted. His nerves sang in agony. The spearhead still pierced him. He was forcing the fire outward through pain-choked focus, converting the torment into power.</p>
 <p>"GRRRAAAAAAAAAHHH!" Daron roared in answer, further twisting the spear in his body.</p>
 <p>Their bellows echoed across the field. Their voices were laced with equal amounts of agony and defiance, creating a clash of wills. The crowd could hardly breathe, as if the very air was being scorched from their lungs.</p>
 <p>One burning man refusing to die.</p>

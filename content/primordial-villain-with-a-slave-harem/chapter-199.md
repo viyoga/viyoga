@@ -31,7 +31,7 @@ chapter = 199
 <p>I raise an eyebrow. "Hmm? For?"</p>
 <p>"For being a bitch! I'm not at all deserving of your words!</p>
 <p>Not only have I been berating you often, but when I beat you up during our duel was the ugliest day in my life that has been eating away at me ever since… I was supposed to be your teacher, instructor, mentor, but instead I used my obvious superiority in all aspects of combat to beat my student up, not to teach you, but just to satisfy my desires!" She cries while gazing down at her feet in shame, no longer managing to look into my eyes.</p>
-<p>Has that been gnawing away at her heart? I thought she was okay. She even said that she wouldn't apologize for it. Guess it was said in the heat of the moment. ȐÅ𐌽Ö𝔟Ę§</p>
+<p>Has that been gnawing away at her heart? I thought she was okay. She even said that she wouldn't apologize for it. Guess it was said in the heat of the moment.</p>
 <p>When I called her an amazing teacher during our first labyrinth run, she was elated and proud beyond reason, so I imagine her doing things only a bad instructor would had made her feel horrible.</p>
 <p>I place her gift down on the table and reach out for her delicate face to hold in my two palms. After which I make a gentle motion, silently asking her to left her head to let me see her gorgeous features, then I begin to wipe her tears with my two thumbs.</p>
 <p>"You've been a mischievous girl, there's no doubt about that, but I love you as you are. As for what happened that day, I arrogantly brought your talent and mastery over the blade into question, so your fury was entirely understandable. One could argue that I deserved to be put in my place. I even said I knew something like this was coming.</p>

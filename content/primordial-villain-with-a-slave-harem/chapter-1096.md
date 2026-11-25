@@ -31,7 +31,7 @@ chapter = 1096
 <p>A deep, commanding tone sounded.</p>
 <p>The words rang through the chamber. Teral’s grip around her throat vanished instantly, which resulted in the Countess’s knees hitting the polished floor. She collapsed forward, coughing and choking, clutching at her throat as fresh air finally entered her lungs.</p>
 <p>Then, once she managed to gather her bearings, her head slowly lifted to take a look at her surroundings.</p>
-<p>It was a room of decadent opulence. Tall gilded pillars framed arched ceilings. Velvet curtains pooled in crimson heaps at the corners, and beneath her palms stretched a carpet so fine her brain couldn’t help but instantly begin assessing its worth, studying how much of her respect its owner deserved, momentarily forgetting her predicament. ɌάƝＯ₿ЁꞨ</p>
+<p>It was a room of decadent opulence. Tall gilded pillars framed arched ceilings. Velvet curtains pooled in crimson heaps at the corners, and beneath her palms stretched a carpet so fine her brain couldn’t help but instantly begin assessing its worth, studying how much of her respect its owner deserved, momentarily forgetting her predicament.</p>
 <p>Clearly, this was the luxurious residence of a family who was truly well-off.</p>
 <p>But none of that mattered.</p>
 <p>Two people stood at the room’s heart, looking down at her kneeling form.</p>

@@ -26,7 +26,7 @@ chapter = 394
 <p>Cedric was a swordsman who preferred to solve things with his blade. He knew that Selene was pure hedonistic evil, and he didn't mind it that much, but her doing what she did didn't sit well with him. He wanted to challenge Devil to a duel and settle things the manly way.</p>
 <p>His revelation instantly brought Selene up to speed, as if her brain had been unclogged, numerous memories began flooding in all at once.</p>
 <p>"Curses!!! We have to get away!" She hissed desperately.</p>
-<p>Did that retarded man really think she could be restrained by these simple chains? She was a fire mage sitting on a wooden chair for Goddess' sake! She will just melt it all away. ɌåΝÒ𝖇Ęŝ</p>
+<p>Did that retarded man really think she could be restrained by these simple chains? She was a fire mage sitting on a wooden chair for Goddess' sake! She will just melt it all away.</p>
 <p>As she concentrated on her mana and established the link needed to cast her spells, something horrible happened.</p>
 <p>She was not able to access her mana reserves. Not at all. It felt as if she had no mana.</p>
 <p>"What the?!" She shouted, receiving tired shaking of Cedric's head.</p>

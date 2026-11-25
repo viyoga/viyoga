@@ -29,7 +29,7 @@ chapter = 280
 <p>I smiled happily, but also noted how she repressed her feelings for a while and I had no clue.</p>
 <p>"As for your previous claim about Solace being a superior scout, tell me why you think it is false." I instructed, and she began thinking for a while.</p>
 <p>"Ghost's nose works outside of nature as well." She revealed her final answer.</p>
-<p>I nodded, "indeed, that's the biggest advantage you have, but there's more. Smell lingers for a long time, allowing you to investigate events that happened hours, days, or even weeks ago. From what I can tell, Solace can't actually speak with plants and ask what happened a week ago, she can only sense what's going on in the forest at present. 𝙧ÂN𝘖ᛒĘS̩</p>
+<p>I nodded, "indeed, that's the biggest advantage you have, but there's more. Smell lingers for a long time, allowing you to investigate events that happened hours, days, or even weeks ago. From what I can tell, Solace can't actually speak with plants and ask what happened a week ago, she can only sense what's going on in the forest at present.</p>
 <p>Once you smell a scent, you can also follow it effortlessly, while Solace's detection is worse at pursuit than yours because she had to stop, close her eyes, and concentrate to tell that we were pursued while you can use your nose while dashing all over the place at breakneck speed.</p>
 <p>Lastly, if the wind is favorable, you have a bigger detection range even in the forest biome."</p>
 <p>Silence descended on us for a short while, until the dog-girl nuzzled her face into the back of my head with clear adoration. "Ghost loves Master!" She shouted.</p>

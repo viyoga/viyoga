@@ -63,7 +63,7 @@ chapter = 669
 <p>But there was a second message conveyed through his actions.</p>
 <p>A promise, a prophecy:</p>
 <p>'The moment you turn your blade against me, you are done.'</p>
-<p>The figures were perfectly healthy, brimming with life that was entirely unnatural of magical constructs. But once they grabbed the blades and cut into his flesh, they disintegrated into dust. By taking up arms against him, their fate had been sealed to that of imminent destruction. ȑâℕổ฿ΕṢ</p>
+<p>The figures were perfectly healthy, brimming with life that was entirely unnatural of magical constructs. But once they grabbed the blades and cut into his flesh, they disintegrated into dust. By taking up arms against him, their fate had been sealed to that of imminent destruction.</p>
 <p>Silence reigned supreme for a whole dozen seconds until, slowly, his hands rose to his face, and with one smooth motion, he removed his mask.</p>
 <p>For the first time, they saw his eyes in their natural glory, without the mask artifact's distortion effect being at play.</p>
 <p>In those eyes, they saw no doubt. No hesitation. No uncertainty.</p>

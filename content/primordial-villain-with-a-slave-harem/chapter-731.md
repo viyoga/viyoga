@@ -36,7 +36,7 @@ chapter = 731
 <p>Truth be told, I had to make use of every such opportunity presented to me because Master was getting a lot of new partners.</p>
 <p>There were now seven of us, and I could smell many more on the horizon.</p>
 <p>Master made sure to pamper all of us with his attention, and I, as the first lover of his (hehehe) enjoyed some extra special care.</p>
-<p>Master wanted to let me know that no matter how many women come after me, I would be appreciated just as much as I was back when it was only me who warmed his bed at night. ꭆᴀΝÒᛒЕș</p>
+<p>Master wanted to let me know that no matter how many women come after me, I would be appreciated just as much as I was back when it was only me who warmed his bed at night.</p>
 <p>But even still, I was an opportunistic girl who would never give up on any chance at snuggling him!</p>
 <p>!!” A soft whimper left my lips, for I felt a bit guilty inside, wondering if Master would call me a bad girl if he could hear these thoughts of mine.</p>
 <p>Thankfully, both Master and the Horny Fox were too preoccupied to notice.</p>

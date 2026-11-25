@@ -34,6 +34,6 @@ chapter = 123
 <p>We move swiftly and quietly, our footsteps muffled by the forest floor. The orcs' roars grow fainter, though we remain vigilant, aware that we can't let our guard down just yet.</p>
 <p>Once we've gained enough distance, Blossom signals for us to stop, her ears twitching as she listens intently for any signs of pursuit.</p>
 <p>"They're still looking for us, but have lost our tail." she whispers, her voice barely audible over the rustling leaves.</p>
-<p>I nod, considering our next move. "It's finally time to farm some XP in earnest, ladies. I want to level up my Assassin and Slave Master class, so let's search for the ones that have wandered off from the main pursuing unit to search for us in the forest far and wide. Those orcs should be the easiest pickings." Ṛ𝐀ɴö฿Ę𐌔</p>
+<p>I nod, considering our next move. "It's finally time to farm some XP in earnest, ladies. I want to level up my Assassin and Slave Master class, so let's search for the ones that have wandered off from the main pursuing unit to search for us in the forest far and wide. Those orcs should be the easiest pickings."</p>
 <p>Ayame and Blossom exchange a glance, understanding the simple plan. With the main group momentarily diverted, we can use our hit-and-run tactics to pick off the orcs that have become separated in their pursuit.</p>
 <p>"We'll circle back and take them out one by one," I say, gripping my spear tightly.</p>

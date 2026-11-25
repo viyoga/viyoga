@@ -26,7 +26,7 @@ chapter = 827
 <p>Korrin staggered, taking his first step back.</p>
 <p>Quinlan didn’t let him breathe. He knew he had to press the advantage, to treat it as a precious chance. After all, the numbers were on Korrin’s side. He couldn’t afford to be lax.</p>
 <p>"Sixth Form."</p>
-<p>Two hands gripped the saber. His entire body flared with qi, veins glowing, the blade rising over his shoulder in a fiery arc. He brought it down with the full weight of his power, aiming for Korrin’s head. 𝐑àƝO͍ᛒĘș</p>
+<p>Two hands gripped the saber. His entire body flared with qi, veins glowing, the blade rising over his shoulder in a fiery arc. He brought it down with the full weight of his power, aiming for Korrin’s head.</p>
 <p>The strike landed.</p>
 <p>Stone shattered beneath the Chosen’s feet. The arena floor cratered.</p>
 <p>But Korrin still stood.</p>

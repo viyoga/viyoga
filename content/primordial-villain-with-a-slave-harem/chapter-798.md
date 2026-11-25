@@ -23,7 +23,7 @@ chapter = 798
 <p>"What about these cultivation powers? I want to become one as well. How do I go about it?"</p>
 <p>Feng Jiai blinked at his question, then stared as if he'd grown a second head. "Why do I have a bad feeling about this, Uncle…?"</p>
 <p>"I'll become a cultivator, obviously."</p>
-<p>She stared a moment longer, deadpan, then slowly turned her eyes to the heavens, as though asking whatever gods remained if they were truly doing this to her. ⱤАℕổ𝖇Èś</p>
+<p>She stared a moment longer, deadpan, then slowly turned her eyes to the heavens, as though asking whatever gods remained if they were truly doing this to her.</p>
 <p>Then she looked back down at him and sighed like someone preparing to deliver a death sentence.</p>
 <p>"You really are brain-damaged, Uncle."</p>
 <p>"Lean in closer so that I can slap the shit out of you comfortably, brat," Quinlan replied dryly.</p>

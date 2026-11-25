@@ -30,7 +30,7 @@ chapter = 193
 <p>So it seems this ingredient is not his actual root, but more so his crafted product.</p>
 <p>"I've been hiding these three as an act of defiance against the humans, hehehe." He laughs mischievously.</p>
 <p>I grab them and hand them over to Ayame who places them in our backpack.</p>
-<p>"Well, it's been a pleasure, Geim. I would love to stay, but we are about to be ambushed by who knows how many level 40+ supersoldiers. I hope you understand." 𝙧Ἀ𐌽О฿Ęș</p>
+<p>"Well, it's been a pleasure, Geim. I would love to stay, but we are about to be ambushed by who knows how many level 40+ supersoldiers. I hope you understand."</p>
 <p>"Naturally. But, Your Majesty. I have a request that would serve you greatly as well. If you remember my story-"</p>
 <p>"You have a seed you wish me to replant somewhere?" I interrupt his monologue.</p>
 <p>"Your Majesty is really quick on the uptake. Yes, I do. I've the last five hundred years cultivating this little seedling of mine."</p>

@@ -31,7 +31,7 @@ chapter = 619
 <p>"Don’t worry, I’m a certified gentleman." For some odd reason, my response didn’t seem to bolster her trust in me.</p>
 <p>"What about me, mega rookie?"</p>
 <p>"I don’t have anything against you, Ignis, but I don’t like men seeing my current or future women in the nude. Here, enjoy." After saying my piece, I created a little earth tub and filled it with water for him.</p>
-<p>"Oh, I need an Elemental Sovereign… or whatever you are in my future missions as well," he decreed with a happy smile, grabbing the tub, and taking it to a private room. ř𝒶NȏBΕṧ</p>
+<p>"Oh, I need an Elemental Sovereign… or whatever you are in my future missions as well," he decreed with a happy smile, grabbing the tub, and taking it to a private room.</p>
 <p>"What about you girls?" I asked my Heralds and Iris.</p>
 <p>"Ghosty wants Master to help wash her body!" Blossom decreed cheerily before jumping into my arms.</p>
 <p>"… Fine with me," Ayame said while eyeing Vex with uncertainty.</p>

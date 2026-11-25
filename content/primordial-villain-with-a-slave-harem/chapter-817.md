@@ -35,7 +35,7 @@ chapter = 817
 <p>"Esteemed lady? Where?"</p>
 <p>2</p>
 <p>"H-hey!" she hissed, but Quinlan raised a hand without looking back. The girl fell silent.</p>
-<p>Ahead, smoke curled over a crag in the distance at the top edge of a blackened outpost half-sunk into a ravine wall. The old trade path was barely visible, worn into the earth and half-buried by shifting dunes. ℞Ἀ𐌽Ŏ𝔟ĚS</p>
+<p>Ahead, smoke curled over a crag in the distance at the top edge of a blackened outpost half-sunk into a ravine wall. The old trade path was barely visible, worn into the earth and half-buried by shifting dunes.</p>
 <p>They crept closer until voices carried on the wind.</p>
 <p>Crude. Loud. Dripping with heat-sick arrogance.</p>
 <p>"...bet she’s still crying. The brunette. What was her name again? Maru? Mari? Didn’t matter when she was on her knees."</p>

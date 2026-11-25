@@ -31,7 +31,7 @@ chapter = 719
 <p>I gently brushed a lock of blonde hair from her forehead and nodded quietly to myself.</p>
 <p>It wasn't salvation, but it was dignity. She was no longer a mutilated corpse but the motionless body of a beautiful girl.</p>
 <p>Easier on the mother. Easier on everyone.</p>
-<p>I bent down and cleaned her body with [Water Creation &amp; Manipulation], after which I warmed her up with fire. Then, I slid my arms beneath her and lifted her with the ease of a breeze. 𝖗ά₦О฿ĚS</p>
+<p>I bent down and cleaned her body with [Water Creation &amp; Manipulation], after which I warmed her up with fire. Then, I slid my arms beneath her and lifted her with the ease of a breeze.</p>
 <p>One arm now held the nameless elf girl. The other held Seraphiel.</p>
 <p>As I stepped into the hallway, I used wind magic to scoop the quivering maid off her feet and lift her through the air beside us. She didn't even scream this time. Just stared at the girl in my arms with a trembling, tearful expression. Perhaps they knew each other.</p>
 <p>We left the manor behind.</p>

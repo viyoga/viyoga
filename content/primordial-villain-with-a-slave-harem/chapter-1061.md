@@ -24,7 +24,7 @@ chapter = 1061
 <p>"So? Please make some sense."</p>
 <p>"What about the rumors from 300 years ago? Didn’t something happen in that acidic slime dungeon-"</p>
 <p>"No. Nothing happened. And I was a rookie back then."</p>
-<p>"Enough chatting." Instead of outrage, Morgana’s lips curved into something worse; a smile. Her aura dimmed just enough to let her voice cut clear. "I knew he was unique... but to think even you would be drawn to him, fox." ṘÃℕo͍𝖇Ɛ𝐒</p>
+<p>"Enough chatting." Instead of outrage, Morgana’s lips curved into something worse; a smile. Her aura dimmed just enough to let her voice cut clear. "I knew he was unique... but to think even you would be drawn to him, fox."</p>
 <p>But in the next moment, the pleasant curve of her lips dropped in an instant. Magic flared like a storm breaking through dam walls, her killing intent crashing back into the chamber. "This only makes me more interested."</p>
 <p>Lilith exhaled through her nose, and raised her blade toward the cat. "Great. As if one crazed witch wasn’t enough to deal with." She shook her head, knowing full well that once her sister became obsessed with something, there was no helping it. Especially when her obsession reached the levels it had when it came to the man called Black.</p>
 <p>The spellblade knew that even if she were to retreat now, Morgana would still attack the whole group in her lonesome.</p>

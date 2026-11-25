@@ -36,7 +36,7 @@ chapter = 553
 <p>&lt;Child of Agony level 11&gt;</p>
 <p>[Unused Skill Points: 12]</p>
 <p>[Unused Attribute Points: 0]</p>
-<p>Based on my calculations, I needed a little over 300,000 XP to reach the end of level 29, where the next primordial trial would await, which I would need to pass to be allowed into the level 30s. 𝘙ÃＮȫβĚ𝘚</p>
+<p>Based on my calculations, I needed a little over 300,000 XP to reach the end of level 29, where the next primordial trial would await, which I would need to pass to be allowed into the level 30s.</p>
 <p>I couldn’t wait for this conflict to begin in earnest. The fact that I had to constantly suppress the strange fire burning inside me made me wish I could ask for advice from the primordials. For a moment, I considered ingesting a second elixir, namely the water one, to help me contain the fire. However, I had a strange feeling tugging at me that said doing so would be the end of me. I sensed that I had to subdue this power on my own without assistance, or it would refuse to listen to me.</p>
 <p>After all, it was not mere fire I had in my stomach, but a strangely semi-conscious something. It always seemed that the four elixirs had a will of their own. For example, the fire wanted to destroy while the wind wanted to fly freely in the air.</p>
 <p>"Ayo! Lord Ignis, mind if we join?" Another man and his group found us as we traversed through the woods. More followed after them, signaling our close proximity to the entrance.</p>

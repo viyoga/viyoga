@@ -28,7 +28,7 @@ chapter = 759
 <p>Princess Delilah. The first wife of Prince Darius.</p>
 <p>One of the most revered healers on the entire continent.</p>
 <p>And yet… she wasn’t healing.</p>
-<p>As we closed in, I could finally see the full damage. Darius, the beast of a man who had displayed his extreme prowess firsthand to us, was grinning up at the sky with a crooked, pained smile. One of his legs was gone—torn clean off at the thigh—and the left side of his face was a ruin. His eye had been gouged out, the socket charred black. Despite the horror of his condition, he chuckled upon sensing my arrival. 𝙍Ἀ𐌽ȱΒƐⱾ</p>
+<p>As we closed in, I could finally see the full damage. Darius, the beast of a man who had displayed his extreme prowess firsthand to us, was grinning up at the sky with a crooked, pained smile. One of his legs was gone—torn clean off at the thigh—and the left side of his face was a ruin. His eye had been gouged out, the socket charred black. Despite the horror of his condition, he chuckled upon sensing my arrival.</p>
 <p>"Heh… These damned Covenant bastards got me good, Devil.”</p>
 <p>The dogkin around him went still at the name, some stealing glances at me, but I barely noticed. My attention was on Delilah, her hands pressed against his shredded wounds, but glowing with nothing. No divine light. No healing aura. Just the soft, broken sobs of a woman who should’ve been able to fix this, yet couldn’t.</p>
 <p>It didn’t make sense.</p>

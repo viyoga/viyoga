@@ -43,7 +43,7 @@ chapter = 876
 <p>It beat once.</p>
 <p>The ghost of fear, of doubt, of hesitation… gone.</p>
 <p>It beat again.</p>
-<p>And his perception exploded outward, clean and razor-sharp. He could sense killing intent even where none was shown. He could hear the thrum of battle beyond the walls, the breathing of enemies across stone. ℝά₦𝐎BĚŝ</p>
+<p>And his perception exploded outward, clean and razor-sharp. He could sense killing intent even where none was shown. He could hear the thrum of battle beyond the walls, the breathing of enemies across stone.</p>
 <p>He could feel the heat of emotion, without drowning in it.</p>
 <p>He could see without sight.</p>
 <p>It beat a third time.</p>

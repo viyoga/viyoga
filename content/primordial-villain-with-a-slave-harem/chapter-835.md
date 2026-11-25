@@ -33,7 +33,7 @@ chapter = 835
 <p>Each strike cracked the ground beneath him, his biceps bulging and veins throbbing from exertion. Though the flames no longer responded, he could feel the shape of them in his bones as phantom echoes of the style that once danced like wildfire through his veins. But with every passing second, he felt the fire returning to life. Bit by bit.</p>
 <p>When not training, they hunted, gathered herbs, and roasted meals beneath sun-dappled trees. Feng—ever dramatic—would flop across the warm stones by the stream after lunch, declaring herself a noble lady who needed to sunbathe so that she could get her vitamins. With grapes in hand, she would sunbathe with her hair loose, letting the breeze wash over her.</p>
 <p>And at night...</p>
-<p>"I’m still weak, okay?!" she’d argue, already curled in his arms before he could say no. "I need to recover fully from the cold I suffered so we could escape properly!" ꭆ𝘢ＮՕВЕ𝙨</p>
+<p>"I’m still weak, okay?!" she’d argue, already curled in his arms before he could say no. "I need to recover fully from the cold I suffered so we could escape properly!"</p>
 <p>Quinlan would only chuckle, adjusting his position to keep her comfortable. Truth be told, the habit did not bother him. She snored lightly, mumbled in her sleep, and kicked his legs, yes, but in some strange, stubborn way, it had become a nightly comfort to him as well.</p>
 <p>...</p>
 <p>Two Weeks Later</p>

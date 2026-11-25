@@ -24,7 +24,7 @@ chapter = 154
 <p>Seeing the hopeful and wishful look in Blossom's eyes, I realize that maybe I need to trust her on this. If this is what makes her feel confident and strong, so be it.</p>
 <p>I let out a sigh, finally relenting. "Alright, Ghost," I say with a small smile. "If this is what you want, then it's yours."</p>
 <p>Blossom throws her arms around me in a tight hug. "Ghost loves Master!" she squeals.</p>
-<p>The shop girl smiles too, clearly relieved that the situation is resolved and probably also at the strange sight that we must provide. "I'll get that packaged up for you right away," she says, hurrying off to prepare the purchase. ɽＡ𝐍óＢÊ𝘚</p>
+<p>The shop girl smiles too, clearly relieved that the situation is resolved and probably also at the strange sight that we must provide. "I'll get that packaged up for you right away," she says, hurrying off to prepare the purchase.</p>
 <p>As I watch Blossom practically bounce with excitement, I can't help but smile. Now it's time to select one for myself.</p>
 <p>I begin browsing the shop, searching for a set of armor that strikes the right balance between protection and subtlety. I need something that will fit comfortably under my robe and mask, allowing me to move freely without sacrificing my safety.</p>
 <p>After a few minutes of searching, my eyes land on a sleek, black armor set displayed on a mannequin. The armor is made of a dark, matte material that almost seems to absorb the light around it. It's designed with smooth, overlapping plates that contour to the body, offering both flexibility and protection. The lines are clean and minimalistic, giving it a modern, tactical appearance.</p>

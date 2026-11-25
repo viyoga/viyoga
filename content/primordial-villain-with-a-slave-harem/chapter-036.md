@@ -31,7 +31,7 @@ chapter = 36
 <p>[Effect: Minor Agility Increase]</p>
 <p>[Base Skill: Knife Throw]</p>
 <p>[To level up the Assassin Class, kill specific enemies you've targeted. If the kill is made without getting exposed the XP gain is increased.]</p>
-<p>The wording makes it sound that simply massacring thousands of people with some OP spell at once won't give me Assassin XP. Leveling this one up seems a bit more of a hassle than Warrior, but at least it works on monsters as well, not just humanoids. 𝐑𝒶𝐍O͍ВËᶊ</p>
+<p>The wording makes it sound that simply massacring thousands of people with some OP spell at once won't give me Assassin XP. Leveling this one up seems a bit more of a hassle than Warrior, but at least it works on monsters as well, not just humanoids.</p>
 <p>With this I have three classes that can be used to fulfill part of the Primordial Villain class's unlock requirements.</p>
 <p>Slave Master, Thief, Assassin.</p>
 <p>My parents would be so proud if they could see me right now.</p>

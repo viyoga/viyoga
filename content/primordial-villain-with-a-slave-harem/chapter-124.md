@@ -31,6 +31,6 @@ chapter = 124
 <p>"Uh, Blossom," I whisper, trying to snap her out of her reverie. "Maybe focus on something else for now."</p>
 <p>She blinks at me, a sly grin spreading across her face. "Master, Bloss-"</p>
 <p>"Khm!!!"</p>
-<p>She gasps and snaps her hand to her mouth, before she hurriedly looks at the pair to see that they didn't pay attention to her slip of the tongue as they are way too busy with their own activity and continues after a relaxed sigh leaves her lips; "Luna sees that the husband likes his wife very much, so she must be doing things well! Luna has to learn from the best!" ṟἈƝ𝐎ᛒΕs</p>
+<p>She gasps and snaps her hand to her mouth, before she hurriedly looks at the pair to see that they didn't pay attention to her slip of the tongue as they are way too busy with their own activity and continues after a relaxed sigh leaves her lips; "Luna sees that the husband likes his wife very much, so she must be doing things well! Luna has to learn from the best!"</p>
 <p>I hear a rather loud slurping sound, which forces me to shudder from head to toe. Is this what Ayame feels like when she overhears me devouring Blossom? I hope not.</p>
 <p>Broderick finally breaks away from Marjorie's embrace and looks me in the eye. "Apologies for the public display of affection, my friend! I know a lot of people don't like it, thinking it indecent!" He then laughs boisterously.</p>

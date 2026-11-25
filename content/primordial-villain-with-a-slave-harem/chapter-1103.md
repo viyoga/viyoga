@@ -31,7 +31,7 @@ chapter = 1103
 <p>Her lashes fluttered open, and the first thing she saw was him.</p>
 <p>Her Quinlan. Her everything.</p>
 <p>Without hesitation, the needy woman pushed upward and pressed her lips against his. The kiss was messy, greedy, full of her heart. Quinlan stiffened at the sudden attack but didn’t shove her away. Of course, he didn’t; he’d rather die than refuse the affection of his women.</p>
-<p>But then, after a few delighted seconds of devouring the lips of her beloved, her eyes darted sideways, and reality sank back in. She froze, blinked, and finally noticed Black Fang seated nearby. ȐΆNȮ𐌱ΕŚ</p>
+<p>But then, after a few delighted seconds of devouring the lips of her beloved, her eyes darted sideways, and reality sank back in. She froze, blinked, and finally noticed Black Fang seated nearby.</p>
 <p>"... Ah."</p>
 <p>Recognition and memory passed through her eyes.</p>
 <p>But, as was standard for this shameless woman, an apology never came.</p>

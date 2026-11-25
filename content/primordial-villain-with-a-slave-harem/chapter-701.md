@@ -23,7 +23,7 @@ chapter = 701
 <p>Fenrik grinned. "Sounds good to me."</p>
 <p>Darius voiced his approval with a short grunt. "Efficient. I like it."</p>
 <p>The other leaders also approved of the plan.</p>
-<p>Then, Vargis's gaze landed on us. "Red-Eyed Demon, you'll be leading your own battle team consisting of Consortium members. Mixing our warriors with you people is asking for a disaster due to not having a chance to train together beforehand." ɽＡℕỔ𝖇ЁṦ</p>
+<p>Then, Vargis's gaze landed on us. "Red-Eyed Demon, you'll be leading your own battle team consisting of Consortium members. Mixing our warriors with you people is asking for a disaster due to not having a chance to train together beforehand."</p>
 <p>The white-haired beauty's lips curled into a smile. "Sounds good to me, Papa Vargis."</p>
 <p>The chieftain's lips twitched in irritation but elected to ignore her remark. "You humans proved your ability to fight against war beasts in the resistance's skirmish against the attacking lionkin army. Following Darius's team of elites and two more teams, I want you to scope out Emberfang. If you think you can begin messing with them using guerilla tactics, then go ahead; if not, wait for us until we catch up to you after taking over Wartorn. Fenrik, you take another three teams of elites with you and do the same with Sunscar. The rest of you will be covering the main army's flanks."</p>
 <p>Everyone voiced their understanding, and we departed together with Darius. Each dogkin team consisted of ten elite warriors who should be around the higher end of the Shadow Vanguard rank or the lower end of the Veil Walker-ranked Consortium Members, such as Raika and Ignis, while the team captains were definitely Veil Walker equivalents, close to Vex.</p>

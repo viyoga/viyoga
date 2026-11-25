@@ -29,7 +29,7 @@ chapter = 792
 <p>I sighed.</p>
 <p>The Souls Records wasn't wrong. It was I who wanted to become a jack of all trades. Yet I'd somewhat lost that vision of mine along the way because the freedom I had using the [Manipulation] type spells was just too liberating compared to normal spells.</p>
 <p>Begrudgingly, I folded my arms as the blank world around me finished swallowing the last traces of color.</p>
-<p>'Stormblade,' I thought. 'When was the last time I even used it? The skillset is potent, aggressive, and tailored for frontline skirmishing, but I relied on spellwork. Why dance into danger when I could burn a battlefield from afar?' ℟ä₦𝐨𝖇ЕŜ</p>
+<p>'Stormblade,' I thought. 'When was the last time I even used it? The skillset is potent, aggressive, and tailored for frontline skirmishing, but I relied on spellwork. Why dance into danger when I could burn a battlefield from afar?'</p>
 <p>The Soul Reaper had become more of a soul collection tool than a true weapon. A last resort, really. Not a blade I brought to war, but a shield I clung to when my spellcasting fell apart.</p>
 <p>And the Child of Agony class?</p>
 <p>I scoffed internally.</p>

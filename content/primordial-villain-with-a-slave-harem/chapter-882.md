@@ -31,7 +31,7 @@ chapter = 882
 <p>Until today.</p>
 <p>Until Serika looked at her with that face of shattered, raw betrayal. As if she weren’t her sister anymore. As if she were already gone.</p>
 <p>Nalai had told herself it was necessary.</p>
-<p>But standing here, watching Feng’s terrified frame shudder behind stone that wouldn’t last another blast, suddenly, none of it felt necessary. It just felt... lonely. ṚἈŊꝊ₿Ё𝒮</p>
+<p>But standing here, watching Feng’s terrified frame shudder behind stone that wouldn’t last another blast, suddenly, none of it felt necessary. It just felt... lonely.</p>
 <p>It wasn’t just the girl. It was what she represented. A mirror held up to the child she once was. The sincere girl Nalai had killed within herself to survive.</p>
 <p>And now... that girl was clawing her way back out.</p>
 <p>’Why does it hurt to look at her?’</p>

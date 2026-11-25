@@ -25,7 +25,7 @@ chapter = 565
 <p>My grip on the hilt of the Soul Reaper tightened alongside the twisting of my heart. I felt angry - both at my continued weakness and at the perpetrators who dared to hurt my woman’s loved ones.</p>
 <p>A great need to destroy - to bring ruin to my enemies was bubbling toward the surface from my core.</p>
 <p>The fire elixir I had ingested and assumed to have contained begged to differ. It flared alive with wild fury inside me.</p>
-<p>It has always been patiently waiting for an opportunity, acting tame on the surface to placate my worries about the strange power that made its home in my body, but in reality, it was preparing to stage a rebellion all along. ȑãŊÔ𝐁Ês̩</p>
+<p>It has always been patiently waiting for an opportunity, acting tame on the surface to placate my worries about the strange power that made its home in my body, but in reality, it was preparing to stage a rebellion all along.</p>
 <p>The opportunity it was waiting for arrived when anger flared in my heart, momentarily lessening my efforts to contain it. It was as though this strange, fiery substance sensed my emotional turmoil and sought to capitalize on it. I wasn’t even furious enough to lose my mind - I was not in the middle of going on a rage-fueled rampage. Yet my current anger levels were more than strong enough for it to make its move.</p>
 <p>A furnace-like heat radiated from my body, raising the cavern’s temperature noticeably, snapping multiple heads in my direction.</p>
 <p>The fire roared within me like a beast, tempting me to let it all out, to burn everything down. I grit my teeth as I wrestled the inferno threatening to consume my control.</p>

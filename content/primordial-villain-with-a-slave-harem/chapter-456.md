@@ -27,7 +27,7 @@ chapter = 456
 <p>This was the same or at least eerily similar spell to that which the Hydromancer used on me in the first round. I could defend it because I used multiple defensive spells, I had good armor and high Vitality and base HP amount.</p>
 <p>Not only was my Magic stat likely higher than his, but my enemies were also much worse protected than I was.</p>
 <p>The torrent began carving a path through the charging horde.</p>
-<p>The force behind the jet attack made even the bulkiest of orcs stagger where they stood while the weaker creatures were outright killed under the pressure of my attack. Their cries would've been full of agony, but luckily they were drowned out by the roaring stream, so my ears didn't have to hear their irritating screeching. РΑꞐÖʙĚŜ</p>
+<p>The force behind the jet attack made even the bulkiest of orcs stagger where they stood while the weaker creatures were outright killed under the pressure of my attack. Their cries would've been full of agony, but luckily they were drowned out by the roaring stream, so my ears didn't have to hear their irritating screeching.</p>
 <p>One werewolf tried to leap out of the torrent's range, but I adjusted my aim and pinned it against an ogre who could withstand my attack without getting flown back. It gripped the canine's head in its large hand and shattered it. I couldn't help but look at the hideous creature with fury.</p>
 <p>That was my kill.</p>
 <p>'I will get to this fucker soon enough,' I calmed myself.</p>

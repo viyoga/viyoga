@@ -34,7 +34,7 @@ chapter = 635
 <p>"What did you say?!"</p>
 <p>"Stop it!" the head honcho snarled at his underlings before turning toward us. "I apologize for my team's behavior. Tell us what you want."</p>
 <p>… Let's just say I wasn't impressed, not at all.</p>
-<p>Sova stepped forth. "I'm Windbreaker, the leader of the aerial units of the 4th resistance army. We suffered heavy casualties, and if not for these humans, we would've all been wiped out." Ṟ𝒶N𝙤ВЁ𝘴</p>
+<p>Sova stepped forth. "I'm Windbreaker, the leader of the aerial units of the 4th resistance army. We suffered heavy casualties, and if not for these humans, we would've all been wiped out."</p>
 <p>"… Wiped out?" the dogkin asked with disbelief. "Our reports indicate the lionkin are stretched thin."</p>
 <p>"They are," Sova nodded before pointing at the woman carried by Vex. "They have secret backers. This necromancer woman and her giant undead army were the ones who met us in their lands, alongside a slave army made up of beastkin. Our saviors believe she is part of the organization operating in the Ravenshade Dutchy of the human kingdom called 'Covenant of Eternity.'"</p>
 <p>Hearing her words, the dogkin soldiers focused their nostrils on the woman and sniffed once again. This time around, instead of euphoria due to Blossom's heavenly aroma, they grimaced strongly, so much so that some even gagged. The stench of undeath was unmistakable even for my nose, so I could only imagine what it smelled like for them.</p>

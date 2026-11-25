@@ -29,7 +29,7 @@ chapter = 687
 <p>Ayame was given equal scrutiny. Rosie tapped her forehead once, then patted her shoulder twice before resting her chin on her hands and murmuring to herself. "Mm… ambitious like Daddy!"</p>
 <p>Blossom received the longest observation. Rosie circled the dog-kin, studying her ears with fascination before gently tugging on one. Blossom twitched but didn't pull away, her tail wagging slightly at the attention. Rosie beamed. "Soft but hard at the same time! Blossom Mommy is a compassionate person who can become very serious when needed!" she declared, her childish voice full of excitement.</p>
 <p>She did this for every single person I directed to sit.</p>
-<p>When she was satisfied, Rosie floated back to her tree. She perched herself on a sturdy branch, placing her tiny fingers under her chin, and furrowed her brows in thought. Her legs swung back and forth as she muttered nonsensical sounds under her breath, deep in concentration. ř𝔞ŊȫВΕș</p>
+<p>When she was satisfied, Rosie floated back to her tree. She perched herself on a sturdy branch, placing her tiny fingers under her chin, and furrowed her brows in thought. Her legs swung back and forth as she muttered nonsensical sounds under her breath, deep in concentration.</p>
 <p>Finally, her face lit up with realization. "Aha! Rosie knows!" She clapped her hands together and shot back into the air, swiftly plucking different flowers from her tree—each one unique in its shape, color, and scent.</p>
 <p>One by one, she floated to each girl and presented them with their own flower.</p>
 <p>Aurora's was a delicate blossom with glowing silver petals.</p>

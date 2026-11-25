@@ -30,7 +30,7 @@ chapter = 819
 <p>With his preparations done, he surged forward.</p>
 <p>The step cracked the ground.</p>
 <p>His fist met the shield wall with the weight of a volcanic eruption behind it.</p>
-<p>Qi ignited on impact, deep inside the point of contact, crushing shields inward, ripping steel from leather, sending men hurling backward with bones shattered and blood flying. 𝘳𝘼ℕՕ𝐁ЕꞨ</p>
+<p>Qi ignited on impact, deep inside the point of contact, crushing shields inward, ripping steel from leather, sending men hurling backward with bones shattered and blood flying.</p>
 <p>It was not the blaze of a torch. It was the detonation of pressure: internal fire, shaped and forced through flesh until it broke the world apart.</p>
 <p>No fire raged outside his skin—only tight bursts of flame around his fists and feet, each one precise, surgical, fatal.</p>
 <p>The formation crumbled.</p>

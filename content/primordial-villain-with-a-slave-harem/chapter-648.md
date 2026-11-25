@@ -28,7 +28,7 @@ chapter = 648
 <p>"It's too late to have regrets now, I offer no takebacks."</p>
 <p>"I know… I'm not regretful, just worried."</p>
 <p>"I'll deal with it. You should focus on the present."</p>
-<p>Without waiting for a response, I thrust once again, earning myself a sensual moan as a reward. I continued humping this flailing woman for minutes, Kitsara was giggling like a silly girl, I could tell her heart was brimming with joy. She was having the time of her life. ŗÃ𝐍𝙤𐌱Êš</p>
+<p>Without waiting for a response, I thrust once again, earning myself a sensual moan as a reward. I continued humping this flailing woman for minutes, Kitsara was giggling like a silly girl, I could tell her heart was brimming with joy. She was having the time of her life.</p>
 <p>I decided to kick it up a notch.</p>
 <p>Without any semblance of a warning, I let go of my wind powers, sending us plummeting towards the ground at an incredible speed. Yet, I continued to thrust into her even as we fell. Her screams echoed in my ears as she let go of everything, enjoying the moment to the full.</p>
 <p>For the first time, the princess of the dogkin people who used illusions to fit in, let go of everything.</p>

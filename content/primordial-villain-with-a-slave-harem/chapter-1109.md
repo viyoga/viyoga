@@ -34,7 +34,7 @@ chapter = 1109
 <p>Quinlan’s reply was as dry as his expression. "... We do."</p>
 <p>"New guests? Who?" Felicity asked excitedly.</p>
 <p>But then her cheer faltered.</p>
-<p>At the edge of her gaze, something shifted. An ominous presence seeped into the stronghold, thick enough to coat her throat in frost. Her wide eyes snapped toward the movement, and there she was. ℟ἁꞐǒꞖ˧</p>
+<p>At the edge of her gaze, something shifted. An ominous presence seeped into the stronghold, thick enough to coat her throat in frost. Her wide eyes snapped toward the movement, and there she was.</p>
 <p>A woman.</p>
 <p>She walked like she owned the earth beneath her boots, though her expression remained eerily blank. Her skin gleamed with tattoos that curled across taut muscle like living serpents. Black leather clung to her body while her piercing eyes traversed across the surroundings.</p>
 <p>She was confused—that much was clear—but no trace of the emotion showed on her face. Instead, with every step, her aura sharpened, turning more hostile and suffocating.</p>

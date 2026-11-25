@@ -22,7 +22,7 @@ chapter = 703
 <p>"... No comment."</p>
 <p>Before Kitsara could throw a hissy fit, a loud, energetic chuckle rumbled from nearby, diverting both of our attention.</p>
 <p>Darius stepped forward as he rolled his shoulders. "Nice bulk you got there, little sis." He grinned while lifting one massive arm and flexing, his muscles bulging like tree trunks.</p>
-<p>Forgetting she was supposed to be mad at me, Kitsara didn't hesitate for a single second to dismissively scoff at her brother. "Oho! You're so going down! Get ready to call me big sis from today onwards." R𝙖₦Ȱ𝖇Èş</p>
+<p>Forgetting she was supposed to be mad at me, Kitsara didn't hesitate for a single second to dismissively scoff at her brother. "Oho! You're so going down! Get ready to call me big sis from today onwards."</p>
 <p>Having said her arrogant piece, she raised both arms, making her exaggerated lionkin form flex back, matching her brother's pose.</p>
 <p>He laughed amusedly at his sister's antics while shaking his head. "Haha! It's nice to dream big, but you should set realistic expectations for yourself. Setting yourself up for failure is a recipe for depression."</p>
 <p>And just like that, the most ridiculous flexing showdown in history began.</p>

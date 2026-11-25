@@ -32,7 +32,7 @@ chapter = 342
 <p>Yep, my head was filled with thoughts of ravaging these two where they stood, naturally. "I'm sorry, I couldn't help it."</p>
 <p>They turned their heads to meet each other's gazes and soon giggled together. "We get it, don't worry, Quinnie. It's a natural reaction, and we forgot how newborns like you are very instinctual. Instead of being angry with you, it makes us happy to know that you think so highly of us."</p>
 <p>"I agree!"</p>
-<p>I sighed with a bit of relief. "Phew. Great. Okay, let me introduce the girls. Please accept my apologies in advance if I accidentally include some private thoughts." ℞𝖆ℕỌВĚş</p>
+<p>I sighed with a bit of relief. "Phew. Great. Okay, let me introduce the girls. Please accept my apologies in advance if I accidentally include some private thoughts."</p>
 <p>"We don't mind!"</p>
 <p>"Instead, you should actively do your best to include them. There's no one more qualified than the two of us to decide if they're worthy to be the mothers of your children, and to do that we need to see their performance in bed. Our son can't be married to a boring woman who just lies on her back the whole time, and especially not a deceptive, gold-digging harpy!"</p>
 <p>"True, true." Mearie nodded sagely.</p>

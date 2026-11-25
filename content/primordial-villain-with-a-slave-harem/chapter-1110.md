@@ -30,7 +30,7 @@ chapter = 1110
 <p>It was already war.</p>
 <p>Raika lunged first. A blur of muscle and inked fury, her fist cut through the air with enough force to split stone.</p>
 <p>It never landed.</p>
-<p>Quinlan’s hand shot out and caught her strike clean. The shockwave rippled outward, scattering dust and grass, but his grip didn’t falter. His gaze dropped to her balled fist, then rose to her face. 𝙍𝘼Ｎ𝘰ВËṤ</p>
+<p>Quinlan’s hand shot out and caught her strike clean. The shockwave rippled outward, scattering dust and grass, but his grip didn’t falter. His gaze dropped to her balled fist, then rose to her face.</p>
 <p>His expression darkened, turning ominous. He became visibly infuriated with what he was seeing.</p>
 <p>"You’re still disrespecting me, huh..."</p>
 <p>"That ends today."</p>

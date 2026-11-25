@@ -28,7 +28,7 @@ chapter = 437
 <p>Once she pointed at her I went and saw that she was unresponsive. I crouched down and lifted her into my arms, eliciting a lot of gasps and curious gazes. Did they think this was below me? To touch a dirty dying sex slave? I didn't have such qualms about cleanliness.</p>
 <p>&lt;Everything is ready.&gt; Ayame's gorgeous voice sounded in my mind.</p>
 <p>I stopped supplying the gate with my mana which immediately canceled the spell, after which I summoned one that connected this basement with the Wraithclaw location.</p>
-<p>"Emily and the other captives as well as house staff, this is a door that leads to my temporary home. Step through and you'll be able to enjoy living under my protection. If you have family members in the outside world I'll help you bring them over as well in the next few days." ℝä𐌽Ȏ₿ЕꞨ</p>
+<p>"Emily and the other captives as well as house staff, this is a door that leads to my temporary home. Step through and you'll be able to enjoy living under my protection. If you have family members in the outside world I'll help you bring them over as well in the next few days."</p>
 <p>"You didn't lie when you said that you aren't the same man you were back then…" Emily replied with a low whisper as she eyed the portal. I chuckled at her reaction, instructed Lyra to bring the Blackthorn men, and stepped through.</p>
 <p>Dorothy stepped through after me without a moment's hesitation, followed by Pumpkin who dragged her mother behind her. The poor woman wasn't very responsive even now.</p>
 <p>Many hundreds of eyes welcomed my emergence from the portal. Most of the populace I conquered were still fearing me and for a good reason. It was only a couple of hours since I held my [Airwalk] speech.</p>

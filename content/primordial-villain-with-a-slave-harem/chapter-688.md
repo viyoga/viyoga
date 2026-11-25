@@ -30,7 +30,7 @@ chapter = 688
 <p>…</p>
 <p>Ayame gasped with shock, her breath was unsteady. A moment ago, she had felt nothing, just sitting on the lush grass of her home, then suddenly, she was dragged away somehow.</p>
 <p>She opened her eyes to find herself surrounded by vast nothingness, an endless golden expanse stretching infinitely in all directions. There was no ground beneath her feet, no sky above, just an overwhelming, suffocating yellow void.</p>
-<p>Her pulse quickened as she took a step forward, feeling the weight of her battle armor. A familiar, long-lost weight at her hip caught her attention. Slowly, her hand traced the smooth scabbard before she unsheathed the katana. ṛ₳₦ŏᛒΕ𝐒</p>
+<p>Her pulse quickened as she took a step forward, feeling the weight of her battle armor. A familiar, long-lost weight at her hip caught her attention. Slowly, her hand traced the smooth scabbard before she unsheathed the katana.</p>
 <p>Her old sword, a gift from none other than her father.</p>
 <p>The very same blade that had accompanied her during her first 14 levels before Kaede's betrayal.</p>
 <p>Her fingers trembled as she tightened her grip. Why was it here?</p>

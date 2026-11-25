@@ -24,7 +24,7 @@ chapter = 137
 <p>"Because he holds something important over my head as leverage to keep me in check."</p>
 <p>Now things are finally starting to clear up.</p>
 <p>"You have my condolences. Can you tell us more about how the syndicate functions in general?"</p>
-<p>Jasmine nods, her expression softening slightly as she prepares to explain. "The Vesper Consortium is much more than just a network of criminals which is best exemplified by the fact that the doors we are standing in lead to an entire underground city, a world within a world, if you will. Shadowhold, the place I'm about to show you, is one of the syndicate's central hubs. ṞåΝο฿Èṩ</p>
+<p>Jasmine nods, her expression softening slightly as she prepares to explain. "The Vesper Consortium is much more than just a network of criminals which is best exemplified by the fact that the doors we are standing in lead to an entire underground city, a world within a world, if you will. Shadowhold, the place I'm about to show you, is one of the syndicate's central hubs.</p>
 <p>It has its own ecosystem- markets, housing, civilians, training grounds, everything you can think of."</p>
 <p>She gestures towards the ornate door behind her, the serpents carved into it seemingly alive under the dim light. "Only high-ranking members and those with special permissions can use passages such as these that lead directly from Braedon to Shadowhold. The lower-ranked members have to use the wilderness entrances. The biggest ones are a few miles outside of Braedon, hidden deep in the forests.</p>
 <p>It's a long trek for those not yet trusted by the Consortium."</p>

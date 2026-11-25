@@ -34,6 +34,6 @@ chapter = 576
 <p>"Spineless coward, fight us!" The lions shouted as they watched the same spectacle as us, but their mood quickly shifted when they noticed that we were, in fact, humans.</p>
 <p>Humans in lionkin lands.</p>
 <p>"Who are you, fangless monkeys?!"</p>
-<p>Vex ignored their snarls and growls and turned to me, "Future hubby, we’ll take care of this. Can you catch that rabbit for me? She shouldn’t be in lionkin territory; something is going on, and I want to know what. However, be wary. [Sky Hopper] is an innate rabbitkin ability they gain upon reaching level 30, so don’t think her to be a weakling just because she seems to be a coward. When driven into a corner, herbivore beastkin can be extremely deadly." 𐍂ãℕȎʙÈs̩</p>
+<p>Vex ignored their snarls and growls and turned to me, "Future hubby, we’ll take care of this. Can you catch that rabbit for me? She shouldn’t be in lionkin territory; something is going on, and I want to know what. However, be wary. [Sky Hopper] is an innate rabbitkin ability they gain upon reaching level 30, so don’t think her to be a weakling just because she seems to be a coward. When driven into a corner, herbivore beastkin can be extremely deadly."</p>
 <p>Sigh… I couldn’t help but sigh as I watched the small dot next to the sun. Catching her certainly wasn’t going to be a walk in the park. Nonetheless, I was curious about her too, so I obliged.</p>
 <p>"[Airwalk]."</p>

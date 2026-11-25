@@ -34,7 +34,7 @@ chapter = 470
 <p>"Take your positions," Vex instructed, and we did just as so.</p>
 <p>She stepped out of our way and then began counting down, "on my mark. Three, two, one, go!"</p>
 <p>"[Stone Sentinel], [Flame Serpent]." I began the match by summoning Harold and Agni. They should provide me with a good frontline.</p>
-<p>Kael slammed his ornately decorated mage's staff into the ground as a response to my actions and intoned, "[Ice Age]!" and a deafening crack resonated through the arena as jagged veins of ice shot outward in all directions like an icy eruption. ŕâΝ𝔬BĚꞨ</p>
+<p>Kael slammed his ornately decorated mage's staff into the ground as a response to my actions and intoned, "[Ice Age]!" and a deafening crack resonated through the arena as jagged veins of ice shot outward in all directions like an icy eruption.</p>
 <p>The stone floor trembled as frost erupted and covered the ground, transforming the once neutral battleground into a frozen wasteland. The temperature plummeted instantly.</p>
 <p>Agni hissed violently as the ice surged toward him. His fiery coils blazed brightly for a moment as he was fighting back the cold with all his might, but the frost consumed him like a tidal wave. The once-proud serpent solidified into an icy sculpture.</p>
 <p>Harold fared no better. The cold seeped into his massive stone form with his legs getting encased in thick frost within seconds. He exerted a great amount of force in protest, but the ice gripping his limbs held firm. The frost sapped his strength and dulled his movements.</p>

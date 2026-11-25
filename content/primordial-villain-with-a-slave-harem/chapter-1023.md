@@ -33,7 +33,7 @@ chapter = 1023
 <p>Deep down, she wanted to.</p>
 <p>And right now, just like back then...</p>
 <p>She was reminded of it all over again.</p>
-<p>Iris took a deep breath. Her palm clenched the side of her dress, a dress she hated. It was soft, silky, and draped across her in all the ways that made her want to crawl out of her skin. 𝖗ÅꞐȮᛒĚś</p>
+<p>Iris took a deep breath. Her palm clenched the side of her dress, a dress she hated. It was soft, silky, and draped across her in all the ways that made her want to crawl out of her skin.</p>
 <p>The thigh slit was far too generous. The neckline dipped like it was trying to compete with the ocean trench. She could feel eyes on her even while seated, and she knew damn well she looked good.</p>
 <p>Too good for someone who used to swing a blade in ragged armor and sleep in dirt.</p>
 <p>But there she was.</p>

@@ -34,7 +34,7 @@ chapter = 567
 <p>"Voltstep."</p>
 <p>Electricity crackled around my legs as the lightning element bolstered my already high speed to a whole different realm.</p>
 <p>It was time to give the Beastman Confederation the warm welcome only Devil, the saber-wielding Elemental Sovereign, could provide them with.</p>
-<p>I gripped the hilt of my Soul Reaper with both of my hands, stretched out my arms fully, and rotated the blade to the side so it was horizontal to the ground. Ȑá₦𝐨𝔟Ёs̈</p>
+<p>I gripped the hilt of my Soul Reaper with both of my hands, stretched out my arms fully, and rotated the blade to the side so it was horizontal to the ground.</p>
 <p>And then, I charged.</p>
 <p>The first lion-kin barely had time to react before my saber cleaved through him with a clean, precise slash, severing flesh and bone alike. Due to the overwhelming velocity behind my strike, which was further bolstered by the sharp edge of the Mythic-rarity weapon crafted by the greatest blacksmith in the world of Thalorind, it was a one-shot kill.</p>
 <p>[You’ve slain level 28 Azmar. You’ve gained 2,029 XP.]</p>

@@ -24,7 +24,7 @@ chapter = 115
 <p>[Unused Skill Points: 0]</p>
 <p>[Unused Attribute Points: 0]</p>
 <p>Oh, my theory is finally confirmed. Non-primordials can also have differing Class Levels and Normal Levels.</p>
-<p>Blossom probably gains Class Levels from stealth kills which grant more XP to her class than normal level, furthermore, Phantom Canine sounds more varied than the basic Assassin class, so she probably gains class XP from non-combat actions as well, such as stealing and successfully sneaking around guards and stuff. ⱤάŊ𝘰ΒÊᶊ</p>
+<p>Blossom probably gains Class Levels from stealth kills which grant more XP to her class than normal level, furthermore, Phantom Canine sounds more varied than the basic Assassin class, so she probably gains class XP from non-combat actions as well, such as stealing and successfully sneaking around guards and stuff.</p>
 <p>I can also finally see why she has much more Agility than Ayame, Blossom invested heavily into the stat while Ayame spread her free points evenly between all physical attributes.</p>
 <p>I then hold a short conversation with her explaining my thought process and she rapidly accepts my proposal, after which we settle on her legal name becoming Luna. With this, she will be just one of the many beast-kin war slaves kidnapped from the Beastman Confederation, which borders Greenveil, the duchy we are currently in.</p>
 <p>As long as no one who personally knows her appearance sees Blossom no one should know who she truly is, which just adds another point to my giant list of reasons to get out of Aldoria for the time being.</p>

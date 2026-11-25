@@ -28,7 +28,7 @@ chapter = 821
 <p>Feng Jiai then looked back at Quinlan and muttered under her breath just loud enough for him to hear, "Could you at least try to smile, Stupid Uncle?"</p>
 <p>It made three of the women faint on the spot.</p>
 <p>"...Great. Perfect. Thank you," Feng Jiai muttered flatly, rubbing her temples as the third woman keeled over in a swoon.</p>
-<p>The scent of scorched leather and iron still lingered when they stepped back into the bandit camp. Corpses dotted the field, cooling under the rising sun, and the looted wagons stood as reminders of the profession Quinlan’s prey decided to follow. ŕάŊồＢΕȘ</p>
+<p>The scent of scorched leather and iron still lingered when they stepped back into the bandit camp. Corpses dotted the field, cooling under the rising sun, and the looted wagons stood as reminders of the profession Quinlan’s prey decided to follow.</p>
 <p>Inside: silver pieces, a few crumpled promissory notes, food rations, and...</p>
 <p>Fourteen jade slivers tucked in a leather pouch, marked with the stylized mountain symbol of lìng tokens. The very currency used by high-tier martial artists.</p>
 <p>He tucked them away wordlessly and rose.</p>

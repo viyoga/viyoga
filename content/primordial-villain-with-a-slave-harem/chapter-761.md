@@ -26,7 +26,7 @@ chapter = 761
 <p>Now that distrust had been fully shattered into useless little pieces. If she was willing to betray me after all we’d been through, then I deserved to fall for having such a bad grasp on the people I allow into my heart.</p>
 <p>Kitsara was the only one who wanted to stay behind, wishing to remain by her injured brother’s side for a little longer. She assured me she would let me know once she was ready to come back to us.</p>
 <p>I happily accepted her reasoning and told her I was here any time she needed someone to talk to, just as her sister-wives were here for her as well, and then we stepped through the portal and entered into pure serenity.</p>
-<p>The contrast hit us like a punch to the gut. Gone was the stench of blood and smoke, replaced by the crisp scent of dew-laced grass and blooming wildflowers. A soft breeze caressed my skin as sunlight streamed through the dense forestry above, dancing between leaves and branches. ʀ𝔞𝐍Ǒ𝖇Ê𐌔</p>
+<p>The contrast hit us like a punch to the gut. Gone was the stench of blood and smoke, replaced by the crisp scent of dew-laced grass and blooming wildflowers. A soft breeze caressed my skin as sunlight streamed through the dense forestry above, dancing between leaves and branches.</p>
 <p>And there it stood.</p>
 <p>Rosie’s tree.</p>
 <p>A towering marvel of the fantasy nature of this world, her home/original body looked like something straight out of a fairytale. Its bark shimmered with natural mana as blooms of innumerable flowers dotted her branches, while delicate vines with glowing berries coiled upward like ornaments.</p>

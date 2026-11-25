@@ -30,7 +30,7 @@ chapter = 815
 <p>He took one step forward. nøvel.com</p>
 <p>"Before you learn to unleash fire, you must learn to move your Qi while under pressure. Under strain. Under attack. Flow it through your body while your muscles scream, while your balance breaks, while pain clouds your mind."</p>
 <p>His hand lifted and pointed at the cracked ground.</p>
-<p>"This is your battlefield. For seven days, you will not be taught forms. You will not be shown strikes. You will move. You will fight. You will breathe while burning." ṞＡƝꝊ฿Ё𝐬</p>
+<p>"This is your battlefield. For seven days, you will not be taught forms. You will not be shown strikes. You will move. You will fight. You will breathe while burning."</p>
 <p>Quinlan’s lips parted, just slightly.</p>
 <p>The old man didn’t miss it. His tone sharpened.</p>
 <p>"You mastered the breath of Qi. Now you must master maintaining its rhythm. Because the moment your Qi stutters in battle..." He raised his prosthetic arm and tapped his chest. "You die."</p>

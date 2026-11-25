@@ -35,7 +35,7 @@ chapter = 204
 <p>"Girl bloodletting. Back on Earth, women were so evil they needed to be drained of their sinister blood once a month lest they transform into banshees terrorizing the unfortunate males in their vicinity. Do you also bleed down there?"</p>
 <p>"Please let me be wrong, but are you talking about menstruation?" She asks incredulously.</p>
 <p>"Oh, so you do know it."</p>
-<p>"Yes…" She sighs. "I can't believe that this is how you describe it… girls' evil blood… hehehe. That's a Quinlan interpretation if I've heard one." Seems like by the end she found my analogy comical, evidenced by her cute giggles. ȑ𝓪Ꞑ𝔬βЕS̩</p>
+<p>"Yes…" She sighs. "I can't believe that this is how you describe it… girls' evil blood… hehehe. That's a Quinlan interpretation if I've heard one." Seems like by the end she found my analogy comical, evidenced by her cute giggles.</p>
 <p>"To answer your question, yes, we also bleed, but once a female goes through her first Rank Up Mission, meaning she reaches level 10, it tends to stop occurring. It is theorized that as we go through a qualitative change, our bodies become superior.</p>
 <p>Bleeding during battle is obviously a big drawback, as it also affects our mental state and the quality of our decision making, so we naturally suppress it somehow, but are still perfectly capable of birthing children. But, strangely, high-level women that decide to retire from combat and lead peaceful lives tend to resume their cycles after a few months of tranquility."</p>
 <p>"So your body adapts to your situation."</p>

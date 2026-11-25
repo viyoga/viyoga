@@ -35,7 +35,7 @@ chapter = 300
 <p>"[Armor Crush]!" they shouted, and the enemy's plate crumbled inward, squeezing the poor fool like a tin can under their hammer's weight.</p>
 <p>With the intonation of the spell, I could identify 'them' as a woman.</p>
 <p>But she didn't stop there.</p>
-<p>"[Hammerfall]!!!" she roared while lifting her weapon high again. Transparent energy surrounded the hammer's head before she brought it down, creating a mighty impact that sent a shockwave that knocked her enemies off their feet, leaving them dazed and exposed. They soon found themselves riddled with arrows from her backline rangers. Rа𐌽𝐨𝔟ĚS̈</p>
+<p>"[Hammerfall]!!!" she roared while lifting her weapon high again. Transparent energy surrounded the hammer's head before she brought it down, creating a mighty impact that sent a shockwave that knocked her enemies off their feet, leaving them dazed and exposed. They soon found themselves riddled with arrows from her backline rangers.</p>
 <p>When one particularly bold warrior attempted to circle around her to reach the archers, she threw up a taunt spell- "[Rallying Cry!]" Her voice echoed across the field, filled with a commanding presence that left enemies no choice but to focus on her as their attention locked onto the juggernaut that she was.</p>
 <p>&lt;Are you sure that's an elf and not an orc?&gt;</p>
 <p>&lt;Master, that's racist. We can be physically imposing too!&gt; Seraphiel chided me with an uncharacteristically energetic tone.</p>

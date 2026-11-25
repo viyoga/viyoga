@@ -38,7 +38,7 @@ chapter = 747
 <p>My eyes locked onto her.</p>
 <p>She blinked, sensing the great turbulence in the air that marked my arrival.</p>
 <p>Then, to my great surprise, this eccentric woman smiled like she’d been waiting for me.</p>
-<p>Waiting for me to make my primordial cheating happen so that the tides would turn. So that I would make the impossible possible, turning defeat into victory. ŗàɴỒ𝔟Ès</p>
+<p>Waiting for me to make my primordial cheating happen so that the tides would turn. So that I would make the impossible possible, turning defeat into victory.</p>
 <p>Just before I reached her, my fingers slashed the air, my mana roaring to life.</p>
 <p>“[Warp Gate]!”</p>
 <p>A rift in space tore open behind her.</p>

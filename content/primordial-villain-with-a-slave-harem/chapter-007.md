@@ -27,7 +27,7 @@ chapter = 7
 <p>"Good morning! What can I get for you?" he asks cheerfully.</p>
 <p>"Morning. I'll take whatever pastry you recommend," I reply, hoping to get a sense of the local cuisine.</p>
 <p>He hands me a sweet-smelling pastry. "That'll be one bronze coin," he says.</p>
-<p>"Can I pay with a silver coin?" I have a single bronze coin left so I could pay the exact price, but I really want to find out how much a silver coin is worth. ṚＡℕ𝔬𝐁Ës</p>
+<p>"Can I pay with a silver coin?" I have a single bronze coin left so I could pay the exact price, but I really want to find out how much a silver coin is worth.</p>
 <p>He glares at me for a second before relenting. "... Yes sir." He then brings a pouch out and counts 99 bronze coins. Yep, my guess is confirmed. A silver coin is worth 100 bronze coins.</p>
 <p>I pay him and take a bite of the pastry as I leave. It's surprisingly delicious, filled with a sweet fruit jam that I can't quite identify. The bread is fresh and hearty, perfect for a quick breakfast bite.</p>
 <p>With my hunger satisfied and my new toiletries in my bag, I step out of the general store, taking a moment to count my remaining coins. I have 1 silver and 100 bronze coins left. Not a fortune, but enough to get by for now.</p>

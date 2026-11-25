@@ -36,7 +36,7 @@ chapter = 800
 <p>Quinlan tried to pull them in, but the fire in his dantian roared instantly, rebelling against the foreign elements.</p>
 <p>The other forces vanished like smoke.</p>
 <p>He coughed so badly that his blood dirtied the grass. His pulse spiked. His qi flared erratically.</p>
-<p>Feng Jiai instantly pressed a palm to his chest. "You idiot! What did you just try to do?! Your body's not ready to draw from the fire essence! You could've torn your channels apart!" 𝘳𝐀Nо𝐁ÊꞨ</p>
+<p>Feng Jiai instantly pressed a palm to his chest. "You idiot! What did you just try to do?! Your body's not ready to draw from the fire essence! You could've torn your channels apart!"</p>
 <p>Quinlan winced, panting. "I… just felt something. I didn't think-"</p>
 <p>"Exactly! You don't think, Uncle! Stop acting like a suicidal maniac!"</p>
 <p>"One must experiment to progress."</p>

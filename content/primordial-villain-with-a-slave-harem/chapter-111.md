@@ -29,7 +29,7 @@ chapter = 111
 <p>"This room stinks worse than the one we dropped the castrated piglet in!" Ayame exclaims and rushes to the window to open it.</p>
 <p>Blossom blinks twice, "Miss Ayame castrated Blossom's old master?"</p>
 <p>Oh, yeah, we didn't give her a detailed report on that yet.</p>
-<p>"Hehe! Yeah, I did. He was squealing so much that Quinlan could barely hold him down even after I crippled his limbs. It was a beautiful sight to behold. And please, just call me Ayame. You are only a level below me system-wise and we have the same social rank in both society in general and in this party." ȑãNȪBĘṩ</p>
+<p>"Hehe! Yeah, I did. He was squealing so much that Quinlan could barely hold him down even after I crippled his limbs. It was a beautiful sight to behold. And please, just call me Ayame. You are only a level below me system-wise and we have the same social rank in both society in general and in this party."</p>
 <p>I chime in playfully; "not really, not anymore. How could my simple combat slave and my beloved mate be equal? You better call her Mistress Blossom from now on while you kiss her hand in greeting whenever you cross her path. Or was your father's first wife equal in position to his strongest soldier?"</p>
 <p>"Hehehe! Blossom is Master's mate!" The adorable dog-kin yells blissfully, clearly overjoyed that I would call her as such openly.</p>
 <p>Ayame stomps her feet on the ground in annoyance. Both at my joke and how happy Blossom is at the simple fact that I accepted her as my woman publicly.</p>

@@ -29,7 +29,7 @@ chapter = 1112
 <p>Quinlan’s eyes widened for a moment. He hadn’t expected her to rise from that blow, let alone snarl in defiance. For an instant, genuine respect glinted in his gaze.</p>
 <p>But it died quickly, smothered by sadistic cruelty.</p>
 <p>"Then I must burn the lesson into you."</p>
-<p>His heel pressed down again, this time cloaked in fire. Flames erupted outward, racing across her skin, branding her flesh. Her stomach blistered instantly, skin searing black. 𝑅ἁＮòBƐş</p>
+<p>His heel pressed down again, this time cloaked in fire. Flames erupted outward, racing across her skin, branding her flesh. Her stomach blistered instantly, skin searing black.</p>
 <p>But even now, Raika didn’t scream in pain.</p>
 <p>Her jaw clenched, her teeth grinding together until blood ran between them. Her face twisted, but she gave him nothing.</p>
 <p>Her buffed hands that were still blazing with the savage energy of [Brutalize] shot up. Fingers grabbed onto his feet, pushing, straining, defying. Her biceps bulged, veins tearing open as blood streaked her arms.</p>

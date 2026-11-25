@@ -27,7 +27,7 @@ chapter = 702
 <p>"… Is that so? If you manage to fail after all this talk, you're going to look like an incompetent jester, my dearest samurai."</p>
 <p>Only soft chuckling left her lips, letting me know she was serious.</p>
 <p>I nodded. "Fine by me. Have a good flight, Miss Wrath."</p>
-<p>I raised my arm in the sky, collected my grasp over the wind element for a single second, and then swung downward, launching Iris forward with a giant burst of air. She barreled toward her destination like a silent cannonball. Ȑ𝐚ꞐȏВƐŠ</p>
+<p>I raised my arm in the sky, collected my grasp over the wind element for a single second, and then swung downward, launching Iris forward with a giant burst of air. She barreled toward her destination like a silent cannonball.</p>
 <p>Even though I'd flung her with all my might, she wasn't helpless: her body twisted midair as dark energy began crackling around her, a sign she was about to cast an ominous spell.</p>
 <p>Ayame smirked as she watched, then grabbed onto her katana's hilt still resting in its scabbard. "[Thunderflash]."</p>
 <p>Lightning burst forth from her form, wrapping around her body like a storm. In the next instant, she was gone. A bolt of violet light streaked forward, covering the distance in a fraction of a second.</p>

@@ -33,7 +33,7 @@ chapter = 540
 <p>"How was it? Had fun?" I asked while flashing a friendly smile.</p>
 <p>"No…"</p>
 <p>"I see, that’s unfortunate. But hey, they say humans are great at adapting to new circumstances; maybe you’ll come to like your new life."</p>
-<p>She didn’t seem to share my sentiment as tears welled in her eyes as soon as the words left my lips. Vivienne then got out of her bed and stood before me, after which she kneeled and kowtowed. "Lord Quinlan, I understand the error of my ways. I was a horrible human being who tormented innocents and also had the gall to oppose your great person..." Ꞧ𝘈Ɲ𝘰𝖇ƐꞨ</p>
+<p>She didn’t seem to share my sentiment as tears welled in her eyes as soon as the words left my lips. Vivienne then got out of her bed and stood before me, after which she kneeled and kowtowed. "Lord Quinlan, I understand the error of my ways. I was a horrible human being who tormented innocents and also had the gall to oppose your great person..."</p>
 <p>Her voice cracked as she failed to hold her sobs back, "But please, I’m begging from the bottom of my heart! Have mercy on me! I’ll be your loyal spy. I’ll work myself to the bone to deliver as many Greenvale secrets as I can; just spare me from this horrible punishment!"</p>
 <p>I amusedly shook my head while chuckling to myself. "So you’ll happily sell your family out, huh? What’s more, you didn’t even ask your sister to be spared alongside you. But then again, what else can we expect from people like you? Tell me, did you let your sex slaves off the hook when they begged you to?"</p>
 <p>Her whole body trembled, and no matter how deeply she wanted to keep quiet or lie, my previous orders as her [Subjugator] forced her to answer with the truth. "… No…"</p>

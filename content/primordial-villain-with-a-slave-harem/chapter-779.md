@@ -29,7 +29,7 @@ chapter = 779
 <p>Command not silence, but memory.</p>
 <p>Do not raise the forgotten.</p>
 <p>Reach for what remembers. Bind what still listens.</p>
-<p>I stared at the text in silence. The message felt heavy, overly so. Not just because of its cryptic grandeur, but because some part of it rang true deep inside me. I wasn't playing with puppets. True necromancy was learning how to command echoes of will, memory, and power. ṞåＮȎ𐌱Ёṩ</p>
+<p>I stared at the text in silence. The message felt heavy, overly so. Not just because of its cryptic grandeur, but because some part of it rang true deep inside me. I wasn't playing with puppets. True necromancy was learning how to command echoes of will, memory, and power.</p>
 <p>Vex hummed beside me, still gently teasing my jewel sack with those soft, circling strokes of hers. "I can't read a single word from this creepy book," she revealed, sounding more curious than bothered.</p>
 <p>"This text was probably meant to be read by me alone," I replied before adding dryly, "Or maybe this is the work of just another one of my 'primordial bullshit' perks, as my girls like to call them."</p>
 <p>She grinned against my chest, purring louder, but at the same time, her grip on my balls tightened a bit, letting me know she wasn't overly satisfied with my answer.</p>

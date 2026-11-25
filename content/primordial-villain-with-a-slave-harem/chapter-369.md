@@ -25,7 +25,7 @@ chapter = 369
 <p>And with that, I let go of them and they very reluctantly repeated my motions, after which they took a few steps back.</p>
 <p>"Give them hell!" Dragnar shouted boisterously.</p>
 <p>"I will see you, mothers and seniors, in a bit. Thanks for everything!"</p>
-<p>I only needed to think inwardly for the status screen to appear. There, I could see the option to return. I clicked on it with my mind, and the world of white welcomed me for a brief second before I was back exactly where I initiated the Rank-Up mission. ṛ₳ƝỌ𐌱Ës</p>
+<p>I only needed to think inwardly for the status screen to appear. There, I could see the option to return. I clicked on it with my mind, and the world of white welcomed me for a brief second before I was back exactly where I initiated the Rank-Up mission.</p>
 <p>Selene was aiming at me, with her spell already being in mid-cast, meaning I had no time to dodge or cast a counter. It was time to tank.</p>
 <p>From the corner of my eye I also saw Seraphiel being in mid-turn as she acted on my order which was to shoot the fire witch down should she act out, but sadly my healer was too late since Selene smartly chose the moment when the elf was busy casting a healing spell.</p>
 <p>"[Infernal Onslaught]!" She shouted with a smug, cruel grin adorning her lips. I just displayed the otherworldly feat of being able to cast saber-oriented spells besides my mage ones, making my threat level towards her continued safety skyrocket, so she decided to put me down with a potent backstab before I could bare my fangs at her instead of the members of the Phantom League.</p>

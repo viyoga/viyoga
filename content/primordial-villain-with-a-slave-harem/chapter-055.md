@@ -32,7 +32,7 @@ chapter = 55
 <p>She lets out a long, tired sigh, before looking away from me, embarrassment showing on her face. "Operation Liberate Blossom." She says in a low tone that signals finality of the discussion. Ayame clearly won't budge on this.</p>
 <p>"Hmm…. It lacks originality and flair, but what can you expect from women? It's better than nothing."</p>
 <p>"Excuse me? We have a good sense of humor! You are just an unfunny degenerate."</p>
-<p>I grin, "for sure you do. Man, I really need some guy friends. Being surrounded by only my harem all the time might ruin my amazing personality. Though Blossom probably won't be as much of a bore as you are…" ȒάƝȯВЕŜ</p>
+<p>I grin, "for sure you do. Man, I really need some guy friends. Being surrounded by only my harem all the time might ruin my amazing personality. Though Blossom probably won't be as much of a bore as you are…"</p>
 <p>"Make friends? You better put a collar on their necks as well or no one will want to tolerate you."</p>
 <p>Ouch. That was a low blow, which seems to be recognized by my evidently cruel samurai as well who gasps before hurriedly speaking up; "sorry, Quinlan. I really didn't mean that… It was a very ugly response to your light jabs. I got caught up in the moment." She apologizes honestly.</p>
 <p>"Don't worry about it, I have thick skin. However, if you really feel sorry I prefer to accept apologies shown with sincere kisses rather than words."</p>

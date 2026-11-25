@@ -31,7 +31,7 @@ chapter = 978
 <p>Liora stared at her for a long beat. Then nodded. "Alright."</p>
 <p>"That’s more like it."</p>
 <p>Two shadows streaked through the air.</p>
-<p>Eve landed at Quinlan’s side, kneeling. Her armor was demolished, her expression unreadable behind her soulforged mask, but her loyalty radiated like a beacon. ṙ𝒶ꞐΟ𝐛Ɛs̈</p>
+<p>Eve landed at Quinlan’s side, kneeling. Her armor was demolished, her expression unreadable behind her soulforged mask, but her loyalty radiated like a beacon.</p>
 <p>Veyrin appeared behind her, bow resting on his back, his spectral gaze sweeping the battlefield.</p>
 <p>His army of one hundred—his level 4045 soul soldiers—had perished. Not due to incompetence. But on purpose. They had held the line until the very end. They did their duty excellently.</p>
 <p>"Well done."</p>

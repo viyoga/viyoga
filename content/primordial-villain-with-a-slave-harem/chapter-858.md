@@ -29,7 +29,7 @@ chapter = 858
 <p>Nalai gave a tiny nod, composed but no longer aloof. “Please. I’d like to hear it from you.”</p>
 <p>And so he told her about meeting Rykar on the outskirts of Vulkaris, about the teachings, the bond, the road of painstaking cultivation and physical training that led him here.</p>
 <p>A brilliant, radiant smile broke across her face like the sun emerging after a storm. She shot to her feet and rushed around the table, nearly knocking over her tea in the process.</p>
-<p>With an uncharacteristic squeal of joy, she wrapped her arms tightly around Serika in a warm, unrestrained hug. “Serika!” she whispered, burying her face in her older sister’s shoulder. “He’s alive! He’s alive!” R̃𝒶ɴò₿Еṡ</p>
+<p>With an uncharacteristic squeal of joy, she wrapped her arms tightly around Serika in a warm, unrestrained hug. “Serika!” she whispered, burying her face in her older sister’s shoulder. “He’s alive! He’s alive!”</p>
 <p>Serika blinked in surprise, then let out a soft laugh and hugged her back tightly, one hand cradling the back of Nalai’s head with sisterly care. “Yeah. He is. That old monster’s still kicking.”</p>
 <p>Nalai clung to her like a little girl who’d just been handed her greatest wish, her composure momentarily forgotten. “All this time… I thought he was… I thought he was gone.”</p>
 <p>"I know, Nali,” Serika murmured, using a nickname only she had the right to use. “Me too.”</p>

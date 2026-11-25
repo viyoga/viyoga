@@ -26,7 +26,7 @@ chapter = 852
 <p>She showed no mercy. She never would.</p>
 <p>"Breathe deeper,” she’d growl between blows. “You fight too tight. The wind doesn’t clench its fists.”</p>
 <p>Then she’d slam her knee into his ribs and knock him flat.</p>
-<p>Their battles weren’t just training: they were alchemy. Sweat, pain, qi, and relentless intent transmuting Quinlan into something harder. Something purer. He learned to read the pressure of her punches, the rhythm of her intent. She forced him to bend. But she never let him break. ℞åℕ𝙤₿Ɛş</p>
+<p>Their battles weren’t just training: they were alchemy. Sweat, pain, qi, and relentless intent transmuting Quinlan into something harder. Something purer. He learned to read the pressure of her punches, the rhythm of her intent. She forced him to bend. But she never let him break.</p>
 <p>…</p>
 <p>Evenings brought river mist and quiet rituals.</p>
 <p>The water ran cold. Their bodies, heated from the fight, welcomed it like an old lover. They washed one another not with lust, but respect for each other. Her fingers ran over aching muscles, scrubbing away blood and dust, while his fingers cleansed her body of the sweat she’d worked up. His hands would linger on the curve of her back, her scarred shoulders. Hers would trail along his chest, where bruises bloomed like purple clouds.</p>

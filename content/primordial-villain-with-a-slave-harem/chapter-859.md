@@ -32,7 +32,7 @@ chapter = 859
 <p>"I’ve already contacted Rongtai, the Earth Sovereign,” she said with a soft smile. “He’s agreed to come here to train you in his own way.”</p>
 <p>Serika’s brows rose. “You convinced him to leave Daluang?”</p>
 <p>Nalai smirked with the barest hint of pride. “I can be persuasive.”</p>
-<p>"Unfortunately she added more somberly, “Zephyra, the Wind Sovereign, was killed by the invader. We’ll need to find a substitute to train you in wind. But I’m already on the case, so you don’t need to worry.” Ṟ𝒶ƝȎβЁṥ</p>
+<p>"Unfortunately she added more somberly, “Zephyra, the Wind Sovereign, was killed by the invader. We’ll need to find a substitute to train you in wind. But I’m already on the case, so you don’t need to worry.”</p>
 <p>A quiet beat passed. Quinlan nodded once. “Understood, and thank you.”</p>
 <p>He only got a gentle “Don’t even mention it,” response.</p>
 <p>Quinlan then glanced between them. “So… once I do break through… what happens?”</p>

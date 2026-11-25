@@ -32,7 +32,7 @@ chapter = 984
 <p>Instead, the women around her smiled... and reached for their weapons.</p>
 <p>And then, at the center, standing tall...</p>
 <p>Quinlan summoned his weapon.</p>
-<p>The Soul Reaper, a long, elegant saber made of eerie blue soul-light, materialized in his right hand. His eyes shone like twin infernos as he stepped forward, letting his aura slam into the room like an invisible thunderclap. 𐍂𝒶ＮȏBЕṥ</p>
+<p>The Soul Reaper, a long, elegant saber made of eerie blue soul-light, materialized in his right hand. His eyes shone like twin infernos as he stepped forward, letting his aura slam into the room like an invisible thunderclap.</p>
 <p>Behind him, the portal shimmered again.</p>
 <p>More silhouettes stepped through.</p>
 <p>Sylvaris, Seraphiel’s mother, arrived first, draped in a gown of silver-woven threads. She walked straight to Jasmine and once there, she conjured a radiant crescent-shaped Moon Construct that enveloped the girl like a second skin.</p>

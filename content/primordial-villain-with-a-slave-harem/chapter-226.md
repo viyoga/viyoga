@@ -26,7 +26,7 @@ chapter = 226
 <p>&lt;Yep.&gt;</p>
 <p>&lt;Girls, get ready. We're about to commit mass murder.&gt;</p>
 <p>&lt;Sigh. I knew it would come to this.&gt;</p>
-<p>&lt;Ayame, Blossom, on my mark engage with the rabble. I will fight the golden boy. Your opponents are exhausted, so their reaction time might not be top-notch. Make sure you protect our completely unaware ally too.&gt; I've always allowed Ayame to fight the strongest enemies thus far. Now that I've become strong enough, it's time I don't ditch the hardest work for her to deal with. 𝑅𝔞ＮǑ𝐛ЁṠ</p>
+<p>&lt;Ayame, Blossom, on my mark engage with the rabble. I will fight the golden boy. Your opponents are exhausted, so their reaction time might not be top-notch. Make sure you protect our completely unaware ally too.&gt; I've always allowed Ayame to fight the strongest enemies thus far. Now that I've become strong enough, it's time I don't ditch the hardest work for her to deal with.</p>
 <p>I need to fight uphill battles to continue improving at my current speed.</p>
 <p>"25 gold coins? My lord, she isn't even level 5. I only have her here to be the team's mascot. Her mere presence cheers me up."</p>
 <p>"...? So you want me to pay less?"</p>

@@ -28,7 +28,7 @@ chapter = 599
 <p>It was not about control.</p>
 <p>It was about knowing.</p>
 <p>Understanding every flicker, every spark—not forcing the fire to obey but grasping its nature in its entirety.</p>
-<p>I sat there calmly, not rushing to the finish line, for I knew the importance of the process of learning. Every iota of my brainpower was utilized to analyze all I’d seen. Not just here in the dying world but throughout my life. ṛᴀŊՕВÈꞨ</p>
+<p>I sat there calmly, not rushing to the finish line, for I knew the importance of the process of learning. Every iota of my brainpower was utilized to analyze all I’d seen. Not just here in the dying world but throughout my life.</p>
 <p>The history books had told me of the early humans—the cavemen—who had cowered in fear when lightning struck a tree, igniting it in a burst of flame. They had not understood it, only feared its hunger, its light, its heat. But with time, one of them must have stepped forward, drawn to the warmth, to the power it represented.</p>
 <p>They learned to feed it, to tame it, to wield it. With fire, they pushed back the darkness, warded off predators, and reshaped the world around them. It was one of the first steps humanity took toward sitting comfortably on the apex of the food chain of Earth.</p>
 <p>I thought of the blacksmiths who hammered molten metal into weapons and tools, using flame to forge civilization itself.</p>

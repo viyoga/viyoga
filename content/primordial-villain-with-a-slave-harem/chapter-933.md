@@ -27,7 +27,7 @@ chapter = 933
 <p>It was so Quinlan that their hearts couldn’t bear it.</p>
 <p>Ayame’s hand finally dropped from her katana, trembling as tears brimmed and spilled freely. Her jaw clenched, but her resolve shattered. This wasn’t a mirage. He was real. He was here.</p>
 <p>Seraphiel exhaled with such strength in her lungs it seemed as if she’d been underwater for way too long. Her hands rose to her heart as her bow dematerialized, forming two tight fists in front of her heart. "It’s really you..."</p>
-<p>Lucille’s axe hung forgotten as she stared, stunned. Then, her business-like smile transformed, creeping up into a giant, overjoyed smile. She was straight-up beaming at him like the sun. Ṟ₳ＮȰ𝐛Еs̈</p>
+<p>Lucille’s axe hung forgotten as she stared, stunned. Then, her business-like smile transformed, creeping up into a giant, overjoyed smile. She was straight-up beaming at him like the sun.</p>
 <p>Aurora’s knees gave way. Her fingers clutched around her staff, grounding herself. Her chest ached, tight with joy so intense it hurt while her heart outright sang.</p>
 <p>Even Blossom, who’d become quite the silent woman since his departure, blinked twice before whispering, "Master..." with the most loyal individual’s reverence and a girl’s desperate hope.</p>
 <p>And Rosie...</p>

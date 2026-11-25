@@ -27,7 +27,7 @@ chapter = 745
 <p>Enchanted ballistae realigned.</p>
 <p>A chorus of targeting systems locked onto my magic signature the moment my mana surged.</p>
 <p>I didn’t need to shout for my pink-haired tanker to know it was her time to shine. She wasn’t here to sightsee.</p>
-<p>Her fingers moved with grace, dancing in the air as if they were performing in the theatre. One sigil. Two sigils. Five. Nine. Each symbol burned into existence in glowing pink flames, orbiting her. Then, with a resolute cry, Lyra formed and final sigil and slammed her palm into her shield. ṟÂƝò𝔟Ęȿ</p>
+<p>Her fingers moved with grace, dancing in the air as if they were performing in the theatre. One sigil. Two sigils. Five. Nine. Each symbol burned into existence in glowing pink flames, orbiting her. Then, with a resolute cry, Lyra formed and final sigil and slammed her palm into her shield.</p>
 <p>“[Sacrifice of the Willing]!”</p>
 <p>The spell didn’t just shield me: it outright claimed me.</p>
 <p>Threads of radiant mana lashed out from her form and wrapped around me, weaving a protective link that turned my very existence into her burden. In that instant, I felt it: every lock-on, every targeting system, every projectile fired toward me was redirected.</p>

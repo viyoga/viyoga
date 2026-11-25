@@ -29,7 +29,7 @@ chapter = 709
 <p>However…</p>
 <p>While he could play around with normal women, Sol was not interested in forming a possible long-term relationship with someone who only wanted him for profit.</p>
 <p>His relationship with Nent, Nefertiti, and Pandora started in such a way but he could not always count on luck playing in his favor in a relationship.</p>
-<p>There was also the fact that he did not feel at ease leaving any of his fluid or DNA to a crazy woman who was not under his direct order like Theresa or Echidna. ŖÄɴÓВЁš</p>
+<p>There was also the fact that he did not feel at ease leaving any of his fluid or DNA to a crazy woman who was not under his direct order like Theresa or Echidna.</p>
 <p>Speaking of a relationship of convenience, his relationship with Satella did not seem to advance as well as he would have hoped. He knew that she had been secretly observing him ever since the first night he spent with his girls. He did not mind her spying on him since he had been observing her back with the help of his dimension.</p>
 <p>This was why he knew all the naughty little things she was up to while he was busy making love to his women. Sol felt no shame in watching her please herself alone on her bed. If she could masturbate while watching him, why couldn’t he watch her in return?</p>
 <p>The only problem was that the so-called post-but clarity had hit the woman hard. She felt ashamed and mortified by her scandalous act and was unable to even look Sol in the eyes any longer. Thus she had been regularly avoiding any interaction with him if it was not absolutely necessary.</p>

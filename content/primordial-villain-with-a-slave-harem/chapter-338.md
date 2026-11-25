@@ -26,7 +26,7 @@ chapter = 338
 <p>Okay, let's not depict it anymore, shall we?</p>
 <p>"Malakar, I have a favor to ask you."</p>
 <p>"What is it, laddy? Don't beg me to hide you, they will beat my ass up. You're a good kid but I don't like you enough to be your fall guy."</p>
-<p>Grandpa is being very honest today. I chuckled a short bit before shaking my head. "No, I wanted to ask you to inquire from the Goddess if she would be so kind as to grant me the Healer class. I wanted to ask her by praying in her temple, but I wasn't always on my best behavior so I was worried she would command the Arch-Priests to send me to the afterlife so she could beat me up herself." 𝘙Άɴő𝔟Ɛṧ</p>
+<p>Grandpa is being very honest today. I chuckled a short bit before shaking my head. "No, I wanted to ask you to inquire from the Goddess if she would be so kind as to grant me the Healer class. I wanted to ask her by praying in her temple, but I wasn't always on my best behavior so I was worried she would command the Arch-Priests to send me to the afterlife so she could beat me up herself."</p>
 <p>"Oh, laddy. She wouldn't do that unless you did something truly horrible, like raping or killing innocents just for the fun of it, or buying slaves and forcing them to do your bidding against their will."</p>
 <p>"Oh dear."</p>
 <p>For the first time since we began speaking Malakar's head snapped in my direction and he examined my wry features. "You didn't…"</p>

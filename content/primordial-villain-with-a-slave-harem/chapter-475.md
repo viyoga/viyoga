@@ -30,7 +30,7 @@ chapter = 475
 <p>[You've slain Kael (Level 34). You've gained 30000 XP.]</p>
 <p>… Holy fuck.</p>
 <p>The amount of XP one gained depended on multiple factors, and one of them was the disparity of levels, or more accurately, overall strength. This was the reason why I didn't gain much for killing low-level entities, however, this same law applied in the other direction as well.</p>
-<p>Kai was two levels above me when I killed him, but I was a much higher existence despite that. The difference of power between Kael and me was greatly in his favor. ṟἈNǒ𝖇Ε𝐒</p>
+<p>Kai was two levels above me when I killed him, but I was a much higher existence despite that. The difference of power between Kael and me was greatly in his favor.</p>
 <p>This XP amount meant that I'd overcome an insurmountable wall in this battle. That is to say, it was a fight I should've lost, according to the Soul Records, which was why my XP gains were bolstered to this degree.</p>
 <p>*Shhh!!!*</p>
 <p>A sudden bright light emerged from my sides, surprising me greatly.</p>

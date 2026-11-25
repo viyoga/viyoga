@@ -29,7 +29,7 @@ chapter = 963
 <p>Dressed. Armed. Ready for war. .</p>
 <p>Vex wasn’t among them, already dispatched to help stabilize the front.</p>
 <p>"Listen up."</p>
-<p>He waved a hand, manifesting a paper in the air from his storage artifact. It was an old, yet detailed contract. Gold ink on dark parchment, stamped with both the Greenvale Duke’s sigil and the Consortium’s Finance Department seal. ŖÅɴộ𐌱Ɛs</p>
+<p>He waved a hand, manifesting a paper in the air from his storage artifact. It was an old, yet detailed contract. Gold ink on dark parchment, stamped with both the Greenvale Duke’s sigil and the Consortium’s Finance Department seal.</p>
 <p>"According to what Black Fang unearthed, the Finance Branch of the Consortium struck a deal with the Greenvales over ten thousand years ago."</p>
 <p>Selene’s crimson hair caught the morning light as she tossed it so they were no longer resting in front of her shoulders. Then, she asked, "Are the nobles truly working with criminals?"</p>
 <p>"No deal is impossible if both sides have things to gain it seems."</p>

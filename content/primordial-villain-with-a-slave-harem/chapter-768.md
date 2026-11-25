@@ -27,7 +27,7 @@ chapter = 768
 <p>I could feel it. The energy in the air shifting.</p>
 <p>A duel was coming.</p>
 <p>But it wasn’t the kind fought with swords.</p>
-<p>"Now, if you’ll excuse me, I’ll need a few minutes to prepare… I don’t want my first time to be sweaty.” She then grimaced as she added, “Or at least not start with me being already sweaty ṛ𝓪₦οβЁꞩ</p>
+<p>"Now, if you’ll excuse me, I’ll need a few minutes to prepare… I don’t want my first time to be sweaty.” She then grimaced as she added, “Or at least not start with me being already sweaty</p>
 <p>"You know I can give you a shower, right?”</p>
 <p>At my statement, a sultry expression replaced her wry one. She shook her head. “Nope. I need to prepare in more ways than just cleaning my body. You’ve gotta be patient, Quinnie.”</p>
 <p>"Now that’s a task I’m not very good at.”</p>

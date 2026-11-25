@@ -28,7 +28,7 @@ chapter = 399
 <p>Discover exclusive tales on empire</p>
 <p>"M-m-master… Please…" A feminine voice cried.</p>
 <p>"Come in." This time he was no longer asking but commanding, and as a result they immediately heard the light stomping of bare feet against the floor.</p>
-<p>The sight that welcomed them was an otherworldly one. A busty, gorgeous redhead woman waddled into the room with teary eyes and a desperate expression. 𝑅ÂŊꝋ𝔟Ěs̩</p>
+<p>The sight that welcomed them was an otherworldly one. A busty, gorgeous redhead woman waddled into the room with teary eyes and a desperate expression.</p>
 <p>"This is Plump Fox, also known as Selene. She is my enemy, you might've heard her screams once or twice in the past few hours. She was my ally who used an extremely risky situation to shoot me in the back and make a run for it. I managed to survive being hit and enslaved her, but make no mistake. We were all very close to dying thanks to her treachery, and even with this favorable outcome, I had to suffer so greatly that I can't even begin to describe it. Just because in the end everything turned out great doesn't mean that she gets to be pardoned."</p>
 <p>"C-Cedric! Help me!" She begged amid tearful sobs, but the man only looked at his ex-fiance with a tired expression.</p>
 <p>"... You once told me that the winner takes all, right? We are the losers, Selene." The woman winced at not only his statement but the fact that he called her by name, not any endearing terms he always used, such as 'my love'.</p>

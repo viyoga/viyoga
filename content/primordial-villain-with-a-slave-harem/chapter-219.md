@@ -32,7 +32,7 @@ chapter = 219
 <p>"Hmph!"</p>
 <p>…</p>
 <p>- PoV: Quinlan -</p>
-<p>I knew there was something more to this seemingly unassuming woman than what meets the eye initially. She has extreme self-preservation instincts, with amazing reflexes to boot. Everyone can become a high leveled warrior after enough years of grinding- as long as they don't perish or become crippled for life in the process- but that doesn't mean they will be actually good at combat. Ṙ₳ŊＯ𐌱Еs</p>
+<p>I knew there was something more to this seemingly unassuming woman than what meets the eye initially. She has extreme self-preservation instincts, with amazing reflexes to boot. Everyone can become a high leveled warrior after enough years of grinding- as long as they don't perish or become crippled for life in the process- but that doesn't mean they will be actually good at combat.</p>
 <p>Having a high level just means having good stats and fancy abilities, but if you lack good instincts and innate reflexes you will never become truly excellent.</p>
 <p>She has what it takes to be a good fighter, but honestly I'm reluctant to invest into her. I don't want to babysit a level 1 noobie for who knows how long it would take for her to become relevant. The only reason I even invited her was, beyond feeling sorry for her, was that Aurora is a newbie as well who needs guidance, so what's one more?</p>
 <p>Having a complete beginner with us today will make Aurora feel better about herself, but I don't know if we'll have anything to do with Lucille again after tomorrow.</p>

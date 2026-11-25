@@ -35,7 +35,7 @@ chapter = 1007
 <p>Her friend giggled. "Maybe he’ll take off the mask at the masquerade for the right dance partner..."</p>
 <p>A few feet away, a sharp slap echoed in the air.</p>
 <p>"You dare ogle her ass in my presence!?" an older noblewoman screeched, glaring at her husband.</p>
-<p>He winced and rubbed his cheek. "I was only admiring the... symmetry. Besides, what man wouldn’t want a high-class elf slave like that? Look at the way she walks... Good Goddess help me!" ṟÅ𝐍𝐎ᛒЁⱾ</p>
+<p>He winced and rubbed his cheek. "I was only admiring the... symmetry. Besides, what man wouldn’t want a high-class elf slave like that? Look at the way she walks... Good Goddess help me!"</p>
 <p>"Keep looking and you’ll be walking with a limp!" his wife snapped.</p>
 <p>Behind them, another man nudged his friend. "That elf’s a dream, but I’d sell my mansion for the dogkin. Look at those curves. That body defies physics... what even is that waist-to-hip ratio?"</p>
 <p>More murmurs rippled out. Filthy comments, soft chuckles, low mutterings. They were too caught up to notice the atmosphere darkening.</p>

@@ -33,7 +33,7 @@ chapter = 603
 <p>Unfortunately for the twins, they’d pissed off the wrong man.</p>
 <p>Now, standing in the presence of their father’s finest warriors, Vivienne couldn’t help but grit her teeth. If only one or two of these warriors had been present…</p>
 <p>"Miladies, are you going somewhere?"</p>
-<p>Neither of the twins gave him the time of day; they merely began walking toward their destination. The bodyguards quickly fell into formation around them. ŗÅΝÔ฿ËṦ</p>
+<p>Neither of the twins gave him the time of day; they merely began walking toward their destination. The bodyguards quickly fell into formation around them.</p>
 <p>They arrived at their father’s quarters within minutes. Amara gestured for the guards standing defensively in front of the duke’s room, who nodded and knocked on the door.</p>
 <p>A deep voice called out from within, "Come in."</p>
 <p>Alastair stood near a bookshelf, dressed in an elegant night robe.</p>

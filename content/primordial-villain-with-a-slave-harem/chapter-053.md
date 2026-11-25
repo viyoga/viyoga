@@ -24,7 +24,7 @@ chapter = 53
 <p>After a while, she looks up at me with bright, tear-filled eyes. "Thank you, Master Quinlan. Blossom has never... felt like this before."</p>
 <p>I smile warmly, brushing a stray lock of hair away from her face. "Don't mention it. You might not officially be a part of our team yet, but rest assured that the both of us will fight to free you from your oppressor."</p>
 <p>Ayame, who has been watching with a soft smile, steps closer and gently pats Blossom's back, adding her own layer of reassurance.</p>
-<p>Blossom's eyes well up with tears, and soon she's crying softly onto my chest. I hold her gently, stroking her hair and murmuring soothing words, while Ayame continues to pat her back reassuringly. The flood of emotions is overwhelming for Blossom, but it's a necessary release. 𝙍𝒶NÒBĘṢ</p>
+<p>Blossom's eyes well up with tears, and soon she's crying softly onto my chest. I hold her gently, stroking her hair and murmuring soothing words, while Ayame continues to pat her back reassuringly. The flood of emotions is overwhelming for Blossom, but it's a necessary release.</p>
 <p>After a few minutes, her sobs begin to quiet down, and she pulls back slightly, wiping her eyes with the back of her hand. "Thank you," she whispers, her voice still shaky. "Blossom doesn't know what she'd done to deserve this kindness."</p>
 <p>"You've saved our lives, Blossom. Don't undersell your achievements against the war troll. Without you, there was absolutely no chance of victory." Ayame replies softly. "Thus, we owe you a great debt that can only be paid back by providing you with the best life we possibly can."</p>
 <p>Blossom nods, her eyes red but a faint smile can be seen forming on her lips. "... Blossom thinks that she is ready now."</p>

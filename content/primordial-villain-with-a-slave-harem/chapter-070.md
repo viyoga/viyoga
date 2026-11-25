@@ -33,7 +33,7 @@ chapter = 70
 <p>She gets out of bed, and walks over to the dog-kin, enveloping the newcomer a welcoming hug. I'm slightly surprised by her actions, though I can understand where she is coming from. Blossom is so adorable that she must've flared Ayame's protective instincts, which was part of why Ian met such a gruesome end. I already see a beautiful sisterly bond form between the two girls in the near future.</p>
 <p>I'm very happy to observe this sight, future sister-wives must stick together to create a harmonious harem environment, after all. I don't need drama in my house.</p>
 <p>Ayame then speaks up, "come, Blossom. Let me give you a nice bath. The water is room temperature now but it's much better than nothing."</p>
-<p>My vicious samurai drags the dog-kin over to where we left the bucket and begins undressing her, while glancing my way, "look away for a few minutes, please." ŖÃŊ∅ᛒËṣ</p>
+<p>My vicious samurai drags the dog-kin over to where we left the bucket and begins undressing her, while glancing my way, "look away for a few minutes, please."</p>
 <p>Stop cockblocking me, damn woman!</p>
 <p>Before I can respond Blossom speaks up, "Blossom doesn't mind if Master wants to watch."</p>
 <p>"You shouldn't say such things to Quinlan because he will shamelessly take a mile if you give him an inch."</p>

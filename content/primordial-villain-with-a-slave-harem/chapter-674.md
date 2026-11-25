@@ -31,7 +31,7 @@ chapter = 674
 <p>&lt;This is a rare chance. Let's make the most of it.&gt;</p>
 <p>My response did not alleviate anyone's worries, but we had no chance to have a time out for a team talk. If my plump princess didn't speak up, I wouldn't have done this. But, she had taken offense at Felicity's words. It was what it was, I made the most of it.</p>
 <p>Honestly, I couldn't really blame Aurora. All the girls were a bit delirious, we had just concluded a nearly day-long orgy, after all.</p>
-<p>"Yay! Nice to meet you, I'm Felicity! Is Miss Elf also there? I hope to thank her for what she's done for me!" The princess seemed to be in a really chirpy mood. ṟ𝘼𝐍𝘰ΒÊＳ</p>
+<p>"Yay! Nice to meet you, I'm Felicity! Is Miss Elf also there? I hope to thank her for what she's done for me!" The princess seemed to be in a really chirpy mood.</p>
 <p>"Miss Elf? Lord Black? Who are you talking with, my little angel?" Alexios Valorian, the 999-year-old legend, and the presumed strongest human alive, quiestioned.</p>
 <p>"Didn't mother tell you? Lord Black is my new friend, I met him at the Grand Auction and we've chatted a few times since."</p>
 <p>Another exhausted sigh left Alexios' lips when he revealed, "Papa and Mama are busy… We rarely talk these days…"</p>

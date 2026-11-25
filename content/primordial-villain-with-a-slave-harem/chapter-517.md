@@ -30,7 +30,7 @@ chapter = 517
 <p>…</p>
 <p>"My lord is the greatest lord!" Kaelira announced with overwhelming pride as she watched the results of Quinlan’s handiwork from the distance.</p>
 <p>"Yeah… I don’t know the proper words to describe him..." Liora replied in a hushed tone that perfectly described the amazement she felt and the quick beating of her heart.</p>
-<p>The two of them were surrounded by the remaining four ex-slaves of Kai, they were the tanker elf’s Heralds, with the only change being Shallan getting replaced by the trapper girl who wasn’t a Herald but instead focused her efforts on protecting Quinlan’s stronghold by setting up numerous elaborate traps around it. R𝘼₦𝙤₿ЁⱾ</p>
+<p>The two of them were surrounded by the remaining four ex-slaves of Kai, they were the tanker elf’s Heralds, with the only change being Shallan getting replaced by the trapper girl who wasn’t a Herald but instead focused her efforts on protecting Quinlan’s stronghold by setting up numerous elaborate traps around it.</p>
 <p>"The birdies told me that you received an open invitation into his harem." The archer said with an eager smile as she eyed her leader.</p>
 <p>"Aww! Really?!" The trapper squeaked, she was in desperate need of some juicy rumors.</p>
 <p>"Ah, so lucky!! I wish it was me!" The rogue grumbled her dissatisfaction. When she was Kai’s slave, she was forced to wield a bow because he suffered from the main character syndrome and refused to let any of them become a frontliner, they all had to support him and his giant ego from the backline. Naturally, Quinlan and Kaelira had no such mental issues, so she was happily eyeing her shiny dagger in her hand.</p>

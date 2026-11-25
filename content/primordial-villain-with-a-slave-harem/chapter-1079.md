@@ -26,7 +26,7 @@ chapter = 1079
 <p>The shrouded street echoed with confusion as blades were swung and spells let loose at phantoms, only hitting their own teammates, innocent bystanders, and the city’s infrastructure.</p>
 <p>...</p>
 <p>The world lurched.</p>
-<p>One heartbeat ago, Cassandra had been dragging her captive through smoke and distortion, boots reaching for cobblestone that never came. Next, she stumbled onto soft grass as a clearing opened wide beneath the blue sky. Ŗ𝓪Νô𐌱Ё𐌔</p>
+<p>One heartbeat ago, Cassandra had been dragging her captive through smoke and distortion, boots reaching for cobblestone that never came. Next, she stumbled onto soft grass as a clearing opened wide beneath the blue sky.</p>
 <p>Her pulse thundered in her ears. She spun, eyes scanning her surroundings, trying to make sense of it all, thanks to her experience and extensive training snapping into place even as disbelief tried to overwhelm her chest. ’I was displaced? Impossible. This is far too large a distance to be covered by mere displacement...’</p>
 <p>But then, from one moment to the next, her analytical thoughts fractured.</p>
 <p>They were everywhere.</p>

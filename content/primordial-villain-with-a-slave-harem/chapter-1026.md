@@ -28,7 +28,7 @@ chapter = 1026
 <p>Scorching.</p>
 <p>The scent of burning flesh filled the air.</p>
 <p>The noble shrieked as the grip around his throat tightened even further.</p>
-<p>"Brothers, h-help!" he managed to choke out with his voice breaking as he struggled against the searing pressure gripping his throat. "F-Father! Father!" Ɽ𝔞ꞐΟ𝔟Ё𝒮</p>
+<p>"Brothers, h-help!" he managed to choke out with his voice breaking as he struggled against the searing pressure gripping his throat. "F-Father! Father!"</p>
 <p>He thrashed violently</p>
 <p>"Mother!" he wailed, eyes searching the crowd. "Help me!"</p>
 <p>But no one moved.</p>

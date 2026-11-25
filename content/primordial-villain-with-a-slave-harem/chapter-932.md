@@ -34,7 +34,7 @@ chapter = 932
 <p>It wasn’t hostile.</p>
 <p>It didn’t need to be.</p>
 <p>The sheer gravity of it made the world hold its breath.</p>
-<p>Every woman in the clearing stiffened, hearts lurching in their chests as the air grew thick and electric. Even without seeing the newcomer, they all understood: ṙἈＮȯβƐṣ</p>
+<p>Every woman in the clearing stiffened, hearts lurching in their chests as the air grew thick and electric. Even without seeing the newcomer, they all understood:</p>
 <p>Something was coming. Something powerful. Something utterly ’beyond.’</p>
 <p>This wasn’t the presence of a powerful warrior or a cunning mage.</p>
 <p>This was pressure that bent the edges of reality. That made mighty beasts crawl into their dens and made ancient trees shudder as their roots whispered of a returning sovereign.</p>

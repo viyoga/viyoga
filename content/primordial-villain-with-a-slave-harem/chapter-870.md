@@ -24,7 +24,7 @@ chapter = 870
 <p>"It seems they’re about to self-sacrifice. We can’t let them detonate, Serika,” Quinlan said sharply, eyes flicking between their unstable cores.</p>
 <p>"On it.”</p>
 <p>Serika vanished in a flicker of flame.</p>
-<p>She reappeared behind the Rotwater woman, leg cocked back in a blazing roundhouse kick. The impact detonated the air, hurling the corrupted woman into the ash-flame wielder’s side. ṙᴀN𝙤฿Ëᶊ</p>
+<p>She reappeared behind the Rotwater woman, leg cocked back in a blazing roundhouse kick. The impact detonated the air, hurling the corrupted woman into the ash-flame wielder’s side.</p>
 <p>Quinlan was already moving.</p>
 <p>He exploded forward with the might of a combatant who had an iron-solid foundation in the True Foundation stage of cultivation.</p>
 <p>Wind wrapped his legs, accelerating his sprint.</p>

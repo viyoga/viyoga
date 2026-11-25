@@ -26,7 +26,7 @@ chapter = 425
 <p>"As good as can be." The man grunted before elbowing Mearie to snap the woman out of her childish tantrum. He failed, for she refused to open her mouth. "Excuse these two, they are sulking…" He murmured with disbelief that he had to say this line to the Goddess.</p>
 <p>"It's all good! Sometimes I'm sad too." She accepted his words without a second thought.</p>
 <p>"How have you been, Lilyanna?" Malakar asked to steer the conversation.</p>
-<p>"Hmm…" She began thinking deeply about her answer as if he'd asked something serious that needed a great deal of inner deliberation. She even started to fiddle around with her fingers. 𝘙ÄＮổᛒƐṥ</p>
+<p>"Hmm…" She began thinking deeply about her answer as if he'd asked something serious that needed a great deal of inner deliberation. She even started to fiddle around with her fingers.</p>
 <p>The Goddess then gasped as she found her answer. "Ah! I've been good, but there's a big deal! The newborn is seriously a horrible primordial being! I'd been watching him closely throughout his time in Thalorind and he is a complete menace to society! I should smite him down. Hmph." She finished her reply by crossing her hands across her chest and scoffing with her head turned to the sides.</p>
 <p>Malakar gulped and nervously glanced to the side but before he could speak up what he feared would happen, happened.</p>
 <p>"Hey, bitch." Mearie growled.</p>

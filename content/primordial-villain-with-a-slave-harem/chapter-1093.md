@@ -29,7 +29,7 @@ chapter = 1093
 <p>Alexios’ face twisted with a very human pain, one that almost anyone who knew the stoic king would be shocked to see. It was the kind a husband feels when the woman beside him reveals she was never beside him at all.</p>
 <p>"... If you felt so strongly about it, you could have at least consulted me beforehand. If the Aegis Vanguard were involved, the plan would have succeeded."</p>
 <p>The words carried weight. The royal guards—the ones lingering at the chamber doors—were elite, yes, trained to serve both king and queen. To become a royal guard, one not only had to pass tests of loyalty but also have a pristine track record in the army.</p>
-<p>However, the Aegis Vanguard... they were different. The single most formidable force of the kingdom, answering to no one but Alexios himself. If they had been deployed, there would have been no escape for whoever came to retrieve the tormented woman. Ṟ𝙖₦ȮＢƐS̈</p>
+<p>However, the Aegis Vanguard... they were different. The single most formidable force of the kingdom, answering to no one but Alexios himself. If they had been deployed, there would have been no escape for whoever came to retrieve the tormented woman.</p>
 <p>Morgana tilted her head back and laughed, releasing a sharp, melodic giggle that echoed against the stone. "Why are you asking such dumb questions, husband? You already know the answer."</p>
 <p>Indeed, she was right. Alexios did know the answer painfully well. "If I were involved, then the exchange for Felicity would have occurred whether you liked it or not."</p>
 <p>Morgana turned and began walking with unhurried steps toward the seat she had left previously. "The Wise King Alexios. The people who call you the Warrior King and the Tyrant King do you no justice."</p>

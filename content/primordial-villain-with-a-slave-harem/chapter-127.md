@@ -26,7 +26,7 @@ chapter = 127
 <p>I examine it closely, running my fingers over the smooth, metallic surface that gleams faintly even in the dim light. The ring itself looks almost plain but there's a subtle, intricate pattern carved into it that is nearly invisible unless you're looking very closely.</p>
 <p>"I doubt this will fit me, though." I mutter under my breath, resigned to the fact that I'll have to hold it like a bracelet or something. But as soon as I slip my finger into the ring, it surprises me by shrinking to fit me perfectly.</p>
 <p>"What the...?" I exclaim, looking at Marjorie with a stunned expression.</p>
-<p>"Oh, I forgot to mention! It has a size adjustment spell imbued in it. It can resize to fit anyone who wears it. You should see your face right now, Quinlan!" řΆＮỘ฿Ë𝐬</p>
+<p>"Oh, I forgot to mention! It has a size adjustment spell imbued in it. It can resize to fit anyone who wears it. You should see your face right now, Quinlan!"</p>
 <p>I chuckle along with her, shaking my head in amazement. "That's incredible."</p>
 <p>What a wonderful item.</p>
 <p>Still a bit in awe, I bend down and pick up a nearby cleaver, feeling the weight of it in my hand. I focus on the ring, and as Marjorie had done, I just will the weapon to be stored. In an instant, the item vanishes from my hand, disappearing into the ring's dimensional storage without so much as a ripple in the air.</p>

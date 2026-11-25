@@ -32,7 +32,7 @@ chapter = 270
 <p>&lt;I thought you would appreciate the present I got for you back then. If you want, we can get you a new one. Go ahead and choose.&gt; My response elicited a flinch from her as she protectively brought her hand to her neck as if she were worried I would take her choker away. How adorable.</p>
 <p>Naturally, she was wearing a dress that hid her collar.</p>
 <p>&lt;I was just saying…&gt;</p>
-<p>I just laughed straight into her mind telepathically while examining my new slave. "This one." She said, pointing at a collar that was made of wood and leaves. ŖαΝọ₿ЁＳ</p>
+<p>I just laughed straight into her mind telepathically while examining my new slave. "This one." She said, pointing at a collar that was made of wood and leaves.</p>
 <p>Upon closer examination, I could see that it was crafted from the sturdiest wooden material in existence- aside from what you can get from a Geim- that is collected from ancient Elderwood trees, giant plants that grow for thousands of years continously. The leaves were supposedly magically enhanced and are similarly hard to damage.</p>
 <p>The leaves are tastefully hugging the wooden part as if they were its outer layer.</p>
 <p>Although it didn't fit Seraphiel's belly dancer getup, I imagine it will go well with her combat one. I nodded at her with a supportive smile, happy that she found one she likes. Well, as much as one can like their own slave collar.</p>

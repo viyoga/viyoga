@@ -29,7 +29,7 @@ chapter = 10
 <p>Unlike the market, there are no slaves on display; the only one I see is an older woman sweeping the floor.</p>
 <p>A well-dressed attendant greets me with a courteous bow. "Welcome to the House of Aleron. How may I assist you today?" he asks with a practiced smile.</p>
 <p>"Just looking around," I reply, trying not to appear out of place. "It's my first time visiting an establishment like this."</p>
-<p>"Of course," the attendant responds, his smile unwavering. "We aim to provide a more private and personalized experience for our clients. If you would follow me, I'll take you to a private room where one of our merchants will join you shortly." Ṙ𝔞𝐍ỐВÈs̈</p>
+<p>"Of course," the attendant responds, his smile unwavering. "We aim to provide a more private and personalized experience for our clients. If you would follow me, I'll take you to a private room where one of our merchants will join you shortly."</p>
 <p>Intrigued by the excellent level of service, I follow the attendant down a lavishly decorated hallway. He leads me to a comfortable, private room furnished with plush sofas and a small table. The room is tastefully decorated, with soft lighting creating a soothing atmosphere.</p>
 <p>"Please make yourself comfortable," the attendant says, gesturing to the chairs. "My colleague will be with you shortly."</p>
 <p>I settle into a seat and wait patiently, taking in the refined ambiance of the room. After a few minutes, the door opens, and a well-dressed man enters. He has a sharp, professional demeanor and carries a leather-bound ledger in his right hand.</p>

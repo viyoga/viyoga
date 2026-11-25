@@ -32,5 +32,5 @@ chapter = 118
 <p>Ayame glances back at us just for a moment, her sword still at the ready with her expression shifting to one of stern disapproval. Her eyes remain sharp and focused on the newcomer.</p>
 <p>"Seriously? In the middle of a potential ambush?" Ayame snaps.</p>
 <p>"Sorry," I manage to chuckle, my voice slightly strained from the lingering aftershocks. "It really was very unprofessional from the both of us."</p>
-<p>Blossom, still breathless, snuggles against my chest. "Master is... too big and girthy… Blossom's insides are all filled to the brim…" she murmurs her excuses dizzily, sounding apologetic despite her dazed state of mind. ɽÀℕо𝖇ЁŠ</p>
+<p>Blossom, still breathless, snuggles against my chest. "Master is... too big and girthy… Blossom's insides are all filled to the brim…" she murmurs her excuses dizzily, sounding apologetic despite her dazed state of mind.</p>
 <p>Ayame rolls her eyes but in the end can't suppress her somewhat amused smirk. "You two are unbelievable," she says, shaking her head. "Just what kind of insane party have I found myself in?"</p>

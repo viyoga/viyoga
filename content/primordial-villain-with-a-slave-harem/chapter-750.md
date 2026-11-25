@@ -36,7 +36,7 @@ chapter = 750
 <p>The only one worthy of the title.</p>
 <p>…</p>
 <p>Somewhere in the shadowed heart of the world, deep beneath the desolate peaks of the Deathspire Range.</p>
-<p>A grand obsidian table sat cracked and groaning in protest beneath the weight of the undead who surrounded it. Wraith-lords, bone-cloaked liches, corpse-bound saints, and necrotic abominations alike sat cloaked in their death-shrouds. The Council of the Covenant of Eternity—the undisputed monarchs of undeath on the Iskaris Continent—gathered in silence. ⱤάℕóʙÊs̩</p>
+<p>A grand obsidian table sat cracked and groaning in protest beneath the weight of the undead who surrounded it. Wraith-lords, bone-cloaked liches, corpse-bound saints, and necrotic abominations alike sat cloaked in their death-shrouds. The Council of the Covenant of Eternity—the undisputed monarchs of undeath on the Iskaris Continent—gathered in silence.</p>
 <p>A silence shattered not by voice…</p>
 <p>…but by the ding that echoed across the realm:</p>
 <p>[Ding!]</p>

@@ -25,7 +25,7 @@ chapter = 999
 <p>Kitsara promptly stepped forward and smacked him on the forehead. "Shut it, you rude fucker."</p>
 <p>"See? Proof!" Darius laughed again, though the sound was raspier this time. "You handle her with gloves. I get violence."</p>
 <p>Quinlan let out a small chuckle. Even with all his injuries, Darius was still Darius. Too proud to let misery take the spotlight.</p>
-<p>"You’re not here to return her, are you?" Darius asked, raising a brow. "Because I swear if this is some kind of apology tour, I’ll shove a fork into my one working knee." ℞𝐀Ｎ𝙤ＢÈ𝘚</p>
+<p>"You’re not here to return her, are you?" Darius asked, raising a brow. "Because I swear if this is some kind of apology tour, I’ll shove a fork into my one working knee."</p>
 <p>"Don’t even joke about something like that. Kitsara is mine. She’ll stay mine until the end of time."</p>
 <p>Darius let out a booming laugh. "That’s correct because we offer no refunds!"</p>
 <p>Soon, Quinlan’s smile faded as he glanced at the missing limbs.</p>

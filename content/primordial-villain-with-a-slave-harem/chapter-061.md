@@ -34,6 +34,6 @@ chapter = 61
 <p>I chuckle in response. It's nice to see that we can joke around with each other this well. "I retract the cute and wife part, though after listening to you I have an inkling that an Artificer dwarf slave would be slightly out of my budget, so let's focus on getting some amazing gear for now, shall we?"</p>
 <p>"I concur wholeheartedly." She answers.</p>
 <p>"So I imagine you would prefer those curved eastern blades, right? What about armor?"</p>
-<p>"Yeah, using straight swords is not optimal for me because a lot of my spells are less effective with them, or are straight up unusable. I used to carry three blades on me, an odachi for big monsters, a katana for humanoids, and a wakizashi for combat in tight spaces. As for defenses, I prefer light armor that lets me move around to utilize my flexibility." ṘἈ𐌽ÒＢË𝐒</p>
+<p>"Yeah, using straight swords is not optimal for me because a lot of my spells are less effective with them, or are straight up unusable. I used to carry three blades on me, an odachi for big monsters, a katana for humanoids, and a wakizashi for combat in tight spaces. As for defenses, I prefer light armor that lets me move around to utilize my flexibility."</p>
 <p>Yeah, her acrobatic genius is indisputable after what she displayed yesterday. "And what would you recommend for me?"</p>
 <p>She thinks inwardly for a few seconds before replying:</p>

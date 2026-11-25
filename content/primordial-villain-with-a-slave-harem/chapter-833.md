@@ -31,7 +31,7 @@ chapter = 833
 <p>She threw herself at the guard captain, grabbing his arm with a feverish grip. "Please! I don’t want to die! Please! Do you have any pills? A healing elixir? An emergency talisman?!"</p>
 <p>The captain reeled back, flinching. "Gah! Stop coughing on me, girl!"</p>
 <p>With a shove, he forced her back into bed. "Get your hands off me before I put you in your place."</p>
-<p>But while the scene unfolded, Quinlan’s hand drifted near the edge of the window frame. With a silent pulse of Earth Qi, he sent a thin ripple of force into the lower bolts, weakening their grip on the stone and subtly dislodging the locking anchor. No cracking, no shaking, just a gentle loosening. The kind that no one would notice until it was far too late. ꭆÂꞐỌBÈＳ</p>
+<p>But while the scene unfolded, Quinlan’s hand drifted near the edge of the window frame. With a silent pulse of Earth Qi, he sent a thin ripple of force into the lower bolts, weakening their grip on the stone and subtly dislodging the locking anchor. No cracking, no shaking, just a gentle loosening. The kind that no one would notice until it was far too late.</p>
 <p>Meanwhile, the guard grumbled and wiped his sleeve. "I’ll stay five more minutes. Then I’m leaving. You get your precious fresh air in that time."</p>
 <p>The maids offered him hurried bows of thanks.</p>
 <p>Five minutes passed.</p>

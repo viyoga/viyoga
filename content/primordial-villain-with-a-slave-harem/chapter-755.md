@@ -26,7 +26,7 @@ chapter = 755
 <p>All of this happened while Vex was still shaking in my arms, still shielding me with her dying body. She spat a mouthful of blood for the upteenth time as she weakly but proudly giggled, “Hehehe… Hubby, take a good look at my master… Lady Black Fang is one of the few living people to hold Legendary-rarity classes. There’s a good reason her name alone is enough to make even famous warlords tremble with fear.”</p>
 <p>I didn’t even have time to rejoice at the fact that she forgot to call me her future hubby, dropping the “future” entirely from my title.</p>
 <p>Because the amount of blood she was losing had me deathly worried.</p>
-<p>"Stay with me,” I muttered, shoving one hand into my pocket ring for a health potion. I pulled out one and popped the cork. Vex was barely conscious with her weight slumped in my lap, but her eyes fluttered open when the scent of the potion hit her nose. ℟ἁΝоʙƐṢ</p>
+<p>"Stay with me,” I muttered, shoving one hand into my pocket ring for a health potion. I pulled out one and popped the cork. Vex was barely conscious with her weight slumped in my lap, but her eyes fluttered open when the scent of the potion hit her nose.</p>
 <p>"Nooo… tastes so bitter she whined in her delirious state of mind. She whimpered as I brought it to her lips. “Hubby, can’t I-”</p>
 <p>"No. Drink it, Wifey.”</p>
 <p>"Wife? Ehehehe!”</p>

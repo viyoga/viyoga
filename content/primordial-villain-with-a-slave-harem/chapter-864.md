@@ -28,7 +28,7 @@ chapter = 864
 <p>Each step pressed deeper into the earth than the last.</p>
 <p>The world leaned into him.</p>
 <p>As though the planet knew who the real master was.</p>
-<p>Quinlan gritted his teeth. No time to think. He leapt in with another flurry, this time a corkscrew roundhouse kick imbued with flaming wind, trying to break through with sheer rotational force. ṚΑ₦𝖔ᛒĚs</p>
+<p>Quinlan gritted his teeth. No time to think. He leapt in with another flurry, this time a corkscrew roundhouse kick imbued with flaming wind, trying to break through with sheer rotational force.</p>
 <p>Rongtai breathed out.</p>
 <p>The air bent.</p>
 <p>A soft golden ripple pulsed from his chest like a silent gong.</p>

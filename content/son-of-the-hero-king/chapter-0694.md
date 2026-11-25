@@ -33,7 +33,7 @@ chapter = 694
 <p>Her words stung Kaiser to his very core. His eyes opened wide for a few moments, bloodshot, but he soon closed them. After a moment, he released a small, tired, and defeated sigh.</p>
 <p>Kaiser focused on his inner self, trying to understand what was happening. But the answer was more than evident.</p>
 <p>He was jealous.</p>
-<p>Until Sol appeared, Kaiser had been the most promising young dragon. A direct descendant of Fafnir, inherited some of Tiamat’s power and even had an extreme chance of stepping into the King realm. Even Nidhogg was not truly his equal. He was the undisputed leader of the younger generation. ᚱåΝǒ𐌱Ɛ𝘚</p>
+<p>Until Sol appeared, Kaiser had been the most promising young dragon. A direct descendant of Fafnir, inherited some of Tiamat’s power and even had an extreme chance of stepping into the King realm. Even Nidhogg was not truly his equal. He was the undisputed leader of the younger generation.</p>
 <p>Now though… Nothing would ever be the same. He miserably lost to Sol and could only watch as Sol reached higher and higher realms while he stagnated.</p>
 <p>Describing Sol as a genius would be an insult to him. That man was nothing but a monster.</p>
 <p>How could he not be jealous witnessing the rise of such a monster who just happened to be his peer?</p>

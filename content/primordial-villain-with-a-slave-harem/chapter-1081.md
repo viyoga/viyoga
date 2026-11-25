@@ -27,7 +27,7 @@ chapter = 1081
 <p>His eyes seemed to be freezing cold.</p>
 <p>He aimed his saber at the fallen woman.</p>
 <p>"[Subjugate]."</p>
-<p>The word held immense gravity, as if it were a judge’s guilty verdict. Even while unconscious, Cassandra screamed, thrashing violently as the spell tried to clamp down on her soul. ŔАＮȰBЕŠ</p>
+<p>The word held immense gravity, as if it were a judge’s guilty verdict. Even while unconscious, Cassandra screamed, thrashing violently as the spell tried to clamp down on her soul.</p>
 <p>It wasn’t instant, because the spell only worked on people who were not far more powerful than the Primordial Subjugator. It was an annoying limitation placed on the otherwise extremely broken ability.</p>
 <p>And, as it was, Cassandra’s level was far beyond his. Level 66, while he was only level 40.</p>
 <p>The magic should have broken instantly, flickering out like a candle in the wind. And for a moment, that was exactly what it did.</p>

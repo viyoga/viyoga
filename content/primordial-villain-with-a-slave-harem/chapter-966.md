@@ -23,7 +23,7 @@ chapter = 966
 <p>*Fwoosh!* In an instant, Kitsara shimmered back into her true form, fangs bared in a fox-like, sadistic grin. Twin daggers plunged straight into the gaps under the female guard’s armpits, right where the chestplate met the pauldrons. Purple poison foamed on the blades, sizzling against flesh.</p>
 <p>But even with her lungs punctured, the knight didn’t keel over instantly. Her high Vitality kept the woman moving. Her armored knee shot up, aiming to break Kitsara’s ribs, only for her tails to shimmer just before two of them detached, splitting off into perfect mirror images of herself. Each clone brandished a dagger coated in the same toxic brew.</p>
 <p>The first mimic slid low, aiming for her lower body. The second darted to her blind side, sinking a dagger into the base of her skull where the helmet split at the neck. Kitsara herself closed in as well, delivering a strike of her own.</p>
-<p>*Krrrk!* Her body seized one last time, fingers spasming as the poison overwhelmed her nervous system. Her knee collapsed. Her sword fell. Then her body followed. ṚâNо𝐛Ès̩</p>
+<p>*Krrrk!* Her body seized one last time, fingers spasming as the poison overwhelmed her nervous system. Her knee collapsed. Her sword fell. Then her body followed.</p>
 <p>Just when the first two guards were ambushed, the third guard was attacked as well. He barely had time to shout before something utterly incomprehensible happened in front of him.</p>
 <p>"[Dice Roll!]"</p>
 <p>Feng’s hands glowed, throwing a chaotic sigil into the air. A ghostly roulette wheel materialized, spinning wildly between icons of bombs, fireworks, confetti, bananas, and something labeled simply ???.</p>

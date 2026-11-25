@@ -24,7 +24,7 @@ chapter = 497
 <p>"Miss Lilith! Hello!" She cheered when she recognized the woman sitting behind me.</p>
 <p>"Hey there, little one." Well, at long last, I heard the living legend’s voice. It was a nice, melodic one.</p>
 <p>Lilith refused to reply to my greeting, but it seemed that she didn’t do the same for the princess... Ouch.</p>
-<p>While one might think the seemingly close relationship between the two to be strange and perhaps even add more credibility to the theory of Lilith being Morgana’s hidden sister, that wasn’t necessarily the case here. ŗÂNȏ𝔟Ě𝙎</p>
+<p>While one might think the seemingly close relationship between the two to be strange and perhaps even add more credibility to the theory of Lilith being Morgana’s hidden sister, that wasn’t necessarily the case here.</p>
 <p>Lilith had been a high ranked adventurer for centuries, it’s not a far fetch to think that she accepted personal commissions from the royal family, and thus she could’ve met Felicity during such visits.</p>
 <p>*Khm!* An older woman coughed into her palms, eliciting a muted yelp from the princess who quickly caught herself.</p>
 <p>"Be seated, loyal citizens of the Vraven Kingdom."</p>

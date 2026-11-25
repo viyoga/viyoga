@@ -23,7 +23,7 @@ chapter = 18
 <p>"These should do," she says, examining herself in a nearby mirror.</p>
 <p>I turn to the shopkeeper. "Do you have any recommendations for me? I'm looking for something comfortable but also stylish. Oh and since the weather is so warm nowadays I would like to try some shorts as well."</p>
 <p>The shopkeeper nods thoughtfully and leads me to another section where a variety of clothing options are displayed.</p>
-<p>"For warmer weather, we have these lightweight shorts," she says, pointing to a rack filled with various styles. "And for a comfortable yet stylish look, I recommend these shirts. They're made from breathable fabric, perfect for staying cool." ꞦἈ𐌽𝖔ВÈš</p>
+<p>"For warmer weather, we have these lightweight shorts," she says, pointing to a rack filled with various styles. "And for a comfortable yet stylish look, I recommend these shirts. They're made from breathable fabric, perfect for staying cool."</p>
 <p>I pick out a pair of shorts, long trousers and a couple of shirts, one in a deep blue and another in a crisp white. The fabric feels surprisingly soft, and I'm pleased with the quality.</p>
 <p>As I try on the shorts and shirts, Ayame continues to browse through the clothing. She adds a leather vest to her collection, which fits snugly and offers a bit of extra protection without restricting her movement. She also picks up a practical belt with several pouches for carrying small items and a lightweight cloak for cooler evenings.</p>
 <p>With our selections made, we head to the counter to pay. The shopkeeper tallies up our purchases and offers a warm smile as we hand over our coins.</p>

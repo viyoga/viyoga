@@ -26,7 +26,7 @@ chapter = 491
 <p>&lt;You're on a roll, master. It's a double kill, you got Kaelira beforehand.&gt; Sera giggled into my mind.</p>
 <p>And indeed, my words had their desired effect. I saw Jasmine do her utmost to fight back against her body's urges, but she lost miserably when her displeased scowl turned into a bright smile despite her best efforts.</p>
 <p>She sighed before speaking up, "You're right… You'd already warned me that you had a harem, and I accepted that. I can't have a jealous streak hit me each time I see you flirt with another woman… It's a bit hard, but I'll do my best."</p>
-<p>I nodded jovially upon hearing her words. "That's all I ask for. Some women deal easier with jealousy than others, there's no shame in needing some time to adjust." Ɽ𝘢Ｎ𝖔𝔟Ё𝓢</p>
+<p>I nodded jovially upon hearing her words. "That's all I ask for. Some women deal easier with jealousy than others, there's no shame in needing some time to adjust."</p>
 <p>"Thank you." She smiled amicably, letting me know that things were good once again.</p>
 <p>You might be wondering why I was telling Jasmine so many of my secrets. Think of it as a test.</p>
 <p>Blossom had passed her second rank up mission, letting her enter the level 20s, she could easily stalk a civilian without getting noticed even by the guards Aurelion stationed in their home.</p>

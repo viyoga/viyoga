@@ -32,7 +32,7 @@ chapter = 741
 <p>Good.</p>
 <p>And then I joined in.</p>
 <p>While I now wielded the power of the Avatar of the Elements, with access to the very will of nature as far as the four basic elements were concerned, I still retained spells from back when I walked the path of the Elemental Sovereign—spells made by the Soul Record itself so that mortals could cast them with their limited understanding and affinity for the elements.</p>
-<p>They weren’t flexible. I couldn’t shape them like my Avatar abilities. This was why I highly preferred solving my problems with my Wind, Earth, Fire, and Water Creation &amp; Manipulation techniques. ŕ𝐀N𝐨BЁ𝒮</p>
+<p>They weren’t flexible. I couldn’t shape them like my Avatar abilities. This was why I highly preferred solving my problems with my Wind, Earth, Fire, and Water Creation &amp; Manipulation techniques.</p>
 <p>But the spells I hadn’t used in recent times were still effective in specific cases.</p>
 <p>Furthermore, it was time to remind the world that Devil was the Elemental Sovereign who had access to multiple deviant elements.</p>
 <p>I raised one arm to the sky, calling forth the storm.</p>

@@ -31,7 +31,7 @@ chapter = 735
 <p>Natalie reacted instantly.</p>
 <p>She threw her arms around Poppy from behind and clamped a hand over her daughter’s mouth.</p>
 <p>Poppy made a muffled sound of protest, but Natalie didn’t let her speak.</p>
-<p>"I-I’m so sorry!” she blurted, bowing quickly and deeply, once, twice, three times in rapid succession. “She didn’t mean any disrespect, my lord! Please forgive her! We didn’t know!” ȑÃΝỒᛒÈŠ</p>
+<p>"I-I’m so sorry!” she blurted, bowing quickly and deeply, once, twice, three times in rapid succession. “She didn’t mean any disrespect, my lord! Please forgive her! We didn’t know!”</p>
 <p>"Papa Vargis, just what kind of a wild youth were you to scare them so badly with your mere presence?” The human mused with a curious grin.</p>
 <p>"Papa Vargis, stop being so damned rude! I told you that first impressions matter the most! How will you find a wife if you keep scaring every single woman?” The little girl who came through the portal chastised the dogkin chieftain before muttering some incantation under her breath, making her form shimmer.</p>
 <p>She rapidly lost her childish dogkin appearance, transforming into a royal foxkin woman with three lush tails attached to an alluringly swaying feminine hip.</p>

@@ -29,7 +29,7 @@ chapter = 1064
 <p>He dusted himself off, and at the same time, the others began to gather their bearings. Dresses straightened, bruises ignored, pride patched together.</p>
 <p>Blossom didn’t bother with any of that. She immediately darted toward the big tree in the courtyard, her face lighting up in a way Quinlan had rarely seen. She missed her daughter.</p>
 <p>Rosie practically threw herself into her mother’s arms. Yoruha used this chance to quickly slip away before the green devil noticed her presence. Poppy came next, commenting on Blossom’s disheveled state, while Natalie clasped her daughter’s free hand and spoke in hurried tones, worried. Their words spilled together, becoming too fast to catch.</p>
-<p>Serika lingered only a moment before slipping away, her silhouette fading into mist as she entered Quinlan’s soul realm. Her sister rested there, and that was where she wanted to be right now. Ꞧâ₦ồ𝔟Ê𐌔</p>
+<p>Serika lingered only a moment before slipping away, her silhouette fading into mist as she entered Quinlan’s soul realm. Her sister rested there, and that was where she wanted to be right now.</p>
 <p>A tug on his hand pulled him back to the present. Jasmine. Her grip was small but tight, her eyes wide with worry.</p>
 <p>"Quin..." she whispered with a trembling voice. "Thank you for saving my mother. But..." her lips wobbled. "We didn’t get her. She’s still somewhere in the palace... or out in the streets. We left her behind."</p>
 <p>Quinlan gave her hand a firm squeeze.</p>

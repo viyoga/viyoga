@@ -32,7 +32,7 @@ chapter = 891
 <p>The man who had once stood like a mountain now knelt in the ash, ruined and weeping. Weeping over her, of all people. Even now, after everything she had done, Rykar still looked at her like she mattered. Like she was someone worth crying over.</p>
 <p>A fierce tide of guilt surged through her broken frame.</p>
 <p>She had hated him. Blamed him. Tried to kill him.</p>
-<p>All because he had disowned her, forced her to leave home as a young child. But it hadn’t been out of spite. It had been to set her free. She always understood this and accepted it. ᚱÂ𐌽ȱ𝔟Ê𝐬</p>
+<p>All because he had disowned her, forced her to leave home as a young child. But it hadn’t been out of spite. It had been to set her free. She always understood this and accepted it.</p>
 <p>The extreme feelings of spite she held for this man came from when she rose to power in Naryssia... when she stood tall as the Water Sovereign, with a kingdom behind her and no one left who could question the alliance between her and Vulkaris... he could have reached out.</p>
 <p>He could have looked for her.</p>
 <p>She had waited for him to do exactly that. She told herself it was abandonment. That he had truly cast her aside as if she were a defect. That he never loved her. That she was lying to herself when she insisted inwardly that he did it all for her. After all, why not look for her now that she had all the power of a Sovereign? There was no political turmoil in Naryssia, no opportunists waiting to undermine her authority.</p>

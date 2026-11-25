@@ -25,7 +25,7 @@ chapter = 544
 <p>We continued for a while until we detached from each other at long last, though she seemed very reluctant to climb down from my arms. Thus far in this interaction, Aurora managed to refrain from entering her daddy’s little girl persona, but that didn’t mean she wasn’t a needy woman.</p>
 <p>I examined the four elixirs, debating which one I wanted to consume first. Earth was amazing, but thus far it didn’t manage to make me favor it over the others. Water spells offered surprisingly great devastation while also having other uses.</p>
 <p>Wind was my second favorite basic element, as it offered immense utility while also being a mighty offensive tool, but I wasn’t the utility type of guy at heart. I appreciated utility spells greatly, but at the end of the day, devastating power that obliterated my enemies was my favorite. I decided to surround myself with capable teammates for a reason, and not just because fighting alongside hot and dangerous women was sexy in my mind.</p>
-<p>No, I wanted to relegate some duties to my girls as I felt most alive when I was allowed to unleash myself and my full arsenal without reservations as I wreaked havoc on the battlefield. ȑἈℕ𝐎ꞖƐs̩</p>
+<p>No, I wanted to relegate some duties to my girls as I felt most alive when I was allowed to unleash myself and my full arsenal without reservations as I wreaked havoc on the battlefield.</p>
 <p>Fire was the element that offered the least utility but the most damage, perfectly matching my combat style.</p>
 <p>’The best defense is a good offense.’</p>
 <p>Fire was my favorite basic element.</p>

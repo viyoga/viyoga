@@ -31,7 +31,7 @@ chapter = 613
 <p>"This necromancer is a bad matchup for me…" Ignis said with ashen features. "Mummies and zombies are vulnerable to fire, but I have to expend a lot of mana to burn bones to ash."</p>
 <p>"They are weak to bludgeon damage. Just keep punching them until their bones are pulverized," Raika’s wisdom sounded as she got to her feet and spat a mouthful of blood, the remnants of the beating she received from Vex.</p>
 <p>"Kargrim!" Vex shouted.</p>
-<p>Her voice successfully brought the large bearkin out of his rapidly building rage. He turned toward her and nodded grimly. "Retreat!" Kargrim bellowed his command, and perhaps, thanks to the extreme respect his subordinates held for him, they, too, regained their cool. ℞аNỒ₿ĘŞ</p>
+<p>Her voice successfully brought the large bearkin out of his rapidly building rage. He turned toward her and nodded grimly. "Retreat!" Kargrim bellowed his command, and perhaps, thanks to the extreme respect his subordinates held for him, they, too, regained their cool.</p>
 <p>However, this time around, the issue won’t be solved simply by running.</p>
 <p>*BWOOOOM!*</p>
 <p>The ear-splitting blaring of a magically enhanced horn shook the air.</p>

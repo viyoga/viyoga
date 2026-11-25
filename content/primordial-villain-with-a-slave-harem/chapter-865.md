@@ -26,7 +26,7 @@ chapter = 865
 <p>‘That didn’t even look serious… This fucker even came down from the skies for me,’ Quinlan thought grimly.</p>
 <p>He retaliated, his pride not allowing him to look away at the disrespect.</p>
 <p>Fire-infused fists. Earth-powered stances. Water-enhanced steps.</p>
-<p>He surged in with Avatar-style martial arts, mixing crushing grounded strikes with fluid transitions and sharp elemental flares. He struck high, low, feinted right, swept left. Ꞧ𝐀ƝŎꞖËṨ</p>
+<p>He surged in with Avatar-style martial arts, mixing crushing grounded strikes with fluid transitions and sharp elemental flares. He struck high, low, feinted right, swept left.</p>
 <p>But Zephyr never clashed.</p>
 <p>He twisted, bent, slid, and leaned—his movements more dance than dodge.</p>
 <p>Even when Quinlan’s foot cracked the tile below them, Zephyr simply leaned to the side as though the wind had tilted him out of reach.</p>

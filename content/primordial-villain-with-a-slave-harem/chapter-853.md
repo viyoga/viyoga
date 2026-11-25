@@ -28,7 +28,7 @@ chapter = 853
 <p>Within Quinlan’s body.</p>
 <p>His qi surged inward like a storm collapsing into an eye.</p>
 <p>The flood struck his bones first. Not his flesh. Not his meridians. The very bones themselves.</p>
-<p>Cracks echoed through his consciousness as marrow lit up with elemental fire. His skeleton began to forge itself anew. Not changing shape, but hardening. Strengthening. Becoming denser. Sharper. Each vertebra throbbed with heat. Each rib twisted and flexed beneath internal pressure. Ɍ𝘢ＮòＢΕṦ</p>
+<p>Cracks echoed through his consciousness as marrow lit up with elemental fire. His skeleton began to forge itself anew. Not changing shape, but hardening. Strengthening. Becoming denser. Sharper. Each vertebra throbbed with heat. Each rib twisted and flexed beneath internal pressure.</p>
 <p>He trembled. Sweat beaded on his brow. But he did not cry out, having already become close acquintances with crippling pain.</p>
 <p>Then came the nerves.</p>
 <p>Tingling turned to white-hot agony as qi fused into the nervous system, connecting mind to body, thought to strike. Every sensation sharpened. Every reflex began syncing with the elements. His muscles spasmed as fire rushed through them, water cooled, wind carried, and earth braced.</p>

@@ -30,7 +30,7 @@ chapter = 862
 <p>The suite door stood open a sliver, and a single lantern flickered inside.</p>
 <p>To Nalai’s mild surprise, she found young Feng sitting in the lounge area, knees hugged to her chest on a wide cushion, brooding in a manner far too dramatic for someone her age.</p>
 <p>Nalai stepped closer. Her tone was light as she dressed the girl. “What’s troubling your young heart, little lotus?”</p>
-<p>Feng looked up, startled at the sudden newcomer, then sighed deeply. Her lips drooped into a pout as she stared at the floor with all the melancholic grace of a lovesick poetry scroll. 𝑅ά𐌽O͍BЁṨ</p>
+<p>Feng looked up, startled at the sudden newcomer, then sighed deeply. Her lips drooped into a pout as she stared at the floor with all the melancholic grace of a lovesick poetry scroll.</p>
 <p>"I… I don’t like what Serika and Quinlan are doing while sending me away she muttered in response.</p>
 <p>Nalai blinked.</p>
 <p>Then she blinked again.</p>

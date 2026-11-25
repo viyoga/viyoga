@@ -33,7 +33,7 @@ chapter = 514
 <p>The guard at the front who assumed driver duties suddenly shouted with a voice that was full of unease, "There’s someone ahead!" Her words caught everyone’s attention, silencing the chatter inside the carriage.</p>
 <p>Vivienne and Amara exchanged puzzled glances, the speed with which they traveled should not allow anyone to set up a trap in time, as their vehicle allowed them to take any uncharted path they wanted. No one should know where they were precisely until they arrived home.</p>
 <p>They turned their gazes toward the artifact windows. Through the one-way window, they saw him.</p>
-<p>A man stood alone in the middle of their path as the forest’s shadows danced around him like ghosts. His appearance was the definition of malevolence - his entire setup was pitch-black. ȒＡＮ𝔬₿ЁS̩</p>
+<p>A man stood alone in the middle of their path as the forest’s shadows danced around him like ghosts. His appearance was the definition of malevolence - his entire setup was pitch-black.</p>
 <p>In his right hand, he held a saber like they’d never seen before. Blue flames licked hungrily along its black edge, making their glow illuminate the surrounding darkness and giving the tall man a truly ominous presence.</p>
 <p>The guards halted in their tracks alongside the carriage, drew their weapons, and moved to form a protective barrier in front of the hovering carriage. One of them barked out a warning. "You there! Out of the way, before we cut you down!"</p>
 <p>The man didn’t respond. He remained still in the form of a towering monument of dread.</p>

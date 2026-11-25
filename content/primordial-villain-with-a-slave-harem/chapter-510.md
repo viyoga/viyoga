@@ -24,7 +24,7 @@ chapter = 510
 <p>"As you can see," Seraphiel replied while gesturing at my face that was veiled behind my wolf mask, "we have to remain in incognito due to some circumstances, so please just call me Miss Elf for now."</p>
 <p>"Okay, Miss Elf! Can you teach me? I’m sure Father will like it if I manage to make him one with my own hands!"</p>
 <p>"Sure!" Sera cheered back joyously.</p>
-<p>The two girls then completely ignored the auction as they began to focus on crafting the mightiest (cutest) crowns possible. "Master, this is for you..." Seraphiel whispered before placing her first completed one on my head and giving me a soft kiss on my cheek, after which she once again glanced at Lilith with a smug grin. РΆΝộ𐌱Ěs</p>
+<p>The two girls then completely ignored the auction as they began to focus on crafting the mightiest (cutest) crowns possible. "Master, this is for you..." Seraphiel whispered before placing her first completed one on my head and giving me a soft kiss on my cheek, after which she once again glanced at Lilith with a smug grin.</p>
 <p>This time I couldn’t tell her reaction because I didn’t activate my spell, but I was sure it must’ve been glorious, best evidenced by Sera’s giggling.</p>
 <p>"Ah! Miss Elf, I keep messing up…!" Felicity whined adorably.</p>
 <p>"You have to do it like this…" Seraphiel calmly guided her, but the girl messed up once again.</p>

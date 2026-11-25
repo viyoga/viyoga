@@ -23,7 +23,7 @@ chapter = 672
 <p>The six women shared a deadpan stare as they took in Kitsara's condition.</p>
 <p>A full-on flooding was happening—and not just from her mouth, which continued spewing curses at a truly impressive rate. Her other lips were oozing lady juices at a speed none of them thought humanly possible. Without Quinlan once touching Kitsara between the legs, she was already rivaling Blossom's infamous squirting sprees.</p>
 <p>It was just plain absurd.</p>
-<p>Emily, who had been observing the display in muted silence, finally gathered the bravery to speak up. Her voice was laced with hesitation as she asked, "My ladies, might this lowly one ask for clarification?" 𝐫ἁＮ𝘰ＢÊṡ</p>
+<p>Emily, who had been observing the display in muted silence, finally gathered the bravery to speak up. Her voice was laced with hesitation as she asked, "My ladies, might this lowly one ask for clarification?"</p>
 <p>"Clarisse is working fast I see," Ayame mused before smiling at the maid gently, "No need to put on such airs around us, Emily. Especially not in our own home."</p>
 <p>"I understand," the maid nodded her head, replicating the samurai's tender smile. "I just wished to ask… was Lady Kitsara truly a maiden until today? I find it… hard to believe."</p>
 <p>She was clearly struggling to remain respectful of her master's lover, consequently making her a lady she was ought to serve with utmost respect. It wasn't an easy thing to do.</p>

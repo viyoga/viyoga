@@ -32,7 +32,7 @@ chapter = 879
 <p>Until only red remained.</p>
 <p>Until there was nothing left.</p>
 <p>…</p>
-<p>What was once a disciplined war host was now a scattered chorus of insanity and horror. Some ran. Some clawed their own eyes out. Some simply stood, whispering prayers to gods that would not answer. ṛ𝖆ＮÖᛒÈ𝘚</p>
+<p>What was once a disciplined war host was now a scattered chorus of insanity and horror. Some ran. Some clawed their own eyes out. Some simply stood, whispering prayers to gods that would not answer.</p>
 <p>Because in the presence of this thing…</p>
 <p>This twisted, unholy monstrosity…</p>
 <p>There was no room for faith.</p>

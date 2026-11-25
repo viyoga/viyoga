@@ -28,7 +28,7 @@ chapter = 969
 <p>"I knew it was gonna be one badass class. Wait until you get more levels under your belt. You’re barely level 20 and you’re already really useful." Quinlan replied, already stepping forward.</p>
 <p>Feng watched his form with thankful eyes for his words of reassurance; they meant a lot to her because she knew Quinlan wouldn’t offer these words just to make her feel better about herself. He truly meant it.</p>
 <p>Now, she allowed her mana to slowly accumulate while watching the man do his part from behind.</p>
-<p>His hand lifted, and a crimson flare of fire surged into existence using his [Fire Creation &amp; Manipulation] spell. This was not just any flame; it was his own signature fire, birthed from a magic stat of 221 and bolstered by the pure refinement of his Zhenwu trials. ʀã𐌽𝐎ʙЁȿ</p>
+<p>His hand lifted, and a crimson flare of fire surged into existence using his [Fire Creation &amp; Manipulation] spell. This was not just any flame; it was his own signature fire, birthed from a magic stat of 221 and bolstered by the pure refinement of his Zhenwu trials.</p>
 <p>The air itself seemed to panic, collapsing inward as the inferno swirled around his hand. He flicked his wrist and *BOOM!* A fireball of immense proportions detonated directly into the nearest watchtower, turning stone, steel, and unfortunate guards into a violent splash of molten slag.</p>
 <p>Another flick. *BOOM!* The southern wall buckled under the force.</p>
 <p>The sadistic grin stretched wider across his lips. "I missed this... So. Damn. Much..." he murmured, fingers flexing with gleeful precision.</p>

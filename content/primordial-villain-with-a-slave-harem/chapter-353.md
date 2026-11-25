@@ -33,6 +33,6 @@ chapter = 353
 <p>Furthermore, since I was imprisoned in the body of a child, her presence was sadly the most memorable moment in my long days of miserable, excruciatingly boring solitude.</p>
 <p>I've arrived at the realization that if I want to torture someone in the future, and I have the time as well as the resources, chaining them to a bed to the point where they can't even move a finger would be a rather effective method. My poor Ayame had also endured something similar, though she at least had the company of her caretaker from time to time, and her talks with potential buyers.</p>
 <p>"Waa!" Iris cried cutely as she reached for her breast when Vernice took her off of it to check whether her daughter was full or not.</p>
-<p>"Ah! I'm so sorry my famished baby, here you go." Vernice apologized while pushing her bosom back into Iris' gaping mouth while rocking the baby back and forth in a relaxing motion. ṚΆꞐȪ฿Ɛś</p>
+<p>"Ah! I'm so sorry my famished baby, here you go." Vernice apologized while pushing her bosom back into Iris' gaping mouth while rocking the baby back and forth in a relaxing motion.</p>
 <p>…</p>
 <p>Another year had passed, making Iris two years old.</p>

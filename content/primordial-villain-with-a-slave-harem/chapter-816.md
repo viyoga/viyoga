@@ -32,7 +32,7 @@ chapter = 816
 <p>"You know," he started with his eyes gazing into the dark but beautiful night sky, "not everything is about battle prowess. One of my girls called Jasmine... Well, she’s weaker than your average potato farmer. Doesn’t even know how to punch. But she’s brilliant nonetheless. Once I help her out of the mess she’s in, she’ll run the financial side of everything I build. My empire’s future economy, all in her hands. People might think she’s the least important because she doesn’t swing a sword or can’t protect my back on the battlefield... but someday, she might become one of the most important women in existence."</p>
 <p>1</p>
 <p>Feng Jiai stiffened. She winced ever so slightly.</p>
-<p>"...You and your lunatic harem speeches again," she grumbled. "Eight girls? Really? Eight? Why don’t you focus on real life instead of spinning fantasies with your... your eight hot babes and rising empires?" ŕåꞐȰ₿ËŠ</p>
+<p>"...You and your lunatic harem speeches again," she grumbled. "Eight girls? Really? Eight? Why don’t you focus on real life instead of spinning fantasies with your... your eight hot babes and rising empires?"</p>
 <p>Quinlan only smirked in response. Whether she believed him or not didn’t matter in his mind.</p>
 <p>This reaction of his only served to further agitate the grumbling teenager who crossed her arms defiantly and turned her face away with a final, "Hmph! Not talking to you anymore."</p>
 <p>Despite her words, she scooted closer, nestling into his embrace again with subtle neediness. He let his hand fall from her head, only for her to grab it and forcefully put it back, holding it there like a treasured weight.</p>

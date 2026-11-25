@@ -35,7 +35,7 @@ chapter = 980
 <p>Felicity’s breath hitched on the other side. "You have a beautiful voice! Like, scary-beautiful!"</p>
 <p>"Thank you."</p>
 <p>Next came Serika.</p>
-<p>"I heard a lot about you, Princess Felicity," Serika lied through her teeth as easily as she breathed, showing that she was much more than a brute of a woman who could only kick and punch her enemies to death. "I am Miss Red." Ṛâ𝐍ǒ𝐁ЕŜ</p>
+<p>"I heard a lot about you, Princess Felicity," Serika lied through her teeth as easily as she breathed, showing that she was much more than a brute of a woman who could only kick and punch her enemies to death. "I am Miss Red."</p>
 <p>Felicity gasped on the other end of the line. "You sound like such a powerful woman! I want to become strong when I grow up, too! Though my path will likely involve the arcane!"</p>
 <p>Serika chuckled warmly in response. It was a sound that carried surprising softness, making Felicity’s heart flutter. "The path of a mage or a warrior... I’ve seen enough to tell you that both are completely viable options. You don’t need big muscles to succeed in your goals. So, go with what your heart tells you. But remember: just because you were born into privilege doesn’t mean you can skip doing the hard work all aspiring mages must go through. No strength comes without sacrifice."</p>
 <p>"I can do that! I might cheat on my math exam, but I take Mom’s teachings to heart!" Felicity declared proudly, puffing her chest even though no one could see her.</p>

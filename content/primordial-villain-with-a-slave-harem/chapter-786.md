@@ -38,7 +38,7 @@ chapter = 786
 <p>And finally, 1,000 warriors between levels 25 and 29, each boasting around 70 Potency.</p>
 <p>Once selected, the Codex lit up with spectral light, the names of the chosen offerings flickering and then fading as the souls were claimed.</p>
 <p>[Fusion Progress: 200 → 946.20 / 2000]</p>
-<p>Damn. Only 746 progress for offering so many souls that were of her type to boot! Soul upgrades were one costly investment, that was for sure. I invested all my warrior-type souls into Eve in this level range, earning her another 750 progress. ȒἁΝŎ𝐛Ɛ𝙨</p>
+<p>Damn. Only 746 progress for offering so many souls that were of her type to boot! Soul upgrades were one costly investment, that was for sure. I invested all my warrior-type souls into Eve in this level range, earning her another 750 progress.</p>
 <p>I then filled the remaining bar of 300 progress with 1100 level 30-34, 100 potency souls.</p>
 <p>[Fusion Progress: 2000 / 2000]</p>
 <p>The moment Eve's progress bar hit full again, the transformation kicked in. This time, it was even more vivid than before.</p>

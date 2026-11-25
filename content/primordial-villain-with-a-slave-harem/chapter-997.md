@@ -33,7 +33,7 @@ chapter = 997
 <p>She kept working.</p>
 <p>Another five minutes passed.</p>
 <p>"You’re over-clinching the socket. Unless you want the whole thing to seize up the first time its user throws a punch, loosen that grip."</p>
-<p>While his words might’ve been a bit dramatic, as Kaelira wasn’t such a horrible smith that she’d make a failure like that, his statement still held true. ṛ𝐚ＮȰᛒÈȘ</p>
+<p>While his words might’ve been a bit dramatic, as Kaelira wasn’t such a horrible smith that she’d make a failure like that, his statement still held true.</p>
 <p>Thus, she made the fix. This time, faster.</p>
 <p>It went on like that: quick corrections, nothing fancy. Rykar never coddled. Just pointed out flaws the moment they appeared. His tone stayed dry as if he didn’t care if she listened or not.</p>
 <p>But Kaelira did.</p>

@@ -31,7 +31,7 @@ chapter = 472
 <p>I was greatly surprised when Anivia paused mid-flight all of a sudden and started hovering in place.</p>
 <p>Its crystalline body shimmered as it curled inward, pulling its wings and legs tightly against its body.</p>
 <p>The air around it grew still like the calm before the storm. Frost condensed in the space around it, forming a swirling vortex of icy energy.</p>
-<p>Then, with a deafening screech, Anivia unfurled its wings in an explosive motion. A howling storm burst forth with ice shards and cutting winds spiraling outward in a deadly tempest. The gale roared in my direction. 𝘙ἁΝǒBĘṣ</p>
+<p>Then, with a deafening screech, Anivia unfurled its wings in an explosive motion. A howling storm burst forth with ice shards and cutting winds spiraling outward in a deadly tempest. The gale roared in my direction.</p>
 <p>I braced myself as I watched the storm rush toward me, but Kael wasn't satisfied with sitting this one out.</p>
 <p>"A little distraction for my dear bird's prey. [Ice Barrage]!" Kael's staff glowed once again, summoning another wave of javelins. This time, the projectiles were larger, sharper, and imbued with an unnatural sheen that hinted at enhanced lethality.</p>
 <p>His ability to strengthen his previously used [Ice Barrage] spell hinted at the validity of his previously stated words. He was at the advanced stage where he had much greater control over his spells. When he first used [Ice Barrage], he was likely very conservative with his mana investment, which resulted in him only summoning small javelins. Now, mighty lances shot forward with terrifying precision, homing in on my position.</p>

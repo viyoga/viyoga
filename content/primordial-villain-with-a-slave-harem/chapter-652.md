@@ -31,7 +31,7 @@ chapter = 652
 <p>"Before every decision I make, I do my utmost to weigh the pros and cons, ensuring that my actions are always calculated. Yet… There are times when a man must stand his ground instead of running away, no matter the pros and cons behind such a decision."</p>
 <p>His voice lowered into an ominous declaration. "When a man tries to take my woman away from me… That, Silver, is one such moment."</p>
 <p>Silver scoffed, forcing himself to regain composure, though the stiffness in his posture betrayed his unease. "It seems we can't come to a decision, then. Fortunately, we have a way to settle things. By the laws of the Beastman Confederation, I invoke my right to challenge you to a duel!"</p>
-<p>Murmurs rippled through the chamber, and Gorruk, the bearkin leader grunted in disapproval. "Taking another's woman in such a manner is unprecedented. It goes against the spirit of our duels—" ŔᴀŊỔ𝐛ЁṢ</p>
+<p>Murmurs rippled through the chamber, and Gorruk, the bearkin leader grunted in disapproval. "Taking another's woman in such a manner is unprecedented. It goes against the spirit of our duels—"</p>
 <p>Quinlan raised a single hand.</p>
 <p>"I appreciate your support, Lord Gorruk, but we both know this summit will not move forward as things stand. We have to settle this matter so that we can work together in carving a future where we can all thrive together." He shifted his gaze back to Silver. "I accept your challenge. However…"</p>
 <p>With a subtle movement of his gauntleted hand, a holographic message materialized to life above his palm. Glowing letters hovered in the air for all to see.</p>

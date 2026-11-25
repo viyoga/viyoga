@@ -38,7 +38,7 @@ chapter = 1001
 <p>Rosie looked up at her with the purest, most innocent smile in the universe.</p>
 <p>"Pretty please?"</p>
 <p>"Ugh... Fine..." Yoruha muttered like someone surrendering to divine punishment. "I’ll do it. But if anyone but Celeste disturbs me..."</p>
-<p>She turned, dragging herself toward her lab she’d set up in the Elysiar family’s home like a war veteran returning to the frontlines. Her tails trailed behind her like wilted flower petals. Ꞧᴀ₦ổBË𝙎</p>
+<p>She turned, dragging herself toward her lab she’d set up in the Elysiar family’s home like a war veteran returning to the frontlines. Her tails trailed behind her like wilted flower petals.</p>
 <p>As she disappeared into her sanctum, Rosie gave a bright smile to her mothers and decreed triumphantly, "Mission complete! Will Daddy praise Rosie? She wonders."</p>
 <p>...</p>
 <p>By the time the week was over and it was time to depart for the king’s 1000th birthday, the courtyard was buzzing with arrivals.</p>

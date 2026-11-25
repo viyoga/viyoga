@@ -26,7 +26,7 @@ chapter = 247
 <p>Ronan himself is seated at his desk, hunched over a piece of parchment, furiously sketching something with a charcoal stick. His hair is tousled, and he looks like he hasn't slept much, but there's a certain shine to his eye as if he's on the verge of a breakthrough.</p>
 <p>"Morning, Boss." Ronan grunts without looking up, still focused on his drawing.</p>
 <p>Iselda gives him a glare that has a strong stench of disapproval but says nothing.</p>
-<p>"I've just come to check up on you, I can't help but be excited at the prospect of having my own stronghold. I feel like a child about to receive a grand present. Please don't take this as a form of pressure to speed up your work, though. I can wait." ṝàɴȰᛒĚ𝐒</p>
+<p>"I've just come to check up on you, I can't help but be excited at the prospect of having my own stronghold. I feel like a child about to receive a grand present. Please don't take this as a form of pressure to speed up your work, though. I can wait."</p>
 <p>"Master, I don't think there's a need to worry about the speed with which your home's planning will be finished." Iselda stated with a bit of a grimace on her face while glancing at the other side of the room.</p>
 <p>Ronan is the one responsible for the exterior with her being a helper and auditor. The blonde woman's main job will be the creation of the ladies' rooms as well as the neutral ones, so she has more time to come up with her designs, thus I imagine she spent most of her time trying to be of assistance to the manic architect.</p>
 <p>"How is working with Ronan, do you think you two can form a team?" I inquire curiously. Their personalities are complete opposites, but maybe for a strictly work-related relationship that's strangely ideal.</p>

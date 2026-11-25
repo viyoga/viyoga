@@ -26,7 +26,7 @@ chapter = 148
 <p>"So what have you been up to?" I inquire, though I'm almost certain that I could guess her answer.</p>
 <p>"Information gathering mostly, though I did scout a few places for us to visit regarding our armor and weapon needs."</p>
 <p>What a responsible woman. While I was getting a haircut, going on a food binge and ravaging Blossom, she was basically working. "Any news regarding your sister or clan?" I ask, knowing full well what doing 'information gathering' entails for her.</p>
-<p>"There are some minute changes, but since there was a change in leadership they are somewhat expected. I was thinking there would be some drastic new developments, to be honest. My fears are that a syndicate similar to the Vesper Consortium might've gotten her in their pocket somehow… But so far, I found no traces of such a claim. ʀ𝔞₦Ȫ𝐛ĘS̩</p>
+<p>"There are some minute changes, but since there was a change in leadership they are somewhat expected. I was thinking there would be some drastic new developments, to be honest. My fears are that a syndicate similar to the Vesper Consortium might've gotten her in their pocket somehow… But so far, I found no traces of such a claim.</p>
 <p>Well, to be fair, I just asked around a few taverns, and since the duchy of Greenveil is far from my clan's dutchy, changes might not travel here well enough."</p>
 <p>Reasonable assumptions. "I see… We can't do much for now. If we climb up the Consortium's ladder they could probably help us significantly in both information gathering and our eventual revenge as well."</p>
 <p>She raises an eyebrow, "why haven't I thought of that…?"</p>

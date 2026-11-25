@@ -31,7 +31,7 @@ chapter = 1077
 <p>&lt;!&gt; Jasmine released a choked sob. Decades of miserable separation were only minutes away from finally ending. The nightmare was over. &lt;Thank you, Blossom! Truly...&gt;</p>
 <p>&lt;Blossom is doing this for her friend, not for gratitude.&gt; Blossom reassured, already vaulting forward, body still trembling but unwilling to stop.</p>
 <p>As she dashed across the city’s rooftops, a proud little laugh escaped the blond dogkin’s lips.</p>
-<p>&lt;Master!! Blossom thinks her reward should be upgraded! She not only wants to be held until she falls asleep but also showered in a million kisses at the same time! She deserves it because she did something very amazing right now! Blossom feels like she unlocked a new part of her brain!&gt; ṝ𝐀ŊȫΒĘṢ</p>
+<p>&lt;Master!! Blossom thinks her reward should be upgraded! She not only wants to be held until she falls asleep but also showered in a million kisses at the same time! She deserves it because she did something very amazing right now! Blossom feels like she unlocked a new part of her brain!&gt;</p>
 <p>&lt;Blossom...&gt; Quinlan’s tone was not amused, not at all. &lt;First of all, didn’t you just say you were doing it for your friend and not for gratitude?&gt;</p>
 <p>Blossom’s tail instantly froze. &lt;M-Master! A friend’s gratitude is completely different from Master’s reward!! Don’t even compare them!!&gt;</p>
 <p>&lt;Is that so...?&gt; Normally, Quinlan would’ve laughed at her utterly adorable antics, but... &lt;As I share your senses right now, I felt what you felt. If not for my primordial brain’s expanded capacity and Seraphiel’s healing, I would’ve fallen unconscious. You did something very reckless.&gt;</p>

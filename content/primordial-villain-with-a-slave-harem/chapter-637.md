@@ -30,7 +30,7 @@ chapter = 637
 <p>However, Kitsara wasn't having any of it. "Are you saying the man my father welcomed into the palace as an esteemed guest is untrustworthy?"</p>
 <p>The color instantly left the maid's face as she rushed to correct her mistake, "N-no, of course not!"</p>
 <p>"I thought so."</p>
-<p>Another maid couldn't help herself as she yelped, "Lady Kitsara, I beg your ladyship, at least very proper clothes!! Your father will have our head if he hears of this!" ȒＡΝổ𝐛ĘꞨ</p>
+<p>Another maid couldn't help herself as she yelped, "Lady Kitsara, I beg your ladyship, at least very proper clothes!! Your father will have our head if he hears of this!"</p>
 <p>The white-haired woman sighed with annoyance. "Why would he hurt my maids for a decision I was solely responsible for? But fine, if this puts your mind at ease…" Having said that, she produced a white robe that perfectly matched her hair color.</p>
 <p>There was a little hole on its back, through which Kitsara pushed her fluffy tail out.</p>
 <p>It was not some ornate, regal robe, but quite the common one. Not only was its making of mundane origins, but its proportions were also quite lacking.</p>

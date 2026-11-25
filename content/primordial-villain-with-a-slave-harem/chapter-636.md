@@ -29,7 +29,7 @@ chapter = 636
 <p>&lt;They are so rude!&gt; Seraphiel decreed. &lt; There are six women and a single man here, yet they only send a single woman to pleasure us. Where's the hot boy squad?&gt;</p>
 <p>&lt;You're gonna get spanked at this rate, young lady,&gt; Lucille giggled, knowing my possessive nature.</p>
 <p>&lt;She's sweating like a pig too. Maybe she'd just concluded servicing her previous client.&gt; Aurora added wryly.</p>
-<p>&lt;I think not…&gt; Lyra spoke up suddenly. &lt;Dogkin has the greatest sense of smell out of all races. Maybe a sweaty woman with her beauty would be much appreciated by dogkin men. I think working up a sweat is part of her seduction efforts.&gt; ℞𝔞ΝȮВЕṧ</p>
+<p>&lt;I think not…&gt; Lyra spoke up suddenly. &lt;Dogkin has the greatest sense of smell out of all races. Maybe a sweaty woman with her beauty would be much appreciated by dogkin men. I think working up a sweat is part of her seduction efforts.&gt;</p>
 <p>&lt;That makes sense… But Master doesn't get excited from sniffing Blossom after he tires her out in bed, Blossom thinks this woman is misguided.&gt;</p>
 <p>Whatever her plan may be, one thing was for certain. I didn't like this situation. &lt;Sounds like a reasonable theory, but I don't appreciate the fact Vargis sent me a slut despite knowing I had companions already. Does he think me a man who lusts after every single hot woman he sees? Just because I have a harem doesn't mean I sleep around.&gt;</p>
 <p>Not being privy to our inner conversation, the prostitute walked towards me before she stopped with only a few inches separating the two of us. Then, her lips curved into a sly, seductive smile.</p>

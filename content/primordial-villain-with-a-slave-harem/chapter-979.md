@@ -30,7 +30,7 @@ chapter = 979
 <p>A princess. The princess. The most coddled girl in the kingdom. Beloved by nobles, pampered by the court, and fiercely protected by the entire nation, including her own mother, Queen Morgana, and father, King Alexios.</p>
 <p>This person was in trouble?</p>
 <p>How?</p>
-<p>Why wasn’t she calling her father, or Queen Morgana herself? He’d only interacted with that woman once before, but she was giving him fierce momma bear vibes back then, a bit like his primordial mothers. He doubted such a woman would not drop everything and rush to Felicity’s rescue. ṟ𝘈Ŋ𝖔𝐛Ё§</p>
+<p>Why wasn’t she calling her father, or Queen Morgana herself? He’d only interacted with that woman once before, but she was giving him fierce momma bear vibes back then, a bit like his primordial mothers. He doubted such a woman would not drop everything and rush to Felicity’s rescue.</p>
 <p>Felicity had picked up the artifact, meaning she clearly could receive magical transmissions. Which meant the device wasn’t restricted. Though perhaps she was restricted in the sense that she couldn’t initiate calls but only receive them...</p>
 <p>So then, was it chance? Coincidence? Had he just happened to call in her moment of crisis?</p>
 <p>"Princess Felicity, what happened?"</p>

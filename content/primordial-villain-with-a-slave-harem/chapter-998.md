@@ -34,7 +34,7 @@ chapter = 998
 <p>The temperature of the room exploded.</p>
 <p>Kaelira backed away instinctively. Even Rykar’s robes fluttered from the pressure, though the old man didn’t move an inch.</p>
 <p>The air shimmered. The forge roared.</p>
-<p>Each hammer strike dumped another layer of mana into the item. Flames coiled into the spiritual lines etched into the gauntlet, setting them alight with glowing red patterns. Molten heat pulsed with every impact, syncing with the item’s structure like muscle connecting to bone. ŘãɴȰꞖЁȿ</p>
+<p>Each hammer strike dumped another layer of mana into the item. Flames coiled into the spiritual lines etched into the gauntlet, setting them alight with glowing red patterns. Molten heat pulsed with every impact, syncing with the item’s structure like muscle connecting to bone.</p>
 <p>Quinlan gritted his teeth.</p>
 <p>His body was sweating, but not from the heat alone. The mana cost was brutal, his technique clearly inefficient, drastically lacking polish.</p>
 <p>The enchantment process wasn’t simple, at least not when one was as ambitious as he was. He wasn’t layering a single fire element; he was fusing multiple advanced-level fire constructs into one stable matrix.</p>

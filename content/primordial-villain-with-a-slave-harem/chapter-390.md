@@ -32,7 +32,7 @@ chapter = 390
 <p>"Sure you can." I nodded along, though I was also iffy about it.</p>
 <p>"Don't let me get cold feet, Quinlan. Penetrate me before I run away." She pleaded, her brave facade already having completely crumpled into nothingness.</p>
 <p>"Your wish is my command," I said before grabbing my shaft and positioning at her slit. My tip gave her folds a gentle kiss before descending further into the flooded cavern.</p>
-<p>The previous teasing session was not intended to be cruelty on my part, but making her as lubricated as possible. I knew that if she were to be incredibly wet before my entrance, things would go smoother. ꭆᴀ𐌽ＯВЕṡ</p>
+<p>The previous teasing session was not intended to be cruelty on my part, but making her as lubricated as possible. I knew that if she were to be incredibly wet before my entrance, things would go smoother.</p>
 <p>However, she was still incredibly tight, tighter than anything I had ever felt before. I couldn't help but grunt strainedly from the sheer pressure enveloping my lance from all directions. It was so incredibly stimulating.</p>
 <p>"Ah!" Ayame yelped more and more the deeper I went. It was a slow, exploratory descent on my part as I savored every single little fraction of an inch she could take, and it wasn't long before I felt welcomed by her hymen, which I tore apart with the next gentle push.</p>
 <p>"You've been officially conquered, my beloved Ayame." I announced, but my words fell on deaf ears.</p>

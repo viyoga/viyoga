@@ -27,7 +27,7 @@ chapter = 699
 <p>This simple fact alone was worth more than everything she could ever obtain and this gift was obtained thanks to the woman in front of her.</p>
 <p>Then she gazed at the other two women, “You must be Lady Persephone. Your hair is exceedingly striking if I say so myself.”</p>
 <p>“Indeed. Though I wonder what Sol may have said about me.” Persephone wore the same mysterious expression as always as she inspected Nefertiti.</p>
-<p>She had heard from Sol that Nefertiti was perhaps one of the most beautiful women in all the realms. Back then, Persephone had simply scoffed at that claim. After all, she had met many beautiful women in her life, both on the Mortal and the Astral Realm. Some could even make entire countries fall with just a word if they wished. ṙἈƝ𝘖ＢËṨ</p>
+<p>She had heard from Sol that Nefertiti was perhaps one of the most beautiful women in all the realms. Back then, Persephone had simply scoffed at that claim. After all, she had met many beautiful women in her life, both on the Mortal and the Astral Realm. Some could even make entire countries fall with just a word if they wished.</p>
 <p>However, seeing Nefertiti now seated in front of her, Persephone realized for the first time that there existed a form of beauty in this world that even her mind could not comprehend. Such was the extent of Nefertiti’s beauty.</p>
 <p>Is it a name or some kind of power? Perhaps a concept itself? She wondered for a few seconds before discarding further curiosity. She did not have the right to ask that question, nor she was willing to. Sooner or later, the girl would explain the situation herself. This happened to all of them.</p>
 <p>The next harem council meeting will be interesting.</p>

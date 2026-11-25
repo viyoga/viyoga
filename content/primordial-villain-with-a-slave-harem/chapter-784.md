@@ -27,7 +27,7 @@ chapter = 784
 <p>[Type: Warrior]</p>
 <p>[Soul Rank: 1]</p>
 <p>[Fusion Progress: 0.001 / 1000]</p>
-<p>Her page opened with a soft shimmer, displaying the bare-bones statistics of her existence. A single thin bar glowed beneath the header. It was so faint, I had to focus to see it at all. řÂŊꝊᛒЁṨ</p>
+<p>Her page opened with a soft shimmer, displaying the bare-bones statistics of her existence. A single thin bar glowed beneath the header. It was so faint, I had to focus to see it at all.</p>
 <p>The progress indicator had nudged forward by the slimmest margin. From nothing to something. 0.001 out of 1000. A single drop in an ocean.</p>
 <p>The [Soul Fusion] had worked, but it also made one thing painfully clear.</p>
 <p>The ranking-up of Elite Souls was mercilessly slow without the right fuel. Civilian souls barely registered as kindling.</p>

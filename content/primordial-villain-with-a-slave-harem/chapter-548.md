@@ -29,5 +29,5 @@ chapter = 548
 <p>"That means the plan worked, huh?" Lucille laughed excitedly in my lap. She was ready to go on a rampage.</p>
 <p>"Yep. I got a call from Orianna; the Winterwood count died. It’s quite likely that a succession conflict will erupt between the two sides, and well, if it doesn’t…"</p>
 <p>A dark, ominous atmosphere descended around the table; it felt like I was surrounded by hot, evil women, all of whom had features ranging from perfectly indifferent poker faces to outright grinning like proper villains. They all understood our actions would result in the deaths of innocents, yet the possible benefits were simply too tantalizing to worry about such thoughts.</p>
-<p>My sentence was finished for me by Ayame, whose eyes gleamed with a devilish glint: "You’ll make sure conflict occurs no matter what they do to maintain the current fragile peace. The twins are the perfect tools to make the duke lash out." ＲàƝÖBЕꞩ</p>
+<p>My sentence was finished for me by Ayame, whose eyes gleamed with a devilish glint: "You’ll make sure conflict occurs no matter what they do to maintain the current fragile peace. The twins are the perfect tools to make the duke lash out."</p>
 <p>I nodded with an evil grin flashing on my face as well, "That is indeed the case."</p>

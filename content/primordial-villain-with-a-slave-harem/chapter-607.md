@@ -32,7 +32,7 @@ chapter = 607
 <p>"Huh? They seem pretty normal to me, especially for people who’ve been exiled here for such an absurd amount of time."</p>
 <p>He shook his head dejectedly. "You wouldn’t get it… Nyxara’s demonic powers can easily charm straight women, but Luminara and Mearie are what I would call ’reproductive purists.’ To them, if they can’t get pregnant, any sort of sexual relationship is entirely meaningless. Nyxara could grant them immense physical pleasure, but as their brains only care about motherhood, which is something Nyxara can’t grant them even outside of this dimension, they are not affected in the slightest."</p>
 <p>"Damn…"</p>
-<p>"Yep, laddy. Exactly: damn… I’m one of the strongest primordials when it comes to combat power, stronger than both Luminara and Mearie, but this demoness would give me a lot of trouble still. Honestly, what your mothers are doing is very impressive." 𝙍ÄNꝊ₿Ёṥ</p>
+<p>"Yep, laddy. Exactly: damn… I’m one of the strongest primordials when it comes to combat power, stronger than both Luminara and Mearie, but this demoness would give me a lot of trouble still. Honestly, what your mothers are doing is very impressive."</p>
 <p>"You’re telling me you’re as old as Thalorind itself, but you can’t keep your libido in check? Isn’t it about time you learn some restraint? Unlike me, you’re not exactly a baby, old man."</p>
 <p>"Laddy, let’s go have a friendly sparring session, just the two of us. I have an incredible amount of valuable lessons I could impart to the younger generation."</p>
 <p>I would’ve jumped on such an offer if it wasn’t offered right after I insulted him. His ominous tone alone told me I would not learn anything but get executed on repeat.</p>

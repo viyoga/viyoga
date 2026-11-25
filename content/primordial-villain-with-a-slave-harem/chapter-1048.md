@@ -31,7 +31,7 @@ chapter = 1048
 <p>"When the time is right, I will reward you."</p>
 <p>He said at long last.</p>
 <p>Kaede simply stepped back and melted once more into the ordered ranks of dukes.</p>
-<p>The elders of the Fujimori clan moved without command, gliding to the table where Kaede had sat before the announcement. Their motion mirrored the other noble houses, families, and advisors taking their places beside their ducal leaders, as protocol dictated. 𝐫ἁΝȎʙÊȘ</p>
+<p>The elders of the Fujimori clan moved without command, gliding to the table where Kaede had sat before the announcement. Their motion mirrored the other noble houses, families, and advisors taking their places beside their ducal leaders, as protocol dictated.</p>
 <p>The atmosphere shifted. The feast was nearly done.</p>
 <p>It was time for the final gift.</p>
 <p>Alastair Greenvale stepped forward, letting a loud splash sound reverberate through the hall as he stepped into the large pool of blood standing between him and the king.</p>

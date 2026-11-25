@@ -31,7 +31,7 @@ chapter = 921
 <p>The silence that followed felt quieter than ever.</p>
 <p>Then both women nodded in perfect unison.</p>
 <p>Mearie smiled wide this time, openly radiant. "That’s right."</p>
-<p>"We honestly got no clue," Luminara chirped innocently while shrugging her shoulders before brimming with joy as she declared, "You’re our handsome little anomaly. We’ve decided to settle for that explanation." 𝑅А𐌽𝐎𝖇Ě𝘴</p>
+<p>"We honestly got no clue," Luminara chirped innocently while shrugging her shoulders before brimming with joy as she declared, "You’re our handsome little anomaly. We’ve decided to settle for that explanation."</p>
 <p>"Our miracle," Mearie whispered in agreement. "The one none of the gods could predict."</p>
 <p>Their voices were soft and proud, yet Quinlan could feel the weight behind the words.</p>
 <p>He’d already known it for some time, but the more he learned, the clearer it became: he was something that wasn’t meant to exist. Not like he is right now.</p>

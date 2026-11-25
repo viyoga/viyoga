@@ -31,7 +31,7 @@ chapter = 125
 <p>"I will make sure to repay the favor I owe you!"</p>
 <p>"I already had a deal with Marjorie, but I appreciate the gesture."</p>
 <p>"Oh? I insist anyways!" He finally releases my hand and turns towards Ayame and approaches her.</p>
-<p>Once close enough, he bows and reaches out, asking for her hand in an obvious effort to kiss it. Ayame grimaces slightly, rather uncomfortable with the situation, but in a show of politeness, she hesitantly takes off her gauntlet and offers her hand for the gesture. 𝖗ἁNố𐌱Εs</p>
+<p>Once close enough, he bows and reaches out, asking for her hand in an obvious effort to kiss it. Ayame grimaces slightly, rather uncomfortable with the situation, but in a show of politeness, she hesitantly takes off her gauntlet and offers her hand for the gesture.</p>
 <p>I watch the scene unfold as if it was playing in slow-motion. Time around me stops briefly as I watch in muted silence. What should I do? Is this what I want? I mean, it's just a greeting, right? He is just being courteous as a man.</p>
 <p>I should just clench my teeth and bear with it.</p>
 <p>Then, something snaps in my head.</p>

@@ -32,7 +32,7 @@ chapter = 375
 <p>"Oh, I bet you love this new relationship of yours, huh."</p>
 <p>"I sure do."</p>
 <p>"So shameless... I'm somewhat reluctant to ask about their opinion of me…" my samurai was curious but clearly dreading the answer.</p>
-<p>"Yeah, they said you are too petite - but I did defend you on that front - however, your mental trauma and grandiose dreams didn't sit well with them. Mind you, this ranking of theirs is only about how great of a mother you would be if I impregnated you right this moment, not how good of a lover you all are or how good mothers you could become in the future. In that ranking, you all share the top 1 spot without a doubt." ℞аＮȎᛒÈṤ</p>
+<p>"Yeah, they said you are too petite - but I did defend you on that front - however, your mental trauma and grandiose dreams didn't sit well with them. Mind you, this ranking of theirs is only about how great of a mother you would be if I impregnated you right this moment, not how good of a lover you all are or how good mothers you could become in the future. In that ranking, you all share the top 1 spot without a doubt."</p>
 <p>"Hmm… I see. Honestly, I can't fault them, I truly can't even begin imagining my life as a mother. By the way, I couldn't help but notice that Blossom was not mentioned yet."</p>
 <p>"She won first place in both of their rankings."</p>
 <p>"Huh? Blossom did?" My dog-kin asked with a gasp, but in the next moment her lush tail began it's trademark propeller movements.</p>

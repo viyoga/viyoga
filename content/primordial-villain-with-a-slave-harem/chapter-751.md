@@ -27,7 +27,7 @@ chapter = 751
 <p>Type: Active – Elite Summon</p>
 <p>Cost: High Mana</p>
 <p>Requirement: 1 [Elite Soul] stored in [Soul Reaper]</p>
-<p>[Materializes a high-tier soul construct from a stored [Elite]. These summons retain advanced cognitive function, combat abilities, and a portion of their legacy skills. Summoned entities may be controlled directly or operate semi-autonomously under high-level directives.] 𝙍𝐀𐌽ổΒĚᶊ</p>
+<p>[Materializes a high-tier soul construct from a stored [Elite]. These summons retain advanced cognitive function, combat abilities, and a portion of their legacy skills. Summoned entities may be controlled directly or operate semi-autonomously under high-level directives.]</p>
 <p>Only one [Elite Soul] may be summoned at a time</p>
 <p>Elites persist until defeated or dismissed</p>
 <p>Eligible for upgrades via [Soul Fusion]</p>

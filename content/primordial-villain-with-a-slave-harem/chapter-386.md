@@ -30,6 +30,6 @@ chapter = 386
 <p>"Baby, please turn onto your back, and Ayame, kneel behind his head so that he can use your thighs as his pillow."</p>
 <p>"I can do that much." The second-in-command of the Ascendants faction nodded.</p>
 <p>I didn't need more nudging either as I instantly listened to their instructions, very eager to experience what they cooked up for me tonight.</p>
-<p>Ayame wiped her body in a towel as she got most of the oil off, then kneeled as instructed, lifted my head gently, and placed it on her two alluring thighs. RАＮȮ฿Ëꞩ</p>
+<p>Ayame wiped her body in a towel as she got most of the oil off, then kneeled as instructed, lifted my head gently, and placed it on her two alluring thighs.</p>
 <p>Lucille and Aurora in the meantime undid their bras, freeing their plump breasts just like Ayame had done before. Once they were done, each of them lay down on either of my sides, with their thighs hugging my legs, their heads resting on my chest while looking up into my eyes, and their hands resting on my violently throbbing cock.</p>
 <p>I could see just from the curious gleaming of their eyes that it was not going to be a simple double-handjob session at all. They had something much more sinister in mind, but I couldn't exactly pinpoint what that something might be.</p>

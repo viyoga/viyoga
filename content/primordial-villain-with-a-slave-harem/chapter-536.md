@@ -28,7 +28,7 @@ chapter = 536
 <p>"Let’s leave the pleasantries aside. Who are you?"</p>
 <p>"Please call me Black."</p>
 <p>Seraphiel froze due to the unexpected developments just like I did, however, her spunk returned admirably quickly, evidenced by her sensual blowjob session resuming with full steam.</p>
-<p>"Introducing yourself using an alias to the Queen of your country doesn’t make you any less suspicious than you already are. I presume you wouldn’t know anything about the Greenvale twins and their whereabouts?" ᚱÂΝ𝔬฿Êṡ</p>
+<p>"Introducing yourself using an alias to the Queen of your country doesn’t make you any less suspicious than you already are. I presume you wouldn’t know anything about the Greenvale twins and their whereabouts?"</p>
 <p>"I saw them a few hours ago in the Grand Auction."</p>
 <p>"I’m aware. I’m also aware of the fact that they outbid you for an elf slave, after which you stormed out of the building, only for the twins to go missing not even an hour later."</p>
 <p>"Mom! Lord Black wouldn’t do anything bad like that!" Felicity spoke up in my defense before getting shut down. Experience new stories on</p>

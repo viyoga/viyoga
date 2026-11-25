@@ -32,7 +32,7 @@ chapter = 277
 <p>Their numbers had dwindled drastically, from more than a dozen to just 7 of them left. Seven versus six. The man had murdered 7 of them with his barrage of spells in a matter of seconds. An overwhelming sense of dread pressed down on them, and Katie realized they were truly facing enemies far beyond anything they'd ever fought before. The greed of their leaders had led them down a path of no return.</p>
 <p>'We should've just remained adventurers…' She thought dejectedly.</p>
 <p>To become a Phenom one had to be under 30 years of age, and while the Heralds under them could be older, they had to be weaker than the Phenom levels wise or they would not be eligible. They thought that since their leaders were young upcomers of level 14-16 they had a good chance, but…</p>
-<p>The enemy's leader gave his cold command. "Solace, how about you show us what you're made of? Scourge, Dream, you also go in. Need to get as many levels as you can." ʀＡ𐌽оβΕⱾ</p>
+<p>The enemy's leader gave his cold command. "Solace, how about you show us what you're made of? Scourge, Dream, you also go in. Need to get as many levels as you can."</p>
 <p>Katie's eyes locked onto the robed woman who unholstered her bow. But there was no arrow. Confusion twisted Katie's thoughts for a second. Is she going to fire an empty bow? Is she a nervous rookie?'</p>
 <p>Then the masked archer spoke.</p>
 <p>"[Arcane Arrow]." she murmured under her breath.</p>

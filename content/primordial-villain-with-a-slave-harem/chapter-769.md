@@ -28,7 +28,7 @@ chapter = 769
 <p>The words sank into my bones like molten lead.</p>
 <p>My penis twitched violently against her womb, demanding he be allowed inside her moist gates right this moment. Both my member and I were dying to properly explore every inch of Vex’s breathtaking flesh.</p>
 <p>I wanted to grab her, throw her down onto the floor, and claim her right here and now, but…</p>
-<p>I barely had time to think, barely had time to breathe, before she switched sides with motions that were fluid as a shadow, her breasts hiding behind the corset intimately brushing against my chest as she moved to my other ear. Ꞧἁ𝐍ƟᛒÊṧ</p>
+<p>I barely had time to think, barely had time to breathe, before she switched sides with motions that were fluid as a shadow, her breasts hiding behind the corset intimately brushing against my chest as she moved to my other ear.</p>
 <p>"You look so adorable, Quinnie… Like a puppy who does his best to be on his best behavior despite a delicious, aromatic meal being placed in front of him, loyally waiting for its master’s permission to begin feeding Vex whispered again, her breath hot and sweet and wrong in all the best ways, before she began grinding against me — slow, deliberate, sensual motions that made my cock throb so hard it hurt.</p>
 <p>The friction was maddening, dragging another broken breath from my lips, though it might be better described as a strangled growl that was caught in my throat.</p>
 <p>Then, like she was rewarding me for being her good pup, she patted my head and purred, “What a good boy”</p>

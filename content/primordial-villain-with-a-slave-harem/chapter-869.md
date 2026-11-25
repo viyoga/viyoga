@@ -26,7 +26,7 @@ chapter = 869
 <p>Before he could dwell further, a cry tore through the chaos.</p>
 <p>"HAAAAH!!”</p>
 <p>Serika.</p>
-<p>She blurred into motion. She opened with Ember Bloom: short, snapping jabs that burst on impact, each detonation blooming into a petal of orange fire. The charred fire‑servant lashed his smoking chain for her throat, but she dropped beneath it and drove a palm into his ribs. The blow should have launched him back in a blossom of heat, yet the explosion flickered, strangled mid‑flash. ℞𝖆₦ö₿Εś</p>
+<p>She blurred into motion. She opened with Ember Bloom: short, snapping jabs that burst on impact, each detonation blooming into a petal of orange fire. The charred fire‑servant lashed his smoking chain for her throat, but she dropped beneath it and drove a palm into his ribs. The blow should have launched him back in a blossom of heat, yet the explosion flickered, strangled mid‑flash.</p>
 <p>Behind her, the drowned woman glided in utter silence her Rotwater blade sweeping. Serika vaulted with her torso folding and legs scissoring up into the air, switching into her Scorchwind Vortex form.</p>
 <p>She became a spinning torch, heels carving rings of incandescent air. Where her kicks passed, the corrupted water hissed away in greasy steam, but a single droplet landed on her side. It didn’t scald; it curdled, eating at qi and flesh alike. Serika grimaced, twisting off her hands and diving down.</p>
 <p>She drove an elbow down in her third form: Tyrant Crash, turning her shoulder into a meteor. The impact cratered the stone and buried the fire‑servant to the knee, but his ash‑flame only licked hungrily up her arm, dimming the crimson of her own fire.</p>

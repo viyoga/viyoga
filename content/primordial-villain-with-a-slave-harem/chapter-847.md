@@ -26,7 +26,7 @@ chapter = 847
 <p>Another clash.</p>
 <p>This time, Quinlan swept low with a wind-enhanced dash, baiting her to counter. She obliged with a high kick that could’ve decapitated a lesser man. Quinlan ducked with flame erupting along his shoulders as he twisted and sent a geyser of fire straight at her side.</p>
 <p>Again, her hand moved in the form of a blur, and slap, the flame vanished, smothered by sheer force.</p>
-<p>"You’re rushing the mixing of elements. Fire first, then wind. You’re doing wind-then-fire. Why? Because you think it’ll be faster. But that’s not what your core wants. You’re forcing it. Sloppy!" 𝐑ΑＮꝋBĘ§</p>
+<p>"You’re rushing the mixing of elements. Fire first, then wind. You’re doing wind-then-fire. Why? Because you think it’ll be faster. But that’s not what your core wants. You’re forcing it. Sloppy!"</p>
 <p>"Not sloppy," Quinlan grunted, sliding backward to avoid her next casual palm strike. "Experimental."</p>
 <p>"Hah! Experimental? You wish!" she shot back, not willing to entertain his words. "You’ve got the Avatar’s core, I have no doubt about that now. But so what? That just means your body can theoretically handle the strain of using four elements. That doesn’t mean it knows how to do so as well."</p>
 <p>She then lunged forward and delivered a punch to his chest, making him stumble backwards while wincing strongly. "You’ve got potential, Quinlan. But so does raw ore. Doesn’t mean you can wield it like a proper blade."</p>

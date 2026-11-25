@@ -35,7 +35,7 @@ chapter = 578
 <p>"BunBun is not stupid! You’ll never let her go, you want to eat her!"</p>
 <p>I wasn’t in the mood to play this game, so I gestured toward the lionkin settlement where numerous desecrated corpses were on display.</p>
 <p>"Huh?" She gasped, shocked.</p>
-<p>"If I wanted to ’eat your juicy thighs’ as you put it, you would’ve long since been burned and cooked. Furthermore, this lady’s family was eaten by lionkin when she was a child, and my dog-girl’s family was taken by them. We’re not allied to the lionkin; in fact, we consider them as our enemies to be exterminated." ＲÅɴÔ𝔟ƐꞨ</p>
+<p>"If I wanted to ’eat your juicy thighs’ as you put it, you would’ve long since been burned and cooked. Furthermore, this lady’s family was eaten by lionkin when she was a child, and my dog-girl’s family was taken by them. We’re not allied to the lionkin; in fact, we consider them as our enemies to be exterminated."</p>
 <p>The cogs in her brain were turning painfully slowly, but I saw understanding begin shining in her eyes, alongside hope that said maybe she wouldn’t be eaten today. I didn’t know why she had an obvious fascination with being eaten alive, but I didn’t care much. To each their own.</p>
 <p>"Really?! Can BunBun trust you?"</p>
 <p>"Yes…" I nodded tiredly. "I rushed after you to gather information. We just crossed the border into the beastman lands and are tapping around in the dark, trying to gauge the political climate of this place to decide who might be able to help us."</p>

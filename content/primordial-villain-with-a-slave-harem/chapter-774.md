@@ -25,7 +25,7 @@ chapter = 774
 <p>She then finished her whispering, erupting into hearty giggles as she gave me a brilliant smile and shouted, “It feels so damn liberating! I’m so excited for our future!”</p>
 <p>My heart clenched at this mesmerizing sight of her and I returned her big grin with one of my own before I leaned down and pressed a slow, tender kiss to her forehead.</p>
 <p>"I’ll treasure you, Vex,” I murmured against her skin, my voice rough with emotion.</p>
-<p>For a moment, the two of us just stayed there, caught in the tender afterglow of our mating ritual, with her stroking my face, me wiping her tears, and both of us letting our hearts and souls coil tightly around each other. ℞ＡＮô฿Εʂ</p>
+<p>For a moment, the two of us just stayed there, caught in the tender afterglow of our mating ritual, with her stroking my face, me wiping her tears, and both of us letting our hearts and souls coil tightly around each other.</p>
 <p>However… I couldn’t let the mood stay too serene.</p>
 <p>I smirked, cocking an eyebrow in amusement.</p>
 <p>"I can’t help but wonder; why’re you looking at me like we’re done for the day?”</p>

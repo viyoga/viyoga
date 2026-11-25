@@ -31,7 +31,7 @@ chapter = 899
 <p>Proceed with Assimilation?</p>
 <p>Quinlan’s answer was almost immediate. There was only one class out of those that made him pause, the Child of Agony. It held tremendous sentimental value to him, standing as proof of his shared connection to Iris.</p>
 <p>But... Iris had already moved on. She had become more. A Child of Reckoning, now. No longer shackled by agony, but wielding it with purpose.</p>
-<p>He let the silence linger, just long enough to honor the weight of what had been. And then, with a breath that was half grief and half resolve, he made his choice. Ꞧ𝔞ƝОВΕș</p>
+<p>He let the silence linger, just long enough to honor the weight of what had been. And then, with a breath that was half grief and half resolve, he made his choice.</p>
 <p>Why cling to what was when the future demanded more?</p>
 <p>He wouldn’t abandon the memory. But he would not be ruled by it either.</p>
 <p>The class was precious not because of its power, but because of the person tied to it. And that person was still alive. Still breathing. Probably eating his food, breaking his dishes, and arguing with his women back in his home.</p>

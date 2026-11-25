@@ -32,5 +32,5 @@ chapter = 128
 <p>Blossom's dagger is also on the trashy side of things.</p>
 <p>Long story short; we need to go on a serious shopping spree.</p>
 <p>Once we get to our destination we will escalate our party's strength to a brand new height, especially if I can find a way to become a Wizard, a dream of mine I've had since I first played Elder Scr*lls Oblivion as a baby chick on my father's computer.</p>
-<p>I really hope my primordial genes will pull through and let me absorb the supposedly impossible-to-digest-as-an-adult potion, otherwise I will meet the Goddess much sooner than I had hoped. ɽАℕǑʙЕ𝐒</p>
+<p>I really hope my primordial genes will pull through and let me absorb the supposedly impossible-to-digest-as-an-adult potion, otherwise I will meet the Goddess much sooner than I had hoped.</p>
 <p>"Come, Blossom. There was a promise made between the two of us that I have yet to fulfill."</p>

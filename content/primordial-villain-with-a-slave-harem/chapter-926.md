@@ -33,7 +33,7 @@ chapter = 926
 <p>"But..." Luminara continued, smiling gently as she massaged healing oils into Serika’s shoulders. "Even the strongest people deserve pampering from time to time."</p>
 <p>"You don’t have to be strong in front of us, dear," Mearie whispered.</p>
 <p>The words struck deep.</p>
-<p>Serika opened her mouth again, but no words came. The warmth of the water, the soothing rhythm of their hands, the kindness in their tone... it all disarmed her more effectively than any sparring match. Her defenses, the ones she’d guarded with flame and fury, began to melt under the tender onslaught of turbo mommy affection. ŗΆＮɵ𐌱Ɛs</p>
+<p>Serika opened her mouth again, but no words came. The warmth of the water, the soothing rhythm of their hands, the kindness in their tone... it all disarmed her more effectively than any sparring match. Her defenses, the ones she’d guarded with flame and fury, began to melt under the tender onslaught of turbo mommy affection.</p>
 <p>Her brows furrowed. Her lips quivered.</p>
 <p>She turned to Quinlan with a silent plea in her eyes: save me! I can’t defend against these two!</p>
 <p>He caught the look and grinned devilishly, stretching lazily in the same water just a few paces away.</p>

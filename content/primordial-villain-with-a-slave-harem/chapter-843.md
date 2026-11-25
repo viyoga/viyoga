@@ -30,7 +30,7 @@ chapter = 843
 <p>"Yeah, yeah," she waved him off. "Point is, you burned your foundation in that battle, Quinlan."</p>
 <p>Her voice softened, but her words were edged with truth.</p>
 <p>"You forced yourself to keep fighting at all costs. You brute-forced transitions between elements that didn’t want to mesh yet. You overloaded your system with conflicting elemental signatures. Every attack—fire to water, earth to wind—was resisting, unstable. I could see the qi tearing into your muscles. You were coughing blood by the end."</p>
-<p>He remembered. The loss of breath control. The spikes of pain whenever he pushed for more. The hollow, grinding sensation when he tried to summon water after using fire. Elemental friction inside his meridians. The quiet chaos. ŗâＮỖ𐌱Êṥ</p>
+<p>He remembered. The loss of breath control. The spikes of pain whenever he pushed for more. The hollow, grinding sensation when he tried to summon water after using fire. Elemental friction inside his meridians. The quiet chaos.</p>
 <p>"I believe that you’ve been underutilizing the Avatar Style," she finished. "From what I can gather, it’s probably meant for flow. For seamless transitions. It’s not just about having four elements—it’s about becoming them. Maybe instead of trying to bend them to your will... You could try to become their vessel."</p>
 <p>Before Quinlan could respond, a new voice drifted in.</p>
 <p>"What acute observations you have, young lady. I’m thoroughly impressed."</p>

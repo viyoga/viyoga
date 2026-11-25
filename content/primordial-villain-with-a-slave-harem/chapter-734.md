@@ -29,7 +29,7 @@ chapter = 734
 <p>She stood just a few paces away, staring silently.</p>
 <p>Then she moved.</p>
 <p>With hesitant steps and a convincing sniffle, she shuffled forward and wrapped her arms around Natalie’s waist, nuzzling against her chest like a lost pup seeking warmth.</p>
-<p>Natalie flinched as her head turned down slowly, exhaustion making her movements sluggish. But her eyes sharpened instantly at the sight of the child clinging to her registered in her brain. ṘÄ₦𝐎ꞖÈS̈</p>
+<p>Natalie flinched as her head turned down slowly, exhaustion making her movements sluggish. But her eyes sharpened instantly at the sight of the child clinging to her registered in her brain.</p>
 <p>"Oh, sweetheart she whispered, pulling Kitsara gently into her arms. “Are you alright? Where’s your mommy? Is she… asleep?”</p>
 <p>Her voice was hoarse yet soft. Warm. Like fresh blankets in winter. Like the kind of mom who still tried to smile even when everything was falling apart so that those around her could feel at least an iota of confidence and hope toward a brighter tomorrow.</p>
 <p>Knowing this wasn’t the time for make-believe, Kitsara reached up to touch Natalie’s cheeks with both tiny hands and looked her square in the eye.</p>

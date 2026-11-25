@@ -47,7 +47,7 @@ chapter = 820
 <p>Then he split apart.</p>
 <p>The corpse hit the ground in two charred halves.</p>
 <p>Quinlan let out a breath.</p>
-<p>He’d just upgraded the old man’s Blazing Tyrant Fist style, adding his own flair to it. As the new forms no longer depended on his fists, Quinlan decided to honor the old man by simply calling it Blazing Tyrant Style. He didn’t wish to take away from the fact that it was that disabled geezer who helped him out so damn much. 𝔯Â₦Ȫ𝐁ËＳ</p>
+<p>He’d just upgraded the old man’s Blazing Tyrant Fist style, adding his own flair to it. As the new forms no longer depended on his fists, Quinlan decided to honor the old man by simply calling it Blazing Tyrant Style. He didn’t wish to take away from the fact that it was that disabled geezer who helped him out so damn much.</p>
 <p>Without him, Quinlan wouldn’t know where he would be right now.</p>
 <p>As for why he could evolve the style so freely?</p>
 <p>Simple.</p>

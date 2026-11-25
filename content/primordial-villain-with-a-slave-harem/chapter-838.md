@@ -29,7 +29,7 @@ chapter = 838
 <p>Even back in Thalorind, with his Avatar of the Elements class at his disposal, he didn’t feel such a tranquil balance in his body. It felt as if he’d been reborn anew.</p>
 <p>Quinlan instinctively knew that he would become a real monster once he was done with this Primordial Rank-Up Mission. A bigger monster than what he became after the previous trials combined.</p>
 <p>He rose to his feet.</p>
-<p>The power circulating through him no longer roared but sang, each element weaving harmoniously with the others. His body no longer felt like it was about to split apart at the seams. Instead, it thrummed like a perfectly tuned instrument, just waiting to be played. řаƝǒΒЁṨ</p>
+<p>The power circulating through him no longer roared but sang, each element weaving harmoniously with the others. His body no longer felt like it was about to split apart at the seams. Instead, it thrummed like a perfectly tuned instrument, just waiting to be played.</p>
 <p>He clenched and unclenched his fists, feeling the warmth of fire, the chill of water, the weight of earth, and the speed of wind—all balanced within his frame.</p>
 <p>"Let’s see how far I can take this..."</p>
 <p>He began with a single fire punch of the Blazing Tyrant Fist’s Third Form. The one meant to overcome defenses by overwhelming offense. Muscle memory took over. His stance widened, shoulders squared, fists raised.</p>

@@ -24,7 +24,7 @@ chapter = 915
 <p>Mearie giggled. "Exactly! He may grumble more than he really should, but our dear Malakar is as useful as he is old."</p>
 <p>Malakar sighed heavily, muttering under his breath. "Tch..."</p>
 <p>Quinlan’s smirk returned.</p>
-<p>He gave a small nod, recognizing exactly what his mothers were hinting at. If anyone could weave a temporary solution against the oppressive divine atmosphere here, it was this grouchy ancient fucker. ȒãΝ𝔬₿ЁⱾ</p>
+<p>He gave a small nod, recognizing exactly what his mothers were hinting at. If anyone could weave a temporary solution against the oppressive divine atmosphere here, it was this grouchy ancient fucker.</p>
 <p>He flexed his fingers again.</p>
 <p>"Alright then..." he murmured. "Let’s see if it works."</p>
 <p>Both mothers clasped their hands in front of their ginormous chests, bouncing in place with glowing, eager eyes as their hearts beat a million times a second. This was a moment they didn’t dare hope they’d ever get to experience in their lives again.</p>

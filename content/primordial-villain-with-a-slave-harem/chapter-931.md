@@ -34,7 +34,7 @@ chapter = 931
 <p>They were proper combatants now, here to rise to the very top.</p>
 <p>Soon, the thick canopy of the forest opened, parting away to reveal a new sight.</p>
 <p>Through the shafts of evening light filtering through the treetops, their home finally came into view.</p>
-<p>The stronghold had grown since Quinlan’s departure. New watchtowers now stood tall. The great mansion remained the centerpiece, an elegant estate brimming with power and grace, but it was the large, living tree beside it that truly stole attention. ṟάɴȫᛒĘⱾ</p>
+<p>The stronghold had grown since Quinlan’s departure. New watchtowers now stood tall. The great mansion remained the centerpiece, an elegant estate brimming with power and grace, but it was the large, living tree beside it that truly stole attention.</p>
 <p>Rosie’s tree.</p>
 <p>Glowing with a myriad of magical lights, its heartwood pulsed with life, its leaves shining magnificently. Hanging lanterns swung from its branches, placed there by various women to give Rosie an even more unique flair.</p>
 <p>Suddenly...</p>

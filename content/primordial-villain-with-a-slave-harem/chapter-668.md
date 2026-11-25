@@ -33,7 +33,7 @@ chapter = 668
 <p>But so what? I would still be here. I would still remember this moment with perfect clarity.</p>
 <p>A single shred of hesitation, the faintest flicker of doubt, and my lovers would come into harm's way.</p>
 <p>Skarn and Rajah weren't bluffing.</p>
-<p>They were seasoned predators, killers who had honed their instincts through countless battles. If they sensed even the idea of deception in my heart, they would pounce, consequences be damned. No amount of power or ambition was worth the lives of my girls or the wonderful life I was carving out for myself in this amazing world. ṛÂＮÖ𝐁ĚS</p>
+<p>They were seasoned predators, killers who had honed their instincts through countless battles. If they sensed even the idea of deception in my heart, they would pounce, consequences be damned. No amount of power or ambition was worth the lives of my girls or the wonderful life I was carving out for myself in this amazing world.</p>
 <p>I inhaled, steadying my pulse, willing my mind into serene stillness.</p>
 <p>This was not defeat but adaptation, the specialty of my race.</p>
 <p>Ruling the beastkin wasn't an immediate necessity. The world was vast—Thalorind would be mine regardless.</p>

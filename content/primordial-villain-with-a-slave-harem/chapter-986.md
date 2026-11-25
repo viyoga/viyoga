@@ -30,7 +30,7 @@ chapter = 986
 <p>A nightmare in flesh.</p>
 <p>Raika.</p>
 <p>Black Fang’s fist, her loyal enforcer, or rather, rabid dog.</p>
-<p>She had visited him once. That woman stood in this very estate, letting her bloodthirst fill the room with such terrifying killing intent that he couldn’t sleep for a week. He vomited blood for three days. Couldn’t eat for five. His healers thought he was cursed. ŔãꞐỔΒĚș</p>
+<p>She had visited him once. That woman stood in this very estate, letting her bloodthirst fill the room with such terrifying killing intent that he couldn’t sleep for a week. He vomited blood for three days. Couldn’t eat for five. His healers thought he was cursed.</p>
 <p>Her words echoed even now in his head:</p>
 <p>"Leave Devil alone. He belongs to Lady Black Fang. If you interfere again, I’ll bash your skull in."</p>
 <p>He had obeyed!</p>

@@ -22,7 +22,7 @@ chapter = 373
 <p>"Thank you for all that you've done for us. I would like to make our alliance into a long-term one, but I know that you're unable to trust me for now. Therefore, I would like to clean up my name and introduce myself to you formally. As the first step toward earning your trust, I invite you to my home. I swear on Luminara and the Goddess that I made no lies nor do I harbor any ill-will to you or your Heralds."</p>
 <p>"You don't have the right to use the first elf's name to make promises. Only elves can." She growled threateningly.</p>
 <p>Well, I mean, she is my mother, but sure.</p>
-<p>"I promise too!" Seraphiel interjected cheerily, happily slinging my beloved mother's name around as if she were common trash - or a stupid religious myth as she believed Lumi to be. Boy, did I have some news for this smug healer of mine. ṙÄΝοᛒÈ𝐒</p>
+<p>"I promise too!" Seraphiel interjected cheerily, happily slinging my beloved mother's name around as if she were common trash - or a stupid religious myth as she believed Lumi to be. Boy, did I have some news for this smug healer of mine.</p>
 <p>"What do you say? [Warp Gate]" I asked while opening a portal to my home where Ronan and Iselda should be busy constructing our buildings with the labor slaves.</p>
 <p>"What the?!" Ambition and her elves yelped one after the other.</p>
 <p>"So this is the portal…" Iris murmured. I instructed Blossom on exactly what to tell her while I was fighting the Phantom League soldiers in real-time, so I could only hope that my beloved dog-kin could at least get the gist of my message across.</p>

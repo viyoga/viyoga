@@ -29,7 +29,7 @@ chapter = 246
 <p>"Lord Quinlan, I'm truly grateful…" She whispered into my ears somberly.</p>
 <p>"It will hurt for a bit, but it's finally over, Beatrice. Now, you can begin healing your wounded heart. Inform me or Ayame if you need any sort of assistance."</p>
 <p>I then couldn't help but snicker while glancing back at the girl resting on my back comfortably. "You know that I can open a portal wherever, right? We don't need to go back to the tree in front of Aldoria again."</p>
-<p>Her eyes widened slightly at the revelation, and her cheeks began to redden. It's good to see another emotion on her face other than crippling grief. Well, she can stay up there for a short while longer if she wants. "[Warp Gate]" 𝘳ÀꞐОBЕs</p>
+<p>Her eyes widened slightly at the revelation, and her cheeks began to redden. It's good to see another emotion on her face other than crippling grief. Well, she can stay up there for a short while longer if she wants. "[Warp Gate]"</p>
 <p>And just as so, we were back in the twins' room. My passenger reluctantly climbed off, then bowed towards me subserviently for good measure. I thought of offering her my company for the night- purely for sleeping, of course- but decided against it. Instead, I gestured for her to climb into the bed of her sister.</p>
 <p>They've been through this together all this while, so Anna is the best solace she could find.</p>
 <p>Or so I believe.</p>

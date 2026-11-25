@@ -27,7 +27,7 @@ chapter = 743
 <p>"You have to come back alive.”</p>
 <p>Darius turned his head and flashed a grin that was both wolfish and warm all at once. “Course I will. Who do you take me for? It’s about time I beat Father in a duel and become the next ruler of our people.”</p>
 <p>Her lip trembled, and she gave a tight, quick nod.</p>
-<p>And with that, he was gone, storming off to meet the incoming horde with his veterans at his back: those same grizzled, weather-beaten old bastards who had once walked out of the inferno of Emberfang like nothing could touch them after being thrown into the midst of the giant chaos made up of rampaging warbeasts and lionkin thanks to my [Warp Gate]. Ɍâ𐌽Ò฿Ęṡ</p>
+<p>And with that, he was gone, storming off to meet the incoming horde with his veterans at his back: those same grizzled, weather-beaten old bastards who had once walked out of the inferno of Emberfang like nothing could touch them after being thrown into the midst of the giant chaos made up of rampaging warbeasts and lionkin thanks to my [Warp Gate].</p>
 <p>Darius’s earlier theory about the battlefield’s direction was already proving true.</p>
 <p>Maelstrom had begun barking orders. His units were moving away from the frontlines toward the rear, where the Covenant’s forces surged like a plague of rot across the hills and plains. The syndicate’s army general must’ve known that his members were the best equipped to face the dark magic of the opposing syndicate.</p>
 <p>Their formation adjusted with the experience of a thousand battles fought. Pikes realigned. War mages relocated to anti-necromantic formations. Wardens activated relics made to combat the undead.</p>

@@ -46,7 +46,7 @@ chapter = 897
 <p>It was purpose.</p>
 <p>It was love.</p>
 <p>It was life.</p>
-<p>The corrupted Seeds—those invasive, malignant parasites—writhed in sudden panic. They had dug into his soul, eaten away at his strength, waited for the right moment to bloom and devour what was left. ṟаƝò𐌱Ěș</p>
+<p>The corrupted Seeds—those invasive, malignant parasites—writhed in sudden panic. They had dug into his soul, eaten away at his strength, waited for the right moment to bloom and devour what was left.</p>
 <p>But now?</p>
 <p>Now there was no space left for them to claim.</p>
 <p>Because Quinlan’s soul was no longer a confined vessel.</p>

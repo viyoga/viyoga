@@ -31,7 +31,7 @@ chapter = 976
 <p>"I’m ready!" Feng shouted from afar, magic crackling around her as she forced her unsteady cannon to behave.</p>
 <p>"Understood!" Kitsara shouted.</p>
 <p>The foxkin’s hands blurred as she weaved a pattern of false images around Sareth. Two Blossoms now danced through the chaos, with two Quinlans flanking her, two Vexes whispering curses under their breath.</p>
-<p>Vex chanted low and sharp, her voice layered in malice. "[Crux of Damnation: Nerve Rot.]" A needle of hex slammed into Sareth’s spine, making her falter just a hair. ṛΑɴꝋΒЁş</p>
+<p>Vex chanted low and sharp, her voice layered in malice. "[Crux of Damnation: Nerve Rot.]" A needle of hex slammed into Sareth’s spine, making her falter just a hair.</p>
 <p>&lt;Blossom strikes now!&gt; the dogkin announced into their minds.</p>
 <p>And she did.</p>
 <p>Descending like a specter of vengeance, claws brimming with lethal magic, she drove her entire weight down toward the Warden’s exposed back.</p>

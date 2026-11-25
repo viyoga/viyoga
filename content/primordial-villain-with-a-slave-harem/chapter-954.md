@@ -43,7 +43,7 @@ chapter = 954
 <p>The scents, the emotions, the teasing... it all blended into one palpable, almost suffocating wave of feminine affection and want.</p>
 <p>And at the center of it all... stood Quinlan.</p>
 <p>Their man.</p>
-<p>The one whod fought for them, laughed with them, protected them, and returned from a world far away, stronger than ever, ready to claim them all over again. ŗАN𝙤฿Ęʂ</p>
+<p>The one whod fought for them, laughed with them, protected them, and returned from a world far away, stronger than ever, ready to claim them all over again.</p>
 <p>His throat bobbed in a hard swallow.</p>
 <p>Quinlan let out a shaky breath, then cracked his neck with a roll of his shoulders, letting a slow, cocky grin stretch across his face.</p>
 <p>"Well... if thats the mood tonight..."</p>

@@ -36,7 +36,7 @@ chapter = 844
 <p>And stopped a hair’s breadth from her skin.</p>
 <p>The air between steel and flesh practically sizzled.</p>
 <p>Then, Quinlan spoke.</p>
-<p>"If you truly want to repent, then you’ll start by telling us everything about the old man. Who he is, why he betrayed me, and why you decided to arrest me on the spot. No riddles. No politics. Just the truth." ṚᴀŊΟ𝖇Èṡ</p>
+<p>"If you truly want to repent, then you’ll start by telling us everything about the old man. Who he is, why he betrayed me, and why you decided to arrest me on the spot. No riddles. No politics. Just the truth."</p>
 <p>He lowered the blade.</p>
 <p>"And after that, you’ll become my teacher."</p>
 <p>Serika blinked, stunned.</p>

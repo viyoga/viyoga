@@ -29,7 +29,7 @@ chapter = 973
 <p>This was beyond merely being outclassed. This was her being brought to a state of utter helplessness.</p>
 <p>"...S-sorry, guys..." she mumbled through cracked lips. "I-I can’t..."</p>
 <p>And she collapsed to her knees, barely catching herself with a trembling palm.</p>
-<p>Sareth flashed a little cocky smirk at the sight of Feng crumbling to her knees. She wasn’t one to boast during her battles, but having her mighty spell dispelled by this child didn’t sit right with the woman, leaving a sour taste on her tongue. It had to be corrected. ȒΑɴоᛒƐṨ</p>
+<p>Sareth flashed a little cocky smirk at the sight of Feng crumbling to her knees. She wasn’t one to boast during her battles, but having her mighty spell dispelled by this child didn’t sit right with the woman, leaving a sour taste on her tongue. It had to be corrected.</p>
 <p>"I knew you Greenvales were one pathetic breed of human scum," Vex spat out, dragging her blade into a ready stance. Her breathing was shallow, sweat glistening on her collarbones, but her eyes held fire. "But even I didn’t dare assume this much... Why don’t you try bullying me instead of a literal kid, you saggy cunt?"</p>
 <p>Sareth’s emerald gaze slid toward the Hexwitch with a chilling calm.</p>
 <p>"As you wish."</p>

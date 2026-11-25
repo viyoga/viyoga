@@ -32,7 +32,7 @@ chapter = 90
 <p>"You make it sound so lewd… I know you are doing it on purpose!" Ayame regains some of her spunk as she angrily rebuts me.</p>
 <p>"Shh… Shh…Everything will be fine. Just leave it to me." I make soothing sounds while stroking her dark hair lovingly.</p>
 <p>"Grr!" She growls, "are you forgetting that my contra-"</p>
-<p>I interrupt Ayame and silence her by putting a finger on her delicate lips. "I know about all your contract clauses and also that you only promised to sleep in my embrace, nothing less, nothing more, and I will honor everything." ℟ÃΝÓ𝐁Εṣ</p>
+<p>I interrupt Ayame and silence her by putting a finger on her delicate lips. "I know about all your contract clauses and also that you only promised to sleep in my embrace, nothing less, nothing more, and I will honor everything."</p>
 <p>She lifts her head and looks me in the eyes for a good while, ascertaining the validity of my words for herself, then finally relents; "good. Now stop petting me and let go. You have a literal dog-girl at home who loves your pats, so stroke her head, not mine."</p>
 <p>I chuckle, "are you sure that's what you want? From what I see you are trying really hard to suppress yourself from showing signs of pleasure- or perhaps comfort would be the more accurate word here- while I'm doing this."</p>
 <p>"I'm absolutely certain and you are also seeing things wrong." She states with total confidence.</p>

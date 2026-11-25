@@ -23,7 +23,7 @@ chapter = 189
 <p>I chuckle, "told you, she is a special one."</p>
 <p>Blossom's chest's heaving and body's trembling lessened after a few dozen seconds, and she no longer leaked any liquids. "Master…" She mouths my name in a blissful tone. I pet her head gently.</p>
 <p>"Alright Blade, roll the sock into a ball and throw it to the doggie. Make sure you don't hit it directly."</p>
-<p>She looks at me with cold eyes, "just for the record, I hate you." She says then does as told. I snicker at her adorable reaction. Read first at NovelFire _em _pyr. 𝐫₳Ŋŏ฿Ê𝘴</p>
+<p>She looks at me with cold eyes, "just for the record, I hate you." She says then does as told. I snicker at her adorable reaction. Read first at NovelFire _em _pyr.</p>
 <p>I know she doesn't really mean it.</p>
 <p>While Ayame stands to complete her task, I touch Blossom's chin and turn her neck towards me, then Envelop her in my embrace as we kiss deeply once again.</p>
 <p>Gotta get her ready for round two.</p>

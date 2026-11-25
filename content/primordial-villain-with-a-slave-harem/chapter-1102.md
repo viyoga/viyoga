@@ -28,7 +28,7 @@ chapter = 1102
 <p>Curling around her waist like a belt.</p>
 <p>Coiling up across her chest, pressing against her breasts as it wound its way higher.</p>
 <p>None of the girls dared to breathe.</p>
-<p>Finally, it reached her face. Black Fang tilted her head to the side with the slightest of movements, exposing the pale skin of her throat. Without a moment’s hesitation, the serpent widened its jaw and sank its fangs into her flesh. ŖАℕꝊᛒЕS</p>
+<p>Finally, it reached her face. Black Fang tilted her head to the side with the slightest of movements, exposing the pale skin of her throat. Without a moment’s hesitation, the serpent widened its jaw and sank its fangs into her flesh.</p>
 <p>The response was immediate.</p>
 <p>Her entire body shuddered as if struck by lightning. Her veins darkened beneath her skin, purple and black lines racing outward. Blood gushed from her wounds all at once, spraying onto the dirt in a grotesque flood.</p>
 <p>But she never flinched.</p>

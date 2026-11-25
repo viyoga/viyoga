@@ -29,7 +29,7 @@ chapter = 919
 <p>But then, both mothers shifted in their seats with fluid elegance. In perfect sync, Mearie and Luminara crossed one leg over the other, their velvety dresses sliding just enough to reveal their juicy thighs.</p>
 <p>Feng stared.</p>
 <p>Unashamedly.</p>
-<p>There was a faint, unmistakable flicker of envy in her expression as her eyes flicked back and forth between the two elder primordials’ legs, then to her own. She tugged her robes down instinctively, as if that might somehow help. ꞦΆ𝐍ồ𝖇ЕŞ</p>
+<p>There was a faint, unmistakable flicker of envy in her expression as her eyes flicked back and forth between the two elder primordials’ legs, then to her own. She tugged her robes down instinctively, as if that might somehow help.</p>
 <p>The two primordials’ gazes briefly met across the wine-lit chamber, and they gave each other the smallest of nods.</p>
 <p>Then, as one, they turned toward Serika and Feng with soft, charming smiles.</p>
 <p>"We’re truly, deeply glad to have you both here," Luminara began gently.</p>

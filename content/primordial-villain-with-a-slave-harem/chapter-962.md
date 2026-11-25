@@ -33,7 +33,7 @@ chapter = 962
 <p>"...have every intention of capitalizing on it."</p>
 <p>A knock echoed against the thick oak doors.</p>
 <p>"Your Grace," a servant called from beyond. "Lady Amara and Lady Vivienne request entry."</p>
-<p>Alastair’s brows furrowed. "They should know very well that they’re not authorized to be in here during wartime councils..." he muttered, instinctively glancing toward his commanders, who exchanged knowing looks but wisely stayed silent. 𝘳𝓪ɴo͍ВÈS</p>
+<p>Alastair’s brows furrowed. "They should know very well that they’re not authorized to be in here during wartime councils..." he muttered, instinctively glancing toward his commanders, who exchanged knowing looks but wisely stayed silent.</p>
 <p>Before he could refuse, a softer voice piped through the door. It was small and fragile.</p>
 <p>"...Father... I... I had the nightmares again..." Vivienne’s voice trembled, the kind of vulnerable quiver only a daughter could wield against a battle-hardened duke.</p>
 <p>The steel in his spine melted.</p>

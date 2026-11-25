@@ -23,7 +23,7 @@ chapter = 621
 <p>I didn’t like what I was hearing. "Be nice to your future in-laws."</p>
 <p>"Hehe, apologies." She did not seem apologetic one bit. "Truth be told, I don’t even know the names of my own subordinates. I just call Orianna to instruct them…"</p>
 <p>"The more I hear about the drug department, the more chaotic it sounds. I imagine Raika is an ever worse leader."</p>
-<p>"Don’t even get me started…" she giggled before an idea struck her delicate little head. "Speaking of Orianna…" A sly grin emerged on Vex’s features as she brought a communication artifact from her ring and imbued her mana into a pink crystal embedded on its surface. Ȑ𝔞ꞐőΒЁＳ</p>
+<p>"Don’t even get me started…" she giggled before an idea struck her delicate little head. "Speaking of Orianna…" A sly grin emerged on Vex’s features as she brought a communication artifact from her ring and imbued her mana into a pink crystal embedded on its surface.</p>
 <p>"I’m busy." Although I only heard this woman speak a few times, her voice was unmistakable. Orianna was an all-business no nonsense type of gal.</p>
 <p>"Don’t you have some time to spare for your adorable little sister? I’ve been missing you!"</p>
 <p>"No."</p>

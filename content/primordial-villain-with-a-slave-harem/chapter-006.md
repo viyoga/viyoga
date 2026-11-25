@@ -28,7 +28,7 @@ chapter = 6
 <p>Intelligence (INT): Enhances magical power, Mana Points (MP), and the effectiveness of spells.</p>
 <p>Vitality (VIT): Raises Health Points (HP) and resilience.</p>
 <p>Wisdom (WIS): Improves mana regeneration, spell casting speed, and resistance to magical effects.</p>
-<p>Pretty straightforward. If I want to become a mage-type, then I would need to invest heavily into all besides Strength. If there are mages in the first place that is, and I can unlock such a class… ℞Ａɴɵ𝐁Ęs̈</p>
+<p>Pretty straightforward. If I want to become a mage-type, then I would need to invest heavily into all besides Strength. If there are mages in the first place that is, and I can unlock such a class…</p>
 <p>There's no chance I will not invest in Agility or Vitality, no matter what build I go for. Speed is perhaps the most important stat in my opinion; I would bet on Flashy Flash over Darkshine any day of the week.</p>
 <p>And, well, Vitality increases my HP so that is an obvious must. I highly doubt I can just respawn after death so I can't become some glass-cannon type. One trap or sneak attack and I'm a goner.</p>
 <p>I drift off merrily into dreamland, with such a happy expression plastered all over my face that I probably haven't wore since I grew up. My childlike wonder and excitement is back in full force.</p>

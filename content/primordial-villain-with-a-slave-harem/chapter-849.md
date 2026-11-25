@@ -29,7 +29,7 @@ chapter = 849
 <p>Pouted.</p>
 <p>Glared.</p>
 <p>Pouted harder.</p>
-<p>She sat with her arms hugging her knees, cheeks puffed and eyes narrowed like a sulking cat watching her favorite lap be taken by someone else. She tried to look uninterested, but her foot tapped the grass in impatient irritation. Ɍ𝘢Ꞑo͍ᛒЕS</p>
+<p>She sat with her arms hugging her knees, cheeks puffed and eyes narrowed like a sulking cat watching her favorite lap be taken by someone else. She tried to look uninterested, but her foot tapped the grass in impatient irritation.</p>
 <p>Quinlan didn’t even notice.</p>
 <p>Not when Serika reached up to push her damp hair aside, revealing the graceful slope of her neck. Not when he followed the invitation and let his hands slide higher again.</p>
 <p>Feng bit her lower lip, scowling to herself. It wasn’t fair. So what if she didn’t have thighs that could crush spirits or abs hard enough to bounce arrows off of? She had charm. She had personality. She had...</p>

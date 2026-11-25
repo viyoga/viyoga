@@ -28,7 +28,7 @@ chapter = 474
 <p>I became the hunter.</p>
 <p>A sick smile emerged on my features as I parted my jaws wide to euphorically shout; "[Magma Burst]!!!"</p>
 <p>The eruption was instantaneous and devastating. A massive wave of molten fury surged from my body, consuming everything in its wake.</p>
-<p>The fiery explosion immediately obliterated Anivia as its crystalline body fractured and rapidly dissolved into steam and molten fragments before vanishing into the searing heat. ŗÀΝỘᛒЕṩ</p>
+<p>The fiery explosion immediately obliterated Anivia as its crystalline body fractured and rapidly dissolved into steam and molten fragments before vanishing into the searing heat.</p>
 <p>Magma quickly proved itself to be the true counter to the ice element.</p>
 <p>The icy pillar Kael had conjured below me melted just like the summoned bird within mere moments as it was reduced to a bubbling puddle while I descended through the carnage like a living meteor.</p>
 <p>The arena shook under the force of the explosion and the multiple protective barriers that were stacked on top of each other to allow even an Elemental Sovereign to go all out began flickering wildly as they tried to contain the devastation.</p>

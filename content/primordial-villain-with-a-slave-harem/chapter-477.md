@@ -30,7 +30,7 @@ chapter = 477
 <p>Azura didn't press the attack, stepping back instead and regarding her opponent with complete detachment.</p>
 <p>"You wield pain as a weapon, but you're just too outmatched."</p>
 <p>"I thought…" Iris gasped between labored breaths, "that you were not a loser yapper like Kael… You quickly proved me wrong…"</p>
-<p>Iris's whole existence ached as she struggled to stay upright. Her body was battered and her blood stained the arena floor, but her resolve burned brighter than ever. 𝘳ἈΝȰ𐌱Ëᶊ</p>
+<p>Iris's whole existence ached as she struggled to stay upright. Her body was battered and her blood stained the arena floor, but her resolve burned brighter than ever.</p>
 <p>She knew Azura was right - she was outmatched in every way.</p>
 <p>But she couldn't back down. Not now. Not ever. For Damian, for the promise she made to herself, she would keep fighting, no matter the cost.</p>
 <p>However, she was not the princess of a fairy tale. Reality was a sadistic, cruel mistress ever since she could remember. Princess…? No, she was just an irrelevant side character with her own little problems that mattered not in the grand scheme of things.</p>

@@ -41,7 +41,7 @@ chapter = 718
 <p>"Mom!"</p>
 <p>My acute senses picked up on a hushed whisper coming from close behind me.</p>
 <p>I twirled around instantly.</p>
-<p>Two lionkin women stood before me, draped in noble dresses. One was visibly older than the other. Based on their earlier words, it must've been a mother-daughter pair. 𝙍Å𝐍ộ𝐛ƐṢ</p>
+<p>Two lionkin women stood before me, draped in noble dresses. One was visibly older than the other. Based on their earlier words, it must've been a mother-daughter pair.</p>
 <p>The mother's face contorted as she lunged at me with her claws bared and a snarl ripping from her throat.</p>
 <p>She was fast. But after the warriors I'd just finished fighting, she wasn't fast enough.</p>
 <p>With an effortless kick, I slammed my foot into her stomach.</p>

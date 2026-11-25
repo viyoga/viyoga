@@ -35,7 +35,7 @@ chapter = 707
 <p>No hordes of dogkin warriors.</p>
 <p>Just a group of… twenty-five?</p>
 <p>His fur bristled. His golden eyes darted from figure to figure, confusion mounting.</p>
-<p>A handful of dogkin warriors stood a long distance from the walls, idly observing Emberfang. There were just twelve of them, no more. Eleven of them bore the hardened gazes of seasoned veteran fighters Var'Zhul was all too familiar with. He recognized their first prince, Darius, even from the large distance separating them. The final dogkin was vastly different. Her blonde tail was wildly wagging behind her as she observed the city, marking her extreme excitement. At what, Var'Zhul didn't quite understand. ɌаƝốʙƐ𝐬</p>
+<p>A handful of dogkin warriors stood a long distance from the walls, idly observing Emberfang. There were just twelve of them, no more. Eleven of them bore the hardened gazes of seasoned veteran fighters Var'Zhul was all too familiar with. He recognized their first prince, Darius, even from the large distance separating them. The final dogkin was vastly different. Her blonde tail was wildly wagging behind her as she observed the city, marking her extreme excitement. At what, Var'Zhul didn't quite understand.</p>
 <p>And then there were the others.</p>
 <p>A white-haired foxkin whose lips adorned an extreme smug smile. Her long ears twitched as she whispered something to Darius, who was watching the ongoings with wry eyes. Then, there were also a few elves thrown into the mix. Despite their masks, their barefoot status perfectly signaled their race made up of foot fetishist weirdos. The rest… No beastkin features, no naked feet... "Humans?! What in the name of the glorious Sunfang is this group setup?!"</p>
 <p>*Crrkkk!!*</p>

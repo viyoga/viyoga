@@ -25,7 +25,7 @@ chapter = 374
 <p>It was time to make the grand revelation.</p>
 <p>"The reason I can converse with the Geim species is that I'm not a mortal."</p>
 <p>"H-huh?" Hushed questions and voices of sheer disbelief erupted in the audience.</p>
-<p>"I'm a creation of the gods, a primordial." As I said that I summoned forth my status screen, and summoned a second window which detailed what the primordial race was. ɽἈΝ∅ᛒЕ𝐒</p>
+<p>"I'm a creation of the gods, a primordial." As I said that I summoned forth my status screen, and summoned a second window which detailed what the primordial race was.</p>
 <p>As the newcomers were busy reading - and trying to grasp - what was written there, Ayame quickly spoke up. "Creation of the gods? What gods? There are more divine existences beyond the Goddess? And you were created by them? Why was I not informed of this world-shattering information?!"</p>
 <p>"Yeah, not cool, baby." Lucille voiced her agreement with my disheartened samurai.</p>
 <p>"I will get to it soon. Please give me some time to bring the others up to speed."</p>

@@ -30,7 +30,7 @@ chapter = 140
 <p>I'm not going to be cruel and send her away to be in her lonesome, I'm sure she will develop independence as the days pass- well, if she doesn't that's also fine with me. I like clingy girls. No, that's not entirely correct.</p>
 <p>I absolutely love them.</p>
 <p>We decide to meet back at the town square in four hours, after which Ayame departs, accompanied with a smaller coin pouch.</p>
-<p>This time, I don't ask what Blossom wants to do, since I already know the answer, which would be a cute, energetic shout of 'Whatever Master wants!' So instead I decide to finally lose my wild mane by visiting a hairdresser. 𐍂𝘈𝐍Ộ₿ΕS̈</p>
+<p>This time, I don't ask what Blossom wants to do, since I already know the answer, which would be a cute, energetic shout of 'Whatever Master wants!' So instead I decide to finally lose my wild mane by visiting a hairdresser.</p>
 <p>As we walk the streets in our search I suddenly halt in my steps and glance at my gorgeous dog-kin's scalp. "Wait, how do you maintain your hair? I highly doubt that Boareater paid for a professional to cut it…"</p>
 <p>"Blossom cuts her own hair with her dagger!" She replies cheerily.</p>
 <p>Seriously? But it looks so well-done, I never would've guessed that it not only isn't cut by a barber but also by crude daggers instead of scissors specifically made for the task.</p>

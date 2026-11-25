@@ -30,7 +30,7 @@ chapter = 773
 <p>She was ready to begin.</p>
 <p>Which was perfectly evidenced when she reached out with both hands and wrapped them around my cock, cradling it like something sacred.</p>
 <p>The moment her fingers closed around me, the ritual circle beneath the mattress stirred to life.</p>
-<p>Red lines etched in the ground flared into brilliance, snaking outward, encircling us both in a cage of magic. Symbols of various hexes flickered into existence around us. They were not only intricate and beautiful, but they also pulsated in rhythm with her heartbeats, which I could notice thanks to my hands caressing her sensual breasts. This displayed how in-tune she was with this magical phenomenon. ṛ𝘢𝐍Ồ฿Ěṣ</p>
+<p>Red lines etched in the ground flared into brilliance, snaking outward, encircling us both in a cage of magic. Symbols of various hexes flickered into existence around us. They were not only intricate and beautiful, but they also pulsated in rhythm with her heartbeats, which I could notice thanks to my hands caressing her sensual breasts. This displayed how in-tune she was with this magical phenomenon.</p>
 <p>The hex marks she had earlier placed onto my skin back when she was still in her sexy corset lit up all at once, materializing lines of fiery red that raced across my body.</p>
 <p>Throughout all this, Vex’s crimson eyes never wavered from mine. Even as her small hands guided me down, lining the blunt head of my cock against her soaked, waiting entrance.</p>
 <p>Then, she spoke. Her trembling voice was overcome with emotion, signaling just how significant this moment was for her.</p>

@@ -26,7 +26,7 @@ chapter = 945
 <p>"Here." He handed the ladies a heavy pouch of coins, then winked. "Go nuts."</p>
 <p>"Valorian?" Seraphiel asked, already preparing her slave collar, the leash of which she handed to Vex.</p>
 <p>"Valorian," Quinlan confirmed.</p>
-<p>With that, he activated the [Warp Gate], sending the girls through one by one to the grand capital of the nation. Shopping, spellcraft, scandalous surprises... they were going to make the celebration something worth remembering. ṝÀɴɵᛒЕS̩</p>
+<p>With that, he activated the [Warp Gate], sending the girls through one by one to the grand capital of the nation. Shopping, spellcraft, scandalous surprises... they were going to make the celebration something worth remembering.</p>
 <p>Once the light faded, only four remained.</p>
 <p>Iris. Lyra. Feng. Serika.</p>
 <p>Quinlan turned to the two girls hed known the longest out of the four.</p>

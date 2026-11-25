@@ -23,7 +23,7 @@ chapter = 135
 <p>However, should we join a syndicate, rise through its ranks, consolidate our power and refine its inner structure to fit our needs, I can see a future where I can use the Vesper Consortium to propel myself into becoming one of the continent's biggest names in just a few years of effort.</p>
 <p>As we continue, the streets become narrower, the buildings taller and more refined. The noise of the market fades behind us, replaced by the quieter hum of wealthier districts. Finally, we arrive in front of an elegant three-story building nestled among the more prestigious shops and homes of the city.</p>
 <p>The establishment is grand, its stone fa?ade adorned with intricate carvings and polished to a high shine. Large windows display fine goods- luxury items that only the richest in Braedon could afford.</p>
-<p>Broderick stops at the entrance, a pair of double doors framed by heavy velvet curtains. The sign above reads The Velvet Merchant, written in flowing script. It's the kind of place where people come to spend money discreetly, where secrets are traded as easily as gold. Ŕ𝒶ŊÖ₿Εꞩ</p>
+<p>Broderick stops at the entrance, a pair of double doors framed by heavy velvet curtains. The sign above reads The Velvet Merchant, written in flowing script. It's the kind of place where people come to spend money discreetly, where secrets are traded as easily as gold.</p>
 <p>"Here we are." Broderick says, turning to us. "Bro, don't forget. Keep your foul mouth in check."</p>
 <p>"I have no clue whatever you might be talking about."</p>
 <p>"Bahahaha! Well, you've been warned!"</p>

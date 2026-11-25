@@ -37,7 +37,7 @@ chapter = 881
 <p>First and most importantly, her sister would be spared. That had been non-negotiable.</p>
 <p>Second, Venthros would aid in killing Rykar, the man who abandoned her long ago and refused to acknowledge her very existence even to this day.</p>
 <p>Third, Venthros spoke of the stars. Of realms filled with lawless opportunity. Of a universe where strength had no ceiling.</p>
-<p>She was over two hundred years old. Her cultivation had stagnated. This mortal world, limited to the Spirit Tempering stage, had nothing more to offer her. She and Serika had hit the peak of what this limiting realm could provide them with. From here on out until their dying breath, only slow stagnation awaited them. ŕå𝐍o͍ꞖƐꞩ</p>
+<p>She was over two hundred years old. Her cultivation had stagnated. This mortal world, limited to the Spirit Tempering stage, had nothing more to offer her. She and Serika had hit the peak of what this limiting realm could provide them with. From here on out until their dying breath, only slow stagnation awaited them.</p>
 <p>But out there? There was more. So much more.</p>
 <p>She wanted to taste it.</p>
 <p>She wanted to grow again.</p>

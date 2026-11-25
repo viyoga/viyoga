@@ -33,7 +33,7 @@ chapter = 57
 <p>I'm left baffled, but both of them ignore my puzzled state before I speak up once more.</p>
 <p>"I've been undecided between this and another name, perhaps you will like the second one better."</p>
 <p>"Quinlan…" Ayame's voice strangely has a pleading tone to it.</p>
-<p>"The main issue with QBBB is that it's not symmetric. With Quinlan's Beautiful Battle Queens we get the perfectly sounding QBBQ abbreviation, though I personally prefer the word babes over queens." R𝘈Ν𝐎ᛒÈ𝘚</p>
+<p>"The main issue with QBBB is that it's not symmetric. With Quinlan's Beautiful Battle Queens we get the perfectly sounding QBBQ abbreviation, though I personally prefer the word babes over queens."</p>
 <p>A short silence ensues where someone coughs in the background.</p>
 <p>"So, sir, there are eight adventurer ranks," she begins narrating with a professional attitude.</p>
 <p>I got disregarded completely it seems. Feels bad man. I liked the first name a lot.</p>

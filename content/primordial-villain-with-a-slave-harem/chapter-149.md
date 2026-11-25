@@ -29,7 +29,7 @@ chapter = 149
 <p>[Eclipse Fang]</p>
 <p>[Rarity: Rare]</p>
 <p>[Skills: Lunar Reflection]</p>
-<p>Hmm. My eyes show the exact details that are written next to it on a piece of parchment. It probably means that this blacksmith can examine them too thanks to his class. I'm not sure how I should feel right now… ŗΑꞐО𐌱Ěs̈</p>
+<p>Hmm. My eyes show the exact details that are written next to it on a piece of parchment. It probably means that this blacksmith can examine them too thanks to his class. I'm not sure how I should feel right now…</p>
 <p>It is what it is. No special advantages for the primordial race this time.</p>
 <p>*Sigh*</p>
 <p>I further examine the skill and find it to be ideal for Ayame, it's a blade spell that allows her to defend against an oncoming magical attack that can't be deflected with a katana, such as a Fireball.</p>

@@ -73,7 +73,7 @@ chapter = 886
 <p>GOD VENTHROS... SLAIN.</p>
 <p>VICTOR: QUINLAN ELYSIAR.</p>
 <p>Down below, beneath the leaves of a certain fairytale-like tree, Blossom stood motionless.</p>
-<p>The golden-haired dogkin’s ears perked high, her tail trembling behind her. Her hands clutched a half-filled watering can she was using to water Rosie’s tree, now forgotten as it tipped sideways and spilled over her daughter’s roots. ᚱá𝐍o͍𐌱ĘS</p>
+<p>The golden-haired dogkin’s ears perked high, her tail trembling behind her. Her hands clutched a half-filled watering can she was using to water Rosie’s tree, now forgotten as it tipped sideways and spilled over her daughter’s roots.</p>
 <p>In her shock, she didn’t even notice.</p>
 <p>Her teary eyes gazed toward the skies, cheeks flushed, lips parted in breathless awe.</p>
 <p>"He did it..." she whispered dreamily. "Master’s finally..ing home. To Blossom! To the Elysiar family!!"</p>

@@ -33,7 +33,7 @@ chapter = 983
 <p>And in the furthest corner of this pit...</p>
 <p>Curled up like a forgotten criminal, clutching her knees to her chest, wrapped in nothing more than a torn, stained sack...</p>
 <p>Was Jasmine.</p>
-<p>Her body trembled uncontrollably, pale skin blotched and chilled. Her once silky, brown hair was matted against her face and neck. Her breath was shallow. Her presence, flickering. Yet she didn’t cry. She didn’t sob. ℞äNǒʙÈꞩ</p>
+<p>Her body trembled uncontrollably, pale skin blotched and chilled. Her once silky, brown hair was matted against her face and neck. Her breath was shallow. Her presence, flickering. Yet she didn’t cry. She didn’t sob.</p>
 <p>She just... sat there.</p>
 <p>Alone.</p>
 <p>Broken.</p>

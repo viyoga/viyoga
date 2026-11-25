@@ -31,7 +31,7 @@ chapter = 1101
 <p>Nothing. Black Fang’s cold, distant gaze didn’t soften.</p>
 <p>Vex’s pout melted into a laugh. "Hehe! She’s always like this..." she muttered while shaking her head before sneaking a glance at Quinlan, visibly begging him not to read too deeply into her Master’s unyielding frost.</p>
 <p>The Hexwitch then gave a theatrical sigh as she ventured to elaborate why the being before them seemed to be more a construct than a flesh-and-bone woman.</p>
-<p>"It’s so painfully obvious, isn’t it? Just like that cunt of a queen sitting on the throne, Black Fang has lived for far too long. She’s gone a bit crazy. Well..." her grin widened, "... not just a bit. She’s batshit insane." 𝐫𝖆ɴȎ𝖇Ёȿ</p>
+<p>"It’s so painfully obvious, isn’t it? Just like that cunt of a queen sitting on the throne, Black Fang has lived for far too long. She’s gone a bit crazy. Well..." her grin widened, "... not just a bit. She’s batshit insane."</p>
 <p>She hadn’t even finished the word when her legs buckled.</p>
 <p>"Eh?"</p>
 <p>Her body folded like a puppet with cut strings, slamming flat on her back. A violent spasm jolted through her frame as she looked down, eyes wide. Twin punctures marred her pale calf, already darkening with sickly purple veins. A hiss escaped her lips, wet and guttural, before blood bubbled up her throat.</p>

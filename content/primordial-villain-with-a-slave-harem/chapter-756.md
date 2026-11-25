@@ -27,7 +27,7 @@ chapter = 756
 <p>Her blade passed clean through his body, going from side to side, from shoulder to hip, facing no visible resistance.</p>
 <p>Leohtar froze in place.</p>
 <p>"Urgh!”</p>
-<p>He spat a mouthful of blood his eyes lost their shine. “Impossible were his final words before his body fell apart, landing onto the ground in two cleanly separated parts. A single moment later, a dark explosion occurred from within his lifeless body, making blood spill all over the battlefield. ℞ＡƝòᛒЁS</p>
+<p>He spat a mouthful of blood his eyes lost their shine. “Impossible were his final words before his body fell apart, landing onto the ground in two cleanly separated parts. A single moment later, a dark explosion occurred from within his lifeless body, making blood spill all over the battlefield.</p>
 <p>As soon as he breathed his last, his monstrous body could no longer mount a proper resistance against Black Fang’s poison coursing through his veins, which resulted in the immediate destruction of what remained of him.</p>
 <p>Black Fang stood idly by as this was happening, eyes entirely void of emotion. She didn’t even attempt to dodge the gory explosion of her slain enemy’s innards, but they weren’t allowed to paint her red: before they could smear her elegant clothes and body, they were repelled by what I could only assume to be the work of an artifact.</p>
 <p>The battlefield went still for just a second.</p>

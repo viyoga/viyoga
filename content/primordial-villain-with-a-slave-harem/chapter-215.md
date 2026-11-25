@@ -24,7 +24,7 @@ chapter = 215
 <p>I can't help but chuckle inwardly. Seems like I keep falling for the weird ones. A complete airhead assassin, a bipolar samurai, and now a plump alchemist who wants to be pampered like there's no tomorrow.</p>
 <p>Well, life would be boring if they were normal, so I'm not complaining at all. In fact, there's definitely something wrong with my head too, so we might as well be a match made in heaven.</p>
 <p>"Then, Quinlan's Beautiful Little Princess, can you tell me about your new class?" I ask playfully.</p>
-<p>She replies in a cutesy, energetic voice. "Yes! It says that Enchanters are the primary supporters of their party, boosting their allies' speed, strength, survivability among other things. Sadly I don't have any free points to spend on my spells so I only have my Innate Spell, which is a protective shield I can summon on any ally in my vision." ṝá₦ồ฿Ё𝓢</p>
+<p>She replies in a cutesy, energetic voice. "Yes! It says that Enchanters are the primary supporters of their party, boosting their allies' speed, strength, survivability among other things. Sadly I don't have any free points to spend on my spells so I only have my Innate Spell, which is a protective shield I can summon on any ally in my vision."</p>
 <p>That's a bit problematic. I hope she isn't too high leveled…</p>
 <p>"What's your level?" I ask to make sure.</p>
 <p>"I'm level 5, and a level 20 Alchemist."</p>

@@ -25,7 +25,7 @@ chapter = 967
 <p>Quinlan’s smirk returned. "Good. Because the hunt’s not over yet." His gaze locked forward, elemental winds swirling tighter around his body. "We’ve only just begun."</p>
 <p>Without another word, the group pressed on. Shadows devoured them as they moved, silent predators circling ever closer to the fortress.</p>
 <p>*BOOOM!*</p>
-<p>A thunderous sound split the air, then another. Then three in rapid succession. The distinct crackle of fire mana combusting against reinforced barriers, the shriek of spells colliding, and the unmistakable roar of something collapsing in the far distance could be heard. 𝐫𝔞ƝƟΒĘṡ</p>
+<p>A thunderous sound split the air, then another. Then three in rapid succession. The distinct crackle of fire mana combusting against reinforced barriers, the shriek of spells colliding, and the unmistakable roar of something collapsing in the far distance could be heard.</p>
 <p>Blossom’s ears perked instantly. "Blossom’s ears tell her that Serika and Selene are working together!"</p>
 <p>Quinlan nodded. "Good. Let’s not waste their effort."</p>
 <p>His saber slipped free of its sheath with a whisper of steel.</p>

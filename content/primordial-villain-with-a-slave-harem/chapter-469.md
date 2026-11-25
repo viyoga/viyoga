@@ -28,7 +28,7 @@ chapter = 469
 <p>"Devil, Devil, Devil. You're truly starting to remind me of Raika. Are you a brute like her? You know, a man losing miserably is not hot at all in my opinion." She replied in a coy tone while not ceasing her grinning even for a moment.</p>
 <p>"Then I'll just have to win your fancy by beating him up."</p>
 <p>"Hehe! You really are a brute, this is how dumb animals conduct their mating calls!" She snickered jovially.</p>
-<p>The three newcomers who were close enough to hear our exchange raised an eyebrow in surprise, letting me know that not many had the right - or the balls - to talk to Vex like I do. Ř𝐚Ɲ𝖔ᛒÊＳ</p>
+<p>The three newcomers who were close enough to hear our exchange raised an eyebrow in surprise, letting me know that not many had the right - or the balls - to talk to Vex like I do.</p>
 <p>I couldn't help but recognize that I was getting on very well with the mentally unstable women of Thalorind.</p>
 <p>My interactions with Iris today were also very sweet. The fact that Black Fang is the one who shows the most interest in me from the seven heads is also… Should I be concerned? What does it say about my mental well-being if the crazy ladies tolerate me the best?</p>
 <p>I then quickly came to the conclusion that it meant nothing because my mental health was in pristine shape. I'm as healthy as can be.</p>

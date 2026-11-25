@@ -26,7 +26,7 @@ chapter = 760
 <p>The reason.</p>
 <p>It wasn’t a three-versus-one as it should’ve been.</p>
 <p>It was a two-versus-two.</p>
-<p>Foxkin fought against the tigerkin and bearkin. Fighting with the precision and coordination only possible from long-standing cooperation. They fought with the enemy. They fought with Elvardia. РÃɴО𝖇Ё𐌔</p>
+<p>Foxkin fought against the tigerkin and bearkin. Fighting with the precision and coordination only possible from long-standing cooperation. They fought with the enemy. They fought with Elvardia.</p>
 <p>Elves clad in iridescent armor rained down arrows from afar, while dwarf lines advanced like a wall of steel, enchanted hammers crashing into beastkin skulls. And beside them danced the foxkin, being the nasty little fuckers they always were.</p>
 <p>There were no tricks, no illusions to dispel. This was real.</p>
 <p>Silver. The old fox. The leader of his people. The one who had smiled and shaken the hands of other leaders when the declaration of war was issued.</p>

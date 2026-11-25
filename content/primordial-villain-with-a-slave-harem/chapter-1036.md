@@ -33,7 +33,7 @@ chapter = 1036
 <p>Plates of enchanted alloy warped and bent as if made of wet bark. One gauntlet burst off his arm entirely. The next instant, his ribs collapsed beneath Quinlan’s burning knuckles.</p>
 <p>But that wasn’t what broke him.</p>
 <p>It was the eyes.</p>
-<p>Through it all, through the fire, through the pain, through the fury... Those eyes never left his. They were cold. Unflinching. Empty of all mercy. He saw no rage, no triumph, no purpose. ŔáƝ𝙤𝖇Ɛs</p>
+<p>Through it all, through the fire, through the pain, through the fury... Those eyes never left his. They were cold. Unflinching. Empty of all mercy. He saw no rage, no triumph, no purpose.</p>
 <p>Just death.</p>
 <p>A force of nature given form.</p>
 <p>A devil made flesh.</p>

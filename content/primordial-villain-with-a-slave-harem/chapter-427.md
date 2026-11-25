@@ -25,7 +25,7 @@ chapter = 427
 <p>"Wait, wouldn't it be better to hear it from Quinnie's mouth directly?" Mearie asked worriedly.</p>
 <p>"We can just pretend that we had no knowledge and clap jovially as he proudly narrates his heroics! I'm dying from curiosity, I have to know what happened."</p>
 <p>"You sly elf, I refuse to lie to my baby!"</p>
-<p>"He is not your baby but ours! Also, it's not a lie but a harmless omission. We both know that this woman will tell the story completely differently from how he will anyhow." ṟÃΝó𝐛Εṣ</p>
+<p>"He is not your baby but ours! Also, it's not a lie but a harmless omission. We both know that this woman will tell the story completely differently from how he will anyhow."</p>
 <p>"Sure…" With that, they came to an agreement and turned their gazes to the Goddess who was watching the scene unfold with disbelieving eyes.</p>
 <p>"What do you mean whatever?!" The Goddess cried but when still no one was receptive to her complaints, she sighed and reluctantly began, but only after she switched her legs so that now the right one was crossed over the left one. "He was in the middle of impaling the severed head of his enemies' second-in-command onto his saber while having a sickening smile on his lips, which was why I came here. I didn't want to watch it any longer. Anyhow, let me go back in time to when he returned from the primordial test and start from there…"</p>
 <p>...</p>

@@ -31,7 +31,7 @@ chapter = 371
 <p>Iris had to give it to Devil. The last time she met him he was nothing more than cannon fodder. He didn't even sense her blade being an inch from his throat, it was Blade who saved his weak, miserable life.</p>
 <p>Now, however, he surrounded himself with outstanding followers and he was more than pulling his own weight.</p>
 <p>She suddenly remembered Blade's outrageous claim she uttered back during their duel.</p>
-<p>"You'd be surprised… It somewhat pains me to say this, but with his rate of growth, he'll wipe the floor with either of us in a couple of months. Maybe if the two of us will go at him together we'll still stand a small chance." ȓαΝȎᛒĘ𝘴</p>
+<p>"You'd be surprised… It somewhat pains me to say this, but with his rate of growth, he'll wipe the floor with either of us in a couple of months. Maybe if the two of us will go at him together we'll still stand a small chance."</p>
 <p>Iris knew that her prophecy did not entirely come to fruition - at least, not yet - since she believed that she alone could put up a good fight, but if Blade joined her in a 2v1 she saw no way for Devil to emerge victorious, but that mattered very little. Not even two months had passed since they met, and he went from a throwaway grunt to a promising Vesper Phenom candidate with by far the best team of Heralds supporting him, all of whom were not only strong but extremely loyal to boot.</p>
 <p>It was not the time to theorize such things, though.</p>
 <p>She was already buffed out of her mind with her Child of Agony curses and debilitating effects coursing through her body, so right now Iris knew that she was likely the highest statted entity in this scuffle, thus it was time to flex her numeric superiority.</p>

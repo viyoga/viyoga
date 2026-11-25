@@ -28,7 +28,7 @@ chapter = 77
 <p>I catch similar snippets of conversations, some wondering if we're famous explorers from another labyrinth, others speculating on our exploits and skills.</p>
 <p>No one dares approach us to ask direct questions, though. Are we really this impressive? I must admit, I feel great.</p>
 <p>Our turn soon arrives and we step into the boss room.</p>
-<p>The heavy wooden doors swing open with a groan, revealing the cavernous expanse of the boss chamber. At the far end, the Brutal Carapace Beetle stands, twice as large as the others of its kind we encountered earlier. Its chitinous shell glistens with an ominous sheen, reflecting the sparse light filtering through the cracks in the stone ceiling. ȓÄꞐ𝖔ΒÊȿ</p>
+<p>The heavy wooden doors swing open with a groan, revealing the cavernous expanse of the boss chamber. At the far end, the Brutal Carapace Beetle stands, twice as large as the others of its kind we encountered earlier. Its chitinous shell glistens with an ominous sheen, reflecting the sparse light filtering through the cracks in the stone ceiling.</p>
 <p>Sharp mandibles click together menacingly, and its multiple eyes glare at us with a malevolent intelligence.</p>
 <p>This beetle, though only a Level 1 boss, is a rather imposing presence. Memories of our previous encounter flash in my mind- how I was basically owned by this monster, I for sure would've fallen if not for the presence of my adorable samurai back then. But today, things will be different.</p>
 <p>I step forward with determination, gripping my spear tightly. Ayame moves to the side, giving me room to maneuver while ready to jump in if needed, her confidence in me clear from the glint in her eyes.</p>

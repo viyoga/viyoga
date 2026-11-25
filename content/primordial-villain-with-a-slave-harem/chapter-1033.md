@@ -42,7 +42,7 @@ chapter = 1033
 <p>They hadn’t just wanted to knock him back. They wanted to humiliate him.</p>
 <p>To throw him here as defeated trash, right before his loved ones. To make a statement.</p>
 <p>’This is your man? This is the arrogant fool who dared challenge us alone?’</p>
-<p>Blood spilled from his mouth in a thick stream, dripping down his chin. He spat a dark splatter against the stone, wiping his lips with the back of his glove as he stood up slowly, with every rib aching and breath shallow. 𐍂ÅŊo͍ᛒĘṦ</p>
+<p>Blood spilled from his mouth in a thick stream, dripping down his chin. He spat a dark splatter against the stone, wiping his lips with the back of his glove as he stood up slowly, with every rib aching and breath shallow.</p>
 <p>He didn’t have to look up.</p>
 <p>He felt them all.</p>
 <p>The silence from above was brief.</p>

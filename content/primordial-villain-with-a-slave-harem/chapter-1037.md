@@ -25,7 +25,7 @@ chapter = 1037
 <p>Her back straightened.</p>
 <p>Her fingers stopped twitching.</p>
 <p>A cold, serene calm returned to her pale features, so sudden it was almost worse than the mania.</p>
-<p>"I’ve never heard of any mortal entering this state twice in a row, even if their moment was interrupted at first, as it happened with this man... Be that as it may, you are correct. I can’t claim with absolute certainty that I’m right. I only have a feeling." Ř𝒶ΝÓ𝐁Ěș</p>
+<p>"I’ve never heard of any mortal entering this state twice in a row, even if their moment was interrupted at first, as it happened with this man... Be that as it may, you are correct. I can’t claim with absolute certainty that I’m right. I only have a feeling."</p>
 <p>But then her head tilted.</p>
 <p>And her smile spread too wide.</p>
 <p>Her eyes swirled again.</p>

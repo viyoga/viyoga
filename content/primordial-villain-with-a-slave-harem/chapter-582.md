@@ -25,7 +25,7 @@ chapter = 582
 <p>Javelins kept coming, but BunBun seemed to be hellbent on drastically changing my perception of her usefulness. She zigzagged, masterfully dodging with her highly trained aerial agility. The panicked girl who was desperately running for her life while screaming and crying was nowhere to be seen, replaced by my very own flying horse—my pegasus. Truly, BunBun was just like a horse. Dumb as sin but when directed on what to do, she was invaluable.</p>
 <p>Her displayed acrobatics also told me that [Sky Hopper] was a stronger spell than my [Airwalk]. It not only allowed the rabbitkin to traverse the skies, but also transformed their legs, greatly enhancing their springiness.</p>
 <p>Now that the logistics were taken care of, our best course of action was to steer clear of the strongest lionkin as they had the remaining javelins. The other aerial fighters could soak up the projectiles for us. Instead, I directed BunBun toward the tunnel entrance where the fight was already ongoing by the time we arrived. Numerous lionkin were grouped together in an attempt to push into the resistance’s dwellings.</p>
-<p>Their roars echoed against the walls, mixing with the sounds of fierce battles and the pained cries of the wounded. The sheer number of enemies bunched together made them the perfect target. ŘäℕÓ𝖇Ęȿ</p>
+<p>Their roars echoed against the walls, mixing with the sounds of fierce battles and the pained cries of the wounded. The sheer number of enemies bunched together made them the perfect target.</p>
 <p>"Release me right into their midst."</p>
 <p>My command was not met with any ’Are you sure?’ questions, BunBun merely listened obediently.</p>
 <p>"Roger!"</p>

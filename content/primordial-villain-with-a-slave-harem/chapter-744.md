@@ -23,7 +23,7 @@ chapter = 744
 <p>But the real devastation was taking place further behind us.</p>
 <p>The sound coming from there wasn’t just a battle; it was straight from a horror movie. Screams that stretched far beyond what a simple wound should cause. Curses spat in arcane tongues. Bones snapping and regenerating all at once. The 25,000 members of the Consortium had met the Covenant in full force.</p>
 <p>And it sounded like a fucking nightmare.</p>
-<p>My instincts screamed to look back, to see what was happening, but I knew what I’d find. Twisted shapes, rotting magic, soldiers getting dragged screaming into pits of shadow. Even the hardened Consortium elite would be tested. ṝἈN𝙤ꞖÈș</p>
+<p>My instincts screamed to look back, to see what was happening, but I knew what I’d find. Twisted shapes, rotting magic, soldiers getting dragged screaming into pits of shadow. Even the hardened Consortium elite would be tested.</p>
 <p>Things were not going well.</p>
 <p>But what could I do?</p>
 <p>I wasn’t a god who could sweep all his troubles away with a mere thought.</p>

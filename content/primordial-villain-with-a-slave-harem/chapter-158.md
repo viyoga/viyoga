@@ -24,7 +24,7 @@ chapter = 158
 <p>The girl's mother, who appears to be the main innkeeper, narrows her eyes at me with a great mix of emotions visible in her gaze. She th looks betwe me and the girl in my arms.</p>
 <p>After a few momts she finally sighs and whispers in a loud-ough tone that all of us hears her words clearly; "*sigh*... if only I was a few years younger and didn't have my deadbeat husband's wedding ring a my finger…"</p>
 <p>"Mom?!"</p>
-<p>"What? It's nothing, baby…" This innkeeper woman clearly has a few life choices she regrets, but sadly for her, ev if she were the most beautiful woman in the world who threw herself at me I still wouldn't tap that ass unless I knew for certain that her husband really doesn't deserve her. ℞𝐀ɴОＢÈš</p>
+<p>"What? It's nothing, baby…" This innkeeper woman clearly has a few life choices she regrets, but sadly for her, ev if she were the most beautiful woman in the world who threw herself at me I still wouldn't tap that ass unless I knew for certain that her husband really doesn't deserve her.</p>
 <p>I despise cheaters with all my heart, and if a girl cheats on her husband with me, who is to say she won't cheat on me with another man should the opportunity prest itself?</p>
 <p>I don't do half measures, and now that I have wom I guinely love I see no reason to fuck a. If this mother really wants to earn my good graces th her first step would have to be to separate from her husband- or more specifically divorce- if allowed by law in this land.</p>
 <p>"Now, now," I say, keeping my tone measured. "There's no need for alarm. I assure you, we're here for more of a dry and quiet stay this time. I would also like to offer my sincere apologies for any inconvices I may have caused due to my overeager mood earlier today."</p>

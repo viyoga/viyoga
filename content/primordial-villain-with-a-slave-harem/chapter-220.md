@@ -26,7 +26,7 @@ chapter = 220
 <p>Now that I think about it, we really do need a proper tanker. Ayame is much more leaning towards dishing out hurt than soaking it up. She's at best a dodge tanker, as after taking a few strong hits she would be done for good.</p>
 <p>Technically I might be the best tanker in our party right now, thanks to my high HP pool, but I have no damage reduction or self-heal, so I would also be very insufficient against a mighty foe.</p>
 <p>I guide the two flabbergasted ladies through the portal, both visibly distraught at the idea of even touching it, let alone stepping through.</p>
-<p>Aurora is shaking in her boots like a frightened little rabbit, holding onto my hand desperately. 'There's a lot of work to be done with this one… But at least as a strict backline support mage her bravery won't matter as much. She will get used to things sooner or later." Lucille, to her credit, is holding on much better. R𝓪ℕΟʙЁS</p>
+<p>Aurora is shaking in her boots like a frightened little rabbit, holding onto my hand desperately. 'There's a lot of work to be done with this one… But at least as a strict backline support mage her bravery won't matter as much. She will get used to things sooner or later." Lucille, to her credit, is holding on much better.</p>
 <p>She's the first to step through, followed by the platinum haired beauty, and lastly me and Blossom also went into the swirling gate of doom.</p>
 <p>"So, care to tell me what's up with your battle axe?" I heard Ayame inquire just as soon as I arrived in the labyrinth.</p>
 <p>Indeed, her weapon is very out of place considering her circumstances. It's a Rare rarity axe, called [Ravager's Fang]. It even has a spell imbued in it, which makes it sharper the more blood it absorbs.</p>

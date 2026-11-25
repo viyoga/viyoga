@@ -28,7 +28,7 @@ chapter = 322
 <p>*Cough* I couldn't help but cough into my palm. This Vex woman was truly something else. "I'll give up on your generous offer, thanks."</p>
 <p>She smiled at me cheerily. "Oh well."</p>
 <p>Lyra on the other hand did a complete 180. She beamed like the morning sun due to the hope of changing owners to that of a Veil Walker. Based on her antics I guessed that she would've been happy with anyone but Soren being her master, but it seemed Vex was right up her alley even then.</p>
-<p>"I was truly just joking! My father always told me that I have a big mouth and that I deserve to be beaten! Please forgive me!" Soren shouted while desperately bowing after each sentence. Р𝘈𝐍Ő𐌱Еȿ</p>
+<p>"I was truly just joking! My father always told me that I have a big mouth and that I deserve to be beaten! Please forgive me!" Soren shouted while desperately bowing after each sentence.</p>
 <p>Vex merely shrugged her shoulders. "It seems my sense of humor has grown too outdated for you youngsters. I didn't find the 'joke' funny at all, but I forgive you just this once. Let's get a move on, shall we?"</p>
 <p>The silver-haired beauty made it crystal clear that she wasn't serious about taking Lyra as her slave at all, which resulted in the pink-haired woman's expression going from hopeful to one that was even more depressed than before.</p>
 <p>I shook my head disapprovingly. Vex just lost a point in my book. It's one thing to not care about the life of a random weak (in her eyes) slave but to give her false hope just to crush it for no reason at all wasn't something my future wife should be doing.</p>

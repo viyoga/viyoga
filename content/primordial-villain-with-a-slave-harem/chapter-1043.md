@@ -32,7 +32,7 @@ chapter = 1043
 <p>The maid straightened with a serene expression and stepped aside, her hands clasped neatly in front as she dipped her head again in acknowledgment.</p>
 <p>...</p>
 <p>Beyond the walls of the resting chamber, the great feast had continued without its most talked-about guest. With Quinlan absent for hours, the event had regained its polished veneer of nobility.</p>
-<p>The hall was a vision of grandeur. Rows of tables were adorned with fine silverware, gleaming goblets, and steaming platters of delicacies that perfumed the air. Laughter and polite conversation filled the space, alongside the melodies of the hired musicians. ŘÄ𝐍ο฿Еș</p>
+<p>The hall was a vision of grandeur. Rows of tables were adorned with fine silverware, gleaming goblets, and steaming platters of delicacies that perfumed the air. Laughter and polite conversation filled the space, alongside the melodies of the hired musicians.</p>
 <p>And yet... not all was as it had been before the arena.</p>
 <p>Here and there, whispers persisted, soft as the clinking of a wineglass. Guests leaned close to murmur, eyes darting toward the table where Quinlan should have been seated. The afterimage of the spectacle in the arena still lingered in their minds, making it harder for the court to slip fully back into its pretense of perfect composure.</p>
 <p>Many sent glances to the empty Vexmore table as well. The count and countess excused themselves for the time being, saying they wished to be with their last living son when he woke up.</p>

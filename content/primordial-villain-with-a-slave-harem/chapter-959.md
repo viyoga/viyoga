@@ -31,7 +31,7 @@ chapter = 959
 <p>...</p>
 <p>Soon, Ayame stirred fully awake... and the closeted masochist allowed her hidden desires to blossom this once. Her warrior pride shattered in an instant as she guided Quinlan’s hands toward her throat.</p>
 <p>"Don’t hold back...!" she gasped.</p>
-<p>The moment his grip constricted just so, her body betrayed her. Instant. Shattering. A climax ripped from her like lightning striking dry wood. Her limbs trembled as pleasure short-circuited every thought. But even still, Quinlan gave her a good tumble, making the samurai woman reach the peak over and over again. 𝙍𝔞ℕ𝘰ＢĚs</p>
+<p>The moment his grip constricted just so, her body betrayed her. Instant. Shattering. A climax ripped from her like lightning striking dry wood. Her limbs trembled as pleasure short-circuited every thought. But even still, Quinlan gave her a good tumble, making the samurai woman reach the peak over and over again.</p>
 <p>...</p>
 <p>Having spent countless nights in Zhenwu massaging Quinlan’s battle-weary body, Serika knew exactly where to press, knead, and stroke to unravel him completely. Her hands worked expertly over his shoulders, down his chest, tracing every line of skin. At the same time, she was teaching those who were in a state of mind to listen. "See you do it like this... Push your fingers there..."</p>
 <p>...</p>

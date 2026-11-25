@@ -28,7 +28,7 @@ chapter = 626
 <p>Aurora wasn’t alone in her shock. 20,000 gold? The most I ever had to my name was the couple hundred I went to the auction with. I never had four digits’ worth of cash on me. Besides the money mentioned, the rest of her story was just as crazy. Honestly, I didn’t know what to do with this eccentric woman.</p>
 <p>"I’m game," I replied, accepting her unsaid challenge.</p>
 <p>"Can I join too?!" Sera exclaimed with exhilaration.</p>
-<p>"I gotta make friends with my sister-wives-to-be… You’re more than welcome." Vex accepted her request, after which Eira moved to take the bottle from her hands. Poor girl was trembling as if she was freezing in a snowstorm, the value of that item made her heart beat rapidly. She feared dropping it. Ṛ𝘈₦ỒᛒЁs</p>
+<p>"I gotta make friends with my sister-wives-to-be… You’re more than welcome." Vex accepted her request, after which Eira moved to take the bottle from her hands. Poor girl was trembling as if she was freezing in a snowstorm, the value of that item made her heart beat rapidly. She feared dropping it.</p>
 <p>"I’m not one to accuse one’s subordinates of bad behavior, but just to be safe, I’ll say it nonetheless. Don’t let your fellow maids take a sip from this, even a single drop would kill a level 1 person."</p>
 <p>Let’s just say Vex’s words didn’t alleviate any of Eira’s worries. Knowing she was dreading the journey to the bottom on the stone steps, I gave her a windlift. Once her feet landed on the solid ground of the plains, our eyes met and a great deal of gratitude could be observed.</p>
 <p>"So this Molten Anvil Mead can kill with a single drop…?" Lucille asked apprehensively. She didn’t want me to drink it.</p>

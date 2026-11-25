@@ -30,7 +30,7 @@ chapter = 1049
 <p>&lt;What?&gt;</p>
 <p>&lt;We placed an anti-treason curse on our combatants who were going to the frontlines. They’d get killed automatically once they were captured.&gt;</p>
 <p>&lt;I see... What about the other two he mentioned? The brothel owner and broker.&gt;</p>
-<p>&lt;I don’t recognize them. They were likely not part of the Consortium. The finance head must’ve captured them for daring to do business in his territory.&gt; 𝙧åNȱʙƐṩ</p>
+<p>&lt;I don’t recognize them. They were likely not part of the Consortium. The finance head must’ve captured them for daring to do business in his territory.&gt;</p>
 <p>If Vex could have rolled her eyes hard enough to echo through the hall, she would have.</p>
 <p>To her, these were scraps.</p>
 <p>But Alastair, caught in the moment and trapped in his own choice, pressed on, his voice swelling in false conviction. "Each of them is a danger to the realm, and now each stands bound before you, my king. Let their fate be decided here, in your wisdom."</p>

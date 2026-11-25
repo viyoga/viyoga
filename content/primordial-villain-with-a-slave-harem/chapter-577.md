@@ -33,7 +33,7 @@ chapter = 577
 <p>"Stop hopping already!"</p>
 <p>"Noooo!!!"</p>
 <p>"You goddess-damned bunny, why are you so good at running?!"</p>
-<p>"Hehe, running is my specialty!" BunBun giggled and declared proudly, momentarily forgetting the grave peril she found herself in… "Hyaaa!!!" Such a merry state of mind didn’t last long, especially because she heard her pursuer’s grunt of effort from closer than ever. 𝙧À𐌽ŐᛒĚṢ</p>
+<p>"Hehe, running is my specialty!" BunBun giggled and declared proudly, momentarily forgetting the grave peril she found herself in… "Hyaaa!!!" Such a merry state of mind didn’t last long, especially because she heard her pursuer’s grunt of effort from closer than ever.</p>
 <p>She glanced behind herself just to see the scary man jump at her with frightening speed, leaping across the skies. BunBun did her best to hop out of the way, but it was too late—he managed to grab onto her two legs and declare with great satisfaction, "Got you, bunny."</p>
 <p>"Nooo!!!" She cried while doing her best to kick him in the face, but his iron grips forbade the girl from moving her legs at all. "You can have BunBun’s super carrot, just let her go!"</p>
 <p>"I don’t care about your carrot! Now hop your way to the ground before I break your leg."</p>

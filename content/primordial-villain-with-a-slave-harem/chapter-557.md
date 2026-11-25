@@ -30,7 +30,7 @@ chapter = 557
 <p>I saw many familiar faces but not at the table. All Phenoms of my generation were dispatched to support their sponsor’s respective factions just like I was, standing behind the faction leaders.</p>
 <p>Well, besides Kaelira, who was likely busy hammering away in my home with the most overjoyed expression visible on her gorgeous features. She was always calm and collected, so the great contrast her antics had when she was allowed to finally pursue her passion was rather adorable, I must say. I’ll be sure to watch her work when I get the time.</p>
 <p>Ambrosia strolled toward her seat and sat down, after which the meeting officially started, as we were the last to arrive.</p>
-<p>"I won’t mince my words, for we have no time. The Consortium is facing great peril." An older guy with a fashionable mustache began, and I recognized him as the representative of the mediator, called Cipher. It seemed even here, the mediator had the loudest voice, as his subordinate was acting like he had to lead the conversation. Ŕ𝐚No͍𝖇ËꞨ</p>
+<p>"I won’t mince my words, for we have no time. The Consortium is facing great peril." An older guy with a fashionable mustache began, and I recognized him as the representative of the mediator, called Cipher. It seemed even here, the mediator had the loudest voice, as his subordinate was acting like he had to lead the conversation.</p>
 <p>Cipher then brought everyone up to speed on what I already knew, namely the brewing hostilities between the Syndicate and the Greenvale nobles.</p>
 <p>I wasn’t interested in listening to the recap, so instead I chatted with a specific woman.</p>
 <p>&lt;Hey, long time no see. How have you been?&gt;</p>

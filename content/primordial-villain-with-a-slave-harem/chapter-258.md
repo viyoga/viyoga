@@ -24,7 +24,7 @@ chapter = 258
 <p>Aurora diligently continued scrubbing my back with slow, deliberate strokes, but I could feel her poke her curious little head from behind me to observe the ongoing commotion on the other side of my body.</p>
 <p>Lucille pulled her head back as she greedily gasped for air while her chest heaved up and down with each breath. Her eyes flickered with sheer neediness and adoration towards my person. "I should listen to Miss Alchemist as her assistant and do my decreed job…" She whispered sensually while grabbing onto Quinlan Junior who had long since awakened completely during the time of our making out session.</p>
 <p>"So this is a real man's penis…"</p>
-<p>She gently clutched my member in both palms, then began pulling me. "Come, baby. I can't wash you properly if you are standing since you are too tall." Ŗ𝓪ꞐꝊᛒĚs̩</p>
+<p>She gently clutched my member in both palms, then began pulling me. "Come, baby. I can't wash you properly if you are standing since you are too tall."</p>
 <p>"Baby?" i asked with great surprise.</p>
 <p>Her cheeks flushed red, "do you hate it? I always thought that I would like to call you as such should we get together."</p>
 <p>"So you've been hoping for this outcome for a while, huh? Well, go ahead. Call me whatever you prefer."</p>

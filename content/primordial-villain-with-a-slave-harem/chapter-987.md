@@ -24,7 +24,7 @@ chapter = 987
 <p>"Deltoid tendon’s been partially severed," Seraphiel said in a singsong whisper, chin resting on her hand as she leaned forward to get an even better view of the merchant girl’s handiwork.</p>
 <p>The elf’s expression was that of a scholar watching a master at work. "Not enough to cripple him permanently, but enough to make every motion feel as if the whole arm’s on fire. If I didn’t know better, I’d have thought Jasmine was in the information extraction business, not the coin generation one..."</p>
 <p>Ayame observed the gorgeous blond woman with a smirk. "You sound like you’re enjoying this."</p>
-<p>"I mean, I am a healer. I’m trained to notice these things. It’s only natural to... admire good technique when I see one." Seraphiel’s grin was a little too wide, her eyes too bright. "Besides, it’s not like I’m the one doing it." ř𝖆ƝȏＢÊṡ</p>
+<p>"I mean, I am a healer. I’m trained to notice these things. It’s only natural to... admire good technique when I see one." Seraphiel’s grin was a little too wide, her eyes too bright. "Besides, it’s not like I’m the one doing it."</p>
 <p>Ayame looked unimpressed. "Mhm. Sure. All I’ll say is that you’re lucky Sylvaris excused herself, saying she wasn’t keen to witness the proceedings or you’d be hearing her heavy sighs, wondering what she did wrong for her daughter to grow up as a terrible sadist."</p>
 <p>"What? Nooo, she wouldn’t!"</p>
 <p>"Is that so?" Ayame mused, eyes flicking back to Aurelion as Jasmine cut a spiral around his navel with the blade. "I bet that if I asked Blossom to sniff your mood right now, ’horny’ would be among the first three guesses."</p>

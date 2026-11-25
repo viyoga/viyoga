@@ -32,7 +32,7 @@ chapter = 502
 <p>However, I knew what I had to do; "Forty."</p>
 <p>"Fifty!"</p>
 <p>"Sis!!! I’m going to call Papa if you don’t stop!"</p>
-<p>Amara hushed her perverted sister, Vivienne was making a very rookie mistake. She was quiet enough that a normal human shouldn’t hear them, but my senses were slightly better than a mortal’s. ꞦÃꞐőBË𝐬</p>
+<p>Amara hushed her perverted sister, Vivienne was making a very rookie mistake. She was quiet enough that a normal human shouldn’t hear them, but my senses were slightly better than a mortal’s.</p>
 <p>I observed the arrogant woman’s features for a short second. She was doing her best to keep the confident poker face up, but what her sister said to her brought Amara’s endless vanity down, at least momentarily.</p>
 <p>I could tell that she was silently begging me to bet again so that she could give up.</p>
 <p>Fifty gold was a giant sum of money, even dukes couldn’t afford to throw such amounts down the drain very often, let alone their daughters who were living on their given pocket money.</p>

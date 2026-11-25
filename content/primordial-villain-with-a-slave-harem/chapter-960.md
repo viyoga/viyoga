@@ -30,7 +30,7 @@ chapter = 960
 <p>It talked.</p>
 <p>"Eh?"</p>
 <p>Feng nearly toppled backward, hands flailing as she tried to get the creature off her head. "What do you want?! Get off!"</p>
-<p>"Hmm..." the cat mused out loud before nestling further into her dark hair, showing it had no intentions of leaving. Its tails swayed lazily, but one of them moved to bonk her on the nose. "Tell me... Why is a child carrying so much in her heart?" Ṙ𝐀ŊО₿Ɛꞩ</p>
+<p>"Hmm..." the cat mused out loud before nestling further into her dark hair, showing it had no intentions of leaving. Its tails swayed lazily, but one of them moved to bonk her on the nose. "Tell me... Why is a child carrying so much in her heart?"</p>
 <p>Feng wasn’t receptive to this conversation, evidenced by her screeching about the creature getting off of her again.</p>
 <p>The cat let out the feline version of a sigh. "Noisy. As expected of the young."</p>
 <p>Without further ceremony, it flicked its tails and gestured toward the tree with all nine of them at once.</p>

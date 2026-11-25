@@ -24,7 +24,7 @@ chapter = 252
 <p>"Hmph." Ayame snorted with dissatisfaction.</p>
 <p>"Reasonable." Lucille nodded in understanding.</p>
 <p>"I guess I can understand your point of view…" Aurora also accepted my reasoning.</p>
-<p>The light caramel-haired beauty with a borderline fetish for brutally murdering monsters with her bloodthirsty axe spoke up next. "Never have I ever thought that a middle-aged woman wouldn't fit into our party." ℝãƝ∅𝐛Ëᶊ</p>
+<p>The light caramel-haired beauty with a borderline fetish for brutally murdering monsters with her bloodthirsty axe spoke up next. "Never have I ever thought that a middle-aged woman wouldn't fit into our party."</p>
 <p>I can't help but let out a tired groan. "What is this, insecurity clearance party? It was meant to be lighthearted fun, girls."</p>
 <p>Lucille responded defensively; "Your rules stated no such thing."</p>
 <p>"I guess…"</p>

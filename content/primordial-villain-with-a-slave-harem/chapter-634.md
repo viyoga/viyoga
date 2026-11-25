@@ -23,7 +23,7 @@ chapter = 634
 <p>Vex replied with a fair bit of smugness in her tone as she said, "I've been fighting, killing, and looting for nearly two centuries, why would I carry mundane objects with me? I deserve luxury. I don't settle for anything but the absolute best there is, future hubby." She put a heavy emphasis on her last two words, implying I shouldn't act like I had her in the bag already. Her being mine wasn't a done-and-dusted deal.</p>
 <p>Instead of replying, I turned back to Raika. This time I wasn't just looking at the ink, but studying it.</p>
 <p>There was something wrong.</p>
-<p>I sharpened my senses, pushing my elemental connection deeper. Water wasn't just a weapon—it was an extension of my will. I let my magic slip beneath the surface, examining the ink at its most fundamental level. 𝑅ἈꞐȮᛒƐṥ</p>
+<p>I sharpened my senses, pushing my elemental connection deeper. Water wasn't just a weapon—it was an extension of my will. I let my magic slip beneath the surface, examining the ink at its most fundamental level.</p>
 <p>And then I saw it.</p>
 <p>This truly wasn't normal ink. It had bonded to her skin.</p>
 <p>Tiny, threadlike veins had seeped into her pores, weaving through the outer layer like a parasite. No wonder a simple water blade hadn't worked, and now I also understood why Vex was so smug about it.</p>

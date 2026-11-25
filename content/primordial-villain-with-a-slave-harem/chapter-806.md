@@ -34,7 +34,7 @@ chapter = 806
 <p>Quinlan struck low. The old man countered his energetic assault by strategically checking him with a hip strike, expending much less energy than his enemy did.</p>
 <p>Quinlan followed it up by twisting for an elbow strike. The old man deflected it with a shoulder bump, then accelerated, moving faster than before to throw Quinlan off, and successfully managed to land a hammering palm to Quinlan's ribs.</p>
 <p>He gasped, stumbling back, only for a heel made of metal to come flying toward his jaw.</p>
-<p>He sidestepped just in time to not end up as a rotting corpse in this cultivator world far from his home. Quinlan countered with a palm strike to the chest. The old man absorbed it like a wall of iron, not even wincing. ℞АɴọʙĘS</p>
+<p>He sidestepped just in time to not end up as a rotting corpse in this cultivator world far from his home. Quinlan countered with a palm strike to the chest. The old man absorbed it like a wall of iron, not even wincing.</p>
 <p>It took everything Quinlan had to keep up.</p>
 <p>His robes clung to his body with sweat. His fingers ached. His breath came fast, and his instincts were pushed to their limit.</p>
 <p>The prosthetics didn't slow the old man down—or, at the very least, he was still a real beast of a combatant. Each blow had weight, each step perfect. Not flashy. Not stylish.</p>

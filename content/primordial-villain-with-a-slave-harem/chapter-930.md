@@ -33,7 +33,7 @@ chapter = 930
 <p>"Heartless!" Luminara agreed.</p>
 <p>"Primordial Villain!"</p>
 <p>"Harbinger of Ruin!"</p>
-<p>From the side, Feng winced as the mothers threw curses at Quinlan, using his universe-given titles as if they were undeniable proof of him being a horribly cruel person, one who enjoyed torturing even his own mothers. 𝐫𝐀ƝΟ𝐁ЕṦ</p>
+<p>From the side, Feng winced as the mothers threw curses at Quinlan, using his universe-given titles as if they were undeniable proof of him being a horribly cruel person, one who enjoyed torturing even his own mothers.</p>
 <p>That was when...</p>
 <p>A touch.</p>
 <p>Two fingers, gentle and warm, reached out to each of their chins.</p>

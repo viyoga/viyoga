@@ -22,7 +22,7 @@ chapter = 845
 <p>"His fists could bend metal. His very soul could breathe life into weapons. He could strike a blade and grant it purpose. He taught warriors and shaped the martial world from his forge."</p>
 <p>Feng’s mouth parted slightly, awe flickering in her gaze. "I know that name! But-"</p>
 <p>She was interrupted by Quinlan’s "Let the lady finish first, impatient brat." Which elicited a giant pout from the oriental teen.</p>
-<p>"But for all his strength," Serika continued, ignoring the drama, "he refused to sit on the throne. Even when the seat of Vulkaris was offered to him—twice—he turned it down. ’I am no ruler,’ he always said. ’The fire in my heart belongs to the forge, not to the court.’" ŕ𝐀ƝꝊᛒÊš</p>
+<p>"But for all his strength," Serika continued, ignoring the drama, "he refused to sit on the throne. Even when the seat of Vulkaris was offered to him—twice—he turned it down. ’I am no ruler,’ he always said. ’The fire in my heart belongs to the forge, not to the court.’"</p>
 <p>Her expression darkened.</p>
 <p>"So I rose. Slowly. As his daughter and one of his disciples, I fought, earned respect, and eventually overthrew the previous Sovereign. I built Vulkaris in his image... or so I believed."</p>
 <p>Then her hands tightened slightly on her thighs.</p>

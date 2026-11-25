@@ -28,7 +28,7 @@ chapter = 875
 <p>The elements continued to swirl violently around him.</p>
 <p>Venthros lowered his hands, frowning.</p>
 <p>"Still clinging to that boy?”</p>
-<p>"If you thought him to be a mere boy, then you would’ve kept ignoring him as you’ve done before! But instead of doing just that, you tried to finish him while he couldn’t fight back!” Serika declared victoriously as she planted two feet firmly into the shattered ground, standing in front of Quinlan like a shield of living flame, her body cracked, her armor melting. ŔаＮȫＢЕʂ</p>
+<p>"If you thought him to be a mere boy, then you would’ve kept ignoring him as you’ve done before! But instead of doing just that, you tried to finish him while he couldn’t fight back!” Serika declared victoriously as she planted two feet firmly into the shattered ground, standing in front of Quinlan like a shield of living flame, her body cracked, her armor melting.</p>
 <p>She glared at Venthros with the fury of a thousand suns as she declared proudly:</p>
 <p>"Quinlan is the Avatar. The man who’ll end your miserable existence. Even if you can’t conceive losing to him logically, you’re afraid of the prophesy.”</p>
 <p>Behind her, Rykar finally stumbled, caught by Rongtai.</p>

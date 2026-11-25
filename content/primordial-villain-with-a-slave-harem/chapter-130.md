@@ -26,7 +26,7 @@ chapter = 130
 <p>"Are you going to have this talk with Blossom too?" Ayame questions after a few minutes of silence.</p>
 <p>"You mean that she is my exclusive woman?"</p>
 <p>"Yes."</p>
-<p>"I should, I suppose. I know that she wouldn't cheat on me even if her life depended on it, but she might let someone else touch her if she thinks that she should allow it, similarly to your case with Broderick." 𝘙αɴꝋᛒЕŜ</p>
+<p>"I should, I suppose. I know that she wouldn't cheat on me even if her life depended on it, but she might let someone else touch her if she thinks that she should allow it, similarly to your case with Broderick."</p>
 <p>"Yeah, that's what I think as well."</p>
 <p>"Then it's settled." I then move onto a topic that has been bothering me for a while. "What do you think about our new friend and his rather acquired taste in women?"</p>
 <p>"That it's disgusting and not at all understandable." Oh, she doesn't mince her words at all.</p>

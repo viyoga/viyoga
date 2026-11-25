@@ -27,7 +27,7 @@ chapter = 155
 <p>Although irritated, I can't help but chuckle inwardly. No wonder her shop is much more grandiose than the previous one, she happily sells an elixir that's basically lethal poison for her customer even when she's 100% sure a person will die as a result of her greed.</p>
 <p>As we step out of the store I feel obligated to turn back towards the shop and nod my head respectfully, for I would've done the exact same in her position.</p>
 <p>Money is money.</p>
-<p>The third shop is a dingy, dimly lit place with heavy air and the smell of musty books and something foul brewing in the back. The shopkeeper, an elderly man with a wrinkled face and beady eyes, listens to my request before sneering at me. Ɽ𝐀ℕ𝐎𝖇Ɛs</p>
+<p>The third shop is a dingy, dimly lit place with heavy air and the smell of musty books and something foul brewing in the back. The shopkeeper, an elderly man with a wrinkled face and beady eyes, listens to my request before sneering at me.</p>
 <p>"I've had enough of idiots like you. There's no way an adult can become a Wizard, no matter what you try. If you're asking such stupid questions, I won't sell it to you. Get out."</p>
 <p>Well, it's safe to say that things aren't going exactly as I'd hoped.</p>
 <p>As we walk down the narrow street, heading toward a fourth alchemist shop, I feel Ayame tug at the hem of my robe.</p>

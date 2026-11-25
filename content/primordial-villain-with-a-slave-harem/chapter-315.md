@@ -24,7 +24,7 @@ chapter = 315
 <p>&lt;…&gt;</p>
 <p>&lt;Anyhow, so it was likely the Phantom League who got in bed with your sister and orchestrated your betrayal, right?&gt;</p>
 <p>Indeed, from Heretic's revealed info it was safe to say that the biggest syndicate in Fujimori territory- also known as the Silverwind duchy- had something to do with her getting poisoned which led to her losing the duel for succession against Kaede, and especially her father dying abruptly.</p>
-<p>&lt;Looks like it. To think that such a big criminal organization existed in my duchy and I had no clue about it… Father must've kept it from me for some odd reason.&gt; 𝘳ÀΝồBÊＳ</p>
+<p>&lt;Looks like it. To think that such a big criminal organization existed in my duchy and I had no clue about it… Father must've kept it from me for some odd reason.&gt;</p>
 <p>&lt;Maybe he wanted his young daughter to only see the bright side of the world. After all, he should've continued to rule for hundreds of years. His tragic demise came very early.&gt;</p>
 <p>&lt;…You're right.&gt;</p>
 <p>She was pretty depressed based on her voice, so I moved closer and gave her a one-armed hug as I grabbed her farther shoulder and brought her into my chest. We were still walking so that was the best I could do for the time being.</p>

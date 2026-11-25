@@ -32,7 +32,7 @@ chapter = 1057
 <p>"Alastair," the king’s voice thundered, "explain yourself."</p>
 <p>The Duke of Greenvale visibly trembled, his complexion draining. But before he could stammer a word, his wife, Ophira, spoke up quickly.</p>
 <p>Perhaps too quickly.</p>
-<p>"Yes, Your Majesty. We did strike a deal with the man known as Broker," she said, her tone defensive but oddly confident. "He handed certain prisoners from his... department... over to us for safekeeping." ℞Ã𐌽О𝐁ÊS</p>
+<p>"Yes, Your Majesty. We did strike a deal with the man known as Broker," she said, her tone defensive but oddly confident. "He handed certain prisoners from his... department... over to us for safekeeping."</p>
 <p>The hall erupted again in sharp, shocked gasps. The duchess had just admitted to it, openly.</p>
 <p>Ophira pressed on before the noise could swallow her words. "Back then, we thought Broker the greatest fool in the world. He offered us the dumbest deal we’ve ever heard of. He paid us to house his prisoners. It was a perfect arrangement for Greenvale.</p>
 <p>And, as the king can plainly see now, when the time was right, we broke the deal and took the prisoners for ourselves, bringing them here as tribute. No doubt Broker is livid this very moment." Her lips curled in satisfaction, as though she were recounting a clever victory.</p>

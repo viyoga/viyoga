@@ -24,7 +24,7 @@ chapter = 389
 <p>I parted the hems of her robe after untying the sash holding it together, revealing her heavenly body. "Stop staring…" She murmured after I spent who knows how long simply observing her from head to toe.</p>
 <p>Once I felt fulfilled with observing the masterwork of a female form she presented, I leaned in and began placing kisses all over her body. "Ah!" She let a minute moan escape her lips, after which she reached her hands out to my head and grabbed onto my hair.</p>
 <p>Your journey continues at empire</p>
-<p>I started at her forehead, then moved on to her two cheeks. I made sure not to leave even her nose and chin out. I was going for the full-course meal over here, ready to taste everything. řΆ𐌽ǑＢЁꞩ</p>
+<p>I started at her forehead, then moved on to her two cheeks. I made sure not to leave even her nose and chin out. I was going for the full-course meal over here, ready to taste everything.</p>
 <p>I deliberately left her lips out, though, since it was not about us kissing but me devouring every inch of her body. Next came her ears, followed by her soft neck and shoulder blades where I not only kissed her but even left small, possessive hickeys, marking her as mine. "Kya!" She yelped cutely when she felt my first nibble on her smooth skin.</p>
 <p>A good minute later, I moved to the side instead of down as I gave a few loving kisses to her petite shoulders, after which came her arms - biceps, knuckles, hands, palms, even fingers.</p>
 <p>I felt her chest begin heaving up and down more and more fervently due to my ministrations. "Ah… Quin… I feel strange…" She whispered in between her gasps for air.</p>

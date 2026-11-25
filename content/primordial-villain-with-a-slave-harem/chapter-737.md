@@ -27,7 +27,7 @@ chapter = 737
 <p>But her eyes twinkled.</p>
 <p>A sigh escaped her lips, and she rested her hands on her hips as she stood. “I raised a traitor.”</p>
 <p>Still…</p>
-<p>Her gaze softened. The hard edges of suspicion, worry, and motherly dread melted one by one as she watched the sheer purity of her daughter’s affection. The joy in Blossom’s voice. The way the man, whose name she didn’t even know besides the title ‘Master,’ held her in return without hesitation, without shame, with one arm around her back and the other cradling her head, like she was the most precious treasure in the world. 𝑅ＡꞐo͍𐌱ÈṦ</p>
+<p>Her gaze softened. The hard edges of suspicion, worry, and motherly dread melted one by one as she watched the sheer purity of her daughter’s affection. The joy in Blossom’s voice. The way the man, whose name she didn’t even know besides the title ‘Master,’ held her in return without hesitation, without shame, with one arm around her back and the other cradling her head, like she was the most precious treasure in the world.</p>
 <p>Natalie smiled.</p>
 <p>Warmth bloomed in her chest, curling around her ribs like a gentle fire. Her heart swelled, and despite herself, tears welled again. But this time, the fluids streamed from her eyes as a result of the pure, unfiltered happiness assaulting her weary heart.</p>
 <p>"She’s really happy… Thank the Goddess</p>

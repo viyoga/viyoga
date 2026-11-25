@@ -29,7 +29,7 @@ chapter = 1044
 <p>He was not a man to revel in being paraded with gifts. For as long as anyone could remember, he had disliked such displays. As the richest human alive and the most influential man in the human lands, there was nothing of material worth that could truly tempt him. No gemstone rare enough, no silk fine enough, no weapon sharp enough. If he wanted a thing, he could have it by the morrow.</p>
 <p>No. He would already have it.</p>
 <p>Still, he understood the necessity of formality.</p>
-<p>The gift-giving was not about acquiring treasures but was a display of loyalty, of politics woven into ceremony. And so, as always, Alexios bore it without showing his true thoughts. Whatever he was handed, he accepted with the same regal grace, his presence as steady as an unshaken mountain. ṜА𐌽ọβЁš</p>
+<p>The gift-giving was not about acquiring treasures but was a display of loyalty, of politics woven into ceremony. And so, as always, Alexios bore it without showing his true thoughts. Whatever he was handed, he accepted with the same regal grace, his presence as steady as an unshaken mountain.</p>
 <p>The silence from the throne stretched long enough to make it clear that Alexios was not going to speak first.</p>
 <p>As such, the four male dukes exchanged the briefest of glances, the faintest nods, and then, as if by unspoken agreement, they began. Kaede didn’t look at any of them, electing to regally stand still like a statue.</p>
 <p>The Duke of Duskmere, Lord Issac, stepped forward.</p>

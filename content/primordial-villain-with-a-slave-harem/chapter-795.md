@@ -27,7 +27,7 @@ chapter = 795
 <p>No gleam. No shine.</p>
 <p>The saber was hungry.</p>
 <p>Zhang Yong flinched. Trembled even, but just for a second.</p>
-<p>Then he gritted his teeth and straightened his spine. "So be it," he spat. "You've made your choice. Prepare to face the Seastone Clan's signature combat style: Flowing Tide!" ṙä𝐍о𝔟ÈꞨ</p>
+<p>Then he gritted his teeth and straightened his spine. "So be it," he spat. "You've made your choice. Prepare to face the Seastone Clan's signature combat style: Flowing Tide!"</p>
 <p>His feet shifted. His qi surged. Water swirled up from his sleeves and circled around him in spiraling threads. The air grew damp. Charged.</p>
 <p>From the ground, Feng Jiai pushed herself up weakly as her eyes widened in horror.</p>
 <p>"NO!" she cried, looking at her would-be savior's broad back. Feng Jiai might've called for help, but she didn't want any innocent person to die for her.</p>

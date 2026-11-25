@@ -23,7 +23,7 @@ chapter = 293
 <p>&lt;I'm in a one versus three situation right now, if you get some room to breathe I would appreciate some cover.&gt;</p>
 <p>&lt;I can turn my attention to you in about fifteen seconds.&gt;</p>
 <p>"Dream, buff me." I instructed Aurora next, who obediently listened, casting three spells on me, each boosting one of my physical attributes by 10%.</p>
-<p>I gripped the hilt of my pitch-black sealed saber as the two melee fighters closed in on me with the mage providing them support from behind. Thus far I always fought in melee with the ability to dodge to my heart's content, often backed up by my Ayame's trustworthy blade. ŗάƝŎ𝐁Ëȿ</p>
+<p>I gripped the hilt of my pitch-black sealed saber as the two melee fighters closed in on me with the mage providing them support from behind. Thus far I always fought in melee with the ability to dodge to my heart's content, often backed up by my Ayame's trustworthy blade.</p>
 <p>Now I couldn't dodge since I was the only thing between them and my team's backs, and my only help would come in the form of ranged support if Seraphiel could finish her current enemies in time.</p>
 <p>The spearwoman charged at me with a vicious gleam in her eyes, thrusting her weapon straight toward my groin. How charming. This girl must be out for vengeance towards her three friends I've brutally massacred. "Die!"</p>
 <p>I twisted my body just in time to move my arms, deflecting the sharp thrust with my saber. Sparks flew around us as metal clashed against metal. However, she had extended herself too much with this attack, and thanks to my lengthy limbs, before she could recover I slammed my boot into her stomach.</p>

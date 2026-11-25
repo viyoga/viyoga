@@ -29,7 +29,7 @@ chapter = 958
 <p>While getting her senses overloaded with her Master ravaging her pussy, Blossoms whole body jolted at the sudden sting across her rear.</p>
 <p>A second slap came. Then a third.</p>
 <p>As a result, Blossoms moans poured out, uncontrolled and needy. "Master...! M-More...! Harder...! Blossom can take it!"</p>
-<p>Quinlan was more than happy to comply. For the next few minutes, he showered the girl in many firm slaps on her reddening butt while stuffing her womb full. 𝔯𝐚ŊỐᛒΕs</p>
+<p>Quinlan was more than happy to comply. For the next few minutes, he showered the girl in many firm slaps on her reddening butt while stuffing her womb full.</p>
 <p>But then, his hand slid down, gripping onto her fluffy tail. His fingers wrapped around it like a leash and with a sudden yank...</p>
 <p>"YIP!"</p>
 <p>Her body buckled as a tremor shot through her. Her knees gave out from the mini-explosion that came as a result of his actions. But thanks to the railing and Quinlans grip on her body, she remained in position, letting her Master continue slamming into her.</p>

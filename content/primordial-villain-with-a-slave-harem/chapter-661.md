@@ -33,7 +33,7 @@ chapter = 661
 <p>I tilted my saber, allowing the onlookers to glimpse at the visual effects. Even from the distance of the audience, those with sharp senses would recognize the shift—an increase in presence, in weight, as though the weapon itself had feasted on something.</p>
 <p>Silver's glare darkened alongside the blade's shine. His sharp gaze jumped between me and the saber, trying to detect something beyond mortal perception.</p>
 <p>After getting bored of my silence where I just displayed the blade, he hissed, "Is this meant to be an answer to my question?! What have you done to my son, bastard?!" he had an even more venomous tone than before.</p>
-<p>"This blade grows stronger when I defeat foes more powerful than myself. By slaying your son, Prince Veyrin, I claimed the reward that came with achieving such a feat of power." 𝔯ãNộʙÊṤ</p>
+<p>"This blade grows stronger when I defeat foes more powerful than myself. By slaying your son, Prince Veyrin, I claimed the reward that came with achieving such a feat of power."</p>
 <p>I tapped a finger against the blade's surface, letting the spectral mist swirl around my hand. "This is the result. A natural phenomenon tied to my abilities."</p>
 <p>Some looked at the saber with fascination, others with thinly veiled apprehension. It was a truly ominous-looking blade right now, with the prince's blood dripping from its edge while it was visibly in the middle of consuming its meal.</p>
 <p>"The spell I cast was only to collect said effects. It holds no meaning beyond that. Without activation, it does nothing." I paused, letting my gaze travel to Veyrin's bodiless head. "His death is his own. His fate remains unchanged."</p>

@@ -30,7 +30,7 @@ chapter = 808
 <p>He gave her an incredulous look, then sighed. "Seriously... What am I gonna do with a brat like you? I guess I can think of you as a test dummy for my daughters."</p>
 <p>Without waiting for permission, he reached over and slid an arm behind her back, grabbing her by her narrow waist. She let out a yelp of surprise as he easily lifted her into his lap.</p>
 <p>"W-What are you doing!?" she squawked.</p>
-<p>"I’m warming you up," he replied, tugging the black folds of his eastern combat robe over her like a blanket. He wrapped both arms around her and pressed her into his chest. "There. Any better?" R̃àꞐȏ𝔟ËṢ</p>
+<p>"I’m warming you up," he replied, tugging the black folds of his eastern combat robe over her like a blanket. He wrapped both arms around her and pressed her into his chest. "There. Any better?"</p>
 <p>Feng went stiff immediately. Completely silent. Which was concerning. She was no longer trembling, so it must’ve been something else.</p>
 <p>Quinlan blinked as he realized what was going on. "Wait. You don’t seriously think I’d molest you, do you?"</p>
 <p>She still didn’t reply. Her breathing was calm now, but her entire body radiated caution.</p>

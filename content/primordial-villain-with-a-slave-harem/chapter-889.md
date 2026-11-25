@@ -24,7 +24,7 @@ chapter = 889
 <p>"...I—uh—also did... things!" The black-haired, oriental teen suddenly lost her voice as she glanced around, desperately flailing for a claim she could use to let the world know she did her part.</p>
 <p>After a few seconds of panic, she glanced at Quinlan’s side, and her eyes immediately began sparkling with newfound pride. "I helped! In fact, I was paramount to our victory! Yes! After all, I was the one who brought the saber!"</p>
 <p>The other two paused their celebration to look at her strangely, wordlessly asking what nonsense she was yapping about.</p>
-<p>Feng pouted at their rudeness and jabbed a finger toward the black saber that had cleaved through Venthros’s neck. "That blade? That black blade of the Avatar? The one that literally severed the god’s head? I brought that to you! If it had just been your fists, the invader’s neck would’ve bounced like rubber! Meaning that I’m the true savior of the world!" 𐍂𝐀Ꞑő฿Ês̩</p>
+<p>Feng pouted at their rudeness and jabbed a finger toward the black saber that had cleaved through Venthros’s neck. "That blade? That black blade of the Avatar? The one that literally severed the god’s head? I brought that to you! If it had just been your fists, the invader’s neck would’ve bounced like rubber! Meaning that I’m the true savior of the world!"</p>
 <p>Quinlan immediately burst out laughing, so much so that his shoulders began shaking.</p>
 <p>On the other hand, Serika nodded at the girl in complete agreement, finding her reasoning to be logically sound.</p>
 <p>But despite her extremely ill-mannered male ally’s reaction, Feng refused to back down. She stood tall with her delicate fists clenched, nose pointed in the air.</p>

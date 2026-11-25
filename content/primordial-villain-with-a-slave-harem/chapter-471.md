@@ -26,7 +26,7 @@ chapter = 471
 <p>Despite being a certified yapper, Kael was a truly seasoned combatant. His experience and mastery showed when he smartly used the moment I was in mid-air to dodge one of his javelins to summon tendrils made of ice which restrained me.</p>
 <p>I had to free myself swiftly or my Phenom Trials would end here. To that effect, I used my fire spells one after the other. "[Flame Cloak], [Burning Hands], [Inferno Blast]"</p>
 <p>To my horror, the element I thought would serve as a great counter to ice was rather useless. The chains started melting, but very slowly. I couldn't free myself before getting my body plugged full of javelins.</p>
-<p>Were my fire spells just weak? Was this the difference between our Magic stats? I only had a little over a 100, if he heavily invested in Magic, he could be at around 200. Ȓ𝔞𝐍ò𝐁Ёꞩ</p>
+<p>Were my fire spells just weak? Was this the difference between our Magic stats? I only had a little over a 100, if he heavily invested in Magic, he could be at around 200.</p>
 <p>I intended on not investing my 10 Free Attribute Points due to fear of an observant person noticing me having leveled up twice in a row, but I couldn't afford to hesitate in this case for something that had such a minuscule chance of occurring. Even if they noticed it, I could just say that I was hoarding the points from before because I was undecided about which stat I wanted to invest in.</p>
 <p>With everyone knowing that I was a weirdo hybrid mage, that explanation should make a lot of sense.</p>
 <p>After leveling to 26, my stats were as such:</p>

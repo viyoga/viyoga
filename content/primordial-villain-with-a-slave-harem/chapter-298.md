@@ -28,7 +28,7 @@ chapter = 298
 <p>Interestingly, despite my HP being full I'm lightheaded as hell, hence me getting taxied by my lovely fourth woman. I guess all the blood I lost needs some time to be regenerated… or something like that. I've been always cheating during my biology tests, I have no clue what's going in on my body, especially now that I'm a primordial.</p>
 <p>"Devil?" Lucille asked as she turned her head to glance back at me.</p>
 <p>"Yes?"</p>
-<p>"I got Warrior 10 and can now choose a specialization, but I'm uncertain…" Oh. That reminds me, I'm still a simple Warrior too. I think it's soon time I embrace the way of the saber. I've been a bit on the edge because of its sealed nature, but I like it a lot even as it is, and I've watched enough anime to know that it will be OP once it's unsealed. 𝙍Ἀ₦ọВĚs̩</p>
+<p>"I got Warrior 10 and can now choose a specialization, but I'm uncertain…" Oh. That reminds me, I'm still a simple Warrior too. I think it's soon time I embrace the way of the saber. I've been a bit on the edge because of its sealed nature, but I like it a lot even as it is, and I've watched enough anime to know that it will be OP once it's unsealed.</p>
 <p>"What's there to think about? I'm sure you got an axe-wielder one. Axeman was it I think?"</p>
 <p>"Yes, but there's another one! I think it might be good, too."</p>
 <p>"Spit it out already, old lady. I don't have all day."</p>

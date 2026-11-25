@@ -31,7 +31,7 @@ chapter = 531
 <p>"It felt good."</p>
 <p>"… You’re unbelievable."</p>
 <p>"What can a man do, its soft touch and sensual jiggling brightens my mood more than I can describe. My vocabulary simply isn’t good enough to do so."</p>
-<p>"Men..." She scoffed adorably and I couldn’t help but notice her positioning her behind even closer to my face, as if inviting me to go ahead if it truly made me this happy. I already knew it, but I was once again forced to notice what a truly precious existence this one was. řáŊŐꞖЕ𝙨</p>
+<p>"Men..." She scoffed adorably and I couldn’t help but notice her positioning her behind even closer to my face, as if inviting me to go ahead if it truly made me this happy. I already knew it, but I was once again forced to notice what a truly precious existence this one was.</p>
 <p>Of course, I accepted her invitation.</p>
 <p>*Slap!*</p>
 <p>"Kya! It’s going to be red if it isn’t already!"</p>

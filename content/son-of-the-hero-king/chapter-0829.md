@@ -34,7 +34,6 @@ chapter = 829
 <p>A new sword appeared in Lilith’s grasp. While she had a main weapon that was created by Theresa, conjuring swords was nothing for her.</p>
 <p>“Do you truly believe the sword of someone who is not even a True Demigod yet can harm a god?”</p>
 <p>This time, Euphoria was truly looking at Lilith with disbelief. She thought that the woman simply planned to buy time until the Anubis, Ambrosia, and Echidna woke up.</p>
-<p>Ṙ𝘈Ν𝐎ᛒÊš</p>
 <p>However, she was shocked to be proven otherwise. No, the crazed woman before her was far more ambitious than that.</p>
 <p>Not only did she genuinely want to fight with her— a bona fide goddess, but her demeanor stated an unbridled confidence in herself. She believed she could win, that she could best a goddess,</p>
 <p>This realization irritated her to no end.</p>

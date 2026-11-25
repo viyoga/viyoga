@@ -26,7 +26,7 @@ chapter = 397
 <p>Cedric was not smart. However, now that he was given two such choices, even he could see which one would be better for him. He took one final glance at his lover, said goodbye to life as he knew it, and fiercely met the man's gaze. "Unlock my chains, Master Quinlan."</p>
 <p>…</p>
 <p>"Bah!" Selene spat once the ball of water finally dispersed. Her lungs were about to give out.</p>
-<p>"Please accept my sincerest apologies. You looked like a stranded fish so I thought I would put you back in your natural habitat, but it seems you didn't appreciate it. Maybe you only like salt water?" The monster leered, but she paid him no mind, for she couldn't. ŔàƝＯ𝔟È𝘴</p>
+<p>"Please accept my sincerest apologies. You looked like a stranded fish so I thought I would put you back in your natural habitat, but it seems you didn't appreciate it. Maybe you only like salt water?" The monster leered, but she paid him no mind, for she couldn't.</p>
 <p>Selene greedily began gasping for air, it took her an entire minute to regain her bearings. When she did, she came to a harrowing realization. She was alone with the monster and the blonde elven bitch.</p>
 <p>"What did you do to him?!" She screamed hysterically.</p>
 <p>It was the slut who replied while sporting a mocking grin that went from ear to ear. "He left of his own volition. You're alone now, traitorous bitch."</p>

@@ -26,7 +26,7 @@ chapter = 518
 <p>The messed-up sight of the woman made him shake involuntarily. "What now?" Iris asked with a manic grin while blood flew out of her mouth through her gritted teeth.</p>
 <p>"Y-y-you’re crazy!" Aldrin cried as a violent tremble overwhelmed his body while he tried to pull the sword out of her, but she refused to relent.</p>
 <p>"… So I’ve been told…" Iris chuckled as blood pooled under her.</p>
-<p>"[Phantom Slash]!" Ayame shouted, making her wakizashi glow with an ethereal light as she struck. The blade sliced cleanly across Aldrin’s neck by accessing the smallest surface of his gear where the armor was the weakest, severing his vital arteries in the process. ℟Áℕộ₿Εṣ</p>
+<p>"[Phantom Slash]!" Ayame shouted, making her wakizashi glow with an ethereal light as she struck. The blade sliced cleanly across Aldrin’s neck by accessing the smallest surface of his gear where the armor was the weakest, severing his vital arteries in the process.</p>
 <p>Aldrin’s eyes widened in shock as his blade slipped from his grip. Blood sprayed from the wound and strength left his body at a rapid pace, making him collapse to his knees.</p>
 <p>Iris stumbled back while clutching her chest as blood poured from her wound with the sword still embedded in her. Shallan rushed to her side, "Iris!" she called and caught the woman before she fell.</p>
 <p>"You dumbass… who told you to catch him with your body? We would’ve won without your sacrificial play." Ayame grumbled with dissatisfaction as she brought out a second healing potion for the woman to drink.</p>

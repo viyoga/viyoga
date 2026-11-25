@@ -35,7 +35,7 @@ chapter = 671
 <p>"Umm…" Blossom tapped her chin, entering deep concentration as she tried her utmost to find the right answer.</p>
 <p>"When he's horny, Blossom," Ayame cut in bluntly, nudging her confused friend toward realization.</p>
 <p>"Blossom still doesn't get it!"</p>
-<p>Aurora decided to spell out the truth to the confused girl. "Daddy likes it when you act all subservient. He gets off on having you obey his every perverted request just so you can earn back your good-girl status. You were never actually a bad girl... he just uses any minor fault he can find in your behavior as an excuse to make you indulge his fetishes." ṛÄℕo͍BΕs</p>
+<p>Aurora decided to spell out the truth to the confused girl. "Daddy likes it when you act all subservient. He gets off on having you obey his every perverted request just so you can earn back your good-girl status. You were never actually a bad girl... he just uses any minor fault he can find in your behavior as an excuse to make you indulge his fetishes."</p>
 <p>Seraphiel took the mantle from here. "On the other hand… Kitsara is the perfect example of a real bad girl. A sexual deviant who just doesn't know when to shut her perverted lips close."</p>
 <p>The gorgeous blond-haired healer mused for a bit while observing Quinlan cackle at the thrashing Kitsara's attempts at regaining her freedom. A big smile emerged on her lips due to the scene before she spoke up once again.</p>
 <p>"Quin has two major flaws, in my opinion. First, he's way too possessive of us. It's adorable and I believe I speak for all of us when I say we like being the recipient of the overwhelming feelings this greedy, jealous man harbors toward his women, but it will lead to problems eventually.</p>

@@ -28,7 +28,7 @@ chapter = 1087
 <p>But then Quinlan’s eyes narrowed in dangerous amusement. "Let’s not make that mistake again, shall we? We have just decided that the time for games is over, after all."</p>
 <p>Looking into those beautiful but oh-so frightening eyes of his, it was in this moment that Cassandra knew: I am done for.</p>
 <p>When he spoke again, his tone deepened, steady as law:</p>
-<p>"You are mine. You will never again consider yourself free, nor imagine a self apart from my will. You are my property, an object to be wielded, used, and discarded as I see fit. The word ’I’ no longer belongs to you, only to me." ȑÅΝȯ₿ЕS</p>
+<p>"You are mine. You will never again consider yourself free, nor imagine a self apart from my will. You are my property, an object to be wielded, used, and discarded as I see fit. The word ’I’ no longer belongs to you, only to me."</p>
 <p>"Your tongue is not yours. It will speak when I allow it. No cry, no whisper, no scream, no laugh will leave your lips unless I permit it. Even within [Master’s Link], your voice belongs to me. You will not scream, you will not warn, you will not so much as hum without my leave."</p>
 <p>This, however, didn’t mean that she could not warn him of danger or communicate using the link. She could, but only after being ordered. For example, if Quinlan sent her on a spying mission, she could transmit her findings, but no longer as a shrill scream like before.</p>
 <p>That being said, Quinlan wasn’t done just yet. Not at all.</p>

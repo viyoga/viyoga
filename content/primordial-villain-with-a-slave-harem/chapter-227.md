@@ -30,7 +30,7 @@ chapter = 227
 <p>Luke quickly regains his bearing from the gust of wind, only to be faced by three separate attacks. He manages to duck under the Fireball, gets hit in the chest with the Aqua Bolt, and raises his arm to his head to receive my saber's slash.</p>
 <p>He grunts painfully as my [Power Strike] empowered blade reaches its target, but, as expected, his armor holds. Only a slight damage is visible on it.</p>
 <p>Fuck. I just lost a few silver coins minimum.</p>
-<p>This guy is really sturdy. I will have to change tactics, as in a drawn out fight I'm the obvious underdog, especially since my mana reserves have been lacking before the fight even began. Ŗàɴö𝐁ЕⱾ</p>
+<p>This guy is really sturdy. I will have to change tactics, as in a drawn out fight I'm the obvious underdog, especially since my mana reserves have been lacking before the fight even began.</p>
 <p>My only real advantage is my versatility. I have to create a clever set of moves that lets me finish him off.</p>
 <p>Luke jumps at me, seething like a mad dog. He is double gripping his longsword and hacks away at me like I'm some celebratory pinata. It takes all my focus to not get any of my limbs chopped off, and he had already dispelled my Water Shield. It probably saved my life just now.</p>
 <p>"[Quake Stomp]" I begin my assault now that he has momentarily halted finally. The ground emits minor tremors, then violent shakes, until it seems like the ground under him is about to erupt as if it were an active volcano. "[Bubble Snare]" I continue, as I conjure a giant bubble that rapidly approaches the man desperately trying to regain his balance.</p>

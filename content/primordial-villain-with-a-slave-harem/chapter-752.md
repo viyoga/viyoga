@@ -37,7 +37,7 @@ chapter = 752
 <p>— Lionkin Scout (Level 5)</p>
 <p>— Lionkin Scout (Level 5)</p>
 <p>And so on.</p>
-<p>No names. No individuality. A million faceless echoes of the battlefield. Just weak, indistinguishable masses. Souls too degraded to retain their personhood. Tools… not people. Ř𝒶N∅ΒĘṥ</p>
+<p>No names. No individuality. A million faceless echoes of the battlefield. Just weak, indistinguishable masses. Souls too degraded to retain their personhood. Tools… not people.</p>
 <p>I turned the pages until the list stopped.</p>
 <p>[Elite Soul Archive – Ascended Souls]</p>
 <p>— Foxkin Archer (Rank 1)</p>

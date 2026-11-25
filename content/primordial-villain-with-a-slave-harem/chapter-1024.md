@@ -33,7 +33,7 @@ chapter = 1024
 <p>Because now, even they could tell:</p>
 <p>This was no longer a social misstep.</p>
 <p>This was a declaration.</p>
-<p>Blossom shifted under the robe Ayame had draped over her, still on the ground, her eyes trembling as she tried to make herself smaller. Her voice was barely a whisper, meant for no one in particular. &lt;subtex&gt;.&lt;/subtex&gt; ṛ𝐚ΝÒ𝔟ĘȘ</p>
+<p>Blossom shifted under the robe Ayame had draped over her, still on the ground, her eyes trembling as she tried to make herself smaller. Her voice was barely a whisper, meant for no one in particular. &lt;subtex&gt;.&lt;/subtex&gt;</p>
 <p>&lt;Ugh... Blossom made a big blunder...&gt;</p>
 <p>But she knew why.</p>
 <p>She hadn’t been careless.</p>

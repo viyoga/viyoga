@@ -56,7 +56,7 @@ chapter = 729
 <p>Silver, the leader of the foxkin people, who, unlike Rajah, glared at me with clear hostility.</p>
 <p>Skarn, the wolf boss, was silent, observing all leaders in equal measure.</p>
 <p>Lastly, Vargis, who was returning Silver’s glare in my stead.</p>
-<p>I would’ve liked to deal with Silver before today, ideally right after I humiliated him by beating his two sons, but I wasn’t presented with such an opportunity. 𝔯ἁNọꞖÊŠ</p>
+<p>I would’ve liked to deal with Silver before today, ideally right after I humiliated him by beating his two sons, but I wasn’t presented with such an opportunity.</p>
 <p>It wasn’t like I could demand his death, and the other beastkin lords would jump to complete my order.</p>
 <p>I had to let him go home from the summit, for he had done no wrong as far as beastkin laws were concerned.</p>
 <p>I didn’t know if we would clash in the future, but one thing was for certain: I would have to watch my back so long as I was in Beastman Confederation lands.</p>

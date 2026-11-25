@@ -24,7 +24,7 @@ chapter = 186
 <p>"Of course she is, just a bit winded." I state jokingly.</p>
 <p>I hoist Ayame over my shoulder like a heavy sack of potatoes, grunting from the weight of her armor. With a playful smirk, I deliver a swift smack to her behind. Sadly, her armor absorbs the entire impact, leaving me feeling like I just slapped a brick wall and not at all a perky feminine butt.</p>
 <p>She doesn't offer any reaction- no protest, no sharp retort, just more of her muffled, incoherent mumbling from earlier.</p>
-<p>I chuckle to myself. I really fried her brain, huh? Calling her "babe", a nickname she particularly didn't like due to my joke of calling her Quinlan's Beautiful Battle Babe back when we were registering for the adventurer plates, and if that's not enough, even smacking her behind like that didn't get a rise out of her. Ṝ𝘼ƝỒβЁṦ</p>
+<p>I chuckle to myself. I really fried her brain, huh? Calling her "babe", a nickname she particularly didn't like due to my joke of calling her Quinlan's Beautiful Battle Babe back when we were registering for the adventurer plates, and if that's not enough, even smacking her behind like that didn't get a rise out of her.</p>
 <p>Normally, I should be getting ready to avoid an incoming sword swing right about now.</p>
 <p>"Yep, she's definitely gone," I mutter, more to myself than anyone else.</p>
 <p>'Today I have been greedy like hell, and it all paid off. Let's just go for the home run, shall we?' I can't resist the temptation of succeeding in our mission, even if it's risky. Your next chapter awaits at m,vlempyr.</p>

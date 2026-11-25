@@ -36,7 +36,7 @@ chapter = 1016
 <p>She clasped her hands together and put on a mock-serious face. "’Daughter, you sent another batch of assassins after me...’"</p>
 <p>Her voice dropped into mock horror. "Curses! Didn’t they succeed even now? I need to get serious now!"</p>
 <p>The girls blinked. Then a few snorted. Even Ayame rolled her eyes.</p>
-<p>"It’s morbid humor, I know," Felicity admitted. "But what else can you do when your family dinners include poison checks and disguised hitmen? Our father’s not exactly a... typical dad." ŕΑꞐốΒÊṥ</p>
+<p>"It’s morbid humor, I know," Felicity admitted. "But what else can you do when your family dinners include poison checks and disguised hitmen? Our father’s not exactly a... typical dad."</p>
 <p>That, at least, earned a round of quiet nods.</p>
 <p>The moment was disturbed by a soft voice.</p>
 <p>A maid in ceremonial black and gold stepped into the garden, keeping her head bowed low as she halted a respectful distance from the seated princess and guests.</p>

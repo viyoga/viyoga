@@ -29,7 +29,7 @@ chapter = 1052
 <p>The realization hit him hard.</p>
 <p>He had been outplayed.</p>
 <p>While the nobility assumed Alexios was idly sitting on his throne as generations before him had, the king had been quietly shifting the pieces on the board. He’d struck before Alastair could even see the trap being set.</p>
-<p>Marrying Morgana was definitely not all that he did to dismay Tharion, and Alastair felt the relationship between the king and Kaede to be fishy as well. There was a chance they had struck a deal behind everyone’s backs. ř𝘢ꞐóΒΕŜ</p>
+<p>Marrying Morgana was definitely not all that he did to dismay Tharion, and Alastair felt the relationship between the king and Kaede to be fishy as well. There was a chance they had struck a deal behind everyone’s backs.</p>
 <p>"I have every right to question your ability, Alastair," King Alexios finished his lecturing with a sharp statement. "And that’s exactly what I’m doing right now."</p>
 <p>A stir went through the gathered nobles, but before the duke could muster a reply, a firm voice spoke from behind the king.</p>
 <p>"Royal Father, pardon the interruption."</p>

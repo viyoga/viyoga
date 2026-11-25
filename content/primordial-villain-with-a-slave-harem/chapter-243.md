@@ -30,7 +30,7 @@ chapter = 243
 <p>Its people are too lazy or unavailable to even grow their own food.</p>
 <p>There's no sign of life out here, save for the occasional flicker of movement from a stray dog or a lone goat wandering between the houses, looking for whatever scraps they can find.</p>
 <p>If I had to describe this village in a sentence then it would be; 'a sad mix of poverty, neglect and desperation.'</p>
-<p>I let my passenger down and allow her to grab onto the hem of my armored attire. She would be truly lost without me guiding her in the dark. Beatrice says nothing, but I can feel the tension in her body rising with every step we take. This is her home. This is where she and Anna struggled to survive, day in and day out. Ꞧ₳ŊОＢÊs̩</p>
+<p>I let my passenger down and allow her to grab onto the hem of my armored attire. She would be truly lost without me guiding her in the dark. Beatrice says nothing, but I can feel the tension in her body rising with every step we take. This is her home. This is where she and Anna struggled to survive, day in and day out.</p>
 <p>This is where she was sold to be child prostitutes together with her beloved sister, by the hand of their own father.</p>
 <p>Seeing it in person now, it's hard to imagine how they managed to keep going. 'What a depressing place this is…' I can't help but think.</p>
 <p>The strong narcotics have definitely laid waste to this settlement. I could easily blame the Wraithclaws for distributing it to severely disadvantaged people who they know won't be able to keep paying using their meager traditional income, forcing them to sell their items, properties, and even children. However, the Vesper Consortium is just as much to be blamed, if not more.</p>

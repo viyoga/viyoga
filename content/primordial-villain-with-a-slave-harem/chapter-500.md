@@ -34,7 +34,7 @@ chapter = 500
 <p>I then turned back to Jasmine, "Maybe I’ll buy you a Cryomancer slave instead… They can double in as your assistant cook."</p>
 <p>Another nonsensical line from yours truly that riled our audience up.</p>
 <p>"Ok!" Jasmine cheered before adding; "But husband, I’m not a superficial woman who is all about materialism, I’ll be happy with a simple kiss..."</p>
-<p>Her statement surprised me greatly. A few minutes ago she was shaking in her boots due to all the big names that surrounded us, yet now she wanted to kiss me in front of them all? ℟áＮỘBĚ𐌔</p>
+<p>Her statement surprised me greatly. A few minutes ago she was shaking in her boots due to all the big names that surrounded us, yet now she wanted to kiss me in front of them all?</p>
 <p>I was not a man who would kiss random women just cause the occasion was there to do so. "You know what that means?" I asked in a way that wouldn’t be strange for the listeners.</p>
 <p>What I asked was: are you ready to become my woman, no matter what that entails?</p>
 <p>However, what they heard was: are you fine with displaying such a personal act in front of so many people?</p>

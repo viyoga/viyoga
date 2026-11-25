@@ -35,7 +35,7 @@ chapter = 171
 <p>[Wisdom: 18]</p>
 <p>[Unused Skill Points: 16]</p>
 <p>[Unused Attribute Points: 15]</p>
-<p>Yeah, I have to admit that I shamelessly neglected leveling up for the last couple of days, but this is an amazing opportunity to make up for my recent inaction. ℝ𝒶𝐍ȫʙÈʂ</p>
+<p>Yeah, I have to admit that I shamelessly neglected leveling up for the last couple of days, but this is an amazing opportunity to make up for my recent inaction.</p>
 <p>"You are so smart, my amazing master…" Ayame finally murmurs a response to my inquiry with a obvious indignation. "An outstanding genius among geniuses."</p>
 <p>I sigh dejectedly. "If only my adorable Blossom were here, she would be singing my high praises..."</p>
 <p>I then turn towards my warrior only to see her in a strange posture. Sadly I can't see her eyes as she is wearing her mask, but I'm sure she is up to something. She leans forwards slightly, clutches her hands to her chest and begins slowly swaying her hips, while erupting into a cheery but obviously mocking tone; "Master is so smart! Ayame is absolutely flabbergasted!</p>

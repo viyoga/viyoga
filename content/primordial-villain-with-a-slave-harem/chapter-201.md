@@ -32,7 +32,7 @@ chapter = 201
 <p>It's good to see that I won't have to worry about the newcomer not fitting in with the established members.</p>
 <p>Knowing that the innkeepers are not exactly available at the moment we decided to clean up our mess ourselves, after which Aurora returned to her work and I took my two slaves to get their collars swapped.</p>
 <p>I must pat myself on the back, because both of them look extremely hot in my chosen ones. Much sexier than the bulky, out-of-place iron collar.</p>
-<p>We washed ourselves at a bath house on the way back- much to my and Blossom's regret they had no mixed gender baths- and then found ourselves in our rooms. ŕÅ𐌽ȎВĚṢ</p>
+<p>We washed ourselves at a bath house on the way back- much to my and Blossom's regret they had no mixed gender baths- and then found ourselves in our rooms.</p>
 <p>"Master… Blossom wants to receive Master's affection, but she is just so tired…" Blossom states dejectedly while fighting desperately to keep her pupils open.</p>
 <p>Sadly, I understand why this is the case. She worked the hardest during this mission, and the fact that I fingered her until she squirted a whole riverful of lady-juices doesn't help her energy reserves either.</p>
 <p>"You've done excellently today, so sleep tight for now. We can make up for lost time tomorrow." I state and kiss her on the forehead, after which she nods, then jumps into the bed and instantly falls asleep.</p>

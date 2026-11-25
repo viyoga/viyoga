@@ -43,7 +43,7 @@ chapter = 1014
 <p>...</p>
 <p>"Would it be alright for me to ask you something?" Jasmine spoke up after a few minutes of idle chatter.</p>
 <p>"Miss Brown, of course!" Felicity chirped, perking up with a smile as bright as ever.</p>
-<p>Jasmine hesitated for a moment, wondering if she really wanted to ask this, then nodded once. "Your father said something that piqued my interest. I’d like to ask about it, if you don’t mind considering it concerns your family." ŖÅNőＢΕṨ</p>
+<p>Jasmine hesitated for a moment, wondering if she really wanted to ask this, then nodded once. "Your father said something that piqued my interest. I’d like to ask about it, if you don’t mind considering it concerns your family."</p>
 <p>"Of course!" Felicity beamed again, a little too quickly. Her easy openness earned her a few sidelong glances from the others.</p>
 <p>Shouldn’t a royal be a bit more... careful when talking about the inner workings of the Valorian throne?</p>
 <p>Still, Jasmine wasn’t one to look a gift horse in its mouth. "Your father said his first daughter hates him enough to try killing him over a hundred times. That his first son counts the days until his death. That his second son can’t even look at him anymore, and that his second daughter ran away to the Church, the one place in the human lands he can’t reach easily. Could we hear your thoughts on this? I’m asking because I have a feeling there’s more to it than the king let on."</p>

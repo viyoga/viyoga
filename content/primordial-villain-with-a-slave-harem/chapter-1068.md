@@ -26,7 +26,7 @@ chapter = 1068
 <p>"... Moving on. Devil. What will it take for you to give me my daughter back?"</p>
 <p>Quinlan didn’t like his tone. "You know, I might be a wanted criminal, but I still have nothing to do with your daughter’s kidnapping. Stop making it sound like I took your child away. In fact, I’d say I’m the victim in all of this. First, your wife attacks me, and now your daughter slips into my home uninvited..."</p>
 <p>He released a dramatic sigh, sounding like a man who was carrying too big a burden on his shoulders.</p>
-<p>"Who do you think will feed her? House her? Ensure she has an actually competent math tutor, as her ultra-rich parents couldn’t find a good candidate in their hundreds of millions of subjects? Poor little Devil, that’s who. You Valorians couldn’t physically ruin me, so now you’ve decided to attach a parasite to me who will drain my treasury." ℝАɴỔ𝔟Èş</p>
+<p>"Who do you think will feed her? House her? Ensure she has an actually competent math tutor, as her ultra-rich parents couldn’t find a good candidate in their hundreds of millions of subjects? Poor little Devil, that’s who. You Valorians couldn’t physically ruin me, so now you’ve decided to attach a parasite to me who will drain my treasury."</p>
 <p>"L-L-Lord Black?! What are you even saying?!" Felicity stammered and then cried with utmost outrage. She couldn’t believe what her ears were telling her.</p>
 <p>She was being introduced to a whole new side of Quinlan just now... To the abyss where his endless shamelessness resided. Felicity’s eyes widened like saucers when she found one of his fingers placed against her lips, shutting her up. "The adults are speaking."</p>
 <p>"MM!!!!"</p>

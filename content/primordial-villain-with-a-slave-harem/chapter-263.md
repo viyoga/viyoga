@@ -28,5 +28,5 @@ chapter = 263
 <p>However, Quinlan's grip tightened on her shoulder as he growled at me. I nearly pissed myself hearing his low, guttural tone that was drenched in boiling fury. "Are you trying to guilt trip this awesome woman who gave you twenty years of her life? To such a pathetic worm like you?</p>
 <p>Count your lucky stars that you are still in speaking condition because I would've absolutely ruined you for what you just said if not for Lucille. She wants a peaceful divorce and a normal, healthy separation. Do you agree to sign the papers?"</p>
 <p>How dare this man blame me?! Suddenly I get some bravery in my veins. "You do know that what you are doing is adultery, correct? You, scumbag, are stealing my wife, and you, Lucille, are cheating on your legally recognized husband. We are not divorced as of this moment, so I'm right.</p>
-<p>If I went to the authorities both of you would be enslaved for life, because the last time I checked that was the punishment for your crimes in our duchy." ṝ𝖆Ɲo͍ᛒЁṧ</p>
+<p>If I went to the authorities both of you would be enslaved for life, because the last time I checked that was the punishment for your crimes in our duchy."</p>
 <p>By the end of my threat I even stood up and started shouting with confidence. It felt good to stand up for myself once.</p>

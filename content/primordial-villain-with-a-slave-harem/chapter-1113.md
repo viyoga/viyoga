@@ -32,7 +32,7 @@ chapter = 1113
 <p>"Furthermore, Black Fang and Orianna are more than twice your age; it would be rather embarrassing for the grannies if you managed to beat them. Even Vex is fifty or so years older. She’s lived a lot longer than you have."</p>
 <p>"... Today...?" Raika grunted hoarsely from beneath her hand.</p>
 <p>Quinlan understood the unsaid parts of her question, which were, ’But what about today?’</p>
-<p>"Your home was invaded by multiple level seventy and above ancient monsters, wasn’t it? You, as a woman who is about level 60, put up a big fight. I’m sure of it." 𝔯ÃŊ𝐎𝖇Ёs̩</p>
+<p>"Your home was invaded by multiple level seventy and above ancient monsters, wasn’t it? You, as a woman who is about level 60, put up a big fight. I’m sure of it."</p>
 <p>The hand covering her face lifted. Her eyes, bloodshot and red, peeked out at him. She didn’t speak, just stared at him expectantly, waiting for him to continue his analysis.</p>
 <p>Quinlan smiled. "Look, even Black Fang was forced to retreat. She had to call me to extract you three, or there might’ve been permanent casualties."</p>
 <p>"Age, levels, number of allies... Are just excuses..." Raika muttered dismissively.</p>

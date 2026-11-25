@@ -25,7 +25,7 @@ chapter = 770
 <p>"I admit it. You’re right, Quinnie I’ve spent nearly two hundred years thinking about how my first time would have to go down for it to be considered perfect</p>
 <p>Her fingertips brushed lower, dancing along the lines of my abs.</p>
 <p>"And yes she continued, admitting shamelessly as her eyes sparkled with unfiltered lust and longing, “I do have my urges, just like any other healthy woman. I’m not ashamed to admit fantasizing about perverted things She then paused for a moment, licking her lips with her tantalizing tongue before adding, “And, surprise, surprise, I’ve already touched myself at my most sacred place</p>
-<p>For a moment, I simply stared at her. The words, the sight, the way her tongue had darted out to wet her lips… It all struck me like a hammer straight to the chest. Or lower. 𝙍𝘈ŊÖ𝐁ΕS</p>
+<p>For a moment, I simply stared at her. The words, the sight, the way her tongue had darted out to wet her lips… It all struck me like a hammer straight to the chest. Or lower.</p>
 <p>A low, guttural sound, somewhere between a growl and a broken whimper, slipped past my throat without my permission. My hands flexed instinctively, craving to seize her, to pin her down, to claim what was so shamelessly being offered to me in a way that no fantasy could ever match.</p>
 <p>Vex’s smile blossomed like a deadly, beautiful flower at the sight of my reaction. Bright, proud, and utterly radiant. She practically beamed at me, clearly delighted at the havoc she was wreaking on my self-control and proud of the resounding effect her feminine charms were having on me.</p>
 <p>It was a smile that said, ‘I’m everything you want, and I know it.’</p>

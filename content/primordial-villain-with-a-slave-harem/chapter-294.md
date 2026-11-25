@@ -23,7 +23,7 @@ chapter = 294
 <p>The spearwoman had recovered from being kicked in the belly. She joined the fray by thrusting her weapon at my side again. Her expression was a strong mixture of grief and rage. I sidestepped while deflecting her spear with a swift parry, and spun to face the Phenom, whose swords were once again bearing down on me.</p>
 <p>I blocked his overhead strike with my saber and kicked out at him, forcing him to stagger back.</p>
 <p>As if on cue, the mage unleashed another spell- a swirling vortex of water aimed directly at me. After nearly getting done in by him with his last attack, I was ready for him this time. I muttered a quick incantation, casting [Cyclone] to meet the vortex head-on. The winds from my spell collided with the water, creating a storm of mist and debris between us.</p>
-<p>His powers were still stronger than mine sadly, but the Cyclone diverted a lot more of his spell than my simple saber slash did previously, so I could just shrug the rest off with minor bruises. RᴀƝ𝖔ᛒЁS̈</p>
+<p>His powers were still stronger than mine sadly, but the Cyclone diverted a lot more of his spell than my simple saber slash did previously, so I could just shrug the rest off with minor bruises.</p>
 <p>Stay tuned with</p>
 <p>The fight was getting more desperate as I slowly lost in both initiative and HP.</p>
 <p>They must've been very well aware of the timer they were on since as soon as my team finished with their opponents it would turn into a 3v6 for them, thus their reckless offensive on me was understandable.</p>

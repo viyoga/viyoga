@@ -24,7 +24,7 @@ chapter = 147
 <p>I won't hold myself back if I meet a girl who particularly sparks my interest, but I don't want to become a lecherous manwhore.</p>
 <p>Should fate wish, I will meet this timid girl once again and perhaps she will make a strong enough impression on me then.</p>
 <p>"Since Blossom is a good girl now… Can Master and Blossom resume the Gourmet Quest?" My gorgeous dog-kin speaks up to ask an important question.</p>
-<p>Oh, yeah, that. I completely forgot about it. We were supposed to try every delicacy of the market but I got severely sidetracked by her evil temptations. 𝘳α₦Ö₿Ё𝙨</p>
+<p>Oh, yeah, that. I completely forgot about it. We were supposed to try every delicacy of the market but I got severely sidetracked by her evil temptations.</p>
 <p>"Sure." I respond and we begin our search for our target.</p>
 <p>The next few stops include smoked sausages, spiced potato wedges, and a rich stew served in bread bowls. Each dish is better than the last, and with every bite, I feel more invigorated, as if the food itself is fueling my energy reserves, which admittedly did get somewhat depleted thanks to devouring my Blossom's luscious body.</p>
 <p>Blossom for her part seems to be in heaven. She's practically bouncing on her feet between each stall, her dog-kin nature showing as she sniffs out the best foods and eagerly anticipates the next bite. Her joy is contagious, and I find myself unable to suppress happy grins from appearing on my features as we continue our all-important quest.</p>

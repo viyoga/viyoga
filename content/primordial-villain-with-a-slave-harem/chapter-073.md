@@ -25,7 +25,7 @@ chapter = 73
 <p>Not everyone is capable of trusting a stranger with their entire existence after a few days like Blossom, especially if they've been betrayed by their own kin before… And what you're wanting from her isn't just trust but the kind of physical companionship that can only exist between a man and woman…"</p>
 <p>I smile and pet her head, "yeah. You're right, she is slowly but surely getting closer to me. I just hope that she won't forget my words about me not wishing to be her friend or big brother figure."</p>
 <p>"She remembers clearly."</p>
-<p>"Then all is good. In the meantime she might want to get a separate room from me and Blossom, right? I don't believe that it would take long for our relationship to develop, perhaps even today something good might happen." 𝙍𝘼Ｎò𐌱ÈS</p>
+<p>"Then all is good. In the meantime she might want to get a separate room from me and Blossom, right? I don't believe that it would take long for our relationship to develop, perhaps even today something good might happen."</p>
 <p>"... She might. You are right in that Blossom wouldn't object, but I hope you will be sure that that is what she actually wants and isn't just doing it out of obligation for her new owner… While there's nothing technically wrong with that, I would be happy if Blossom's first time is with someone she genuinely wishes to give it to."</p>
 <p>"I wouldn't have it any other way. Sex feels pretty good but nothing compares to the experience when both of your hearts are entirely involved with each other."</p>
 <p>"You sound like an elder from my old clan. Can I take your statement as confirmation that you've been with women before?"</p>

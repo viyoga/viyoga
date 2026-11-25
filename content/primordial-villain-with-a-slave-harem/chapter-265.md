@@ -25,7 +25,7 @@ chapter = 265
 <p>Some heads snapped in the direction of the intelligence leader who just said such an outlandish idea.</p>
 <p>"That many?! At the last Trial, it was only ten thousand."</p>
 <p>"How will we even conduct the Trial with that many candidates?"</p>
-<p>The intelligence head smiled while listening to their worries amusedly before finally responding. "You have to remember that not all of them are Phenom candidates. Each Phenom can have up to five Heralds under their command, thus we can expect lots of teams to show up with only a single Phenom candidate amongst them. ŕἈŊȯ฿Ě𐌔</p>
+<p>The intelligence head smiled while listening to their worries amusedly before finally responding. "You have to remember that not all of them are Phenom candidates. Each Phenom can have up to five Heralds under their command, thus we can expect lots of teams to show up with only a single Phenom candidate amongst them.</p>
 <p>As for how we will conduct the trial with these numbers, it's simple; through multiple rounds of challenges."</p>
 <p>"Ohh! That sounds exciting. My old bones shook a little. But, then I wanna bring up another point. Since there will be teams of six, Phenom candidates who show up without a team or a team with fewer members will face an unfair disadvantage.</p>
 <p>I know that in past decades we just shrugged our shoulders and said that having the ability to create a team of loyal members is necessary for our Phenoms, but I think we could give them a little helping hand this time. Some geniuses simply aren't cut out to create teams from thin air. We shouldn't discard them outright."</p>

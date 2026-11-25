@@ -26,7 +26,7 @@ chapter = 14
 <p>Her eyes widen in shock before she shudders. "So basically, anything goes… Scum…"</p>
 <p>I don't mind her berating me a bit, I am rather shameless after all. It's best that she understands what she signs up for clearly so that we won't have annoying issues down the line.</p>
 <p>We won't be playing by the already established rules; we will be the ones who decide what's right or wrong.</p>
-<p>After a heated internal debate, it seems the devil on her shoulder beat the angel in the end. "... Ok…" I hear a very faint sound come out of her lips. ℞ÄＮO͍฿Еṩ</p>
+<p>After a heated internal debate, it seems the devil on her shoulder beat the angel in the end. "... Ok…" I hear a very faint sound come out of her lips.</p>
 <p>"Huh, what was that? Must've been the wind…" I tease.</p>
 <p>She glares at me with great annoyance visible in her eyes. "I said! OK! I agree to become a thieving scum if that is what it takes!" Oh, the jade beauty raised her voice for the first time. My smile turns into a giant grin. I can tell having her by my side and slowly corrupting her noble warrior's spirit would be a lot of fun.</p>
 <p>"Great! I can't say that I'm not interested in conquering your clan, as I imagine there's a lot of riches to be gained from such an endeavor, but as I said earlier, I'm terribly weak. Here's what I can offer you, Ayame: teach, train and help me level up for three years.</p>

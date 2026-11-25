@@ -35,7 +35,7 @@ chapter = 551
 <p>&lt;He’s a brawler type; I don’t know his exact class.&gt; Ayame revealed the info, sensing the situation was worsening.</p>
 <p>I summarized, &lt;So basically a more dripped-out version of Abudha, who doesn’t yet know his place in the pecking order.&gt;</p>
 <p>&lt;Don’t badmouth your subordinates.&gt;</p>
-<p>I tactfully ignored Ayame’s chiding while at long last responding. "Yes, senior. Your striking appearance stunned me for a moment. Boy, am I glad we’re on the same side!" ℟άɴ𝐨ВΕṢ</p>
+<p>I tactfully ignored Ayame’s chiding while at long last responding. "Yes, senior. Your striking appearance stunned me for a moment. Boy, am I glad we’re on the same side!"</p>
 <p>A happy grin emerged on his features. "Haha! As long as you’re aware, we’re all good."</p>
 <p>However, the woman clinging to his arm wasn’t as socially inept as he was. She pinched his skin and hissed, "He was being sarcastic!"</p>
 <p>Ryker’s smile faltered instantly as he shouted, "What?! How dare you?!"</p>

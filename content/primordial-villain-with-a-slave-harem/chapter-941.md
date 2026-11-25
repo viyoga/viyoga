@@ -36,7 +36,7 @@ chapter = 941
 <p>Not forced disbelief.</p>
 <p>But a full, melodic, thigh-slapping, head-tilting cackle of a woman who had long since abandoned logic when it came to the man she loved.</p>
 <p>"You just got another five levels worth of stats!!" she howled between breaths, smacking her juicy thighs with unrestrained glee.</p>
-<p>Ayame groaned, Aurora whispered "so unfair" under her breath, with a happy smile on her lips, and Lucille just sighed with a knowing smirk, arms crossed beneath her cleavage. ṜÀNȫʙĘṧ</p>
+<p>Ayame groaned, Aurora whispered "so unfair" under her breath, with a happy smile on her lips, and Lucille just sighed with a knowing smirk, arms crossed beneath her cleavage.</p>
 <p>Quinlans smile grew broader at the adorable reactions of his girls, but he had two more important things to get to before he could forget himself in their tender embrace. So, he opened a new [Masters Link] connection.</p>
 <p>&lt;Kitsara.&gt;</p>
 <p>There was a pause. Then came a delighted screech from his one and only awesome foxkin lover.</p>

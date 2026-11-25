@@ -28,7 +28,7 @@ chapter = 1083
 <p>’Soon.’</p>
 <p>While Quinlan was preparing to summon his soul army, Jasmine was already working her magic. Her blue eyes glittered faintly at first. But then... a drastic change occurred.</p>
 <p>The sapphire hue melted away, replaced by blindingly bright gold. Her irises gleamed like freshly minted coins, impossibly bright, unnaturally sharp. They caught every flicker of mana in the air and turned it into radiance, burning like miniature suns in the darkness.</p>
-<p>It wasn’t a gentle glow one might expect from a tender soul such as Jasmine. No, her eyes were cutting, domineering. Those golden eyes were not meant to invite trust. They were meant to command. To demand. To remind the world that wealth was more than paper, more than metal. It was power incarnate. ṘÃΝɵᛒΕṣ</p>
+<p>It wasn’t a gentle glow one might expect from a tender soul such as Jasmine. No, her eyes were cutting, domineering. Those golden eyes were not meant to invite trust. They were meant to command. To demand. To remind the world that wealth was more than paper, more than metal. It was power incarnate.</p>
 <p>But more importantly than anything, they served as undeniable proof that...</p>
 <p>The entity known as Jasmine Argentis... No, that wasn’t quite right. Not anymore. It should be...</p>
 <p>The entity known as Jasmine Elysiar was no longer an insignificant existence. No longer a mere run-of-the-mill merchant girl, she was now...</p>

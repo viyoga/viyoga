@@ -31,7 +31,7 @@ chapter = 698
 <p>Her attitude immediately shifted once the words left my mouth. Her smile disappeared, replaced by anxious, begging puppy eyes. "Must you leave?" She strengthened her weak arms around my skull, not wanting to let go.</p>
 <p>"… Your father and mothers have chosen a difficult path for themselves," I admitted in a serious tone. "Instead of playing things safe, we've decided to shoot for the stars."</p>
 <p>"Instead of playing things safe…" she repeated before protesting, "Daddy is already plenty strong! You don't need to take so many risks!"</p>
-<p>I shook my head. "Just today, our home was uh… 'found and entered' by Lady Yoruha and Celeste. As our luck would have it, they turned out to be kind people, but what if they had been hostile? I'm not strong enough to protect you from beings of their power level just yet. That's why I must leave and become powerful enough to protect all who I care about." ŗ𝔞ℕỌ𝐛Ę𝓢</p>
+<p>I shook my head. "Just today, our home was uh… 'found and entered' by Lady Yoruha and Celeste. As our luck would have it, they turned out to be kind people, but what if they had been hostile? I'm not strong enough to protect you from beings of their power level just yet. That's why I must leave and become powerful enough to protect all who I care about."</p>
 <p>"Rosie doesn't need to be protected! Instead, she'll protect Daddy from enemies!"</p>
 <p>… How adorable…</p>
 <p>I didn't know what to do besides giving the teary girl a few big loving headpats. As I was doing that, a muted whisper left her lips. "Rosie can't leave, even if she was allowed to…"</p>

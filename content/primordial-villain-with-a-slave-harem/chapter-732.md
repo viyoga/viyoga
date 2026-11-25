@@ -46,7 +46,7 @@ chapter = 732
 <p>Prime!&gt; she wailed.</p>
 <p>&lt;Master’s prime real estate,&gt; I corrected.</p>
 <p>&lt;Ugh!&gt;</p>
-<p>With my descent slowed and form cloaked, I drifted down like a ghost, feet touching down upon the stone walls of Lionheart without so much as a whisper. ᚱÅΝồ𐌱Êṧ</p>
+<p>With my descent slowed and form cloaked, I drifted down like a ghost, feet touching down upon the stone walls of Lionheart without so much as a whisper.</p>
 <p>No flash, no dramatic entrance, just a Void Stalker claiming her hunting ground.</p>
 <p>&lt;Blossom has successfully landed!&gt; I whispered to Master as I pressed myself to the shadows of the battlements.</p>
 <p>All around me, the guards continued their rounds, unaware that I had just landed among them.</p>

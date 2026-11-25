@@ -32,7 +32,7 @@ chapter = 439
 <p>Perhaps due to his deep voice or Shallan's previous shaking, the other four awoke together and soon kneeled next to their allies while eyeing the man who obviously had the upper hand in this situation. Even without context, they understood that they should obediently listen. However, their eyes also widened from shock when they saw Kai's desecrated corpse.</p>
 <p>"My apologies, he smells a bit. I didn't feel like wasting resources to preserve his corpse." The man continued his monologuing with a jovial tone.</p>
 <p>"What can I call your lordship?" Liora asked. She wanted to propose some questions, but it was difficult without knowing how to address their captor.</p>
-<p>"Oh, how rude of me. Quinlan is the name. You saw me once in the Adventurer's Guild's tavern, but I suppose you don't remember me. I did change a lot since then, after all. What can I call you six?" ṚἈꞐỐ𝐛ΕṠ</p>
+<p>"Oh, how rude of me. Quinlan is the name. You saw me once in the Adventurer's Guild's tavern, but I suppose you don't remember me. I did change a lot since then, after all. What can I call you six?"</p>
 <p>"Blonde." Liora replied on instinct.</p>
 <p>"I didn't mean your hair color, or is that your name? Man, some parents have horrible naming sense… Jack Black…" He started snickering when he said that name for some reason. Shallan had to agree though, it was bad.</p>
 <p>"No, Lord Quinlan, it's just that Maste-"</p>

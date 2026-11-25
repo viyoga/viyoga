@@ -29,7 +29,7 @@ chapter = 1076
 <p>A giant smile materialized on the dogkin’s delicate face. &lt;Blossom loves Master!&gt;</p>
 <p>&lt;Master loves Blossom too. Now, focus.&gt;</p>
 <p>&lt;Yes!&gt;</p>
-<p>Blossom’s robe fluttered as she vaulted across a spire, flipping with grace before landing on a tiled roof. Her heart was still fluttering from Quinlan’s promise, but, with painstaking effort, she shoved it down and sharpened her focus. ℟𝐚NоᛒƐs̈</p>
+<p>Blossom’s robe fluttered as she vaulted across a spire, flipping with grace before landing on a tiled roof. Her heart was still fluttering from Quinlan’s promise, but, with painstaking effort, she shoved it down and sharpened her focus.</p>
 <p>She was the Void Stalker. And the Void Stalker meant death unseen, not a lovestruck girl with a heartbeat so loud even level 1 peasants would notice her presence.</p>
 <p>Blossom flared her nose. The city’s stench hit her senses like a tidal wave. A disgusting tidal wave. Sweat, piss, horse dung, roasted meats, spiced wines, fresh laundry, mold, perfume, incense, candle wax, burning coal... everything at once.</p>
 <p>Her pupils thinned, and her world sharpened. To almost anyone else, even among the beastkin people, it would be impossible. But Blossom was not only a truly talented girl who was blessed with an incredible nose at birth, but she has since then become the Void Stalker, a class specializing in not only assassination.</p>

@@ -31,7 +31,7 @@ chapter = 841
 <p>"Exactly," Ayame nodded, standing again, flipping her katana in her hand. "So what are you waiting for?"</p>
 <p>Blossom’s tears stopped.</p>
 <p>Her heart pounded.</p>
-<p>She shot to her feet in a burst of sudden resolve, ears perked and tail stiff with determination. Her gaze turned toward the screams echoing from the battleline beyond the glade. 𝑅âƝ𝙤𝔟Ê𝒮</p>
+<p>She shot to her feet in a burst of sudden resolve, ears perked and tail stiff with determination. Her gaze turned toward the screams echoing from the battleline beyond the glade.</p>
 <p>"Blossom won’t waste time anymore! Blossom will become strong enough to kill Master’s enemies so they can’t hurt him! And Master will pet her head and call her his good girl when he returns!!"</p>
 <p>Lucille gave a savage grin as she reached for her large axe. "Atta girl."</p>
 <p>Poppy smirked and flicked her sister’s ear. "Try not to get hurt in your overeagerness, sis."</p>

@@ -24,7 +24,7 @@ chapter = 368
 <p>"Right! This is unfair!" Lumi shouted furiously.</p>
 <p>"Are you fine, Quinnie?" Mearie asked worriedly. She was also beyond enraged, but his well-being was much more important right now.</p>
 <p>"I-I don't know. I need some time to think."</p>
-<p>"Come, you should sleep! We'll cook you a warm meal and make a comfortable bed for you to rest in." Lumi hurriedly began dragging him away by his hands. ṙÁ𝐍оᛒÈṢ</p>
+<p>"Come, you should sleep! We'll cook you a warm meal and make a comfortable bed for you to rest in." Lumi hurriedly began dragging him away by his hands.</p>
 <p>…</p>
 <p>- PoV: Quinlan -</p>
 <p>I'm not gonna lie, the past week was simply amazing. If any army vet is suffering from PTSD, I recommend they get themselves two turbo-dedicated mommies who wish for nothing in life besides pampering him to the highest degree possible.</p>

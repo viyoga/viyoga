@@ -31,7 +31,7 @@ chapter = 336
 <p>"I can't wait!"</p>
 <p>"Life is so good! Hehe!"</p>
 <p>I didn't know where to place this scene so I elected to ignore the cheery plants.</p>
-<p>Beyond the field of flowers, I saw towering trees with iridescent leaves that cast multicolored shadows, and their branches were stretching out into the empty sky like skeletal arms reaching for something just out of reach. ɌАŊ𝔬฿Е𐌔</p>
+<p>Beyond the field of flowers, I saw towering trees with iridescent leaves that cast multicolored shadows, and their branches were stretching out into the empty sky like skeletal arms reaching for something just out of reach.</p>
 <p>I peered down from the edge of the island where I stood and saw nothing but endless clouds.</p>
 <p>Panic surged in my chest as reality hit me. I didn't have time to be here. Every second I spent away was another moment my team was left alone with the scheming bitch Selene ready to kill them so that she could escape with her wretched life intact. I thought the mission initiation would summon an apocalypse or that some brutal creatures would flood the battlefield to create chaos, which I could use to divert the enemy's attention and turn the tides of battle. However… instead… I'd been</p>
 <p>Teleported</p>

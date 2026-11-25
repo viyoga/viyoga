@@ -29,7 +29,7 @@ chapter = 659
 <p>I exhaled and forced myself into a seated position, folding my legs beneath me. I couldn't afford to waste any time.</p>
 <p>If I couldn't fight this enemy through sheer force…</p>
 <p>Then I would learn.</p>
-<p>I reached out, letting a wisp of foxfire dance in my palm. I studied it intently, watching the way it moved, the way it resisted, the way it clung to the very fabric of existence like a curse that refused to be undone. Ɍ𝘈ꞐＯβĚ𝐒</p>
+<p>I reached out, letting a wisp of foxfire dance in my palm. I studied it intently, watching the way it moved, the way it resisted, the way it clung to the very fabric of existence like a curse that refused to be undone.</p>
 <p>And so, I sat there, deep in meditation, while my body burned.</p>
 <p>Because if I wanted to win…</p>
 <p>I had to understand the enemy's power as if it were my own.</p>

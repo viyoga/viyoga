@@ -23,7 +23,7 @@ chapter = 481
 <p>By being allocated to the same circle member, we hoped that she would not need to go on many missions and be left alone, because Black Fang seemed to be only interested in me. She would likely do the bare minimum for Kaelira and not expect much in return, allowing her to at long last live her dream of being a craftswoman, while also getting some free funding from Black Fang.</p>
 <p>This was exactly what I wanted as well. By stationing Kaelira in my home, I could also have her Heralds, namely the 6 women Kai gifted me, be present and act as high-tier guards.</p>
 <p>Our wishes came true when Vex announced the results.</p>
-<p>Black Fang got me and Kaelira, the finance head got Iris and Pox, the information head got Selene, the army head got Whirlwind and Cedric, the logistics head chose Ice, and the human resources (trafficking) head got Massacre and Abudha. 𝘳ÀℕỌʙƐŝ</p>
+<p>Black Fang got me and Kaelira, the finance head got Iris and Pox, the information head got Selene, the army head got Whirlwind and Cedric, the logistics head chose Ice, and the human resources (trafficking) head got Massacre and Abudha.</p>
 <p>This was a rare instance in Consortium history because 10 Vesper Phenoms were selected instead of the usual 5 or so.</p>
 <p>Many sentiments already began lingering in the air about the new generation being the most promising upstarts, perhaps ever. 10 selected candidates and two of us even beat veteran combatants that no one ever expected to happen made people think that perhaps a new age was coming.</p>
 <p>…</p>

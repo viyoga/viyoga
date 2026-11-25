@@ -30,7 +30,7 @@ chapter = 1071
 <p>...</p>
 <p>Rosie sat perched on Felicity’s shoulder while she looked like the world’s proudest parrot, her little legs swinging and her leafy hair bouncing as she pointed in every direction with infinite energy.</p>
 <p>"Look, look! That’s the training field where Mommy Luc-"</p>
-<p>"Caramel..." She was interrupted by the woman in question. They didn’t want to reveal their real identities to Felicity just yet, especially not the women whose names carried a lot of implications with them... ŗÃꞐȰ฿ÊⱾ</p>
+<p>"Caramel..." She was interrupted by the woman in question. They didn’t want to reveal their real identities to Felicity just yet, especially not the women whose names carried a lot of implications with them...</p>
 <p>"... Rosie’s awesome mommy smashes big rocks into dust!" she shouted with the kind of excitement that made Felicity inevitably giggle joyously. "And over there is where Mommy... Samurai... trains her sword moves!"</p>
 <p>Felicity hummed along as the little driad girl continued, enjoying herself greatly. Despite the sharp air of the wilderness surrounding them, this forest felt... protective.</p>
 <p>"It’s very far from cities," Rosie explained while puffing her chest out proudly. "Nobody can find us! Even if they do, Auntie Yoruha makes it go *poof!* with her scary illusions!" She waved her hands dramatically, making Felicity giggle for the umpteenth time.</p>

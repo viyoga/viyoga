@@ -44,7 +44,7 @@ chapter = 112
 <p>[Unused Skill Points: 16]</p>
 <p>[Unused Attribute Points: 15]</p>
 <p>With this I've finally reached level 10, but to level up I first need to complete my rank up mission.</p>
-<p>[Rank Up Mission (If the entity earns XP until the completion of the mission, it will be stockpiled and given to the entity once the mission is completed.)] ŔäNꝋ𝔟Èş</p>
+<p>[Rank Up Mission (If the entity earns XP until the completion of the mission, it will be stockpiled and given to the entity once the mission is completed.)]</p>
 <p>[Unlock the Unique Class: Primordial Villain.]</p>
 <p>[Have one devoted follower. 1/1]</p>
 <p>[Kill fifty intelligent existences. 50/50]</p>

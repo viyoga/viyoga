@@ -29,7 +29,7 @@ chapter = 1011
 <p>"Yes..." Stormlord muttered, clearly unenthusiastic about the outcome. His broad frame soon disappeared into the palace’s hallways.</p>
 <p>As Stormlord’s footsteps echoed into silence, King Alexios finally moved.</p>
 <p>He walked past Felicity without a word. She didn’t stop him.</p>
-<p>The Third Princess of the Vraven Kingdom only watched as her father approached Feng, who was still on her knees, trembling from the strain of resisting his earlier pressure. ṝ𝔞ℕöβĘs</p>
+<p>The Third Princess of the Vraven Kingdom only watched as her father approached Feng, who was still on her knees, trembling from the strain of resisting his earlier pressure.</p>
 <p>The king stopped a short, respectful distance away.</p>
 <p>"I owe you an apology, child. I wanted to test the backbone of your parents and cared not if you would be in the crossfire."</p>
 <p>Feng raised her head, and she shook it. "I hate this..."</p>

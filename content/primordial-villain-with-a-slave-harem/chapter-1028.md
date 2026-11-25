@@ -34,7 +34,7 @@ chapter = 1028
 <p>At the count, who had only just stopped shaking with disbelief.</p>
 <p>And at the countess, clutching her fan as if it were a stress-relief item and praying no one noticed her panic.</p>
 <p>Then, Felicity slowly turned her gaze to her sister.</p>
-<p>She saw the worry for a loved one there, but also the warning that said she’s making a decision that could leave lasting effects throughout her entire life. Ｒ𝘼ɴȮВÊs</p>
+<p>She saw the worry for a loved one there, but also the warning that said she’s making a decision that could leave lasting effects throughout her entire life.</p>
 <p>Felicity swallowed, feeling her heart pounding wildly in her chest. But it only took a moment to make her mind up.</p>
 <p>She turned toward the highest seat in the ballroom. Toward the throne above them all.</p>
 <p>Her father hadn’t spoken a word. Not once. Not when guests at his celebration were assaulted. Not when Lord Black lashed out at the nobles. Not even when the laws of his kingdom were brought into question.</p>

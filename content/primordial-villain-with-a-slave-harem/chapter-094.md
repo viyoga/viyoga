@@ -25,5 +25,5 @@ chapter = 94
 <p>"Take Marla and wash her," I bark at him. "Then send her to my bedroom."</p>
 <p>The butler nods, leading the chain of slaves away as I head toward the master bathroom. Inside, the room is cold and unwelcoming, the cracked tiles and rusting fixtures mocking my every step. I strip off my clothes, letting them fall to the floor in a heap, and step into the tepid water of the bath.</p>
 <p>The grime of the day swirls around me as I wash, the dirt and sweat mixing into a murky film that clings to my skin.</p>
-<p>After a brief and unsatisfying wash, I dry myself and make my way to the bedroom. When I step out I'm greeted by two of our guards, naturally, they are also slaves. However, these bastards aren't even close to hitting level 10… Maybe I should send them to the labyrinth to do some grinding. ṝἁ𝐍ỘВĚṡ</p>
+<p>After a brief and unsatisfying wash, I dry myself and make my way to the bedroom. When I step out I'm greeted by two of our guards, naturally, they are also slaves. However, these bastards aren't even close to hitting level 10… Maybe I should send them to the labyrinth to do some grinding.</p>
 <p>As I open the door, I'm met with a sight that stabs at my already dying pride.</p>

@@ -27,7 +27,7 @@ chapter = 564
 <p>"That’s all? Sure, we don’t have a specific destination anyway. We’ll have to find a way to succeed in our mission, but the methodology isn’t set in stone. Maybe Ghosty’s family members will be more up-to-date on recent beast-kin events than we are."</p>
 <p>"Great, thank you." She nodded, accepting my gratitude with a cheery smile.</p>
 <p>Using Blossom’s extremely potent nose, we managed to dodge the single patrol that separated us from where her family’s home was, which was just a humble little cavern. However, disaster was on the horizon.</p>
-<p>Blossom cried out in alarm and went on all fours as she began sniffing around on the ground. Her face was so close that her mask was hitting the cavern floor. ℞𝐀Ꞑǒ𝐛Ëṧ</p>
+<p>Blossom cried out in alarm and went on all fours as she began sniffing around on the ground. Her face was so close that her mask was hitting the cavern floor.</p>
 <p>&lt;B-Blossom can’t smell them! Their last trace is weeks old, if not a whole month! F-furthermore, she smells blood! Blood of Natalie!&gt;</p>
 <p>Before I could respond, Vex spoke up. "Curses, we’ve been had. Hostiles incoming." She drew her blade from its scabbard, but even before she could dash out of the cavern, a deep, guttural growl sounded. "You’re trespassing in the land of Leohtar Sunfang! Surrender now!"</p>
 <p>Knowing we were in deep trouble, I addressed my hyperventilating dog-girl. &lt;Blossom, we’ll find Natalie and Poppy, but to do that, we have to get out of here alive first, so you must focus up. Based on how quickly they arrived, they might be behind their disappearance as well.&gt;</p>

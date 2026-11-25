@@ -26,7 +26,7 @@ chapter = 579
 <p>"Future hubby, can you call the fire boy? I’ll deal with Raika."</p>
 <p>I nodded at Vex’s request. If I called Raika, that brat would likely not even pick it up, so this arrangement was for the best.</p>
 <p>After imbuing Ignis’ crystal with my mana, the communication line was established.</p>
-<p>As soon as he picked, up, I heard the unmistakable sound of combat. "What’s going on? I’m kinda busy over here." Ignis spoke up before casting a spell which resulted in multiple desperate cries sound from his enemies—they were being burned alive by the Ashbringer. ṘÅ𐌽ŐΒĘṥ</p>
+<p>As soon as he picked, up, I heard the unmistakable sound of combat. "What’s going on? I’m kinda busy over here." Ignis spoke up before casting a spell which resulted in multiple desperate cries sound from his enemies—they were being burned alive by the Ashbringer.</p>
 <p>"We learned of an alliance base that supposedly houses a coalition made up of different tribes. We’re going there to help them out, the lionkin are attacking them as we speak according to our witness."</p>
 <p>"I see…" Ignis replied before grunting, he just audibly fire-punched an enemy of his. "I mean, I could join you, but, well, I would be doing that alone."</p>
 <p>It wasn’t hard to understand his meaning. He could disengage from the combat situation he was in, but that would mean leaving Ryker’s team to their deaths. Of course, neither of us cared much for them.</p>

@@ -22,7 +22,7 @@ chapter = 229
 <p>"Oh."</p>
 <p>I attempt to cheer her up. "Sadly that's just how it is. I will try to involve you in more of our tactical discussions moving forward."</p>
 <p>Aurora freezes up and stares into my eyes, then hugs me firmly. "Should I…?"</p>
-<p>My petite samurai spoke up before any of us could. "Yes, you should. He could even swap you back to your Alchemist class with a simple thought, and since you seem to love being his little girl, he could even allocate your free points for you. I bet that that kind of invasion of your personal boundaries by him would be right up your alley." ℞âNồβÈ𝘚</p>
+<p>My petite samurai spoke up before any of us could. "Yes, you should. He could even swap you back to your Alchemist class with a simple thought, and since you seem to love being his little girl, he could even allocate your free points for you. I bet that that kind of invasion of your personal boundaries by him would be right up your alley."</p>
 <p>"Really?! Then I wouldn't even have to pray at the temple… But still, a slave…?"</p>
 <p>"I know that it sounds bad, but it only really has benefits in our case if you think about it. There's no differentiation between how he treats us, his slaves, and you, his free lover.</p>
 <p>If you become his slave his class will also level up faster, giving us even more such abilities." Who would've known that Miss Samurai would be the one trying her best to convince girls to become my slaves of their own free will? Not me, that's for sure.</p>

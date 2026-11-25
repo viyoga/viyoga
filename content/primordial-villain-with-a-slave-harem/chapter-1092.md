@@ -31,7 +31,7 @@ chapter = 1092
 <p>The guards flinched involuntarily, feeling as if an executioner’s blade had already fallen on their necks.</p>
 <p>Andre, commander of the royal guard, was the first to move. He stood from his kneeling position and bowed stiffly. "Yes, Your Majesty."</p>
 <p>He then looked at his subordinates. "You heard Her Majesty. Outside. Now."</p>
-<p>The tall man turned on his heel as his men scrambled to obey. The clatter of armor and boots soon faded until Andre himself stood at the door. He bowed once more, this time to both monarchs. "Majesties." Then he withdrew, shutting the great doors behind him. ṜΆꞐȫ𝔟Еꞩ</p>
+<p>The tall man turned on his heel as his men scrambled to obey. The clatter of armor and boots soon faded until Andre himself stood at the door. He bowed once more, this time to both monarchs. "Majesties." Then he withdrew, shutting the great doors behind him.</p>
 <p>Now, only Alexios and Morgana remained.</p>
 <p>"Explain myself to you?" Morgana’s voice was smooth, mocking even, as her eyes narrowed. "I’m a traitor?" She let out a low, humorless chuckle. "I didn’t expect that right after turning one thousand, you’d become senile, Alexios."</p>
 <p>Her gaze moved toward the sword leveled at her.</p>

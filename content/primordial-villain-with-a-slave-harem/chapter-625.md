@@ -28,6 +28,6 @@ chapter = 625
 <p>"I would like a silverleaf sparkling wine, please," Ayame and Lucille said at once. It was a crisp, bubbly drink with a light citrusy note to it. I’ve been told a lot of young noble ladies favored this drink.</p>
 <p>"Rose petal tea for me," Aurora followed the two ex-princesses. Her choice of drink was a delicate floral tea with a light, refreshing aroma.</p>
 <p>"Water," Iris said, and Lyra quickly asked for the same.</p>
-<p>"Dragon’s breath." That was my choice, I was in the mood for a stronger alcohol this time around. Dragon’s breath was a smoky, high-proof whiskey said to warm even the coldest of souls. ŗΑℕ𝘖ꞖÈꞩ</p>
+<p>"Dragon’s breath." That was my choice, I was in the mood for a stronger alcohol this time around. Dragon’s breath was a smoky, high-proof whiskey said to warm even the coldest of souls.</p>
 <p>Eira’s head turned toward Vex, the only woman who didn’t ask for anything yet.</p>
 <p>None of us expected what she would say next.</p>

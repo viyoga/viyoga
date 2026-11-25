@@ -28,7 +28,7 @@ chapter = 409
 <p>'Where the fuck are we?! What is going on?! Who are these nutjobs?!' The pair of guards screamed inwardly in a rather effeminate tone. They were very close to letting their bladders loose as well due to the story-like nightmare of a situation they'd found themselves in, but just then a gorgeous long-eared woman stepped closer to them.</p>
 <p>"Let me heal them. Abudha, can I ask you to escort them afterward?"</p>
 <p>"Of course."</p>
-<p>Once they were healed, their limbs were restrained with heavy chains and ropes, after which the monk took them by their throats, very similarly to their initial assailant, and dragged them a few feet away. ṜΆNօ𝐁Ë𝒮</p>
+<p>Once they were healed, their limbs were restrained with heavy chains and ropes, after which the monk took them by their throats, very similarly to their initial assailant, and dragged them a few feet away.</p>
 <p>A rather scary sight welcomed them when they were thrown into a dugout pit where over a dozen comrades welcomed them. Since everyone was restrained, they could only wriggle around like worms.</p>
 <p>"Fuck! Rudolf peed himself!"</p>
 <p>"Agh!!! He is right on top of me!!!"</p>

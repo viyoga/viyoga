@@ -31,6 +31,6 @@ chapter = 249
 <p>"Sure. All people under thirty years of age can become Phenoms by attempting to impress the top brass through participation at the trials. As you've barely just started fighting together, you will be disadvantaged, fighting against teams that have been raised since birth just to succeed at this trial, and they are also made up of people who are older than you.</p>
 <p>A lot of members of the Consortium who are stuck in their position because they weren't Phenoms try to birth children who become one while putting all their support behind them."</p>
 <p>Oh. Then the Cedric guy, I think his name was, was probably his mother's attempt at raising the family in the ranks. I believe he said his mother was a relatively high-ranking member of the drug faction in the Braedon branch.</p>
-<p>This is going to be a fierce competition, but I'm confident we have good chances. Broderick isn't aware of everything about us, and we have a month to get better as a team. Ꞧ𝐀ΝƟ𝐛Ëꞩ</p>
+<p>This is going to be a fierce competition, but I'm confident we have good chances. Broderick isn't aware of everything about us, and we have a month to get better as a team.</p>
 <p>I've gotten permission to use their training grounds until the trials, after which we slowly said our goodbyes and got back to the inn.</p>
 <p>Naturally, we stayed long enough not to give off the image that we were only there for his help once again. I know he would call me a rude little shit while laughing if I was obvious about it.</p>

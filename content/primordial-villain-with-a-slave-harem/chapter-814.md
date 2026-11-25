@@ -32,7 +32,7 @@ chapter = 814
 <p>3</p>
 <p>...</p>
 <p>The first meridian opened without resistance.</p>
-<p>Qi surged along the pathway from his dantian to the base of his spine. It wasn’t forceful but smooth. Trained. The result of a month of cultivation carved from mountain silence and cold discipline. ᚱάɴօBÈ𝙎</p>
+<p>Qi surged along the pathway from his dantian to the base of his spine. It wasn’t forceful but smooth. Trained. The result of a month of cultivation carved from mountain silence and cold discipline.</p>
 <p>The second came next. It curved through his right shoulder like a hook catching into muscle, but he breathed through it. Pain was not the enemy. Distraction was.</p>
 <p>The third was harder. He had to narrow the Qi stream, focus it like a scalpel used for precise surgical work, but it opened. And when it did, it flowed, stretching his endurance, opening new space for power to move.</p>
 <p>By the fourth, sweat beaded at his brow.</p>

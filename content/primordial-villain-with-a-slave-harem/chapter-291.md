@@ -24,7 +24,7 @@ chapter = 291
 <p>She took down a Phenom who was barking orders to his team when her dagger found his stupidly exposed throat before he could even raise a shield to protect himself. [Backstab] was a mighty spell in the arsenal of such a quick and stealthy girl like her.</p>
 <p>His group faltered without their leader, and Ayame quickly capitalized on the opening, chopping through their ranks as if they were wheat under her scythe.</p>
 <p>Behind them, Aurora and Seraphiel acted with surprisingly great coordination considering how little we fought together as a team.</p>
-<p>Aurora's buffs bolstered the others as beautiful waves of magic dazzled around their forms, reinforcing their strength, speed, and durability, while Seraphiel's mana arrows found targets in the chaos as each one glowed with bright light instead of being made from boring wood or other similarly mundane materials. ℞𝒶ℕǑᛒĚṦ</p>
+<p>Aurora's buffs bolstered the others as beautiful waves of magic dazzled around their forms, reinforcing their strength, speed, and durability, while Seraphiel's mana arrows found targets in the chaos as each one glowed with bright light instead of being made from boring wood or other similarly mundane materials.</p>
 <p>Her healing arrows also soon found use when they hit Lucille's back, rejuvenating the woman after she suffered a morning star's flail ended head hitting her in the stomach after it shattered through Aurora's Lesser Shield's 100HP threshold.</p>
 <p>Find adventures at</p>
 <p>The axe wielder grunted with pain evident in her tone. She's suffered a few injuries in the month of training and XP grinding that lead up to this moment, so Lucille wasn't taken out of the fight just like that.</p>

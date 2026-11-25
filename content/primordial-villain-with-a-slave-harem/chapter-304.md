@@ -27,7 +27,7 @@ chapter = 304
 <p>"Thanks, bro. Reloading this shit takes ages. Not that such a loser would've hit me, hahaha!" The crossbowman laughed mockingly while spitting the corpse's way.</p>
 <p>"Even I could hit your fat ass and I've never held a bow before…" The swordsman replied dryly.</p>
 <p>Experience new tales on .com</p>
-<p>Meanwhile, Cedric and Selene who saw this display only got paler. Their alliance was in complete disarray with the newcomers causing internal issues like this. Рᴀ𐌽ȱＢЁṠ</p>
+<p>Meanwhile, Cedric and Selene who saw this display only got paler. Their alliance was in complete disarray with the newcomers causing internal issues like this.</p>
 <p>"I'm getting lightheaded. This is horrible." Cedric voiced in hushed tones into his fiance's ears.</p>
 <p>"Yeah, I'm pretty sure we will lose the clash with the other giant alliance." Selene nodded.</p>
 <p>"What should we do then?" Cedric was never the brightest tool in the shed, but he was a very talented sword user for his young age. Meanwhile, Selene was a very cunning woman and a Wizard to boot.</p>

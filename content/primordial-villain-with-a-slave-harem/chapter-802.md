@@ -32,7 +32,7 @@ chapter = 802
 <p>"I'll call it… Zhang's Overcompensation."</p>
 <p>Quinlan raised a brow. "Subtle."</p>
 <p>Feng only grinned wider in response.</p>
-<p>Quinlan then knelt by the body and began rummaging through the bloodied robes with clinical precision, utterly unfazed. He ignored the congealed blood, the twisted neck stump, and even the sound of flies feasting on the remains. ꭆÀŊȮВÈṨ</p>
+<p>Quinlan then knelt by the body and began rummaging through the bloodied robes with clinical precision, utterly unfazed. He ignored the congealed blood, the twisted neck stump, and even the sound of flies feasting on the remains.</p>
 <p>Reaching into the man's inner robe, he pulled out a small cloth pouch. It was leather-bound and fastened with a brass clasp. Inside, a modest jingle sounded as he loosened it open.</p>
 <p>The bag contained several round copper coins with square holes punched through their centers. Feng walked up to him and began narrating with sparkly eyes, happy that Zhang had gifted them such a welcome farewell gift.</p>
 <p>"Those copper ones are xuán coins. Those two silvery ones are called liáng, worth a hundred xuán each. The last one, jade-colored coin carved with the character for "Spirit," is called lìng. Lìng is the currency used by high-level cultivators as it can help their growth. Absorbing it is like spending hours gathering qi. Liáng and xuán are mostly used to pay for everyday items, but for us in our penniless and homeless state, that's a big gain as well."</p>

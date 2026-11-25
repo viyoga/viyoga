@@ -32,7 +32,7 @@ chapter = 185
 <p>Something absolutely terrifying.</p>
 <p>"No! You didn't! It's impossible!"</p>
 <p>"Hmm? What might you mean, crazy lady?"</p>
-<p>"The fucking veil is gone! You took the artifact?!" Indeed, the artifact that allowed the kingdom to hide the existence of this place so easily for such a long time is no longer active. Ever since I got here it's not been turned off for a single second. 𝖗å𝐍𝙤𐌱Èș</p>
+<p>"The fucking veil is gone! You took the artifact?!" Indeed, the artifact that allowed the kingdom to hide the existence of this place so easily for such a long time is no longer active. Ever since I got here it's not been turned off for a single second.</p>
 <p>"Oh. I have no clue whatever you might be talking about? What artifact? Did Ghost hit you too hard?"</p>
 <p>Can I believe him? Maybe the werewolves… No, this makes no sense. They are bloodthirsty monsters who don't care about such an artifact at all.</p>
 <p>It was him! I can feel it in my blood. I'm absolutely certain.</p>

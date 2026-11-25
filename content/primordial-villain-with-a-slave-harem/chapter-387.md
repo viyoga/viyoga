@@ -29,7 +29,7 @@ chapter = 387
 <p>"Baby, if you keep it in for five minutes I'll bounce on your cock myself, you won't even have to move an inch."</p>
 <p>"Daddy, cum and I'll let you fuck my big tits like never before."</p>
 <p>"Baby, don't cum and I'll let you ravage my throat until I pass out from asphyxiation."</p>
-<p>"Daddy, release your load and I'll take your cock all the way into my mouth, you know I never could before because it was too big for me, right? I'll do it this time even if I have to choke on it." 𝖗α₦öʙÊ𝐒</p>
+<p>"Daddy, release your load and I'll take your cock all the way into my mouth, you know I never could before because it was too big for me, right? I'll do it this time even if I have to choke on it."</p>
 <p>"Baby, I'm the only woman in the harem whose virginity you are unable to claim, so I'll give you my anal one if you keep your seed from bursting out."</p>
 <p>"Daddy, I have a lot more sexual alchemic recipes where the massage oil came from, cum right this instant and I'll concoct one for you!"</p>
 <p>"Baby, don't cum and I'll not only give you my anal virginity but I'll let you straight-up destroy my asshole. I don't want to be able to sit even a month after you're done with me!"</p>

@@ -41,7 +41,7 @@ chapter = 3
 <p>I focus on the skill.</p>
 <p>[Lesser Stealth: Makes the skill user slightly harder to detect. More effective in dimly lit areas.]</p>
 <p>[Activation: Uses 30 MP and lasts for 20 minutes.]</p>
-<p>So this is not one of those 'hide in plain sight' OP abilities. Better than nothing, that's for sure. I equip it as my Primary Class, making Commoner secondary. My Vitality decreases back to 10 and my Agility goes up to 11. ŔáΝ𝘖𝔟ĚṦ</p>
+<p>So this is not one of those 'hide in plain sight' OP abilities. Better than nothing, that's for sure. I equip it as my Primary Class, making Commoner secondary. My Vitality decreases back to 10 and my Agility goes up to 11.</p>
 <p>As far as I can tell there's no drawback to having a class that is of criminal origins. At the very least I didn't get a notification of a bounty being placed on my head or something along those lines.</p>
 <p>I continue on with my process of liberating items from those that no longer need them and giving it to those that are in need.</p>
 <p>The guard's spear is also a simple iron one as well. I try taking their armor off their bodies but I don't know how and I'm very close to puking from their odor and general state of being dead. I will probably get used to this soon, but since the armors are bloody and look to be made very poorly I stop fiddling around with them.</p>

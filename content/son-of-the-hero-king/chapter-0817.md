@@ -24,7 +24,7 @@ chapter = 817
 <p>But as she was now, she could think about no one else but Sol.</p>
 <p>His smile, his voice, his face. Her mind was being burned by his entire persona. A branding searing her very soul. Leaving a trace that would never vanish, no matter what may pass.</p>
 <p>Camelia raised her staff, her voice steady and resonant, amplified by the divine current of the brilliance left behind by the goddess’s blessing.</p>
-<p>“Before the eyes of mortals and goddesses alike, this union is sealed. From this day forth, Sol Dragona Luxuria and Medea Asmodeus Luxuria are bound as one. If there is anyone who objects to this union, speak now— or forever hold your peace.” ᚱÂ𝐍óꞖЕs̈</p>
+<p>“Before the eyes of mortals and goddesses alike, this union is sealed. From this day forth, Sol Dragona Luxuria and Medea Asmodeus Luxuria are bound as one. If there is anyone who objects to this union, speak now— or forever hold your peace.”</p>
 <p>Her words echoed into silence.</p>
 <p>This was a challenge but also a chance. The last chance for anyone who might have been against this union to act. Act and get smited by Sol’s wrath.</p>
 <p>No one moved. No one even breathed too loudly in fear of what that might imply. The nobles who had once whispered doubts stared straight ahead, their tongues heavy, minds cowering in fear. Soldiers who might have scoffed at the union of man and witch lowered their eyes. Even the priests and dignitaries, representatives of other powers, remained still, choosing the embrace of silence.</p>

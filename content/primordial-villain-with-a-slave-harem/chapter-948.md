@@ -25,7 +25,7 @@ chapter = 948
 <p>"All this is to say, being lovers doesnt have to be a chain that restrains you, Serika. Its not a cage. Not with me. I want to give you, and all my other lovers, nothing but wings. I want to see all of you soar higher than I ever thought possible. I want to look up at you from below and shout with all my heart, "Holy shit! My girls are so fucking amazing!""</p>
 <p>Quinlans smile lingered as his outstretched hand remained between them, steady and waiting.</p>
 <p>"So... what say you, Serika Vael?"</p>
-<p>For a moment, all she could do was stare at that hand. The hand that seemed so strong, so open, and offered without expectation. His words reverberated in her mind in the form of an echo she couldnt silence. Not the teasing ones or the confident boaststhough those had certainly made her smirkbut the ones that spoke of wings. Of fire. Of freedom. Ȓ𝔞ℕȪʙĘṢ</p>
+<p>For a moment, all she could do was stare at that hand. The hand that seemed so strong, so open, and offered without expectation. His words reverberated in her mind in the form of an echo she couldnt silence. Not the teasing ones or the confident boaststhough those had certainly made her smirkbut the ones that spoke of wings. Of fire. Of freedom.</p>
 <p>Of choice.</p>
 <p>Her heart, which had already been pounding, began to beat faster. Louder. Deeper.</p>
 <p>She thought about the battles theyd fought, side by side. About how they moved as one. How he never once made her feel lesser or questioned her power, even after becoming stronger as the fully realized Avatar.</p>

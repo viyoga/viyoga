@@ -31,7 +31,7 @@ chapter = 8
 <p>[Effect: Minor Wisdom Increase]</p>
 <p>[Base Skill: Lesser Bartering]</p>
 <p>[Lesser Bartering: slightly boosts the user's chance of bartering for a better price while selling or buying items.]</p>
-<p>Nice. I can use that skill the next time I trade. With that out of the way I say goodbye to the moping merchant. Now I have 3 silver and 96 bronze coins. ŕ𝒶₦ồBĘS̈</p>
+<p>Nice. I can use that skill the next time I trade. With that out of the way I say goodbye to the moping merchant. Now I have 3 silver and 96 bronze coins.</p>
 <p>As I continue to explore the town, I start to form a plan. My first goal is to find a way to safely level up and increase my strength and skills. Buying a slave as a shield bearer could be a viable strategy, but I need to gather more information about the local practices and ensure I'm making a wise investment.</p>
 <p>I decide to head towards the central square, where the town's main bulletin board is located. It's a good place to find job postings, notices, and general information. As I approach, I see a crowd gathered around the board, reading the various postings.</p>
 <p>I scan the board, looking for anything that might be of interest. There are job listings for laborers, announcements of upcoming events, and notices about local laws and regulations. One particular notice catches my eye:</p>

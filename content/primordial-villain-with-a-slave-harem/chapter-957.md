@@ -35,7 +35,7 @@ chapter = 957
 <p>Aurora scoffed, but her thighs betrayed her as they rubbed together beneath her flowing dress. Her lips curved into that familiar cheeky grin. "Guess well have to see if that confidence of yours holds."</p>
 <p>Quinlan didnt respond to the statement of his plump lover with words.</p>
 <p>He responded with action.</p>
-<p>With a flick of his wrist, threads of earth unfurled from his fingertips like tendrils. They slithered forward, aimed directly at the four beauties before him. ℞ά𝐍ổ𐌱Ě𝙨</p>
+<p>With a flick of his wrist, threads of earth unfurled from his fingertips like tendrils. They slithered forward, aimed directly at the four beauties before him.</p>
 <p>Gasps echoed in unison as the threads danced around their bodies. First loosening, then tugging. Vexs gothic blood bride gown unraveled. Seraphiels elegant royal elven garb fluttered apart like autumn leaves caught in the wind. Auroras dignified dress, the symbol of her maturity, slipped away stitch by stitch. And Blossoms adorable catgirl costume collapsed into a puddle of fabric at her feet.</p>
 <p>But that wasnt the end.</p>
 <p>Quinlans fingers flexed, and the earth threads began shining a bright orange. A subtle heat spread through the strands, as fire mingled with earth, turning them warm, comforting... sensual.</p>

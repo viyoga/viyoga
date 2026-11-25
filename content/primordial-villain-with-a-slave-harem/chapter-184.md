@@ -25,7 +25,7 @@ chapter = 184
 <p>But then things change. The searing pain begins to dull, the edges of my suffering softening as my body starts to adapt. The venom is still there, still burning me from the inside, but the raw intensity begins to fade.</p>
 <p>In real time, my stabilization process happens in the span of a single second. My body is long since used to overcoming any sort of agony.</p>
 <p>By the time this so-called Blade manages to capitalize on my weakened state as she springs toward me with murderous intent, I'm more than ready to receive her. I raise my blade in time to meet her attack head on.</p>
-<p>My new buff makes me even stronger, faster and sturdier- as long as I can bear with the pain. I slash at her with all my might and instead of dodging, she is forced to block my strike with her own sword thanks to my speed, which in turn causes us to engage in a power struggle. Unlike how she managed to hold me back when I was about to behead her little boyfriend, she no longer stands a chance. 𝐑â𝐍òβĘS̈</p>
+<p>My new buff makes me even stronger, faster and sturdier- as long as I can bear with the pain. I slash at her with all my might and instead of dodging, she is forced to block my strike with her own sword thanks to my speed, which in turn causes us to engage in a power struggle. Unlike how she managed to hold me back when I was about to behead her little boyfriend, she no longer stands a chance.</p>
 <p>In the next moment my opponent loses the struggle as I send her flying into the barracks' wall.</p>
 <p>The wall then collapses under the strain and Blade is thrown to the outside.</p>
 <p>"Urgh!" I gurgle suddenly as I spit out a black gooey substance- a repulsive mixture of my blood and the venom.</p>

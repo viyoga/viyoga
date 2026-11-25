@@ -30,7 +30,7 @@ chapter = 655
 <p>With deliberate slowness, he raised his hand once more.</p>
 <p>And beckoned for a second time.</p>
 <p>The taunt was unbearable for the young foxkin warrior.</p>
-<p>A guttural growl tore itself from Raelor's throat as his muscles tensed, his fury had reached the boiling point. With a burst of speed, he shot forward, lunging at his enemy. 𝙍άNОβĘ𝒮</p>
+<p>A guttural growl tore itself from Raelor's throat as his muscles tensed, his fury had reached the boiling point. With a burst of speed, he shot forward, lunging at his enemy.</p>
 <p>Devil moved as well.</p>
 <p>His right hand curled into a fist as his body shifted forward in a single, fluid motion.</p>
 <p>The punch wasn't flashy, nor did it carry the exaggerated movements of lesser warriors seeking to display power. It was measured, precise—it was just a fist flying at the perfect angle, at the perfect time, with the perfect amount of force.</p>

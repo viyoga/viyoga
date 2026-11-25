@@ -29,7 +29,7 @@ chapter = 1021
 <p>&lt;She’s changed a lot. More than I thought possible,&gt; Ayame added after a breath. &lt;She was always taller than I. And sure, she developed early. But she wasn’t like this. Not so silent. Not so polished. Not so... still.&gt;</p>
 <p>Her thoughts tangled up in her throat, refusing to untangle.</p>
 <p>&lt;Kaede used to run through the palace barefoot when our tutors weren’t looking. She cried when I cut my finger in training. She was afraid of frogs.&gt;</p>
-<p>Ayame stopped for a moment, struggling to align this poised duchess with the girl she used to share secrets and sunrises with. &lt;She was so full of life. Now... she looks like a painting.&gt; ℞𝐀ƝО𝖇ЕⱾ</p>
+<p>Ayame stopped for a moment, struggling to align this poised duchess with the girl she used to share secrets and sunrises with. &lt;She was so full of life. Now... she looks like a painting.&gt;</p>
 <p>A thick silence followed her words.</p>
 <p>&lt;I would think a woman who gained so much power a little over a year ago would walk with her chin held high... considering the atrocities she committed to get to this point,&gt; Aurora voiced her own thoughts.</p>
 <p>Lucille was quick to agree. &lt;Yeah. This is the first big official banquet she has partaken in ever since taking the seat of power. This is a big day to legitimize herself in front of the whole kingdom.&gt;</p>

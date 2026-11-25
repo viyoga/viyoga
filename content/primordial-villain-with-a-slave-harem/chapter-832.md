@@ -32,7 +32,7 @@ chapter = 832
 <p>His arms tensed, his skin hardening as if his flesh remembered the feel of stone. The earth accepted him. Not because he was gentle, but because he had what it took.</p>
 <p>...</p>
 <p>Another Day</p>
-<p>"I’m sick of this stale air!" Feng shouted one afternoon, dramatically covering her nose. "I can smell the old tapestries. Ugh! Do you want your esteemed guests to get poisoned?!" ꭆÀNоＢЕṣ</p>
+<p>"I’m sick of this stale air!" Feng shouted one afternoon, dramatically covering her nose. "I can smell the old tapestries. Ugh! Do you want your esteemed guests to get poisoned?!"</p>
 <p>The maids turned, blinking at her outburst. She dramatically waved her hands like a fussy princess.</p>
 <p>"We can’t even open the windows! How’s anyone supposed to breathe properly in here?"</p>
 <p>"We understand, little miss," one of the maids sighed. "But the windows are sealed with spirit-forged bars and locks. Only the guard captain can open them for cleaning."</p>

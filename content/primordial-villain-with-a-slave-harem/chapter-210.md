@@ -34,7 +34,7 @@ chapter = 210
 <p>"I know… That's exactly why I… drank it in secret… before you could…"</p>
 <p>Before I could respond, the two ladies came back and we began administering first aid.</p>
 <p>There were some immediate effects, but she only got ever so slightly better. 'A lesser potion only amounts to this much, huh…'</p>
-<p>"Ayame, please go and buy a few high tier health potions. Blossom, find one of the innkeepers and tell them that we need a small portion of easily digestible food prepared right away, porridge ideally." ȐäNȫBËS̈</p>
+<p>"Ayame, please go and buy a few high tier health potions. Blossom, find one of the innkeepers and tell them that we need a small portion of easily digestible food prepared right away, porridge ideally."</p>
 <p>After they departed once more, we sat in silence as I listened to her ragged breathing's rhythm.</p>
 <p>It was heartbreaking to listen to.</p>
 <p>I didn't expect her to sacrifice herself for my well-being in such a fashion.</p>

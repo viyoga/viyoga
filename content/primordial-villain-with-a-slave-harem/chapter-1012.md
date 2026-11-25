@@ -28,7 +28,7 @@ chapter = 1012
 <p>The Warrior King had returned.</p>
 <p>With his spine straight, his voice calm and commanding, he gave a nod to the group.</p>
 <p>"I will take my leave. There are matters that require my presence."</p>
-<p>He didn’t elaborate further, but they all knew what he meant. His 1000th birthday was not a private affair. It was a historic occasion. Every noteworthy noble from the kingdom had been invited. Every duke, hero, merchant prince, and emissary worth their salt would be watching. 𝐫𝒶𐌽Ȯ𝔟Еȿ</p>
+<p>He didn’t elaborate further, but they all knew what he meant. His 1000th birthday was not a private affair. It was a historic occasion. Every noteworthy noble from the kingdom had been invited. Every duke, hero, merchant prince, and emissary worth their salt would be watching.</p>
 <p>Without another word, he turned and strode out of the room. .</p>
 <p>Felicity waited until he vanished behind the tall doors before exhaling with dramatic flair. "Alright! That was a lot."</p>
 <p>She pulled out a teacup from her pocket ring and beamed excitedly at Seraphiel. "Miss Elf, would you like to brew tea together with me?!"</p>

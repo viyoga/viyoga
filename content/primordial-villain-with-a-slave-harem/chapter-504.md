@@ -39,7 +39,7 @@ chapter = 504
 <p>My bid was instantly overthrown by Vivienne; "Fifteen. Bastard called Black, you should back off now if you don’t want trouble."</p>
 <p>It’s me who should be saying that.</p>
 <p>"Twenty."</p>
-<p>"Thirty. Black, you already have your wife, Blue, no? Didn’t you call yourself a hopeless romantic? Why do you need this one for? Or are you just messing with us on purpose? You want Greenvale as your enemy?" 𐍂₳𐌽ȮᛒƐŚ</p>
+<p>"Thirty. Black, you already have your wife, Blue, no? Didn’t you call yourself a hopeless romantic? Why do you need this one for? Or are you just messing with us on purpose? You want Greenvale as your enemy?"</p>
 <p>"My husband is not a freak like you and your sister, don’t assume that he’s bidding for this girl to make her his toy. His noble heart bleeds at the mere thought of letting you take her home." Jasmine declared with a fierce glare. At long last, my fifth woman gained the mental fortitude to speak back to these creatures despite their rank.</p>
 <p>I heard a muted gasp from the princess on my left side, she was surprised by what Jasmine said.</p>
 <p>"Grr!" Two hateful growls sounded from the twins. Discover hidden tales at empire</p>

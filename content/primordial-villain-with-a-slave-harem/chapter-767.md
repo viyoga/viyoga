@@ -31,7 +31,7 @@ chapter = 767
 <p>Now I was feeling less eager all of a sudden.</p>
 <p>"You lead me to your secret basement, hidden behind some sort of magical mechanism, alone, after indicating I have too many women already,” I said. “This is not your yandere self trying to chain me to your basement, right?”</p>
 <p>She looked at me with a raised eyebrow. “Yandere?”</p>
-<p>"Basically, an overly possessive girl who would go to any length to keep the hoes away from her man, even killing him and then herself if she’s truly gone off the deep end.” ṞàꞐŎᛒÊȿ</p>
+<p>"Basically, an overly possessive girl who would go to any length to keep the hoes away from her man, even killing him and then herself if she’s truly gone off the deep end.”</p>
 <p>Her curiosity seamlessly transitioned to one of amusement. “Well, well, well she chuckled ominously, holding her arms out so I couldn’t run back up the stairs behind her. “It appears I’ve been found out. What are you gonna do about it, hubby?”</p>
 <p>"Oh dear.”</p>
 <p>She was so goddamned hot with her crazy swirly red eyes, I simply couldn’t help myself.</p>

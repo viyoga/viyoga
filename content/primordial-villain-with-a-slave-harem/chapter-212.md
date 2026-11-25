@@ -31,7 +31,7 @@ chapter = 212
 <p>[Elemental Sovereign]</p>
 <p>[Rarity: Epic]</p>
 <p>[Effect: 25% Magic, 50% MP]</p>
-<p>Hmm, the stat boost is just a shittier version of my Primordial Villain, which seems to be the king of stats. It is a Unique class made specially for yours truly, after all. I rush to read its description. ɽâƝộꞖЁṠ</p>
+<p>Hmm, the stat boost is just a shittier version of my Primordial Villain, which seems to be the king of stats. It is a Unique class made specially for yours truly, after all. I rush to read its description.</p>
 <p>[Description: The Elemental Sovereign is a being born to dominate the very forces of nature itself. As a master of all elements, they do not bend to the whims of any single force- they conquer them all. Their ultimate potential lies in the unification of every elemental power, wielded with absolute mastery. However, every journey begins with a foundation.</p>
 <p>To ascend to their true form, the Elemental Sovereign must first harness the raw and primal forces of Fire, Water, Wind, and Earth. Only by mastering the core elements can they begin to unlock their full destructive and creative potential.]</p>
 <p>I was told that Wizards tend to choose one or two elements at most and focus on unlocking those spells instead of dipping their toes in all elements, and then promoting to a class that specializes in said element, such as Tempest for wind enthusiasts.</p>

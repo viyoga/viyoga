@@ -29,7 +29,7 @@ chapter = 498
 <p>The host saw it and quickly acted by sending the women back, who merely twenty seconds later came out with significantly more clothing covering their bodies. Between them, they held a long, slender staff carved from polished white wood.</p>
 <p>My primordial eyes instantly dissected the artifact’s nature.</p>
 <p>The staff was a rare rarity item that was imbued with a single spell - Frostbind, an enchantment designed to temporarily encase a target in ice.</p>
-<p>"Apologies for our lack of foresight, your Majesty." The auctioneer bowed deeply toward Felicity, who merely nodded her forgiveness, though I noticed a weak hint of pink on her delicate cheeks. She was a rather adorable little girl, truth be told. Ṝ𝓪ŊổᛒΕ𝒮</p>
+<p>"Apologies for our lack of foresight, your Majesty." The auctioneer bowed deeply toward Felicity, who merely nodded her forgiveness, though I noticed a weak hint of pink on her delicate cheeks. She was a rather adorable little girl, truth be told.</p>
 <p>The man straightened his back and continued; "And here is our first treasure of the evening: the Glacial Aegis Staff! A weapon forged in the icy peaks of the Frostspire Mountains, crafted by a guild of dwarven mages whose very breath turned to frost. With this in hand, its wielder becomes a master of the elements, able to command winter itself to heed their will!"</p>
 <p>I just barely managed to resist the urge to snort.</p>
 <p>That was a horrible stretch.</p>

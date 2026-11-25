@@ -26,7 +26,7 @@ chapter = 722
 <p>And that told me everything.</p>
 <p>Raika wasn't being dragged.</p>
 <p>She was letting herself be dragged.</p>
-<p>It was a tantrum, nothing more. A child who knew she couldn't win against the adult in the room and decided to throw a little hissy fit on her way to the bed. She knew damn well that if she kept pushing, using her true strength to resist, Vex would go all out, which would end with her getting beaten into unsconsciousness and likely miss out on the siege of Lionheart as a result. Ṝα𐌽Ỗ𝐛Е𝒮</p>
+<p>It was a tantrum, nothing more. A child who knew she couldn't win against the adult in the room and decided to throw a little hissy fit on her way to the bed. She knew damn well that if she kept pushing, using her true strength to resist, Vex would go all out, which would end with her getting beaten into unsconsciousness and likely miss out on the siege of Lionheart as a result.</p>
 <p>So, instead, she kicked dirt and cursed like a drunk pirate.</p>
 <p>In this manner, we stepped through the portal, traveling to Miri Town.</p>
 <p>Ignis let out a long, low whistle the moment we stepped through the portal.</p>

@@ -29,7 +29,7 @@ chapter = 660
 <p>It was all too late for him.</p>
 <p>The wind blast struck directly into Veyrin's side, carving a deep wound into his torso.</p>
 <p>A gasp of agony burst from his lips as blood sprayed through the air.</p>
-<p>The beastkin audience erupted in shouts of shock and disbelief. Some of in the audience who had more acute senses already saw me emerge on the other side, but even though they might've reacted, Veyrin wasn't informed, thanks to the artifact present in the arena that separated the adudience stands from the arena. When a fight was going on, the two sides couldn't hear the other. This restriction was only lifted before and after the fights. ṚΑＮọВΕ𝒮</p>
+<p>The beastkin audience erupted in shouts of shock and disbelief. Some of in the audience who had more acute senses already saw me emerge on the other side, but even though they might've reacted, Veyrin wasn't informed, thanks to the artifact present in the arena that separated the adudience stands from the arena. When a fight was going on, the two sides couldn't hear the other. This restriction was only lifted before and after the fights.</p>
 <p>"He actually hit him!!"</p>
 <p>The mighty Prince Veyrin, struck so suddenly, so cleanly, it was unthinkable for these people. Especially because it happened by a young human warrior who was as good as done in their eyes.</p>
 <p>"Veyrin's wounded!"</p>

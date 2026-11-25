@@ -30,7 +30,7 @@ chapter = 871
 <p>There was a pause of shocked gazes staring at her.</p>
 <p>Then her soldiers, who were still and frozen, looked into her face. Into her eyes.</p>
 <p>Clear. Cold. Certain.</p>
-<p>Their queen had led them through famines. Through enemy embargoes. Through civil unrest. Her wisdom had elevated their cities, brought flowing waters to once-barren lands. They had named her “The Saint of Stillness” and “The Merciful Flood.” She was divine in all but name. ṙαΝ𝔬BĚṧ</p>
+<p>Their queen had led them through famines. Through enemy embargoes. Through civil unrest. Her wisdom had elevated their cities, brought flowing waters to once-barren lands. They had named her “The Saint of Stillness” and “The Merciful Flood.” She was divine in all but name.</p>
 <p>She had never been wrong before.</p>
 <p>"She wouldn’t side with him without reason,” one soldier muttered.</p>
 <p>Another spat, “The Fire Nation and Earth always resented us anyway. If she says this god’s on our side, then he is.”</p>

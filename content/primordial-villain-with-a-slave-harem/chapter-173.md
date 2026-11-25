@@ -25,7 +25,7 @@ chapter = 173
 <p>"Tch."</p>
 <p>"How about instead of talking back to your benevolent master you move your pretty little behind and earn me some Slave Master XP?"</p>
 <p>She scoffs again and refuses to meet my eyes. I get no response.</p>
-<p>I glance towards where I believe the outpost to be located. It should be a couple miles from our current position. We can't do much more for now than to wait for Blossom's efforts to begin showing their worth, though I can't help but be worried. Based on her initial scouting report I didn't expect so many strong people to be stationed here. 𝐫α₦ŐBÊ𝘴</p>
+<p>I glance towards where I believe the outpost to be located. It should be a couple miles from our current position. We can't do much more for now than to wait for Blossom's efforts to begin showing their worth, though I can't help but be worried. Based on her initial scouting report I didn't expect so many strong people to be stationed here.</p>
 <p>My plan of simply putting a few meats with a rich smell around the camp to bait some monsters might not be enough, for the soldiers could probably dispatch them in mere minutes.</p>
 <p>I can only hope that Blossom pulls off a miracle and goes beyond my expectations, or the plan will have to be called off and I might never get the chance to become a Wizard.</p>
 <p>"GRRRROAARRR!" "GRRRROAARRR!" "AWOOOOOOOOOOOOOOOOOOOOOO!!!"</p>

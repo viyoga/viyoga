@@ -33,7 +33,7 @@ chapter = 988
 <p>There was no doubt in his mind now. His daughter had somehow succeeded in seducing Devil, who was a much bigger monster than Aurelion could’ve ever imagined. Hence why he was strapped and being tortured by his previously powerless daughter now.</p>
 <p>But the sounds... weren’t coming from him.</p>
 <p>No.</p>
-<p>Kneeling between his legs was a woman with a long, snow-white ponytail trailing down her back. Her movements were unmistakable, her posture devoted, her expression ravenous with her half-lidded eyes gazing upward in pure, unadulterated love and obsession. Ṝ𝐚Νo͍ВÈⱾ</p>
+<p>Kneeling between his legs was a woman with a long, snow-white ponytail trailing down her back. Her movements were unmistakable, her posture devoted, her expression ravenous with her half-lidded eyes gazing upward in pure, unadulterated love and obsession.</p>
 <p>Vex.</p>
 <p>Aurelion’s ruined face froze in disbelief. His vision blurred from tears of agony, but even through the blood, he could make it out.</p>
 <p>The Hexblade herself.</p>

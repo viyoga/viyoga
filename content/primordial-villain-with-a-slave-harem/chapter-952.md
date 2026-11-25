@@ -25,7 +25,7 @@ chapter = 952
 <p>It was impossible to process quickly. Quinlan had to blink. Five times.</p>
 <p>The Dogkin rogue, the utterly adorable soul companion who fought beside him through everything, now stood proudlywell, semi-proudlyin an awkwardly adorable black catgirl outfit. Fluffy black ears, a twitching frilly tail, and a heart-shaped collar that said:</p>
 <p>"MEOW!"</p>
-<p>Her chest was hugged by a tight top with a lace-up front, and her legs were bare save for the thigh-high stockings and a ridiculous pair of paw-shaped gloves that made her hands look twice their size. ṝáℕÒβƐș</p>
+<p>Her chest was hugged by a tight top with a lace-up front, and her legs were bare save for the thigh-high stockings and a ridiculous pair of paw-shaped gloves that made her hands look twice their size.</p>
 <p>Quinlan stared.</p>
 <p>"...Blossom. What the fuck is going on."</p>
 <p>The dogkin flushed redder than a tomato, ears twitching, tail wagging slightly behind the cat one.</p>

@@ -23,7 +23,7 @@ chapter = 16
 <p>"Well, we have a very frugal budget so I can't promise to dress you elegantly but something comfortable and practical should be possible to attain. We also need to retain at least 1 silver for emergency funds. Let me see… that leaves us with 2 silver and 96 bronze coins to spend on clothes and other stuff.</p>
 <p>I've already bought some toiletries but I only have one brush for teeth cleaning, so we need to get you one as well."</p>
 <p>"Sounds good. Comfortable and practical is exactly what we should get if we're going to be fighting monsters… and doing other… less honorable things."</p>
-<p>My beautiful companion really isn't thrilled by the idea of doing underhanded actions, huh? It's not like I was planning to straight up become a hardcore criminal, I will just jump on good opportunities when they present themselves, such as the merchant carriage's ownerless crates ready to be sold being presented to me on a silver platter. ɽἁ𐌽Ο𝐁ƐŠ</p>
+<p>My beautiful companion really isn't thrilled by the idea of doing underhanded actions, huh? It's not like I was planning to straight up become a hardcore criminal, I will just jump on good opportunities when they present themselves, such as the merchant carriage's ownerless crates ready to be sold being presented to me on a silver platter.</p>
 <p>"Alright, good to hear that you are not how I imagined a young noble lady to be. Any clothing shop ideas? I've not yet been to one in Aldoria."</p>
 <p>"Me neither. I was dragged here in chains, so I didn't exactly get to sightsee…"</p>
 <p>"Let's explore a bit then. We've got time until lunch."</p>

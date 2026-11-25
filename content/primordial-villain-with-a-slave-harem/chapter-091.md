@@ -29,7 +29,7 @@ chapter = 91
 <p>They all seem to be Rare Classes, sadly none are Unique, though. The system didn't provide me with an OP class this time around like it did with Primordial Villain. Perhaps if I select one of these and level it up enough…</p>
 <p>But I can't really make a decision since I just told myself that I would put the spear down and look for a better weapon. I decide to ask my beautiful Wikipedia. "Ayame?"</p>
 <p>All I receive is an angry growl. She seems to be a bit annoyed with me for some reason?</p>
-<p>"It's about something else this time, so relax, young lady. I reached Warrior level 10 and I can select from like 30 Rare Classes to evolve it into. Is this normal?" ŕãꞐ𝐨𝖇ĚŚ</p>
+<p>"It's about something else this time, so relax, young lady. I reached Warrior level 10 and I can select from like 30 Rare Classes to evolve it into. Is this normal?"</p>
 <p>"You what?!" She cries suddenly. "Weren't you level 7 just the other day?!"</p>
 <p>"Yeah, and I was level 0 five days ago. What's your point?" I question the flabbergasted girl smugly.</p>
 <p>"I will never get used to this rate of progression…!" She shakes her head as if trying to wake herself up from a bad dream. When she sees that she is, in fact, not waking up, she sighs and continues, "also, 30 Rare Classes?! Show me, I simply refuse to believe you!"</p>

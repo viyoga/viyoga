@@ -44,7 +44,7 @@ chapter = 728
 <p>He wasn’t fighting like a commander but a true one-man army.</p>
 <p>Every swing of his tore through multiple enemies, and his roar alone was enough to break morale.</p>
 <p>The lionkin tried to form ranks, but it was like asking sticks to hold back a flood.</p>
-<p>Despite the lionkin being outfitted in armor and wielding good weapons—unlike the other proud apexes like the bearkin, tigerkin, and wolfkin—the numbers and might of the besiegers was just too much to resist. ꭆ𝔞𐌽ОΒƐṨ</p>
+<p>Despite the lionkin being outfitted in armor and wielding good weapons—unlike the other proud apexes like the bearkin, tigerkin, and wolfkin—the numbers and might of the besiegers was just too much to resist.</p>
 <p>On the far flank, the dogkin were practically dancing over the walls, their nimble forms leaping and flipping from ledges to parapets.</p>
 <p>Where the bearkin shattered with brute force, the dogkin sliced and flanked with precision.</p>
 <p>It was… a massacre.</p>

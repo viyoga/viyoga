@@ -33,7 +33,7 @@ chapter = 811
 <p>1</p>
 <p>"..."</p>
 <p>She extended a hand, smiling. "Come on, Uncle. We’ve got the meat. Let’s feast!"</p>
-<p>Together, they walked back, with Quinlan half-dragging the corpse, half-dragging himself while Feng cheerily hopped next to him like a happy little bunny girl. The old man didn’t so much as glance at their return. He just gestured toward a fire pit. 𝑅å₦ＯβÊʂ</p>
+<p>Together, they walked back, with Quinlan half-dragging the corpse, half-dragging himself while Feng cheerily hopped next to him like a happy little bunny girl. The old man didn’t so much as glance at their return. He just gestured toward a fire pit.</p>
 <p>A silent acknowledgment.</p>
 <p>Maybe even approval.</p>
 <p>Not that he’d say anything like that.</p>

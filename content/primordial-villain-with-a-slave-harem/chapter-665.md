@@ -23,7 +23,7 @@ chapter = 665
 <p>"Start singing," Gorruk instructed with a tone that told everyone here he couldn't wait for the moment the necromancer had outlived her usefulness and thus could be dealt with.</p>
 <p>My earlier assessment of her not having long to live might end up false, for it looked like she would be kept alive for years if the decision was left up to the bearkin.</p>
 <p>A shudder traveled alongside the woman's spine as tears swelled in her eyes. She struggled to say anything, but when the second prince reached for a plier and attached it to her teeth, she quickly found her voice.</p>
-<p>"My name is Mirabelle… I'm a lieutenant of the Covenant of Eternity, making me one of their top enforcers. As someone who failed to turn into an undead, my fate was to be the guard dog of the undead leadership who call themselves the Covenant." РÃNοβЕS̩</p>
+<p>"My name is Mirabelle… I'm a lieutenant of the Covenant of Eternity, making me one of their top enforcers. As someone who failed to turn into an undead, my fate was to be the guard dog of the undead leadership who call themselves the Covenant."</p>
 <p>"What is that organization of yours doing in our lands?" Vargis asked.</p>
 <p>"... We made a deal with the Alliance of Elvardia. By creating chaos in the beastkin lands, they can gather an army of a size we've never seen before. Humans struggle to invade their lands due to the forests full of elven sentries that border the two nations.</p>
 <p>The beastkin, on the other hand, can invade them from their border through terrain that is free of forests. By having you fight among yourselves instead of attacking Elvardia, they were allowed to reduce their patrols and spend more resources on drafting an army of legend."</p>

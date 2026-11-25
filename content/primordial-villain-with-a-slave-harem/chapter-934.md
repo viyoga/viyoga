@@ -37,7 +37,7 @@ chapter = 934
 <p>*Zzsht!*</p>
 <p>A sudden jolt of light rippled across the clearing.</p>
 <p>Everyone flinched at once.</p>
-<p>The ambient light of the fairy-tale tree behind them—Rosie’s tree, her sacred anchor—flared to life in a radiant wave of green and gold. Leaves shimmered with iridescence, bark pulsed like a beating heart, and an unseen wind sent petals swirling in every direction. ŕаƝọ𝐛Е𝙨</p>
+<p>The ambient light of the fairy-tale tree behind them—Rosie’s tree, her sacred anchor—flared to life in a radiant wave of green and gold. Leaves shimmered with iridescence, bark pulsed like a beating heart, and an unseen wind sent petals swirling in every direction.</p>
 <p>And Rosie...</p>
 <p>She began to glow, too.</p>
 <p>Her tiny form was bathed in that same luminous aura, strands of light curling from her hair.</p>

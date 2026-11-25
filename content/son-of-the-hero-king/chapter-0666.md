@@ -32,7 +32,7 @@ chapter = 666
 <p>She answered him politely, but the politeness in itself was the greatest proof of the distance between the two.</p>
 <p>He shook his head with a sigh. “The last time I enjoyed an outdoor picnic was quite some time ago. I am constantly going from office to office, filling them with so much paper that they are overflowing.”</p>
 <p>Pandora couldn’t stop herself from snorting. “Hah. You should be happy you even have paperwork. As the Demon Queen, I was forced to listen to the grievances of the different demons. As you can imagine, it became a pain in the ass very fast.</p>
-<p>“Having to explain to an ancient zombie why he cannot drink the blood and eat the flesh of mortals. Stopping a clan of vampires and werewolves who had been at war for nearly 100 years from literally destroying the whole kingdom. Help keep the status quo, and eliminate people who can negatively affect the situation.” 𝑅áℕ𝐨𝔟Ê𝐒</p>
+<p>“Having to explain to an ancient zombie why he cannot drink the blood and eat the flesh of mortals. Stopping a clan of vampires and werewolves who had been at war for nearly 100 years from literally destroying the whole kingdom. Help keep the status quo, and eliminate people who can negatively affect the situation.”</p>
 <p>She rapid-fired complaint after complaint before taking one of the wine bottles and downing it in one go. It was clear that she was very upset and had many grievances in her heart.</p>
 <p>Thankfully, from an optimistic perspective, it was clear that Sol was not at the top of those grievances.</p>
 <p>“Seems like you had your hands full with your kingdom. Must be tough” Pandora’s smile became a bit more gentle at those words. Her brows stopped furrowing and her voice was now back to her normal singsong note.</p>

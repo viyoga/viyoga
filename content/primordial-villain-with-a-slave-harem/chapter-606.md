@@ -30,7 +30,7 @@ chapter = 606
 <p>Instinct screamed at me to move. To dodge. To run for my life.</p>
 <p>But since crossing into the earth quadrant weeks ago, I have learned.</p>
 <p>Earth did not flinch. Earth did not run. Earth endured.</p>
-<p>To that end, I planted my feet firmly on the ground and then reached deep within myself, not for magic, not for force, but for the same resilience that defined the land itself. Ꞧà𝐍Ȱ𝐁ƐŜ</p>
+<p>To that end, I planted my feet firmly on the ground and then reached deep within myself, not for magic, not for force, but for the same resilience that defined the land itself.</p>
 <p>The avalanche roared closer. Dust and debris filled the air, the sheer force of it enough to strip flesh from bone…</p>
 <p>I stood my ground. Stay updated through</p>
 <p>The first impact struck like a truck as the immense weight slammed into me, trying to bury me beneath its might. The pressure was overwhelming. How couldn’t it? An impossible mass was trying to flatten me.</p>

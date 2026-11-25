@@ -36,7 +36,7 @@ chapter = 824
 <p>Feng stared down at the lava.</p>
 <p>Then at the guide, who looked half asleep and bored out of his mind.</p>
 <p>Then at the other passengers.</p>
-<p>A well-dressed man and woman sat toward the middle with elegant posture, trying (and failing) to avoid getting soot on their expensive robes. Between them sat their daughter, a voluptuous girl slightly above Feng’s age with long curls of red hair, a chest that strained her qipao, and eyes that flicked curiously toward Quinlan. 𝙍₳𝐍оBƐ𝙎</p>
+<p>A well-dressed man and woman sat toward the middle with elegant posture, trying (and failing) to avoid getting soot on their expensive robes. Between them sat their daughter, a voluptuous girl slightly above Feng’s age with long curls of red hair, a chest that strained her qipao, and eyes that flicked curiously toward Quinlan.</p>
 <p>Feng squinted at the girl. For some reason, she didn’t like her, even though no words were exchanged between the two.</p>
 <p>"I have a bad feeling about this..." she whispered, right as the guide thumped his paddle and the raft shot forward.</p>
 <p>The molten canal twisted violently.</p>

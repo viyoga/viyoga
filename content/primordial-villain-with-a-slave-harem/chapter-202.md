@@ -26,7 +26,7 @@ chapter = 202
 <p>I set Ayame down to sit at the side, then I begin undressing. Whenever she's been in the same bed as me, I always wore underpants out of respect for her, and I elect to do as such today as well. She doesn't need the added pressure my naked 8 incher would provide.</p>
 <p>I extinguish the candles brightening the room up and climb in myself, and reach out my arm to pull her in.</p>
 <p>She struggles for a few seconds before relenting, with much difficulty.</p>
-<p>I position ourselves so that I'm lying on my back with a pillow under my head, while Ayame is on my left side, lying sideways, her chest pushing up against my left side, and using my shoulder as her pillow. ȓãΝȯᛒЁṩ</p>
+<p>I position ourselves so that I'm lying on my back with a pillow under my head, while Ayame is on my left side, lying sideways, her chest pushing up against my left side, and using my shoulder as her pillow.</p>
 <p>"It's not so bad, no?" I inquire jovially. It feels amazing to finally feel her warmth on my naked skin. I waited for such a long time to have her sleep in my arms.</p>
 <p>I absolutely must congratulate the Quinlan of the past for not using this won bet before. This is the perfect time. Just after a legendary mission success, in a comfortable inn room, after a happy feast, after getting her a hot nightgown and paying for a nice bathhouse's services.</p>
 <p>She smells so incredibly good. I lean in and sniff her gorgeous dark hair just for good measure.</p>

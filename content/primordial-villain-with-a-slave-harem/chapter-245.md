@@ -28,7 +28,7 @@ chapter = 245
 <p>"Nah, we are not doing this. Old loser, do you remember what you've done?" I interject, cutting his moment of delirium short.</p>
 <p>"My daughter is hurt! I have to help!"</p>
 <p>"Help…? Help?!" Beatrice began shouting. "You sold me and Anna to the Wraithclaws, you piece of shit! We were a mere moment away from either dying or becoming sex slaves, you sad excuse of a father! I despise you more than anything in this world!"</p>
-<p>Oh boy. We'll wake the neighborhood up. I walk to her and put a hand on top of her head. She looks up at me questioningly, then realizes my issue and quiets down, though her anger levels did not lessen one bit. ℞ÂŊ𝔬𝐁Ěs</p>
+<p>Oh boy. We'll wake the neighborhood up. I walk to her and put a hand on top of her head. She looks up at me questioningly, then realizes my issue and quiets down, though her anger levels did not lessen one bit.</p>
 <p>"Huh? I..? I did what??" He gazes up at us puzzledly. His features are filled with sheer bewilderment.</p>
 <p>I can't decide if this is a coping mechanism or if the drug is so strong that his memory is completely ruined. Probably both to a degree, I guess.</p>
 <p>"You sold your daughters for drugs, you retarded mongrel." I repeat to him. "You're the biggest failure of a father I've ever seen in my entire life."</p>

@@ -28,7 +28,7 @@ chapter = 76
 <p>This is also one of the reasons why non-combat jobs are less popular despite their significant safety; it's much harder to gain non-class levels as a civilian, which means they die before being a century old, even if their class reaches a high level."</p>
 <p>Oh! "I see. Then I was right in only going for strong women for my harem, my heart couldn't take it if my ladies died before me." I receive an annoyed scoff which I ignore, "As for the previous topic, I want to hurl fireballs at my enemies. Fly through the skies. Teleport.</p>
 <p>Impale a war troll on my giant icicle straight through its bum-hole." She gives me a sickened, utterly disgusted look, "okay, that came out wrong but you get my point. I've come to a fantasy land, where magic exists, and you are telling me to become a pure fighter?</p>
-<p>It fits you because you are a badass, hyper-flexible, acrobatic genius of a blade wielder, but I'm just pointing my spear and thrusting it at enemies." ŕä𐌽ő𝐛ĘṤ</p>
+<p>It fits you because you are a badass, hyper-flexible, acrobatic genius of a blade wielder, but I'm just pointing my spear and thrusting it at enemies."</p>
 <p>"Still…"</p>
 <p>"Alright, let's visit a professional first and foremost. Maybe they have some supplementary potions or just tips to give which increases my chances of success. Good enough?"</p>
 <p>Ayame stares at me for a few seconds while being deep in thought, before speaking up; "you are right, if there's one person who can become a Wizard after the age of 6 it's you. Well, we will have to visit a high level Alchemist's shop and buy the concoction. I don't know the exact price but it will be multiple gold coins for certain."</p>

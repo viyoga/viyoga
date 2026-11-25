@@ -47,7 +47,7 @@ chapter = 727
 <p>Her lips attacked my chin with a flurry of smooches, each one messier than the last.</p>
 <p>There was no resisting her, not that I ever planned to.</p>
 <p>Her infectious joy and affection lit up my heart like a warm fire in winter.</p>
-<p>The two of us disappeared into the shower, her humming happily as I reached for the soap, and a few moments later, we emerged together—clean, warm, and still giggling like idiots—as we sank into the bath beside the others. ȒÂℕỐ𝐁Ëŝ</p>
+<p>The two of us disappeared into the shower, her humming happily as I reached for the soap, and a few moments later, we emerged together—clean, warm, and still giggling like idiots—as we sank into the bath beside the others.</p>
 <p>Only one person remained untouched by water and relaxation.</p>
 <p>Raika.</p>
 <p>She sat on the ground, cross-legged, arms crossed like a statue of stubbornness and obedience rolled into one.</p>

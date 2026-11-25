@@ -30,7 +30,7 @@ chapter = 1088
 <p>Gina’s head lowered. "Instead, it should be me. I should be groveling on all fours in gratitude for all you’ve done for me. You saved my life back then, and now you’ve reunited me with my beloved daughter."</p>
 <p>Tears welled in the woman’s eyes as she spoke, her brittle mask of composure finally shattering in full. Her hand trembled as she lifted it, brushing against Jasmine’s cheek with the gentlest of touches, looking as if she feared her daughter might shatter if she pressed too hard.</p>
 <p>A mother’s ultimate loving tenderness.</p>
-<p>"Finally..." her voice broke, and soft sobs spilled through her lips, "... after twenty-five years, I can see the gem of my life beneath the bright sun instead of being surrounded by the prison’s suffocating darkness." 𝑅𝐚𐌽𝔬BĘs̩</p>
+<p>"Finally..." her voice broke, and soft sobs spilled through her lips, "... after twenty-five years, I can see the gem of my life beneath the bright sun instead of being surrounded by the prison’s suffocating darkness."</p>
 <p>Hearing that tone, understanding those words, and seeing Gina’s expression, Jasmine’s composure crumbled instantly. Her eyes flooded, her lips quivered, and in the next heartbeat, she threw herself into her mother’s arms. The hug was tight, desperate, tender. Two fragile souls clung together as they slowly felt the weight of misery leave their shoulders, replaced by blissful liberation.</p>
 <p>The nightmare, which seemed to go on forever, had finally ended.</p>
 <p>As soon as she felt her daughter’s hands around her frame, Gina’s sobs grew heavier, muffled against her daughter’s shoulder, and Jasmine only held her tighter, burying her face into the crook of her neck.</p>

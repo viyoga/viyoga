@@ -31,7 +31,7 @@ chapter = 721
 <p>"Our own settlement," I continued, explaining myself. "A place far away from the tyranny of the Vraven Kingdom… and free of the oppressive rule of the Elvardian Alliance. A place where you can live on your own terms."</p>
 <p>Someone whispered, "Their own settlement…?"</p>
 <p>I nodded.</p>
-<p>"It's called Miri Town. I rule it as its sole sovereign. There, your race does not define your worth. Human, elf, dwarf… beastkin. All are welcome, so long as they come in peace." ṟÁΝỗᛒĘ𝓢</p>
+<p>"It's called Miri Town. I rule it as its sole sovereign. There, your race does not define your worth. Human, elf, dwarf… beastkin. All are welcome, so long as they come in peace."</p>
 <p>The mention of beastkin sent a ripple of tension through the crowd. Several flinched. Some clenched their fists. Others looked downright enraged. Understandably so: after what the lionkin had done to them, "beastkin" wasn't a term that inspired comfort.</p>
 <p>I raised a hand.</p>
 <p>"You need not worry. No lionkin will ever be welcome in Miri Town. Nor any other beastkin who believes they are superior to you or who sees humanoids as meat or playthings. Those types… I burn."</p>

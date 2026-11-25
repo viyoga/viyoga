@@ -27,7 +27,7 @@ chapter = 803
 <p>"So, how are we going to cross the border? I imagine they're highly guarded with all the tensions you'd mentioned."</p>
 <p>Feng Jiai's lips curled into a smug little grin at his question, the kind of grin that made her look like she was two steps away from declaring herself a genius mastermind.</p>
 <p>"I've been planning my escape from home for over a year now," she said proudly, puffing out her flat chest.</p>
-<p>Quinlan raised a brow. "Impressive. Did it involve getting kidnapped by your child rapist wannabe fiance and getting saved by a stranger suffering from amnesia?" Рã𐌽𝙤𝖇Еs̈</p>
+<p>Quinlan raised a brow. "Impressive. Did it involve getting kidnapped by your child rapist wannabe fiance and getting saved by a stranger suffering from amnesia?"</p>
 <p>Her delicate body shuddered at his words, and he earned himself a rather scornful glare. "No… But the stealing of the fire shard and the border crossing were all me. I spent all my spending money collecting information from the Beggar Sect."</p>
 <p>"Beggars?"</p>
 <p>"The Beggar Sect is a secret information network. They disguise themselves as beggars to blend in with society. Everyone underestimates them, which is exactly why they're so good at what they do. I had to annoy them for weeks before they agreed to trade."</p>

@@ -28,7 +28,7 @@ chapter = 1046
 <p>A cut through space, and then... simply walk through.</p>
 <p>Eerily similar to his magic.</p>
 <p>The nobles’ initial awe turned into something else entirely as their eyes tracked the Fujimori elders’ every step.</p>
-<p>Each one of the robed, white-haired figures dragged behind them a bound and shackled body. The heavy chains that bound them scraped against the marble with an ugly, grating rhythm. The captives were not treated as honored prisoners; there was no pretense of dignity. ŔἈNô฿Е𝘚</p>
+<p>Each one of the robed, white-haired figures dragged behind them a bound and shackled body. The heavy chains that bound them scraped against the marble with an ugly, grating rhythm. The captives were not treated as honored prisoners; there was no pretense of dignity.</p>
 <p>They were hauled across the floor like sacks of grain.</p>
 <p>A wave of recognition rolled through the gathered court. The air filled with sharp intakes of breath and startled whispers as faces from wanted posters—burned into memory after an eternity of warnings—came into view.</p>
 <p>The Phantom League.</p>

@@ -23,7 +23,7 @@ chapter = 290
 <p>Yep, my fears were quickly coming true. We flinched at her statement and got into battle formation.</p>
 <p>"The first Trial will be crude, so do excuse our lack of flair. In the space you're in, a thousand Phenoms and five thousand Heralds can be found. You are to kill each other until only a hundred Phenom candidates remain. You will be notified when the number has been reached, and you must stop fighting at that moment or you will be eliminated. That's it.</p>
 <p>The Trials have officially begun." As soon as her voice cut off, pure chaos descended on the place.</p>
-<p>We were in a privileged position since the masses gathered together at the podium, but that didn't mean no one was near us. Hundreds of people were smart enough to sense that something was amiss like I did. RΆ𝐍ỗΒЁ𝘚</p>
+<p>We were in a privileged position since the masses gathered together at the podium, but that didn't mean no one was near us. Hundreds of people were smart enough to sense that something was amiss like I did.</p>
 <p>As I was examining the space I noticed over a hundred insect-helmeted guards along the edges of the underground area, and the only exit in which we came in was barricaded by an entire squad of them. They clearly had no plans of letting the candidates leave before the organizers found their hundred 'winners'.</p>
 <p>Read more adventures at</p>
 <p>As Black Fang had just said, truly, what a barbaric test. 90% of the Phenom candidates will pass away here, and likely more than that percentage of the Heralds will as well.</p>

@@ -23,7 +23,6 @@ chapter = 815
 <p>However, no matter what depressing thoughts might be fleeting through her brain, this was ultimately the reality. A reality that not even her wildest dream could have ever conjured.</p>
 <p>Sol was not faring much better than Medea.</p>
 <p>His hand twitched slightly at his side, an unconscious urge to reach out for her and wrap her in his embrace, trying his best to mold their bodies into one. He forced it still, but the weight in his chest only grew heavier.</p>
-<p>ṛÁℕ𝘖ᛒЁŚ</p>
 <p>He had faced goddesses without blinking, threatened country leaders, and even fought on a battlefield full of demigods… But now, with Medea standing beside him, his throat felt unspeakably dry.</p>
 <p>Camelia’s voice cut through the hush, breaking the pair out of their world.</p>
 <p>“The bride has arrived. Let all present here bear witness.”</p>

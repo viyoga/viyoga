@@ -24,7 +24,7 @@ chapter = 709
 <p>It didn't flicker. It didn't weaken. This enchanter-type mage was strange.</p>
 <p>Even as the dogkin struck back from inside the barrier, his weapon passed through seamlessly. No restriction, no resistance. The magic didn't break upon use.</p>
 <p>Another rider came from his blind spot with a heavy downward swing of his weapon seeking to split his skull apart.</p>
-<p>Var'Zhul roared and met it head-on. His blade slammed into the attack, deflecting the strike so fiercely that the second dogkin's wrist almost buckled from the sheer force. Ṝä₦𝘰ΒЁ𝙨</p>
+<p>Var'Zhul roared and met it head-on. His blade slammed into the attack, deflecting the strike so fiercely that the second dogkin's wrist almost buckled from the sheer force.</p>
 <p>They fought like beasts locked in a death struggle. The dogkin had the advantage of magic—strange, bullshit magic—but he had the raw might of a lionkin warlord.</p>
 <p>Blades clashed. Fangs bared. Sparks flew.</p>
 <p>The two warriors gritted their teeth, frustration leaking into their movements. Even with their shields, even with their moonlit mounts, even with superior numbers, they couldn't kill him.</p>

@@ -31,7 +31,7 @@ chapter = 237
 <p>"My condolences." Ronan stated in a rather out-of-character somberly tone.</p>
 <p>"Yeah… That's just horrible." Ayame also voiced. &lt;Has my country always been so rotten all this time?!&gt;</p>
 <p>&lt;Seems like it…&gt;</p>
-<p>"What's done is done. I would appreciate it if you would not bring up anything regarding the church in my presence unless it's about their downfall, but I'm just a slave, so… I can only beg you not to torment me as such." ℞ÀN𝐨𝐛Ěṩ</p>
+<p>"What's done is done. I would appreciate it if you would not bring up anything regarding the church in my presence unless it's about their downfall, but I'm just a slave, so… I can only beg you not to torment me as such."</p>
 <p>"We will do our best. With the introductions over, let's move on to the details. I can't tell you everything while we are here, as I'm a rather secretive person, but the gist is that I want a luxury mansion with never-before-seen additions. Basically, I want your imagination to go wild, and use all the creativity you have in the design process.</p>
 <p>The mansion will be surrounded by other utilitarian buildings to be constructed, like servant housing, barracks, defensive bunkers, and such.</p>
 <p>I want Ronan to design and oversee the main architectural duties, as well as help me design a few interior ones that require a man's understanding. Besides that, Isolde, you would be in charge of the remaining interior planning, namely the rooms of my harem members and other common facilities like the kitchen and diner room, as well as a flower garden and more.</p>

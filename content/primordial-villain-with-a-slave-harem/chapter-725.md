@@ -31,7 +31,7 @@ chapter = 725
 <p>"A sexy shower play you say…?" Vex mused with uncertainty. She was a modest woman who never did these things in her nearly 200 years of life, so her reluctance was understandable.</p>
 <p>"You know you can trust me."</p>
 <p>"Do I?"</p>
-<p>"…" I couldn't help but smile wryly. Not wanting to sound like a hopeless pervert, I shrugged my shoulders and began undressing myself instead. I wasn't going to get on my knees and beg like a loser. If she wasn't game, I would more than happily pass the time by stroking my Blossom's heavenly mounds and playing with Kitsara's three tails. 𝘳ἁΝô𝔟Ę𝘴</p>
+<p>"…" I couldn't help but smile wryly. Not wanting to sound like a hopeless pervert, I shrugged my shoulders and began undressing myself instead. I wasn't going to get on my knees and beg like a loser. If she wasn't game, I would more than happily pass the time by stroking my Blossom's heavenly mounds and playing with Kitsara's three tails.</p>
 <p>"Gentleman, he says… An exhibitionist gentleman?" Iris was in a rather grumpy mood, it seemed. I didn't quite understand why. My donger hanging freely in the air couldn't be it, right?</p>
 <p>"Haaah… Why am I so weak when it comes to telling you no?" Vex sighed with defeat. "Fine, you win…" she said, reaching for her bloody kendo clothes and slowly disrobing from them.</p>
 <p>And in this manner, she stood under the showerhead. The quiet sound of droplets striking stone and skin played like a sensual melody in my mind.</p>

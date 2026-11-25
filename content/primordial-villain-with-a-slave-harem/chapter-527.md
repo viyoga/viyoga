@@ -24,7 +24,7 @@ chapter = 527
 <p>&lt;Baby, they’re waking up.&gt; Lucille’s voice sounded in my mind all of a sudden.</p>
 <p>It was time to settle my affairs with the twins.</p>
 <p>…</p>
-<p>Amara and Vivienne woke up with a splitting headache. Their eyes were hazy and their mind scrambled, but with some difficulty, they managed to get up onto their knees. ɽΑΝο𝖇ЁṨ</p>
+<p>Amara and Vivienne woke up with a splitting headache. Their eyes were hazy and their mind scrambled, but with some difficulty, they managed to get up onto their knees.</p>
 <p>"Morning, ladies." A feminine voice rang, and the two snapped their heads in sync toward the direction of the sound.</p>
 <p>As their vision cleared and their brains caught up to reality, they froze.</p>
 <p>Seated on a chair with one leg crossed over the other, a caramel-haired beauty sat. Her expression was cold, distant.</p>

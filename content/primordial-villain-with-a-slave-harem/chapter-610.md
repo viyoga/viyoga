@@ -23,7 +23,7 @@ chapter = 610
 <p>"You were sleeping," Lucille suggested.</p>
 <p>"Blossom would wake up!"</p>
 <p>"She also had a way to conceal her smell…" Aurora added with a strong grimace. It seemed my girls were busy with the homework I gave them—finding an explanation for my absence.</p>
-<p>Before I could even make my grand entrance, Blossom tilted her head back a bit and sniffed. In the next moment, her head snapped in my direction, and I saw a dogkin rocket get launched right into my arms. "Master!!" ř𝒶Ｎ𝖔𝔟È𝙎</p>
+<p>Before I could even make my grand entrance, Blossom tilted her head back a bit and sniffed. In the next moment, her head snapped in my direction, and I saw a dogkin rocket get launched right into my arms. "Master!!"</p>
 <p>I grabbed onto her juicy buttcheeks as I held Blossom, letting her slobber me in adoring kisses. I felt the accumulated stress leave her body with each passing second.</p>
 <p>"Quin!" The others quickly joined my dog-girl in hugging me, and just as so, I found myself in a big family hug.</p>
 <p>&lt;I’m back.&gt; I informed my sole woman who wasn’t present.</p>

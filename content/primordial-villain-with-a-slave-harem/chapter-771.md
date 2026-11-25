@@ -30,7 +30,7 @@ chapter = 771
 <p>"And all it takes she whispered, reaching between us and guiding my painfully hard cock toward the heat between her thighs, “is for us to seal it… the old-fashioned way.”</p>
 <p>She rubbed herself against me in slow, gentle motions that made my vision blur at the edges.</p>
 <p>"You serious?” I gritted out, barely able to speak.</p>
-<p>She giggled in that perfect giggle of hers. “Deadly serious, hubby It’s an ancient form of pact-making. Two lovers, joined in the center of the circle, surrendering themselves to each other.” řἈƝ𝘖ＢĘs̈</p>
+<p>She giggled in that perfect giggle of hers. “Deadly serious, hubby It’s an ancient form of pact-making. Two lovers, joined in the center of the circle, surrendering themselves to each other.”</p>
 <p>It was official now.</p>
 <p>I couldn’t take it anymore.</p>
 <p>Not one second longer.</p>

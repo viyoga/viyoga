@@ -22,7 +22,7 @@ chapter = 465
 <p>She eyed me for a bit before simply shrugging her shoulders, "I have an event to run, but sure, the highest scorers can enjoy some leeway I suppose. 10 seconds should be more than enough, right?"</p>
 <p>"Yes. Thanks, I appreciate it a lot. [Airwalk]" I grabbed Iris and plopped her down on my right shoulder, after which I quickly ran up into the air and started waving at the crowd which was going into a frenzy.</p>
 <p>"… You just called a Veil Walker your future wife and she had no problem with it…?" Iris was flabbergasted.</p>
-<p>"Yes, but we all know that Vex is a rather strange woman, and that's me putting things gently. I wouldn't have said this to any other Veil Walker. By the way, you should wave your arms at the crowd, or otherwise you will seem like a prudish person. " ṛἈƝɵ𝐁Ěŝ</p>
+<p>"Yes, but we all know that Vex is a rather strange woman, and that's me putting things gently. I wouldn't have said this to any other Veil Walker. By the way, you should wave your arms at the crowd, or otherwise you will seem like a prudish person. "</p>
 <p>She reluctantly did as I suggested, but her motions were rather robotic, her mind was clearly occupied with something else. "You know, I can't help but notice that you're flirting with three women one after the other, and in front of all of your lovers at that. Because that's what this is, right? You flirting with me?"</p>
 <p>"What can I say, I'm a man who is harboring incomprehensible ambitions."</p>
 <p>Iris deserved the very best partner in my mind, who coincidentally happened to be exactly me.</p>

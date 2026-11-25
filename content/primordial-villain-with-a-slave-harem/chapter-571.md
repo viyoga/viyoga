@@ -37,7 +37,7 @@ chapter = 571
 <p>"I didn’t save you. I’d already killed the raiders; you were not in danger."</p>
 <p>The little girl didn’t like the answers this noncaring woman was giving her. In fact, she was getting annoyed.</p>
 <p>"Yet you still took me away! Why?"</p>
-<p>"I would’ve left you there for the authorities to shove you into an orphanage, but then I saw your face. I knew perfectly well what the disgusting orphanage managers would do to a girl like you, so I took pity on you." Ṛ𝙖ꞐƟ𝔟ЕṦ</p>
+<p>"I would’ve left you there for the authorities to shove you into an orphanage, but then I saw your face. I knew perfectly well what the disgusting orphanage managers would do to a girl like you, so I took pity on you."</p>
 <p>The little girl didn’t know what to do with that answer, as she was too innocent to understand the meaning of her words.</p>
 <p>"What am I supposed to do now?"</p>
 <p>"You’d already asked me that."</p>

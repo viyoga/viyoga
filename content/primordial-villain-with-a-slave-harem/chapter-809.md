@@ -26,7 +26,7 @@ chapter = 809
 <p>"Run."</p>
 <p>Quinlan blinked questioningly. "What?"</p>
 <p>"Punishment for failure. Five laps. The edge to the hill and back."</p>
-<p>"You’ve got to be kidding me!" Quinlan sat up with his chest heaving. "I don’t have time for this! My loved ones are waiting for me—my people, my lovers—I’m not here to sweat all day but to cultivate and become a great combatant!" ŗá𝐍о₿ЁṤ</p>
+<p>"You’ve got to be kidding me!" Quinlan sat up with his chest heaving. "I don’t have time for this! My loved ones are waiting for me—my people, my lovers—I’m not here to sweat all day but to cultivate and become a great combatant!"</p>
 <p>The old man didn’t move or respond.</p>
 <p>"I’ve already got a strong physical foundation," Quinlan snapped, flexing his big biceps in proof of his words. "What I need is to focus on opening my twelve meridians. After that comes core formulation. That’s how I can achieve my goals. I know the path. I just need the techniques, the guidance from you, not damned leg cramps!"</p>
 <p>While Quinlan was conducting his rant, Feng, who hadn’t once been acknowledged by the old man, so she just did her training on her own, rushed to his side. "Uncle, wait! Don’t-"</p>

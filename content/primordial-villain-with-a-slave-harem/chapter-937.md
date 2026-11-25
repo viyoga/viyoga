@@ -30,7 +30,7 @@ chapter = 937
 <p>The samurai woman sent a very serious, wry glance toward the cheeky elf.</p>
 <p>Quinlan, still on the ground from earlier, simply shrugged with a huge grin on his face. "Isn’t our daughter just amazing?"</p>
 <p>Lucille slowly raised an eyebrow. "You’re just going along with this, huh?"</p>
-<p>"Eh, why not? She’s a unique little girl. I don’t even know if another of her kind exists in the whole universe. Let’s just see what she can do," he replied without hesitation, the smile never leaving his face. ȑἈℕƟꞖĘs</p>
+<p>"Eh, why not? She’s a unique little girl. I don’t even know if another of her kind exists in the whole universe. Let’s just see what she can do," he replied without hesitation, the smile never leaving his face.</p>
 <p>They couldn’t argue with that. Not really.</p>
 <p>But then Aurora, brows pinching, glanced at the tree. "Can you follow her in?"</p>
 <p>"I can, though not through that dimensional tear. However, to do so, I’ll have to sit still. Once I will my soul to enter, my body here will go limp until I return. I’ll be unconscious."</p>

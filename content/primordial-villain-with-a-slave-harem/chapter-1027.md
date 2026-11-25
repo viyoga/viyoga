@@ -35,7 +35,7 @@ chapter = 1027
 <p>Ayame. Lucille. Iris. The others.</p>
 <p>Their presence acted around him as if they were emotional anchors.</p>
 <p>And slowly... reluctantly... he let go.</p>
-<p>The noble crumpled to the ground like a discarded doll, wheezing in shallow gulps. His fine robes were soaked with sweat, blood, and piss, and his face was drained of all color. ȑÅ𐌽ÓBЁ𝒮</p>
+<p>The noble crumpled to the ground like a discarded doll, wheezing in shallow gulps. His fine robes were soaked with sweat, blood, and piss, and his face was drained of all color.</p>
 <p>Seraphiel moved in quietly.</p>
 <p>Her cheek was bruised, red, and swollen from where the noble had struck her. Yet she didn’t cast a healing spell nor pour a healing potion on it. In fact, she wasn’t even caressing it.</p>
 <p>Her blond hair clung to her face from the sweat and heat of the moment that came from the love of her life nearly committing a capital crime in front of the king and all his enforcers. She understood very well that the king was amicable toward them, but she did not doubt for a single moment he’d mete out justice on Quinlan if he killed a noble who, by law, did no wrong.</p>

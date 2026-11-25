@@ -37,7 +37,7 @@ chapter = 866
 <p>*Click.*</p>
 <p>The double doors at the far end of the arena began to open.</p>
 <p>A deafening boom split the air.</p>
-<p>From the far end of the arena, a monstrous surge of power erupted in the form of an elemental vortex roaring to life, all four elements combining as one. Flames screamed, water surged like razors, jagged stone spears tore through the ground, and blades of wind sliced toward the center of the battlefield right where Quinlan stood. řÅꞐȱ𝐁Ěś</p>
+<p>From the far end of the arena, a monstrous surge of power erupted in the form of an elemental vortex roaring to life, all four elements combining as one. Flames screamed, water surged like razors, jagged stone spears tore through the ground, and blades of wind sliced toward the center of the battlefield right where Quinlan stood.</p>
 <p>Time slowed.</p>
 <p>Rongtai’s eyes narrowed. His foot shifted.</p>
 <p>With a grunt that cracked the ground beneath him, he moved.</p>

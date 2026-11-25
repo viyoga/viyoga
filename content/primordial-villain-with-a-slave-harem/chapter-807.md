@@ -29,7 +29,7 @@ chapter = 807
 <p>Didn’t tell them not to.</p>
 <p>Feng clutched the edge of Quinlan’s black robe with trembling fingers.</p>
 <p>"You sure about this?" she whispered, her earlier confidence nowhere to be found.</p>
-<p>Quinlan didn’t answer. He just patted her head gently with a confident smile and stepped forward, letting the door creak wider as he entered with Feng in tow like a baby duck following her mother. ṛáℕ𝘰𝐛Ɛ§</p>
+<p>Quinlan didn’t answer. He just patted her head gently with a confident smile and stepped forward, letting the door creak wider as he entered with Feng in tow like a baby duck following her mother.</p>
 <p>The air inside was stale, thick with dust and age. Moonlight spilled in through cracks in the wooden walls, casting slanted shadows across the floor. There was no furniture to speak of, just a low, uneven table in the corner made of roughly chopped planks, and a single straw mat laid out across the floor, frayed and yellowed with use.</p>
 <p>No kitchen.</p>
 <p>No shelves.</p>

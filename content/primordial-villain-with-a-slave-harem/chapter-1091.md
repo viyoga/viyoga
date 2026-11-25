@@ -27,7 +27,7 @@ chapter = 1091
 <p>Alexios’ hand clenched at his side. The ministers would whisper of this night for decades. Historians would write of it for centuries. And legends would exist of it for much longer than any living human.</p>
 <p>The king’s boots carried him forward until he stood before a tavern that seemed almost mocking in its survival. Alone among ruins, the building stood unscathed, untouched, as though shielded by fate itself.</p>
 <p>Alexios’ jaw tightened. His blade hissed free of its scabbard.</p>
-<p>He pushed the doors open. He didn’t have to look for long; at the center of the tavern’s floor gaped a hole. Alexios stepped to the edge, peering down. ȓᴀɴo͍𝐁Εs̩</p>
+<p>He pushed the doors open. He didn’t have to look for long; at the center of the tavern’s floor gaped a hole. Alexios stepped to the edge, peering down.</p>
 <p>A tunnel.</p>
 <p>He slid down its slope, boots scraping against hardened earth until he reached darkness. The cavern stretched on and on, descending far beneath the capital.</p>
 <p>He narrowed his eyes. Earth magic. But not just any magic... It was the same kind of seemingly limitless magic that bent the elements to the will of its caster. This was not the result of a spell being cast, not in the sense that the denizens of the Iskaris continent were used to.</p>

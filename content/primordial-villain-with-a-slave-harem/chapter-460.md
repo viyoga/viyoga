@@ -24,4 +24,4 @@ chapter = 460
 <p>…</p>
 <p>Read latest stories on empire</p>
 <p>In the meantime, the observation room that was occupied by the Obsidian Circle Members was eerily quiet as they sat in their ornate seats with dumbfounded expressions. None of them had ever seen an Elemental Sovereign in action, they only heard bard's tales of their achievements.</p>
-<p>However, only six people were dumbfounded. The seventh one, a gorgeous oriental woman with lush, straight long black hair, was feeling emotions her ancient heart had never known. ŕ𝘈ƝổβЁś</p>
+<p>However, only six people were dumbfounded. The seventh one, a gorgeous oriental woman with lush, straight long black hair, was feeling emotions her ancient heart had never known.</p>

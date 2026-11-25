@@ -27,7 +27,7 @@ chapter = 348
 <p>"That's... Unsettling to say the least, but it doesn't explain why we are hiding behind a shield when he is down…"</p>
 <p>"Brace yourselves. It's coming." Mearie whispered.</p>
 <p>*Vroom!*</p>
-<p>A giant explosion occurred all around his body, and instead of the traditional colors, this one was neon green. The entire anti-magic domain he created was enveloped in sweltering green flames to the point that even the ground around us began melting away. 𝘳𝖆ΝȰ₿Ęs̈</p>
+<p>A giant explosion occurred all around his body, and instead of the traditional colors, this one was neon green. The entire anti-magic domain he created was enveloped in sweltering green flames to the point that even the ground around us began melting away.</p>
 <p>I could see Miri gritting her teeth from the effort it took for her to maintain the shield around us. Cracks began forming on the manifested protective veil as the eerie colored explosion refused to subside for a while.</p>
 <p>"This is what happens when his heart and other destroyed organs reconstruct themselves. When Dragnar's body loses the ability to fight, it uses his near limitless energy to cause a detonation, which forces everyone and everything back until he is healed. Back in the day when we fought together our strategy was to just throw him into the midst of the enemy's ranks and he would wreak such incredible havoc while simultaneously simply refusing to die no matter how much damage and debilitating injuries he sustained…"</p>
 <p>… I don't even know what to say. This man is completely broken. Sounds like a Berserker on steroids. If my Lucille could gain a fraction of this creature's powers she would be the most terrifying existence on the battlefield.</p>

@@ -30,7 +30,7 @@ chapter = 895
 <p>[Consequences: Integration of Mana Systems, Magic Theory, and Leveling Frameworks will overwrite local Cultivation Paths.]</p>
 <p>[Warning: Invaders from external systems may be able to enter facing significantly less opposition.]</p>
 <p>Quinlan’s fists clenched.</p>
-<p>This was what Zhenwu had been hidden from. The wider cosmos. Systems and gods and leveling classes. Even now, he wasn’t ready to fight them on open ground. Not without the rules here tying their hands as unwelcome invaders. ŕ𝓪ŊỖBΕS̈</p>
+<p>This was what Zhenwu had been hidden from. The wider cosmos. Systems and gods and leveling classes. Even now, he wasn’t ready to fight them on open ground. Not without the rules here tying their hands as unwelcome invaders.</p>
 <p>He’d already seen what one corrupted god could do even under Zhenwu’s cripplingly severe limitations.</p>
 <p>And more than that, more than the difficulties joining the wide cosmos would impose upon Zhenwu...</p>
 <p>This world, with its spirit roots, qi seas, soul tempering, elemental harmony... wasn’t it just so incredibly beautiful? Why try to make everything about stats and numbers?</p>

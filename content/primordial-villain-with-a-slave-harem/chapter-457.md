@@ -32,7 +32,7 @@ chapter = 457
 <p>Within the dissipating mist, I spotted several orcs and beasts sprawled across the arena floor.</p>
 <p>"Sense of sight lost, check. Sense of hearing lost, check. Now then…"</p>
 <p>"[Lava Pool]"</p>
-<p>The arena quaked in response as bright, crimson magma erupted from beneath the monsters' feet. A scorching patch of molten rock bubbled to the surface, swallowing the stunned orcs and dire beasts who were too slow to react. Their pained screams echoed as the searing heat burned through armor, flesh, and fur. ʀ𝓪ΝŐВƐs̩</p>
+<p>The arena quaked in response as bright, crimson magma erupted from beneath the monsters' feet. A scorching patch of molten rock bubbled to the surface, swallowing the stunned orcs and dire beasts who were too slow to react. Their pained screams echoed as the searing heat burned through armor, flesh, and fur.</p>
 <p>"Sense of smell lost, check." I decreed while watching the monsters do their best to avoid the surface below them. The stronger monsters climbed on top of the weaker ones and used them as a shield against the lava floor.</p>
 <p>The scent of sulfur and burning meat traveled up to the two of us, and the crowd's distant cheers turned into a thunderous roar.</p>
 <p>But I wasn't done. Not even close.</p>

@@ -29,7 +29,7 @@ chapter = 429
 <p>"Handsome…"</p>
 <p>"Terrifying…"</p>
 <p>"Male Goddess?…"</p>
-<p>In Thalorind the idea that gods - as in multiple of them - existed was not a thing. They'd only ever known about the Goddess as the ruler of Thalorind, and they didn't know of the existence of other worlds either. This was why this particular person thought of him as a 'male goddess', and not simply a 'god'. R̃ÅΝ𝔬ꞖƐᶊ</p>
+<p>In Thalorind the idea that gods - as in multiple of them - existed was not a thing. They'd only ever known about the Goddess as the ruler of Thalorind, and they didn't know of the existence of other worlds either. This was why this particular person thought of him as a 'male goddess', and not simply a 'god'.</p>
 <p>Cela swallowed hard. He wasn't just handsome. He was outright overwhelming. A perfect balance of raw masculinity and cold authority.</p>
 <p>But it wasn't just his appearance that commanded attention. It was the sheer presence of him. The effortless way he strode upward, higher and higher with the impaled head of Specter still comfortably sitting atop his saber.</p>
 <p>The chain rattled violently in his other hand as Blackjack fought for his life. All four of his limbs were wildly struggling to allow himself the luxury of breathing. The once-feared tyrant who made her a widow was now a pitiful sight. His charred body dangled and writhed like a condemned man on the gallows. The chain around his neck dug deep into his flesh, choking him as he struggled desperately to keep himself upright. His legs flailed aimlessly while his scorched hands clawed at the unyielding metal. The man didn't even glance down at him. He was utterly indifferent to Blackjack's gasping and choking.</p>

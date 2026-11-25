@@ -29,7 +29,7 @@ chapter = 982
 <p>"Good job, Felicity," Vex chirped. "Pulling off what you just did is a cause for high praise. You might just be a natural at it. The fact you don’t feel any amount of guilt suggests you have a bright future ahead of you."</p>
 <p>Although the royal princess didn’t know it just yet, she’ds greatly impressed one of the nation’s top criminals.</p>
 <p>"So... about your father’s birthday party, Felicity..." Quinlan spoke up once the merry chatting died down a bit.</p>
-<p>"Oh, right! Lord Black, you must come! I’d die of boredom and frustration otherwise! All the ugly teenage boys keep pestering me for a chance to introduce themselves at these events while the girls try to one-up me! Sugarcoating every word of theirs as if they were praising me, while in reality, they’re putting themselves on a pedestal! Ugh, so annoying!" Ꞧä𐌽Ồ𝐛ΕȘ</p>
+<p>"Oh, right! Lord Black, you must come! I’d die of boredom and frustration otherwise! All the ugly teenage boys keep pestering me for a chance to introduce themselves at these events while the girls try to one-up me! Sugarcoating every word of theirs as if they were praising me, while in reality, they’re putting themselves on a pedestal! Ugh, so annoying!"</p>
 <p>Based on the many huffs and puffs, the princess truly hated these social events.</p>
 <p>"Well, your father invited me and my wives, and we plan to be there. However, I’d just returned from a multiple-month-long dangerous outing, as you know-"</p>
 <p>Quinlan was interrupted with an audible scoff, "A ’dangerous outing’ where you picked up two wives..."</p>

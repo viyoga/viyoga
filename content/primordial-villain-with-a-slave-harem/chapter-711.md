@@ -33,7 +33,7 @@ chapter = 711
 <p>Above the city, a shimmering structure materialized in the night sky. It was a massive, glass-like object made of silvery moonlight.</p>
 <p>Var'Zhul's ears flattened against his skull, his tail bristling with bad premonition.</p>
 <p>"What in the Goddess' name is that…?"</p>
-<p>He'd never seen anything like that. It reminded him of the mirror his wife loved to observe herself in for hours at a time. Then again, it wasn't the mirror noble ladies used for beautification reasons. Not only did it float in the skies, but it was also significantly larger than any mirror he'd seen before. ṛÀꞐộ𝔟Ɛ§</p>
+<p>He'd never seen anything like that. It reminded him of the mirror his wife loved to observe herself in for hours at a time. Then again, it wasn't the mirror noble ladies used for beautification reasons. Not only did it float in the skies, but it was also significantly larger than any mirror he'd seen before.</p>
 <p>The strange structure rotated slowly, shifting in the air as if it were being adjusted by unseen hands. But it was too small to cause real damage if it dropped. It wasn't large enough to destroy a single building, let alone the city.</p>
 <p>Then why summon it?</p>
 <p>What was its purpose?</p>

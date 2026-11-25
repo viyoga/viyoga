@@ -31,7 +31,7 @@ chapter = 829
 <p>"That’s not what I asked. That’s not a promise to let us go. That’s a leash."</p>
 <p>"I can’t have you vanish," Serika said firmly, raising her eyes again. The softness remained, but the Sovereign had returned behind it. "Not until I find him. You’re the only thread I have."</p>
 <p>Quinlan leaned his head back against the stone wall, exhaling through his nose. "Of course."</p>
-<p>But this time, at least, he could see the strings. The old man must’ve been some legendary figure whom they had to find at any cost. In their stead, he wouldn’t have let himself leave either. RäɴꝊВƐŠ</p>
+<p>But this time, at least, he could see the strings. The old man must’ve been some legendary figure whom they had to find at any cost. In their stead, he wouldn’t have let himself leave either.</p>
 <p>"Fine. Then I want Feng brought here. Now. I don’t want to be separated from her any longer."</p>
 <p>Serika didn’t hesitate. She rose in a single, fluid motion and turned to the door. "Guards!" she called sharply. A beat passed. Then footsteps echoed down the corridor.</p>
 <p>"Bring the girl here," Serika ordered. "Now. And have the royal suite in the east tower prepared. Full comfort. Around-the-clock service. Food, silk beds, the works."</p>

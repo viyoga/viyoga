@@ -30,7 +30,7 @@ chapter = 15
 <p>[New Class Unlocked: Slave Master]</p>
 <p>Marcus finishes the incantation and steps back, the light dissipating. "It is done," he says. "The collar is now bound to the terms of your contract. Any violation of these terms will activate the magic within and our establishment will be notified immediately."</p>
 <p>Ayame touches the collar gingerly, her eyes narrowing. "I understand," she says quietly.</p>
-<p>I then speak up, trying to cheer her up, "thank you, GHT, ah- sorry! I meant GHT, ah! I can't speak well today, I'm so sorry Marcus. Accidental slip of the tongue, I swear on my dear brother's life." I manage to elicit a short giggle from my lovely new partner in crime and a very annoyed scoff from the trader. ȐåΝö𝐁ƐṤ</p>
+<p>I then speak up, trying to cheer her up, "thank you, GHT, ah- sorry! I meant GHT, ah! I can't speak well today, I'm so sorry Marcus. Accidental slip of the tongue, I swear on my dear brother's life." I manage to elicit a short giggle from my lovely new partner in crime and a very annoyed scoff from the trader.</p>
 <p>To his credit, he seems to move on pretty fast. "I can tell that the two of you were made for each other now. I finally understand why she accepted you of all people. Well, I'm too old to get annoyed at you youngsters. If you wish to expand your slave harem you know who to visit. This time maybe come with a few gold coins in your purse, kind sir."</p>
 <p>"I'm not a part of his harem and never will be!" We both ignore the pouting, defiant girl.</p>
 <p>You simply can't stop the inevitable from happening, my dear Ayame.</p>

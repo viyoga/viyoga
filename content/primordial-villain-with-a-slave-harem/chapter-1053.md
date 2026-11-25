@@ -31,7 +31,7 @@ chapter = 1053
 <p>Alexios’s features hardened, his stance shifting as his shoulders and arms swelled with muscle. He raised his sword high, letting the polished steel blaze with a radiant gold light that chased every shadow from the hall.</p>
 <p>"By my authority as King of Vraven," Alexios’s voice boomed, "I deem Alastair Thalion Greenvale unfit to rule."</p>
 <p>The duke stumbled back with his face paling to that of a ghost. "Y-You can’t- You have no right to-"</p>
-<p>Alexios cut him off. "Tradition demands, I allow your heir to inherit. But the blood of an incompetent father breeds the same weakness in his children. A man who fails in duty raises heirs who will fail in kind. That is the truth of rulership. Incompetence," he stepped forward, closing the distance Alastair was trying to put between them, "begets incompetence." ṞἈꞐ𝘰𐌱Ęȿ</p>
+<p>Alexios cut him off. "Tradition demands, I allow your heir to inherit. But the blood of an incompetent father breeds the same weakness in his children. A man who fails in duty raises heirs who will fail in kind. That is the truth of rulership. Incompetence," he stepped forward, closing the distance Alastair was trying to put between them, "begets incompetence."</p>
 <p>His gaze swept the hall. "Just as the Fujimori clan was entrusted with Silverwind when their predecessor proved unworthy, the time has come once more."</p>
 <p>Alastair’s voice erupted into a scream, raw and desperate. "You have no right! No right! This is my duchy, you hear me?! King Alexios!!"</p>
 <p>The man in question didn’t even spare him a glance. "The Duchy of Greenvale will go to whichever noble house proves itself most worthy. Bring me the heads of the Consortium’s leaders, and you will be rewarded in kind."</p>

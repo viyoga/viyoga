@@ -23,7 +23,7 @@ chapter = 855
 <p>By midday, the misty forest thinned.</p>
 <p>Trees grew more slender and evenly spaced, and the oppressive humidity gave way to a milder, crisper air. The ground beneath their feet turned springy with drewy grass, and streams meandered across their path, fed by distant snowcaps on the horizon.</p>
 <p>They had crossed a biome line.</p>
-<p>The rich, volcanic reds and blacks of Vulkaris were long behind them. Now the world was painted in cool greens, serene blues, and soft silver light that filtered through drifting clouds. Birdsong replaced the distant roars of magma vents, and the air tasted of fresh nature. ȒÄɴоβÊŞ</p>
+<p>The rich, volcanic reds and blacks of Vulkaris were long behind them. Now the world was painted in cool greens, serene blues, and soft silver light that filtered through drifting clouds. Birdsong replaced the distant roars of magma vents, and the air tasted of fresh nature.</p>
 <p>They moved swiftly, hours passing in a blur of motion. Even Feng, despite being at the Meridian Opening stage, kept up with them. She didn’t complain once, clearly energized by visiting the capital city for the first time in her life.</p>
 <p>She pointed out hidden brooks and small forest shrines, even throwing stones into streams and whispering childhood wishes as she guided them through her homeland—though Serika’s scouts could’ve done the job in her stead, they each decided to allow the eager little lady to have her fun.</p>
 <p>By the second day’s arrival, they crested a hill, and the capital of Naryssia stretched before them.</p>

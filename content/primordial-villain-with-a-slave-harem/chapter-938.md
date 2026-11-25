@@ -29,7 +29,7 @@ chapter = 938
 <p>"Excuse me?" Ayame muttered.</p>
 <p>The realization settled into the air like a drawn blade.</p>
 <p>"What a possessive little yandere daughter we have..." Seraphiel giggled.</p>
-<p>"Utterly hopeless... She was so affectionate with us until now, too..." Lucille laughed, arms folding, though the fondness in her eyes was unmistakable. 𝔯𝘈₦o͍𝐁Ès</p>
+<p>"Utterly hopeless... She was so affectionate with us until now, too..." Lucille laughed, arms folding, though the fondness in her eyes was unmistakable.</p>
 <p>Every single one of them had witnessed firsthand the little dryad’s playful antics, her mischief, her independence if she so desired. But the moment Quinlan was around, Rosie transformed instantly and entirely.</p>
 <p>From a cheeky chaos spirit to a clingy, single-minded storm of love that required her father’s affection more than she did basic sustenance.</p>
 <p>Rosie’s hands tightened in his locks. Her body pulsed with rising magic, threads of brilliant emerald and white-gold light dancing up and down her limbs. Her glow swelled to a new intensity.</p>

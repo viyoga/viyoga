@@ -28,7 +28,7 @@ chapter = 71
 <p>[Wisdom: 18]</p>
 <p>[Unused Skill Points: 19]</p>
 <p>[Unused Attribute Points: 15]</p>
-<p>Three levels gained from that short scuffle and my life was arguably not even in danger. What a nice haul. I decide to retain my unused points for now because if I wish to become a mage at some point I can't neglect Wisdom and Intelligence either, but I don't know how to unlock such a class. I will make sure to ask Ayame tomorrow. ṜΑℕՕ𝔟Ɛṩ</p>
+<p>Three levels gained from that short scuffle and my life was arguably not even in danger. What a nice haul. I decide to retain my unused points for now because if I wish to become a mage at some point I can't neglect Wisdom and Intelligence either, but I don't know how to unlock such a class. I will make sure to ask Ayame tomorrow.</p>
 <p>My Assassin class only leveled up once while my Warrior got two. It must be because I didn't stealth attack anyone, just brute forced my way through. It still gains some levels just from murdering, thankfully, but not as much as I would get for unseen kills.</p>
 <p>This raises a question, though. Previously I thought that non-primordials would have the equal amount of Normal Levels to their Class Levels, such as Ayame being a level 14 human with a level 14 Samurai class, but an Assassin should have differing values based on this information.</p>
 <p>Well, it doesn't matter much, at least for now. I don't want to interrupt the girls' fun time to ask my boring questions.</p>

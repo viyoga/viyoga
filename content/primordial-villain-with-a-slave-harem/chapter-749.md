@@ -25,7 +25,7 @@ chapter = 749
 <p>We drank it like addicts. Like worshippers kneeling before a sacred altar. Each drop that touched our mouths felt like lightning, crashing into our cores and reigniting every exhausted channel inside us.</p>
 <p>The effect was instant.</p>
 <p>Her mana spiked. Mine surged. The fire around us shrieked higher, wilder, the world trembling as we poured raw energy back into the endless blaze.</p>
-<p>And all the while, her mouth stayed on mine. Our tongues twisted in the shared stream, lips slick and soaked with both the remnants of the elixir and our saliva. ŕ𝙖ꞐÓ𐌱Ê𝙎</p>
+<p>And all the while, her mouth stayed on mine. Our tongues twisted in the shared stream, lips slick and soaked with both the remnants of the elixir and our saliva.</p>
 <p>Her nails dug into my shoulders. My hands squeezed her buttocks even tighter.</p>
 <p>And Lionheart continued to burn to the ground all around us.</p>
 <p>[Ding!]</p>

@@ -31,7 +31,7 @@ chapter = 1063
 <p>Yoruha’s large form suddenly began dissolving into radiant wisps before reforming, becoming a tall, elegant woman with midnight hair and nine languid tails that swayed behind her. She raised a single hand into the skies as though calling upon the stars themselves.</p>
 <p>The air warped.</p>
 <p>The sky fractured.</p>
-<p>Reality folded into a kaleidoscope of screaming colors and whispering shadows, the garden dissolving into an endless abyss where time itself seemed to shiver. 𝘙₳𐌽𝖔𐌱Ě𝐒</p>
+<p>Reality folded into a kaleidoscope of screaming colors and whispering shadows, the garden dissolving into an endless abyss where time itself seemed to shiver.</p>
 <p>"[Forgotten Dreams]."</p>
 <p>The world died around Lilith. One heartbeat, she was in the garden; the next, she was in a nightmare of blades, shadows, and phantoms. Yoruha’s voice echoed everywhere and nowhere. Thousands of illusions lunged at once. Claws came at her back, blades at her throat, whispers in her ears promising her failure. Every sense betrayed her. Every breath was wrong. Every blink was a trap.</p>
 <p>Lilith’s chest rose and fell. Her heartbeat pounded. But it was not out of fear. All she felt was exhilaration. Yes. This was the monster of legend. The one kids grow up hearing tales about is the monster who even attacked the kings of old. The one that ended the lives of many of her ancestors. This was the battlefield her bloodline had warned her of. Her veins burned with joy.</p>

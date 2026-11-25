@@ -33,7 +33,7 @@ chapter = 826
 <p>The man didn’t bother to explain. His mockery was clear and loud enough.</p>
 <p>Wei Lin gritted her teeth.</p>
 <p>Then the duel began.</p>
-<p>She moved first, darting around like a flame dancing in the wind, her fists coated in flickering orange qi. Her blows were fast, focused, and surprisingly precise for someone early in their cultivation. ＲАꞐổᛒĚṧ</p>
+<p>She moved first, darting around like a flame dancing in the wind, her fists coated in flickering orange qi. Her blows were fast, focused, and surprisingly precise for someone early in their cultivation.</p>
 <p>But the Chosen’s spear was a wall.</p>
 <p>He spun it in one hand, creating wide arcs that swept aside her attacks and forced her back with blunt strikes that didn’t wound, only humiliated. He wasn’t aiming to harm. He was putting on a show for the citizens of his Sovereign.</p>
 <p>Even as she gave it her all, he danced with effortless grace, striking the ground beside her foot, clipping her shoulder, knocking her hood loose, but never striking to end it.</p>

@@ -27,7 +27,7 @@ chapter = 198
 <p>There's nothing wrong with that at all, in fact, she has her own strong charms, but the two women couldn't be more apart regarding their looks as far as mother-daughter combinations go. I wonder how I didn't notice she was this much of a looker during our first meeting, and I can't help but debate how the absolute beta husband managed to score such a hot piece of ass.</p>
 <p>Maybe they were childhood friends or something.</p>
 <p>How lucky.</p>
-<p>While I easily admit that she is looking very tantalizing, I hope that this is just a courtesy on her part and not an attempt at seduction. Not only do we not know anything about each other, but her husband is also somewhere in the establishment. ṝÀNȏ฿Εś</p>
+<p>While I easily admit that she is looking very tantalizing, I hope that this is just a courtesy on her part and not an attempt at seduction. Not only do we not know anything about each other, but her husband is also somewhere in the establishment.</p>
 <p>Having a single argument that ends with one side threatening separation is not at all equal to getting an actual divorce.</p>
 <p>As far as I'm concerned they are together, just having a rough period in their relationship.</p>
 <p>If she tries cheating on him with me then she is getting sent away instantly.</p>

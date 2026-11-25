@@ -27,7 +27,7 @@ chapter = 586
 <p>Seeing I had some time, I decided to chat with my only woman who was not present. &lt;Jasmine, how have you been?&gt;</p>
 <p>&lt;Quinlan!&gt; My merchant girl squealed happily, overjoyed to hear my voice. She knew I was heading into battle, her precious little heart must’ve been worried greatly.</p>
 <p>&lt;I suffered no injuries and am about to undertake the primordial trial.&gt;</p>
-<p>&lt;So you’re already on the cusp of entering your level 30s… At such a young age… you know a rapid rate of growth like yours is practically unheard of, right?&gt; ȒΑℕỘ฿Ěᶊ</p>
+<p>&lt;So you’re already on the cusp of entering your level 30s… At such a young age… you know a rapid rate of growth like yours is practically unheard of, right?&gt;</p>
 <p>&lt;Hehe, thanks, but enough about me. Tell me about what you’ve been up to, I want to hear your beautiful voice.&gt;</p>
 <p>She seemed happy to oblige my request. &lt;I was taking lessons from Sylvaris! She’s a very good teacher. Although I still don’t agree with your choice of making a complete newbie like me into your overseer, I will do my best to live up to your vision of what I could become.&gt;</p>
 <p>Knowing Jasmine was in Braedon while Sylvaris was in my home, this so-called class of theirs must’ve taken place through our mental link. And yes, the Mooncaller strongly asked me to [Subjugate] her so that she could converse with her daughter no matter the distance separating them.</p>

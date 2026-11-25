@@ -30,7 +30,7 @@ chapter = 341
 <p>They were walking slightly ahead of me while pulling me toward the lake, so I had a perfect view of their heavily swaying buttocks.</p>
 <p>And what a sight it was…</p>
 <p>I soon found myself seated in Mearie's lap while Luminara was washing my front with a sponge. I have absolutely no clue where she got it from.</p>
-<p>It might be a bit shameful to sit in the lap of a woman, but I couldn't care less about that now. I let myself be comforted by Mearie's warmth while I leaned back onto the soft cushion that her remarkable breasts created. řΆNỔʙÈS</p>
+<p>It might be a bit shameful to sit in the lap of a woman, but I couldn't care less about that now. I let myself be comforted by Mearie's warmth while I leaned back onto the soft cushion that her remarkable breasts created.</p>
 <p>"I would like to ask you something, Luminara."</p>
 <p>"Go ahead, Quinnie!" She cheered happily while not at all stopping her stroking motions. In the meantime, I felt Mearie's arms envelop my hips as she hugged me closer to herself. It felt almost as if she got a bit jealous because I wanted to ask something from the other female.</p>
 <p>That couldn't be… Right? There's no way these world-old people could get jealous just from such a small gesture, right? I mean, with millions of years of life experiences… Surely.</p>

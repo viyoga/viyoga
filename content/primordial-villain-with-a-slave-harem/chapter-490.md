@@ -27,7 +27,7 @@ chapter = 490
 <p>"This," the merchant declared, "is a true workhorse, crafted solely by our oldest and most talented dwarven master artificer. It's the choice of seasoned craftsmen who value quality above all else. A piece like this is an investment, my lord, but one that will serve you faithfully for centuries."</p>
 <p>Kaelira's mental voice returned, approving this time. &lt;This one's genuine, but I'm sure he's about to inflate the price. It should be worth about 4 gold.&gt;</p>
 <p>I tapped the anvil thoughtfully while nodding as if impressed. "This is more like it. And the price?"</p>
-<p>The merchant hesitated just long enough for me to catch the calculation behind his eyes. "It costs a mere 30 gold, 21 with the discount. It's a price I'm sure is nothing but a bargain for a man of your means." ℞ΆꞐО𐌱Ёs̩</p>
+<p>The merchant hesitated just long enough for me to catch the calculation behind his eyes. "It costs a mere 30 gold, 21 with the discount. It's a price I'm sure is nothing but a bargain for a man of your means."</p>
 <p>And this is why I hate merchants, unless they're on my side, of course.</p>
 <p>Jasmine made a choking sound to voice her pure disbelief. "21?! For this? I've seen anvils just like this in the south for a tenth the price."</p>
 <p>The merchant paled slightly but held his ground. "Ah, but my lady, those are likely inferior imitations. This one is the real deal, guaranteed."</p>

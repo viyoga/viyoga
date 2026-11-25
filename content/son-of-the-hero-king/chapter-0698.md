@@ -32,7 +32,7 @@ chapter = 698
 <p>He decided to keep those words to himself, however. After all, he knew that Siegfried was Nidhogg’s father. He was not close enough to either of them for him to interfere.</p>
 <p>Even so.</p>
 <p>Perhaps I should do something?</p>
-<p>After all, a hero should have a treatment befitting a hero. Changing the opinion of the populace would not be easy but giving him a slightly better reputation wouldn’t be too complicated. ṝàƝÒ𝐛ЕŞ</p>
+<p>After all, a hero should have a treatment befitting a hero. Changing the opinion of the populace would not be easy but giving him a slightly better reputation wouldn’t be too complicated.</p>
 <p>Should I include this in my negotiations?</p>
 <p>This seemed quite cold. But he also had to be pragmatic. In the end, though, Sol decided he would do so free of charge.</p>
 <p>After all, in this dog-eat-dog world, nothing was more expensive than a free favor.</p>

@@ -27,7 +27,7 @@ chapter = 361
 <p>Once it was evident that she had no power to escape, she huddled up in the corner of the cell. She hugged her knees close to her chest and finally allowed herself to cry. What she just saw was way too much for her young mind to handle.</p>
 <p>Her father was officially a crazed monster who killed an innocent woman in cold blood and beat his daughter up. Furthermore, she was fervently wracking her little brain in an attempt to understand what saved his life from her attack. Although she had no profound knowledge of magic and artifacts, she could make an educated guess that a supernatural effect protected him.</p>
 <p>Iris' desperation grew into pure hyperventilation as she realized that she had no way to exact revenge on him. Her brother and mother would not see justice served from the side of the Goddess.</p>
-<p>*Sniffle* *Sniffle* *Sniffle* Big tears traveled down her tender cheeks as she rocked herself back and forth in an attempt to cope with her new reality. ℞ÅℕỔʙĚꞩ</p>
+<p>*Sniffle* *Sniffle* *Sniffle* Big tears traveled down her tender cheeks as she rocked herself back and forth in an attempt to cope with her new reality.</p>
 <p>Minutes turned into hours and it swiftly became evident that no one was going to let her out of this cell anytime soon. Although she didn't want to fall asleep, her undeveloped body simply didn't have enough energy left in the tank to remain awake, thus the young child drifted off to dreamland - which in her case meant replaying her nightmarish memories on repeat.</p>
 <p>…</p>
 <p>The door to the basement creaked as it opened, alerting the sleeping Iris to the presence of a newcomer.</p>

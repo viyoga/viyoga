@@ -27,7 +27,7 @@ chapter = 236
 <p>&lt;A what dungeon…?!&gt;</p>
 <p>&lt;Sex. You know, where I will tie you up with sturdy ropes and partake in your folds to my heart's content if you've been a good girl, and bring out the tools if you've been a bad one. Or I just feel like it.&gt;</p>
 <p>&lt;…&gt; Her head snaps in my direction. Our silent conversation must be quite the spectacle. &lt;I forbid you from building a se-… such a room!&gt;</p>
-<p>&lt;I don't remember asking for your permission but don't worry. There will be a lot of other possible activities there, some of which I'm sure you will love. Anyway, we can discuss the specifics later.&gt; ŘΑƝȮВÈʂ</p>
+<p>&lt;I don't remember asking for your permission but don't worry. There will be a lot of other possible activities there, some of which I'm sure you will love. Anyway, we can discuss the specifics later.&gt;</p>
 <p>"I want to have a private chat with Isolde and Ronan at the same time. The rest of the candidates haven't caught my eye, so feel free not to wait for us to finish." I sent the guy with the dwarf and the other woman back to their firm. The slave house we're sitting in owns Ronan, while Isolde is the property of the third establishment, thus these two's sellers only leave the room temporarily.</p>
 <p>Once only the four of us are present, I sign them to sit in front of us on the sofa. After they do, I begin. "Nice to meet you two, I'm Quinlan and this is Hana, my lover," I emphasize the last part while looking at Ronan meaningfully.</p>
 <p>He raises his hand in playful surrender. "Boss, don't worry. I will not even think about it."</p>

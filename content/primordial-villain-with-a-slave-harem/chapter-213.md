@@ -27,7 +27,7 @@ chapter = 213
 <p>I look into her eyes and state my class for the third time in a calm, nonchalant tone. "Elemental Sovereign."</p>
 <p>"Curses!"</p>
 <p>"What, have you heard of it?"</p>
-<p>"I know, I know! Can I say it?" Aurora speaks up suddenly, asking for permission to explain. She is once again acting like a child… she even raised her right hand to signal her request. She's very adorable for sure, with her very feminine adult woman body contrasting greatly against her antics, but I'm worried if there's some bigger mental issue at play here. ṚἁＮȎ𝐛ЁȘ</p>
+<p>"I know, I know! Can I say it?" Aurora speaks up suddenly, asking for permission to explain. She is once again acting like a child… she even raised her right hand to signal her request. She's very adorable for sure, with her very feminine adult woman body contrasting greatly against her antics, but I'm worried if there's some bigger mental issue at play here.</p>
 <p>Well, I will just say that it's due to her parents' sudden 'kidnapping' by the kingdom. Maybe it will go away by itself once she gets used to the new norm. And even if it doesn't, our bedroom roleplay sessions will be simply 'chef's kiss'. I can barely wait.</p>
 <p>After getting my permission, she begins. "It's an Epic class, and only a few individuals have it on the entire continent, one of which being Queen Morgana, the woman who is hailed as the best mage of the kingdom.</p>
 <p>She's a legendary person who is beloved by all for not only her prowess on the battlefield but favorable introduced laws that propel the kingdom forward amidst all the bile corruption surrounding her. It is said that it took her more than a hundred years to go from a simple Wizard all the way to becoming an Elemental Sovereign.</p>

@@ -31,7 +31,7 @@ chapter = 588
 <p>"So will he be your sole examiner?"</p>
 <p>"I think so. In previous exams, only Miss Agatha was present."</p>
 <p>"That makes everything so simple then. Write cheat sheets, codes, or whatever you think will help you get a passing grade. Wear a dark-colored skirt for the exam that can’t be seen through even in the slightest and strap your cheat items to your thighs. Remove them once the geezer snoozes off. Hell, you can even sneak your communication artifact in with you like that and I’ll call you with a lady of mine on the line who can solve your math problems easily. However, if he’s a light sleeper-"</p>
-<p>It was my time to be cut off. "Lord Black, he won’t wake up… Like, not at all. Whenever he falls asleep, I think to myself, ’Surely, this is the final time, he will not part his eyelids ever again Goddess, I’m such a bad girl!!" Ɽ𝒶NŐ𝔟Êş</p>
+<p>It was my time to be cut off. "Lord Black, he won’t wake up… Like, not at all. Whenever he falls asleep, I think to myself, ’Surely, this is the final time, he will not part his eyelids ever again Goddess, I’m such a bad girl!!"</p>
 <p>"Haha! You’re not. Remember what I told you?"</p>
 <p>"Yes! You said those who don’t play dirty will be taken advantage of!"</p>
 <p>Well, that was a wild summarization of my words, but it was acceptable.</p>

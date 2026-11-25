@@ -27,7 +27,7 @@ chapter = 156
 <p>For now, though, we need to decide what to do with Aurora- and how to handle this newfound knowledge.</p>
 <p>I study her for a moment, weighing my options.</p>
 <p>"Can you concoct the potion?" I ask.</p>
-<p>Aurora looks up at me, her expression a mix of nervousness and hope. "Y-Yes," she replies. "I can make the [Mystical Elixir of Awakening]. I've been helping my parents for years. I know all their formulas." ṘàɴǒᛒƐ§</p>
+<p>Aurora looks up at me, her expression a mix of nervousness and hope. "Y-Yes," she replies. "I can make the [Mystical Elixir of Awakening]. I've been helping my parents for years. I know all their formulas."</p>
 <p>I nod slowly, considering. "And are you willing to drink one first to prove your sincerity?"</p>
 <p>Her face pales at the suggestion, her lips parting in a small gasp. She hesitates, looking down at her hands. "I... I don't know," she admits, her voice barely above a whisper. "If I drink it and it works... I will lose my Alchemist class.</p>
 <p>It might be the only thing I will have left from my parents. If I lose even that..."</p>

@@ -28,7 +28,7 @@ chapter = 893
 <p>They found it.</p>
 <p>From one moment to the next, the powers stilled.</p>
 <p>"Those are the sovereign shards... Don’t worry, Feng," Serika’s voice sounded all of a sudden.</p>
-<p>She didn’t get up from the ground. Instead, she refocused her attention back to her departed sister. Her eyes—those fierce, battle-hardened eyes—softened as they lingered on Lysandra’s lifeless face. 𝙧ＡꞐОBΕS</p>
+<p>She didn’t get up from the ground. Instead, she refocused her attention back to her departed sister. Her eyes—those fierce, battle-hardened eyes—softened as they lingered on Lysandra’s lifeless face.</p>
 <p>With gentle fingers, Serika reached down and stroked Lysandra’s cheeks for a few seconds. Then, her Her expression trembled as her hand moved to close her sister’s eyelids.</p>
 <p>Her lips parted with a shaky breath, one that carried centuries of shared memories.</p>
 <p>And then, quietly, she whispered, "Rest now."</p>

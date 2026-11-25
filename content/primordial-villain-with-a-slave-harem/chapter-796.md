@@ -30,7 +30,7 @@ chapter = 796
 <p>"I do," Quinlan replied with little emotion, too focused on his duel to converse.</p>
 <p>Zhang snarled with his qi flaring. "Then drown in the tide, you irrelevant worm!"</p>
 <p>He charged.</p>
-<p>The Flowing Tide Style emphasized continuity. Each strike led seamlessly into the next, like the waves of the sea. His feet barely touched the dirt road, the movement of his limbs being so fluid that he seemed to drift rather than run. ꭆÃΝÒ𝔟Èṩ</p>
+<p>The Flowing Tide Style emphasized continuity. Each strike led seamlessly into the next, like the waves of the sea. His feet barely touched the dirt road, the movement of his limbs being so fluid that he seemed to drift rather than run.</p>
 <p>Quinlan's eyes narrowed.</p>
 <p>Zhang was faster than he expected.</p>
 <p>But not fast enough for the Primordial Villain's reflexes to fail him.</p>

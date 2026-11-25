@@ -25,7 +25,7 @@ chapter = 758
 <p>And then my eyes caught a different sight off to the side.</p>
 <p>Black Fang and Orianna stood as motionless as statues, their robes billowing in the wind as they stared down at the woman before them.</p>
 <p>Raika.</p>
-<p>She lay crumpled on the ground. Her limbs were limp, her clothes torn in multiple places. It was no surprise her life signals were faint… Once again, she’d nearly gotten herself killed in her reckless abandon. ṝаℕo͍₿Ęs̈</p>
+<p>She lay crumpled on the ground. Her limbs were limp, her clothes torn in multiple places. It was no surprise her life signals were faint… Once again, she’d nearly gotten herself killed in her reckless abandon.</p>
 <p>Judging by the gored corpses and shattered armor scattered around her, she must’ve jumped into the fray the moment she got the chance, punching her way through until her body gave out.</p>
 <p>How typical. This was definitely a defining Raika moment, something that happened quite often based on the deadpan expressions of the two ancient ladies.</p>
 <p>Vex and I sighed in unison, perfectly synchronized in thought.</p>

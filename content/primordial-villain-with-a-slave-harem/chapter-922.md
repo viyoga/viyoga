@@ -24,7 +24,7 @@ chapter = 922
 <p>Serika opened her eyes slowly, exhaling like she’d just stepped out of a dream.</p>
 <p>"There’s more..." she added after a pause. "An innate spell, it’s a passive ability. What’s that?"</p>
 <p>"That means it’s an ability that’s always in effect. Think of it like having the Still Heart always beating in your chest," Quinlan explained, his tone smooth and sure, grounded like embers beneath the surface.</p>
-<p>She looked at him again, and this time, she didn’t look away. The tanned redhead just smiled. Quiet, faint, but there. Not because she felt the need to thank him. ȒΆƝổ𝔟Ɛ𝒮</p>
+<p>She looked at him again, and this time, she didn’t look away. The tanned redhead just smiled. Quiet, faint, but there. Not because she felt the need to thank him.</p>
 <p>Just because he was there, and somehow, that was enough for her.</p>
 <p>A scoffing sound broke the silence like a pebble tossed into a calm pond.</p>
 <p>"Oh, for heaven’s sake!" Feng hissed with a great deal of dissatisfaction as she eyed none other than Quinlan. "Have you no shame? Stop flirting in front of your mothers!"</p>

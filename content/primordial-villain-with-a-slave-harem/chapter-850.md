@@ -32,7 +32,7 @@ chapter = 850
 <p>She grappled his wrist, from which he slipped free with water-soft flow and seared her elbow with a flame-coated palm. Serika hissed with approval, caught his hip, and flung him over her head using her immense physical strength. He bounced once, dizzy, just in time to raise an earthen shield against her rib-kick.</p>
 <p>Her palm split the shield as if it were mere pottery. She swept his legs, and he hit the ground hard, wheezing.</p>
 <p>Serika’s knee pinned his chest to the ground again victoriously, rock steady; one hand braced on her thigh, the other slicking sweat-wet hair from her eyes. Despite her somewhat sweaty forehead, she was hardly panting while Quinlan could barely drag in enough air not to suffocate.</p>
-<p>"You’re improving," she said with sparkling eyes. "But stop using the elements as if they were mere crutches. Let them be your body. Don’t wear them like borrowed clothes." ＲＡℕΟ𝔟Ε§</p>
+<p>"You’re improving," she said with sparkling eyes. "But stop using the elements as if they were mere crutches. Let them be your body. Don’t wear them like borrowed clothes."</p>
 <p>"Yeah," he rasped, nodding in complete agreement. "On it."</p>
 <p>She leaned closer as a wicked grin replaced her excited but still teacherly visage. "Also, I win."</p>
 <p>He smirked up at her. "Enjoy while it lasts, Teach."</p>

@@ -28,7 +28,7 @@ chapter = 612
 <p>One by one, the lionkin warriors fell all around us. Some thanks to our attacks, others from a nearby bearkin tearing them apart. But there was one who did not stand his ground with admirable bravery.</p>
 <p>A lionkin draped in a finely decorated fur coat broke from the fray. While the others of his kind honorably fought to the last drop of their blood, he turned tail and ran, bolting through the village in a desperate attempt to escape.</p>
 <p>I found what we were looking for.</p>
-<p>He didn’t have time to react before I grabbed his shoulder and slammed him down into the dirt. A pained gasp left his lips as he pushed himself up, only to freeze as he found himself surrounded by my Heralds, myself, and Iris. ℞𝔞ŊỒ₿ЕṦ</p>
+<p>He didn’t have time to react before I grabbed his shoulder and slammed him down into the dirt. A pained gasp left his lips as he pushed himself up, only to freeze as he found himself surrounded by my Heralds, myself, and Iris.</p>
 <p>I crouched in front of the fallen lionkin, eliciting a scared whimper from his lips.</p>
 <p>"I’ve got a question for you."</p>
 <p>"I-I-I’m loyal to the Sunfang!" he stammered, but none of us believed it. By the looks of things, not even he did.</p>

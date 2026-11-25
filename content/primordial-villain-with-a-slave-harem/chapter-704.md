@@ -33,7 +33,7 @@ chapter = 704
 <p>Ignoring her jab, I nodded, accepting her silent request. I would use [Overlord's Eyes] to monitor her. Should she get in trouble, I could open a [Warp Gate] at her location and send the buff doggies in to get her out.</p>
 <p>I didn't plan to display any such abilities—I've been deliberately hiding my Primordial Subjugator stuff from Vex—but the dogkin were my greatest beastkin allies, thanks to my relationship with their adored princess. Furthermore, I didn't have to explain my ability to my audience… I could just spout something about it being a primordial BS or simply remain silent.</p>
 <p>As such, I used [Earth Manipulation] to send any signs of scuffle deep underground, burying all corpses and other remains much more than six feet under.</p>
-<p>Then, after Kitsara somehow made Darius go along with the plan, we retreated a few miles toward the direction we came from, intending on evading the other scout parties, and I seated myself on the ground in a comfortable, cross-legged position before casting my spell. ℞𝖆ꞐO͍ᛒЕⱾ</p>
+<p>Then, after Kitsara somehow made Darius go along with the plan, we retreated a few miles toward the direction we came from, intending on evading the other scout parties, and I seated myself on the ground in a comfortable, cross-legged position before casting my spell.</p>
 <p>My consciousness left my body that was surrounded by dozens of strong entities, traversing to Kitsara, sharing her senses.</p>
 <p>&lt;Are you truly mad at me?&gt;</p>
 <p>I asked, getting a big smile from her. &lt;Hehe! No, I was just messing with you. I would've been rather concerned if you were down to get freaky with this current body of mine.&gt;</p>

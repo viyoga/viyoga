@@ -36,7 +36,7 @@ chapter = 195
 <p>"No. I wish to try being your girlfriend, Quinlan."</p>
 <p>"Isn't this development too sudden? Are you sure you don't need to think more about this decision?"</p>
 <p>"I'm sure."</p>
-<p>I smile before hardening my gaze as I look into her eyes deeply. I even activate my primordial vision in hopes of noticing any minute details, such as thoughts and emotions on her features I wouldn't otherwise. ṝАΝo͍₿Ëṧ</p>
+<p>I smile before hardening my gaze as I look into her eyes deeply. I even activate my primordial vision in hopes of noticing any minute details, such as thoughts and emotions on her features I wouldn't otherwise.</p>
 <p>"So beautiful…" Aurora compliments my glowing crimson eyes.</p>
 <p>"Then, before I accept you into my harem, you must know something about me, Aurora. Chances are that I'm the greediest, most possessive and jealous man you will ever meet in your entire life, even if you manage to live for a million years.</p>
 <p>There's no "I wish to try to be your girlfriend, Quinlan" with me, you will either become my beloved partner until the end of time or remain my alchemist ally who I work with in a purely professional capacity. I'm not interested in flings, one night stands, nor any other form of half measures.</p>

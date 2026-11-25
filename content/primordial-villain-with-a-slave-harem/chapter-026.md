@@ -25,7 +25,7 @@ chapter = 26
 <p>Seeing my struggle, Ayame steps in, her movements swift and precise. She blocks the beetle's follow-up attack with her sword and swiftly counters, slashing at its exposed joints.</p>
 <p>"Watch closely," she says, her voice calm and focused. "You did aim for the weak points but you were sluggish and overeager. Attacking too soon can be just as wrong as being slow.</p>
 <p>She moves gracefully, exploiting the beetle's vulnerabilities with each strike. Within moments, the beetle collapses, defeated. Ayame turns to me, offering a reassuring smile.</p>
-<p>"You did pretty well. Normally low level explorers like you form big teams of similarly beginner individuals and tackle the first floor using numbers, this method often incurs quite a few deaths and career-ending injuries, so you really shouldn't be ashamed due to my heavy interference." ṙἁΝÓＢƐŚ</p>
+<p>"You did pretty well. Normally low level explorers like you form big teams of similarly beginner individuals and tackle the first floor using numbers, this method often incurs quite a few deaths and career-ending injuries, so you really shouldn't be ashamed due to my heavy interference."</p>
 <p>She seems perturbed for some reason, we already established that I have no such issues. I have to think for a few moments before it clicks, "ah, are you worried that a woman helping me is hurting my masculinity?"</p>
 <p>Ayame examines my expression for a few seconds before nodding.</p>
 <p>I can only chuckle wryly. "I really don't care. Anyhow, aren't you women pretty much equal to men power-wise on this continent? Or do you get less attributes?"</p>

@@ -25,7 +25,7 @@ chapter = 242
 <p>I spent the next three hours of my life mercilessly plowing Blossom into the mattress, eating her out, having her service me, kissing her desperately, and so on. It was a good time.</p>
 <p>By the time I had my fill, she could only giggle senselessly, though her happiness wasn't up for debate.</p>
 <p>"You almost killed her…"</p>
-<p>"Well, if she had a partner in crime to share the burden with maybe she wouldn't be in such a state. How about you make a noble sacrifice? Aren't you samurai all about that? Honor and valor?" R̃ÄNɵ𝐁ƐŞ</p>
+<p>"Well, if she had a partner in crime to share the burden with maybe she wouldn't be in such a state. How about you make a noble sacrifice? Aren't you samurai all about that? Honor and valor?"</p>
 <p>"… On the battlefield, not… here. Anyways, you're going to do it, huh? Visit the father, I mean."</p>
 <p>I nod, turning serious. "I will take Beatrice with me and let her decide his fate. It's her right to do so. Hold down the fort for me, will you?" I asked while enveloping my beautiful warrior in a hug as I softly kissed the top of her head.</p>
 <p>She wasn't showing any signs of resistance. "… Sure. Be careful, Quinlan. It's just a village, yes, but anything can happen. Inform me if anything goes wrong and open a portal, I will be ready to rush to your side throughout the entire night's duration."</p>

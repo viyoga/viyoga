@@ -32,7 +32,7 @@ chapter = 192
 <p>"W-what? You can understand me? Who are you?!" All depression leaves its tone, replaced by confusion, and then excitement.</p>
 <p>"We've invaded this place because we heard that an ingredient is kept here that will allow me to become a Wizard despite being an adult."</p>
 <p>"Oh. So you are enemies of the human kingdom?"</p>
-<p>"Yeah. Not only is the king directly responsible for the illegal enslavement of my cherished companion, but we've already stolen his Legendary rarity artifact. There is no love between us and the kingdom." 𝘙äＮố𝖇Еś</p>
+<p>"Yeah. Not only is the king directly responsible for the illegal enslavement of my cherished companion, but we've already stolen his Legendary rarity artifact. There is no love between us and the kingdom."</p>
 <p>"Amazing! A Legendary artifact. Hahaha! Serves them horrible individuals right!"</p>
 <p>It, or he, as his voice is incredibly deep and masculine, so I would assume that I'm talking to a male, seems to have turned from depressed, to confused, to jovial in a minute.</p>
 <p>He quiets down after a short while.</p>

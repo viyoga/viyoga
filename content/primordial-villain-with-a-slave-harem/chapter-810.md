@@ -26,7 +26,7 @@ chapter = 810
 <p>"Not bad," Feng said, hopping off with a little bounce.</p>
 <p>"I’ll have to educate my daughters before they get to their teenage years lest they become delinquents like you. It seems you’re hopeless."</p>
 <p>Feng smoothed her robes like she hadn’t just used a human being for a bench. "Sure, sure, Uncle"</p>
-<p>At that moment, as if summoned by their voices, the old man cracked one eye open from atop his rock. He didn’t move. Didn’t turn. Just spoke, voice flat. ṟã₦ȯβЕs̩</p>
+<p>At that moment, as if summoned by their voices, the old man cracked one eye open from atop his rock. He didn’t move. Didn’t turn. Just spoke, voice flat.</p>
 <p>"Lunch. Meat. Hunt. No tools."</p>
 <p>Then his eye closed again.</p>
 <p>Quinlan stared at him with exhausted eyes that spoke volumes of his sheer disbelief. "Hunt meat? With what?"</p>

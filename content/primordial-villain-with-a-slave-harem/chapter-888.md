@@ -25,7 +25,7 @@ chapter = 888
 <p>"QUINLAN!"</p>
 <p>A streak of motion was visible at the edges of his vision.</p>
 <p>Then came the impact.</p>
-<p>Feng barreled into him like a thunderbolt wrapped in teenage energy. She leapt straight into his chest, nearly knocking the breath from him, arms wrapping tight around his waist. Her small body trembled, both from adrenaline and sheer joy. ṛãꞐőBƐꞨ</p>
+<p>Feng barreled into him like a thunderbolt wrapped in teenage energy. She leapt straight into his chest, nearly knocking the breath from him, arms wrapping tight around his waist. Her small body trembled, both from adrenaline and sheer joy.</p>
 <p>She looked up at him with amazed, sparkly eyes and a face that was lit up like never before.</p>
 <p>"That was by far the most badass thing I’ve ever seen in my life!"</p>
 <p>Feng’s voice rang out like a firecracker, full of awe and disbelief. Her eyes were practically glowing as she stared at Quinlan. She knew he was amazing already, after all, she was with him even before he became a cultivator.</p>

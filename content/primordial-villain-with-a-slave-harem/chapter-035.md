@@ -26,7 +26,7 @@ chapter = 35
 <p>I wait for the spell's cooldown before stabbing the goblin that does the pounding in the back, but to my surprise it survives an attack from my Power Strike. He screeches and turns around confused and pained.</p>
 <p>He is bleeding profusely from his wound so I believe that he will succumb to his wound fast, but I don't wish to leave things to time nor fate, so before he can reach for his weapon I plunge my spear into his chest for good measure.</p>
 <p>[You've slain goblin (Level 3). You've gained 29 XP]</p>
-<p>I swiftly pull out of the by-now dead goblin and look at the other one. I feel a sense of pity towards his unwilling partner who is lying on the ground on all fours, foaming from his mouth while being half-conscious at best, but knowing what these creatures do to kidnapped women, such thoughts are replaced with complete indifference as I stab him twice in quick succession. 𝐑άΝȯ𝔟Ɛs̈</p>
+<p>I swiftly pull out of the by-now dead goblin and look at the other one. I feel a sense of pity towards his unwilling partner who is lying on the ground on all fours, foaming from his mouth while being half-conscious at best, but knowing what these creatures do to kidnapped women, such thoughts are replaced with complete indifference as I stab him twice in quick succession.</p>
 <p>[You've slain goblin (Level 2). You've gained 17 XP]</p>
 <p>So that's why he was overwhelmed so easily. The previous goblin was higher level.</p>
 <p>Seems like level 2 goblins are simple throwaway scouts while level 3 goblins are scout leaders.</p>

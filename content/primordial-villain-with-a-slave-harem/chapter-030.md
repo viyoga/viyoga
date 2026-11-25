@@ -27,7 +27,7 @@ chapter = 30
 <p>I can see her looking at me with accusatory eyes.</p>
 <p>"Really? We've been through this dance already, Ayame. If I molest you or something you can beat me up. I don't feel comfortable with my precious teacher sleeping on the floor next to me."</p>
 <p>"... Alright." That seems to have made her relent. Nice.</p>
-<p>We both lie in the bed now, at a respectable distance from each other. She turns to her sides, showing me her back. I glance at the ceiling and look over the various system stuff I've neglected so far. Ever since I bought Ayame I was a Slave Master but I didn't even check the class specifics. 𝙧Ἀ₦ôВЕṠ</p>
+<p>We both lie in the bed now, at a respectable distance from each other. She turns to her sides, showing me her back. I glance at the ceiling and look over the various system stuff I've neglected so far. Ever since I bought Ayame I was a Slave Master but I didn't even check the class specifics.</p>
 <p>[Slave Master: Basic Evil Class]</p>
 <p>[Effect: Minor Wisdom Increase]</p>
 <p>[Base Skill: Slave Status Monitor]</p>

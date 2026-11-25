@@ -30,7 +30,7 @@ chapter = 535
 <p>I nodded at the elf playing around with my balls like a killer whale playing with its food before going in for the kill. In that nod, I wordlessly accepted defeat, promising not to badmouth her.</p>
 <p>Her firm expression softened, alongside her grip on my best friend. Before long, she accepted my promise and resumed her amazing handjob.</p>
 <p>"I’m having a mathematics test tomorrow… I’m a bit worried, to be honest."</p>
-<p>Damn, that horrible subject tortures children in this magical world as well? On the positive side, 90% of them are illiterate peasants growing potatoes in the cold dirt, so only the privileged have to deal with such terrible problems. ṝἁŊО𝖇Εȿ</p>
+<p>Damn, that horrible subject tortures children in this magical world as well? On the positive side, 90% of them are illiterate peasants growing potatoes in the cold dirt, so only the privileged have to deal with such terrible problems.</p>
 <p>"Is that so? Did you prepare? If not, you better put your head to it before it gets too late…"</p>
 <p>Although my words were a response to Felicity, they were mostly aimed at Seraphiel. I pointed at the rapid flow of sand grains to the bottom of the hourglass to let her know she wasn’t doing too well before reaching for the back of her head and pulling her down into kissing range of my cock.</p>
 <p>Naturally, I did it all to help her win our little challenge, nothing more. I was magnanimous like that.</p>

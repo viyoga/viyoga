@@ -28,5 +28,5 @@ chapter = 268
 <p>*Knock* *Knock* *Knock*</p>
 <p>Gentle knocking could be heard from the other side of the door. "Madam, I've brought the slave you requested. I bathed her and made her presentable." An older, feminine voice spoke up.</p>
 <p>The owners opened the door and ushered the newcomers in. The servant was the same woman who brought Ayame to me back then. Looks like cleaning female slaves was her specific duty.</p>
-<p>As for the other woman… I had to blink numerous times just to ensure that what I saw was reality. I've encountered elves before on the open market, but Seraphiel was something else. In a category of her own, as far as beauty and grace was concerned. ℞𝒶ℕỒ𝐁ËŚ</p>
+<p>As for the other woman… I had to blink numerous times just to ensure that what I saw was reality. I've encountered elves before on the open market, but Seraphiel was something else. In a category of her own, as far as beauty and grace was concerned.</p>
 <p>&lt;Quinlan…!!!&gt; Jealous growling entered my mind. I was staring for too long, it seems.</p>

@@ -30,7 +30,7 @@ chapter = 1000
 <p>She clearly wouldn’t have minded being shipped away to the man before her, whether it was part of a deal, a reward, or anything really.</p>
 <p>Quinlan raised an eyebrow just before he gave a warm, amused smile. "I’m flattered. I truly am. You, young lady, are a wonderful woman who would surely make me an immensely happy husband. But I already have my hands full with my current harem."</p>
 <p>A polite refusal.</p>
-<p>The girl’s shoulders sagged, but before the moment turned sour, her sisters pulled her into a playful hug, teasing and giggling until she joined in, making embarrassment and disappointment melt into laughter. ɽἈNő₿ΕS̈</p>
+<p>The girl’s shoulders sagged, but before the moment turned sour, her sisters pulled her into a playful hug, teasing and giggling until she joined in, making embarrassment and disappointment melt into laughter.</p>
 <p>...</p>
 <p>By the end of dinner, when they all stood, Darius returned holding a heavy chest with both hands.</p>
 <p>"Five hundred gold. I wanted to give you more, but Father refused to totally empty the treasury. I had to literally duel him even for this amount..." He huffed. "I’ll get you the rest later."</p>

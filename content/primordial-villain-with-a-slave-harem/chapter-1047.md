@@ -28,7 +28,7 @@ chapter = 1047
 <p>&lt;I don’t know! I’ve never even heard of such a powerful blade, let alone seen one! My father used the best sword our clan had to offer, a legacy piece said to be wielded by the founder. It’s Legendary-rarity!&gt;</p>
 <p>&lt;But this is a different sword, huh?&gt; Quinlan spoke up with a calm tone. His mind was a mess as well, but he did his utmost to comfort his scared and confused lover.</p>
 <p>&lt;Yes! I don’t know what this is, but I don’t like it... It’s giving me a terrible feeling.&gt;</p>
-<p>&lt;I haven’t been notified of the Phantom League’s dismantlement...&gt; Vex’s voice sounded next. &lt;I can’t even conceive how it was possible to achieve such a thing. They had to have rounded up all the higher-ups in a day at most, or I would’ve been notified about it already.&gt; 𝙧άNÓＢƐS̩</p>
+<p>&lt;I haven’t been notified of the Phantom League’s dismantlement...&gt; Vex’s voice sounded next. &lt;I can’t even conceive how it was possible to achieve such a thing. They had to have rounded up all the higher-ups in a day at most, or I would’ve been notified about it already.&gt;</p>
 <p>&lt;... I imagine catching all these people is easier said than done,&gt; Jasmine whispered with a ghostly pale face, understanding the implications.</p>
 <p>&lt;Of course! Just like it is with the heads of the Consortium, the Phantom League leaders are... or were... very secretive people! Black Fang is one of the easiest to find because she can’t be bothered to swap locations much. The others are much more careful!&gt;</p>
 <p>Kitsara found that statement to be plain wrong. &lt;Wait, didn’t Black Fang have some secret hideout which was veiled by Lady Yoruha herself? And you’re saying she’s one of the easiest members to locate?&gt;</p>

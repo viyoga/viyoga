@@ -27,7 +27,7 @@ chapter = 801
 <p>"There are three minor and twelve main meridians. One must open at least eight main ones for their first major breakthrough into the next stage, called Core Formation. Some people manage to reach ten. Only monsters get to all twelve."</p>
 <p>She looked at him with deadpan eyes. But after that, a smug expression crept up her face.</p>
 <p>"You should thank the heavens if you manage to open eight main meridians despite your elderly age, Uncle. Don't even think about going for ten."</p>
-<p>Quinlan smiled in return, though no warmth could be seen in those dark eyes of his. "… It seems your father'd never shown you his fists of love, brat. I'll do it in his place." 𝘙ÃℕốβƐS̈</p>
+<p>Quinlan smiled in return, though no warmth could be seen in those dark eyes of his. "… It seems your father'd never shown you his fists of love, brat. I'll do it in his place."</p>
 <p>"You wouldn't-!"</p>
 <p>Before she could even blink, Quinlan's arm moved in a blur.</p>
 <p>*PAK!*</p>

@@ -27,7 +27,7 @@ chapter = 630
 <p>And with that, she hopped out of my lap, not giving me a chance to protest.</p>
 <p>We walked down the steps leading to the ground before the maids walked up to us with towels in hand. However, I gestured for them to wait.</p>
 <p>Instead, I had the ladies surround me in a circle.</p>
-<p>I closed my eyes, reaching inward toward the ever-burning ember nestled within me. The moment I tapped into it, a gentle heat radiated from myre. Instead of simplynjuring flames, I focused on the raw essence of fire itself—the warmth, themfort, the life-giving heat thatuld just as easily sear flesh as ituld soothe weary bones. Ṙ𝘈ɴộꞖΕ𝙨</p>
+<p>I closed my eyes, reaching inward toward the ever-burning ember nestled within me. The moment I tapped into it, a gentle heat radiated from myre. Instead of simplynjuring flames, I focused on the raw essence of fire itself—the warmth, themfort, the life-giving heat thatuld just as easily sear flesh as ituld soothe weary bones.</p>
 <p>A golden aura radiated from beneath my skin as the heat steadily increased. I wasn't blasting out raw flames or igniting anything around me. No, this wasntrolled, refined. I was a living radiator as my body exuded gentle warmth, wrapping the ladies in amforting atmosphere.</p>
 <p>Aurora was the first to stretch her arms above her head, letting the warmth soak into her skin. She sighed with extreme satisfaction, "This new upgrade is simply amazing!"</p>
 <p>"New upgrade?" Vex asked curiously as she leaned slightly into the glow.</p>

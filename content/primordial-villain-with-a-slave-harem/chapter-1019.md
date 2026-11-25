@@ -28,7 +28,7 @@ chapter = 1019
 <p>She didn’t blink.</p>
 <p>She simply stared at Quinlan as if already unweaving the threads of his soul with each passing second.</p>
 <p>And Quinlan, though smiling outwardly, could feel the weight of her inspection drilling into his mind. It was not hard to gather that the woman wasn’t fond of him.</p>
-<p>Though to be fair, Morgana seemed to hate humanity in general, but Quinlan definitely enjoyed a special amount of her scorn, most certainly due to the fact that her young daughter thought of him so highly. Ṟã₦ȱ𝔟ȧ</p>
+<p>Though to be fair, Morgana seemed to hate humanity in general, but Quinlan definitely enjoyed a special amount of her scorn, most certainly due to the fact that her young daughter thought of him so highly.</p>
 <p>She was a mama bear busy debating if it was the correct decision to let Felicity befriend this strange man. It was one thing to let her speak with him using artifacts, but meeting in person...?</p>
 <p>Queen Morgana turned her head toward King Alexios. And for the first time in a long time, the steady swirl of elements within her eyes faltered.</p>
 <p>Fire surged to the forefront.</p>

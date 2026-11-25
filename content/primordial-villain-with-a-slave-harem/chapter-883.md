@@ -30,7 +30,7 @@ chapter = 883
 <p>Black ichor burst out of his veins in torrents. This liquid was vile and smoky, bubbling with malice. Where it touched the air, the sky itself looked as if it shed tears. This was no mere blood; this was the bile of a corrupted existence. The wound sprayed down the trench Serika had made, sizzling against charred earth and stone.</p>
 <p>Venthros let out an enraged, gurgling howl.</p>
 <p>And then… he erupted.</p>
-<p>A tempest of corrupted flame burst from his form. A tidal wave of fire that no longer seemed to obey the logic of heat or qi as it consumed everything in its path. Quinlan twisted his body and redirected his route, folding into the wind, skating along its edges, and narrowly slipping away from the annihilation pulse. 𝘳Ä𐌽∅ʙЁṩ</p>
+<p>A tempest of corrupted flame burst from his form. A tidal wave of fire that no longer seemed to obey the logic of heat or qi as it consumed everything in its path. Quinlan twisted his body and redirected his route, folding into the wind, skating along its edges, and narrowly slipping away from the annihilation pulse.</p>
 <p>But Serikam, who was still falling from her immensely powerful but just as taxing strike, her body numb from the overexertion and exposure to corruption, was not so lucky.</p>
 <p>Her body faltered. Limbs spasmed. Her aura flickered. The god’s flame surged toward her relentlessly.</p>
 <p>Then a blur tore through the sky.</p>

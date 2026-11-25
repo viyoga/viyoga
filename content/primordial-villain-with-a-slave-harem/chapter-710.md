@@ -28,7 +28,7 @@ chapter = 710
 <p>"As you command, Princess!"</p>
 <p>"We shall cease our praises, Princess!"</p>
 <p>Kitsara huffed with her lush tail flicking in clear irritation. Even in war, they wouldn't stop teasing her.</p>
-<p>Then, something strange happened. Two trails of radiant light streaked across the battlefield, traveling toward Kitsara, originating from somewhere within Emberfang's buildings. They twisted and coiled before reaching her, dodging obstacles in their path. After reaching their destination, they merged seamlessly into her form. 𝔯₳ΝОＢËS</p>
+<p>Then, something strange happened. Two trails of radiant light streaked across the battlefield, traveling toward Kitsara, originating from somewhere within Emberfang's buildings. They twisted and coiled before reaching her, dodging obstacles in their path. After reaching their destination, they merged seamlessly into her form.</p>
 <p>In an instant, two new tails sprouted behind her.</p>
 <p>A Nine-Tailed Sorceress!</p>
 <p>Var'Zhul clenched his fists. Had she been one this entire time? His reports said the Chieftain Vargis adopted a foxkin baby about fifty years ago, but there was no information about her class… Was this how the dogkin infiltrated Emberfang so thoroughly? Had she been the unseen dagger slipping past their defenses?</p>

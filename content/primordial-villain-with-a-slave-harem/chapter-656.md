@@ -31,7 +31,7 @@ chapter = 656
 <p>"Allow me to show you the archery of the proud foxkin," Veyrin said while drawing the first arrow from its quiver with slow, measured motions.</p>
 <p>"My eyes are peeled wide open, Prince Veyrin."</p>
 <p>Once he finished his statement, a sudden eruption of energy burst forth from Devil's ring, sending a violent ripple through the air.</p>
-<p>Then, a pitch-black saber emerged. Its surface was covered in eerie, blue phantasmal flames. The weapon flew as if it had a mind of its own, twisting and turning in midair like a sentient beast waiting for its master's command. РáŊổ𐌱ĚS̈</p>
+<p>Then, a pitch-black saber emerged. Its surface was covered in eerie, blue phantasmal flames. The weapon flew as if it had a mind of its own, twisting and turning in midair like a sentient beast waiting for its master's command.</p>
 <p>The audience gasped as the saber circled around Devil in a mesmerizing dance. It wasn't an ordinary weapon. It wasn't even an enchanted blade one could find among the offerings of the greatest dwarven artificers. It was something they'd never seen before.</p>
 <p>This weapon had a will, a force, a purpose.</p>
 <p>Finally, Devil extended his right arm and opened his palm.</p>

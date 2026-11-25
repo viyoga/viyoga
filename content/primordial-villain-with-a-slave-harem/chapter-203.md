@@ -29,7 +29,7 @@ chapter = 203
 <p>Just for fun, after all, why wouldn't you get a 50% bonus to your HP and MP, besides 25% on all attributes?</p>
 <p>Furthermore, you can have an infinite number of classes active as long as they are of the evil path, plus three additional ones of the neutral path. You can summon portals to take a vacation to the capital or an exotic beach on a whim, and… Argh, I will stop before I bite my lips out of jealousy." She scoffs, "life really isn't fair."</p>
 <p>"Exactly. Some people just have it easy. Unfortunate souls like us have to fight tooth and nail for every small advantage we can get."</p>
-<p>"You are so damn funny, Quinlan." She states, but I can tell that despite her harsh words she is on the verge of giggling and is desperately trying to fight back against it. ʀＡƝỐΒÊⱾ</p>
+<p>"You are so damn funny, Quinlan." She states, but I can tell that despite her harsh words she is on the verge of giggling and is desperately trying to fight back against it.</p>
 <p>"Alright, next topic. Female body hair. What's up with this?" I ask as I pinch the silky smooth skin on her left thigh.</p>
 <p>"What are you even talking about? Also, stop pinching my skin." She responds while attempting to swat my hand away, unsuccessfully.</p>
 <p>"I'm trying to understand why you and Blossom are not hairy at all below your neck level? Besides her tail, of course. I know that you are not shaving, waxing or anything."</p>

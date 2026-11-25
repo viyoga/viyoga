@@ -32,7 +32,7 @@ chapter = 74
 <p>"You want a nice meal?! You?!" He spits.</p>
 <p>"Sir, is there anything I can do to change your mind?" He turns to me with a complete 180 shift in attitude.</p>
 <p>"You tell me. What can you do? I'm not into men, just so we are clear."</p>
-<p>"Ha-ha! Sir has a very refined sense of humor…" He coughs into his palm and stares at Ayame with pain and frustration evident in his eyes. "I can waive the first week of payment." ŖÅ₦ộBЁⱾ</p>
+<p>"Ha-ha! Sir has a very refined sense of humor…" He coughs into his palm and stares at Ayame with pain and frustration evident in his eyes. "I can waive the first week of payment."</p>
 <p>"Not interested."</p>
 <p>"I will mark the first month of payments as fulfilled."</p>
 <p>"No, thanks."</p>

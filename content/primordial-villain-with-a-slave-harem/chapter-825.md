@@ -30,7 +30,7 @@ chapter = 825
 <p>An ornate seat with flame-shaped spires rising behind it. A single figure sat on it.</p>
 <p>Serika Vael.</p>
 <p>The Fire Sovereign.</p>
-<p>She didn’t quite wear an elegant, royal-themed flowing crimson robe with gold embroidery that Quinlan expected her to. If anything, she was more of a tomboy like Kaelira, the sexy, muscly elf. She even had tanned skin, making her bright green eyes and red hair pop out that much more. ŘἁＮ𝖔𐌱Еś</p>
+<p>She didn’t quite wear an elegant, royal-themed flowing crimson robe with gold embroidery that Quinlan expected her to. If anything, she was more of a tomboy like Kaelira, the sexy, muscly elf. She even had tanned skin, making her bright green eyes and red hair pop out that much more.</p>
 <p>Her presence wasn’t welcoming at all. Instead, she looked like a woman who was bored out of her mind. But even then, she radiated cold dominance.</p>
 <p>Her hair was tied into a high warrior’s tail that framed her composed face. She was striking. Dangerous. Her emerald eyes burned with judgment, watching all with a fire that didn’t need heat to threaten.</p>
 <p>Instead of a royal dress, she was straight up in a crop top with her chiseled abs and shoulders bare for the world to witness. On her shoulders, two red tattoos shone brightly.</p>

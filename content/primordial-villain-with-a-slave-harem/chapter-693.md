@@ -32,7 +32,7 @@ chapter = 693
 <p>She gripped her hilt as Hanae gripped hers.</p>
 <p>She took up the stance, aligning her body with the storm's rhythm.</p>
 <p>And for the first time, she looked inward.</p>
-<p>For years, lightning had been a foreign force within her veins—borrowed power, destructive and untamed, a last resort that left her broken after a single use. ꭆ𝖆ΝỌβЕs</p>
+<p>For years, lightning had been a foreign force within her veins—borrowed power, destructive and untamed, a last resort that left her broken after a single use.</p>
 <p>But Hanae…</p>
 <p>Hanae wielded it with grace, with elegance, with perfect control.</p>
 <p>She never wasted a single volt.</p>

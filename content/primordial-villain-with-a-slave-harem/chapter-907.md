@@ -32,7 +32,7 @@ chapter = 907
 <p>’Then we don’t need to beat him senseless... this time.’</p>
 <p>’Agreed.’</p>
 <p>Both sighed at once with their gazes softening, the boiling storm of feminine fury momentarily quelled.</p>
-<p>Karl, feeling the tension ease, exhaled in relief and quickly busied himself adjusting his eloquent hat. "We’re all friends here. Sentenced to the same miserable fate, we gotta support one another." Ṟ𝔞ℕօＢĚṢ</p>
+<p>Karl, feeling the tension ease, exhaled in relief and quickly busied himself adjusting his eloquent hat. "We’re all friends here. Sentenced to the same miserable fate, we gotta support one another."</p>
 <p>Both mothers ignored him, turning their eyes once more toward the monument.</p>
 <p>Their beloved son was still out there.</p>
 <p>And they would wait as long as it took.</p>

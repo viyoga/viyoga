@@ -33,7 +33,7 @@ chapter = 1032
 <p>"This is a sanctioned noble duel. Life and death are permitted. May the Goddess bear witness."</p>
 <p>The crowd’s excitement levels rose significantly as cheers erupted, mostly from the vassals of the Vexmore family who supported their lord.</p>
 <p>High above the common nobles, the royal podium stood out in its opulence.</p>
-<p>Wrought of marble, laced with runes of protection and subtle privacy wards, it was a platform where only the ruling bloodline and highest-ranked nobility could sit. Each of the duchy families was positioned subserviently below and to the sides of the Royal House. RἈＮо𝐁ĘS̈</p>
+<p>Wrought of marble, laced with runes of protection and subtle privacy wards, it was a platform where only the ruling bloodline and highest-ranked nobility could sit. Each of the duchy families was positioned subserviently below and to the sides of the Royal House.</p>
 <p>King Alexios’ eyes never left the arena.</p>
 <p>"What do you make of this man?" he asked his wife with a curious tone.</p>
 <p>The Queen did not turn to him.</p>

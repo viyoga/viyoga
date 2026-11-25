@@ -24,7 +24,7 @@ chapter = 828
 <p>No answer.</p>
 <p>But he wasn’t alone.</p>
 <p>As his vision sharpened, he spotted her.</p>
-<p>Standing at the far end of the cell. No, leaning. Arms crossed, back against the wall, as if she’d been waiting there for hours without a flicker of impatience. Ŕ𝙖ɴ𝐎ᛒƐⱾ</p>
+<p>Standing at the far end of the cell. No, leaning. Arms crossed, back against the wall, as if she’d been waiting there for hours without a flicker of impatience.</p>
 <p>Serika Vael.</p>
 <p>The Fire Sovereign herself.</p>
 <p>Her posture was relaxed, yet there was a tension in the air around her: a coiled restraint beneath the calm. Power wrapped in poise.</p>

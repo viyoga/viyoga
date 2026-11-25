@@ -25,7 +25,7 @@ chapter = 763
 <p>I froze.</p>
 <p>So did Vex.</p>
 <p>Then, like the veil between realms parted, space cracked, and from that silver fracture stepped out a massive figure.</p>
-<p>Gone was the pint-sized, chibi fox I’d grown used to seeing lounging around the palace. In her place now stood a towering creature of elegance and raw power: Lady Yoruha in what I assumed to be her true form. Ṙ𝘢Nố𝐁Εᶊ</p>
+<p>Gone was the pint-sized, chibi fox I’d grown used to seeing lounging around the palace. In her place now stood a towering creature of elegance and raw power: Lady Yoruha in what I assumed to be her true form.</p>
 <p>Nine brilliant tails fanned out behind her like a shimmering curtain. Her fur shone like polished obsidian, and her presence alone warped the air with pressure. She was enormous, and her glowing eyes locked onto us.</p>
 <p>Vex blinked rapidly.</p>
 <p>Then blinked again.</p>

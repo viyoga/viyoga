@@ -26,7 +26,7 @@ chapter = 1107
 <p>But before she could so much as reach the threshold, a sound made her pause.</p>
 <p>A rustle of fabric. The shift of nine lush tails. Yoruha sat up slowly in her bed with languid movements that made it look as if she believed that even gravity itself should wait for her to wake. She rubbed at her eyes with the back of her hands, blinking away the haze of slumber.</p>
 <p>And then, she opened them.</p>
-<p>Her gaze narrowed to a slit, her lips twisted, and the most sour, vinegar-drenched expression imaginable pulled across her face. It was a look that could curdle milk and sour wine. ŗà𐌽Ǒ𝔟Ës̩</p>
+<p>Her gaze narrowed to a slit, her lips twisted, and the most sour, vinegar-drenched expression imaginable pulled across her face. It was a look that could curdle milk and sour wine.</p>
 <p>Only after savoring the sheer bitterness of the moment did she drag in a long, weary breath. It was the kind of sigh that carried the weight of a million years of tiresome existence.</p>
 <p>"Oh, hell no."</p>
 <p>Yoruha began rising to her feet after the exhausted sigh. She stretched her arms above her head, joints popping, and grumbled under her breath.</p>

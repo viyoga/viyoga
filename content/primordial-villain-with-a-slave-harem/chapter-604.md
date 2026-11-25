@@ -24,7 +24,7 @@ chapter = 604
 <p>I was still sinking, deeper and deeper, and as such, came to the realization that the ocean floor was no empty void.</p>
 <p>For the first time since I entered these elemental realms, I saw signs of civilization.</p>
 <p>Ruins Beneath the Waves. Stay tuned to</p>
-<p>Unlike the raging infernos of fire or the storm-wracked lands of wind, the water quadrant held remnants of something old. Structures that have been long since abandoned stood solemnly against the currents, draped in coral and seaweed. ȓ𝐀ƝǑ𝐛ĘȘ</p>
+<p>Unlike the raging infernos of fire or the storm-wracked lands of wind, the water quadrant held remnants of something old. Structures that have been long since abandoned stood solemnly against the currents, draped in coral and seaweed.</p>
 <p>It was a city. Or at least, it had been.</p>
 <p>I landed on the seafloor, standing on my two feet for the first time since being swallowed by the waves. I ran my fingers along the weathered, mossy walls, tracing the faded inscriptions that had long since lost their meaning.</p>
 <p>Whoever had lived here was gone, forced into extinction by the ruthless actions of the soul-raiding gods and their enslaved galactic armies birthed to do their bidding in their Astral Conquests. Even though these people were no more, their legacy remained, preserved by the ocean’s embrace.</p>

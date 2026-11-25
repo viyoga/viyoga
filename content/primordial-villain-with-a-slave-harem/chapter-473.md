@@ -27,7 +27,7 @@ chapter = 473
 <p>I crossed my arms instinctively to absorb some of the impact, but the icy force was just too much. Pain flared through me as the sheer momentum broke both of my arms, making them useless.</p>
 <p>The collision launched me into the air with even more velocity, and I found myself helplessly spiraling into the skies as I was ragdolled once again.</p>
 <p>I hit my back and head against the upper edge of the arena again, after which came the descent.</p>
-<p>I forced my bleary vision to focus and saw the crystalline menace that was Anivia racing toward me once again. Its talons gleamed with frost as it flapped its massive wings. ɌÂΝỘ₿Ëş</p>
+<p>I forced my bleary vision to focus and saw the crystalline menace that was Anivia racing toward me once again. Its talons gleamed with frost as it flapped its massive wings.</p>
 <p>The bird reached me and its talons clamped onto me for a second time, digging deeper into my flesh and drawing more blood. A guttural screech rang in my ears as Anivia spun once again, using its momentum to fling me into the air like a discarded toy.</p>
 <p>The world spun around me as I hurtled skyward. The pain in my body now dulled into a constant, heavy throb. My arms hung limply at my sides, they were totally broken and battered.</p>
 <p>As I soared, I realized the cold, bitter truth: I was being toyed with.</p>

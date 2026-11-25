@@ -29,7 +29,7 @@ chapter = 151
 <p>The hilt of the blade is ornate, and he rests a hand on it casually as if it's an extension of his own body.</p>
 <p>(picture)</p>
 <p>Beside him is a woman with long, long auburn hair cascading down her back in loose waves. She's wearing a deep crimson robe embroidered with intricate golden patterns that shimmer in the dim light of the shop. A staff is clutched in her hand, the top adorned with a crystal that seems to pulse with a faint, magical glow.</p>
-<p>Her expression is haughty, her green eyes scanning the room with a mixture of disinterest and disdain. Unlike her companion, she doesn't bother with a smirk- her lips are pressed into a thin line, as if the very act of being here is beneath her. R𝘢ΝΟᛒΕᶊ</p>
+<p>Her expression is haughty, her green eyes scanning the room with a mixture of disinterest and disdain. Unlike her companion, she doesn't bother with a smirk- her lips are pressed into a thin line, as if the very act of being here is beneath her.</p>
 <p>It's immediately clear to me that she's a mage-type, and I can't help but study her for a moment with interest. It's the first time I've seen a wizard up close, and there's something intriguing about the way she holds herself, as if she's constantly aware of the unique power she wields. The staff, the robes, the aura- she's the embodiment of the term 'entitlement'.</p>
 <p>(picture)</p>
 <p>After all, her being a wizard can only mean that she'd led a life of privilege, since her parents could afford the expensive potion while she was a young child.</p>

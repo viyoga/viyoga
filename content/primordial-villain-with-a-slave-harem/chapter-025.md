@@ -25,7 +25,7 @@ chapter = 25
 <p>We spend the next few hours clearing corridors on the first floor. I'm really getting into it now. Ayame rarely needs to step in; she spends most of her time observing me quietly from a close distance. Once I'm done with a fight, she gives me a few pointers to improve myself, but I've not made any giant mistakes since our lengthy discussion.</p>
 <p>I'm very happy with and proud of my rate of progress. I've now slain 20 level 1 monsters, making me have 62/100 XP. However, I'm getting tired. My mana is also low due to using my innate Warrior spell quite a bit. With my low Wisdom stat, my mana regenerates very slowly, at the annoyingly laggard rate of 1 mana per 10 minutes.</p>
 <p>"Ayame, I think it's time we retreat for the day. Or would you prefer to go alone to higher floors?" I ask, feeling the weariness in my bones.</p>
-<p>She shakes her head. "No. I would rather mentor you until you become strong enough that we can work together. The faster we become a real team, the better off the both of us are. If I just start going alone, it will be even longer before you catch up." 𝘙Ãɴộ₿Εṥ</p>
+<p>She shakes her head. "No. I would rather mentor you until you become strong enough that we can work together. The faster we become a real team, the better off the both of us are. If I just start going alone, it will be even longer before you catch up."</p>
 <p>With my 3x XP rate, that might be sooner than she expects. I'm interested to see her surprised face when she realizes it, but for now, I decide to keep it to myself.</p>
 <p>"However, before we leave, we should clear the boss room," she adds.</p>
 <p>I stop in my tracks, my eyes widening. "Boss room?! Amazing. This world is simply the best. What are boss rooms exactly?"</p>

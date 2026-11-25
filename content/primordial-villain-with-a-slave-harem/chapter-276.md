@@ -26,7 +26,7 @@ chapter = 276
 <p>She raised her clawed hand and with a flick of her wrist, the arrow was batted aside, sent spinning into the dirt like it was no more than a nuisance.</p>
 <p>The archer's face went pale with his confidence evaporating as quickly as it had come.</p>
 <p>The assassin tilted her head to the side questioningly. There was no response, no taunt, no boast. Just that cold, predatory stare, watching Katie and her comrades as if deciding if they were serious or not.</p>
-<p>Katie could feel her pulse quicken, but she refused to break eye contact. This was a standoff. As long as they stayed together, as long as they didn't give the assassin an opening she couldn't attack them. After all, a glass cannon build like her was only useful as long as she had the element of surprise on her side. ꭆἈƝꝋβĘ𝐒</p>
+<p>Katie could feel her pulse quicken, but she refused to break eye contact. This was a standoff. As long as they stayed together, as long as they didn't give the assassin an opening she couldn't attack them. After all, a glass cannon build like her was only useful as long as she had the element of surprise on her side.</p>
 <p>But the assassin… she was patient.</p>
 <p>Katie tightened her grip on her sword and adjusted her stance. She was ready- at least she thought she was. But in that moment, staring into the eyes of a true killer, she realized just how fragile that readiness was.</p>
 <p>And her opponent knew it. Sensed it.</p>

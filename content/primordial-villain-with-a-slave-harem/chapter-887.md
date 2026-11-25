@@ -42,7 +42,7 @@ chapter = 887
 <p>Here knelt Sel’Ashra, The Withered Flame, acting leader of the Withered Pantheon.</p>
 <p>Her once-divine skin was fissured, glowing with ember veins and ashen tears.</p>
 <p>The sacred warmth she once embodied now reeked of rot and longing.</p>
-<p>Before her, yawned the throne of violation, a hole in law itself, rippling with reality’s inversion. And within that impossible void... Xar’Zal had returned. 𝔯ἈɴＯ𝐛ĚṦ</p>
+<p>Before her, yawned the throne of violation, a hole in law itself, rippling with reality’s inversion. And within that impossible void... Xar’Zal had returned.</p>
 <p>Fresh from his divine feast.</p>
 <p>She did not dare look up as she whispered with a strained tone:</p>
 <p>"...My Lord. Venthros has fallen... Slain by a primordial. A mere demigod. What do you demand we do? We’ll become a laughingstock in the eyes of the other pantheons."</p>

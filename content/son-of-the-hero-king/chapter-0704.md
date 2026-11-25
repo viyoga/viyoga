@@ -29,7 +29,7 @@ chapter = 704
 <p>But he refused, for now, quoting that someone needed to stay and protect their home just in case.</p>
 <p>“I can not fault him.” Persephone said, “The situation in the Mortal Realm is full of problems and as the strongest fighter in Southern Pride, he couldn’t exactly leave with peace of mind. Thankfully we reached a solution for that problem.”</p>
 <p>Persephone smirked, “The two young dragons and the Dragon Queen, also wanted to follow but, in the end, they were unable to do that. Clearly, Grandpa Asmodeus is still not intent on letting any living dragon enter Lustburg. But in this case, this came pretty handy because Siegfried acknowledged that his presence wouldn’t really be necessary with the Dragon Queen.”</p>
-<p>“Even the Dragon Queen was rebuked. Does Lord Asmodeus not fear Lady Tiamat?” Nefertiti asked, trying to wrap her head around the information she received. ℞α₦ỔＢĚṢ</p>
+<p>“Even the Dragon Queen was rebuked. Does Lord Asmodeus not fear Lady Tiamat?” Nefertiti asked, trying to wrap her head around the information she received.</p>
 <p>“Tiamat might be strong but our dear grandpa is not a weakling either, you know? I doubt she can bully him in submission like she likes to do with other weaker people.” Persephone expressed her feelings. She might not like Asmodeus much.</p>
 <p>But only the witches were allowed to insult that sloppy and careless man. Persephone would not let anyone else disrespect him… outside of perhaps Sol.</p>
 <p>Nefertiti showed a smile befitting her immense beauty, “Thank you for sharing all that information.”</p>

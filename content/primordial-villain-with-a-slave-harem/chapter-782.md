@@ -35,7 +35,7 @@ chapter = 782
 <p>I stared at the message with wry eyes.</p>
 <p>Vex's smile returned, as mischievous as ever this time. "Wait, let me guess, hubby This wifey of yours is way too strong for you, hmm?"</p>
 <p>"…"</p>
-<p>"Your silence is louder than a thousand words," she giggled. But then, her fingers began tracing idle shapes across my skin as she rolled off my chest, landing nestled up against my side. "Moving back onto our original topic, about the reason why a weak bodyguard became an Elite Soul while strong lionkin soldiers ended up being Lesser ones…" ℞ÅƝɵ𝔟Ës</p>
+<p>"Your silence is louder than a thousand words," she giggled. But then, her fingers began tracing idle shapes across my skin as she rolled off my chest, landing nestled up against my side. "Moving back onto our original topic, about the reason why a weak bodyguard became an Elite Soul while strong lionkin soldiers ended up being Lesser ones…"</p>
 <p>She stared up at the ceiling, thinking for a dozen or so seconds, after which she parted her delicate lips.</p>
 <p>"Maybe it wasn't about power."</p>
 <p>I turned my head toward her. "What do you mean?"</p>

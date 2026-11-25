@@ -27,7 +27,7 @@ chapter = 804
 <p>She froze with her chopsticks trembling in the air as her face turned a progressively deeper shade of red, then purple. Her cheeks puffed out like she was holding back something really bad from erupting, lips twitching like they were trying to escape her skull.</p>
 <p>Then…</p>
 <p>"AAAHHH!!" she shrieked, slapping the table with two fists as steam quite literally puffed from her mouth. "WHY WOULD ANYONE EAT THIS FOR FUN?!"</p>
-<p>A nearby group of diners chuckled knowingly. It seemed that this dumpling place was famous for its spiciness even inside Vulkaris. Quinlan couldn't help but wonder if the beggar dudes pranked her by sending such an obviously delicate girl here. Ｒ𝘈N∅฿ÈⱾ</p>
+<p>A nearby group of diners chuckled knowingly. It seemed that this dumpling place was famous for its spiciness even inside Vulkaris. Quinlan couldn't help but wonder if the beggar dudes pranked her by sending such an obviously delicate girl here.</p>
 <p>He leaned on his elbow, watching her struggle with the calm detachment of a man who'd already buried his soul once or twice. Though there most definitely was a faint smirk on his lips. Seeing this cocky brat humbled amused him greatly. "You alright?"</p>
 <p>Feng slapped her chest, then grabbed a napkin and fanned her face so fast she nearly took flight. "It's fine! Totally fine!"</p>
 <p>The waitress reappeared, looking mildly concerned. "Would you prefer a milder dish, dear? We recommend that first-time visitors start with Kindling Spice."</p>

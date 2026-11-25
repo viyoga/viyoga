@@ -39,7 +39,7 @@ chapter = 748
 <p>The Avatar’s Fire.</p>
 <p>Not just flame. Not just heat.</p>
 <p>Absolute elemental authority.</p>
-<p>The soul of fire in its truest form: wrathful, boundless, and wholly uncaring for what stood in its way. The city quaked around us as the fire exploded outward in the form of a giant, devastating detonation. ꞦâɴȮᛒÈŝ</p>
+<p>The soul of fire in its truest form: wrathful, boundless, and wholly uncaring for what stood in its way. The city quaked around us as the fire exploded outward in the form of a giant, devastating detonation.</p>
 <p>Buildings melted like wax. Towers collapsed under their own boiling weight. Stone screamed. Wood vaporized.</p>
 <p>And the people?</p>
 <p>They didn’t even have time to run.</p>

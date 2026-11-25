@@ -32,7 +32,7 @@ chapter = 284
 <p>"This old lady is my fourth lover." Quinlan's announcement was met with a disgruntled "Hey! I'm adding this to my list of 'things I will need to take revenge for once I'm strong enough'! You better watch out, young man!" promise from the woman in question. David couldn't help but be a bit jealous. So many women and they all truly adored Quinlan. He could tell from a single glance at their eyes.</p>
 <p>It resembled how Dorothy used to look at him before Tristan ruined everything.</p>
 <p>This woman was carrying multiple baking stones, upon which dough- made from flour and water- could be baked into tasty, fresh bread.</p>
-<p>"… Where's the first, though?" A man questioned, more so out of curiosity than anything. David realized that they'd not yet been introduced to the master's first woman. ṟἈŊОＢЁṥ</p>
+<p>"… Where's the first, though?" A man questioned, more so out of curiosity than anything. David realized that they'd not yet been introduced to the master's first woman.</p>
 <p>"Master. Blossom only managed to catch four." A sudden voice sounded from behind them, making all 25 men spin around their heels. A gorgeous blonde dog-kin walked towards their group. She was dragging two boars and two deer behind her on the ground, all four dead. 'A hunter?' They thought inwardly.</p>
 <p>She walked past them, not even giving them a glance and once she reached Quinlan she dropped her game and jumped right up into his embrace, then began kissing him lovingly.</p>
 <p>"Four is already amazing in the few minutes of time I gave you. Good job!" He praised once their lips parted, which elicited the girl's tail to begin cutting through the air at breakneck speed.</p>

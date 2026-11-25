@@ -32,7 +32,7 @@ chapter = 1010
 <p>That her feelings meant nothing.</p>
 <p>But his final warning... said otherwise.</p>
 <p>"It seems you haven’t realized it yet, Black and his family... Let me spell it out for you."</p>
-<p>"I’m a worse criminal than the syndicate scum hiding beneath the surface of this wretched land. The only reason I don’t have to answer for my crimes is that I am the one who judges." 𝐫𝓪ŊŎВÈ𝙨</p>
+<p>"I’m a worse criminal than the syndicate scum hiding beneath the surface of this wretched land. The only reason I don’t have to answer for my crimes is that I am the one who judges."</p>
 <p>Quinlan swallowed, again.</p>
 <p>But in the next moment, something stirred in his chest.</p>
 <p>The Still Heart.</p>

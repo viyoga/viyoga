@@ -27,7 +27,7 @@ chapter = 1055
 <p>The smuggler, whom Vex said was an important part of the drug department, made it two steps toward the dais before Alastair’s boot caved in his sternum. The body folded around the impact and hit the ground in a twisted heap, chest a ruin of shattered bone.</p>
 <p>The next didn’t make it three paces before the duke’s fist punched through his back and tore free through his chest, ripping the life out of him in one motion.</p>
 <p>One by one, they fell, until the smell of blood grew so thick it clung to every breath.</p>
-<p>Jasmine’s hands clutched the arms of her seat so tightly her knuckles whitened. Her chest rose and fell with each brutal execution happening before their very eyes, each breath shallow, each one threatening to spill into a sob. R̃𝙖ꞐóＢËŜ</p>
+<p>Jasmine’s hands clutched the arms of her seat so tightly her knuckles whitened. Her chest rose and fell with each brutal execution happening before their very eyes, each breath shallow, each one threatening to spill into a sob.</p>
 <p>Her mother was among the prisoners.</p>
 <p>The woman’s spine curved in on itself, her hair a curtain shielding her face. Even when she was the object of discussion, she did not speak up.</p>
 <p>Now, again, she made no move to save herself. The woman did not flinch when the duke’s first tore flesh beside her. She did not recoil when warm blood splashed across her. It was as if she had already left this place, already welcomed death into her arms.</p>

@@ -26,7 +26,7 @@ chapter = 781
 <p>Then, without a word, I materialized my system window. Reversed, this time around, so she could read it.</p>
 <p>Vex pulled back as she gasped, her eyes growing wide. "You… humans certainly can't do that…"</p>
 <p>"Yep," I said with a casual grin and a playful wink. "Just another one of my primordial bullshit powers."</p>
-<p>Her eyes narrowed into fiery slits as a cute scoff left her lips, which afterward turned into an even more adorable pout. "I'm starting to believe why they call it BS…" 𝘳άNȪ₿ĚS</p>
+<p>Her eyes narrowed into fiery slits as a cute scoff left her lips, which afterward turned into an even more adorable pout. "I'm starting to believe why they call it BS…"</p>
 <p>I chuckled amusedly for a second or two before I scrolled through the systemic interface. I tapped with my mind's eyes on the panel labeled [Primordial Subjugator]. The blue glow that signaled its materialization cast light across both our faces.</p>
 <p>"You see, Vex, I'm not just the Primordial Villain. I'm the Primordial Subjugator. That means I'm a slave master on steroids."</p>
 <p>She watched as I flipped to the list of [Subjugated] people.</p>

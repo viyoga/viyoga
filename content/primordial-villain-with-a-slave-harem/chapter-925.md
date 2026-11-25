@@ -27,7 +27,7 @@ chapter = 925
 <p>She reached out and gently closed Serika’s fingers around the glass.</p>
 <p>"This isn’t a potion. It won’t fix you. But it will let you breathe."</p>
 <p>Serika stared at her for a long moment, then, grudgingly, lifted the tea to her lips.</p>
-<p>It was warm. Bitter in the center, with soft floral notes that lingered after the heat passed her tongue. Her shoulders relaxed just slightly. Her chest still ached, but the ache no longer choked her. Řä𝐍Օ𝖇ÊṢ</p>
+<p>It was warm. Bitter in the center, with soft floral notes that lingered after the heat passed her tongue. Her shoulders relaxed just slightly. Her chest still ached, but the ache no longer choked her.</p>
 <p>"It’s a good brew... You primordials certainly know your way around your drinks..." she joked, looking away.</p>
 <p>Behind her, Feng and Quinlan moved together. One hand each landed gently on Serika’s shoulders. Feng’s was comforting and fierce, like a little sister gripping her big sister’s arm during a storm. Quinlan’s was steady and quiet, like bedrock beneath crashing waves.</p>
 <p>Together, they gave her something she hadn’t felt in a long time: the simple permission to fall apart without judgment.</p>

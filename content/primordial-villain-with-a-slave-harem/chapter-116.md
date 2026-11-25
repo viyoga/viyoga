@@ -32,7 +32,7 @@ chapter = 116
 <p>Hehehe. That I most certainly did.</p>
 <p>Ayame sighs at my adorable dog-kin girl's attitude and shameless words. I feel absolutely obligated to give her head a few good pets as well.</p>
 <p>I'm pretty sure that I could put up a very good fight against Blossom at the very least if we were to get serious, since in a wrestling match her overwhelming Agility is not as important as it would be in a normal fight and our Strength and Vitality are nearly identical after my second transformation's added 5 extra attribute points in each physical category.</p>
-<p>"Anyways, as long as you don't get too carried away, I suppose I can tolerate it." I'm happy to see that none of my girls are raging feminists who are opposed to a little bit of healthy manspreading. Well, I wouldn't have fallen for them if they were. ⱤἈ₦ỖＢЕS̩</p>
+<p>"Anyways, as long as you don't get too carried away, I suppose I can tolerate it." I'm happy to see that none of my girls are raging feminists who are opposed to a little bit of healthy manspreading. Well, I wouldn't have fallen for them if they were.</p>
 <p>It's also very encouraging to see that Ayame is much less opposed to me touching her in a non-sexual manner than she was before. We are making much swifter progress in our relationship than I expected, to be honest.</p>
 <p>Maybe hearing me plow Blossom's fertile fields like there's no tomorrow had some effects on her openness as well. I was worried that she might become more closed off after I embraced my precious Pupcake right in front of her eyes but it seems to have had the exact opposite effect in fact.</p>
 <p>How? I don't know.</p>

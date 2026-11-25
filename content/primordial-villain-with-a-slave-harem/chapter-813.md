@@ -32,7 +32,7 @@ chapter = 813
 <p>Quinlan caught the wrist with both hands. Grounded his stance.</p>
 <p>Dirt scattered beneath his heel.</p>
 <p>Silence.</p>
-<p>The old man did not pull away. His prosthetic fingers were inches from Quinlan’s eyes. His expression remained cold, unreadable. A breeze passed between them. 𝘳ÂＮɵВĚṨ</p>
+<p>The old man did not pull away. His prosthetic fingers were inches from Quinlan’s eyes. His expression remained cold, unreadable. A breeze passed between them.</p>
 <p>Then, finally, a nod.</p>
 <p>"Good."</p>
 <p>The man stepped back.</p>

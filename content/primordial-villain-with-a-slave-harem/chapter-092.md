@@ -28,7 +28,7 @@ chapter = 92
 <p>She would absolutely thrive here with her Phantom Canine class. Unfortunately, since she's an ownerless slave, her class and stats are sealed, preventing her from accessing her abilities.</p>
 <p>I instructed Blossom to guard our room while we're out, more so to keep her from getting bored than for actual security. As I open the door I half expect her to attack us, mistaking us for intruders. Instead, I'm greeted by a ballistic missile that launches itself straight into my chest, knocking me to the floor.</p>
 <p>Ah, yes, my scent. I must smell awful after today's labyrinth challenges. But this blonde beauty doesn't seem to mind; if anything, she seems more eager because of it. Blossom animatedly sniffs me all over, her nose twitching as if she's experiencing the day's battles through my scent alone.</p>
-<p>I open my arms wide and grin, inviting her affection. She nuzzles into my chest, her soft fur brushing against me as she inhales deeply, taking in the day's story written in my sweat and grime. Her excitement is infectious, and I can't help but chuckle as I pet her gently. ȑ𝘈ꞐȰꞖЁ𝓢</p>
+<p>I open my arms wide and grin, inviting her affection. She nuzzles into my chest, her soft fur brushing against me as she inhales deeply, taking in the day's story written in my sweat and grime. Her excitement is infectious, and I can't help but chuckle as I pet her gently.</p>
 <p>In a playful, sing-song voice, I ask, "Have you been a good girl?"</p>
 <p>Blossom nods energetically, her eyes sparkling with pride. "Yes! Yes! Blossom guarded Master's territory intently!" she declares, her tail wagging furiously.</p>
 <p>"That's my girl," I coo, giving her an extra scratch behind the ears, which she leans into with a satisfied hum.</p>

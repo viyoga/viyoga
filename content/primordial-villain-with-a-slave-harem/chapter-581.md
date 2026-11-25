@@ -33,7 +33,7 @@ chapter = 581
 <p>With a powerful kick, we shot into the sky after BunBun activated [Sky Hopper].</p>
 <p>The wind roared past my ears as we soared higher and higher, far beyond the reach of the javelins, even if they were to be thrown by the high-leveled Sunborn lionkin.</p>
 <p>From this height, the scene below turned into a chaotic mess of clashing bodies, glinting weapons, and pools of spreading blood. Kargrim stood out the most because he was the largest creature on this battlefield and he was causing great mayhem as well, drawing attention to him.</p>
-<p>I activated my primordial eyes, feeling the familiar senses of my eyes sharpening and expanding my perception. The first thing I noticed was the differences between different apex predators. ꞦÄΝốᛒЁS̩</p>
+<p>I activated my primordial eyes, feeling the familiar senses of my eyes sharpening and expanding my perception. The first thing I noticed was the differences between different apex predators.</p>
 <p>At first, I didn’t quite understand why the bearkin were not outright dominating the Trials of Beasts if they were so much more physically imposing than others. However, from high up here, my confusion was cleared up.</p>
 <p>Bearkin were tanks, mighty and durable, but a bit slow in comparison to the other apex predators.</p>
 <p>Lionkin and tigerkin seemed to be the middle of the pack, well-adjusted all-around with near-equal points spread in Agility, Strength, and Vitality.</p>

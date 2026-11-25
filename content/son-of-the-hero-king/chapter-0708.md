@@ -22,7 +22,7 @@ chapter = 708
 <p>“Every single thought and consideration of yours shows that you can not fully trust us.”</p>
 <p>She placed a finger on his lip, stopping him from speaking.</p>
 <p>“This is not an accusation. Life is not a joke. There is nothing wrong with putting as many failsafes as possible during something as unpredictable as war.</p>
-<p>“I also know that for someone as powerful as you are now, we must seem all the more fragile. The enemies that you are constantly facing are getting stronger while we are just unable to catch up to you fast enough.” Even as a Duke, Sol could reliably fight most King-ranked beings and now that he was a King, all his enemies would be at the demigod level or false god level at least. Ŕ𝐀𐌽ꝋBƐŠ</p>
+<p>“I also know that for someone as powerful as you are now, we must seem all the more fragile. The enemies that you are constantly facing are getting stronger while we are just unable to catch up to you fast enough.” Even as a Duke, Sol could reliably fight most King-ranked beings and now that he was a King, all his enemies would be at the demigod level or false god level at least.</p>
 <p>Sooner or later, the goddesses themselves might become enemies and they might have to face the two Mother Goddesses. Just that thought alone was enough to make her chest tighten, to make her breathless.</p>
 <p>Even so,</p>
 <p>This story originates from Royal Road. Ensure the author gets the support they deserve by reading it there.</p>

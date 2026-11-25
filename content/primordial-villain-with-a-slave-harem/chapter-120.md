@@ -32,5 +32,5 @@ chapter = 120
 <p>Marjorie lets out a satisfied chuckle, more like a low rumble. "It's one of the best concealment artifacts you can find on the market, though it only lasts for a few hours and has limited uses. Still, it should keep your belongings safe while we're gone."</p>
 <p>I walk around the now-invisible carriage, reaching out hesitantly with one hand. My fingers encounter solid wood where my eyes see nothing but air, confirming that the illusion is as convincing to the touch as it is to sight.</p>
 <p>"I'm not even going to ask the price of the item…" I mutter.</p>
-<p>"Hehe. You better not! My husband, me and my wife-sisters have worked as adventurers for decades, so you shouldn't compare yourselves to us if you are just starting out." Oh, she must've noticed our iron plates. 𝐫äŊÓᛒÊＳ</p>
+<p>"Hehe. You better not! My husband, me and my wife-sisters have worked as adventurers for decades, so you shouldn't compare yourselves to us if you are just starting out." Oh, she must've noticed our iron plates.</p>
 <p>She might just be a better person than I imagined. People like Grunt looked down on us instantly as soon as they realized our rank.</p>

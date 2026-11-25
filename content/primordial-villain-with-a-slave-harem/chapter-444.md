@@ -28,4 +28,4 @@ chapter = 444
 <p>"Kya! Black Fang has amazing taste. All her disciples are certified bombshells." Jasmine decreed once she laid her eyes on Vex. I had to agree, she was one beautiful woman.</p>
 <p>"I'll be brief. As you all should know, it will be a tournament. However, a certain somebody-"</p>
 <p>She then coughed into her palms *khm!* "Black Fang" *khm!*</p>
-<p>"-said that if she was going to be watching, then the event better be more memorable, so it'll not be a normal tournament but one that's spicy enough to make a 400-year-old- or was it 500? Maybe it's already 600 by now… Anyhow, the tournament will be interesting enough to not make an ancient woman fall asleep out of pure boredom." Ȑἁ𝐍ꝋＢΕ§</p>
+<p>"-said that if she was going to be watching, then the event better be more memorable, so it'll not be a normal tournament but one that's spicy enough to make a 400-year-old- or was it 500? Maybe it's already 600 by now… Anyhow, the tournament will be interesting enough to not make an ancient woman fall asleep out of pure boredom."</p>

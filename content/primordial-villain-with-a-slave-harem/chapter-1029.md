@@ -33,7 +33,7 @@ chapter = 1029
 <p>A light chuckle escaped his lips. No one laughed with him.</p>
 <p>"I didn’t dare expect that."</p>
 <p>The silence that followed was a silence that crushed breath and logic alike.</p>
-<p>Dozens of nobles, already standing from disbelief, sat their pampered asses right back down as if the gravity itself demanded it. Shock rippled through them like a lightning bolt. The announcer had claimed this was Felicity’s doing. That she’d brought in the outsider and his so-called "family." řΆΝỖＢËs̈</p>
+<p>Dozens of nobles, already standing from disbelief, sat their pampered asses right back down as if the gravity itself demanded it. Shock rippled through them like a lightning bolt. The announcer had claimed this was Felicity’s doing. That she’d brought in the outsider and his so-called "family."</p>
 <p>But now?</p>
 <p>The King himself claimed that it was he who had invited him, not Felicity.</p>
 <p>Count Hadrien Vexmore’s face turned the color of ash. Every wrinkle and line on his face tightened, pulling toward the hollow of his wide-eyed disbelief. His mouth moved. Nothing came out.</p>

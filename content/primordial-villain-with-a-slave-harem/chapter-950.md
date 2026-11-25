@@ -36,7 +36,7 @@ chapter = 950
 <p>Inside the muffled cocoon, Quinlan wasnt overly impressed. "Really?"</p>
 <p>But of course, even if they said something in response, he wasnt privy to their words any longer.</p>
 <p>Lucille smirked in satisfaction. "Now thats more like it."</p>
-<p>She turned back to Serika, tugged her down by the wrist again, and leaned up to whisper in her ear. The Solar Fist was already tense with anticipation to have a steamy rodeo for the first time in her life... and the more Lucille spoke, the more that tension morphed into blush-ridden bewilderment. ṛ𝖆Νộ₿ЕṤ</p>
+<p>She turned back to Serika, tugged her down by the wrist again, and leaned up to whisper in her ear. The Solar Fist was already tense with anticipation to have a steamy rodeo for the first time in her life... and the more Lucille spoke, the more that tension morphed into blush-ridden bewilderment.</p>
 <p>Lucilles voice remained low and sultry, like a conspirator revealing a carefully constructed ambush.</p>
 <p>"Hold on." Serikas face was now very, very red. "You actually coordinated all of this?"</p>
 <p>Lucille grinned impishly. "Of course. We spent multiple months without anything to do once we returned from battles for the day. We planned, and planned, and planned... just for this day, girl."</p>

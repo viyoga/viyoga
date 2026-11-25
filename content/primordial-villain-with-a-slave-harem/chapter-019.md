@@ -33,6 +33,6 @@ chapter = 19
 <p>I was hopeful that we could buy some makeshift armor at the start of our shopping trip but that was quickly shot down. According to Ayame, even good leather armor costs a lot relative to the cheap clothes we bought, so first we need to make some money.</p>
 <p>We head back to the inn where I stayed yesterday to grab my two weapons and single armor piece. As I'm checking out of the room, the receptionist/owner tells me that I can leave my stuff in their storage area since I have a lot of unnecessary items on my person, and come back for it later today, which I'm happy to take him up on.</p>
 <p>I didn't want to haul all our newly acquired clothing and toiletry items on my back.</p>
-<p>As we head out, Ayame tells me to hand over the bag to her because she should be the one carrying it since she is much stronger and also because I will be the one doing the fighting today. ṝäƝǑＢËＳ</p>
+<p>As we head out, Ayame tells me to hand over the bag to her because she should be the one carrying it since she is much stronger and also because I will be the one doing the fighting today.</p>
 <p>She doesn't need to say it twice, I swiftly oblige. We ask around for directions from the locals and then head toward Aldoria's labyrinth to finally have my first combat experience.</p>
 <p>I'm thrilled beyond words.</p>

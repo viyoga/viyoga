@@ -27,7 +27,7 @@ chapter = 288
 <p>"…" Jasmine flinched at his statement but could only nod in acceptance.</p>
 <p>"Let's move on. Here is the first artifact. All of the Herald candidates have to touch it too." Wrinkle said while activating the ring on his finger. A cubic-shaped artifact materialized out of his storage space. I instantly recognized it as the one that's supposed to check for branding from other syndicates.</p>
 <p>Broderick had one of these at home, so I already knew what to expect. We all passed the 'test' without hiccups.</p>
-<p>"This one shows your level. All Heralds have to touch once again." He continued once he was satisfied with the results of the first round of examinations. 𝙧ãΝȎ𐌱Ɛŝ</p>
+<p>"This one shows your level. All Heralds have to touch once again." He continued once he was satisfied with the results of the first round of examinations.</p>
 <p>"Hmm? Level 18. Not bad. I'm starting to understand why he is so hung up about you." Wrinkle murmured under his breath once he saw my level.</p>
 <p>Seraphiel was also level 18, but had less XP than me, so she was accepted as well.</p>
 <p>"Good. Finally, this one measures one's age. Only the Phenom candidate has to touch it."</p>

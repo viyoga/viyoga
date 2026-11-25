@@ -30,7 +30,7 @@ chapter = 248
 <p>"In recent years they acquired some nasty drug supply from the Consortium that they've been distributing to destitute villagers, and when they can't pay they sell everything they own for the chance of getting high again."</p>
 <p>"Oh… Then things are quite difficult. We've agreed not to meddle in Consortium business so that we can live in Braedon peacefully. Sorry, Quinlan, but we can't exterminate them." She decreed dejectedly.</p>
 <p>"Don't worry about it. Once I become a Vesper Phenom we will see from the inside what really is going on. Moving on, these two are my architects whom I bought in hopes of creating a construction business, and maybe my own home sometime later too."</p>
-<p>I've elected to hide the fact that I'm building my stronghold in the middle of nowhere. I can trust these people to a degree, but I don't wish to reveal more cards than necessary. My underlings have also been strictly instructed not to divulge information. Ṙ𝘈ΝÖ𝐛Еs</p>
+<p>I've elected to hide the fact that I'm building my stronghold in the middle of nowhere. I can trust these people to a degree, but I don't wish to reveal more cards than necessary. My underlings have also been strictly instructed not to divulge information.</p>
 <p>"My name is Ronan! I've admired you four ever since you saved me when I was almost killed by ugly monsters twenty years ago. It's a joyous day to meet you!" He decreed jovially with a blissful grin erupting onto his face. The man finally met his idols. I wonder if he will be disappointed.</p>
 <p>After all, they say it's best not to meet your heroes in real life if you don't want to break the illusion, it's best to admire them from afar.</p>
 <p>"Then why didn't you become a fighter?" Ayame asked curiously.</p>

@@ -25,7 +25,7 @@ chapter = 622
 <p>"You, Lucille, or should I call you Eveliana Mirabelle Althea Greenvale?"</p>
 <p>"Lucille. Eveliana died a long time ago. I’m nothing but Quinlan’s loving woman and Scourge, the Berserker-classed Vesper Herald helping Devil’s rise to supremacy."</p>
 <p>Based on the proud smile visible on Vex’s delicate lips, she liked Lucille’s answer quite a bit. "Good. You were the least memorable of them all, but you’ve come a long way since then."</p>
-<p>Lucille was visibly happy at earning such a mighty entity’s praise. "Thank you. I only steeled my heart and picked up my axe in recent times. Back during the first event of the trials, I was a borderline liability if I’m being honest." ℞ἈNO͍𝔟Ě𝘴</p>
+<p>Lucille was visibly happy at earning such a mighty entity’s praise. "Thank you. I only steeled my heart and picked up my axe in recent times. Back during the first event of the trials, I was a borderline liability if I’m being honest."</p>
 <p>"Don’t put it like that…" I said, not liking the way she spoke about herself.</p>
 <p>Lucille wasn’t having any of it, evidenced by the strong shaking of her gorgeous caramel-haired head. "Quin, there’s no need to sugarcoat the truth. Combat is not a matter to be taken lightly, it’s best if we’re being realistic by leaving out any feelings stemming from our love for each other. The first thing you did back then was try teaming up with a tanker in the person of Ambition because I was a horrible frontliner who was worse at it than Ayame, our main damage dealer at the time, even though I was wearing cumbersome armor back then with the sole intention of being the group’s damage sponge."</p>
 <p>"Hey, I’m still the main damage dealer!" Ayame protested.</p>

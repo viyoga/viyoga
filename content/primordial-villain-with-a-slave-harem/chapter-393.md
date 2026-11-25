@@ -34,7 +34,7 @@ chapter = 393
 <p>Instead, I raised the smoke for the next puff while remaining entirely unmoving.</p>
 <p>I was no longer the dejected office worker Quinlan who randomly found himself transmigrated to this strange world.</p>
 <p>Not at all.</p>
-<p>I was the primordial entity Quinlan Noir, The Primordial Villain, The Primordial Subjugator, the man who unlocked the Child of Agony class and remained completely sane while doing so. ȒÂ𝐍ö𐌱Ёʂ</p>
+<p>I was the primordial entity Quinlan Noir, The Primordial Villain, The Primordial Subjugator, the man who unlocked the Child of Agony class and remained completely sane while doing so.</p>
 <p>Pain was no longer my enemy. It was simply my body's way of conversing with my brain.</p>
 <p>Feeling pain meant that I was alive, that my sensory abilities worked as intended.</p>
 <p>"Haaah…" I exhaled the smoke with a sigh. Life was good. Life was beautiful.</p>

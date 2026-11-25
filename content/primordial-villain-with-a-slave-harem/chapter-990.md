@@ -33,7 +33,7 @@ chapter = 990
 <p>The fairy’s entire body jolted. She blinked. Then blinked again. Then once more. Her blinks increased in speed until they were practically a blur.</p>
 <p>"So Rosie’s my sister, and she’s my sister too?"</p>
 <p>"Yes! But to me, she’s my mother and my father is upon whose head I’m seated!"</p>
-<p>The blue creature became more lost by the second. She placed a finger on her chin, deep in thought, trying to wrap her head around it all. "So that means he’s also my papa? And she’s my sister... and papa’s my papa... so she and papa... but then... if Rosie is his daughter, and he’s her papa, and Serika is her mama, then..." ṚàℕꝊ𝔟Еṧ</p>
+<p>The blue creature became more lost by the second. She placed a finger on her chin, deep in thought, trying to wrap her head around it all. "So that means he’s also my papa? And she’s my sister... and papa’s my papa... so she and papa... but then... if Rosie is his daughter, and he’s her papa, and Serika is her mama, then..."</p>
 <p>Her little hands shot to her cheeks as her brain overheated.</p>
 <p>"D-Does that mean my sister is mating with my sister’s papa...!?"</p>
 <p>She turned even bluer, if such a thing were possible, and buried her face in Rosie’s hair again.</p>

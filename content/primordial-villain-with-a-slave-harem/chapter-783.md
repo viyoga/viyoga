@@ -22,7 +22,7 @@ chapter = 783
 <p>The selected lesser souls shimmered and materialized into the room from the pages of the ancient tome. This itself was quite the curious event in my eyes, because technically, it wasn't the Codex that housed the souls but my saber, the Mythic-rarity Soul Reaper.</p>
 <p>My working theory was that the Necromantic Codex acted as a proxy, allowing me to do my soul magic without having to summon the saber from my pocket ring. It's as if the two worked together seamlessly to make my life easier, transferring souls between one another without trouble.</p>
 <p>The three souls that materialized didn't resemble the shapes of their physical forms. There were no faces, no hands, no eyes. Just three pale orbs of light, each one a bit different in its hue and intensity.</p>
-<p>The beggar's orb was dull and small, sporting a sickly grayish blue color; the housewife's was slightly warmer, having a soft amber in it; the butcher's was brighter, letting a few red-tinted lines don the otherwise blue orb. РἈΝÒᛒÈš</p>
+<p>The beggar's orb was dull and small, sporting a sickly grayish blue color; the housewife's was slightly warmer, having a soft amber in it; the butcher's was brighter, letting a few red-tinted lines don the otherwise blue orb.</p>
 <p>They hovered for a moment, then began to tremble.</p>
 <p>Without any further warning, they collided in a rather violent manner. The fusion looked more like a massacre than a peaceful merging, like one soul was devouring the others while they each writhed in agony. Threads of spectral matter tore and tangled between them.</p>
 <p>Muffled screams echoed from within the orbs, echoes that weren't truly sound, just psychic impressions of fear and confusion the souls experienced in their final moments.</p>

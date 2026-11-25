@@ -27,7 +27,7 @@ chapter = 1106
 <p>"I will not cause problems."</p>
 <p>The venomous woman’s gait didn’t falter, but her disciple’s question followed right after.</p>
 <p>"Did you mean it, Master?"</p>
-<p>Black Fang halted mid-step. For a long second, she turned her head just enough for her sharp violet gaze to pin Vex. There was no answer, only scrutiny, dissecting her own disciple without a word. Then she resumed walking, silent as ever. Ṝ𝓪Ŋọ฿Ёś</p>
+<p>Black Fang halted mid-step. For a long second, she turned her head just enough for her sharp violet gaze to pin Vex. There was no answer, only scrutiny, dissecting her own disciple without a word. Then she resumed walking, silent as ever.</p>
 <p>But Vex was undeterred. "You’re a woman of your word, aren’t you? You might be many things—cold, terrifying, insufferably stubborn—but a liar? That, you’ve never been."</p>
 <p>Black Fang stopped again. Slowly this time, her chin tilted back, and her voice slid out in that razor-flat tone of hers. "What do you want?"</p>
 <p>Quinlan blinked at what his eyes observed next. He had seen many sides of Vex: wild, obsessive, vengeful, a woman brimming with love, but what she put on now was... surreal.</p>

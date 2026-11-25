@@ -24,7 +24,7 @@ chapter = 100
 <p>It's as if she was sculpted by the Goddess herself through great dedication and effort.</p>
 <p>The man speaks up, grabbing my attention, "let's make a deal, old man. You will use your contract magic and enter the exact clauses I tell you to onto this awesome young lady. If you do, I will grant you a swift, painless death."</p>
 <p>"... Alright." I knew something like this was coming, and I was resigned to my fate hours ago.</p>
-<p>"Now I want her to enjoy as much freedom as she possibly can while remaining my slave. That's all. Oh yeah, there's one more thing. Technically, she is ownerless... Is it possible to forge a document stating that I bought her from her master before he passed?" 𐍂ΑꞐоʙĘ§</p>
+<p>"Now I want her to enjoy as much freedom as she possibly can while remaining my slave. That's all. Oh yeah, there's one more thing. Technically, she is ownerless... Is it possible to forge a document stating that I bought her from her master before he passed?"</p>
 <p>"Hmm... If you have his blood we can make it into a blood contract."</p>
 <p>"I knew something like this would happen." The short woman states proudly.</p>
 <p>"Yeah-yeah. I'm lucky to have you by my side."</p>

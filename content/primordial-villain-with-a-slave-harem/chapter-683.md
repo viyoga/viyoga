@@ -27,7 +27,7 @@ chapter = 683
 <p>She put an extremely heavy emphasis on the word 'very,' letting me know I wasn't permitted to give her a name I found humorous.</p>
 <p>My dog girl knew me perfectly, for I was about to suggest calling her Geimette.</p>
 <p>"Name?" she asked, confused.</p>
-<p>"Just like I and your mothers have a personal name, so should you. We can't call you 'Geim,' that would just be plain distasteful. Giving you a proper name will make everyone's life easier and also give you a unique, personal flair." 𝙧â𐌽ȱ₿ЕŠ</p>
+<p>"Just like I and your mothers have a personal name, so should you. We can't call you 'Geim,' that would just be plain distasteful. Giving you a proper name will make everyone's life easier and also give you a unique, personal flair."</p>
 <p>"Okay, Daddy!"</p>
 <p>"What a well-mannered daughter you are…" I said, giving her trunk a few good strokes.</p>
 <p>"Ehehehe!"</p>

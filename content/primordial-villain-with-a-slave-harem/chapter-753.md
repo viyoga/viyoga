@@ -23,7 +23,7 @@ chapter = 753
 <p>Then came the vertigo.</p>
 <p>The world tilted.</p>
 <p>Not just the ground or the air, but reality itself felt off-axis.</p>
-<p>My vision started to swim, lines blurring and doubling. Every step forward felt like I was about to fall. My headache flared to a sharp, stabbing sensation. Ṝἁ𝐍ȱ𝔟ĚS</p>
+<p>My vision started to swim, lines blurring and doubling. Every step forward felt like I was about to fall. My headache flared to a sharp, stabbing sensation.</p>
 <p>But it was worth it: I simply needed mana to get out of here, as running on our feet wasn’t an option. We had to get to safety as soon as possible. As such, our only two options were to fly away with my wind powers or teleport away.</p>
 <p>I could feel the mana flooding back into my core, letting me know I was capable of casting what I needed.</p>
 <p>At the same time as I was running for Vex, the soul soldiers I had summoned with [March of the Damned] threw themselves against Leohtar Sunfang in a raging tidal wave. There was no hesitation. No fear. No strategy.</p>

@@ -27,7 +27,7 @@ chapter = 846
 <p>It was a silence sharpened by resolve.</p>
 <p>The kind that came right before a war conducted not to enrich oneself but for sheer survival.</p>
 <p>Serika’s green eyes lit up again. But this time with an entirely different kind of fire.</p>
-<p>Without warning, she slapped herself on both cheeks so fiercely that her palms left a fiery red imprint in their wake, then clapped her hands together with a sharp crack that rang through the clearing. Both Quinlan and Feng blinked at her in confusion. ř𝓪ＮỘʙĘ𝘴</p>
+<p>Without warning, she slapped herself on both cheeks so fiercely that her palms left a fiery red imprint in their wake, then clapped her hands together with a sharp crack that rang through the clearing. Both Quinlan and Feng blinked at her in confusion.</p>
 <p>But Serika was already in motion, leaping to her feet in a single, fluid movement. In one swift motion, she reached down beneath Quinlan’s arms and yanked him up to standing, even lifting him off the ground slightly in her eagerness.</p>
 <p>"No more gloom! My first student has a world-ending enemy to face!" she declared, her voice rising with fervor. "So I—Serika Vael, Fire Sovereign of Vulkaris—will do everything in my power to forge him into the strongest man alive! Laziness will not be tolerated!"</p>
 <p>Quinlan’s brows arched, a slow smile beginning to tug at his lips.</p>

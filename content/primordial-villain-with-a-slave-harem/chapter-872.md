@@ -41,7 +41,7 @@ chapter = 872
 <p>"I see,” she said simply.</p>
 <p>And then she launched herself forward, the air erupting with heat as her flames roared to life.</p>
 <p>Nalai staggered back a half-step in surprise, barely dodging the first blazing arc that carved a trench into the marble at her feet.</p>
-<p>"Are you mad?!” she hissed, throwing up a wall of seething blue water. “The battle’s over, Serika! Rongtai’s about to be executed! Your pitiful squad is getting torn apart! Quinlan will be overwhelmed within seconds!” ɽ𝓪ŊŐBĘＳ</p>
+<p>"Are you mad?!” she hissed, throwing up a wall of seething blue water. “The battle’s over, Serika! Rongtai’s about to be executed! Your pitiful squad is getting torn apart! Quinlan will be overwhelmed within seconds!”</p>
 <p>The force of the waters surged forward, trying to douse her sister’s fury.</p>
 <p>But Serika held firm, her stance wide, her breath even, her flames burning hotter than ever.</p>
 <p>"Then I’ll go down in a blaze of flames.”</p>

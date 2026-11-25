@@ -28,7 +28,7 @@ chapter = 1051
 <p>"You knew exactly what was happening!" Alexios pressed on, his words now heavy enough to crush human lives by themselves. "And you turned a blind eye to the suffering of my people! Whole villages, whole towns, overrun, desecrated by the filth!"</p>
 <p>His words lost their edge for a moment, but no one even dared to think it meant the king got the rage out of his system. "But why should Greenvale care?"</p>
 <p>He began pacing around Alastair like a predator.</p>
-<p>"The Sustaining Arm—the three non-frontier duchies—will bail you out, won’t they? Food losses? They’ll send shipments. Ruined peasant lives? They’ll send replacements. Collapsed infrastructure? They’ll rebuild it for you. So why bother fighting? Why not sit safe behind your city walls and boast about your ’strongest army ever’ while the people burn?" 𝐫𝖆₦Ộ𝖇ËŜ</p>
+<p>"The Sustaining Arm—the three non-frontier duchies—will bail you out, won’t they? Food losses? They’ll send shipments. Ruined peasant lives? They’ll send replacements. Collapsed infrastructure? They’ll rebuild it for you. So why bother fighting? Why not sit safe behind your city walls and boast about your ’strongest army ever’ while the people burn?"</p>
 <p>The booming voice returned when the king outright screamed, "ANSWER ME ALREADY, ALASTAIR!"</p>
 <p>"M-my king, I-I-"</p>
 <p>Hearing his nonsensical stammer, the king’s gaze turned dark, darker than ever before. Suddenly, his hand moved. And in that moment, the world seemed to slow. The sword he had left aside after Kaede’s display stirred alive, ripping itself from its resting place. It shot through the air with the deadly precision of a hawk diving on prey, turning in flight to meet his grip exactly as his arm came up in a swing.</p>

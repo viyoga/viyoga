@@ -27,7 +27,7 @@ chapter = 680
 <p>"Ghosty is sorry…" Blossom apologized cutely, her tail drooping behind her looking a lot like a girl caught in her first lie by her mother.</p>
 <p>Yoruha smiled, visibly finding the image just as adorable as I did. She then returned her attention to the Geim, with fingers tracing its surface once more. "A tree does not form attachments lightly. It knows its lifeblood. It knows its keeper."</p>
 <p>&lt;That fucking Geim…&gt; I growled inwardly. It didn’t tell me this ’little’ detail when handing its child over.</p>
-<p>&lt;It must’ve wanted to see if you would be a good parent for its offspring. You failed remarkably well, Quinnie,&gt; Lucille giggled at my misery with utmost amusement. ⱤаＮŏꞖЕ𐌔</p>
+<p>&lt;It must’ve wanted to see if you would be a good parent for its offspring. You failed remarkably well, Quinnie,&gt; Lucille giggled at my misery with utmost amusement.</p>
 <p>&lt;I mean, what more was I supposed to do? I got it five hot elf chicks as its full-time, devoted mommies, if that’s not a sign of utmost care from its father then what is? Although I can’t complain about my childhood, I would’ve been the coolest kid on the block if these five babes were the ones to take me to elementary school instead of my father. Furthermore, I even did my business in a bucket many times-&gt; I was interrupted by Ayame.</p>
 <p>&lt;No need for the details, thanks. Also, you’re thinking with your lower brain. Yoruha even said not to think of it as if it were a humanoid baby. Just because your depraved brain thinks having five elven… what was the word you had on Earth?&gt;</p>
 <p>&lt;Milfs,&gt; Lucille quickly offered her assistance while shuddering from head to toe, doing her utmost not to burst out into laughter.</p>

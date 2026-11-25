@@ -24,7 +24,7 @@ chapter = 700
 <p>Anyhow. Knowing we were about to move out, I addressed my father-in-law. "Papa Vargis, this kind, humble, and loving son of yours would like to ask a big favor."</p>
 <p>"No," he grunted without even hearing me out.</p>
 <p>I ignored him. "My allies and I would like to gain access to your armory, our gear is lacking a bit." Back when I joined the resistance armies, I thought beastkin didn't like using weapons and armor due to their great pride, but as it would turn out, that was only true for the apex races that had great innate physical advantages.</p>
-<p>The dogkin and foxkin, as well as other non-apexes, had no issue using weapons and armor. Their stuff wasn't as great as what could be found in the other two countries for they lacked good artificers, but I thought I might as well rummage through his properties in search of a few good pieces. ℟ÀℕőBÊꞨ</p>
+<p>The dogkin and foxkin, as well as other non-apexes, had no issue using weapons and armor. Their stuff wasn't as great as what could be found in the other two countries for they lacked good artificers, but I thought I might as well rummage through his properties in search of a few good pieces.</p>
 <p>His lips twitched in sheer irritation. "Aren't you adored by that Black Fang woman? Go ask your sugar mommy."</p>
 <p>"Now-now, Papa Vargis. Unlike you, Lady Black Fang is not family. She expects I return the favor, and I already owe her for the 500 gold I asked from her."</p>
 <p>"Sucks to be you."</p>

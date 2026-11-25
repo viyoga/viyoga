@@ -25,7 +25,7 @@ chapter = 483
 <p>"She's only loaning him to you, not gifting permanently. As you can see, he'd been enslaved so he can't resist, but she plans to give him back to the Duke alongside a kindly worded apology letter, so treat him well. As for why give him to you in specific, that's because he is an Electromancer. You learned magma from fighting a deviant mancer, so she thought that you would appreciate this little gesture from us."</p>
 <p>My lips immediately curled upwards into a twisted smile.</p>
 <p>A sign-up bonus, huh…</p>
-<p>This woman called Black fang certainly knew how to warm herself up to my heart without even meeting me once. I suddenly had a lot more positive image of her in my head than I did a moment ago. ɽἁ𝐍𝔬฿ƐＳ</p>
+<p>This woman called Black fang certainly knew how to warm herself up to my heart without even meeting me once. I suddenly had a lot more positive image of her in my head than I did a moment ago.</p>
 <p>…</p>
 <p>I took temporary ownership of the Electromancer called Volt and soon found myself back at home. Naturally, I didn't bring him to my home, because I had to give him back in the future and if he saw my [Warp Gate], that would make life 'a bit' harder for me. I also couldn't [Subjugate] him because he was already enslaved. My [Subjugation] would overwrite the contract, letting Black Fang or whoever was behind his enslavement know that something was up. Therefore, I tasked Kaelira and her team with taking him to a location on foot.</p>
 <p>Before I could decide where exactly he should be taken to for me to learn the element from him, I rushed to my room, took a seat on my favorite sofa, and brought my saber out.</p>

@@ -38,7 +38,7 @@ chapter = 45
 <p>[Unused Skill Points: 12]</p>
 <p>[Unused Attribute Points: 0]</p>
 <p>I decided to spend my Unused Attribute Points on Vitality, Agility and Strength relatively evenly this time around.</p>
-<p>I'm happy to see that three of my classes have leveled up significantly as well. The fact that Slave Master gained four levels just shows how much of a beast Ayame was in this battle. She definitely did more than what one could expect from a level 14 combatant, especially considering the shoddy state of her gear. 𝘙𝘢Ꞑ𝖔ᛒЁ𝙨</p>
+<p>I'm happy to see that three of my classes have leveled up significantly as well. The fact that Slave Master gained four levels just shows how much of a beast Ayame was in this battle. She definitely did more than what one could expect from a level 14 combatant, especially considering the shoddy state of her gear.</p>
 <p>After thoroughly searching the battlefield and finding no other valuables, we make our way toward the monster camp. The camp is surrounded by a crude palisade made from sharpened tree trunks, haphazardly placed yet intimidating enough to deter less intelligent intruders. Inside, the camp is a mess of tents made from tree branches, tattered cloth, and animal hides.</p>
 <p>A pungent smell of decay and waste fills the air, making it clear that this place was never meant for comfort or cleanliness.</p>
 <p>The goblins' crude dwellings house nothing noteworthy- just piles of bones, broken weapons, and other worthless trinkets. We step over discarded refuse and scattered bones as we move further into the camp, our weapons at the ready in case of any lingering threats.</p>

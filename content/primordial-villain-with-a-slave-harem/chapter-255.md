@@ -28,7 +28,7 @@ chapter = 255
 <p>Seeing her shocked reaction I broke out into a hearty laughter despite trying my best not to. I couldn't help it.</p>
 <p>"What's so funny?! Stop making fun of this lady, young man!"</p>
 <p>"Hahaha! Sorry, sorry. It's just that I'm only like 30% erect right now."</p>
-<p>"It's not funny, Quinlan. You are already big enough, there's no need to feel ashamed of your penis. It's a perfectly healthy size. I know you men like to compare, so I if it makes you feel better about yourself, I can tell you that you are bigger than Robert." ⱤàΝÓꞖĘṦ</p>
+<p>"It's not funny, Quinlan. You are already big enough, there's no need to feel ashamed of your penis. It's a perfectly healthy size. I know you men like to compare, so I if it makes you feel better about yourself, I can tell you that you are bigger than Robert."</p>
 <p>"Thanks for the kind words, old lady, but you better stop using the panty pooper as a man to compare me to or you will rush to the administrative buildings first thing tomorrow morning to finalize your divorce."</p>
 <p>Lucille stared into my eyes, trying to ascertain whether I was just making fun of her or being serious. For whatever reason she decided to go with the former as she scoffed dismissively. "Hmph. I will never understand why you men need to feel so insecure about your size, especially in your case when you have a perfectly healthy and good-looking penis.</p>
 <p>I've heard so many male guests talk about this topic while eating, always trying to one-up the other. It's pathetic if you ask me."</p>

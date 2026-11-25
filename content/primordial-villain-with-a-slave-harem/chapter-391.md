@@ -35,7 +35,7 @@ chapter = 391
 <p>"No one will kink shame you in my harem, that I can promise. Well, perhaps you will get some cute, endearing names such as Maso Pig." I said, heroically trying to lessen her mental distress.</p>
 <p>I was very unsuccessful for some reason.</p>
 <p>"What do you mean endearing name?! I would die of shame!"</p>
-<p>*Pwaah!* An extremely lewd sound emerged from behind me as Blossom's tongue exited the depths of my backdoor. "Ayame called Blossom an Ass Eater just minutes ago! She has no grounds to protest, or she is an ugly hypocrite!" ℟ã𐌽ổʙÈš</p>
+<p>*Pwaah!* An extremely lewd sound emerged from behind me as Blossom's tongue exited the depths of my backdoor. "Ayame called Blossom an Ass Eater just minutes ago! She has no grounds to protest, or she is an ugly hypocrite!"</p>
 <p>"Ugh." Ayame could only grunt miserably in response and heavily regret her past actions.</p>
 <p>"I'm going in again." I announced as I pulled back all the way, paused for a moment while taking a deep breath, and then rammed with force.</p>
 <p>"GGGgggggoodddeeeeeessssssss!" Another ecstatic shriek welcomed my efforts, and as I continued repeating this process, I couldn't help but notice that her pussy kept clenching and unclenching around me. As I rammed in, she would tighten around me with all her strength, but once her body realized that I was pulling out in order to get ready for the next assault, it would immediately let go of me. It felt as if she were instinctively trying to milk every last drop of my seed.</p>

@@ -25,7 +25,7 @@ chapter = 182
 <p>Your m,v,l,e,m,p,y,r story</p>
 <p>I take a deep breath and extend a finger towards the button. My hand hovers for a moment as I hesitate, weighing the risks, but then I press it down with a firm click.</p>
 <p>For a split second nothing happens and I start to think that I've made a huge mistake. What if it closes the adamantite door on me, trapping me inside like a dumb little wannabe thief?</p>
-<p>However, in the next moment the entire artifact begins to hum with energy with the runes on its surface glowing even brighter than before. My heart skips a beat as I brace myself for an explosion or some sort of magical backlash. R̃ÅƝÓᛒËs</p>
+<p>However, in the next moment the entire artifact begins to hum with energy with the runes on its surface glowing even brighter than before. My heart skips a beat as I brace myself for an explosion or some sort of magical backlash.</p>
 <p>Instead, the artifact begins to shrink before my very eyes.</p>
 <p>The massive, towering monolith contracts, its shimmering surface rippling like water as it condenses down to a fraction of its original size. In a matter of seconds, it's no bigger than the palm of my hand, a sleek, compact version of its former self. It even released its holds on the floor automatically.</p>
 <p>"What the-" I blink in disbelief as I open my palm wide to welcome the artifact, which seems to wish to be placed in the hand that pressed the button. How luxurious, I don't even need to pick it up from the ground… I turn it over in my hand, marveling at how something so large and powerful has been reduced to this size.</p>

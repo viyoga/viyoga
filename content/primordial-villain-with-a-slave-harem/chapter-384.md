@@ -27,7 +27,7 @@ chapter = 384
 <p>"Which we hope will not only help you heal any lingering trauma but ascertain the fact in your brain, once and for all, that while mothers are good, lovers is where it's truly at." Lucille explained.</p>
 <p>"Y-yes!" Blossom shouted cutely as she uh… finished.</p>
 <p>I don't know what to say. I love all four of them just so damn much.</p>
-<p>"The outfits were my idea, I know you're a hopeless pervert and the men in my clan loved it when their women wore similarly slutty clothes." Ayame stated with pride and a strong hint of embarrassment evident on her rosy cheeks before she continued; "the mansion renting was Lucille's and what's coming up next was Aurora's input." ⱤἁNO͍₿ΕṢ</p>
+<p>"The outfits were my idea, I know you're a hopeless pervert and the men in my clan loved it when their women wore similarly slutty clothes." Ayame stated with pride and a strong hint of embarrassment evident on her rosy cheeks before she continued; "the mansion renting was Lucille's and what's coming up next was Aurora's input."</p>
 <p>"What's coming up next?" I asked curiously. "By the way, just for the record, I love both the harem attire and the mansion idea. I hope you bought the outfit and not rented, you'll be wearing them a lot in the future."</p>
 <p>"… Bought." Ayame replied shyly.</p>
 <p>"For my part of the plan, you have to lie down on the bed, onto your stomach." My pampered princess instructed with an enthusiastic smile.</p>

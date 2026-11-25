@@ -25,7 +25,7 @@ chapter = 971
 <p>His core surged, the thrum of his soul force vibrating against Sareth’s suppression. A second later, something snapped.</p>
 <p>Reality cracked.</p>
 <p>A spiral of chaotic magic snapped open with a hiss, and from within stepped Vex.</p>
-<p>Sareth’s gaze finally moved from Quinlan, though only after studying his spell for a short bit. Teleportation was more or less a myth in Thalorind, so her mild reaction to seeing it first-hand went to show just how hard it was to bring her out of her rhythm. RÂ₦ỌВËS</p>
+<p>Sareth’s gaze finally moved from Quinlan, though only after studying his spell for a short bit. Teleportation was more or less a myth in Thalorind, so her mild reaction to seeing it first-hand went to show just how hard it was to bring her out of her rhythm.</p>
 <p>Then, her eyes landed on Vex.</p>
 <p>Her expression didn’t change, but her cold voice rolled out for the first time.</p>
 <p>"Black Fang’s baby chick is here."</p>

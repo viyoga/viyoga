@@ -24,7 +24,7 @@ chapter = 168
 <p>The thought crosses my mind for a moment before I shrug my shoulders. That's just boring and so not my style.</p>
 <p>With a cold smirk, I lift my boot and drive it hard into the face of the fool worshiping my feet. There's a sickening crunch as my heel connects with his teeth, blood spurting as he lets out a wail of pain, now sprawled on the ground.</p>
 <p>"Lady Iris…!" he groans, his voice a twisted mixture of agony and adoration as he clutches his mouth.</p>
-<p>"Shut up," I spit at him, literally, letting a glob of saliva hit his cheek. He winces, but even in his pain, there's a sick, twisted reverence in his eyes. I glance at the others, and for the first time, they aren't so eager to get their turn at my attention. ṟаɴοВĚ§</p>
+<p>"Shut up," I spit at him, literally, letting a glob of saliva hit his cheek. He winces, but even in his pain, there's a sick, twisted reverence in his eyes. I glance at the others, and for the first time, they aren't so eager to get their turn at my attention.</p>
 <p>The sight of their comrade writhing on the ground, blood spilling from his broken teeth, seems to have sobered these hopeless perverts up- at least a little.</p>
 <p>"Getting spat on would be an amazing reward for you lot I imagine…" I mutter with satisfaction, my eyes narrowing as I take in their sudden silence. "But losing your teeth and the function of your jaws? Seems to be a bit too much, huh?"</p>
 <p>They all avoid my gaze, the earlier desperate pleas for my 'discipline' now replaced with uneasy shuffling. Good. I like them better this way. At least they're not completely brainless.</p>

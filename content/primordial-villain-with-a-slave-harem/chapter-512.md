@@ -27,7 +27,7 @@ chapter = 512
 <p>Hearing this, Clarisse straightened her spine and grumbled, "I’m a proud and professional maid, I would never have a heart attack from my lord’s powers!"</p>
 <p>Jasmine giggled at this nonsensical line before glancing around at our surroundings. "So this is your home. I already love it."</p>
 <p>"Good, I’m sorry for having to cut our date short, I’ll make it up to you."</p>
-<p>Jasmine flashed me a beautiful smile before shaking her head, "There’s no need for that. I already had a wonderful time. You’ll attack the twins, won’t you? Good luck, husband… I’ll think of you with a heavy heart while praying to the Goddess for your safe return like any good wife should." 𝖗𝒶Ν𝔬ᛒƐ𝘚</p>
+<p>Jasmine flashed me a beautiful smile before shaking her head, "There’s no need for that. I already had a wonderful time. You’ll attack the twins, won’t you? Good luck, husband… I’ll think of you with a heavy heart while praying to the Goddess for your safe return like any good wife should."</p>
 <p>She followed her declaration up by quickly dashing into my arms for a warm hug before detaching herself as she knew I was in a hurry.</p>
 <p>"Anna, Beatrice, she is Jasmine, my fifth woman and she is Clarisse, your new tutor. Show them around my home."</p>
 <p>"Yes, Lord Quinlan!" They bowed and scurried to carry out my orders.</p>

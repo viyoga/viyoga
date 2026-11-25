@@ -32,7 +32,7 @@ chapter = 676
 <p>"Well, that's because I've never gotten such a nice gift before…"</p>
 <p>"So Lord Black was right!"</p>
 <p>"Hmm?"</p>
-<p>"Back during the auction, he saw my distress when every item they brought to the podium didn't feel worthy as a present for your 1000th birthday. I was starting to panic, thinking I would go back empty-handed, and that was when he spoke to me for the first time. He said any good father would appreciate a gift their child makes for them through effort instead of paying a large sum of money for a shiny gift." ṝάƝồＢÊʂ</p>
+<p>"Back during the auction, he saw my distress when every item they brought to the podium didn't feel worthy as a present for your 1000th birthday. I was starting to panic, thinking I would go back empty-handed, and that was when he spoke to me for the first time. He said any good father would appreciate a gift their child makes for them through effort instead of paying a large sum of money for a shiny gift."</p>
 <p>For the first time, the king addressed me directly. "… I have numerous reservations toward you, Black, and I frankly don't agree with my wife's decision to let an adult man chat with my young daughter, but I must say my thanks. It's been a long time since my old heart skipped a beat."</p>
 <p>"Lord Black is not a bad man!"</p>
 <p>Felicity's innocent shout was ignored by both of us.</p>

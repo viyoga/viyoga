@@ -30,7 +30,7 @@ chapter = 143
 <p>She simply nods eagerly.</p>
 <p>"Then in an hour please bring us some refreshments."</p>
 <p>"Understood, sir!" Oh, she finally seems to have regained some confidence.</p>
-<p>I flash her a smile which earns me another flustered reaction from her, Then I turn towards the stairs and enter our designated room. Once inside, I let Blossom down from my arms and look at her intently. She squirms under my gaze both due to her nervousness, guilt and badly hidden excitement. ȓаΝоВΕṩ</p>
+<p>I flash her a smile which earns me another flustered reaction from her, Then I turn towards the stairs and enter our designated room. Once inside, I let Blossom down from my arms and look at her intently. She squirms under my gaze both due to her nervousness, guilt and badly hidden excitement.</p>
 <p>"What do you have to say for yourself?"</p>
 <p>Blossom's eyes flicker nervously to the floor as she fails to hold my gaze, her shoulders slightly hunched as if trying to make herself smaller. Her fingers begin to fiddle with each other in front of her body, twisting and tangling like a child who was caught in the act of mischief.</p>
 <p>Her ears, usually perked up and alert, droop slightly, and her tail- normally wagging energetically- hangs low, brushing against the floor. The guilt is evident in her every movement, but there's also a spark of excitement she can't quite hide, betraying her anticipation for what's to come.</p>

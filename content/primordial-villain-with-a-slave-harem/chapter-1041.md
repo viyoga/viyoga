@@ -24,7 +24,7 @@ chapter = 1041
 <p>She sent Serika a disapproving gaze, but the woman wasn’t part of the harem chat yet. As such, Serika only blinked at Iris with her usual calm confidence.</p>
 <p>Iris sighed and returned her attention to Quinlan. &lt;You better stop treating me as if we’re really in a relationship. All we are is comrades in arms... who happen to be undercover today.&gt;</p>
 <p>She added, almost teasingly, &lt;I’m free to meet any man I like, and all you can do is... Well, nothing.&gt;</p>
-<p>The expression that crossed Quinlan’s face at those words was... dangerous. A sharp, possessive edge carved into his features, one that made it clear exactly how he felt about that train of thought. Рä₦ổＢË𝐒</p>
+<p>The expression that crossed Quinlan’s face at those words was... dangerous. A sharp, possessive edge carved into his features, one that made it clear exactly how he felt about that train of thought.</p>
 <p>And for some reason, it made the Child of Reckoning’s lips form a big grin. An uncharacteristic, amused smile slipped out from her usual cold exterior. &lt;You’re far too easy to read.&gt;</p>
 <p>Iris lifted her hand and she flicked Quinlan’s forehead with a powerful *thwack!* Iris was much more comfortable making such gestures instead of hugging and crying. It was not nearly enough to hurt someone of his status, of course. Just a little gesture.</p>
 <p>At least, that’s what she thought.</p>

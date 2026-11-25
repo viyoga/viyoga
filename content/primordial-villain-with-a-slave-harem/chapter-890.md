@@ -30,7 +30,7 @@ chapter = 890
 <p>But as she struggled, her movements slowed.</p>
 <p>Because deep down, Feng knew something else. Something incredibly important if she was serious about Quinlan and the future.</p>
 <p>So the girl stopped her screeching and flailing.</p>
-<p>Feng Jiai wasn’t dumb. She girl knew that annoying Quinlan by being a stuck-up, unwanted little nuisance in his side right now would only piss him off. 𝙧Äɴö𝔟ĚṠ</p>
+<p>Feng Jiai wasn’t dumb. She girl knew that annoying Quinlan by being a stuck-up, unwanted little nuisance in his side right now would only piss him off.</p>
 <p>And she hated that. She refused to be that much of a sore loser. She would be a patient woman who played the long game instead of ruining everything with shortsightedness.</p>
 <p>So she huffed, her arms falling uselessly to her sides.</p>
 <p>Still, Serika didn’t even register her. The woman was in some kind of kiss-fueled trance, her body locked in harmony with Quinlan’s, the Still Heart clearly spiraling into some unconscious flow state she hadn’t planned for.</p>

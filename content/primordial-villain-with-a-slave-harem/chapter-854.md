@@ -38,7 +38,7 @@ chapter = 854
 <p>"Where Queen Nalai resides,” he finished for her.</p>
 <p>Serika nodded while doing her utmost to overpower him.</p>
 <p>His bloodied lips curled into a savage smile. “Now that’s a place worth burning to the ground.”</p>
-<p>They pushed harder against each other with their arms trembling, ground cracking beneath their locked bodies, qi spiraling like a brewing storm. Neither gave way. 𝘳âŊỒ𝖇Ęṩ</p>
+<p>They pushed harder against each other with their arms trembling, ground cracking beneath their locked bodies, qi spiraling like a brewing storm. Neither gave way.</p>
 <p>Not an inch.</p>
 <p>The clearing trembled around them.</p>
 <p>The sun burned overhead.</p>

@@ -33,7 +33,7 @@ chapter = 583
 <p>My biggest concern in joining the ongoing battle was that once it became clear I was a bigger threat than these archers, they would give chase and not let me breathe—or even worse, farm XP.</p>
 <p>I nodded to myself, happy with the sight my eyes were showing. My targets were preoccupied enough now with their focus drawn entirely toward cutting down as many beastkin fliers as possible.</p>
 <p>No one would be looking upward—not until it was too late.</p>
-<p>I gave BunBun the signal, intent on repeating a similar maneuver to what we’d done before. Like the obedient steed she was, she instantly listened, dropping me into a freefall aimed right at my first target. I welcomed gravity’s ruthless pull to take control of my body, drastically increasing the velocity of my incoming strike. ṙ𝘢ℕO͍𝔟Еṥ</p>
+<p>I gave BunBun the signal, intent on repeating a similar maneuver to what we’d done before. Like the obedient steed she was, she instantly listened, dropping me into a freefall aimed right at my first target. I welcomed gravity’s ruthless pull to take control of my body, drastically increasing the velocity of my incoming strike.</p>
 <p>An exhilarated grin found its way to my lips when I felt the wind scream in my ears as I plummeted like a falling star toward the unsuspecting lionkin formation below.</p>
 <p>The first rider never saw me coming.</p>
 <p>My saber made a gorgeous arc through the air, accompanied by the dance of its ethereal, ghostly blue flames before slicing clean through flesh and bone as I decapitated the lionkin from above. His headless body slumped forward before—with magnanimous help from my boot—slipping off the saddle and tumbling toward the battlefield below.</p>

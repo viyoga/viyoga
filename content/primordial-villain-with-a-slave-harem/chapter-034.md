@@ -45,7 +45,7 @@ chapter = 34
 <p>[Wisdom: 11]</p>
 <p>[Unused Skill Points: 3]</p>
 <p>[Unused Attribute Points: 5]</p>
-<p>I spend a single skill point on the Warrior spell [Power Strike], then leave the last two to be decided later. My future literally depends on this decision, I can't rush it unless my life is in mortal danger. [Power Strike] is just too good to pass on in my opinion. It's a simple spell that uses five mana to make my next strike deal fifty percent extra damage with a cooldown of twenty seconds. ṙἈNȎВÈȿ</p>
+<p>I spend a single skill point on the Warrior spell [Power Strike], then leave the last two to be decided later. My future literally depends on this decision, I can't rush it unless my life is in mortal danger. [Power Strike] is just too good to pass on in my opinion. It's a simple spell that uses five mana to make my next strike deal fifty percent extra damage with a cooldown of twenty seconds.</p>
 <p>With my current 110 Mana I can use this Spell quite a lot.</p>
 <p>All of my opponents needed two hits of my iron spear so far. With this, I hope to be able to one shot the rabble.</p>
 <p>As for my unused attribute points I divide it by putting three into Vitality and two into Agility. Yeah, Strength is cool but I wanna survive first.</p>

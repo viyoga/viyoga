@@ -29,7 +29,7 @@ chapter = 787
 <p>With a twitch of my fingers, the water in the air condensed, swirling around me. They twisted through my hair, slicked down my skin, scrubbed gently at the grime, and finally spiraled away, clean. Another motion, and a breeze brushed past my body, drying me in seconds. My clothes materialized from my inventory and fit into place with great comfort. This time, I elected to go for a black tunic, belt, coat, and gloves.</p>
 <p>Still, Vex wasn't done.</p>
 <p>Naturally.</p>
-<p>I crossed my legs and sat at the edge of the room, letting my fingers drum idly against the armrest of a nearby chair, passing time by inspecting the soul count again and wondering just how fucked the Consortium was. ℟äŊo͍฿Ę§</p>
+<p>I crossed my legs and sat at the edge of the room, letting my fingers drum idly against the armrest of a nearby chair, passing time by inspecting the soul count again and wondering just how fucked the Consortium was.</p>
 <p>The 30,000 soldiers they dispatched wasn't all their power, but the Consortium suffered a heavy blow while the Greenvale family and their many vassals had years to prepare as due to the infighting of the beastkin, they hadn't had a skirmish in years.</p>
 <p>But after what felt like an entire military campaign passing by…</p>
 <p>*Click.*</p>

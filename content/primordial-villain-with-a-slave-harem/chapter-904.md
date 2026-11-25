@@ -26,7 +26,7 @@ chapter = 904
 <p>"Mnnnn! Fine!" she finally squeaked, cheeks puffed. "I’m coming with you!"</p>
 <p>Quinlan’s smile turned downright victorious.</p>
 <p>"Good girl," he murmured.</p>
-<p>And with no further warning, his palms shot out and clapped firmly against her lush, proud mounds, one mighty smack landing on each side through the thin, stretched fabric of her battle-worn attire. ȓ𝘼NỔBЕṥ</p>
+<p>And with no further warning, his palms shot out and clapped firmly against her lush, proud mounds, one mighty smack landing on each side through the thin, stretched fabric of her battle-worn attire.</p>
 <p>*SLAP!*</p>
 <p>A shuddering ripple danced across her curves, clearly visible through the clingy fabric. It was an audacious, claiming motion that left no room for argument.</p>
 <p>"!!" Serika yelped, the shock jolting through her system as her whole body arched in reflex. Her eyes flew wide open, cheeks exploding into molten red. "W-What are you doing?! You’re no longer a weakling, watch your strength-!"</p>

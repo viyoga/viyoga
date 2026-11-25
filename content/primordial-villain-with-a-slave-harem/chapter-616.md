@@ -23,7 +23,7 @@ chapter = 616
 <p>My mind cast aside the fleeting, brittle nature of loose soil and shifting sand, focusing instead on the unyielding essence of the earth—the ancient stones that had weathered time itself.</p>
 <p>I envisioned the immovable behemoths of the world: the mountains that stood defiant against the howling winds, the unbroken boulders that had withstood the fury of countless storms, quakes, and eruptions. Their weight, their permanence, their sheer dominance over the passage of time—all of it flowed from my mind right into my magic.</p>
 <p>With a slow, deliberate motion, I parted my arms wide.</p>
-<p>The air behind me rumbled as reality bent to my command. Hundreds of massive stone chunks materialized into existence in perfect synchrony, solid as the foundations of the world itself. They hovered behind me like a divine arsenal, my jagged monoliths waiting to be unleashed. 𝑅𝒶ΝÓꞖЁ𝙎</p>
+<p>The air behind me rumbled as reality bent to my command. Hundreds of massive stone chunks materialized into existence in perfect synchrony, solid as the foundations of the world itself. They hovered behind me like a divine arsenal, my jagged monoliths waiting to be unleashed.</p>
 <p>Next, wind roared to life once again, wrapping around each floating slab. Then, my parted arms flung forward, toward my incoming opponents. This was the moment I let go.</p>
 <p>As many mighty gusts as there were summoned rocks surged forth, flinging them with cataclysmic force.</p>
 <p>The air cried sharply as the giant wave of boulders tore through the skeletons like divine judgment. Bones shattered like glass upon impact, and skulls caved in before their owners could even register the assault. Their bodies pulverized under the sheer weight of the airborne barrage.</p>

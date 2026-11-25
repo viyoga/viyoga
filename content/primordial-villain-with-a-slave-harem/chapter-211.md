@@ -27,7 +27,7 @@ chapter = 211
 <p>Aurora, seemingly realizing something, snaps her head back to me. "Wait, you didn't spend a high tier potion on me, right?!"</p>
 <p>"What's with this reaction? We did, but don't worry about it." I state with a bit of puzzlement in my tone.</p>
 <p>"At least tell me you didn't pay more than 30 silvers."</p>
-<p>I don't know the answer so I glance at Ayame. "It was 35. I didn't exactly have the luxury of looking for the best deals in town, since someone was busy dying." She says defensively, shifting the blame from herself to Aurora. Ȓ𝐚𝐍о฿Ɛș</p>
+<p>I don't know the answer so I glance at Ayame. "It was 35. I didn't exactly have the luxury of looking for the best deals in town, since someone was busy dying." She says defensively, shifting the blame from herself to Aurora.</p>
 <p>"Curses!"</p>
 <p>"What's the issue? Be happy you survived." Ayame chides the disgruntled platinum haired girl.</p>
 <p>"*Sigh*. You are right. It's just, I can make one for 5 silver at most, and so can other highly talented alchemists. If they are average and mess up a few times, it will still not be more than 15 coins. Horrible alchemists who have a really embarrassing elixir concoction success rate might need 25 silvers, but even then...</p>

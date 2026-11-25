@@ -25,7 +25,7 @@ chapter = 972
 <p>Kitsara finally forced a spell through, casting [Illusory Echo Shell] around Quinlan’s body to produce phantoms of movement. It gave Sareth pause.</p>
 <p>"Good girl!" Vex congratulated while engaging in a flurry of blows with the woman.</p>
 <p>"Don’t patronize me, you horny lunatic!" Kitsara snapped at her, though she was gasping for air just from a single cast. "You were the one moaning about being milked dry three days ago!"</p>
-<p>"Less kink talk, more death spells! Can’t you remain professional even in this situation, you damned sluts?!" Feng shouted, slamming her Gremlord palms together. ᚱ𝒶Νȱ𝐁Ɛ𝙨</p>
+<p>"Less kink talk, more death spells! Can’t you remain professional even in this situation, you damned sluts?!" Feng shouted, slamming her Gremlord palms together.</p>
 <p>[Chaotic Sigil: Glitched Reality]</p>
 <p>A burst of unhinged energy exploded forth from her palms. These were neon lines that zigzagged through the air, slicing through space like corrupted code, and punched directly into the core of Sareth’s gravitational field.</p>
 <p>The entire battlefield hiccuped.</p>

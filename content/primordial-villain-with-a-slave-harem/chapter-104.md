@@ -23,7 +23,7 @@ chapter = 104
 <p>A Primordial..."</p>
 <p>Tears well up in her eyes as she looks down at me, clearly torn between wanting to believe me and the sheer terror of seeing me in such agony. She clutches my hand tightly, her voice trembling. "But Master... it looks so painful... Blossom doesn't want Master to suffer..."</p>
 <p>I grit my teeth, the pain intensifying as my bones continue to snap and rearrange, my muscles burning with the force of their rapid growth. "It is... painful... but it's necessary..."</p>
-<p>'Why the fuck is this so painful?! I thought it would just make my dick bigger and able to shoot its juices more often… It's worse than my first transformation! Goddess, I really need an explanation!!!' I exclaim inwardly. Fucking system and its shit descriptions. Did a first grader write those messages? Does the Goddess suffer from dysgraphia? Ɍ𝘈₦ОВÈꞨ</p>
+<p>'Why the fuck is this so painful?! I thought it would just make my dick bigger and able to shoot its juices more often… It's worse than my first transformation! Goddess, I really need an explanation!!!' I exclaim inwardly. Fucking system and its shit descriptions. Did a first grader write those messages? Does the Goddess suffer from dysgraphia?</p>
 <p>There was literally no warning that I would have to go through this horrible experience again.</p>
 <p>Blossom's grip on my hand tightens, her expression a mixture of fear and helplessness. She doesn't let go, though, staying right by my side as my body contorts and stretches, her presence a comfort amidst the storm of physical torment. Every inch of my being screams in protest as I grow taller, broader, more powerful, but I focus on her, on the concern in her eyes.</p>
 <p>It gives me the strength to endure the crippling pain.</p>

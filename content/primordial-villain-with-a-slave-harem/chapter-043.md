@@ -33,7 +33,7 @@ chapter = 43
 <p>We stand no chance at smuggling her back in our current state."</p>
 <p>"The mistress is right. Blossom can't become free." She says with a lifeless expression.</p>
 <p>"Alright, then how about becoming my slave instead?"</p>
-<p>Her expression doesn't change as she simply shakes her head. I can tell what she is thinking; I might be nice for now but once I'm her owner I will surely reveal my true colors. 𝐫ά₦ò𝔟Êş</p>
+<p>Her expression doesn't change as she simply shakes her head. I can tell what she is thinking; I might be nice for now but once I'm her owner I will surely reveal my true colors.</p>
 <p>Ayame decides to speak up, "Blossom, take a look at my neck."</p>
 <p>She does as instructed and in the next moment her eyes widen with shock. "What?! Mistress is a slave? But…"</p>
 <p>"But my master treats me like a cherished companion, right?" She finishes Blossom's statement with a happy smile on her face.</p>

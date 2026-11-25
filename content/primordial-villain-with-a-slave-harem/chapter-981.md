@@ -29,7 +29,7 @@ chapter = 981
 <p>"... That’s a valid point, Miss Yandere!" the princess yelped as realization hit her. "Make sure to make some believable mistakes in the next one!" Felicity whispered again. "Okay, this one’s a logic puzzle!..."</p>
 <p>The questions came and went as the girls solved them together, working in sync, using each other’s areas of expertise. Ayame, Seraphiel, and Lucille had a high noble’s training, so they could chime in the most. But Aurora and Jasmine had their own specialties where they outshone the others. Even those who sat out most questions had some where they could chime in, mostly the logical ones.</p>
 <p>After a bit, Felicity gasped in awe as Blossom’s quite ingenious problem-solving received some spotlight when the question was about food distribution.</p>
-<p>"Genius! Literal geniuses! My brain is glowing right now! Okayokayokay last one!! A merchant- oh wait, this one’s about weights. Okay! If a box of enchanted ink weighs 3.2kg, and one case holds 12 boxes, how much does five cases weigh?" ＲäŊȪ𝔟ĚS̈</p>
+<p>"Genius! Literal geniuses! My brain is glowing right now! Okayokayokay last one!! A merchant- oh wait, this one’s about weights. Okay! If a box of enchanted ink weighs 3.2kg, and one case holds 12 boxes, how much does five cases weigh?"</p>
 <p>"These questions are a bit elementary for your age, no?" Ayame asked all of a sudden, surprised by the ease of some of the test questions.</p>
 <p>"!!! Miss Black, don’t do this to me, please!" Felicity cried with great alarm. "Don’t analyze the level of my math solving skills!"</p>
 <p>"... My bad." Ayame sighed with a little giggle accompanying the exasperated sigh. "Write this as a solution. 3.2 x 12 = 38.4. Then 38.4 x 5 = 192."</p>

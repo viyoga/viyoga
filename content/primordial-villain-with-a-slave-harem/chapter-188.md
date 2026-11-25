@@ -25,7 +25,7 @@ chapter = 188
 <p>"Huh?! I think I heard that wrong."</p>
 <p>"You didn't."</p>
 <p>"Then I will have to refuse."</p>
-<p>I let out a sigh. I knew she wouldn't follow my plan without a good explanation. What I'm asking from her isn't part of her combat slave contract obligations at all, so it allows her to ignore my command. Ṟ𝓪ɴȏᛒΕⱾ</p>
+<p>I let out a sigh. I knew she wouldn't follow my plan without a good explanation. What I'm asking from her isn't part of her combat slave contract obligations at all, so it allows her to ignore my command.</p>
 <p>"Hear me out. The monster attack that gave us this opportunity is a giant pack of werewolves, who were baited here by Blossom accidentally getting horny and releasing her lady-fluids from her folds, which they smelled with their strong nostrils and went into fervent heat.</p>
 <p>Those were wolf-monsters, and it still worked, then what about a dog-monster? My plan is to soak as many clothes as needed in her dog-kin juices and then throw them at the creature. It shouldn't count as aggression on our part, as they are entirely non-harming and non-magical.</p>
 <p>He will likely go into complete frenzy, maybe even getting his brain overloaded to the point of shutting down entirely, with enough stimulus, of course. Or the three heads might just kill each other for us."</p>

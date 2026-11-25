@@ -32,7 +32,7 @@ chapter = 65
 <p>"Oh, he went to our duchy's, Greenvale's, capital city to sell that old slave of his. Supposedly the market there is much more abundant and he has some connections there."</p>
 <p>"Oh! How envious. Maybe I should've gone there to buy a slave instead of this useless one!"</p>
 <p>"You know, my offer still stands. These two and a gold coin for your doggy."</p>
-<p>"I might be dumb but not that dumb! My slave is a level 13 Phantom Canine, a rare class! Yours are barely level ten and are a duo of basic Assassin and Thief!" Ȓ𝓪ℕŎ₿Ès̈</p>
+<p>"I might be dumb but not that dumb! My slave is a level 13 Phantom Canine, a rare class! Yours are barely level ten and are a duo of basic Assassin and Thief!"</p>
 <p>Oh? Phantom Canine sounds utterly badass. Back when I bought Ayame I saw an Assassin cat-kin who was level 19, and she cost 20 gold coins. She only had a basic class but her level was much higher, so from this I can estimate that Blossom's market price should be between 10-15 gold coins at least. I wonder how this tard got his greasy hands on her contract.</p>
 <p>Grunt clicks his tongue in annoyance. "Well, it was worth a try. But now you better stop complaining about her uselessness or I swear I will beat you up."</p>
 <p>Ian swallows a lump of saliva in his throat audibly. "Alright…" The pecking order is quite clear; Kai is the big boss, Grunt is the sergeant while Ian is the reject who failed to even become a foot soldier.</p>

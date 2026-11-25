@@ -26,7 +26,7 @@ chapter = 405
 <p>"Thank you, Lord Quinlan!" Kaelira squealed as she dove in for a second round of hugs. Her serious army persona had totally evaporated into the wind.</p>
 <p>"Master, I know you're confused, but she is this overjoyed because you've just made history. No elf has ever been the leader of a crafting division, at least not since the creation of the Alliance between the two races, which happened a really long time ago even by elven standards." Seraphiel chimed in, though I could tell that she was even more shocked at the antics of her former team leader.</p>
 <p>"That's right!"</p>
-<p>An extremely sexy and strong woman, with such a genuine personality… I couldn't help but remember back to my mothers' words that Ambition seemed to be a promising 'mother candidate' as they put it, since in their minds everything was about motherhood for a woman. R̃𝘢NốꞖĚ𝘴</p>
+<p>An extremely sexy and strong woman, with such a genuine personality… I couldn't help but remember back to my mothers' words that Ambition seemed to be a promising 'mother candidate' as they put it, since in their minds everything was about motherhood for a woman.</p>
 <p>Anyhow, I had only a single thought swirling in my mind right now.</p>
 <p>Have I found elven wife nr.2?</p>
 <p>…</p>

@@ -27,7 +27,7 @@ chapter = 310
 <p>"What about us?" Ambition asked the guard next.</p>
 <p>"You aren't allowed."</p>
 <p>"Huh? Why?"</p>
-<p>"Candidates have no right over the spoils of the Trials. The Consortium usually sends the artifacts and equipment of the fallen back to their parents if they're part of the syndicate, or use it to reimburse some of the costs of holding the event if not. Black Fang will personally reimburse the Consortium from her own coffers with the value of what Devil and his team take away." ṜâＮÖBЕ𝙎</p>
+<p>"Candidates have no right over the spoils of the Trials. The Consortium usually sends the artifacts and equipment of the fallen back to their parents if they're part of the syndicate, or use it to reimburse some of the costs of holding the event if not. Black Fang will personally reimburse the Consortium from her own coffers with the value of what Devil and his team take away."</p>
 <p>Continue reading on .com</p>
 <p>So we got special privileges already. She must've really liked our fights or something. I'm not going to try to understand a multiple-century-old granny's thoughts, so I instead asked Ambition and her team to keep a lookout on the battle while my girls and I went on to collect the best of the best loot.</p>
 <p>…</p>

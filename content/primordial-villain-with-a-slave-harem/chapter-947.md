@@ -27,7 +27,7 @@ chapter = 947
 <p>"This isnt about your mothers questionable romantic guidance, is it?" she questioned dryly, folding her arms behind her back with a cocked brow.</p>
 <p>Quinlan laughed. "No. Of course not. Theyre amazing women, theres no doubt about that. But tell me, what kind of a son follows the advice of their mothers down to the very letter? This has nothing to do with their... imaginative matchmaking."</p>
 <p>His expression shifted again, bold now. Confident. A grin curved his lips, and when he spoke next, it wasnt tentative in the slightest.</p>
-<p>"Its about how, ever since the first moment I laid eyes on yousitting on that throne of yours, bronze abs gleaming back at me, eyes full of fury and fireI knew you were the kind of woman Id move mountains for." 𝐫𝘢Ꞑɵ𝐁ÊS</p>
+<p>"Its about how, ever since the first moment I laid eyes on yousitting on that throne of yours, bronze abs gleaming back at me, eyes full of fury and fireI knew you were the kind of woman Id move mountains for."</p>
 <p>Serikas brows rose slightly.</p>
 <p>"And since then... every sparring session, every smirk you threw my way, every shared bath and massage session soaked in heat and oil, every training montage where I unapologetically stared at your sexy legs while you beat painful lessons into me..." he tilted his head, grin deepening, "... every single moment just kept confirming it."</p>
 <p>"You are, without a doubt, the perfect woman."</p>

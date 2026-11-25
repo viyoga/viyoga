@@ -22,7 +22,7 @@ chapter = 486
 <p>"Let's roll. [Warp Gate]."</p>
 <p>The same ominous portal materialized, eliciting a scared gasp from Jasmine's lips. The last time she crossed one, she was already through it before she even noticed it since Blossom kidnapped her. Now, however, she had to collect all her bravery to steel her heart.</p>
 <p>She gulped and her grip around Quinlan's arm tightened. She also closed her eyes before taking the plunge and stepping into the portal.</p>
-<p>Jasmine could feel the atmosphere around her shift completely, and when she opened her eyes, she couldn't help but stare around the surroundings in complete disbelief. ⱤÅŊο฿ĚṢ</p>
+<p>Jasmine could feel the atmosphere around her shift completely, and when she opened her eyes, she couldn't help but stare around the surroundings in complete disbelief.</p>
 <p>They were in an alley, but not any alley! She could recognize the architecture any day. They were in Valorian, the capital city of the Vraven Kingdom!</p>
 <p>Enjoy more content from empire</p>
 <p>When she heard Quinlan say they would come here, her brain simply couldn't comprehend that he meant like this! She thought that this date might take a month due to all the traveling that would have to be involved… not that she would've complained even though her life was very hectic right now. In fact, she couldn't help but glance at the swirling doorway with mild annoyance evident in her beautiful crystal blue eyes.</p>

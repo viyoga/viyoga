@@ -28,7 +28,7 @@ chapter = 694
 <p>Help…</p>
 <p>Had her mother asked for help, perhaps she wouldn't have died alone, exhausted and broken, after enduring years of cruelty from her husband.</p>
 <p>Help…</p>
-<p>Had they sought aid from the king or the Ravenshade Duke, maybe Damian wouldn't have perished in captivity, suffering an incredibly cruel fate no human should ever be forced to experience. Maybe there was a chance to negotiate his release, or at least those scum wouldn't dare hurt him when such big names were included in the negotiations. 𝘳ä𐌽𝐨𝖇ËṠ</p>
+<p>Had they sought aid from the king or the Ravenshade Duke, maybe Damian wouldn't have perished in captivity, suffering an incredibly cruel fate no human should ever be forced to experience. Maybe there was a chance to negotiate his release, or at least those scum wouldn't dare hurt him when such big names were included in the negotiations.</p>
 <p>Help…</p>
 <p>Quinlan's face flashed in her mind. His overwhelming, cheat-like abilities, his unparalleled power over the elements, his seemingly endless luck. But then, her vision shifted—not to him, but to those around him.</p>
 <p>Aurora. Ayame. Blossom. Seraphiel. Lucille.</p>

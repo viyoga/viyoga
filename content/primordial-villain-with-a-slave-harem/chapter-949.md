@@ -27,7 +27,7 @@ chapter = 949
 <p>She cut him off with a gentle press of her fingers to his lips, a soft, gorgeous smile blooming across her face.</p>
 <p>"Quinlan... I joined a harem. I not only want to be a part of it, but I want to fully embrace the harem. These women... theyre my sisters now. Even if they wouldnt mind... Hell, even if they wouldnt even know about it, I want to share this moment with them."</p>
 <p>Her eyes sparkled, and a low chuckle escaped her lips. "Sounds a little like a team battle, doesnt it?"</p>
-<p>Quinlan laughed, the sound warm and full. "It is. The stronger I become, the more strategy they need to employ to make me want to raise the white flag. Now, after all the upgrades I got in Zhenwu... Oh dear. You girls are in for one giant challenge." ᚱÀŊǒ𐌱ЕŚ</p>
+<p>Quinlan laughed, the sound warm and full. "It is. The stronger I become, the more strategy they need to employ to make me want to raise the white flag. Now, after all the upgrades I got in Zhenwu... Oh dear. You girls are in for one giant challenge."</p>
 <p>Serikas ears perked the moment the word "challenge" left his lips.</p>
 <p>Her eyes gleamed like a warrior whod just heard a battle horn sound across a quiet valley.</p>
 <p>"You know damn well I dont back down from any challenge," she declared, fists planting firmly on his chest. Her grin was battle-ready.</p>

@@ -22,7 +22,7 @@ chapter = 669
 <p>“Ahn! Not so sudden… ah, ahhn… it’s too good…”</p>
 <p>His thrusting made her body jump and her sunstreaked-golden hair danced around her shuddering face. Her breasts shook violently, practically tempting Sol. Giving in to the temptation of her jiggling melons, Sol latched his lips on the small buds while moving his body simultaneously.</p>
 <p>“Ahh, it feels so good… I’m… going to lose… my MIND!” Pandora meanwhile was already lost in pleasure, forgetting all the ideas she had about the small competition they should be engaged in right now.</p>
-<p>The way she writhed in pleasure sent his heart racing with lust and he could not stop his hips from moving frantically, searching more and more of her depths to explore. Ṟá₦ΟBЕS</p>
+<p>The way she writhed in pleasure sent his heart racing with lust and he could not stop his hips from moving frantically, searching more and more of her depths to explore.</p>
 <p>“Ah, ahh… yes, yes, yesss! Ah, ahn, AHHNNN!” Her eyes were losing focus and saliva was dribbling down the corner of her mouth.</p>
 <p>She moaned as love juices gushed in torrents from their union. A lewd, sticky-wet sound echoed when their hips made contact. Had they not been in his dimension, a crowd of onlookers would have joined them by now, perplexed by their shameless display.</p>
 <p>This story originates from a different website. Ensure the author gets the support they deserve by reading it there.</p>

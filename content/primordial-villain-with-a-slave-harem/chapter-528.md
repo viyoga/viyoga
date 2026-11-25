@@ -29,7 +29,7 @@ chapter = 528
 <p>Explore more at</p>
 <p>"Sister!" Vivienne cried, but she was silenced without even a word from the man.</p>
 <p>"About ten thousand…"</p>
-<p>I see," The man nodded in understanding. "And what about you? How many lives have you ruined to live out your sadistic fantasies? Are you also a rapist?" Ɽ𝘈ɴО𝐁Êś</p>
+<p>I see," The man nodded in understanding. "And what about you? How many lives have you ruined to live out your sadistic fantasies? Are you also a rapist?"</p>
 <p>"No!" She cried her answer with great alarm. "I never once sexually assaulted another person."</p>
 <p>"How noble of you!" Lucille giggled mockingly before continuing, "But you ’forgot’ to answer my love’s earlier question."</p>
 <p>"I don’t know… A couple hundred." Amara hissed despite her utmost effort to remain quiet about the truth.</p>

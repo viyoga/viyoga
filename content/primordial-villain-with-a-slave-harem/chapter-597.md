@@ -32,7 +32,7 @@ chapter = 597
 <p>Perhaps that was the problem.</p>
 <p>As I floated in the void above Drakwyn, staring down at the endless inferno of the fire quadrant, I knew there was only one way forward.</p>
 <p>I had to utilize the unique environment surrounding me to my advantage.</p>
-<p>To that end, I descended, moving through space toward the burning land below. The land of fire stretched wide beneath me in the form of an ocean of molten rock and searing flame, a place where no creature could hope to survive. The closer I drew, the more the heat intensified. I felt waves of scorching air crash against me, creating an invisible wall of heat. Ɽ𝐚𝐍ȎВÈṨ</p>
+<p>To that end, I descended, moving through space toward the burning land below. The land of fire stretched wide beneath me in the form of an ocean of molten rock and searing flame, a place where no creature could hope to survive. The closer I drew, the more the heat intensified. I felt waves of scorching air crash against me, creating an invisible wall of heat.</p>
 <p>When I neared the surface, I reached out toward the highest flame, letting it lick against my hand.</p>
 <p>The fire bit into my skin, but my primordial body resisted somewhat, dampening its impact. It still burned—it was impossible for this fire not to—but the agony logic dictated I should experience never arrived.</p>
 <p>This fire was different.</p>

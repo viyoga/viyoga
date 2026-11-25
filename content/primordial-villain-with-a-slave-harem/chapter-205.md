@@ -28,7 +28,7 @@ chapter = 205
 <p>I don't recognize Ayame at all, but one thing is for sure, I'm not complaining.</p>
 <p>Hearing how much she needs relief, I decide to make a noble sacrifice as I grab her waist and yoink her down from my waist onto my chest. "Kyaa! Quinlan?!"</p>
 <p>"I'm hungry." I murmur and spread her cheeks before I begin devouring her pink folds. She wasn't lying, she really is horny. As soon as my tongue reaches her, her juices roll onto my taste buds, allowing me to finally know Ayame's sacred flavor.</p>
-<p>And how utterly delicious she is. I just can't get enough. I grab her waist with both hands to lift her up and plant her straight onto my face, where she acts like a living fountain providing yours truly with direct access to her oozing, near limitless eastern flavored nectar. 𝙧ᴀＮỖ𝐛Еṡ</p>
+<p>And how utterly delicious she is. I just can't get enough. I grab her waist with both hands to lift her up and plant her straight onto my face, where she acts like a living fountain providing yours truly with direct access to her oozing, near limitless eastern flavored nectar.</p>
 <p>Soon she begins moaning, creating a beautiful chorus that makes my throbbing member grow to a never before seen size.</p>
 <p>This is an amazing woman. I absolutely love her.</p>
 <p>"Quinlan…? Ah! What is this feeling?!"</p>

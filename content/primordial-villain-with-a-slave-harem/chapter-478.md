@@ -37,7 +37,7 @@ chapter = 478
 <p>&lt;Yes…&gt; She replied painedly. Even thinking up the one-worded response caused her to have a splitting headache.</p>
 <p>&lt;Good. Make no moves, pretend to be utterly helpless.&gt;</p>
 <p>&lt;I don't have to pretend…&gt;</p>
-<p>&lt;I meant that you should continue doing so even once you're starting to get better. I'm going to share my stats with you, my Vitality should help you regain your bearings. It's not going to match a proper healing spell, but you should have a fighting chance at least.&gt; 𝔯ΆNÒ𐌱ÈŜ</p>
+<p>&lt;I meant that you should continue doing so even once you're starting to get better. I'm going to share my stats with you, my Vitality should help you regain your bearings. It's not going to match a proper healing spell, but you should have a fighting chance at least.&gt;</p>
 <p>Although Iris couldn't hear it from the distance separating the two, Quinlan murmured two words under his breath in the lowest possible tone. Furthermore, he even instructed his girls to create diversion sounds together to mask his intoning: "[Overlord's Magnanimity]"</p>
 <p>This was one of the three Primordial Subjugator spells he'd unlocked, alongside Overlord's Eyes and Sacrifice. Overlord's Magnanimity allowed him to bolster his forces as long as he was out of combat.</p>
 <p>Over the past month, he'd played around with it a lot.</p>

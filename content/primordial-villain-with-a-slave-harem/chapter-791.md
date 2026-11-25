@@ -28,7 +28,7 @@ chapter = 791
 <p>As such, I let a defeated sigh leave my lungs, "Fine, fine. I promise. After I finish this trial, I'll let you spoil me so much you'll get sick of me."</p>
 <p>"Impossible," they decreed in unison with a voice that told me they were utterly serious.</p>
 <p>The duo followed it up by kissing my cheeks in turn, then my forehead, and my nose, before finally, slowly, bracing their hearts to let me go. As such, I slowly descended with them in my arms, letting them plant their feet on the ground gently.</p>
-<p>I could've dropped them off from the skies and they wouldn't have been injured one bit, but no one will catch me treating these two absolutely precious existences so dismissively. They only deserved the very best. Ꞧ𝘼Νо𝔟Еṥ</p>
+<p>I could've dropped them off from the skies and they wouldn't have been injured one bit, but no one will catch me treating these two absolutely precious existences so dismissively. They only deserved the very best.</p>
 <p>But now, it was time. The trial awaited.</p>
 <p>I waved goodbye, which they returned by energetic waving of their own, accompanied by their teary, worried eyes. As I began to fly toward the large monument where the trial would start, I faintly heard Miri sigh, "Quinnie is becoming more and more like a real man…"</p>
 <p>"That cool determination in his eyes surprised me as well! Our little boy can be so masculine at times!"</p>

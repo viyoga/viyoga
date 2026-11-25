@@ -26,7 +26,7 @@ chapter = 404
 <p>I laughed inwardly before gaining control of my emotions and turning my attention back to the elves. "Great! Kaelira, I would love to have you and the ranger ladies in the Ascendants. My home truly could use the five of you as forest sentinels, and caretakers of the Geim in my absence, since that job thus far fell to Iselda, my architect, but she only did it out of duty, while I assume…"</p>
 <p>"""""It would be our greatest honor!!!""""" The five long-eared babes squealed at the same time.</p>
 <p>"What of me?" The owner of the glorious six-pack inquired.</p>
-<p>"I will find you a new team of Heralds, since you are in the Phenom candidate competition, I would like to have more allies on my side when I do get the rank. This new team will be a lot better balanced than the five rangers you've been working with thus far." ꭆÄΝ∅𐌱Ěs̩</p>
+<p>"I will find you a new team of Heralds, since you are in the Phenom candidate competition, I would like to have more allies on my side when I do get the rank. This new team will be a lot better balanced than the five rangers you've been working with thus far."</p>
 <p>"I understand." She nodded serenely, but I wasn't finished just yet.</p>
 <p>"Furthermore, I would be elated if you could be the lead crafter of my faction. Once you get the Phenom rank, you could spend most of your time here, making your masterpieces, and only go on some missions to not get on their bad side due to extreme inactivity."</p>
 <p>Kaelira had a much stronger reaction to my statement than I ever could've expected. Her eyes bulged out of their sockets for a moment as her mouth opened and closed before tears started forming, but they had no chance to drop to the ground, as in the next moment she threw herself at me.</p>

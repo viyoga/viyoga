@@ -31,7 +31,7 @@ chapter = 206
 <p>I increase my thrusting actions once again, both that of my hips and my finger.</p>
 <p>Ayame probably understood what my hurried actions mean, evidenced by the added pressure she exhibits on my member with her feet. Her sandwiching had increased both in strength and speed.</p>
 <p>'Shit… I can't do this any longer.'</p>
-<p>I thrust my hip one last time, more than ever, so much so that Ayame almost slides down from my chest onto my face, and I finally erupt. I shamefully let go of her folds and instead grab the two buttcheeks of hers in both hands- one in each- and grip them mightily, to the point that I lift her hips up into the air just by holding onto her rear. 𝙧Å₦ȯβĚ𝓢</p>
+<p>I thrust my hip one last time, more than ever, so much so that Ayame almost slides down from my chest onto my face, and I finally erupt. I shamefully let go of her folds and instead grab the two buttcheeks of hers in both hands- one in each- and grip them mightily, to the point that I lift her hips up into the air just by holding onto her rear.</p>
 <p>"Gggh!" I grunt and splash all my fluids into the air, landing gracefully on top of her naked back.</p>
 <p>'It seems like I lost. I came first. How disappointing. Well, no matter, it's time I have her reach the gates of heaven as well.'</p>
 <p>"Ahhhhh!!!" She shrieks suddenly and begins violently shaking.</p>

@@ -31,7 +31,7 @@ chapter = 703
 <p>Royal Road is the home of this novel. Visit there to read the original and support the author.</p>
 <p>“You were like a veil I hid myself under.” She ignored the pain as she snapped the chain around her neck.</p>
 <p>As she did so, all but one of the mirrors were destroyed.</p>
-<p>“It must have been hard. Right?” Nefertiti placed her hand on the mirror, looking down at the ugly person who was next to her. A misshaped face and body, akin to an abstract painting. This was the accumulation of all the expectations placed on her. The accumulation of all the dozens of masks she wore while hiding her envy, pettiness, jealousy, wrath, bitterness, and the plethora of negative emotions that dictated and showcased her life, her very existence. ȐÀ𝐍𝙤𝐛ĚS̈</p>
+<p>“It must have been hard. Right?” Nefertiti placed her hand on the mirror, looking down at the ugly person who was next to her. A misshaped face and body, akin to an abstract painting. This was the accumulation of all the expectations placed on her. The accumulation of all the dozens of masks she wore while hiding her envy, pettiness, jealousy, wrath, bitterness, and the plethora of negative emotions that dictated and showcased her life, her very existence.</p>
 <p>The result of such action was understandable.</p>
 <p>“Truly. Despite my beauty, I had the ugliest heart. I might have broken down if I did not meet my beloved.”</p>
 <p>She gently caressed the mirror, muttering to herself.</p>

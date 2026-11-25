@@ -23,7 +23,7 @@ chapter = 461
 <p>She decided to take another angle to look at things.</p>
 <p>What if… he was not a human?</p>
 <p>She already had this suspicion tugging at her chest previously, but today's display only reinforced this feeling.</p>
-<p>Devil didn't seem like a weirdo who would spend centuries in a cave and then pretend to be a baby just so he could claim the useless title of being the youngest Elemental Sovereign, Vesper Phenom member, or whatever else. ṟΆＮоΒĚṧ</p>
+<p>Devil didn't seem like a weirdo who would spend centuries in a cave and then pretend to be a baby just so he could claim the useless title of being the youngest Elemental Sovereign, Vesper Phenom member, or whatever else.</p>
 <p>What if he was truly 7 weeks old at the time?</p>
 <p>Although dragons had completely disappeared from this continent long before Black Fang was born, there were still numerous tales available about them, all of which she read.</p>
 <p>Some claimed that dragon babies spent years if not decades inside their eggs which were connected to their mothers' mana that supplied them as they slowly grew from an embryo to a lifeform that could fight as soon as it hatched from its egg - as soon as it was born.</p>

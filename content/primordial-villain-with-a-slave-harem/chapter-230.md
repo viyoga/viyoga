@@ -30,7 +30,7 @@ chapter = 230
 <p>…</p>
 <p>"So what should we do now? Any suggestions?" Ayame asked, to which I said we could look to sell the monster loot.</p>
 <p>"What about the noble's gear and stuff?"</p>
-<p>"We'll have to use the Consortium for that. They must have people who don't care if its previous owner was the count's dead son. Maybe it will even go for a premium. However, I think it's best we wait until we become Phenoms. ȐÁŊ∅𝐛Ę𝙎</p>
+<p>"We'll have to use the Consortium for that. They must have people who don't care if its previous owner was the count's dead son. Maybe it will even go for a premium. However, I think it's best we wait until we become Phenoms.</p>
 <p>The chances are much lower that they would fuck us over afterwards." Indeed, right now I don't wanna risk letting the organization know that we are the murderers, as I can't predict their reaction.</p>
 <p>"Alright, I agree."</p>
 <p>Afterwards we filled multiple bags to the brim, even going as far as getting more from Robert, who reluctantly gave me a few extra, and headed to a monster material shop. Braedon is not known for housing many Explorers since there's no local labyrinth, thus their shop variety might also be limited.</p>

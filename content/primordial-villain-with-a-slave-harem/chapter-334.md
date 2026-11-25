@@ -29,7 +29,7 @@ chapter = 334
 <p>"I’m straight, you masked loser!"</p>
 <p>"And I’m a pretty little princess. We can keep saying nonsense all day long if you want."</p>
 <p>"Fuc-"</p>
-<p>"[Backstab]" The reason why I kept talking shit to him was due to the fact that I knew Blossom was sneaking up on him. By now, she was situated perfectly behind the Geomancer with her claws extended, ready to maul the life out of his wretched body. 𝐑𝓪ℕΟBÈs</p>
+<p>"[Backstab]" The reason why I kept talking shit to him was due to the fact that I knew Blossom was sneaking up on him. By now, she was situated perfectly behind the Geomancer with her claws extended, ready to maul the life out of his wretched body.</p>
 <p>However, just as Blossom’s claws were about to sink into Soren’s back, a flash of steel intercepted her attack. Lyra, the tanky swordswoman who served as Soren’s unwilling bodyguard slave, had stepped in at the last moment. I had to give it to her; if she noticed Blossom so fast she was no slouch at all. Her shield arm slammed between them, deflecting Blossom’s claws. My dog-girl’s strike wasn’t completely wasted- Soren still let out a pained hiss as her attack grazed him, managing to inflict a deep wound across his shoulder.</p>
 <p>Blossom didn’t attack again or even scoff in frustration- she instantly leaped back with her full speed, disengaging from the confrontation before it could even properly begin.</p>
 <p>She knew better than to engage a heavily armored knight in a duel, especially when the time wasn’t on our side since we had to cull the army’s numbers before they overwhelmed us. Blossom had to find new targets now.</p>

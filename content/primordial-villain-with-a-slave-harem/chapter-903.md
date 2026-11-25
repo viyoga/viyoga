@@ -29,7 +29,7 @@ chapter = 903
 <p>"You told me yourself," Quinlan cut in smoothly, voice tinged with knowing warmth. "You were a terrible ruler."</p>
 <p>Her mouth opened... then closed.</p>
 <p>"You said—and I quoteI’m a hammer, not a throne.’ You were a wartime leader, Serika. What your people need now is a governor. Someone who can rebuild, who can guide them into this new age of Zhenwu."</p>
-<p>His gaze gentled. "Now that the nations aren’t at war with each other, and that the invader threat has been dealt with, no matter how much it might sting to hear... you’re no longer the ideal ruler for what comes next." řåꞐỌ𐌱Ё𝒮</p>
+<p>His gaze gentled. "Now that the nations aren’t at war with each other, and that the invader threat has been dealt with, no matter how much it might sting to hear... you’re no longer the ideal ruler for what comes next."</p>
 <p>He leaned closer, voice dropping, conspiratorial and warm. "Come with me instead. Be what you are: an unstoppable force of nature on the battlefield. I want to see you burn brighter than ever before, Serika Vael. Sitting behind stacks of administrative papers doesn’t fit you one bit, am I wrong?"</p>
 <p>Serika bit her lip. Her cheeks puffed slightly, the beginnings of a pout forming, but her heart was already wavering.</p>
 <p>Quinlan’s grin widened. "Besides... God Venthros was only the beginning. There are whole pantheons still out there. Furthermore, the gods are only the final bosses. Before them are many amazing enemies to fell or perhaps befriend. Demons. Vampires. Giants. All sorts of creatures are out there, waiting for us to discover them. Doesn’t your blood boil at the mere thought of it all?"</p>

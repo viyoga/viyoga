@@ -23,7 +23,7 @@ chapter = 484
 <p>The surroundings changed all of a sudden as if she was in some vivid dream. They went from the streets of Braedon to the interior of a home within a split second. However, as she took a look around, her eyes showed her a wildly swirling door that was most certainly a magical construct. She had no clue what kind of magic could birth something like that, though. It ceased existing in the next moment as if it never existed in the first place.</p>
 <p>Wait, was she teleported just now?!</p>
 <p>The thought still lingered in her mind when she was let off the kidnapper's shoulder who took the tape off her mouth.</p>
-<p>"Wha-?" Jasmine was so confused that she didn't even know how to react. She eyed the perpetrator who took their mask off only to reveal a cute dog-kin girl with a blonde ponytail. ṝä₦ỗᛒÊ𝒮</p>
+<p>"Wha-?" Jasmine was so confused that she didn't even know how to react. She eyed the perpetrator who took their mask off only to reveal a cute dog-kin girl with a blonde ponytail.</p>
 <p>"Yo. It's good to see you again, Jasmine." An unfamiliar voice sounded from somewhere in the room, forcing her to snap her head in his direction.</p>
 <p>On a comfortable-looking sofa sat a man who was by far the most manly and handsome guy she'd ever seen. "Who are you? What do you want from me?" Jasmine quickly collected her thoughts and ventured to understand the situation. Maybe this was the enemy of her father.</p>
 <p>"Oh, my bad. I keep forgetting that my mask disorients my voice." He said before grabbing a mask and putting it on. "How about now, does my voice sound familiar?"</p>

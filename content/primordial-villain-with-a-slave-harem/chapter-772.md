@@ -25,7 +25,7 @@ chapter = 772
 <p>She refused to tap out, her brain not allowing her to give up on making me feel as perfect as possible, just as my brain didn’t permit me to miss a single moment of her servicing.</p>
 <p>"Mhhmmmmm!! Vex moaned around my cock, sending delicious vibrations through me, and that was all it took.</p>
 <p>I came, hard, spurting hot, thick semen straight down her throat.</p>
-<p>Vex jolted as the first heavy gush hit her, her hands flying up to claw weakly at my thighs, nails scratching for balance as she fought desperately to swallow it all. Her throat worked frantically despite it being so messy and overwhelmed, but she refused — adamantly so — to let go, even as creamy streams spilled from the corners of her outstretched and overworked lips. R̃𝓪Ɲò𐌱ĚꞨ</p>
+<p>Vex jolted as the first heavy gush hit her, her hands flying up to claw weakly at my thighs, nails scratching for balance as she fought desperately to swallow it all. Her throat worked frantically despite it being so messy and overwhelmed, but she refused — adamantly so — to let go, even as creamy streams spilled from the corners of her outstretched and overworked lips.</p>
 <p>Her eyes fluttered half-shut, dazed and overwhelmed and oh so fucking beautiful.</p>
 <p>When the last pulse of pleasure wracked through me, I finally loosened my grip on the back of her head. I was barely able to keep myself standing straight after experiencing such a large orgasm.</p>
 <p>Vex sat back on her heels, with flushed cheeks and a heavily panting chest that was rising and falling rapidly. She looked up at me with a hazy but smug expression, her crimson eyes shimmering with dizzy pride and adoration. It was the dopiest, most lovestruck grin I’d ever seen on her.</p>

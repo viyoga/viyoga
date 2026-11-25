@@ -24,7 +24,7 @@ chapter = 724
 <p>Instead, I turned my gaze to a high hill just east of Sunscar, untouched by battle and high in elevation, perfect for what I had in mind. I guided the winds down gently, setting us upon the hilltop with a gentle impact.</p>
 <p>Then I went to work.</p>
 <p>With a flick of my wrist, the earth answered.</p>
-<p>Stone reshaped itself beneath my will, flattening and smoothing into elegant terraces. I hollowed out the largest one, carving it into the form of a luxurious bath—not crude or plain, but artfully sculpted with gentle curves and layered ledges like the baths of old nobility. ȓ𝓪ꞐỒʙƐś</p>
+<p>Stone reshaped itself beneath my will, flattening and smoothing into elegant terraces. I hollowed out the largest one, carving it into the form of a luxurious bath—not crude or plain, but artfully sculpted with gentle curves and layered ledges like the baths of old nobility.</p>
 <p>I created a second, smaller basin next, positioned slightly above and feeding into the main bath like a ritual cleansing spring. A gentle waterfall trickled down between the two, the water continually refreshed by my magic.</p>
 <p>I crafted a standing showerhead next. Water flowed from it in a steady stream, gentle and steaming. As some of the ladies were wildly dirty, a showering session would have to happen before we stepped into the bath.</p>
 <p>A burst of flame beneath the main bath kept it perfectly heated, making it not too hot, not too mild, but soothingly warm.</p>

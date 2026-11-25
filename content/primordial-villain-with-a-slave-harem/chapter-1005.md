@@ -33,7 +33,7 @@ chapter = 1005
 <p>Immediately, a squad of uniformed guards moved into formation, forming a wide semicircle around the party. The sharp clatter of armored boots echoed across the tiled plaza, drawing numerous gazes from the nobles and servants who were passing by. Halberds were lowered, and runic cuffs brought out.</p>
 <p>Quinlan didn’t flinch, even as he counted twenty-four guards aiming their weapons at him and his family. He wasn’t dressed for battle: no armor, no Soul Reaper in sight.</p>
 <p>His cloak fluttered gently in the breeze, his open collar and relaxed posture giving the air of a carefree traveler. But any real threat would see past that. They’d feel it: the coiled potential throbbing beneath his very skin.</p>
-<p>The truth of the matter was that Quinlan gained way too much power after his latest Primordial Rank-Up mission. He struggled to hide his might properly; his very existence was just over-brimming the limits of what he could conceal. ṞА𝐍ŏᛒĚș</p>
+<p>The truth of the matter was that Quinlan gained way too much power after his latest Primordial Rank-Up mission. He struggled to hide his might properly; his very existence was just over-brimming the limits of what he could conceal.</p>
 <p>His real problem, however, wasn’t whether he could fight. It was what would happen if he did.</p>
 <p>If he unleashed elemental spells to defend themselves, it wouldn’t take long before someone made the connection. After all, there was already a wanted man out there. A terrifying elemental prodigy known only as the Devil. His girls weren’t exactly unknown nobodies anymore.</p>
 <p>&lt;I can’t use magic. Not unless I want to give up my identity as Black the noble and sever the connection I made with Felicity...&gt; Quinlan mused grimly.</p>

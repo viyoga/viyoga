@@ -35,7 +35,7 @@ chapter = 896
 <p>And then... pain.</p>
 <p>A searing, rending, primordial pain that tore at the edges of his being. Not his body—he had no body here. This was deeper. This was his soul.</p>
 <p>Two forces had invaded it.</p>
-<p>One was wild, thrumming with shifting elements—fire that scorched his essence, water that drowned his thoughts, earth that crushed his resolve, and wind that scattered his memories. It twisted around itself like a storm lost in madness, unstable and tainted, seeking to rewrite him in its image. ṜÀꞐỘꞖÈś</p>
+<p>One was wild, thrumming with shifting elements—fire that scorched his essence, water that drowned his thoughts, earth that crushed his resolve, and wind that scattered his memories. It twisted around itself like a storm lost in madness, unstable and tainted, seeking to rewrite him in its image.</p>
 <p>But the other was worse. Far worse.</p>
 <p>It whispered. Not in words, but in decomposition, in unmaking.</p>
 <p>A crawling, cloying rot that promised freedom—freedom from everything. From meaning. From self. From love. From pain.</p>

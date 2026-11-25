@@ -40,7 +40,7 @@ chapter = 31
 <p>[Wisdom: 10]</p>
 <p>[Unused Skill Points: 0]</p>
 <p>[Unused Attribute Points: 0]</p>
-<p>I already have two classes that are level 2 while my main level is still at 1. I can only draw up the theory that Primordials have a difference here. After seeing Ayame's stats I feel a bit saddened by mine for a second before telling myself that this is only the second day I spent in this world. ℟𝘈𝐍ǑBƐṨ</p>
+<p>I already have two classes that are level 2 while my main level is still at 1. I can only draw up the theory that Primordials have a difference here. After seeing Ayame's stats I feel a bit saddened by mine for a second before telling myself that this is only the second day I spent in this world.</p>
 <p>Furthermore, I realize that the benefits the attributes provide are not linear. According to Ayame's 50 Agility, she should be only 5 times faster than me, but that can't be true. I know for a fact that she didn't go all out today and I sometimes couldn't even follow her movements with my eyes, much less react to them in time.</p>
 <p>I then glance at the section which I've ignored all this time, [Unused Skill Points: 0].</p>
 <p>Ayame had 2 unused points, I'm curious now.</p>

@@ -29,7 +29,7 @@ chapter = 99
 <p>Finally, he tells her, "You lied to me about your name, or perhaps you've just forgotten it over your long years of debauchery? We have to make sure you don't repeat the same mistake. Carve your name on your stomach to serve as a reminder."</p>
 <p>Tears stream down her face as she raises the dagger again, but the compulsion is absolute. She moves the blade to her abdomen, cutting with shaky hands. Each letter is a struggle, her voice strained as she cries out in pain repeatedly.</p>
 <p>Her breathing is labored now, her skin pale and clammy. Yet she continues to sing, a twisted parody of happiness. All the while blood flows freely from her wounds, pooling around her.</p>
-<p>As the song dies on her lips, she collapses, the dagger falling from her grasp. Her body shudders, the light in her eyes fading until she lies motionless. 𝙍Â₦ÔᛒΕș</p>
+<p>As the song dies on her lips, she collapses, the dagger falling from her grasp. Her body shudders, the light in her eyes fading until she lies motionless.</p>
 <p>"Well, it is safe to say that the contract is one mighty fucking spell." He states, as if confirming his scholarly hypothesis after conducting proper research.</p>
 <p>"I could've told you that myself..." I whimper. I might hate my wife but it was hard for my heart to see this sight of her. She did give birth to my children, after all.</p>
 <p>"Your wife is a compulsive liar by the look of things, how could I possibly trust you? Furthermore, a man sometimes must investigate things for himself." He then glances downwards and sneers with disgust. "Dude, really? I knew you were a filth but to be such a degenerate..."</p>

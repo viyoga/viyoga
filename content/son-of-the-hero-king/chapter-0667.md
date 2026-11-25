@@ -31,7 +31,7 @@ chapter = 667
 <p>“Though I do not yet love you and my experience with you is very limited. I believe you are a man worth trusting and following.” Pandora had been a silent observer. She had watched how Sol went above and beyond to save Lilith and how seriously he took his job as the interim king of his kingdom.</p>
 <p>Sol was a man she would love to get a better understanding of. “Furthermore, whether I want it or not, we are g-getting m-married soon, r-right?” She stammered every so slightly at the end, blushing at the thought.</p>
 <p>A marriage sounded so distant to her in the past. She had never been one to long for such a thing throughout her life.</p>
-<p>“Though it will just be a marriage of convenience, I wish to be of help to you.” This was an accord they went into for the purpose of achieving their respective goals. She would help Sol conquer the world, and he would help her control her kingdom according to her rules. ȓäƝôΒÊŝ</p>
+<p>“Though it will just be a marriage of convenience, I wish to be of help to you.” This was an accord they went into for the purpose of achieving their respective goals. She would help Sol conquer the world, and he would help her control her kingdom according to her rules.</p>
 <p>“It won’t just be a marriage of convenience.” Sol finally stopped her there. “Well, at least I hope it won’t just be a marriage of convenience.”</p>
 <p>He gave a sheepish grin and looked ahead. “Do you know what my dream is?”</p>
 <p>His question seemed pretty random given the current topic, but she decided to not stop him from explaining himself to her. “Becoming the strongest? Ascending to godhood? Become the Emperor or maybe God King of the Lower realm?”</p>

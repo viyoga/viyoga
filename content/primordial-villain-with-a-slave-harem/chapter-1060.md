@@ -28,7 +28,7 @@ chapter = 1060
 <p>(Picture)</p>
 <p>She reached behind her and drew her famed blade. The sound of steel sliding free resonated like a funeral bell. The weapon was no ordinary sword; it was a conduit, a marriage of steel and spell, engraved with runes that blazed to life as soon as it touched her hand.</p>
 <p>Warrior-mages were a true rare breed in Thalorind. Many had tried, countless combatants attempting to balance the path of blade and spell, but nearly all met ruin, either by having their bodies break under the contradictory strain or their path simply not allowing it. No proper class showed up that allowed them to merge the two paths into one, marking their combatant journey and their lives as failures.</p>
-<p>There were only a handful who ever succeeded. Quinlan was one after his return from Zhenwu. He could already use martial spells before due to his extra classes, but now he was in perfect balance as far as magic and martial might were concerned. Lilith was another such person. A spellblade, to be specific, the apex of martial and arcane harmony. ＲâŊȎΒĘṢ</p>
+<p>There were only a handful who ever succeeded. Quinlan was one after his return from Zhenwu. He could already use martial spells before due to his extra classes, but now he was in perfect balance as far as magic and martial might were concerned. Lilith was another such person. A spellblade, to be specific, the apex of martial and arcane harmony.</p>
 <p>Her eyes slid across Quinlan’s back, then past him to Seraphiel.</p>
 <p>"I always knew you two were weird, but I didn’t expect you’d even get my lunatic of an elder sister so invested. All I can say is..."</p>
 <p>Lilith sent a side eye glance toward Morgana before sighing.</p>

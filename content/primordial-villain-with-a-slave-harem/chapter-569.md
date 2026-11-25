@@ -29,7 +29,7 @@ chapter = 569
 <p>Something was wrong.</p>
 <p>Despite the damage my spell should’ve inflicted, the beasts recovered quickly.</p>
 <p>It was as if their speed, strength, and durability had all skyrocketed.</p>
-<p>By size and build, they should have been no different from the ones I’d already slain, so there could only be one explanation. The leader’s roar had empowered them beyond natural limits. 𝐫ἈΝՕΒĘ𝙎</p>
+<p>By size and build, they should have been no different from the ones I’d already slain, so there could only be one explanation. The leader’s roar had empowered them beyond natural limits.</p>
 <p>Nonetheless, I wasn’t panicking. My arsenal had grown wide since I unlocked the three deviant elements. If my enemies needed a bit more assistance to fall to the ground lifelessly, then so be it.</p>
 <p>I saw the barrier of my [Tempest Halo] show signs of cracking as more and more frenzied lion-kin warriors threw caution out of the window to rush me down—understandably so, they were barely taking damage. Using the final moments of the shield’s protection, I began my counteroffensive. "[Blizzard Tempest]."</p>
 <p>A bone-chilling gale roared into existence, carrying shards of razor-sharp ice that obscured my surroundings in a swirling vortex. The freezing winds bit at flesh and fur alike, slowing the lion-kin’s frenzied movements. They pushed forward even though frost was clinging to their limbs, snarling through the biting cold with sheer resolve.</p>

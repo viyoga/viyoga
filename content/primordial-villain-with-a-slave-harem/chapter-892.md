@@ -23,7 +23,7 @@ chapter = 892
 <p>Her eyes glimmered with wetness.</p>
 <p>"...I don’t know. I’ve twisted myself so many times, made so many justifications... I can’t even tell which parts of me were genuine. And that’s not fair to you."</p>
 <p>She turned her head slightly, the motion visibly agonizing on her pain receptors. Yet she bore with it without a single grunt.</p>
-<p>"I became something rotten, Serika. I let my pain fester into hatred and turned my need for love into manipulation. I knew I was broken, and instead of healing, I chose control. I chose power." ℞𝖆ℕồ𐌱ЕⱾ</p>
+<p>"I became something rotten, Serika. I let my pain fester into hatred and turned my need for love into manipulation. I knew I was broken, and instead of healing, I chose control. I chose power."</p>
 <p>She gave a bitter, breathless laugh.</p>
 <p>"And look what I ended up doing. I should’ve been put down a long time ago, like the evil that I am... It would’ve ended there. But instead... I invited the invader—the prophesied destroyer of our world—into my home. My capital."</p>
 <p>Her voice cracked.</p>

@@ -29,7 +29,7 @@ chapter = 654
 <p>His amber eyes swept over the gathered crowd, locking onto the various leaders and their entourage. Every fiber of his being declared what was already known—he was the foxkin prince, the pride of his people, and the natural-born victor of this duel.</p>
 <p>But…</p>
 <p>The bastard wasn't even here yet.</p>
-<p>A hush fell over the crowd as the realization sank in. The opposing entrance remained lacking of a warrior, there were no signs of movement from within. Irritation crossed Raelor's face before he schooled his features back into a mask of confidence. ȑãꞐȯᛒΕʂ</p>
+<p>A hush fell over the crowd as the realization sank in. The opposing entrance remained lacking of a warrior, there were no signs of movement from within. Irritation crossed Raelor's face before he schooled his features back into a mask of confidence.</p>
 <p>Was the fool too afraid to show up? Did he piss his pants and run with his tail between his legs?</p>
 <p>Silver was about to open his mouth to unleash a barrage of insults when…</p>
 <p>*Thud.*</p>

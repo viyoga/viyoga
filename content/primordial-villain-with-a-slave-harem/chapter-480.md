@@ -30,7 +30,7 @@ chapter = 480
 <p>&lt;We can fight once we get home. The loser has to do whatever the winner demands.&gt; I replied to her wishes.</p>
 <p>She giggled, &lt;let me guess, an hour-long sloppy deepthroat session while fondling your balls?&gt;</p>
 <p>&lt;An hour-long deepthroat session while fondling my balls.&gt; I confirmed her strong suspicions.</p>
-<p>&lt;I accept!&gt; Lucille cheered without even stating her demand should she win, knowing full well that with such important stakes being on the line, I would never lose. However, I would make sure that she can go all out by limiting my power output so that she can vent all her frustrations before submitting to me entirely. Ŕ𝒶NО𝔟ЕṢ</p>
+<p>&lt;I accept!&gt; Lucille cheered without even stating her demand should she win, knowing full well that with such important stakes being on the line, I would never lose. However, I would make sure that she can go all out by limiting my power output so that she can vent all her frustrations before submitting to me entirely.</p>
 <p>Stay connected via empire</p>
 <p>"What a show, ladies and gentlemen. Two upsets and both in such a spectacular fashion! I'm not being overly dramatic when I say that we're witnessing history being made in real time!" Vex decreed and received numerous shouts of agreement from the audience. None of them could ever expect that the veteran combatants would be triumphed by mere upstarts.</p>
 <p>Following Iris' duel came the normal ones. 16 participants passed, and all of my allies were included in that list.</p>

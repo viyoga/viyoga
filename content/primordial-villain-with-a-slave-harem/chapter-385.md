@@ -23,7 +23,7 @@ chapter = 385
 <p>"No, Master just has to lay as he is. However…" She lowered her voice in shame and uncertainty, clearly not sure if I'll appreciate whatever she thought to gift me with.</p>
 <p>"What's the issue? Go for it. There's no way I would hate whatever you do for me."</p>
 <p>"Uhm… Master, Blossom has an admission to make. She wanted to do this for a long time now, so it's more of a present for her than Master… She is a greedy, bad girl…"</p>
-<p>"Stop your drooping, my beloved first mate. Do what your heart tells you to. As Lucille said before, when you have a special person you want to see them happy, and to me, all four of you are that special person." Ṙ𝙖Ŋö𝐛Ës̈</p>
+<p>"Stop your drooping, my beloved first mate. Do what your heart tells you to. As Lucille said before, when you have a special person you want to see them happy, and to me, all four of you are that special person."</p>
 <p>She thought a bit inwardly before audibly steeling her resolve. "Can Miss Lucille get off of Master?"</p>
 <p>"Hmm? Sure." My beautiful caramel-haired lover happily accommodated the previously insecure dog-kin's request as she climbed off of me and kneeled next to my form, eagerly awaiting to see what Blossom came up with. Her surprise had let me know that their 'sexual gifts' were not shared with the others.</p>
 <p>"Here she comes. Master should prepare himself." Blossom announced for all to hear before greedily diving in.</p>

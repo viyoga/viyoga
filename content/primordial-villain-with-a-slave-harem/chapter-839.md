@@ -33,7 +33,7 @@ chapter = 839
 <p>Quinlan moved.</p>
 <p>He inhaled.</p>
 <p>Wind.</p>
-<p>He dashed forth from the entry line with immense speed, reappearing in their midst with a burst of wind that made the closest three cultivators stagger. ɽ𝔞No͍𝐛ЕⱾ</p>
+<p>He dashed forth from the entry line with immense speed, reappearing in their midst with a burst of wind that made the closest three cultivators stagger.</p>
 <p>"What?!"</p>
 <p>He struck, but his fist stuttered mid-punch. Fire, meant to follow wind, came too late. The transition stuttered. His Avatar Core needed some refining, and that was something he wasn’t allowed time to do.</p>
 <p>Pain stabbed through his forearm.</p>

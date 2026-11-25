@@ -30,7 +30,7 @@ chapter = 884
 <p>Nalai rose gracefully, landing upon his broad shoulder. A film of water enveloped her form, resisting the corrupted flames hissing all around her.</p>
 <p>She nodded silently. “Yes, my lord. But before, please allow me to say something</p>
 <p>Venthros narrowed his eyes.</p>
-<p>The corrupted fire seethed around him, licking at Nalai’s watery veil. He studied her for a moment with a gaze that was tight and suspicious, but not alarmed. She had obeyed him for weeks. Plotted beside him. Wounded fought against her own blood. ꞦÃNŐᛒƐ𝓢</p>
+<p>The corrupted fire seethed around him, licking at Nalai’s watery veil. He studied her for a moment with a gaze that was tight and suspicious, but not alarmed. She had obeyed him for weeks. Plotted beside him. Wounded fought against her own blood.</p>
 <p>Say it, then.”</p>
 <p>She stepped closer.</p>
 <p>Closer still.</p>

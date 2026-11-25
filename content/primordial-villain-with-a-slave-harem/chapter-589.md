@@ -32,7 +32,7 @@ chapter = 589
 <p>"Oh, right!" Lumi realized rather cutely.</p>
 <p>"Quinnie, do you have something to say in your defense?!" Miri asked. Both of them were glancing up at me with quite serious gazes as if I’d done something bad. Curiously, the rest of their bodies didn’t seem to be synced together with their brains as their warm hugging continued.</p>
 <p>I had to chuckle wryly, why was I being in trouble?</p>
-<p>Knowing they could not witness the happening of Thalorind by themselves, instead only receiving information from the Goddess, I had to guess she found fault with one of my actions. Ř𝖆₦ꝊBЕ𐌔</p>
+<p>Knowing they could not witness the happening of Thalorind by themselves, instead only receiving information from the Goddess, I had to guess she found fault with one of my actions.</p>
 <p>To find out what it could be, I searched my memories, glancing over all the bad stuff I had done since departing from this place to beat and enslave Selene.</p>
 <p>"Was it when I permitted Vivienne’s raping?" Experience more on</p>
 <p>"Huh?!" Miri gasped, and Lumi asked, "You did what?!"</p>

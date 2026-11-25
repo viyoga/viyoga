@@ -36,7 +36,7 @@ chapter = 797
 <p>Zhang Yong's head rolled across the dirt, mouth still half-open in mid-beg. His body twitched once, then went still.</p>
 <p>Silence settled over the clearing like a blanket.</p>
 <p>Quinlan exhaled slowly, regaining his breath, and flicked the blood off his blade.</p>
-<p>Feng Jiai stood frozen as disbelief warped her delicate expression with her eyes widening, reflecting the brutal execution. The chirping of crickets returned at last, indifferent to the mortal life just snuffed out. ℟àＮƟʙÈs̈</p>
+<p>Feng Jiai stood frozen as disbelief warped her delicate expression with her eyes widening, reflecting the brutal execution. The chirping of crickets returned at last, indifferent to the mortal life just snuffed out.</p>
 <p>Her lips parted, but no words came. Just moments ago, she had been at the mercy of a talented young master in the Meridian Opening Stage, a cultivator leagues above ordinary folk. And now… he lay headless, with his lifeblood soaking the soil.</p>
 <p>Killed.</p>
 <p>By a man who, by all appearances, had no cultivation base at all.</p>

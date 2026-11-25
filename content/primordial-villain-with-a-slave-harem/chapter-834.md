@@ -28,7 +28,7 @@ chapter = 834
 <p>Quinlan’s breathing didn’t even hitch. He broke into a light jog, skirting the perimeter of shadowed halls and forgotten corridors. The alarm hadn’t been raised.</p>
 <p>They moved like ghosts.</p>
 <p>And then...</p>
-<p>They passed through an outer gate, cleverly choosing the path taken by servants and supply carriers, bypassing the main arteries. Past the final barricade... ŘаΝΟ𐌱ЕS̈</p>
+<p>They passed through an outer gate, cleverly choosing the path taken by servants and supply carriers, bypassing the main arteries. Past the final barricade...</p>
 <p>Until suddenly they found themselves in the city proper.</p>
 <p>The air changed. Smelled more of sweat and wine. Noise returned: a distant laugh, the clack of dice, the scold of a mother calling her child back inside.</p>
 <p>Quinlan rounded a corner and found what he was looking for: a small cluster of drunkards passed out beside a broken cart and half a barrel of something sour and strong.</p>

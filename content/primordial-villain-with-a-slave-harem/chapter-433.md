@@ -33,7 +33,7 @@ chapter = 433
 <p>"Emily, right?" I asked and the woman in question gasped from the surprise of a man with my exterior recognizing her.</p>
 <p>"Yes… I'm sorry, but I don't know you…" She murmured weakly in a careful tone, worried that her not recognizing me would offend me.</p>
 <p>"I'm Quinlan, the guy who saved you from goblin captivity a few months ago. I just underwent a bit of a physical transformation since then."</p>
-<p>This was the woman who acted as a sort of leader of the goblin breeding captives at the place where we later met Blossom for the first time. I remember her for being very strong-willed, as even in that situation she remained firm and helped me tend to the other captives. 𝘙â₦Ȱ𐌱ËṤ</p>
+<p>This was the woman who acted as a sort of leader of the goblin breeding captives at the place where we later met Blossom for the first time. I remember her for being very strong-willed, as even in that situation she remained firm and helped me tend to the other captives.</p>
 <p>"Really? Is that you?!" She asked as realization dawned on her. I couldn't fault her for her disbelief, I truly changed a lot since then, namely the Primordial Breeding Physique changed me almost completely.</p>
 <p>I just gently nodded at her question. She started walking up to me. Emily clearly wanted to welcome me with a hug, but she was reluctant. I was a mighty warrior and she was a filthy goblin-breeding victim in her eyes, so our stations were too different.</p>
 <p>She had no right to even speak to me in a casual tone, let alone touch me, or so she thought. I didn't care much about such theatrics, so I parted my arms to let her know that it was okay.</p>

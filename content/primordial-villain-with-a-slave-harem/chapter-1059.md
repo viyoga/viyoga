@@ -29,7 +29,7 @@ chapter = 1059
 <p>"I’m sure he’ll love them. Didn’t he already get a prototype or something?" Aurora voiced her thoughts.</p>
 <p>"Yes, but I went all out with the real presents!"</p>
 <p>A cold voice spoke up next. "This is fun and all, I suppose, but I want to go back home. Right now."</p>
-<p>Who could’ve guessed that Iris was itching to shed her gorgeous, noble dress with its horribly revealing skirt and everything and return to the comforting embrace of her dark armor? Finally being able to stop playing the role of Quinlan’s wife (ewww!) also seemed like a truly tantalizing prospect. ŔâꞐÒꞖÊȿ</p>
+<p>Who could’ve guessed that Iris was itching to shed her gorgeous, noble dress with its horribly revealing skirt and everything and return to the comforting embrace of her dark armor? Finally being able to stop playing the role of Quinlan’s wife (ewww!) also seemed like a truly tantalizing prospect.</p>
 <p>"You’ve been behaving much better than I expected, truth be told." Ayame nodded along sagely. She even reached out to pet Iris’s lush black hair.</p>
 <p>The Skysplitter found her arm twisted and broken.</p>
 <p>Or she would’ve if she hadn’t retracted it at the last moment.</p>

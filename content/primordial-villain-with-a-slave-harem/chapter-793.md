@@ -28,7 +28,7 @@ chapter = 793
 <p>Quinlan rolled his neck with a sigh, "Kids these days. So damn loud."</p>
 <p>He glanced down, finally taking stock of himself.</p>
 <p>His Soul Reaper still hung at his side, taken out of his pocket ring that was nowhere to be seen. The saber was sheathed in its dark scabbard. Good.</p>
-<p>But his clothes were different: gone were the tactical layers and dark armor he'd become used to. In their place was a deep black combat robe, high-collared and embroidered with silver wave-like trim across the hems. On his robe's back, the ghostly silhouette of a serpent coiled around a crescent moon could be seen. He looked like something ripped from a xianxia legend—and he wore it well. 𝐫𝓪𐌽𝖔𝖇Èṡ</p>
+<p>But his clothes were different: gone were the tactical layers and dark armor he'd become used to. In their place was a deep black combat robe, high-collared and embroidered with silver wave-like trim across the hems. On his robe's back, the ghostly silhouette of a serpent coiled around a crescent moon could be seen. He looked like something ripped from a xianxia legend—and he wore it well.</p>
 <p>"HEEEELP!!!" Another cry sounded. Closer once again.</p>
 <p>For the first time since landing in this strange world, Quinlan took a step.</p>
 <p>And nearly fell flat on his face.</p>

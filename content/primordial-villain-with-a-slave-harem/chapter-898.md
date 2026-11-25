@@ -37,7 +37,7 @@ chapter = 898
 <p>He paced slowly along a ridge overlooking a yet-forming canyon in his Soul Realm, thinking aloud.</p>
 <p>"So... I inherited Venthros’ divine seeds. Wait, no, that sounds painfully gay. Let’s rephrase."</p>
 <p>He cleared his throat.</p>
-<p>"After felling the corrupted god, I absorbed the remnants of Venthros’ divinity. Two seeds. One of Corruption, the other of the Elements. One dormant, one tainted." ŖＡ𝐍ỒᛒÈŜ</p>
+<p>"After felling the corrupted god, I absorbed the remnants of Venthros’ divinity. Two seeds. One of Corruption, the other of the Elements. One dormant, one tainted."</p>
 <p>He nodded to himself.</p>
 <p>"I need to purify them. Nurture them. Only then can they evolve into proper divine concepts I can wield. Whatever wielding a concept means..."</p>
 <p>He glanced back at the still sky above.</p>

@@ -34,7 +34,7 @@ chapter = 1114
 <p>He’d been interested since the first time he laid eyes on her. But, frankly, anyone with at least acceptable taste in women would be, even if they were women themselves. Such was the stark and exotic beauty Raika exuded.</p>
 <p>But looks alone weren’t enough for him. Quinlan didn’t look for good fucks and pretty trophies but women he wanted to accompany him on his quest for ultimate power and freedom.</p>
 <p>Orianna and Black Fang were just as striking, yet he still hadn’t decided if they were harem material or simply potential comrades.</p>
-<p>Raika, though? Beating her into the dirt and still seeing that fire in her eyes... Having this brief but fun conversation with her... that turned his interest from ’dang, what a hot babe this one is’ to ’I want this woman in my life.’ ℝÁŊôВЁS</p>
+<p>Raika, though? Beating her into the dirt and still seeing that fire in her eyes... Having this brief but fun conversation with her... that turned his interest from ’dang, what a hot babe this one is’ to ’I want this woman in my life.’</p>
 <p>It was abrupt, maybe even ridiculous, but Quinlan trusted his heart. He always had with his wives. Logic had always taken a backseat in the matter of love.</p>
 <p>Or he wouldn’t have flirted with Vex, where he truthfully risked his life in doing so. Even more dangerous was accepting and then stuffing the royal princess of the dogkin people, Kitsara, in their own territory.</p>
 <p>Papa Vargis could’ve gone after his hide, but Quinlan didn’t care about reason. His heart told him Kitsara was worth it, and he had no regrets whatsoever.</p>

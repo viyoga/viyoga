@@ -36,7 +36,7 @@ chapter = 658
 <p>So I bought it the only way I could: dodge and deflect the arrows while enduring the pain caused by those I failed to avoid.</p>
 <p>Once my preparations were complete, I slammed my left palm onto the arena floor.</p>
 <p>The earth rumbled.</p>
-<p>It started as a tremor beneath my fingertips. Then, with sheer force of will, I pulled from deep within myself, gathering enough strength to alter the whole battlefield. ɌÄŊốΒΕ𝘚</p>
+<p>It started as a tremor beneath my fingertips. Then, with sheer force of will, I pulled from deep within myself, gathering enough strength to alter the whole battlefield.</p>
 <p>*Crack!*</p>
 <p>Stone split open. The once-flat arena turned into a chaotic maze of walls and towering formations. Pillars of rock shot up, and crumbling debris rained down as the uneven terrain enveloped the battlefield.</p>
 <p>Veyrin leaped backward, landing lightly on one of the new stone formations. He frowned with his fox ears twitching.</p>

@@ -26,7 +26,7 @@ chapter = 906
 <p>Her sister.</p>
 <p>Her precious little sister.</p>
 <p>Even if they’d spirited away from one another in the final battle... she still loved her. She always would.</p>
-<p>The pain in her heart bloomed, becoming sharp and all too much unbearable. A small, choked sound escaped her lips. The weight of the world seemed to press down on her, threatening to shatter her resolve. Yet, amidst the desolation, a spark of hope still flickered alive within her when she felt a firm, steady hand grip her shoulder. ṙÁ𐌽Ö฿ƐŜ</p>
+<p>The pain in her heart bloomed, becoming sharp and all too much unbearable. A small, choked sound escaped her lips. The weight of the world seemed to press down on her, threatening to shatter her resolve. Yet, amidst the desolation, a spark of hope still flickered alive within her when she felt a firm, steady hand grip her shoulder.</p>
 <p>Quinlan.</p>
 <p>Just his mere touch was enough to bring change...</p>
 <p>His warmth grounded her, a silent promise of strength. On her other side, Feng finally approached, her own expression a mix of extreme concern and fierce loyalty. Her previous jealousy was nowhere to be seen. While Feng was greatly envious of Serika, she still cherished the woman greatly. She didn’t want to see her hurting one bit.</p>

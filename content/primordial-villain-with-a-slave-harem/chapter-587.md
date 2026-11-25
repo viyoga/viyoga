@@ -27,7 +27,7 @@ chapter = 587
 <p>"Lord Black, what’s that sound? It’s like someone is choking on their food… Are you alright?!" Felicity’s worried voice swiftly opposed Sera’s statement.</p>
 <p>&lt;Keke! It seems you weren’t eager enough in your servicing, Sera.&gt; Ayame giggled amusedly, forcing the elf in question to mount a strong case of defense, protecting her honor as a woman. &lt;It was my first time, we all know Lucille is a throat demon! Furthermore, I was mad at him for daring to call Felicity while I was doing my best to make him feel good… Hmph! That’s right, I wasn’t trying my hardest. In fact, I wasn’t trying at all.&gt;</p>
 <p>Lucille was so into her euphoric sloppy toppy that she didn’t even recognize the fact that there was a heated conversation going on in her head.</p>
-<p>&lt;Blossom understands Seraphiel’s worries! Even she is beaten by Lucille when it comes to giving Master oral pleasure, no matter how hard Blossom tries…&gt; My dog-girl whined her serious frustrations. РἈɴỗ𝔟ЕS̈</p>
+<p>&lt;Blossom understands Seraphiel’s worries! Even she is beaten by Lucille when it comes to giving Master oral pleasure, no matter how hard Blossom tries…&gt; My dog-girl whined her serious frustrations.</p>
 <p>&lt;I’m not worried!&gt;</p>
 <p>Ignoring my ladies for a moment, I replied to Felicity’s question. "I’m fine, you don’t need to worry. I’m in the barn feeding my cows, the sound you heard is the greediest of them gorging on her favorite meal."</p>
 <p>&lt;I can’t believe my ears…&gt; Iris grumbled.</p>

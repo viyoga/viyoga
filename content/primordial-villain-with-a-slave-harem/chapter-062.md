@@ -29,7 +29,7 @@ chapter = 62
 <p>The gauntlets and bracers are reinforced and sturdy, designed to withstand the harshest of blows. They too are decorated with golden filigree, ensuring that the aesthetic beauty of the armor is maintained throughout. The waist is cinched with a wide, ornate belt, from which hangs a series of protective, yet flexible, plates that cover the upper legs.</p>
 <p>The skirt-like design provides both mobility and defense, a perfect blend of functionality and style.</p>
 <p>The leg armor is sleek and powerful, each piece interlocking seamlessly to allow for agile movement while providing robust protection. The boots are sturdy, built for both battle and long marches, their design mirroring the rest of the armor with golden accents and engravings.</p>
-<p>Overall, this armor exudes an aura of power, nobility, and impeccable craftsmanship. It is a suit that commands respect and awe, both on the battlefield and in the halls of power. ŖἈɴỐ𐌱È𝐒</p>
+<p>Overall, this armor exudes an aura of power, nobility, and impeccable craftsmanship. It is a suit that commands respect and awe, both on the battlefield and in the halls of power.</p>
 <p>I examine the set, wishing to see its details;</p>
 <p>[Gilded Eastern Warlord Armor Set]</p>
 <p>[Rarity: Rare]</p>

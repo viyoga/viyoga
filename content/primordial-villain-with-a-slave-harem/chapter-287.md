@@ -25,7 +25,7 @@ chapter = 287
 <p>"If you're this confident then all is good. I hope to see you succeed. I truly do." Jasmine nodded with a cheery expression plastered across her face.</p>
 <p>"Because you would have a Phenom who clearly doesn't mind talking with you casually about non-work related stuff, and you could even try to seduce him seriously once he gets the rank? For yourself that time around, not for your father's schemes.</p>
 <p>We might be your best bet at making an important ally of your own who has nothing to do with Aurelion." Ayame let her thoughts out without a filter restricting her delicate lips.</p>
-<p>Jasmine frowned cutely, "I don't know whatever could you mean, Miss Blade. I'm an innocent girl who would never use her feminine charms to her advantage in order to get ahead in life." ℞ά𝐍ȰᛒЁś</p>
+<p>Jasmine frowned cutely, "I don't know whatever could you mean, Miss Blade. I'm an innocent girl who would never use her feminine charms to her advantage in order to get ahead in life."</p>
 <p>Before a more serious catfight could ensue, a knocking sound reverberated through our house.</p>
 <p>*Knock knock knock*</p>
 <p>"I'm here to complete the examination of Devil and his team. Without this, their participation in the Trials won't be permitted." A man's voice stated.</p>

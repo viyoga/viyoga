@@ -29,7 +29,7 @@ chapter = 337
 <p>"Lord Malakar-"</p>
 <p>"Malakar is fine, young one. You're a primordial like me and what's more, I can also sense that you are a human one as well."</p>
 <p>"Could you explain what you mean by that?"</p>
-<p>"Oh? You don't even know this? Come, sit next to me. It'll take a little while." He said while patting the ground on which he sat. I glanced at the spot next to him wryly, because due to my severe trust issues I was already imagining him pushing me down into the abyss below the land, but my logic told me that if he wanted to harm me he could do it at any time, so I listened. РäΝǒ𝐛È𝘴</p>
+<p>"Oh? You don't even know this? Come, sit next to me. It'll take a little while." He said while patting the ground on which he sat. I glanced at the spot next to him wryly, because due to my severe trust issues I was already imagining him pushing me down into the abyss below the land, but my logic told me that if he wanted to harm me he could do it at any time, so I listened.</p>
 <p>I watched as he calmly drew the line of his rod in. Thus far, no catch occurred. I don't really know what he was expecting to catch in the sky with a fishing rod, but I had more important questions to ask.</p>
 <p>"When were you born, lad?" He asked.</p>
 <p>That's a difficult question, and I'm not sure if I should even answer that one. In the end, I went with my gut and told him. "Supposedly I'm less than a year old."</p>

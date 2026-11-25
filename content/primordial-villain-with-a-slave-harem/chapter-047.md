@@ -25,7 +25,7 @@ chapter = 47
 <p>"That's good to hear. I don't want you to spend the coins we earn through our sweat and blood on whores and gold diggers when you inevitably realize that I won't fall for you in a thousand years and become depressed."</p>
 <p>Look at this cheeky girl.</p>
 <p>"I always welcome a good challenge." I state confidently to which she laughs in reply.</p>
-<p>We soon disengage from our embrace. "It was nice to lighten up the mood but we are in a monster cave and we have to hide the loot we wish to take before Blossom brings others here." ṙä₦О฿Ęs̩</p>
+<p>We soon disengage from our embrace. "It was nice to lighten up the mood but we are in a monster cave and we have to hide the loot we wish to take before Blossom brings others here."</p>
 <p>She nods, "you are right. I will check the treasury then. Good luck with your task and thank you for your compassion."</p>
 <p>"Don't mind it, Ayame."</p>
 <p>We do as discussed, and I approach the last chamber of the cavern. As I draw nearer, faint sounds reach my ears- cries, wails, and desperate sobs echoing off the cold stone walls. The sorrow and anguish in those voices are almost palpable and I'm already glad that I've sent Ayame away.</p>

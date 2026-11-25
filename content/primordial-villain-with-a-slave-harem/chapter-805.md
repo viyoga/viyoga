@@ -27,7 +27,7 @@ chapter = 805
 <p>Feng stuck her tongue out at their backs as they passed.</p>
 <p>Quinlan said nothing, but his smile had turned a degree sharper.</p>
 <p>…</p>
-<p>The sun hung heavy in the sky, casting a strong gleam of light over the ring at the center of Zhaokun's town square, where a large number of people gathered. ŖἈƝՕᛒЁȿ</p>
+<p>The sun hung heavy in the sky, casting a strong gleam of light over the ring at the center of Zhaokun's town square, where a large number of people gathered.</p>
 <p>The event had a rhythm to it. Every round began the same: a middle-aged organizer, robed in the fiery colors of the city, made his way to each of the ten elders seated on their raised thrones. They whispered into his ears, but their mouths were veiled behind folding fans and raised hands so that their words couldn't be lipread. Once the selections were made, ten names were called out—ten hopefuls chosen from the sea of candidates.</p>
 <p>The chosen ten ascended the stone stage and bowed to the elders. Then, one by one, they stepped forward to showcase a technique of their choosing. Flaming palms, sword strikes, body enhancement arts—all were performed with dramatic flair. Some elders nodded in mild interest, others shook their heads, or even openly yawned.</p>
 <p>And then came the free-for-all.</p>

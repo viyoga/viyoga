@@ -24,7 +24,7 @@ chapter = 340
 <p>"He's bloody and sweaty. We have to clean this baby up!" The human then decreed.</p>
 <p>"Yeah, his clothes are unbecoming too! Babies shouldn't be wearing armor. Let's do this!"</p>
 <p>And just as so, I found myself getting hauled off from the edge of the floating land towards wherever these feisty ladies decided to take me.</p>
-<p>I did not doubt that they had enough strength to carry me, but thankfully they merely clutched my hands to their chests desperately as we walked side-by-side next to each other, with me being in the middle. In the meantime, I was bombarded with questions that seemed to be endless as it flew out of the two women's mouths without pause. They asked the questions one after the other while switching who spoke each time. ꞦÅꞐОВЁṣ</p>
+<p>I did not doubt that they had enough strength to carry me, but thankfully they merely clutched my hands to their chests desperately as we walked side-by-side next to each other, with me being in the middle. In the meantime, I was bombarded with questions that seemed to be endless as it flew out of the two women's mouths without pause. They asked the questions one after the other while switching who spoke each time.</p>
 <p>"What's your name?" The human started.</p>
 <p>"Quinlan."</p>
 <p>"What's your favorite food?" The elf continued.</p>

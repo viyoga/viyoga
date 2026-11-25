@@ -22,7 +22,7 @@ chapter = 894
 <p>Quinlan stepped forward, approaching the man. Once at a short distance, he stopped, and his voice rang out.</p>
 <p>"I accept."</p>
 <p>The words echoed across the field, cutting through smoke and silence.</p>
-<p>"I accept your vow, Sage Rongtai of Daluang. I recognize the weight of your name, and the honor behind it. As long as I walk this path, I will not demand obedience through fear, nor command loyalty without worth. You kneel as a warrior, and I accept you as one." R̃ἈＮổ฿Ęŝ</p>
+<p>"I accept your vow, Sage Rongtai of Daluang. I recognize the weight of your name, and the honor behind it. As long as I walk this path, I will not demand obedience through fear, nor command loyalty without worth. You kneel as a warrior, and I accept you as one."</p>
 <p>He paused, letting the silence honor that truth.</p>
 <p>"Daluang shall endure. Through stillness, through stone—and through me."</p>
 <p>Rongtai’s shoulders eased, as though the weight of generations had finally found rest.</p>

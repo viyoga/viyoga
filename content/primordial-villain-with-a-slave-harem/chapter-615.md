@@ -30,7 +30,7 @@ chapter = 615
 <p>I was Quinlan Noir.</p>
 <p>The Primordial Villain.</p>
 <p>It was time to roll.</p>
-<p>"Ignis, hold Wrath and guard my team. I’ll assist you in gaining distance," I instructed before tossing a surprised Iris across the air, right into the Ashbringer’s hands. Ṛ𝐚ΝȯꞖΕ𝒮</p>
+<p>"Ignis, hold Wrath and guard my team. I’ll assist you in gaining distance," I instructed before tossing a surprised Iris across the air, right into the Ashbringer’s hands.</p>
 <p>Ignis was as lost as could be, but he caught Iris without a problem, placed her on his back, and was back to focusing on combating the undead.</p>
 <p>I no longer had to pretend to be using [Airwalk], so I began hovering in the air instead. Doing so required less focus on my part.</p>
 <p>"Vex, Raika, come to me."</p>

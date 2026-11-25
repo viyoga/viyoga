@@ -37,7 +37,7 @@ chapter = 885
 <p>For just a single moment, he became something else.</p>
 <p>Something meant to tear through divinity itself.</p>
 <p>Between the two—the brain and the heart—his Avatar Core began to shine brighter than ever before.</p>
-<p>It responded to its master’s call like a living sun, not one that floated in a distant sky, but one caged inside the frame of a mere man. It blazed not with mere heat, but with truth; the truth of a being who had walked through fire, drowned in stillness, broken against stone, and soared through wind, and emerged not shattered, but whole. ꭆ𝘼₦ỒᛒЁȘ</p>
+<p>It responded to its master’s call like a living sun, not one that floated in a distant sky, but one caged inside the frame of a mere man. It blazed not with mere heat, but with truth; the truth of a being who had walked through fire, drowned in stillness, broken against stone, and soared through wind, and emerged not shattered, but whole.</p>
 <p>And now…</p>
 <p>That truth refused to be contained.</p>
 <p>Quinlan Elysiar’s body trembled from the sheer abundance of power that was flowing through him. His veins throbbed as light flew through them. His skin shimmered with ripples of undiluted power, and suddenly, elemental sigils became visible, branding themselves across his form like declarations of his expanding dominion.</p>

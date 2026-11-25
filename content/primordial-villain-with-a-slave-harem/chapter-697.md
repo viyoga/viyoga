@@ -36,7 +36,7 @@ chapter = 697
 <p>It was a mistake. Her brain got overloaded.</p>
 <p>Iris instantly jolted awake like a wild animal whose peaceful sleep had been disturbed by the arrival of an unknown presence in its territory.</p>
 <p>She practically launched herself away from me as if I had just stabbed her instead of given her hair a gentle pat.</p>
-<p>I turned around toward the woman with an amused expression, which only strengthened once I laid eyes on her gorgeous face that was partially obscured by her windswept black bangs, but even with their obstruction, a shade of crimson I had never seen her display before could be observed. R𝙖ＮȫꞖÊꞩ</p>
+<p>I turned around toward the woman with an amused expression, which only strengthened once I laid eyes on her gorgeous face that was partially obscured by her windswept black bangs, but even with their obstruction, a shade of crimson I had never seen her display before could be observed.</p>
 <p>What a breathtaking sight this one was…</p>
 <p>"I-I…" she stammered, then clenched her jaw shut so hard I thought she might break her teeth.</p>
 <p>I raised an eyebrow. "Is there a problem, dearest Iris?"</p>

@@ -29,7 +29,7 @@ chapter = 1008
 <p>The Skysplitter, naturally, was already well acquainted with how she should act to play her role of a rich noble mom.</p>
 <p>The attendant, eyes wide, bowed again so fast her voice nearly cracked. "I-It was an honor to serve you. Please, enjoy the festivities."</p>
 <p>Stormlord simply walked forward again, and the gates creaked open and then groaned shut behind them.</p>
-<p>Their guide said nothing as he led the way down the polished streets of the noble district. He took the straightest possible route, ignoring the lavish mansions lining the avenues, the merchant pavilions stocked with luxury wares, and the music playing in the far-off courtyards. 𝐑₳ℕȎʙƐS̈</p>
+<p>Their guide said nothing as he led the way down the polished streets of the noble district. He took the straightest possible route, ignoring the lavish mansions lining the avenues, the merchant pavilions stocked with luxury wares, and the music playing in the far-off courtyards.</p>
 <p>No time for sightseeing. No time for detours.</p>
 <p>It was a direct line to the palace.</p>
 <p>Quinlan couldn’t help but find it strange. As they passed an elegant plaza carved with the emblems of the great houses, he spoke up. "You’re escorting us as if we were criminals you’re afraid to let go without supervision in the noble district. We might not be Central nobles, but the way we’re being treated is not right. Our plan was to take a look around first. Walk the district. Stretch our legs, explore a bit."</p>

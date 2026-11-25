@@ -29,7 +29,7 @@ chapter = 754
 <p>Vex’s body locked down over mine, her arms wrapped around my head and her forehead mashed up against mine, using herself as a living shield even as her breath came in ragged bursts. One lionkin leapt high with an overhead swing. Another approached low, slicing sideways with a pair of curved daggers. I could hear more behind them—too many.</p>
 <p>I couldn’t move properly. I couldn’t think, feeling as if most of my brain cells shut off.</p>
 <p>I just felt it: death was closing in on us.</p>
-<p>With my hands pinned beneath her body, I aimed them past her sides. My mana surged. I didn’t care what spell came out. I’d launch everything. Anything. 𝘙𝓪ƝÓ฿Ěș</p>
+<p>With my hands pinned beneath her body, I aimed them past her sides. My mana surged. I didn’t care what spell came out. I’d launch everything. Anything.</p>
 <p>"GET AWAY FROM HER!” I screamed, rage and helplessness tearing my throat raw.</p>
 <p>I was already casting.</p>
 <p>But then…</p>

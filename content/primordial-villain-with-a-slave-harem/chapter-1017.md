@@ -27,7 +27,7 @@ chapter = 1017
 <p>The banquet had begun.</p>
 <p>The maid, still bowing, spoke again in a subservient but urgent tone.</p>
 <p>"Your Highness... if I may. The King and Queen have already made their entrance. Your siblings, too. We will make the court wait."</p>
-<p>Felicity stood still for a moment, then laughed, bringing her hand to her lips to cover it. "Oh no, how rude of me," she smirked, utterly unbothered. "Well, we can’t have so many people waiting on little old me, can we?" 𝐫₳𐌽𝔬𝖇ƐS</p>
+<p>Felicity stood still for a moment, then laughed, bringing her hand to her lips to cover it. "Oh no, how rude of me," she smirked, utterly unbothered. "Well, we can’t have so many people waiting on little old me, can we?"</p>
 <p>With that, she turned and led them down a wide marble corridor, flanked by gilded columns and lit by chandeliers. The doors at the end of the hall stood open, revealing the golden glow of the grand banquet hall.</p>
 <p>As they neared, a stern-faced announcer in crisp formal wear stood ready with a scroll in hand. Felicity leaned in close, cupped her hand, and whispered something in his ear.</p>
 <p>The announcer stood frozen for a second before blinking, looking horrified. But he gave a bow. "As Her Highness commands."</p>

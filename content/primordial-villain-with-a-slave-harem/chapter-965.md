@@ -34,7 +34,7 @@ chapter = 965
 <p>An existential shiver rattled down her spine.</p>
 <p>Not her.</p>
 <p>Anyone but her.</p>
-<p>Quinlan didn’t bother to spare them further words. His fingers flicked through a simple motion in the air. A new portal flared open as the old one closed. ℞ÄƝỒᛒĚŠ</p>
+<p>Quinlan didn’t bother to spare them further words. His fingers flicked through a simple motion in the air. A new portal flared open as the old one closed.</p>
 <p>"Back to your chambers. Wait for further instructions."</p>
 <p>The command was absolute. Unquestionable.</p>
 <p>The twins didn’t even try to protest. They stepped through the portal like condemned prisoners walking toward the gallows.</p>

@@ -23,7 +23,7 @@ chapter = 103
 <p>If there's one woman in the universe who is willing to accommodate my rather unorthodox requests it's going to be the girl kneeling in front of me and staring at my pants as if a dragon could emerge from it at any second and gobble her up.</p>
 <p>I decide to just go for it. If she feels uncomfortable, we can always go back to the vanilla side of things. "Blossom," I utter her name with love evident in my voice.</p>
 <p>"Hmm?" She finally relents from her staring contest with my bulging underwear and locks eyes with me.</p>
-<p>"I don't know how to tell you this the right way, so I will just spit it out. I would like to try a few things out with you. Things your mother probably didn't instruct you about. Is that okay? Don't be afraid to tell me if you are against them, after all, I want you to feel good as well." ṘΑ𐌽Ȏ𝔟Ës</p>
+<p>"I don't know how to tell you this the right way, so I will just spit it out. I would like to try a few things out with you. Things your mother probably didn't instruct you about. Is that okay? Don't be afraid to tell me if you are against them, after all, I want you to feel good as well."</p>
 <p>She examines my face for a second before erupting into a cute, happy giggle. "Master is too kind. Blossom will feel good if Master is happy! Master shouldn't hold his desires back because Blossom will accept them all with open arms!"</p>
 <p>I have no other words besides, "you are the best girl in the whole damn world, Blossom."</p>
 <p>"Hehehe!" She accepts my declaration with a merry giggle.</p>

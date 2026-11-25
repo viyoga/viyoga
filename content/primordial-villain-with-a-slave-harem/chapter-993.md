@@ -30,7 +30,7 @@ chapter = 993
 <p>"Any time. But..." she tilted her head toward the chair "... if you want him to live long enough to scream some more for mother dearest, then..."</p>
 <p>"Oh!" Jasmine pulled back in a sudden flurry of movement, her hands flying to her mouth. "Right!"</p>
 <p>A round of soft laughter rippled through the room as she hastily stepped aside, giving Seraphiel space to work her magic.</p>
-<p>The elf, ever composed despite the carnage, stood gracefully over Aurelion’s ruined form. A swirl of soft green and silver mana flowed from her materialized staff, enveloping the man’s broken body. Bones cracked and realigned beneath his skin. Flesh sizzled as it tried to stitch itself together. Seraphiel’s expression was cool and professional, but with a mischievous edge. She was an artist fine-tuning their work. РàＮОBƐ𝙎</p>
+<p>The elf, ever composed despite the carnage, stood gracefully over Aurelion’s ruined form. A swirl of soft green and silver mana flowed from her materialized staff, enveloping the man’s broken body. Bones cracked and realigned beneath his skin. Flesh sizzled as it tried to stitch itself together. Seraphiel’s expression was cool and professional, but with a mischievous edge. She was an artist fine-tuning their work.</p>
 <p>Jasmine, meanwhile, watched in awe. But then her gaze lowered, toward the splashes of red on the white fabric of Seraphiel’s unbelievably gorgeous dress. A guilty smile tugged at her lips.</p>
 <p>"I ruined your pretty dress..." she mumbled. "Look, it’s all dirty now. Is that okay too? No, it’s not... I’ll pay you back as soon as I have the money."</p>
 <p>Seraphiel blinked, then slowly looked down at herself.</p>

@@ -36,7 +36,7 @@ chapter = 1006
 <p>Stormlord didn’t reply.</p>
 <p>Instead...</p>
 <p>*CRACK!*</p>
-<p>A bolt of lightning tore through the space where he stood, blinding him for a heartbeat. The air screamed, and the already ruined cobblestones beneath his boots were completely pulverized into small atoms from the raw discharge. ꭆΆℕổＢÈŚ</p>
+<p>A bolt of lightning tore through the space where he stood, blinding him for a heartbeat. The air screamed, and the already ruined cobblestones beneath his boots were completely pulverized into small atoms from the raw discharge.</p>
 <p>He vanished.</p>
 <p>A few seconds later, another thundering boom exploded above the gathered crowd, and Stormlord reappeared atop a nearby stone outcropping that overlooked the square. Electric bolts still buzzed around his frame as if he’d stepped out of the heart of a storm.</p>
 <p>In his hand was a rolled scroll, its ends sealed with red wax bearing the crest of House Valorian: a crowned man’s upper torso with twin blades crossed before him, making it clear they were a militaristic family who conquered by might, not politics. At least during their inception.</p>

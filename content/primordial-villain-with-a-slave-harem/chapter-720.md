@@ -26,7 +26,7 @@ chapter = 720
 <p>"This was… The! Best! Day! Ever!" His usual composure was nowhere to be seen; the pure joy of having killed so many lionkin was coursing through his veins as if it were a drug.</p>
 <p>He wasn't the only one high off the slaughter.</p>
 <p>Two more figures emerged from the bloodied streets: Vex and Raika.</p>
-<p>Gone were the pristine styles they usually favored. Vex's signature white kendo-style uniform had been soaked to a dark maroon, every inch of fabric caked in gore. Raika's trendy black outfit didn't fare any better; whatever chic she'd been going for earlier was now lost under a layer of dried blood and war grit. Not even their faces had escaped; each of them wore a red mask made not of paint or war paint, but death. ȓ𝙖ŊоᛒÈ𐌔</p>
+<p>Gone were the pristine styles they usually favored. Vex's signature white kendo-style uniform had been soaked to a dark maroon, every inch of fabric caked in gore. Raika's trendy black outfit didn't fare any better; whatever chic she'd been going for earlier was now lost under a layer of dried blood and war grit. Not even their faces had escaped; each of them wore a red mask made not of paint or war paint, but death.</p>
 <p>They looked terrifying. But also incredibly gorgeous… There was an odd charm to their utterly feral appearance.</p>
 <p>To my surprise, Vex didn't stop at a respectable distance. She just kept walking… until her arms wrapped tightly around my waist and her head nestled into my chest with a quiet sigh, like she belonged there.</p>
 <p>"Thank you," she murmured. "I've never killed so many lionkin in a single day."</p>

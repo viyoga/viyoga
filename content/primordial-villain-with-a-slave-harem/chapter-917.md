@@ -31,7 +31,7 @@ chapter = 917
 <p>The way they commanded attention with every breath.</p>
 <p>Feng’s mouth dropped open with a faint sparkle of comprehension blooming in her dark eyes.</p>
 <p>It all made sense now.</p>
-<p>Her hands slowly, mechanically, lifted up toward her chest. She cupped her little bust, gave it a tentative squeeze, as if she was testing if they were even still attached. Such was the difference... ℟åɴÔꞖЁš</p>
+<p>Her hands slowly, mechanically, lifted up toward her chest. She cupped her little bust, gave it a tentative squeeze, as if she was testing if they were even still attached. Such was the difference...</p>
 <p>Well... At least they were.</p>
 <p>Just... barely.</p>
 <p>A dramatic wind howled behind her (where did that come from?) as Feng stared off into the distance, her expression a mix of awe, horror, and existential crisis.</p>

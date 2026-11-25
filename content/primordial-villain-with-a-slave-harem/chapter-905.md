@@ -32,7 +32,7 @@ chapter = 905
 <p>"Something like that... Care to visit?" &lt;subtxt&gt; &lt;/subtxt&gt;</p>
 <p>A smirk played across her lips as she nodded in response.</p>
 <p>’Admirable,’ Quinlan thought. ’Not even a flicker of hesitation. Brave as ever... though that blush earlier was adorable.’</p>
-<p>This time, with her unspoken consent clear, he reached out once more, and this time, the barrier parted like silk. Her form shimmered, then vanished from the battlefield in an instant. 𝖗ἁꞐОΒЕṠ</p>
+<p>This time, with her unspoken consent clear, he reached out once more, and this time, the barrier parted like silk. Her form shimmered, then vanished from the battlefield in an instant.</p>
 <p>—</p>
 <p>Within his soul realm...</p>
 <p>A gently rolling field expanded until the edges of the rather small dimension. It was very sparse for now. No natural life existed in this world just yet.</p>
