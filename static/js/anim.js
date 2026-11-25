@@ -43,6 +43,34 @@
     })(counts[c]);
   }
 
+  /* section plate sheen: once when visible, replayed on pointer entry */
+  var heads = doc.querySelectorAll('.section-header');
+  var reduceMotion = window.matchMedia && window.matchMedia('(prefers-reduced-motion: reduce)').matches;
+  if (heads.length && !reduceMotion) {
+    var canHover = !window.matchMedia || window.matchMedia('(hover: hover)').matches;
+    function sweep(header) {
+      header.classList.remove('is-sheen');
+      void header.offsetWidth;
+      header.classList.add('is-sheen');
+    }
+    for (var h = 0; h < heads.length; h++) {
+      (function(header) {
+        var io3 = new IntersectionObserver(function(entries) {
+          entries.forEach(function(entry) {
+            if (entry.isIntersecting) {
+              sweep(header);
+              io3.unobserve(header);
+            }
+          });
+        }, { threshold: 0.55 });
+        io3.observe(header);
+        if (canHover) {
+          header.addEventListener('pointerenter', function() { sweep(header); });
+        }
+      })(heads[h]);
+    }
+  }
+
   /* image skeleton shimmer cleanup when loaded */
   var imgs = doc.querySelectorAll('.chapter-illustration img, .illustrations-gallery img');
   imgs.forEach(function(img) {
