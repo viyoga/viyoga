@@ -6,7 +6,7 @@
    `chapter-page` additionally swaps the site nav for the chapter bar on phones. #}
 {% block body_class %}reading chapter-page{% endblock body_class %}
 
-{% block extrascripts %}{{ super() }}<script defer src="/js/chapter-settings.js?v=20261125a"></script><script defer src="/js/chapter-bar.js?v=20261123a"></script>{% endblock extrascripts %}
+{% block extrascripts %}{{ super() }}<script defer src="/js/chapter-settings.js?v=20261126e"></script><script defer src="/js/chapter-bar.js?v=20261123a"></script>{% endblock extrascripts %}
 
 {% block content %}
 {% set ancestors = page.ancestors %}
@@ -133,25 +133,38 @@
     {% endif %}
   </nav>
   <button class="back-btn chapter-bar-tools" id="chapter-settings-btn" type="button"
-          aria-label="Reading settings" aria-expanded="false" aria-controls="chapter-settings">Aa</button>
+          aria-label="Reading settings" aria-haspopup="dialog" aria-expanded="false" aria-controls="chapter-settings">Aa</button>
 
 </header>
+</div>
 
-  {# Mobile-only reading sheet: the site nav (and its theme/font buttons) is
-     hidden on chapter pages, so everything lives here. #}
-  <div class="chapter-settings" id="chapter-settings" aria-hidden="true">
+<div class="chapter-settings-scrim" id="chapter-settings-scrim" aria-hidden="true"></div>
+<section class="chapter-settings" id="chapter-settings" role="dialog" aria-modal="true" aria-label="Reading settings" aria-hidden="true" tabindex="-1">
+  <div class="cs-head">
+    <span>Reading</span>
+    <button class="cs-close" id="chapter-settings-close" type="button" aria-label="Close reading settings">&times;</button>
+  </div>
+
+  <div class="cs-group">
+    <div class="cs-label"><span>Size</span><output id="cs-size-out" for="cs-size">100%</output></div>
     <div class="cs-size">
       <span class="cs-a cs-a-min" aria-hidden="true">A</span>
       <input class="cs-range" id="cs-size" type="range" min="85" max="130" step="5" value="100" aria-label="Text size">
       <span class="cs-a cs-a-max" aria-hidden="true">A</span>
     </div>
+  </div>
 
+  <div class="cs-group">
+    <div class="cs-label"><span>Font</span></div>
     <div class="cs-faces" role="group" aria-label="Typeface">
       <button type="button" data-font-choice="maple"><b>Aa</b><span>Maple</span></button>
       <button type="button" data-font-choice="iosevka"><b>Aa</b><span>Iosevka</span></button>
       <button type="button" data-font-choice="space"><b>Aa</b><span>Space</span></button>
     </div>
+  </div>
 
+  <div class="cs-group">
+    <div class="cs-label"><span>Theme</span><output id="cs-theme-name" aria-live="polite">Safelight</output></div>
     <div class="cs-themes" role="group" aria-label="Theme">
       <button type="button" data-theme-choice="amber" aria-label="Amber" title="Amber"><i></i></button>
       <button type="button" data-theme-choice="zeel" aria-label="Zeel" title="Zeel"><i></i></button>
@@ -159,10 +172,9 @@
       <button type="button" data-theme-choice="tungsten" aria-label="Tungsten" title="Tungsten"><i></i></button>
       <button type="button" data-theme-choice="ocean" aria-label="Ocean Blue" title="Ocean Blue"><i></i></button>
       <button type="button" data-theme-choice="nyctophobia" aria-label="Nyctophobia" title="Nyctophobia"><i></i></button>
-      <span class="cs-theme-name" id="cs-theme-name" aria-live="polite">Safelight</span>
     </div>
   </div>
-</div>
+</section>
 
 <div class="chapter-body entry-content" itemprop="articleBody">
   {% if chapter_name %}

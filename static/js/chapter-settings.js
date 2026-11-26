@@ -1,13 +1,15 @@
 /* Reading settings for phones.
    The site nav is hidden on chapter pages at <=768px, so the theme and font
-   buttons live here too. Everything writes to the same storage keys the
-   desktop buttons use and fires the same events the canvas layers listen for,
-   which keeps a phone and a laptop on one set of preferences. */
+   controls live in a glass popup here. Everything writes to the same storage
+   keys the desktop buttons use and fires the same events the canvas layers
+   listen for, which keeps a phone and a laptop on one set of preferences. */
 (function() {
   var root = document.documentElement;
   var btn = document.getElementById('chapter-settings-btn');
   var panel = document.getElementById('chapter-settings');
-  if (!btn || !panel) return;
+  var scrim = document.getElementById('chapter-settings-scrim');
+  var closeBtn = document.getElementById('chapter-settings-close');
+  if (!btn || !panel || !scrim) return;
 
   var FONTS = ['maple', 'iosevka', 'space'];
   var THEMES = (window.__THEMES__ && window.__THEMES__.length)
@@ -17,6 +19,7 @@
   var fontBtns = panel.querySelectorAll('[data-font-choice]');
   var themeBtns = panel.querySelectorAll('[data-theme-choice]');
   var range = document.getElementById('cs-size');
+  var sizeOut = document.getElementById('cs-size-out');
   var themeName = document.getElementById('cs-theme-name');
   var THEME_LABELS = {
     amber: 'Amber', zeel: 'Zeel', safelight: 'Safelight',
@@ -63,7 +66,7 @@
 
   /* ── Size ──
      One CSS variable, scoped to the chapter column on phones. The rail runs
-     85–130% in 5% steps; the thumb is the readout, so no numbers are needed. */
+     85–130% in 5% steps; the output is the readout. */
   var MIN = 85, MAX = 130, DEF = 100;
   var size = parseInt(load('rsize'), 10);
   if (isNaN(size)) size = DEF;
@@ -72,6 +75,7 @@
   function paintSize() {
     root.style.setProperty('--read-scale', String(size / 100));
     if (range) range.value = String(size);
+    if (sizeOut) sizeOut.textContent = size + '%';
   }
   function setSize(next) {
     next = Math.min(MAX, Math.max(MIN, Math.round(next / 5) * 5));
@@ -81,19 +85,31 @@
     paintSize();
   }
 
-  /* ── Panel ── */
-  var openAt = 0;
+  /* ── Popup ── */
   function isOpen() { return panel.classList.contains('is-open'); }
+
   function open() {
-    openAt = window.pageYOffset || 0;
+    if (isOpen()) return;
     panel.classList.add('is-open');
+    scrim.classList.add('is-open');
     panel.setAttribute('aria-hidden', 'false');
     btn.setAttribute('aria-expanded', 'true');
+    root.classList.add('settings-open');
+    if (window.__lenis) window.__lenis.stop();
+    setTimeout(function() {
+      if (isOpen()) panel.focus({ preventScroll: true });
+    }, 220);
   }
-  function close() {
+
+  function close(returnFocus) {
+    if (!isOpen()) return;
     panel.classList.remove('is-open');
+    scrim.classList.remove('is-open');
     panel.setAttribute('aria-hidden', 'true');
     btn.setAttribute('aria-expanded', 'false');
+    root.classList.remove('settings-open');
+    if (window.__lenis) window.__lenis.start();
+    if (returnFocus !== false) btn.focus({ preventScroll: true });
   }
 
   setFont(root.getAttribute('data-font') || load('font') || 'iosevka', false);
@@ -105,24 +121,29 @@
     if (isOpen()) close(); else open();
   });
 
-  panel.addEventListener('click', function(e) { e.stopPropagation(); });
+  if (closeBtn) closeBtn.addEventListener('click', function() { close(); });
+  scrim.addEventListener('click', function() { close(); });
 
-  document.addEventListener('click', function() {
-    if (isOpen()) close();
-  });
   document.addEventListener('keydown', function(e) {
     if (e.key === 'Escape' && isOpen()) {
       close();
-      btn.focus();
     }
   });
-  window.addEventListener('pagehide', close);
 
-  /* The bar scrolls away with the page, so a sheet hanging off it would be
-     stranded mid-prose. Dismiss it as soon as the reader moves on. */
-  window.addEventListener('scroll', function() {
-    if (isOpen() && Math.abs((window.pageYOffset || 0) - openAt) > 24) close();
-  }, { passive: true });
+  panel.addEventListener('keydown', function(e) {
+    if (e.key !== 'Tab' || !isOpen()) return;
+    var focusable = panel.querySelectorAll('button, input, [href], [tabindex]:not([tabindex="-1"])');
+    if (!focusable.length) return;
+    var first = focusable[0];
+    var last = focusable[focusable.length - 1];
+    if (e.shiftKey && document.activeElement === first) {
+      e.preventDefault();
+      last.focus();
+    } else if (!e.shiftKey && document.activeElement === last) {
+      e.preventDefault();
+      first.focus();
+    }
+  });
 
   for (var i = 0; i < fontBtns.length; i++) {
     fontBtns[i].addEventListener('click', function() {
@@ -139,10 +160,12 @@
     range.addEventListener('change', function() { setSize(Number(this.value)); });
   }
 
-  // Desktop never shows the sheet; if a resize crosses the breakpoint with it
+  window.addEventListener('pagehide', function() { close(false); });
+
+  // Desktop never shows the popup; if a resize crosses the breakpoint with it
   // open, drop the state so the hidden markup cannot trap focus.
   var mq = window.matchMedia('(max-width: 768px)');
-  var onChange = function() { if (!mq.matches) close(); };
+  var onChange = function() { if (!mq.matches) close(false); };
   if (mq.addEventListener) mq.addEventListener('change', onChange);
   else if (mq.addListener) mq.addListener(onChange);
 })();

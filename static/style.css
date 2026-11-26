@@ -1948,7 +1948,7 @@ body.reading .chapter-body {
 }
 /* Tools button only exists on phones, where it replaces the site nav. */
 .chapter-bar-tools { display: none; }
-.chapter-settings { display: none; }
+.chapter-settings, .chapter-settings-scrim { display: none; }
 .chapter-bar-arrow {
   width: 34px;
   height: 34px;
@@ -2066,42 +2066,128 @@ body.reading .chapter-body {
     font-size: calc(1rem * var(--read-scale, 1));
   }
 
-  /* ── Reading settings sheet ──
-     No labels, no segmented boxes: a size rail, live type samples and five
-     theme discs. Everything is read at a glance instead of parsed. */
-  .chapter-settings {
-    position: absolute;
-    top: calc(100% - 1px);
-    left: 0;
-    right: 0;
+  /* ── Reading settings popup ──
+     A right-aligned glass card under the chapter bar. Square corners, one
+     scrim, and the same storage keys as the desktop controls. */
+  html.settings-open,
+  html.settings-open body {
+    overflow: hidden;
+    overscroll-behavior: none;
+  }
+  .chapter-settings-scrim {
     display: block;
-    padding: 13px 16px 15px;
-    border-bottom: 1px solid color-mix(in srgb, var(--fg) 14%, transparent);
-    background:
-      var(--glass-specular),
-      linear-gradient(180deg, rgba(255, 255, 255, 0.05), rgba(255, 255, 255, 0) 45%),
-      color-mix(in srgb, var(--bg-panel) 62%, transparent);
-    backdrop-filter: blur(26px) saturate(var(--sat, 155%));
-    -webkit-backdrop-filter: blur(26px) saturate(var(--sat, 155%));
-    box-shadow: 0 22px 42px -18px rgba(0, 0, 0, 0.6), var(--glass-bevel-top), var(--glass-bevel-bottom);
-    max-height: calc(100dvh - 80px);
+    position: fixed;
+    inset: 0;
+    z-index: 60;
+    background: rgba(2, 6, 10, 0.55);
+    -webkit-backdrop-filter: blur(6px) saturate(var(--sat, 155%));
+    backdrop-filter: blur(6px) saturate(var(--sat, 155%));
+    touch-action: none;
+    opacity: 0;
+    visibility: hidden;
+    pointer-events: none;
+    transition: opacity 0.2s ease, visibility 0.2s;
+  }
+  .chapter-settings-scrim.is-open {
+    opacity: 1;
+    visibility: visible;
+    pointer-events: auto;
+  }
+  .chapter-settings {
+    display: block;
+    position: fixed;
+    top: calc(56px + env(safe-area-inset-top, 0px));
+    right: 12px;
+    left: 12px;
+    z-index: 61;
+    max-width: 380px;
+    max-height: calc(100dvh - 72px - env(safe-area-inset-top, 0px));
+    margin-left: auto;
+    padding: 16px 16px 18px;
     overflow-y: auto;
+    overscroll-behavior: contain;
+    border: 1px solid color-mix(in srgb, var(--fg) 16%, transparent);
+    border-radius: 0;
+    background:
+      radial-gradient(140% 120% at 0% 0%, color-mix(in srgb, var(--fg) 8%, transparent), transparent 55%),
+      linear-gradient(90deg, transparent 28%, color-mix(in srgb, var(--accent) 72%, #fff) 50%, transparent 72%) bottom / 100% 1px no-repeat,
+      color-mix(in srgb, var(--bg-panel) 62%, transparent);
+    -webkit-backdrop-filter: blur(22px) saturate(var(--sat, 155%));
+    backdrop-filter: blur(22px) saturate(var(--sat, 155%));
+    box-shadow:
+      0 1px 2px rgba(0, 0, 0, 0.5),
+      0 24px 60px rgba(0, 0, 0, 0.6),
+      inset 0 1px 0 color-mix(in srgb, var(--fg) 28%, transparent),
+      inset 0 -1px 0 rgba(0, 0, 0, 0.45),
+      0 14px 40px -18px color-mix(in srgb, var(--accent) 45%, transparent);
     opacity: 0;
     visibility: hidden;
     transform: translateY(-6px);
-    transition: opacity 0.16s ease, transform 0.18s cubic-bezier(0.16, 1, 0.3, 1), visibility 0.16s;
+    transition: opacity 0.18s ease, transform 0.22s cubic-bezier(0.2, 0.8, 0.2, 1), visibility 0.18s;
   }
   .chapter-settings.is-open {
     opacity: 1;
     visibility: visible;
-    transform: translateY(0);
+    transform: none;
+  }
+  .chapter-settings:focus { outline: none; }
+  @supports not (backdrop-filter: blur(1px)) {
+    .chapter-settings { background: var(--bg-panel); }
+  }
+  .cs-head {
+    display: flex;
+    align-items: center;
+    justify-content: space-between;
+    gap: 12px;
+    margin-bottom: 14px;
+    font-size: 0.68rem;
+    letter-spacing: 0.14em;
+    text-transform: uppercase;
+    color: var(--fg-dim);
+  }
+  .cs-close {
+    width: 28px;
+    height: 28px;
+    padding: 0;
+    border: 1px solid color-mix(in srgb, var(--fg) 16%, transparent);
+    border-radius: 0;
+    background: color-mix(in srgb, var(--bg-panel) 35%, transparent);
+    color: var(--fg-dim);
+    font: inherit;
+    font-size: 1.1rem;
+    line-height: 1;
+    cursor: pointer;
+  }
+  .cs-close:hover {
+    color: var(--accent);
+    border-color: color-mix(in srgb, var(--accent) 55%, transparent);
+  }
+  .cs-group + .cs-group {
+    margin-top: 16px;
+    padding-top: 14px;
+    border-top: 1px solid color-mix(in srgb, var(--fg) 10%, transparent);
+  }
+  .cs-label {
+    display: flex;
+    align-items: baseline;
+    justify-content: space-between;
+    gap: 12px;
+    margin-bottom: 10px;
+    font-size: 0.66rem;
+    letter-spacing: 0.14em;
+    text-transform: uppercase;
+    color: var(--fg-dim);
+  }
+  .cs-label output {
+    color: var(--accent);
+    letter-spacing: 0.04em;
   }
 
   /* Size rail */
   .cs-size {
     display: flex;
     align-items: center;
-    gap: 13px;
+    gap: 12px;
     height: 30px;
   }
   .cs-a {
@@ -2124,149 +2210,153 @@ body.reading .chapter-body {
   }
   .cs-range:focus-visible { outline: none; }
   .cs-range::-webkit-slider-runnable-track {
-    height: 1px;
-    background: color-mix(in srgb, var(--fg) 24%, transparent);
+    height: 2px;
+    background: color-mix(in srgb, var(--fg) 22%, transparent);
   }
   .cs-range::-webkit-slider-thumb {
     -webkit-appearance: none;
     appearance: none;
-    width: 3px;
-    height: 17px;
-    margin-top: -8px;
+    width: 10px;
+    height: 22px;
+    margin-top: -10px;
     border: 0;
     border-radius: 0;
     background: var(--accent);
-    box-shadow: 0 0 10px color-mix(in srgb, var(--accent) 65%, transparent);
+    box-shadow: 0 0 14px var(--accent);
   }
   .cs-range::-moz-range-track {
-    height: 1px;
-    background: color-mix(in srgb, var(--fg) 24%, transparent);
+    height: 2px;
+    background: color-mix(in srgb, var(--fg) 22%, transparent);
   }
   .cs-range::-moz-range-thumb {
-    width: 3px;
-    height: 17px;
+    width: 10px;
+    height: 22px;
     border: 0;
     border-radius: 0;
     background: var(--accent);
-    box-shadow: 0 0 10px color-mix(in srgb, var(--accent) 65%, transparent);
+    box-shadow: 0 0 14px var(--accent);
   }
   .cs-range:focus-visible::-webkit-slider-thumb {
     box-shadow: 0 0 0 2px var(--bg-panel), 0 0 0 3px var(--accent);
   }
 
   /* Type samples */
-  .cs-faces,
-  .cs-themes {
-    margin-top: 11px;
-    padding-top: 12px;
-    border-top: 1px solid color-mix(in srgb, var(--fg) 8%, transparent);
-  }
   .cs-faces {
     display: grid;
     grid-template-columns: repeat(3, minmax(0, 1fr));
-    gap: 4px;
+    gap: 8px;
   }
   .cs-faces button {
+    position: relative;
     display: flex;
     flex-direction: column;
     align-items: center;
-    gap: 3px;
-    padding: 6px 2px 7px;
-    border: 0;
-    border-bottom: 1px solid transparent;
+    gap: 8px;
+    padding: 13px 4px 11px;
+    border: 1px solid color-mix(in srgb, var(--fg) 12%, transparent);
     border-radius: 0;
-    background: none;
-    color: var(--fg-muted);
+    background:
+      linear-gradient(90deg, transparent, rgba(255, 255, 255, 0.05) 50%, transparent),
+      color-mix(in srgb, var(--bg-panel) 40%, transparent);
+    box-shadow: inset 0 1px 0 color-mix(in srgb, var(--fg) 20%, transparent);
+    color: var(--fg-dim);
     cursor: pointer;
-    transition: color 0.15s ease, border-color 0.15s ease;
+    transition: color 0.15s ease, border-color 0.15s ease, transform 0.12s ease;
   }
-  .cs-faces b {
-    font-size: 1.1875rem;
-    font-weight: 400;
-    line-height: 1;
-  }
-  .cs-faces span {
-    font-family: var(--font-mono);
-    font-size: 0.5rem;
-    letter-spacing: 0.13em;
-    text-transform: uppercase;
-  }
-  .cs-faces button[data-font-choice="maple"] b { font-family: "Maple Mono NF", monospace; }
-  .cs-faces button[data-font-choice="iosevka"] b { font-family: "Iosevka", monospace; }
-  .cs-faces button[data-font-choice="space"] b { font-family: "Space Mono", monospace; }
-  .cs-faces button:hover { color: var(--fg-dim); }
-  .cs-faces button { position: relative; }
-  .cs-faces button[aria-pressed="true"] { color: var(--fg); }
-  /* A short rule under the chosen sample, not a full-width tab. */
-  .cs-faces button[aria-pressed="true"]::after {
+  .cs-faces button::after {
     content: "";
     position: absolute;
     left: 50%;
-    bottom: 0;
-    width: 30px;
+    bottom: -1px;
+    width: 0;
     height: 1px;
-    margin-left: -15px;
-    background: var(--accent);
+    transform: translateX(-50%);
+    background: linear-gradient(90deg, transparent, color-mix(in srgb, var(--accent) 35%, #fff), transparent);
+    transition: width 0.25s ease;
+  }
+  .cs-faces button:hover::after,
+  .cs-faces button[aria-pressed="true"]::after { width: 82%; }
+  .cs-faces button[aria-pressed="true"] {
+    color: var(--accent);
+    border-color: color-mix(in srgb, var(--accent) 60%, transparent);
+    box-shadow:
+      inset 0 1px 0 color-mix(in srgb, var(--fg) 28%, transparent),
+      0 10px 24px -14px var(--accent);
+  }
+  .cs-faces button:active { transform: scale(0.97); }
+  .cs-faces b {
+    font-size: 1.7rem;
+    font-weight: 400;
+    line-height: 1;
+    color: var(--fg);
+  }
+  .cs-faces span {
+    font-family: var(--font-mono);
+    font-size: 0.58rem;
+    letter-spacing: 0.16em;
+    text-transform: uppercase;
   }
   .cs-faces button[aria-pressed="true"] span { color: var(--accent); }
-  .cs-faces button:focus-visible,
-  .cs-themes button:focus-visible {
-    outline: 2px solid var(--focus-ring);
-    outline-offset: 2px;
-  }
+  .cs-faces button[data-font-choice="maple"] b { font-family: "Maple Mono NF", monospace; }
+  .cs-faces button[data-font-choice="iosevka"] b { font-family: "Iosevka", monospace; }
+  .cs-faces button[data-font-choice="space"] b { font-family: "Space Mono", monospace; }
 
-  /* Theme discs: each one shows its own paper and ink. */
+  /* Theme swatches: square, flat, one accent line when chosen. */
   .cs-themes {
     display: flex;
-    align-items: center;
-    gap: 13px;
+    flex-wrap: wrap;
+    gap: 10px;
     padding-left: 2px;
-    padding-bottom: 1px;
   }
   .cs-themes button {
-    width: 27px;
-    height: 27px;
+    position: relative;
+    width: 34px;
+    height: 34px;
     padding: 0;
-    border: 0;
-    border-radius: 50%;
-    background: none;
+    border: 1px solid color-mix(in srgb, #fff 22%, transparent);
+    border-radius: 0;
+    background: var(--sw-ink);
     cursor: pointer;
-    transition: transform 0.15s cubic-bezier(0.16, 1, 0.3, 1);
+    box-shadow: inset 0 1px 0 rgba(255, 255, 255, 0.28);
+    transition: transform 0.12s ease;
   }
-  /* Paper inside, ink around: each disc previews its own reading room. */
-  .cs-themes i {
-    display: block;
-    width: 100%;
-    height: 100%;
-    border-radius: 50%;
-    background: color-mix(in srgb, var(--sw-ink) 22%, var(--sw-paper));
-    box-shadow: inset 0 0 0 2px var(--sw-ink);
-    transition: box-shadow 0.15s ease, transform 0.15s ease;
+  .cs-themes i { display: none; }
+  .cs-themes button:active { transform: scale(0.94); }
+  .cs-themes button[aria-pressed="true"] {
+    outline: 1px solid var(--accent);
+    outline-offset: 3px;
+    box-shadow: 0 0 18px -2px var(--sw-ink);
   }
-  .cs-themes button:active { transform: scale(0.92); }
-  .cs-themes button[data-theme-choice="amber"]       { --sw-paper: #0B0906; --sw-ink: #FF8A4D; }
-  .cs-themes button[data-theme-choice="zeel"]        { --sw-paper: #080513; --sw-ink: #B38BD1; }
-  .cs-themes button[data-theme-choice="safelight"]   { --sw-paper: #0B0406; --sw-ink: #FF4D6A; }
-  .cs-themes button[data-theme-choice="tungsten"]    { --sw-paper: #0A0A0C; --sw-ink: #F2F5FA; }
-  .cs-themes button[data-theme-choice="ocean"]       { --sw-paper: #04121F; --sw-ink: #38BDF8; }
-  .cs-themes button[data-theme-choice="nyctophobia"] { --sw-paper: #0C1118; --sw-ink: #EA5562; }
-  /* The two red themes need naming; small and quiet, not a legend. */
-  .cs-theme-name {
-    margin-left: auto;
-    font-family: var(--font-mono);
-    font-size: 0.5625rem;
-    letter-spacing: 0.1em;
-    text-transform: uppercase;
-    color: var(--fg-muted);
-    user-select: none;
+  .cs-themes button[aria-pressed="true"]::after {
+    content: "";
+    position: absolute;
+    left: 50%;
+    bottom: -8px;
+    width: 60%;
+    height: 1px;
+    transform: translateX(-50%);
+    background: linear-gradient(90deg, transparent, var(--accent), transparent);
   }
-  .cs-themes button[aria-pressed="true"] i {
-    box-shadow:
-      inset 0 0 0 2px var(--sw-ink),
-      0 0 0 2px color-mix(in srgb, var(--bg-panel) 80%, transparent),
-      0 0 0 3px var(--sw-ink),
-      0 0 13px color-mix(in srgb, var(--sw-ink) 40%, transparent);
+  .cs-themes button[data-theme-choice="amber"]       { --sw-ink: #FF8A4D; }
+  .cs-themes button[data-theme-choice="zeel"]        { --sw-ink: #B38BD1; }
+  .cs-themes button[data-theme-choice="safelight"]   { --sw-ink: #FF4D6A; }
+  .cs-themes button[data-theme-choice="tungsten"]    { --sw-ink: #F2F5FA; }
+  .cs-themes button[data-theme-choice="ocean"]       { --sw-ink: #38BDF8; }
+  .cs-themes button[data-theme-choice="nyctophobia"] { --sw-ink: #EA5562; }
+
+  .cs-close:focus-visible,
+  .cs-faces button:focus-visible,
+  .cs-themes button:focus-visible {
+    outline: 1px solid var(--accent);
+    outline-offset: 3px;
   }
+  @media (prefers-reduced-motion: reduce) {
+    .chapter-settings,
+    .chapter-settings-scrim,
+    .cs-faces button,
+    .cs-themes button { transition: none; }
+  }
+
 }
 
 @media (max-width: 380px) {
@@ -2280,11 +2370,12 @@ body.reading .chapter-body {
   .chapter-bar-arrow,
   .chapter-bar-arrow.is-off { width: 32px; height: 32px; }
   .chapter-bar-tools { min-width: 32px; height: 32px; padding: 0 6px; font-size: 0.75rem; }
-  .chapter-settings { padding: 11px 12px 13px; }
+  .chapter-settings { padding: 14px 12px 16px; }
   .cs-size { gap: 10px; }
-  .cs-faces b { font-size: 1.125rem; }
-  .cs-themes { gap: 11px; }
-  .cs-themes button { width: 25px; height: 25px; }
+  .cs-faces { gap: 6px; }
+  .cs-faces b { font-size: 1.5rem; }
+  .cs-themes { gap: 8px; }
+  .cs-themes button { width: 30px; height: 30px; }
 }
 
 /* ── Novel Hero Terminal ── */
@@ -4958,8 +5049,7 @@ body.chapter-page .chapter-head::after {
   }
   html:not([data-design="new"]) :is(
     nav.top,
-    body.chapter-page .chapter-bar,
-    .chapter-settings
+    body.chapter-page .chapter-bar
   ) {
     -webkit-backdrop-filter: blur(8px) saturate(var(--sat, 155%));
     backdrop-filter: blur(8px) saturate(var(--sat, 155%));
@@ -4982,14 +5072,115 @@ body.chapter-page .chapter-head::after {
     -webkit-backdrop-filter: blur(6px) saturate(var(--sat, 155%));
     backdrop-filter: blur(6px) saturate(var(--sat, 155%));
   }
-  html:not([data-design="new"]).is-scrolling body.chapter-page::after {
-    -webkit-backdrop-filter: none;
-    backdrop-filter: none;
-  }
   html.is-scrolling .footer::after,
   html.is-scrolling .chapter-divider .cd-line::after,
   html.is-scrolling .hero-rule::after,
   html.is-scrolling nav.top .logo > .logo-orbit {
     animation-play-state: paused;
   }
+}
+
+
+/* ── First-visit intro ──
+   One short transform/opacity pass: the planet, then the wordmark. No filters. */
+html.intro-pending,
+html.intro-pending body {
+  overflow: hidden;
+  overscroll-behavior: none;
+}
+.intro {
+  position: fixed;
+  inset: 0;
+  z-index: 9999;
+  display: grid;
+  place-items: center;
+  background: var(--bg);
+  visibility: hidden;
+  pointer-events: none;
+}
+html.intro-pending .intro {
+  visibility: visible;
+  pointer-events: auto;
+}
+html.intro-leaving .intro {
+  opacity: 0;
+  transition: opacity 0.36s ease;
+}
+.intro-inner {
+  display: flex;
+  flex-direction: column;
+  align-items: center;
+  gap: 20px;
+  transform: translateY(-2vh);
+}
+.intro-orbit {
+  position: relative;
+  width: 64px;
+  height: 64px;
+  display: grid;
+  place-items: center;
+}
+.intro-orbit::before {
+  content: "";
+  position: absolute;
+  width: 58px;
+  height: 18px;
+  border: 1px solid color-mix(in srgb, var(--accent) 46%, transparent);
+  border-radius: 50%;
+  opacity: 0;
+  transform: rotate(-18deg) scaleX(0.45);
+  animation: intro-ring 0.8s cubic-bezier(0.22, 1, 0.36, 1) 0.08s forwards;
+}
+.intro-planet {
+  width: 30px;
+  height: 30px;
+  border-radius: 50%;
+  background: radial-gradient(circle at 32% 28%, var(--logo-light), var(--logo-base) 40%, var(--logo-mid) 80%, var(--logo-deep));
+  box-shadow: 0 0 22px -8px var(--logo-ring-b);
+  opacity: 0;
+  transform: scale(0.55);
+  animation: intro-planet 0.7s cubic-bezier(0.22, 1, 0.36, 1) 0.14s forwards;
+}
+.intro-word {
+  display: flex;
+  align-items: baseline;
+  font-family: var(--font-mono);
+  font-size: clamp(28px, 9vw, 44px);
+  line-height: 1;
+  letter-spacing: 0.12em;
+  color: var(--fg);
+}
+.intro-word span {
+  display: inline-block;
+  opacity: 0;
+  transform: translateY(0.35em);
+  animation: intro-letter 0.5s cubic-bezier(0.22, 1, 0.36, 1) forwards;
+  animation-delay: calc(0.44s + var(--i) * 0.055s);
+}
+.intro-word span:first-child {
+  color: var(--accent);
+  margin-right: 0.04em;
+}
+.intro-line {
+  width: 116px;
+  height: 1px;
+  background: linear-gradient(90deg, transparent, var(--accent), transparent);
+  transform: scaleX(0);
+  transform-origin: center;
+  animation: intro-line 0.6s cubic-bezier(0.22, 1, 0.36, 1) 0.98s forwards;
+}
+@keyframes intro-ring {
+  to { opacity: 0.85; transform: rotate(-18deg) scaleX(1.55); }
+}
+@keyframes intro-planet {
+  to { opacity: 1; transform: scale(1); }
+}
+@keyframes intro-letter {
+  to { opacity: 1; transform: none; }
+}
+@keyframes intro-line {
+  to { transform: scaleX(1); }
+}
+@media (prefers-reduced-motion: reduce) {
+  .intro { display: none; }
 }

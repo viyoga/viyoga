@@ -48,7 +48,18 @@
     apply();
   };</script>
   <title>{% block title %}{{ config.title }}{% endblock title %}</title>
-  <link rel="stylesheet" href="/style.css?v=20261126e">
+  <link rel="stylesheet" href="/style.css?v=20261126f">
+  <script>(function(){
+    var root = document.documentElement;
+    try {
+      if (!sessionStorage.getItem('viyoga-intro') &&
+          !window.matchMedia('(prefers-reduced-motion: reduce)').matches &&
+          !/[?&]nointro(?:[=&]|$)/.test(location.search)) {
+        root.classList.add('intro-pending');
+        setTimeout(function(){ root.classList.remove('intro-pending'); }, 3200);
+      }
+    } catch (e) {}
+  })();</script>
   <link id="redesign-css" rel="stylesheet" href="/redesign.css?v=20261125g" disabled>
   <script>(function(){
     var root = document.documentElement;
@@ -155,6 +166,13 @@
 {% block head %}{% endblock head %}
 </head>
 <body class="{% block body_class %}{% endblock body_class %}">
+<div class="intro" id="intro" aria-hidden="true">
+  <div class="intro-inner">
+    <div class="intro-orbit"><span class="intro-planet"></span></div>
+    <div class="intro-word"><span style="--i:0">~</span><span style="--i:1">v</span><span style="--i:2">i</span><span style="--i:3">y</span><span style="--i:4">o</span><span style="--i:5">g</span><span style="--i:6">a</span></div>
+    <div class="intro-line"></div>
+  </div>
+</div>
 <div id="scroll-bar" aria-hidden="true"></div>
 {% block canvas %}<canvas id="flue-canvas" aria-hidden="true"></canvas>
 <canvas id="grid-canvas"></canvas>{% endblock canvas %}
@@ -197,5 +215,24 @@
 <script defer src="/js/design.js?v=20261122c"></script>
 <script defer src="/js/reading-progress.js?v=20261125b"></script>
 <script defer src="/js/perf-hud.js?v=20261126a"></script>
+<script>(function(){
+  var root = document.documentElement;
+  var intro = document.getElementById('intro');
+  if (!intro || !root.classList.contains('intro-pending')) return;
+  var done = false;
+  function end() {
+    if (done) return;
+    done = true;
+    root.classList.add('intro-leaving');
+    try { sessionStorage.setItem('viyoga-intro', '1'); } catch (e) {}
+    setTimeout(function(){
+      root.classList.remove('intro-pending', 'intro-leaving');
+      if (intro.parentNode) intro.parentNode.removeChild(intro);
+    }, 400);
+  }
+  setTimeout(end, 1750);
+  intro.addEventListener('pointerdown', end, { once: true });
+  window.addEventListener('keydown', end, { once: true });
+})();</script>
 </body>
 </html>
