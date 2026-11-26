@@ -4958,12 +4958,20 @@ body.chapter-page .chapter-head::after {
   }
   html:not([data-design="new"]) :is(
     nav.top,
-    body.chapter-page .chapter-head,
     body.chapter-page .chapter-bar,
     .chapter-settings
   ) {
     -webkit-backdrop-filter: blur(8px) saturate(var(--sat, 155%));
     backdrop-filter: blur(8px) saturate(var(--sat, 155%));
+  }
+  html:not([data-design="new"]) body.chapter-page .chapter-head {
+    background:
+      linear-gradient(180deg, rgba(255, 255, 255, 0.05), transparent 54%),
+      linear-gradient(180deg,
+        color-mix(in srgb, var(--bg-panel) 88%, transparent),
+        color-mix(in srgb, var(--bg-panel) 72%, transparent));
+    -webkit-backdrop-filter: none;
+    backdrop-filter: none;
   }
   html:not([data-design="new"]) body.chapter-page::after {
     content: "";
@@ -4971,7 +4979,17 @@ body.chapter-page .chapter-head::after {
     inset: 0;
     z-index: -1;
     pointer-events: none;
-    -webkit-backdrop-filter: blur(8px) saturate(var(--sat, 155%));
-    backdrop-filter: blur(8px) saturate(var(--sat, 155%));
+    -webkit-backdrop-filter: blur(6px) saturate(var(--sat, 155%));
+    backdrop-filter: blur(6px) saturate(var(--sat, 155%));
+  }
+  html:not([data-design="new"]).is-scrolling body.chapter-page::after {
+    -webkit-backdrop-filter: none;
+    backdrop-filter: none;
+  }
+  html.is-scrolling .footer::after,
+  html.is-scrolling .chapter-divider .cd-line::after,
+  html.is-scrolling .hero-rule::after,
+  html.is-scrolling nav.top .logo > .logo-orbit {
+    animation-play-state: paused;
   }
 }
