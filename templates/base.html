@@ -52,10 +52,12 @@
   <script>(function(){
     var root = document.documentElement;
     try {
-      if (!sessionStorage.getItem('viyoga-intro') &&
+      if (!localStorage.getItem('viyoga-intro-seen') &&
+          (location.pathname === '/' || location.pathname === '/index.html') &&
           !window.matchMedia('(prefers-reduced-motion: reduce)').matches &&
           !/[?&]nointro(?:[=&]|$)/.test(location.search)) {
         root.classList.add('intro-pending');
+        try { localStorage.setItem('viyoga-intro-seen', '1'); } catch (e) {}
         setTimeout(function(){ root.classList.remove('intro-pending'); }, 3200);
       }
     } catch (e) {}
@@ -224,7 +226,7 @@
     if (done) return;
     done = true;
     root.classList.add('intro-leaving');
-    try { sessionStorage.setItem('viyoga-intro', '1'); } catch (e) {}
+    try { localStorage.setItem('viyoga-intro-seen', '1'); } catch (e) {}
     setTimeout(function(){
       root.classList.remove('intro-pending', 'intro-leaving');
       if (intro.parentNode) intro.parentNode.removeChild(intro);

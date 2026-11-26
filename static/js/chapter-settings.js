@@ -96,14 +96,16 @@
     btn.setAttribute('aria-expanded', 'true');
     root.classList.add('settings-open');
     if (window.__lenis) window.__lenis.stop();
-    setTimeout(function() {
-      if (isOpen()) panel.focus({ preventScroll: true });
-    }, 220);
+    if (closeBtn) {
+      panel.style.visibility = 'visible';
+      closeBtn.focus({ preventScroll: true });
+    }
   }
 
   function close(returnFocus) {
     if (!isOpen()) return;
     panel.classList.remove('is-open');
+    panel.style.visibility = '';
     scrim.classList.remove('is-open');
     panel.setAttribute('aria-hidden', 'true');
     btn.setAttribute('aria-expanded', 'false');
