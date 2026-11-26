@@ -1,5 +1,5 @@
 +++
-title = "Seong Yu-yeon (1)"
+title = "Seong Yu-yeon (1) [18+]"
 weight = 139
 [extra]
 chapter = 139

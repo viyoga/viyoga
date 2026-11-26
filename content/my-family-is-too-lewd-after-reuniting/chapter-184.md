@@ -1,5 +1,5 @@
 +++
-title = "(True) Semen Dispenser (1)"
+title = "(True) Semen Dispenser (1) [18+]"
 weight = 184
 [extra]
 chapter = 184

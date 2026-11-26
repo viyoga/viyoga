@@ -1,5 +1,5 @@
 +++
-title = "Defensive Duty (3)"
+title = "Defensive Duty (3) [18+]"
 weight = 77
 [extra]
 chapter = 77

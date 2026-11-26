@@ -1,5 +1,5 @@
 +++
-title = "Mandatory Defense (2)"
+title = "Mandatory Defense (2) [18+]"
 weight = 76
 [extra]
 chapter = 76

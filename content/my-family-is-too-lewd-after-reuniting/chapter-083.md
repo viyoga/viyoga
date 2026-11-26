@@ -1,5 +1,5 @@
 +++
-title = "The Den of Depravity (6)"
+title = "The Den of Depravity (6) [18+]"
 weight = 83
 [extra]
 chapter = 83

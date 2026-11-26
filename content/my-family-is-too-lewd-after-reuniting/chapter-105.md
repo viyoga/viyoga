@@ -1,5 +1,5 @@
 +++
-title = "The Immoral Trainees (2)"
+title = "The Immoral Trainees (2) [18+]"
 weight = 105
 [extra]
 chapter = 105

@@ -1,5 +1,5 @@
 +++
-title = "Hard-to-Breach Walls (6)"
+title = "Hard-to-Breach Walls (6) [18+]"
 weight = 19
 [extra]
 chapter = 19

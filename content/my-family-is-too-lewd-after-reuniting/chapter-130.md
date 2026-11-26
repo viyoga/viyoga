@@ -1,5 +1,5 @@
 +++
-title = "University District (2)"
+title = "University District (2) [18+]"
 weight = 130
 [extra]
 chapter = 130

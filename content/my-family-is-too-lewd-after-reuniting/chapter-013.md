@@ -1,5 +1,5 @@
 +++
-title = "Before the Business Trip (True) Breeding Press"
+title = "Before the Business Trip (True) Breeding Press [18+]"
 weight = 13
 [extra]
 chapter = 13

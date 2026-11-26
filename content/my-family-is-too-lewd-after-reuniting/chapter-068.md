@@ -1,5 +1,5 @@
 +++
-title = "Bodyguard (3)"
+title = "Bodyguard (3) [18+]"
 weight = 68
 [extra]
 chapter = 68

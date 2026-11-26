@@ -1,5 +1,5 @@
 +++
-title = "Jeju Island Night (2)"
+title = "Jeju Island Night (2) [18+]"
 weight = 55
 [extra]
 chapter = 55

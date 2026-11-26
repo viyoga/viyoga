@@ -1,5 +1,5 @@
 +++
-title = "Reversed Daily Life (2)"
+title = "Reversed Daily Life (2) [18+]"
 weight = 12
 [extra]
 chapter = 12

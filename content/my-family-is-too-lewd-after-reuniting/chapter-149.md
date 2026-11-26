@@ -1,5 +1,5 @@
 +++
-title = "Hamedorri (3)"
+title = "Hamedorri (3) [18+]"
 weight = 149
 [extra]
 chapter = 149

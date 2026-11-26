@@ -1,5 +1,5 @@
 +++
-title = "Daemado Subjugation (7)"
+title = "Daemado Subjugation (7) [18+]"
 weight = 167
 [extra]
 chapter = 167

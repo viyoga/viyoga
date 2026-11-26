@@ -1,5 +1,5 @@
 +++
-title = "Wedding Ceremony (6)"
+title = "Wedding Ceremony (6) [18+]"
 weight = 193
 [extra]
 chapter = 193

@@ -1,5 +1,5 @@
 +++
-title = "Mixed Blood"
+title = "Mixed Blood [18+]"
 weight = 237
 [extra]
 chapter = 237

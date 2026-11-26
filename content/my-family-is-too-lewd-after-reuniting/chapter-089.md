@@ -1,5 +1,5 @@
 +++
-title = "Mother-Daughter Showdown (4)"
+title = "Mother-Daughter Showdown (4) [18+]"
 weight = 89
 [extra]
 chapter = 89

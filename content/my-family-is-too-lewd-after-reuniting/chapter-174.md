@@ -1,5 +1,5 @@
 +++
-title = "Post-Battle Processing (1)"
+title = "Post-Battle Processing (1) [18+]"
 weight = 174
 [extra]
 chapter = 174

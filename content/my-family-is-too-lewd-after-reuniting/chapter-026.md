@@ -1,5 +1,5 @@
 +++
-title = "Mother’s Nighttime Service (2)"
+title = "Mother’s Nighttime Service (2) [18+]"
 weight = 26
 [extra]
 chapter = 26

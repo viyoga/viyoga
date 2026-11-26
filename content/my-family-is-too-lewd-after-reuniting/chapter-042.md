@@ -1,5 +1,5 @@
 +++
-title = "Discharge (2)"
+title = "Discharge (2) [18+]"
 weight = 42
 [extra]
 chapter = 42

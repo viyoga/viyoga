@@ -1,5 +1,5 @@
 +++
-title = "Side Story: Se-rin’s Case"
+title = "Side Story: Se-rin’s Case [18+]"
 weight = 114
 [extra]
 chapter = 114

@@ -1,5 +1,5 @@
 +++
-title = "Min Se-rin’s True Feelings"
+title = "Min Se-rin’s True Feelings [18+]"
 weight = 228
 [extra]
 chapter = 228

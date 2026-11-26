@@ -1,5 +1,5 @@
 +++
-title = "Two, Three, Four (3)"
+title = "Two, Three, Four (3) [18+]"
 weight = 231
 [extra]
 chapter = 231

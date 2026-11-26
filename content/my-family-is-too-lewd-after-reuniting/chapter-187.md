@@ -1,5 +1,5 @@
 +++
-title = "The Bandage Girl and the Humiliation of Masturbation"
+title = "The Bandage Girl and the Humiliation of Masturbation [18+]"
 weight = 187
 [extra]
 chapter = 187

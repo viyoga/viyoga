@@ -1,5 +1,5 @@
 +++
-title = "Hospitalization"
+title = "Hospitalization [18+]"
 weight = 40
 [extra]
 chapter = 40

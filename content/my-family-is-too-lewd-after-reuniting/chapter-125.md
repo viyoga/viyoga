@@ -1,5 +1,5 @@
 +++
-title = "Echo (4)"
+title = "Echo (4) [18+]"
 weight = 125
 [extra]
 chapter = 125

@@ -1,5 +1,5 @@
 +++
-title = "A Couple’s Daily Life"
+title = "A Couple’s Daily Life [18+]"
 weight = 65
 [extra]
 chapter = 65

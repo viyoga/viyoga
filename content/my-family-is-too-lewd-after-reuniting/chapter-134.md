@@ -1,5 +1,5 @@
 +++
-title = "Eternal Mountain Cave (2)"
+title = "Eternal Mountain Cave (2) [18+]"
 weight = 134
 [extra]
 chapter = 134

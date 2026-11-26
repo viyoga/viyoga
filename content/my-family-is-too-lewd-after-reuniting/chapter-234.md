@@ -1,5 +1,5 @@
 +++
-title = "The Eastern Palace (2)"
+title = "The Eastern Palace (2) [18+]"
 weight = 234
 [extra]
 chapter = 234

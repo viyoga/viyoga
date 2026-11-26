@@ -1,5 +1,5 @@
 +++
-title = "Staying Out (1)"
+title = "Staying Out (1) [18+]"
 weight = 8
 [extra]
 chapter = 8

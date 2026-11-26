@@ -1,5 +1,5 @@
 +++
-title = "Sleep Correction (2)"
+title = "Sleep Correction (2) [18+]"
 weight = 71
 [extra]
 chapter = 71

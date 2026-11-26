@@ -1,5 +1,5 @@
 +++
-title = "Ten Thousand Year Mountain Cave (1)"
+title = "Ten Thousand Year Mountain Cave (1) [18+]"
 weight = 133
 [extra]
 chapter = 133

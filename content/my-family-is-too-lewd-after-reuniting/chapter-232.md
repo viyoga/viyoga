@@ -1,5 +1,5 @@
 +++
-title = "Ryu-a"
+title = "Ryu-a [18+]"
 weight = 232
 [extra]
 chapter = 232

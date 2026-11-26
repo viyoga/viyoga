@@ -1,5 +1,5 @@
 +++
-title = "Feast of Rice Bowls (3)"
+title = "Feast of Rice Bowls (3) [18+]"
 weight = 180
 [extra]
 chapter = 180

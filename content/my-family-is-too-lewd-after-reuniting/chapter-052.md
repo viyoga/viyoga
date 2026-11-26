@@ -1,5 +1,5 @@
 +++
-title = "Threesome Place (1)"
+title = "Threesome Place (1) [18+]"
 weight = 52
 [extra]
 chapter = 52

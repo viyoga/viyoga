@@ -1,5 +1,5 @@
 +++
-title = "The Difficult Bitches of Seongseok (7)"
+title = "The Difficult Bitches of Seongseok (7) [18+]"
 weight = 20
 [extra]
 chapter = 20

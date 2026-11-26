@@ -1,5 +1,5 @@
 +++
-title = "The Virtueless Training Ground (5)"
+title = "The Virtueless Training Ground (5) [18+]"
 weight = 82
 [extra]
 chapter = 82

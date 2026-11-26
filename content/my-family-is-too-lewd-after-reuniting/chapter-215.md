@@ -1,5 +1,5 @@
 +++
-title = "Land of the Free (2)"
+title = "Land of the Free (2) [18+]"
 weight = 215
 [extra]
 chapter = 215

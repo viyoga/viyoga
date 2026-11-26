@@ -1,5 +1,5 @@
 +++
-title = "Imhwal (5)"
+title = "Imhwal (5) [18+]"
 weight = 201
 [extra]
 chapter = 201

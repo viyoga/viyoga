@@ -1,5 +1,5 @@
 +++
-title = "Isn't Giving a Blowjob a Wife's Duty? (2)"
+title = "Isn't Giving a Blowjob a Wife's Duty? (2) [18+]"
 weight = 7
 [extra]
 chapter = 7

@@ -1,5 +1,5 @@
 +++
-title = "S-Rank Gate (1)"
+title = "S-Rank Gate (1) [18+]"
 weight = 120
 [extra]
 chapter = 120

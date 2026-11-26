@@ -1,5 +1,5 @@
 +++
-title = "Business Trip Over, Lovey-Dovey Sex with My Wife"
+title = "Business Trip Over, Lovey-Dovey Sex with My Wife [18+]"
 weight = 22
 [extra]
 chapter = 22

@@ -1,5 +1,5 @@
 +++
-title = "The Newcomer (2)"
+title = "The Newcomer (2) [18+]"
 weight = 204
 [extra]
 chapter = 204

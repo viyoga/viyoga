@@ -1,5 +1,5 @@
 +++
-title = "Night Sparring (2)"
+title = "Night Sparring (2) [18+]"
 weight = 47
 [extra]
 chapter = 47

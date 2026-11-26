@@ -1,5 +1,5 @@
 +++
-title = "Solo Exploration (1)"
+title = "Solo Exploration (1) [18+]"
 weight = 43
 [extra]
 chapter = 43

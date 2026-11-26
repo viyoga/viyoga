@@ -1,5 +1,5 @@
 +++
-title = "Demon Island Subjugation (9)"
+title = "Demon Island Subjugation (9) [18+]"
 weight = 169
 [extra]
 chapter = 169

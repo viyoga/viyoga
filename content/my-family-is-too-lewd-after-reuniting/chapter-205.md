@@ -1,5 +1,5 @@
 +++
-title = "Enthronement Ceremony (1)"
+title = "Enthronement Ceremony (1) [18+]"
 weight = 205
 [extra]
 chapter = 205

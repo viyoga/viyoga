@@ -1,5 +1,5 @@
 +++
-title = "Date (1)"
+title = "Date (1) [18+]"
 weight = 31
 [extra]
 chapter = 31

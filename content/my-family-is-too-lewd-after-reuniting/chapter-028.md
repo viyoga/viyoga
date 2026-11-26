@@ -1,5 +1,5 @@
 +++
-title = "Sister’s Daytime Care (2)"
+title = "Sister’s Daytime Care (2) [18+]"
 weight = 28
 [extra]
 chapter = 28
