@@ -59,7 +59,12 @@ html {
   scroll-behavior: smooth;
   scroll-padding-top: 54px;
   overflow-x: hidden;
+  background:
+    radial-gradient(1000px 500px at 12% -5%, var(--halo-a, transparent), transparent 70%),
+    radial-gradient(900px 500px at 88% 8%, var(--halo-b, transparent), transparent 70%),
+    radial-gradient(ellipse 120% 90% at 50% 35%, var(--bg-core) 0%, var(--bg) 55%, var(--bg-glow) 100%);
   background-color: var(--bg);
+  background-attachment: fixed;
 }
 @supports (overflow-x: clip) {
   html { overflow-x: clip; }
@@ -347,7 +352,7 @@ html[data-theme="zeel"] {
 
 /* Liquid light: pink blooms at the top left, periwinkle at the top right,
    and a plum undertow runs through the middle of the page. */
-html[data-theme="zeel"] body {
+html[data-theme="zeel"] {
   background:
     radial-gradient(1100px 560px at 12% -8%, rgba(209, 116, 216, .14), transparent 66%),
     radial-gradient(1000px 600px at 88% 4%, rgba(124, 139, 224, .13), transparent 68%),
@@ -582,11 +587,7 @@ body {
   isolation: isolate;
   overflow-x: clip;
   overflow-wrap: break-word;
-  background:
-    radial-gradient(1000px 500px at 12% -5%, var(--halo-a, transparent), transparent 70%),
-    radial-gradient(900px 500px at 88% 8%, var(--halo-b, transparent), transparent 70%),
-    radial-gradient(ellipse 120% 90% at 50% 35%, var(--bg-core) 0%, var(--bg) 55%, var(--bg-glow) 100%);
-  background-attachment: fixed;
+  background: transparent;
   color: var(--fg);
   font-family: var(--font-mono);
   font-size: var(--text-sm);
