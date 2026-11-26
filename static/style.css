@@ -59,6 +59,7 @@ html {
   scroll-behavior: smooth;
   scroll-padding-top: 54px;
   overflow-x: hidden;
+  background-color: var(--bg);
 }
 @supports (overflow-x: clip) {
   html { overflow-x: clip; }
@@ -577,6 +578,7 @@ body {
   display: flex;
   flex-direction: column;
   min-height: 100vh;
+  min-height: 100dvh;
   overflow-x: clip;
   overflow-wrap: break-word;
   background:
