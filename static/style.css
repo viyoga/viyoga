@@ -5004,12 +5004,29 @@ body.chapter-page .chapter-head::after {
   overflow: hidden;
   text-overflow: ellipsis;
 }
-/* ── Theme switch: a quiet 180ms crossfade, plus a fallback for the mark ── */
-@media (prefers-reduced-motion: no-preference) {
+/* ── Page transitions ──
+   Cross-document navigation opts in here. Prefetched chapter HTML plus a
+   snapshot blur smooth the handoff; unsupported browsers navigate normally. */
+@view-transition {
+  navigation: auto;
+}
+@media (prefers-reduced-motion: reduce) {
   ::view-transition-old(root),
+  ::view-transition-new(root) { animation: none; }
+}
+@keyframes vt-page-out {
+  to { opacity: 0; filter: blur(6px); transform: scale(0.996); }
+}
+@keyframes vt-page-in {
+  from { opacity: 0; filter: blur(8px); transform: scale(1.004); }
+  to { opacity: 1; filter: blur(0); transform: none; }
+}
+@media (prefers-reduced-motion: no-preference) {
+  ::view-transition-old(root) {
+    animation: vt-page-out 220ms ease both;
+  }
   ::view-transition-new(root) {
-    animation-duration: 180ms;
-    animation-timing-function: ease;
+    animation: vt-page-in 340ms cubic-bezier(0.2, 0.8, 0.2, 1) both;
   }
   .logo-planet [fill],
   .logo-planet [stroke],

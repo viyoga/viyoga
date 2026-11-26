@@ -6,6 +6,40 @@
    `chapter-page` additionally swaps the site nav for the chapter bar on phones. #}
 {% block body_class %}reading chapter-page{% endblock body_class %}
 
+{% block head %}
+<script type="speculationrules">
+{
+  "prefetch": [{
+    "source": "document",
+    "where": { "selector_matches": ".chapter-bar-nav a, .page-nav a, .chapter-bar-index" },
+    "eagerness": "moderate"
+  }]
+}
+</script>
+<script>(function(){
+  if ('supports' in HTMLScriptElement && HTMLScriptElement.supports('speculationrules')) return;
+  var seen = {};
+  function prefetch(a) {
+    if (!a || !a.href || a.origin !== location.origin || (a.target && a.target !== '_self')) return;
+    if (seen[a.href]) return;
+    seen[a.href] = 1;
+    var link = document.createElement('link');
+    link.rel = 'prefetch';
+    link.href = a.href;
+    link.setAttribute('as', 'document');
+    document.head.appendChild(link);
+  }
+  function onPointer(e) {
+    var t = e.target;
+    var a = t && t.closest && t.closest('.chapter-bar-nav a, .page-nav a, .chapter-bar-index');
+    if (a) prefetch(a);
+  }
+  document.addEventListener('pointerover', onPointer, { passive: true });
+  document.addEventListener('touchstart', onPointer, { passive: true });
+  document.addEventListener('focusin', onPointer);
+})();</script>
+{% endblock head %}
+
 {% block extrascripts %}{{ super() }}<script defer src="/js/chapter-settings.js?v=20261126j"></script><script defer src="/js/chapter-bar.js?v=20261123a"></script>{% endblock extrascripts %}
 
 {% block content %}
@@ -112,6 +146,10 @@
     {% endif %}
   {% endif %}
 {% endif %}
+
+{% if prev_page %}<link rel="prefetch" href="{{ prev_page.path }}">{% endif %}
+{% if next_page %}<link rel="prefetch" href="{{ next_page.path }}">{% endif %}
+<link rel="prefetch" href="{{ index_path }}">
 
 <div class="chapter-head"
      {% if novel_path %}data-reading-novel="{{ novel_path }}" data-reading-path="{{ page.path }}" data-reading-label="{% if page.extra.chapter %}{{ unit }} {{ page.extra.chapter }}{% else %}{{ page.title }}{% endif %}" data-reading-number="{{ chapter_number }}" data-reading-total="{{ total_chapters }}"{% endif %}>
