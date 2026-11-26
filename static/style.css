@@ -4960,9 +4960,17 @@ body.chapter-page .chapter-head::after {
     nav.top,
     body.chapter-page .chapter-head,
     body.chapter-page .chapter-bar,
-    .chapter-body,
     .chapter-settings
   ) {
+    -webkit-backdrop-filter: blur(8px) saturate(var(--sat, 155%));
+    backdrop-filter: blur(8px) saturate(var(--sat, 155%));
+  }
+  html:not([data-design="new"]) body.chapter-page::after {
+    content: "";
+    position: fixed;
+    inset: 0;
+    z-index: -1;
+    pointer-events: none;
     -webkit-backdrop-filter: blur(8px) saturate(var(--sat, 155%));
     backdrop-filter: blur(8px) saturate(var(--sat, 155%));
   }
