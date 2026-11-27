@@ -5226,3 +5226,28 @@ html.intro-leaving .intro {
 @media (prefers-reduced-motion: reduce) {
   .intro { display: none; }
 }
+
+/* ── Mobile chapter top bar: clear glass, no theme tint ──
+   Only reading pages. The shell stays transparent; the bar itself keeps a
+   light backdrop blur so prose passing underneath remains readable. */
+@media (max-width: 768px) {
+  html body.chapter-page .chapter-head {
+    background: transparent !important;
+    background-image: none !important;
+    border-bottom: 0 !important;
+    box-shadow: none !important;
+    -webkit-backdrop-filter: none !important;
+    backdrop-filter: none !important;
+  }
+  html body.chapter-page .chapter-head::after {
+    display: none !important;
+  }
+  html body.chapter-page .chapter-bar {
+    background: transparent !important;
+    background-image: none !important;
+    border-bottom: 0 !important;
+    box-shadow: none !important;
+    -webkit-backdrop-filter: blur(8px) !important;
+    backdrop-filter: blur(8px) !important;
+  }
+}
