@@ -107,26 +107,35 @@
   /* Mobile sheet: drop the theme that is not in the replica and relabel the
      remaining controls. chapter-settings.js already captured these nodes, and
      its click handlers read the data-* attributes live. */
-  var extras = document.querySelectorAll('[data-theme-choice="nyctophobia"], [data-theme-choice="ocean"]');
-  for (var i = 0; i < extras.length; i++) {
-    if (extras[i].parentNode) extras[i].parentNode.removeChild(extras[i]);
-  }
+  function refresh() {
+    paintTheme();
+    paintFont();
 
-  var themeChoices = document.querySelectorAll("[data-theme-choice]");
-  for (var j = 0; j < themeChoices.length; j++) {
-    var themeKey = themeChoices[j].getAttribute("data-theme-choice");
-    if (THEME_LABELS[themeKey]) {
-      themeChoices[j].setAttribute("aria-label", THEME_LABELS[themeKey]);
-      themeChoices[j].setAttribute("title", THEME_LABELS[themeKey]);
+    var extras = document.querySelectorAll('[data-theme-choice="nyctophobia"], [data-theme-choice="ocean"]');
+    for (var i = 0; i < extras.length; i++) {
+      if (extras[i].parentNode) extras[i].parentNode.removeChild(extras[i]);
+    }
+
+    var themeChoices = document.querySelectorAll("[data-theme-choice]");
+    for (var j = 0; j < themeChoices.length; j++) {
+      var themeKey = themeChoices[j].getAttribute("data-theme-choice");
+      if (THEME_LABELS[themeKey]) {
+        themeChoices[j].setAttribute("aria-label", THEME_LABELS[themeKey]);
+        themeChoices[j].setAttribute("title", THEME_LABELS[themeKey]);
+        themeChoices[j].setAttribute("data-label", THEME_LABELS[themeKey]);
+      }
+    }
+
+    var fontChoices = document.querySelectorAll("[data-font-choice]");
+    for (var k = 0; k < fontChoices.length; k++) {
+      var fontKey = fontChoices[k].getAttribute("data-font-choice");
+      var span = fontChoices[k].querySelector("span");
+      if (span && FONT_LABELS[fontKey]) span.textContent = FONT_LABELS[fontKey];
     }
   }
 
-  var fontChoices = document.querySelectorAll("[data-font-choice]");
-  for (var k = 0; k < fontChoices.length; k++) {
-    var fontKey = fontChoices[k].getAttribute("data-font-choice");
-    var span = fontChoices[k].querySelector("span");
-    if (span && FONT_LABELS[fontKey]) span.textContent = FONT_LABELS[fontKey];
-  }
+  window.__refreshDesignOverrides = refresh;
+  refresh();
 
   document.addEventListener("themechange", paintTheme);
   document.addEventListener("fontchange", paintFont);

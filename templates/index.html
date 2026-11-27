@@ -1,5 +1,7 @@
 {% extends "base.html" %}
 
+{% block body_class %}content-page{% endblock body_class %}
+
 {% block content %}
 
 <main>
@@ -81,21 +83,21 @@
     <span class="section-badge">8 tools</span>
   </div>
   <div class="stack-grid">
-    <a href="/dictionary/" class="stack-card">
+    <a href="/dictionary/" class="stack-card" data-no-swup>
       <div class="stack-top">
         <div class="name">dict</div>
         <div class="kicker">Lexicon</div>
       </div>
       <div class="desc">Word lookup — 23 Wiktionary editions & fuzzy matching</div>
     </a>
-    <a href="/studio/" class="stack-card">
+    <a href="/studio/" class="stack-card" data-no-swup>
       <div class="stack-top">
         <div class="name">studio</div>
         <div class="kicker">Documents</div>
       </div>
       <div class="desc">Compress, convert &amp; resize images, PDFs and documents — all in-tab</div>
     </a>
-    <a href="/walldiff/" class="stack-card">
+    <a href="/walldiff/" class="stack-card" data-no-swup>
       <div class="stack-top">
         <div class="name">walldiff</div>
         <div class="kicker">Palettes</div>
@@ -116,14 +118,14 @@
       </div>
       <div class="desc">Mobile startpage</div>
     </a>
-    <a href="/abeyant/" class="stack-card">
+    <a href="/abeyant/" class="stack-card" data-no-swup>
       <div class="stack-top">
         <div class="name">abeyant</div>
         <div class="kicker">Extension</div>
       </div>
       <div class="desc">A resurgent — new tab, clock, search & shortcuts</div>
     </a>
-    <a href="/typing/" class="stack-card">
+    <a href="/typing/" class="stack-card" data-no-swup>
       <div class="stack-top">
         <div class="name">typing</div>
         <div class="kicker">Speed Test</div>
@@ -178,7 +180,7 @@
           <p class="dict-def"><em>&ldquo;In the quiet of the old house, he felt a gentle desiderium for a life he had left behind.&rdquo;</em></p>
         </div>
         <div class="dict-footer-action">
-          <a href="/dictionary/" class="dict-launch-btn">open interactive dictionary ↵</a>
+          <a href="/dictionary/" class="dict-launch-btn" data-no-swup>open interactive dictionary ↵</a>
         </div>
       </div>
     </div>
@@ -279,61 +281,6 @@
 
 </main>
 
-<script>
-function tick() {
-  var d = new Date();
-  var opts = { timeZone: 'Asia/Kolkata', hour12: false };
-  document.getElementById('live-clock').textContent = d.toLocaleTimeString('en-US', opts);
-  document.getElementById('live-date').textContent = d.toLocaleDateString('en-US', { timeZone: 'Asia/Kolkata', weekday: 'long', year: 'numeric', month: 'long', day: 'numeric' });
-}
-tick();
-setInterval(tick, 1000);
-</script>
-
-<script>
-(function () {
-  var tw = document.getElementById('typewriter');
-  var cursor = document.getElementById('cursor');
-  var tag = document.querySelector('.tagline');
-  if (!tw || !tag) return;
-
-  var chars = Array.from(tw.dataset.text || '');
-  var reduceMotion = window.matchMedia('(prefers-reduced-motion: reduce)').matches;
-
-  function moveCursorBelow() {
-    var row = document.getElementById('cursor-row');
-    if (cursor) {
-      // Into the pre-reserved second row — terminal height never changes.
-      if (row) row.appendChild(cursor);
-      cursor.classList.add('below');
-    }
-  }
-
-  if (reduceMotion || chars.length === 0) {
-    tw.textContent = chars.join('');
-    moveCursorBelow();
-    return;
-  }
-
-  var msPerChar = 45;
-  var i = 0;
-
-  tw.textContent = ''; // clear server-rendered fallback before typing
-
-  function type() {
-    tw.textContent = chars.slice(0, i).join('');
-    if (i < chars.length) {
-      i++;
-      setTimeout(type, msPerChar);
-    } else {
-      moveCursorBelow();
-    }
-  }
-
-  type();
-})();
-</script>
-<script defer src="/js/tao-hover.js"></script>
 {% endblock content %}
 
 

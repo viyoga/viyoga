@@ -90,6 +90,10 @@
 
     if (!rawLines.length) return;
 
+    const ac = new AbortController();
+    const signal = ac.signal;
+    let fontTimer = null;
+
     const rows = rawLines.length;
     let maxCols = 0;
     for (let i = 0; i < rows; i++) {
@@ -255,29 +259,29 @@
       });
     }
 
-    canvas.addEventListener('mousemove', (e) => updateCursor(e.clientX, e.clientY));
-    canvas.addEventListener('mouseleave', clearCursor);
+    canvas.addEventListener('mousemove', (e) => updateCursor(e.clientX, e.clientY), { signal });
+    canvas.addEventListener('mouseleave', clearCursor, { signal });
 
     canvas.addEventListener('touchstart', (e) => {
       if (e.touches.length > 0) {
         updateCursor(e.touches[0].clientX, e.touches[0].clientY);
         triggerRipple(mouse.x, mouse.y);
       }
-    }, { passive: true });
+    }, { passive: true, signal });
 
     canvas.addEventListener('touchmove', (e) => {
       if (e.touches.length > 0) updateCursor(e.touches[0].clientX, e.touches[0].clientY);
-    }, { passive: true });
+    }, { passive: true, signal });
 
-    canvas.addEventListener('touchend', clearCursor);
-    canvas.addEventListener('touchcancel', clearCursor);
+    canvas.addEventListener('touchend', clearCursor, { signal });
+    canvas.addEventListener('touchcancel', clearCursor, { signal });
 
     canvas.addEventListener('click', (e) => {
       const rect = canvas.getBoundingClientRect();
       const cx = (e.clientX - rect.left) * (logicalWidth / rect.width);
       const cy = (e.clientY - rect.top) * (logicalHeight / rect.height);
       triggerRipple(cx, cy);
-    });
+    }, { signal });
 
     const RADIUS = 62;
     const RADIUS_SQ = RADIUS * RADIUS;
@@ -413,7 +417,7 @@
     }
 
     // Dynamic Theme Observers: Live sync on ANY theme change or attribute mutation
-    document.addEventListener('themechange', readTheme);
+    document.addEventListener('themechange', readTheme, { signal });
 
     const themeObserver = new MutationObserver(() => {
       readTheme();
@@ -424,10 +428,11 @@
     });
 
     document.addEventListener('fontchange', () => {
-      setTimeout(build, 20);
-    });
+      if (fontTimer) clearTimeout(fontTimer);
+      fontTimer = setTimeout(build, 20);
+    }, { signal });
 
-    window.addEventListener('resize', build);
+    window.addEventListener('resize', build, { signal });
 
     function start() {
       if (animationId) cancelAnimationFrame(animationId);
@@ -444,22 +449,42 @@
       build();
       start();
     }
-    window.addEventListener('pageshow', revive);
-    document.addEventListener('visibilitychange', revive);
+    window.addEventListener('pageshow', revive, { signal });
+    document.addEventListener('visibilitychange', revive, { signal });
     window.addEventListener('pagehide', (e) => {
       if (e.persisted) return;
       if (animationId) cancelAnimationFrame(animationId);
       animationId = null;
       themeObserver.disconnect();
-    });
+    }, { signal });
 
     build();
     start();
+
+    return function cleanup() {
+      if (fontTimer) clearTimeout(fontTimer);
+      if (animationId) cancelAnimationFrame(animationId);
+      animationId = null;
+      themeObserver.disconnect();
+      ac.abort();
+    };
   }
 
-  if (document.readyState === 'loading') {
-    document.addEventListener('DOMContentLoaded', initTaoHover);
+  let cleanup = null;
+  function start() {
+    stop();
+    cleanup = initTaoHover() || null;
+  }
+  function stop() {
+    if (cleanup) {
+      cleanup();
+      cleanup = null;
+    }
+  }
+
+  if (window.ViyogaPage) {
+    window.ViyogaPage.register('tao-hover', { init: start, destroy: stop });
   } else {
-    initTaoHover();
+    start();
   }
 })();

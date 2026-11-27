@@ -48,7 +48,7 @@
     apply();
   };</script>
   <title>{% block title %}{{ config.title }}{% endblock title %}</title>
-  <link rel="stylesheet" href="/style.css?v=20261126g">
+  <link rel="stylesheet" href="/style.css?v=20261127a">
   <script>(function(){
     var root = document.documentElement;
     try {
@@ -198,7 +198,9 @@
   </div>
 </nav>
 
+<div id="swup" class="swup-container transition-content">
 {% block content %}{% endblock content %}
+</div>
 
 <footer class="footer">
   <a href="https://github.com/viyoga" class="rule" title="viyoga on github">(&gt;.&lt;) zzZ</a>
@@ -206,17 +208,28 @@
 
 <script defer src="/js/vendor/lenis.min.js"></script>
 <script defer src="/js/smooth.js"></script>
-<script defer src="/js/copy.js"></script>
+<script defer src="/js/page-lifecycle.js?v=20261127a"></script>
+<script defer src="/js/copy.js?v=20261127a"></script>
 <script defer src="/js/theme.js?v=20261125a"></script>
 <script defer src="/js/font.js"></script>
-<script defer src="/js/anim.js?v=20261125f"></script>
-<script defer src="/js/spotlight.js?v=20261025"></script>
+<script defer src="/js/anim.js?v=20261127a"></script>
+<script defer src="/js/spotlight.js?v=20261127a"></script>
 <script defer src="/js/flue.js?v=20261125g"></script>
 {% block extrascripts %}<script defer src="/js/grid.js?v=20261125g"></script>{% endblock extrascripts %}
-<script defer src="/js/design-override.js?v=20261125a"></script>
+<script defer src="/js/chapter-settings.js?v=20261127a"></script>
+<script defer src="/js/chapter-bar.js?v=20261127a"></script>
+<script defer src="/js/chapter-tools.js?v=20261127a"></script>
+<script defer src="/js/home.js?v=20261127a"></script>
+<script defer src="/js/tao-hover.js?v=20261127a"></script>
+<script defer src="/js/design-override.js?v=20261127a"></script>
 <script defer src="/js/design.js?v=20261122c"></script>
-<script defer src="/js/reading-progress.js?v=20261125b"></script>
+<script defer src="/js/reading-progress.js?v=20261127a"></script>
 <script defer src="/js/perf-hud.js?v=20261126a"></script>
+<script defer src="/js/vendor/swup/Swup.umd.js?v=4.10.0"></script>
+<script defer src="/js/vendor/swup-plugins/preload.umd.js?v=3.2.12"></script>
+<script defer src="/js/vendor/swup-plugins/head.umd.js?v=2.3.1"></script>
+<script defer src="/js/vendor/swup-plugins/body-class.umd.js?v=3.3.0"></script>
+<script defer src="/js/router.js?v=20261127a"></script>
 <script>(function(){
   var root = document.documentElement;
   var intro = document.getElementById('intro');

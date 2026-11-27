@@ -1,6 +1,7 @@
 {% extends "base.html" %}
 
 {% block title %}v — {{ config.title }}{% endblock title %}
+{% block body_class %}content-page{% endblock body_class %}
 {% block head %}<meta name="robots" content="noindex, nofollow">{% endblock head %}
 
 {% block content %}
@@ -98,47 +99,4 @@
 
 </main>
 
-<script>
-(function () {
-  var tw = document.getElementById('typewriter');
-  var cursor = document.getElementById('cursor');
-  var tag = document.querySelector('.tagline');
-  if (!tw || !tag) return;
-
-  var chars = Array.from(tw.dataset.text || '');
-  var reduceMotion = window.matchMedia('(prefers-reduced-motion: reduce)').matches;
-
-  function moveCursorBelow() {
-    var row = document.getElementById('cursor-row');
-    if (cursor) {
-      if (row) row.appendChild(cursor);
-      cursor.classList.add('below');
-    }
-  }
-
-  if (reduceMotion || chars.length === 0) {
-    tw.textContent = chars.join('');
-    moveCursorBelow();
-    return;
-  }
-
-  var msPerChar = 45;
-  var i = 0;
-
-  tw.textContent = '';
-
-  function type() {
-    tw.textContent = chars.slice(0, i).join('');
-    if (i < chars.length) {
-      i++;
-      setTimeout(type, msPerChar);
-    } else {
-      moveCursorBelow();
-    }
-  }
-
-  type();
-})();
-</script>
-<script defer src="/js/tao-hover.js"></script>
 {% endblock content %}

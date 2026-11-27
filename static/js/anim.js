@@ -1,5 +1,8 @@
 (function() {
   var doc = document;
+  var observers = [];
+  var rafs = [];
+
   /* scroll progress bar */
   var bar = doc.getElementById('scroll-bar');
   function updateBar() {
@@ -14,78 +17,9 @@
     updateBar();
   }
 
-  /* stat counters */
-  var counts = doc.querySelectorAll('.stat-count');
-  function animateCount(targetEl) {
-    var target = parseInt(targetEl.getAttribute('data-count'), 10) || 0;
-    var dur = 900;
-    var start = null;
-    function frame(now) {
-      if (start === null) start = now;
-      var t = Math.min((now - start) / dur, 1);
-      var eased = 1 - Math.pow(1 - t, 3);
-      targetEl.textContent = Math.round(eased * target).toLocaleString('en-US');
-      if (t < 1) requestAnimationFrame(frame);
-    }
-    requestAnimationFrame(frame);
-  }
-  for (var c = 0; c < counts.length; c++) {
-    (function(el) {
-      var io2 = new IntersectionObserver(function(entries) {
-        entries.forEach(function(entry) {
-          if (entry.isIntersecting) {
-            animateCount(el);
-            io2.unobserve(el);
-          }
-        });
-      }, { threshold: 0.5 });
-      io2.observe(el);
-    })(counts[c]);
-  }
-
-  /* section plate sheen: once when visible, replayed on pointer entry */
-  var heads = doc.querySelectorAll('.section-header');
-  var reduceMotion = window.matchMedia && window.matchMedia('(prefers-reduced-motion: reduce)').matches;
-  if (heads.length && !reduceMotion) {
-    var canHover = !window.matchMedia || window.matchMedia('(hover: hover)').matches;
-    function sweep(header) {
-      header.classList.remove('is-sheen');
-      void header.offsetWidth;
-      header.classList.add('is-sheen');
-    }
-    for (var h = 0; h < heads.length; h++) {
-      (function(header) {
-        var io3 = new IntersectionObserver(function(entries) {
-          entries.forEach(function(entry) {
-            if (entry.isIntersecting) {
-              sweep(header);
-              io3.unobserve(header);
-            }
-          });
-        }, { threshold: 0.55 });
-        io3.observe(header);
-        if (canHover) {
-          header.addEventListener('pointerenter', function() { sweep(header); });
-        }
-      })(heads[h]);
-    }
-  }
-
-  /* image skeleton shimmer cleanup when loaded */
-  var imgs = doc.querySelectorAll('.chapter-illustration img, .illustrations-gallery img');
-  imgs.forEach(function(img) {
-    if (img.complete && img.naturalWidth > 0) {
-      img.classList.add('loaded');
-    } else {
-      img.addEventListener('load', function() {
-        img.classList.add('loaded');
-      }, { once: true });
-    }
-  });
-
   /* low connection detection & adaptive indicator */
   var conn = navigator.connection || navigator.mozConnection || navigator.webkitConnection;
-  if (conn) {
+  if (conn && !doc.getElementById('conn-notice')) {
     var isSlow = conn.saveData || (conn.effectiveType && (conn.effectiveType === 'slow-2g' || conn.effectiveType === '2g'));
     if (isSlow) {
       doc.documentElement.classList.add('low-conn');
@@ -99,5 +33,95 @@
         topNav.parentNode.insertBefore(notice, topNav.nextSibling);
       }
     }
+  }
+
+  function destroyPage() {
+    for (var i = 0; i < observers.length; i++) observers[i].disconnect();
+    observers = [];
+    for (var r = 0; r < rafs.length; r++) cancelAnimationFrame(rafs[r]);
+    rafs = [];
+  }
+
+  function initPage() {
+    var counts = doc.querySelectorAll('.stat-count');
+    function animateCount(targetEl) {
+      var target = parseInt(targetEl.getAttribute('data-count'), 10) || 0;
+      var dur = 900;
+      var start = null;
+      function frame(now) {
+        if (start === null) start = now;
+        var t = Math.min((now - start) / dur, 1);
+        var eased = 1 - Math.pow(1 - t, 3);
+        targetEl.textContent = Math.round(eased * target).toLocaleString('en-US');
+        if (t < 1) rafs.push(requestAnimationFrame(frame));
+      }
+      rafs.push(requestAnimationFrame(frame));
+    }
+    for (var c = 0; c < counts.length; c++) {
+      (function(el) {
+        var io2 = new IntersectionObserver(function(entries) {
+          entries.forEach(function(entry) {
+            if (entry.isIntersecting) {
+              animateCount(el);
+              io2.unobserve(el);
+            }
+          });
+        }, { threshold: 0.5 });
+        observers.push(io2);
+        io2.observe(el);
+      })(counts[c]);
+    }
+
+    /* section plate sheen: once when visible, replayed on pointer entry */
+    var heads = doc.querySelectorAll('.section-header');
+    var reduceMotion = window.matchMedia && window.matchMedia('(prefers-reduced-motion: reduce)').matches;
+    if (heads.length && !reduceMotion) {
+      var canHover = !window.matchMedia || window.matchMedia('(hover: hover)').matches;
+      function sweep(header) {
+        header.classList.remove('is-sheen');
+        void header.offsetWidth;
+        header.classList.add('is-sheen');
+      }
+      for (var h = 0; h < heads.length; h++) {
+        (function(header) {
+          var io3 = new IntersectionObserver(function(entries) {
+            entries.forEach(function(entry) {
+              if (entry.isIntersecting) {
+                sweep(header);
+                io3.unobserve(header);
+              }
+            });
+          }, { threshold: 0.55 });
+          observers.push(io3);
+          io3.observe(header);
+          if (canHover) {
+            header.addEventListener('pointerenter', function() { sweep(header); });
+          }
+        })(heads[h]);
+      }
+    }
+
+    /* image skeleton shimmer cleanup when loaded */
+    var imgs = doc.querySelectorAll('.chapter-illustration img, .illustrations-gallery img');
+    imgs.forEach(function(img) {
+      if (img.complete && img.naturalWidth > 0) {
+        img.classList.add('loaded');
+      } else {
+        img.addEventListener('load', function() {
+          img.classList.add('loaded');
+        }, { once: true });
+      }
+    });
+  }
+
+  function start() {
+    destroyPage();
+    initPage();
+  }
+
+  if (window.ViyogaPage) {
+    window.ViyogaPage.register('anim', { init: start, destroy: destroyPage });
+  } else {
+    start();
   }
 })();

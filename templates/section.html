@@ -1,6 +1,7 @@
 {% extends "base.html" %}
 
 {% block title %}{{ section.title }} — {{ config.title }}{% endblock title %}
+{% block body_class %}content-page{% endblock body_class %}
 
 {% block content %}
 <nav class="back-link wrap">
@@ -158,5 +159,3 @@
   <p class="chapter-empty" data-chapter-empty hidden>no chapters match that filter.</p>
 </section>
 {% endblock content %}
-
-{% block extrascripts %}{{ super() }}<script defer src="/js/chapter-tools.js?v=20261125a"></script>{% endblock extrascripts %}

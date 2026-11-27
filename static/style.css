@@ -2086,12 +2086,13 @@ body.reading .chapter-body {
     opacity: 0;
     visibility: hidden;
     pointer-events: none;
-    transition: opacity 0.2s ease, visibility 0.2s;
+    transition: opacity 0.2s ease, visibility 0s linear 0.2s;
   }
   .chapter-settings-scrim.is-open {
     opacity: 1;
     visibility: visible;
     pointer-events: auto;
+    transition: opacity 0.2s ease, visibility 0s;
   }
   .chapter-settings {
     display: block;
@@ -2123,12 +2124,13 @@ body.reading .chapter-body {
     opacity: 0;
     visibility: hidden;
     transform: translateY(-6px);
-    transition: opacity 0.18s ease, transform 0.22s cubic-bezier(0.2, 0.8, 0.2, 1), visibility 0.18s;
+    transition: opacity 0.18s ease, transform 0.22s cubic-bezier(0.2, 0.8, 0.2, 1), visibility 0s linear 0.18s;
   }
   .chapter-settings.is-open {
     opacity: 1;
     visibility: visible;
     transform: none;
+    transition: opacity 0.18s ease, transform 0.22s cubic-bezier(0.2, 0.8, 0.2, 1), visibility 0s;
   }
   .chapter-settings:focus { outline: none; }
   @supports not (backdrop-filter: blur(1px)) {
@@ -5005,8 +5007,31 @@ body.chapter-page .chapter-head::after {
   text-overflow: ellipsis;
 }
 /* ── Page transitions ──
-   Cross-document navigation opts in here. Prefetched chapter HTML plus a
-   snapshot blur smooth the handoff; unsupported browsers navigate normally. */
+   Swup handles same-document content swaps with a CSS transition so the
+   shell, canvases and scrollers stay alive. Cross-document navigation keeps
+   the View Transition rules below as a full-load fallback. */
+html.is-changing {
+  scroll-behavior: auto !important;
+}
+#swup.transition-content {
+  width: 100%;
+  transition: opacity 200ms ease, transform 200ms ease;
+}
+html.is-changing #swup.transition-content {
+  will-change: opacity, transform;
+}
+html.is-animating #swup.transition-content {
+  opacity: 0;
+  transform: translateY(4px);
+}
+@media (prefers-reduced-motion: reduce) {
+  #swup.transition-content { transition: none; }
+  html.is-animating #swup.transition-content {
+    opacity: 1;
+    transform: none;
+  }
+}
+
 @view-transition {
   navigation: auto;
 }
