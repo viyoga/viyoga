@@ -2626,11 +2626,6 @@ body.reading .chapter-body {
     border: none;
     box-shadow: none;
   }
-  /* Flue is a full-bleed wash and mobile prose has no panel behind it, so it
-     washes out body copy wherever the plume is bright (measured 2.8:1). Dim
-     the field itself so the smoke still reads as ambience, not as a backdrop
-     for text. */
-  body.reading #flue-canvas { opacity: 0.32; }
   body.reading .chapter-body { text-shadow: 0 1px 3px rgba(0, 0, 0, 0.55); }
 }
 
@@ -5105,15 +5100,6 @@ html.is-animating #swup.transition-content {
     -webkit-backdrop-filter: none;
     backdrop-filter: none;
   }
-  html:not([data-design="new"]) body.chapter-page::after {
-    content: "";
-    position: fixed;
-    inset: 0;
-    z-index: -1;
-    pointer-events: none;
-    -webkit-backdrop-filter: blur(6px) saturate(var(--sat, 155%));
-    backdrop-filter: blur(6px) saturate(var(--sat, 155%));
-  }
   html.is-scrolling .footer::after,
   html.is-scrolling .chapter-divider .cd-line::after,
   html.is-scrolling .hero-rule::after,
@@ -5249,5 +5235,17 @@ html.intro-leaving .intro {
     box-shadow: none !important;
     -webkit-backdrop-filter: blur(8px) !important;
     backdrop-filter: blur(8px) !important;
+  }
+}
+
+
+/* ── Mobile background: smoke only, no animated grid ──
+   The flue shader stays; the interactive dot/line canvas and its static CSS
+   underlay are removed on phones so the background is lighter and consistent
+   between index and chapter pages. */
+@media (max-width: 768px) {
+  #grid-canvas,
+  body:has(#grid-canvas)::before {
+    display: none !important;
   }
 }

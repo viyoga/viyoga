@@ -6,6 +6,9 @@
   const c = document.getElementById('grid-canvas') || document.getElementById('bg-canvas');
   if (!c) return;
 
+  // Phones use the flue smoke only; skip the grid RAF loop entirely.
+  if (window.matchMedia && window.matchMedia('(max-width: 768px)').matches) return;
+
   const conn = navigator.connection || navigator.mozConnection || navigator.webkitConnection;
   if (conn && (conn.saveData || conn.effectiveType === 'slow-2g' || conn.effectiveType === '2g')) {
     return;
