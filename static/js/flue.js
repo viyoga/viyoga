@@ -33,11 +33,10 @@ uniform vec2  iMouseWake;      // a third, much slower node — the tail of the 
 
 uniform vec3  uBgColor, uColorA, uColorB, uColorC, uColorD;
 uniform float uScale, uSpeed, uFlow, uRoughness, uLacunarity;
-uniform float uSmokeScale, uCurl, uCurlScale, uRise, uSlender;
+uniform float uSmokeScale, uCurl, uCurlScale, uSlender;
 uniform float uWidth, uSpread, uLean, uDensity;
 uniform float uContrast, uMidpoint, uGlow, uSink;
 uniform float uCoolFloor;
-uniform float uCeiling;
 uniform float uGrain, uDither, uVignette;
 uniform float uPointerRadius, uDraft, uPointerStrength, uParallax;
 #define OCTAVES 3
@@ -158,9 +157,9 @@ void main() {
 
   vec2 p = (uv - iMouse * uParallax) * uScale;
 
-  // the column rises: the whole field is sampled in a frame that slides down past
-  // it, so the smoke climbs without the frame ever moving
-  vec2 sp = p + vec2(0.0, -t * uRise);
+  // no vertical climb: the field is already distributed across the frame, so
+  // the shader is full-screen from the first frame; flow and curl keep it alive
+  vec2 sp = p;
 
   // the flow that carries it, plus the draught the hand puts into the room. The
   // hand's travel is added to the VELOCITY field rather than to the coordinate,
@@ -174,24 +173,22 @@ void main() {
   vec2 mp = vec2(sp.x, sp.y * uSlender) * uSmokeScale + c;
   float dens = fbm(mp) * 0.5 + 0.5;
 
-  // the corridor the column climbs, leaning toward the pointer and widening as it
-  // goes — the lean is weighted by height, so the base stays put and the top
-  // swings, which is how a plume answers a draught
+  // the corridor the plume occupies, leaning toward the pointer and widening
+  // as it goes — the lean is weighted by height, so the base stays put and the
+  // top swings, which is how a plume answers a draught
   float h = uv.y + 0.55;
   float lean = iMouse.x * uLean * clamp(h, 0.0, 1.6);
   float width = max(0.06, uWidth * (0.45 + uSpread * clamp(h, 0.0, 1.8)));
   float xr = (uv.x - lean) / width;
   float corridor = exp(-xr * xr);
+  // Keep an ambient floor so the smoke reads across the whole frame, not just
+  // as a narrow column that has to climb into the empty top half first.
+  corridor = mix(0.65, corridor, 0.55);
 
-  // and it thins as it cools on the way up
+  // a soft cool-down toward the top, but the floor stays high enough that the
+  // upper half is lit from the first frame instead of waiting for a plume to rise
   float cool = smoothstep(-0.65, 0.85, uv.y);
-  // Phones breathe the floor up until the plume fills the frame. Left alone
-  // that can wash the entire screen; hold a band of cool air along the top
-  // so the lit area tops out around four fifths of the height. Desktop keeps
-  // the uniform floor it always had (uCeiling is 0 there).
-  float ceiling = smoothstep(0.30, 0.50, uv.y) * uCeiling;
-  float floorTop = mix(uCoolFloor, 0.30, ceiling);
-  float smoke = dens * corridor * mix(1.0, floorTop, cool) * uDensity;
+  float smoke = dens * corridor * mix(1.0, uCoolFloor, cool) * uDensity;
 
   // and the stirred air carries a little more of it — an exposure lift, not a
   // shape, so there is nothing following the cursor to point at
@@ -234,11 +231,11 @@ void main() {
   const SETTINGS = {
     scale: 0.2, speed: 0.33, flow: 0.02, roughness: 0.47,
     lacunarity: 2.75, smokeScale: 3.06, curl: 0.57, curlScale: 1.46,
-    rise: 0.05, slender: 1.57, width: 1.55, spread: 2.05, lean: 0.62,
+    slender: 1.57, width: 1.55, spread: 2.05, lean: 0.62,
     density: 1.4, contrast: 1.85, midpoint: 0.69, glow: 0.48,
     sink: 0.42, grain: 0, grainAnim: 0, dither: 0.43, vignette: 0.15,
     cursor: 1, pointerRadius: 0.38, draft: 4.5, pointerStrength: 0.73,
-    parallax: 0.007, coolFloor: 0.30, maxDpr: 1
+    parallax: 0.007, coolFloor: 0.82, maxDpr: 1
   };
 
   /* ── theme palette ─────────────────────────────────────────────────────
@@ -296,8 +293,6 @@ void main() {
       if (k === 'maxDpr') continue;
       u1f('u' + k.charAt(0).toUpperCase() + k.slice(1), SETTINGS[k]);
     }
-    // Mobile only: hold the top fifth of the frame below the light.
-    u1f('uCeiling', coarsePointer ? 1 : 0);
     resize();
   }
 
@@ -376,15 +371,8 @@ void main() {
     clock += ms * 0.001;
 
     u1f('iTime', clock);
-    if (coarsePointer) {
-      // Phones only ever see the warm base of the column: at the top the
-      // cooling term multiplies density down to uCoolFloor, which sits below
-      // uMidpoint, so that band is mathematically incapable of lighting up.
-      // Breathe the floor over 72 seconds so the frame fills and recedes
-      // instead of leaving the upper bands permanently black. The shader's
-      // uCeiling keeps the last fifth of the height cool at the peak.
-      u1f('uCoolFloor', 0.30 + 0.45 * (0.5 - 0.5 * Math.cos(clock * Math.PI / 36)));
-    }
+    // The field is full-frame from the first frame; no mobile-only floor
+    // breathing is needed now that the top half starts lit.
     if (pointerOn) {
       const kLead = 0.105 * s, kBody = 0.043 * s, kWake = 0.017 * s;
       mouse.ax += (mouse.tx - mouse.ax) * kLead;
