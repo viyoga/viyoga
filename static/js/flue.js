@@ -183,7 +183,8 @@ void main() {
   float corridor = exp(-xr * xr);
   // Keep an ambient floor so the smoke reads across the whole frame, not just
   // as a narrow column that has to climb into the empty top half first.
-  corridor = mix(0.65, corridor, 0.55);
+  // 10% less ambient fill than the previous 0.65 so it does not wash the frame.
+  corridor = mix(0.585, corridor, 0.55);
 
   // a soft cool-down toward the top, but the floor stays high enough that the
   // upper half is lit from the first frame instead of waiting for a plume to rise
@@ -235,7 +236,7 @@ void main() {
     density: 1.4, contrast: 1.85, midpoint: 0.69, glow: 0.48,
     sink: 0.42, grain: 0, grainAnim: 0, dither: 0.43, vignette: 0.15,
     cursor: 1, pointerRadius: 0.38, draft: 4.5, pointerStrength: 0.73,
-    parallax: 0.007, coolFloor: 0.82, maxDpr: 1
+    parallax: 0.007, coolFloor: 0.738, maxDpr: 1
   };
 
   /* ── theme palette ─────────────────────────────────────────────────────
