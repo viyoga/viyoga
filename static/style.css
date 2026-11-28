@@ -56,6 +56,8 @@
 
 /* Smooth scrolling with sticky header offset */
 html {
+  color-scheme: dark;
+  color-scheme: only dark;
   scroll-behavior: smooth;
   scroll-padding-top: 54px;
   overflow-x: hidden;
@@ -5248,4 +5250,58 @@ html.intro-leaving .intro {
   body:has(#grid-canvas)::before {
     display: none !important;
   }
+}
+
+/* ── Forced browser dark-mode guard ──
+   viyoga is dark by design. Pin the authored scheme and opt the chrome,
+   controls and reading surfaces out of browser auto-dark recolouring. */
+nav.top,
+nav.top .logo,
+.nav-links a,
+.theme-btn,
+.theme-pick,
+.terminal,
+.terminal-bar,
+.chapter-head,
+.chapter-bar,
+.chapter-settings,
+.novel-card,
+.stack-card,
+.stat-card,
+.chapter-card,
+.chapter-grid .grid-item,
+.dict-result,
+.playlist,
+.playlist-item,
+.glass-btn,
+.back-btn,
+.dict-launch-btn,
+.novel-start-btn,
+.type-action-btn,
+.compress-btn,
+.compress-dl-btn,
+.compress-dl-all,
+.walldiff-btn,
+.studio-btn,
+.dict-submit,
+.dict-retry,
+.chapter-search,
+.chapter-sort,
+.chapter-search input,
+button,
+input,
+textarea,
+select {
+  color-scheme: only dark;
+}
+
+.theme-btn {
+  -webkit-appearance: none;
+  appearance: none;
+}
+
+.theme-btn,
+.nav-links a,
+nav.top .logo {
+  background-color: color-mix(in srgb, var(--bg-panel) 35%, transparent);
 }

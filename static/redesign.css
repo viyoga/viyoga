@@ -767,3 +767,57 @@ body.chapter-page .chapter-head::after {
 .chapter-sort-arrow { color: var(--primary) !important; }
 .chapter-result-count { color: var(--outline) !important; }
 .chapter-empty { color: var(--on-surface-variant) !important; }
+
+/* ── Forced browser dark-mode guard ──
+   The new design is still a dark-only surface; keep browser auto-dark from
+   remapping the nav, controls and reading panels. */
+nav.top,
+nav.top .logo,
+.nav-links a,
+.theme-btn,
+.theme-pick,
+.terminal,
+.terminal-bar,
+.chapter-head,
+.chapter-bar,
+.chapter-settings,
+.novel-card,
+.stack-card,
+.stat-card,
+.chapter-card,
+.chapter-grid .grid-item,
+.dict-result,
+.playlist,
+.playlist-item,
+.glass-btn,
+.back-btn,
+.dict-launch-btn,
+.novel-start-btn,
+.type-action-btn,
+.compress-btn,
+.compress-dl-btn,
+.compress-dl-all,
+.walldiff-btn,
+.studio-btn,
+.dict-submit,
+.dict-retry,
+.chapter-search,
+.chapter-sort,
+.chapter-search input,
+button,
+input,
+textarea,
+select {
+  color-scheme: only dark;
+}
+
+.theme-btn {
+  -webkit-appearance: none;
+  appearance: none;
+  background-color: var(--surface-variant) !important;
+}
+
+.nav-links a,
+nav.top .logo {
+  background-color: var(--bg-panel) !important;
+}
