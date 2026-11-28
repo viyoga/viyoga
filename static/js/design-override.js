@@ -5,12 +5,13 @@
 (function () {
   var root = document.documentElement;
   if (root.getAttribute("data-design") !== "new") return;
-  var THEMES = ["amber", "zeel", "safelight", "tungsten"];
+  var THEMES = ["amber", "zeel", "safelight", "tungsten", "toxic"];
   var THEME_LABELS = {
     amber: "Caelus",
     zeel: "Zeel",
     safelight: "Gruvbox Material",
-    tungsten: "Rebellion"
+    tungsten: "Rebellion",
+    toxic: "Toxic"
   };
   var FONTS = ["maple", "iosevka", "space"];
   var FONT_LABELS = {

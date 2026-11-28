@@ -22,7 +22,7 @@
     var FONTS = ['maple', 'iosevka', 'space'];
     var THEMES = (window.__THEMES__ && window.__THEMES__.length)
       ? window.__THEMES__.slice()
-      : ['amber', 'zeel', 'safelight', 'tungsten', 'ocean', 'nyctophobia'];
+      : ['amber', 'zeel', 'safelight', 'tungsten', 'ocean', 'nyctophobia', 'toxic'];
 
     var fontBtns = panel.querySelectorAll('[data-font-choice]');
     var themeBtns = panel.querySelectorAll('[data-theme-choice]');
@@ -31,7 +31,8 @@
     var themeName = document.getElementById('cs-theme-name');
     var THEME_LABELS = {
       amber: 'Amber', zeel: 'Zeel', safelight: 'Safelight',
-      tungsten: 'Tungsten', ocean: 'Ocean Blue', nyctophobia: 'Nyctophobia'
+      tungsten: 'Tungsten', ocean: 'Ocean Blue', nyctophobia: 'Nyctophobia',
+      toxic: 'Toxic'
     };
 
     function store(key, value) {

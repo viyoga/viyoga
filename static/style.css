@@ -243,7 +243,7 @@ html[data-font="space"] {
   --font-read: "Space Mono", monospace;
 }
 
-/* Themes: amber, zeel, safelight, tungsten, nyctophobia. */
+/* Themes: amber, zeel, safelight, tungsten, nyctophobia, ocean, toxic. */
 :root {
   --cat-dark: #6B2A0E;
   --cat-mid: #B24A1A;
@@ -570,6 +570,58 @@ html[data-theme="ocean"] {
   --cat-mid: #0369A1;
   --cat-base: #38BDF8;
   --cat-light: #E0F2FE;
+}
+
+/* ── toxic — Acid-washed black: mustard, lime, and toxic green over a
+   near-black petri dish, with cyan as the clean counter-light. ── */
+html[data-theme="toxic"] {
+  --bg: #030A00;
+  --bg-elev: #061204;
+  --fg: #E5EAE1;
+  --fg-dim: #969C92;
+  --accent: #B99D13;
+  --accent-2: #E8F11C;
+  --glass: rgba(8, 20, 5, .48);
+  --glass-hi: rgba(14, 34, 8, .64);
+  --line: rgba(185, 157, 19, .18);
+  --line-hi: rgba(232, 241, 28, .42);
+  --sheen: rgba(249, 255, 191, .07);
+  --grid: rgba(185, 157, 19, .07);
+  --glow: rgba(185, 157, 19, .28);
+  --halo-a: rgba(232, 241, 28, .12);
+  --halo-b: rgba(2, 160, 84, .10);
+  --blur: 16px;
+  --sat: 150%;
+  --bg-panel: #061204;
+  --bg-panel-alt: #0C1A08;
+  --bg-glow: #041004;
+  --bg-core: #010300;
+  --fg-muted: #586A46;
+  --border: var(--line);
+  --border-strong: var(--line-hi);
+  --accent-bright: #F9FFBF;
+  --accent-soft: #79D30B;
+  --accent-dim: #7B7508;
+  --link: #06F4B9;
+  --link-hover: #CEFFEA;
+  --focus-ring: #E8F11C;
+  --grid-fade: #030A00;
+  --grid-line: rgba(185, 157, 19, .09);
+  --grid-dot: rgba(232, 241, 28, .28);
+  --bar-a: #B99D13;
+  --bar-b: #E8F11C;
+  --bar-c: #44C073;
+  --orange: #DDBC24;
+  --orange-deep: #5A4C08;
+  --red: #9A930B;
+  --red-deep: #7B7508;
+  --cyan: #06F4B9;
+  --cyan-deep: #02A054;
+  --yellow: #E8F11C;
+  --cat-dark: #363305;
+  --cat-mid: #7B7508;
+  --cat-base: #B99D13;
+  --cat-light: #ADEE7F;
 }
 
 /* ── Scrollbar ── */
@@ -951,6 +1003,9 @@ nav.top .logo:active {
    reallocation mid-scroll). Falls back to 100vh where lvh is unsupported. */
 #grid-canvas, #flue-canvas { height: 100vh; height: 100lvh; }
 html.flue-live #flue-canvas { opacity: 0.82; }
+/* Reading pages keep the shader, but dimmed so body copy stays dominant.
+   The base canvas transition makes the index <-> chapter swap fade smoothly. */
+html.flue-live body.chapter-page #flue-canvas { opacity: 0.58; }
 /* The smoke is a full-bleed field, so the reading surfaces get a little more
    fill than usual — the panels stay glassy, but body copy keeps its contrast. */
 html.flue-live {
@@ -2347,6 +2402,7 @@ body.reading .chapter-body {
   .cs-themes button[data-theme-choice="tungsten"]    { --sw-ink: #F2F5FA; }
   .cs-themes button[data-theme-choice="ocean"]       { --sw-ink: #38BDF8; }
   .cs-themes button[data-theme-choice="nyctophobia"] { --sw-ink: #EA5562; }
+  .cs-themes button[data-theme-choice="toxic"]       { --sw-ink: #E8F11C; }
 
   .cs-close:focus-visible,
   .cs-faces button:focus-visible,

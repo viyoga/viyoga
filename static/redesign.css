@@ -289,6 +289,67 @@ html[data-theme="rebellion"] {
   --c-green: var(--c-tertiary);
 }
 
+/* ── Theme: Toxic ─────────────────────────────────────────────────── */
+html[data-theme="toxic"] {
+  --c-bg: #030a00;
+  --c-surface: #061204;
+  --c-surface-variant: #0c1a08;
+  --c-surface-2: #12230d;
+  --c-on-surface: #e5eae1;
+  --c-on-surface-variant: #969c92;
+  --c-outline: #586a46;
+  --c-outline-variant: #363305;
+
+  --c-primary: #b99d13;
+  --c-on-primary: #030a00;
+  --c-primary-container: #5a4c08;
+  --c-on-primary-container: #f9ffbf;
+  --c-secondary: #e8f11c;
+  --c-on-secondary: #030a00;
+  --c-secondary-container: #4a4c05;
+  --c-on-secondary-container: #fbffd1;
+  --c-tertiary: #02a054;
+  --c-on-tertiary: #030a00;
+  --c-tertiary-container: #034a27;
+  --c-on-tertiary-container: #ceffea;
+  --c-error: #9a930b;
+  --c-on-error: #030a00;
+  --c-error-container: #3d3a04;
+  --c-on-error-container: #f9ffbf;
+  --c-success: #79d30b;
+  --c-warning: #e8f11c;
+  --c-info: #06f4b9;
+  --c-info-container: #02a054;
+  --c-link: #06f4b9;
+  --c-link-hover: #ceffea;
+  --c-hover: #0c1a08;
+  --c-on-hover: #f9fbf7;
+  --c-shadow: #020800;
+  --c-scrim: #000000;
+  --c-inverse-surface: #e5eae1;
+  --c-inverse-on-surface: #030a00;
+  --c-inverse-primary: #7b7508;
+  --c-surface-tint: #b99d13;
+  --c-cat-dark: #363305;
+  --c-cat-mid: #7b7508;
+  --c-cat-base: #b99d13;
+  --c-cat-light: #adee7f;
+  --c-orange: #ddbc24;
+  --c-orange-deep: #5a4c08;
+  --c-amber: #e8f11c;
+  --c-amber-bright: #f9ffbf;
+  --c-cyan: #06f4b9;
+  --c-cyan-deep: #02a054;
+  --c-red: #9a930b;
+  --c-red-deep: #7b7508;
+  --c-yellow: #e8f11c;
+  --c-green: #44c073;
+  --c-brown-dark: #363305;
+  --c-brown-mid: #7b7508;
+  --c-brown-base: #b99d13;
+  --c-brown-light: #adee7f;
+}
+
 /* ── Semantic mapping: the old UI vars now draw from the palette ───── */
 html[data-theme] {
   --bg: var(--c-bg);
@@ -594,7 +655,7 @@ nav.top .logo,
   }
 }
 
-/* Mobile reading sheet: four replica themes, three replica faces. */
+/* Mobile reading sheet: five replica themes, three replica faces. */
 .cs-themes button[data-theme-choice="amber"] {
   --sw-paper: #0f0f0f;
   --sw-ink: #ef934d;
@@ -610,6 +671,10 @@ nav.top .logo,
 .cs-themes button[data-theme-choice="tungsten"] {
   --sw-paper: #181415;
   --sw-ink: #ff382e;
+}
+.cs-themes button[data-theme-choice="toxic"] {
+  --sw-paper: #030a00;
+  --sw-ink: #e8f11c;
 }
 .cs-themes button[data-theme-choice="nyctophobia"],
 .cs-themes button[data-theme-choice="ocean"] {
