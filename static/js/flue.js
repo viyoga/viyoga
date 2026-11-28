@@ -229,7 +229,7 @@ void main() {
 
   // Shipped Flue settings. Colours are the only thing viyoga overrides.
   const SETTINGS = {
-    scale: 0.2, speed: 0.33, flow: 0.02, roughness: 0.47,
+    scale: 0.2, speed: 0.50, flow: 0.025, roughness: 0.47,
     lacunarity: 2.75, smokeScale: 3.06, curl: 0.57, curlScale: 1.46,
     slender: 1.57, width: 1.55, spread: 2.05, lean: 0.62,
     density: 1.4, contrast: 1.85, midpoint: 0.69, glow: 0.48,
@@ -341,7 +341,7 @@ void main() {
 
   // Nothing steers the field on a phone, so its own drift is the only motion
   // on screen. Ease it back a touch: still alive, no longer a metronome.
-  if (coarsePointer) SETTINGS.speed = 0.28;
+  if (coarsePointer) SETTINGS.speed = 0.42;
 
   if (pointerOn) {
     addEventListener('pointermove', aim, { passive: true });
