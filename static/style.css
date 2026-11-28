@@ -1005,7 +1005,7 @@ nav.top .logo:active {
 html.flue-live #flue-canvas { opacity: 0.82; }
 /* Reading pages keep the shader, but dimmed so body copy stays dominant.
    The base canvas transition makes the index <-> chapter swap fade smoothly. */
-html.flue-live body.chapter-page #flue-canvas { opacity: 0.58; }
+html.flue-live body.chapter-page #flue-canvas { opacity: 0.50; }
 /* The smoke is a full-bleed field, so the reading surfaces get a little more
    fill than usual — the panels stay glassy, but body copy keeps its contrast. */
 html.flue-live {
